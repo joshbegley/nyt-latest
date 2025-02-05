@@ -1,3 +1,7 @@
+**NBA Trade Board: Kevin Durant No. 1; Julius Randle, Marcus Smart join the fray**\
+`Will we see another shocker like the Luka-AD deal? The clock is ticking.`\
+https://nytimes.com/athletic/6110859/2025/02/05/nba-trade-deadline-jimmy-butler-julius-randle/
+
 **While Lamar Jackson has Super Bowl goals, a third MVP would put him in rare company**\
 `"As a quarterback, your goal is to be the best player you can be to help the team, and certainly Lamar is doing that," said Peyton Manning. `\
 https://nytimes.com/athletic/6112750/2025/02/05/super-bowl-lamar-jackson-nfl-mvp-ravens/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6107392/2025/02/05/winnipeg-jets-salary-cap-ehlers-
 **'He's a very positive player': Flyers take a chance on Jakob Pelletier**\
 `The Flyers acquired the 23-year-old last Thursday as part of the trade that sent Morgan Frost and Joel Farabee to the Flames.`\
 https://nytimes.com/athletic/6114368/2025/02/05/flyers-flames-jakob-pelletier-trade/
-
-**How the NHL’s salary-cap bump impacts the Rangers in the short and long term**\
-`The cap going up leaves room for the Rangers to aim high as GM Chris Drury identifies the team’s future direction.`\
-https://nytimes.com/athletic/6104060/2025/02/05/nhl-salary-cap-increase-rangers/
 
