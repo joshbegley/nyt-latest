@@ -1,3 +1,15 @@
+**Submit your Red Wings mailbag questions**\
+`Send in your questions, and Max Bultman may answer them in an upcoming story.`\
+https://nytimes.com/athletic/6115818/2025/02/05/submit-your-red-wings-mailbag-questions/
+
+**LIV Golf recognized with automatic spot in the U.S. Open**\
+`The USGA is the first of the four major governing bodies to recognize LIV, which begins its fourth season this week.`\
+https://nytimes.com/athletic/6115817/2025/02/05/liv-golf-us-open/
+
+**Super Bowl 2024 props, picks: Best bets for Saquon Barkley and five other props**\
+`Austin Mock picks his best bets for Super Bowl 59, including a surprising prop pick on Saquon Barkley.`\
+https://nytimes.com/athletic/6115336/2025/02/05/super-bowl-59-prop-bets-saquon-barkley/
+
 **Tesla’s European Sales Drop in January After Musk Disrupts Politics There**\
 `The U.S. electric car company’s sales are sliding across Europe, amid what many see as interference in local affairs by Tesla’s chief executive, Elon Musk.`\
 https://nytimes.com/2025/02/05/business/tesla-germany-elon-musk.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/arts/dance/stephen-petronio-dance-company-disband
 **Pro-Trump Media Sees Nothing but ‘Winning’**\
 `Among an array of right-wing personalities and media outlets, the president can do no wrong.`\
 https://nytimes.com/2025/02/05/technology/trump-media-right-wing.html
-
-**A Composer Turns Down the Tempo, and Turns Up the Complexity**\
-`Lisa Streich, an artist on the rise who has found success in Europe, is having a rare American showcase this week in New York.`\
-https://nytimes.com/2025/02/05/arts/music/lisa-streich-music.html
-
-**The Next Aga Khan Is Named**\
-`Prince Rahim, the new leader of the Ismaili Muslims, was named as the successor of his father, who died at 88.`\
-https://nytimes.com/2025/02/05/world/europe/prince-rahim-aga-khan-ismaili-muslims.html
-
-**Premier League 'would deal with' goal celebrations that 'cross into mockery or criticism'**\
-`Everton’s Iliman Ndiaye received a yellow card for his 'seagull' celebration against Brighton on January 25.`\
-https://nytimes.com/athletic/6115567/2025/02/05/premier-league-referee-celebrations/
 
