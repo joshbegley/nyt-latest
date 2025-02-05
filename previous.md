@@ -1,3 +1,7 @@
+**Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
+`Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
+https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
+
 **Here is the latest.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112177/2025/02/05/nottingham-forest-transfer-revie
 **Crystal Palace's transfer window: Romain Esse offers promise, but squad depth still a concern**\
 `Palace had to adapt after Chalobah returned to Chelsea and two players suffered season-ending injuries, but still brought only two in`\
 https://nytimes.com/athletic/6107040/2025/02/05/crystal-palace-transfers-esse-chilwell-chalobah-glasner/
-
-**Arsenal's transfer window reviewed: No new signings fuels expectation of a big summer**\
-`Arsenal decided to stick not twist as they chase Liverpool this season - which should free up spending power for 2025-26`\
-https://nytimes.com/athletic/6111907/2025/02/05/arsenal-transfer-window-reviewed/
 

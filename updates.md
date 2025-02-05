@@ -1,3 +1,7 @@
+**Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
+`Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
+https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
+
 **Here is the latest.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump/here-is-the-latest
