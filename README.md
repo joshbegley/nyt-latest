@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Hit Record in 2024 as Imports Surged**\
+`A strong dollar helped drive an uptick in U.S. imports last year, while export growth remained modest.`\
+https://nytimes.com/2025/02/05/business/economy/us-trade-deficit-hit-record-in-2024-as-imports-surged.html
+
 **MoneyCall: What's 'success' for Fox's $375M man?**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6114631/2025/02/05/tom-brady-super-bowl-broadcast-moneycall-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaz
 **Brighton agree deal to sign Bischoff from Brondby**\
 `Brighton will pay around €8million to acquire Bischoff and he is set to sign a four-and-a-half-year contract with the club.`\
 https://nytimes.com/athletic/6115003/2025/02/05/brighton-clement-bischoff-transfer/
-
-**Watch: Why Lewis-Skelly and Nwaneri's breakthrough shows Arteta's evolution as manager**\
-`The Athletic FC Podcast discuss Arsenal's exciting teenage talents Myles Lewis-Skelly and Ethan Nwaneri`\
-https://nytimes.com/athletic/6112358/2025/02/05/athletic-fc-podcast-nwaneri-lewis-skelly/
 
