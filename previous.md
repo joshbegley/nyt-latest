@@ -1,3 +1,11 @@
+**French Government Survives No-Confidence Vote**\
+`The vote clears the way for final approval of France’s 2025 budget, easing concerns about the country’s political turmoil — but not ending them.`\
+https://nytimes.com/2025/02/05/world/europe/france-government-no-confidence-vote.html
+
+**Outrage Over Trump’s Proposal to Take Over Gaza**\
+`Responses to President Trump’s plan. Also: A Canadian’s advice; safer schools; a shift on wind energy; cancer, anxiety and hope.`\
+https://nytimes.com/2025/02/05/opinion/trump-gaza.html
+
 **‘The Ezra Klein Show’ 2024 Book Recommendations**\
 `Readings that the podcast’s guests say shaped their thinking.`\
 https://nytimes.com/2025/02/05/opinion/the-ezra-klein-show-book-recommendations-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/theater/kowalski-mrs-loman-nina-off-broadway-revi
 **Scoop City: Where Mahomes, Reid and Kelce land in GOAT debates**\
 `Inside: How Kansas City&#8217;s current stars compare to the GOATs, an initial free agency primer and New Orleans&#8217; storied Superdome, which has hosted ___ Super Bowls? (Hint: It&#8217;s more than five.`\
 https://nytimes.com/athletic/6115858/2025/02/05/goat-debates-nfl-mahomes-reid-kelce-chiefs-scoop-city/
-
-**Submit your Red Wings mailbag questions**\
-`Send in your questions, and Max Bultman may answer them in an upcoming story.`\
-https://nytimes.com/athletic/6115818/2025/02/05/submit-your-red-wings-mailbag-questions/
-
-**LIV Golf recognized with automatic spot in the U.S. Open**\
-`The USGA is the first of the four major governing bodies to recognize LIV, which begins its fourth season this week.`\
-https://nytimes.com/athletic/6115817/2025/02/05/liv-golf-us-open/
 

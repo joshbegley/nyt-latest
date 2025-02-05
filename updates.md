@@ -1,3 +1,11 @@
+**French Government Survives No-Confidence Vote**\
+`The vote clears the way for final approval of France’s 2025 budget, easing concerns about the country’s political turmoil — but not ending them.`\
+https://nytimes.com/2025/02/05/world/europe/france-government-no-confidence-vote.html
+
+**Outrage Over Trump’s Proposal to Take Over Gaza**\
+`Responses to President Trump’s plan. Also: A Canadian’s advice; safer schools; a shift on wind energy; cancer, anxiety and hope.`\
+https://nytimes.com/2025/02/05/opinion/trump-gaza.html
+
 **‘The Ezra Klein Show’ 2024 Book Recommendations**\
 `Readings that the podcast’s guests say shaped their thinking.`\
 https://nytimes.com/2025/02/05/opinion/the-ezra-klein-show-book-recommendations-2024.html
