@@ -1,3 +1,11 @@
+**C.I.A. Sends White House an Unclassified Email With Names of Some Employees**\
+`The list of partial names was provided in an effort to comply with an executive order to trim the federal work force.`\
+https://nytimes.com/2025/02/05/us/politics/cia-names-list.html
+
+**Trade grades: Kyle Kuzma joins Giannis Antetkounmpo as Khris Middleton becomes a Wizard**\
+`Kyle Kuzma is on the way to Milwaukee as Khris Middleton heads to Washington. Zach Harper's trade grades examine the deal`\
+https://nytimes.com/athletic/6115603/2025/02/05/kyle-kuzma-bucks-khris-middleton-wizards-nba-trade-deadline/
+
 **Huge Bear Found Living Under California Home After Fires**\
 `A California homeowner, who was evacuated due to the wildfires in the area, returned home to find a 525-pound black bear under his home.`\
 https://nytimes.com/video/us/100000009972062/bear-altadena-wildfire-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/business/tesla-germany-elon-musk.html
 **Kremlin Confirms Talks With Trump Administration About Ukraine**\
 `Russia said that discussions with Washington were underway regarding potential peace talks to end the war nearly three years after Moscow’s full-scale invasion.`\
 https://nytimes.com/2025/02/05/us/politics/russia-trump-ukraine-war-talks.html
-
-**Spanish FA calls meeting to address refereeing issues, Real Madrid to not attend**\
-`Following their criticism of refereeing decisions in Saturday's loss to Espanyol, Madrid have communicated that they will not be present.`\
-https://nytimes.com/athletic/6115577/2025/02/05/spanish-fa-referee-meeting-real-madrid/
-
-**Harry Stewart Jr. Dies at 100; One of Last Tuskegee Airmen to See Combat**\
-`His boyhood dream to be an adventurous pilot was fulfilled thanks to World War II. But, as a civilian, racial prejudice kept him out of the cockpit.`\
-https://nytimes.com/2025/02/05/us/harry-stewart-jr-dead.html
 
