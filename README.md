@@ -1,3 +1,15 @@
+**In Gaza and Jerusalem, People React to Trump’s Proposal for Palestinians**\
+`A day after President Trump proposed that the United States take over Gaza, many Palestinians said they were committed to staying in the enclave despite the widespread devastation. In Jerusalem, some residents reacted with surprise and enthusiasm to the proposal.`\
+https://nytimes.com/video/world/middleeast/100000009970943/in-gaza-and-jerusalem-people-react-to-trumps-proposal-for-palestinians.html
+
+**The Bounce: Will Kevin Durant be dealt by NBA trade deadline?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6115015/2025/02/05/kevin-durant-suns-jimmy-butler-heat-luka-doncic-anthony-davis-lakers-mavericks-nba-trade-deadline-the-bounce/
+
+**Vecenie: After Luka Dončić trade, Lakers should be thinking about summer 2026**\
+`The Dončić deal positions the Lakers extremely well for the future — especially when a bumper crop of stars might become available.`\
+https://nytimes.com/athletic/6108702/2025/02/05/lakers-trades-free-agents-cap-space-doncic-2026/
+
 **Colin Cowherd signs Nick Wright's podcast away from Fox Sports**\
 `Cowherd and Wright are the two biggest draws on Fox Sports’ cable channel, FS1, and will continue to do their weekday shows on TV.`\
 https://nytimes.com/athletic/6115443/2025/02/05/colin-cowherd-nick-wright-podcast-deal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6115295/2025/02/05/khris-middleton-trade-kyle-kuzma
 **Why Musk Is So Focused on the Bureau of the Fiscal Service, America’s ‘Checkbook’**\
 `Spending power, privacy concerns and conflicts of interest have put the bureau at the center of a political fight.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-bureau-fiscal-service.html
-
-**Has the Coronavirus Pandemic Changed Your Relationship to Grief?**\
-`The New York Times is interested in exploring how the response to loss may have changed in the last five years.`\
-https://nytimes.com/2025/02/05/us/covid-deaths-grief.html
-
-**How Did Covid Change Your Life?**\
-`The New York Times wants to hear from readers reflecting on what life looks like now, five years later.`\
-https://nytimes.com/2025/02/05/us/covid-pandemic-changes.html
-
-**‘It Was My School’: Sweden Shooting Site Was at Heart of a Diverse Community**\
-`One day after the killings at an adult educational center, some gathered to lay flowers and come to grips with the violence.`\
-https://nytimes.com/2025/02/05/world/europe/sweden-mass-shooting-community.html
 
