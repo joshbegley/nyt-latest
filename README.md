@@ -1,7 +1,3 @@
-**Man Is Charged With First-Degree Murder in Shooting of Newark Boy, 9**\
-`The man, Jesse J. Dunbar II, also faces assault and weapons charges, prosecutors said.`\
-https://nytimes.com/2025/02/05/nyregion/newark-murder-arrest-shooting.html
-
 **For Wild's Ryan Hartman, latest suspension should be a wake-up call**\
 `Wild GM said of Hartman: “He’s pretty upset. This is affecting him.” But also: "He’s got to do a better job. … Look, he just can’t do it.”`\
 https://nytimes.com/athletic/6114459/2025/02/05/wild-ryan-hartman-suspension-wakeup-call/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/05/us/politics/trump-netanyahu.html
 **This Smoky, Buttery Shrimp Dinner Is Ready in No Time**\
 `Impress your friends with this effortless dinner party menu from David Tanis, started with a mustardy arugula salad and finished with a knockout pear-almond cake.`\
 https://nytimes.com/2025/02/05/dining/easy-shrimp-dinner-recipe.html
+
+**Transcript of ‘60 Minutes’ Interview With Kamala Harris**\
+`The Federal Communications Commission on Wednesday released the transcript of a “60 Minutes” interview with Vice President Kamala Harris that has been at the center of a lawsuit between CBS and President Trump.`\
+https://nytimes.com/interactive/2025/02/05/business/media/60-minutes-kamala-harris-interview-transcript.html
 
