@@ -1,3 +1,11 @@
+**The Blue Devils Made Me Do It**\
+`What I learned at my first-ever Duke-U.N.C. basketball game.`\
+https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
+
+**Can a Fake Reality Show Keep Spring Breakers Away?**\
+`As part of its yearslong effort to curb raucous partying, Miami Beach created “Reality Check,” a video in which revelers find out the rules and regulations that would await them.`\
+https://nytimes.com/2025/02/05/style/miami-beach-spring-break-reality-check.html
+
 **Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
 `Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
 https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/style/tiny-modern-love-stories-a-mini-breakdown-i
 **Wild claim veteran forward Vinnie Hinostroza off waivers from Nashville: Why?**\
 `Vinnie Hinostroza, a veteran winger who has played 387 games over 10 NHL seasons, was claimed from the Nashville Predators.`\
 https://nytimes.com/athletic/6116309/2025/02/05/wild-vinnie-hinostroza-waivers/
-
-**Let Us Help You Find Your Next Book: Romance**\
-`Whether you're looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/romance-books.html
-
-**Classic Romance Novels: A Starter Pack**\
-`These vintage books introduce the archetypes, settings and lavishly bonkers sensibility that are the hallmarks of great romance.`\
-https://nytimes.com/interactive/2025/02/05/books/romance-books-love.html
 
