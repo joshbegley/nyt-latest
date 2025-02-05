@@ -6,7 +6,7 @@ https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
 `The United States has been importing about 3 million parcels a day with almost no customs inspection and no duties collected.`\
 https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
 
-**Cubs to acquire Ryan Brasier in trade with Dodgers: Source**\
+**Cubs to acquire Ryan Brasier in trade with Dodgers: Sources**\
 `The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
 https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
 
