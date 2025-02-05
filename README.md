@@ -1,3 +1,11 @@
+**Trump Signs Order Barring Transgender Student-Athletes From Women’s Sports**\
+`The president said schools that violated the order would jeopardize their federal funding.`\
+https://nytimes.com/2025/02/05/us/politics/trump-order-transgender-athletes-womens-sports.html
+
+**Tom Brady looks back on Fox work, Raiders role ahead of Super Bowl**\
+`"I think the mistakes that I have made and I have made plenty, I have learned from all of them," Brady said.`\
+https://nytimes.com/athletic/6116452/2025/02/05/tom-brady-fox-analyst-raiders-super-bowl/
+
 **Thursday Briefing: An Uproar Over Trump’s Gaza Plan**\
 `Plus, drink (and sleep) in a British pub.`\
 https://nytimes.com/2025/02/05/briefing/trump-gaza-goma-deaths-nissan-honda.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116377/2025/02/05/nfl-nflpa-18-games-schedule-expa
 **Foreign Aid Freeze Leaves Millions Without H.I.V. Treatment**\
 `President Trump’s pause on aid, and the gutting of the primary aid agency, could jeopardize the health of more than 20 million people worldwide, including 500,000 children, experts say.`\
 https://nytimes.com/2025/02/05/health/trump-usaid-pepfar.html
-
-**The House speaker defends Trump’s Gaza plan, while other Republicans express doubts.**\
-`By Ephrat Livni and Robert Jimison`\
-https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/house-speaker-defends-trumps-gaza-plan-while-other-republicans-express-doubts
-
-**‘Days of Mass Burials Ahead’ as Congo Mourns Its Dead in Goma**\
-`Nearly 3,000 people were killed over the last week as rebels captured a key city in one of the deadliest battles in the Central African country in decades.`\
-https://nytimes.com/2025/02/05/world/africa/congo-m23-rwanda-goma-burials.html
 
