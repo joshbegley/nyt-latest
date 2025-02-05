@@ -1,3 +1,7 @@
+**Slot happy with Liverpool squad depth after no January transfer signings**\
+`Trent Alexander-Arnold, who has a minor thigh problem, is the only Liverpool player currently unavailable.`\
+https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-news-signings/
+
 **Philippines’ Vice President Is Impeached, Deepening Political Turmoil**\
 `A conviction would hamper the political ambitions of Sara Duterte, who has said that she would like to succeed President Ferdinand R. Marcos Jr.`\
 https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-impeached.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/05/us/trump-agenda-defying-law.html
 **A Super Bowl Preview, Minus the Football**\
 `A look at the musical acts, the famous fans, the commercials and all of the other things surrounding the N.F.L.’s signature event.`\
 https://nytimes.com/2025/02/05/style/super-bowl-watch-music-ads.html
-
-**Is It OK That I’m Withholding Sex Until My Husband Sorts Out His Invoices?**\
-`The magazine’s Ethicist columnist on quid pro quo and navigating serious medical changes in a marriage.`\
-https://nytimes.com/2025/02/05/magazine/invoices-dementia-sex-ethics.html
 
