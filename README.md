@@ -1,3 +1,7 @@
+**Jimmy Kimmel Wants Canada to Save Us, Eh?**\
+`Kimmel is all for making Canada the 51st state: “If Canada also had 54 electoral votes, forget MAGA — our next president will be a kindhearted lesbian moose.”`\
+https://nytimes.com/2025/02/05/arts/television/jimmy-kimmel-canada-trump.html
+
 **Ingmar Bergman’s Grandson Has a Prizewinning Movie of His Own**\
 `With his debut feature, “Armand,” Halfdan Ullmann Tøndel wants to step out of his revered grandfather’s shadow. (Though the movie still contains a secret tribute.)`\
 https://nytimes.com/2025/02/05/movies/armand-halfdan-ullmann-tondel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
 **Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
 `Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
 https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
-
-**Here is the latest.**\
-`By Qasim Nauman`\
-https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump/here-is-the-latest
 
