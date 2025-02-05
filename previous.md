@@ -1,3 +1,23 @@
+**Philippines’ Vice President Is Impeached, Deepening Political Turmoil**\
+`A conviction would hamper the political ambitions of Sara Duterte, who has said that she would like to succeed President Ferdinand R. Marcos Jr.`\
+https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-impeached.html
+
+**Guardians spring guide: 33 notes for 33 pitchers, from Bibee to Bieber to Williams**\
+`As you monitor the action this spring, here’s a handy guide with insight on every pitcher with a locker in the Guards' big-league clubhouse.`\
+https://nytimes.com/athletic/6099816/2025/02/05/guardians-spring-guide-notes-pitchers/
+
+**Panthers pushed both Super Bowl teams to the brink: 'Hopefully one day we can get to that'**\
+`The Panthers lost in Week 12 to the Chiefs by three points and by six points two weeks later in Philadelphia.`\
+https://nytimes.com/athletic/6113584/2025/02/05/panthers-bryce-young-super-bowl-chiefs-eagles/
+
+**Rams way-too-early big board: Pre-free-agency needs, all-star game standouts**\
+`The Rams own the 26th pick in Round 1 and among their needs are: tight end, offensive and defensive tackle, receiver and cornerback.`\
+https://nytimes.com/athletic/6104162/2025/02/05/rams-nfl-draft-big-board-needs-analysis/
+
+**Phillies spring training preview: Thoughts on every pitcher headed to camp**\
+`From Mick Abel to Guillo Zuñiga, here are thoughts on the 34 pitchers coming to Phillies big-league camp.  `\
+https://nytimes.com/athletic/6097034/2025/02/05/phillies-spring-training-2025-pitchers/
+
 **Cowboys unrestricted free-agent tiers: Who do they need to bring back most?**\
 `Osa Odighizuwa will get plenty of attention from other teams, but he's one player the Cowboys should make every effort to keep.`\
 https://nytimes.com/athletic/6101457/2025/02/05/cowboys-unrestricted-free-agents-osa-odighizuwa/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/05/style/super-bowl-watch-music-ads.html
 **Is It OK That I’m Withholding Sex Until My Husband Sorts Out His Invoices?**\
 `The magazine’s Ethicist columnist on quid pro quo and navigating serious medical changes in a marriage.`\
 https://nytimes.com/2025/02/05/magazine/invoices-dementia-sex-ethics.html
-
-**Discovering Family Roots in Brooklyn Slavery**\
-`“Trace/s,” an exhibition at the Center for Brooklyn History, highlights the borough’s neglected story of slavery — and the Black genealogists helping to unearth it.`\
-https://nytimes.com/2025/02/05/arts/design/slavery-brooklyn-history-center.html
-
-**‘Emilia Pérez’ and the New Era of Online Oscar Scandals**\
-`As Karla Sofía Gascón’s resurfaced social media posts upend the campaign for the year’s most-nominated film, what happens now?`\
-https://nytimes.com/2025/02/05/movies/emilia-perez-oscars-scandal.html
-
-**In Seattle, a Renowned Family Restaurant Partnership Ends, Mindfully**\
-`Canlis, opened in 1950, has been run by two brothers since 2007. One of them, along with the executive chef, is leaving.`\
-https://nytimes.com/2025/02/05/dining/canlis-seattle.html
-
-**Pedro Almodóvar Is Afraid of Death. But It’s All Over His Latest Work.**\
-`The visionary director says he’s trying to confront his mortality — but it’s complicated.`\
-https://nytimes.com/2025/02/05/podcasts/culture-desk-pedro-almodovar-memoir.html
-
-**The Breaking of the Constitutional Order**\
-`The political analyst Yuval Levin discusses Trump’s first few weeks in office and the limits of presidential power.`\
-https://nytimes.com/2025/02/05/opinion/ezra-klein-podcast-yuval-levin.html
 
