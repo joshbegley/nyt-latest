@@ -1,3 +1,23 @@
+**Last summer's Premier League transfer window proves one thing: they don't make much difference**\
+`This season shows that 'winning the transfer window' has little relevance to winning matches, or to landing the Premier League title`\
+https://nytimes.com/athletic/6111919/2025/02/05/transfer-window-importance-premier-league-2024-2025/
+
+**Cristiano Ronaldo is 40 today, so here are 40 stats you (probably) don't know about him**\
+`Forty facts and pieces of trivia about the Portuguese forward's remarkable achievements`\
+https://nytimes.com/athletic/6047496/2025/02/05/cristiano-ronaldo-is-40-stats/
+
+**London calling: How foreign money is fuelling English football's southward shift**\
+`As foreign investment increases, potential owners want clubs near Heathrow and London's hotels`\
+https://nytimes.com/athletic/6071827/2025/02/05/london-calling-how-foreign-money-is-fuelling-english-footballs-southward-shift/
+
+**Trump’s Dreams of Gaza ‘Ownership’ Add to His List of Imperial Aspirations**\
+`Once a critic of nation building, the president now envisions taking over a Middle East enclave, driving out its Palestinian population and transforming it into “the Riviera of the Middle East.”`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-netanyahu-takeover.html
+
+**Manchester City's cult hero of the post-match puns on creating a community of 'lovely people'**\
+`One of the most active WSL players on social media, Kerstin Casparij wants to entertain and inspire with her posts`\
+https://nytimes.com/athletic/6112243/2025/02/05/kerstin-casparij-manchester-city-social-media/
+
 **Kyrie Irving reflects on past 'dream' of playing with A.D., Kevin Durant**\
 `The Mavs guard was teammates with Durant in Brooklyn and is now, after the Luka Dončić deal, paired up with Davis in Dallas.`\
 https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin-durant-mavericks/
@@ -17,25 +37,4 @@ https://nytimes.com/2025/02/05/world/europe/mandelson-trump-uk-ambassador.html
 **Quote of the Day: Inside Musk’s Aggressive Incursion Into the Federal Government**\
 `Quotation of the Day for Wednesday, February 5, 2025`\
 https://nytimes.com/2025/02/04/pageoneplus/quote-of-the-day-inside-musks-aggressive-incursion-into-the-federal-government.html
-
-**Saudi Arabia Reiterates Support for a Palestinian State**\
-`Apparently contradicting President Trump, Saudi Arabia said that establishing ties with Israel would depend on the creation of an independent Palestinian state.`\
-https://nytimes.com/2025/02/04/us/politics/saudi-arabia-palestine-trump-gaza.html
-
-**Barely recognizable Blue Jackets end 4-game trip with loss to Sabres**\
-`The Blue Jackets played a tight third period but couldn't equalize in a game in which they were missing their top three scorers.`\
-https://nytimes.com/athletic/6114346/2025/02/04/blue-jackets-provorov-injuries-trip-sabres/
-
-**Wild endure back-to-back shutouts; Hartman expected to appeal suspension: 3 takeaways**\
-`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
-`\
-https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
-
-**5 Takeaways From Trump’s News Conference With Netanyahu**\
-`President Trump said that the United States should take over Gaza and forcibly relocate two million Palestinians. Leaders in Gaza and Arab nations immediately rejected the idea.`\
-https://nytimes.com/2025/02/04/us/politics/5-takeaways-from-trumps-news-conference-with-netanyahu.html
-
-**Crowded Skies, Thin Margins for Error: The Minutes Before the D.C. Air Disaster**\
-`Using radio traffic, flight data and leaked footage of an air traffic control radar screen, we examine what was happening in the moments before the midair collision near Reagan National Airport that left 67 dead.`\
-https://nytimes.com/video/us/100000009963447/dc-plane-crash-investigation.html
 
