@@ -1,3 +1,7 @@
+**Read the transcript**\
+`The Federal Communications Commission on Wednesday released the transcript of a “60 Minutes” interview with Vice President Kamala Harris that has been at the center of a lawsuit between CBS and President Trump.`\
+https://nytimes.com/interactive/2025/02/05/business/media/60-minutes-kamala-harris-interview-transcript.html
+
 **Trump Signs Order Barring Transgender Student-Athletes From Women’s Sports**\
 `The president said schools that violated the order would jeopardize their federal funding.`\
 https://nytimes.com/2025/02/05/us/politics/trump-order-transgender-athletes-womens-sports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/opinion/gaza-trump-israel.html
 **NFLPA leaders see 18th regular-season game as a non-starter**\
 `“No one wants to play an 18th game. No one,” NFLPA executive director Lloyd Howell said Wednesday.`\
 https://nytimes.com/athletic/6116377/2025/02/05/nfl-nflpa-18-games-schedule-expansion/
-
-**Foreign Aid Freeze Leaves Millions Without H.I.V. Treatment**\
-`President Trump’s pause on aid, and the gutting of the primary aid agency, could jeopardize the health of more than 20 million people worldwide, including 500,000 children, experts say.`\
-https://nytimes.com/2025/02/05/health/trump-usaid-pepfar.html
 
