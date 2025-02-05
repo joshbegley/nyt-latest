@@ -1,3 +1,11 @@
+**Classic Romance Novels: A Starter Pack**\
+`These vintage books introduce the archetypes, settings and lavishly bonkers sensibility that are the hallmarks of great romance.`\
+https://nytimes.com/interactive/2025/02/05/books/romance-books-love.html
+
+**Federal Employees Protest Musk’s ‘Fork in the Road’ Offer With Spoon Emojis**\
+`The cutlery icons were deployed in an online chat during a meeting with the former Tesla employee taking over the tech-focused arm of the General Services Administration.`\
+https://nytimes.com/2025/02/05/us/politics/federal-employees-musk-protest-spoon.html
+
 **Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
 `The deal is worth $6.25 million guaranteed plus up to $2 million in performance bonuses, according to major-league sources. `\
 https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6115772/2025/02/05/betting-for-by-dummies-super-bow
 **Prime Tire: Marveling at F1's teenaged drivers; Zhou returns to Ferrari**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6116039/2025/02/05/marveling-at-formula-1s-teenaged-drivers-plus-zhou-guanyu-returns-to-ferrari/
-
-**Josh Jacobs says Packers need No. 1 WR in Green Bay**\
-`Jacobs said he's worked on recruiting Davante Adams, a WR and his former Raiders teammate, back to Green Bay.`\
-https://nytimes.com/athletic/6115878/2025/02/05/josh-jacobs-packers-wide-receiver-davante-adams/
-
-**Chelsea's Boehly director of Premier League ticket reselling website**\
-`Vivid Seats sell tickets to concerts and other sporting events as well as Premier League games but its use is prohibited in the UK.`\
-https://nytimes.com/athletic/6114903/2025/02/05/chelsea-tickets-boehly-vivid-seats/
 
