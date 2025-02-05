@@ -1,3 +1,7 @@
+**U.S. Postal Service Halts Parcel Service from China as Trump’s Trade Curbs Begin**\
+`The United States has been importing about 3 million parcels a day with almost no customs inspection and no duties collected.`\
+https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
+
 **Cubs to acquire Ryan Brasier in trade with Dodgers: Source**\
 `The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
 https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/

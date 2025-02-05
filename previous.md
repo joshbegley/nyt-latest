@@ -1,3 +1,7 @@
+**U.S. Postal Service Halts Parcel Service from China as Trump’s Trade Curbs Begin**\
+`The United States has been importing about 3 million parcels a day with almost no customs inspection and no duties collected.`\
+https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
+
 **Cubs to acquire Ryan Brasier in trade with Dodgers: Source**\
 `The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
 https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009970495/us-gaza-takeover-trump.htm
 **A Legal Counteroffensive to Beat Back Trump’s Government Purges**\
 `A raft of new lawsuits contend that President Trump and Elon Musk are breaking the law to ransack the F.B.I. and other federal agencies. The courts will now decide.`\
 https://nytimes.com/2025/02/04/us/doge-lawsuits-trump-elon-musk.html
-
-**Trump Signs Executive Order Calling for Review of U.S. Funding and Ties to U.N.**\
-`The move cast uncertainty on the leadership role of the United States in the global body. The president also withdrew from the U.N.’s Human Rights Council and stopped funding UNRWA.`\
-https://nytimes.com/2025/02/04/us/politics/trump-united-nations-unrwa.html
 
