@@ -1,3 +1,15 @@
+**AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
+`The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
+https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
+
+**Trump Officials Tried to Walk Back His Plan to Take Over Gaza**\
+`Also, the government is eying deeper work force cuts. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-plan-soften-egg-prices-waffle-house.html
+
+**The Best Movies and TV Shows Coming to Netflix in February**\
+`This month’s new arrivals include an insightful docudrama about a fraudulent wellness blogger and a rare TV role for Robert De Niro.`\
+https://nytimes.com/2025/02/05/arts/television/netflix-new-february.html
+
 **Lawyer says Musk hasn’t personally gained access to Treasury payments system data.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/05/us/trump-news/lawyer-says-musk-hasnt-personally-gained-access-to-treasury-payments-system-data
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-trans-athletes-executive-order.
 **Lemina completes move to Galatasaray from Wolves**\
 `The former Wolves captain has joined the Super Lig side on a one-and-a-half-year contract with the option of a further year.`\
 https://nytimes.com/athletic/6105075/2025/02/05/mario-lemina-galatasaray-transfer-wolves/
-
-**Donald Trump signs executive order to block transgender athletes from women's sports**\
-`"With this executive order, the war on women's sports is over," Trump said from the East Room of the White House.`\
-https://nytimes.com/athletic/6115651/2025/02/05/trump-transgender-athletes-order/
-
-**Man Is Charged With First-Degree Murder in Shooting of Newark Boy, 9**\
-`The man, Jesse J. Dunbar II, also faces assault and weapons charges, prosecutors said.`\
-https://nytimes.com/2025/02/05/nyregion/newark-murder-arrest-shooting.html
-
-**For Wild's Ryan Hartman, latest suspension should be a wake-up call**\
-`Wild GM said of Hartman: “He’s pretty upset. This is affecting him.” But also: "He’s got to do a better job. … Look, he just can’t do it.”`\
-https://nytimes.com/athletic/6114459/2025/02/05/wild-ryan-hartman-suspension-wakeup-call/
 

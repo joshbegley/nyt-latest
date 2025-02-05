@@ -1,3 +1,15 @@
+**AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
+`The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
+https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
+
+**Trump Officials Tried to Walk Back His Plan to Take Over Gaza**\
+`Also, the government is eying deeper work force cuts. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-plan-soften-egg-prices-waffle-house.html
+
+**The Best Movies and TV Shows Coming to Netflix in February**\
+`This month’s new arrivals include an insightful docudrama about a fraudulent wellness blogger and a rare TV role for Robert De Niro.`\
+https://nytimes.com/2025/02/05/arts/television/netflix-new-february.html
+
 **Lawyer says Musk hasn’t personally gained access to Treasury payments system data.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/02/05/us/trump-news/lawyer-says-musk-hasnt-personally-gained-access-to-treasury-payments-system-data
