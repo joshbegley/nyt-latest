@@ -1,3 +1,7 @@
+**Palestinian Americans React to Trump’s Gaza Plan: ‘It Was Pandemonium’**\
+`In interviews, Palestinian Americans said that it was surreal and horrifying to hear the president talk about expelling millions of people from the Gaza Strip and placing it under U.S. control.`\
+https://nytimes.com/2025/02/05/nyregion/trump-gaza-strip-palestinian-american.html
+
 **Giannis opens up on 'brother' Khris Middleton's exit as era ends in Milwaukee**\
 `"I'm going to have a relationship with him after basketball," Antetokounmpo said of his longtime teammate.`\
 https://nytimes.com/athletic/6114118/2025/02/05/khris-middleton-trade-bucks-giannis-antetokoumpo/
