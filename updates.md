@@ -1,3 +1,15 @@
+**The Pulse: Wait, KD on the trade block?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6112385/2025/02/05/kevin-durant-suns-trade-the-pulse/
+
+**Is Waymo Friend or Foe to Uber?**\
+`The fast expansion of Waymo’s driverless car service is growing competition for Uber. The companies are also partners.`\
+https://nytimes.com/2025/02/05/technology/waymo-uber-partnership.html
+
+**England to play June friendly at Forest's City Ground**\
+`Forest have not hosted an England international since a wartime friendly against Wales in 1941.`\
+https://nytimes.com/athletic/6114962/2025/02/05/england-city-ground-senegal-forest/
+
 **Across the world, officials roundly reject Trump’s plan.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/international-reaction
