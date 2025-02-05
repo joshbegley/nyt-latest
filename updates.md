@@ -1,3 +1,11 @@
+**Word of the Day: banal**\
+`This word has appeared in 195 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
+
+**Chelsea's winter window highlighted issues with summer 2024, and aims for summer 2025**\
+`It will be Chelsea’s most important signings of 2023, rather than 2024, who will determine the outcome of Maresca’s push for the top four`\
+https://nytimes.com/athletic/6113906/2025/02/05/chelseas-winter-window-highlighted-issues-with-summer-2024-and-aims-for-summer-2025/
+
 **Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
 `Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
 https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
