@@ -1,3 +1,7 @@
+**Have You Seen Changes to Federal Buildings? Send Us Photos.**\
+`We’re documenting how federal buildings are changing during the transition to the new government.`\
+https://nytimes.com/2025/02/05/upshot/government-buildings-photos.html
+
 **Elon Musk Is a ‘Special Government Employee.’ What Does That Mean?**\
 `Ethics laws make it a federal criminal offense to take actions that benefit family businesses — even for so-called special government employees, unless a waiver is issued.`\
 https://nytimes.com/2025/02/05/us/politics/elon-musk-special-government-employee-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trump-offi
 **Are You Stockpiling Food Items in Response to Tariff Concerns? We Want to Hear From You.**\
 `We’re interested in hearing from readers about the items they’re buying in bulk to get ahead of anticipated price hikes on imported goods.`\
 https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
-
-**Rams' Puka Nacua on Cooper Kupp trade talks: 'Too fresh to think about'**\
-`Rams WR discusses the impact Kupp has on the field and in the locker room, and how that would be missed if he is traded.`\
-https://nytimes.com/athletic/6116182/2025/02/05/puka-nacua-rams-trade-cooper-kupp/
 

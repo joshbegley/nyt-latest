@@ -1,3 +1,11 @@
+**Elon Musk Is a ‘Special Government Employee.’ What Does That Mean?**\
+`Ethics laws make it a federal criminal offense to take actions that benefit family businesses — even for so-called special government employees, unless a waiver is issued.`\
+https://nytimes.com/2025/02/05/us/politics/elon-musk-special-government-employee-explainer.html
+
+**Trump’s Gaza Notion Sets Off Democratic Infighting and G.O.P. Doubts**\
+`The president’s far-fetched proposal to take over the enclave caused a new wave of recriminations after an election in which the Mideast war tore Democrats apart and pushed some voters to the right.`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-politics-reaction.html
+
 **Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
 `President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
 https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
