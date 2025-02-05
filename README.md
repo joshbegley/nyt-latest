@@ -1,3 +1,7 @@
+**Judge Blocks Trump Effort to Move Trans Women to Men’s Prisons**\
+`A temporary restraining order blocked the administration from transferring transgender women and from ending gender-transition treatment for prisoners.`\
+https://nytimes.com/2025/02/04/us/trans-women-prisons-executive-order-ruling.html
+
 **Measure of Brightness**\
 `Kiran Pandey salts the pavement.`\
 https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/trump-el-salvador-americans-jail.html
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/04/ovechkin-goals-record-wayne-gretzky-stats/
-
-**‘The Antiquities’ Review: Relics of Late Human Life in 12 Exhibits**\
-`According to Jordan Harrison’s museum piece of a play, we are long extinct by 2240. But the future has kept our Betamaxes.`\
-https://nytimes.com/2025/02/04/theater/the-antiquities-review-ai.html
 
