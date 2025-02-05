@@ -1,3 +1,24 @@
+**Kyrie Irving reflects on past 'dream' of playing with A.D., Kevin Durant**\
+`The Mavs guard was teammates with Durant in Brooklyn and is now, after the Luka Dončić deal, paired up with Davis in Dallas.`\
+https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin-durant-mavericks/
+
+**Are Duran and Galeno a sign that Saudi Arabia is ready to splurge again?**\
+`The latest signings suggest a big summer may be about to come for the Saudi Pro League`\
+https://nytimes.com/athletic/6112531/2025/02/05/are-duran-and-galeno-a-sign-that-saudi-arabia-is-ready-to-splurge-again/
+
+**The transfer window is closed but clubs can still sign free agents. So who is available?**\
+`The transfer window is over but clubs can still sign free agents — so who are the standout players still available?`\
+https://nytimes.com/athletic/6111928/2025/02/05/transfer-latest-free-agents/
+
+**A Veteran U.K. Political Battler Takes on Trump’s Washington**\
+`Peter Mandelson, Britain’s new ambassador to the United States, will try to sustain a relationship strained by President Trump’s disdain for alliances and free trade.`\
+https://nytimes.com/2025/02/05/world/europe/mandelson-trump-uk-ambassador.html
+
+**Wild endure back-to-back shutouts; Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
 **Wild endure back-to-back shutouts; Hartman expected to appeal suspension: 3 takeaways**\
 `The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
 `\
