@@ -1,3 +1,7 @@
+**What the Black Hawk Pilots Could See, Just Before the Crash**\
+`A 3-D model created by The Times visualizes the helicopter pilots’ field of view minutes before a fatal crash with a jet in Washington.`\
+https://nytimes.com/interactive/2025/02/05/us/dc-crash-helicopter-black-hawk-pilots.html
+
 **Super Bowl Gatorade shower odds, predictions: Purple going for a 3-peat just like the Chiefs**\
 `The Chiefs are going for a 3-peat in the Super Bowl, but so is purple as the color for the Gatorade shower for the winning coach.`\
 https://nytimes.com/athletic/6110668/2025/02/05/super-bowl-gatorade-shower-odds-predictions/
@@ -31,10 +35,6 @@ https://nytimes.com/2025/02/05/world/middleeast/gaza-trump-takeover-palestinians
 https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
 
 **How NWSL will pay players who suffered abuse $5 million in new settlement**\
-`The NWSL will create a $5 million player compensation fund as part of a settlement regarding its role in widespread allegations of abuse.`\
+`An investigation found that the 'NWSL was permeated by a culture of abusive behavior, including sexual harassment and discrimination'`\
 https://nytimes.com/athletic/6115277/2025/02/05/nwsl-5-million-abuse-settlement/
-
-**Why Adam Silver’s potential NBA Europe venture has a Paris problem**\
-`The NBA seems to have its sights set on major players in Europe, but one team has already "locked up the market" in the France capital.`\
-https://nytimes.com/athletic/6114371/2025/02/05/adam-silver-nba-europe-paris-basketball/
 
