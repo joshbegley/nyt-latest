@@ -1,3 +1,7 @@
+**West Point Disbands Clubs for Women and Minorities After Trump Orders**\
+`The military academy ordered the closure of a dozen clubs for students affiliated with its Diversity, Equity and Inclusion office.`\
+https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
+
 **ASAP Rocky’s Trial Style Scrambles the Signals**\
 `Fans could be forgiven for mistaking the rapper’s court appearances for fashion shoots.`\
 https://nytimes.com/2025/02/05/style/asap-rocky-trial.html
