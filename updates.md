@@ -1,3 +1,11 @@
+**Patrick Mahomes vs. Tom Brady: If Chiefs win Super Bowl, there will be a new playoff GOAT**\
+`Mahomes over Brady? Already? Absolutely. It's actually an easy case to make. `\
+https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-bowl-goat-nfl-playoffs/
+
+**The baseball statistic that's changing MLB ... for better or worse**\
+`The understanding of pitch quality, and how to improve it, has led to more strikeouts and perhaps more injuries as well.`\
+https://nytimes.com/athletic/6048449/2025/02/05/mlb-statistic-stuff-plus-changing-game/
+
 **Sweden Mourns Mass Shooting**\
 `The authorities were searching for a motive in the shooting, which killed at least 11 people, including the suspected shooter.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html

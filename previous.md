@@ -1,3 +1,11 @@
+**Patrick Mahomes vs. Tom Brady: If Chiefs win Super Bowl, there will be a new playoff GOAT**\
+`Mahomes over Brady? Already? Absolutely. It's actually an easy case to make. `\
+https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-bowl-goat-nfl-playoffs/
+
+**The baseball statistic that's changing MLB ... for better or worse**\
+`The understanding of pitch quality, and how to improve it, has led to more strikeouts and perhaps more injuries as well.`\
+https://nytimes.com/athletic/6048449/2025/02/05/mlb-statistic-stuff-plus-changing-game/
+
 **Sweden Mourns Mass Shooting**\
 `The authorities were searching for a motive in the shooting, which killed at least 11 people, including the suspected shooter.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6113584/2025/02/05/panthers-bryce-young-super-bowl-
 **Rams way-too-early big board: Pre-free-agency needs, all-star game standouts**\
 `The Rams own the 26th pick in Round 1 and among their needs are: tight end, offensive and defensive tackle, receiver and cornerback.`\
 https://nytimes.com/athletic/6104162/2025/02/05/rams-nfl-draft-big-board-needs-analysis/
-
-**Phillies spring training preview: Thoughts on every pitcher headed to camp**\
-`From Mick Abel to Guillo Zuñiga, here are thoughts on the 34 pitchers coming to Phillies big-league camp.  `\
-https://nytimes.com/athletic/6097034/2025/02/05/phillies-spring-training-2025-pitchers/
-
-**Cowboys unrestricted free-agent tiers: Who do they need to bring back most?**\
-`Osa Odighizuwa will get plenty of attention from other teams, but he's one player the Cowboys should make every effort to keep.`\
-https://nytimes.com/athletic/6101457/2025/02/05/cowboys-unrestricted-free-agents-osa-odighizuwa/
 
