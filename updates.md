@@ -1,3 +1,11 @@
+**Sam Kerr felt she was treated differently by police because of skin colour, court hears**\
+`Footballer Sam Kerr said she felt she was treated differently by police officers based on “what they perceived to be the colour of my skin”, a court heard on Wednesday.`\
+https://nytimes.com/athletic/6115827/2025/02/05/sam-kerr-trial-chelsea-australia/
+
+**Justice Dept. Accuses F.B.I. Leaders of ‘Insubordination’**\
+`In a remarkable email, the acting deputy attorney general criticized bureau leaders, saying they had refused to comply with repeated requests for information about agents involved in the Jan. 6 investigation.`\
+https://nytimes.com/2025/02/05/us/politics/justice-dept-fbi-insubordination.html
+
 **French Government Survives No-Confidence Vote**\
 `The vote clears the way for final approval of France’s 2025 budget, easing concerns about the country’s political turmoil — but not ending them.`\
 https://nytimes.com/2025/02/05/world/europe/france-government-no-confidence-vote.html

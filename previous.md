@@ -1,3 +1,11 @@
+**Sam Kerr felt she was treated differently by police because of skin colour, court hears**\
+`Footballer Sam Kerr said she felt she was treated differently by police officers based on “what they perceived to be the colour of my skin”, a court heard on Wednesday.`\
+https://nytimes.com/athletic/6115827/2025/02/05/sam-kerr-trial-chelsea-australia/
+
+**Justice Dept. Accuses F.B.I. Leaders of ‘Insubordination’**\
+`In a remarkable email, the acting deputy attorney general criticized bureau leaders, saying they had refused to comply with repeated requests for information about agents involved in the Jan. 6 investigation.`\
+https://nytimes.com/2025/02/05/us/politics/justice-dept-fbi-insubordination.html
+
 **French Government Survives No-Confidence Vote**\
 `The vote clears the way for final approval of France’s 2025 budget, easing concerns about the country’s political turmoil — but not ending them.`\
 https://nytimes.com/2025/02/05/world/europe/france-government-no-confidence-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6115603/2025/02/05/kyle-kuzma-bucks-khris-middleton
 **Huge Bear Found Living Under California Home After Fires**\
 `A California homeowner, who was evacuated due to the wildfires in the area, returned home to find a 525-pound black bear under his home.`\
 https://nytimes.com/video/us/100000009972062/bear-altadena-wildfire-california.html
-
-**A Tennessee Williams-Marlon Brando Tango, and Other Riffs on Classics**\
-`Three new plays onstage in Manhattan, “Kowalski,” “Mrs. Loman” and “Nina,” mine treasures of theater history.`\
-https://nytimes.com/2025/02/05/theater/kowalski-mrs-loman-nina-off-broadway-review.html
-
-**Scoop City: Where Mahomes, Reid and Kelce land in GOAT debates**\
-`Inside: How Kansas City&#8217;s current stars compare to the GOATs, an initial free agency primer and New Orleans&#8217; storied Superdome, which has hosted ___ Super Bowls? (Hint: It&#8217;s more than five.`\
-https://nytimes.com/athletic/6115858/2025/02/05/goat-debates-nfl-mahomes-reid-kelce-chiefs-scoop-city/
 
