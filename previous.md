@@ -1,3 +1,7 @@
+**Trump’s Gaza proposal comes as Israel and Hamas prepare to hold more cease-fire talks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaza-proposal-comes-as-israel-and-hamas-prepare-to-hold-more-cease-fire-talks
+
 **Brighton agree deal to sign Bischoff from Brondby**\
 `Brighton will pay around €8million to acquire Bischoff and he is set to sign a four-and-a-half-year contract with the club.`\
 https://nytimes.com/athletic/6115003/2025/02/05/brighton-clement-bischoff-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/business/honda-nissan-merger.html
 **New York Times Reports 350,000 Additional Digital Subscribers**\
 `Adjusted operating profit for the fourth quarter increased 10.7 percent from a year earlier, to $170.5 million, the company said.`\
 https://nytimes.com/2025/02/05/business/media/new-york-times-q4-2024-earnings.html
-
-**Linus Ullmark's health under the microscope in Senators' playoff chase**\
-`The Senators' No. 1 goalie returned to the lineup against the Lightning after missing over a month with a back injury. Can he stay healthy?`\
-https://nytimes.com/athletic/6089776/2025/02/05/senators-linus-ullmark-injury-nhl-playoffs/
 

@@ -1,3 +1,7 @@
+**Trump’s Gaza proposal comes as Israel and Hamas prepare to hold more cease-fire talks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaza-proposal-comes-as-israel-and-hamas-prepare-to-hold-more-cease-fire-talks
+
 **Brighton agree deal to sign Bischoff from Brondby**\
 `Brighton will pay around €8million to acquire Bischoff and he is set to sign a four-and-a-half-year contract with the club.`\
 https://nytimes.com/athletic/6115003/2025/02/05/brighton-clement-bischoff-transfer/
