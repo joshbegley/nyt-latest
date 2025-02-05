@@ -1,3 +1,11 @@
+**Rubiales trial: Vilda spoke of 'consequences' for Hermoso, claims her brother**\
+`Jenni Hermoso's brother Rafael and Spain goalkeeper Misa Rodriguez testified on the third day of the Rubiales trial`\
+https://nytimes.com/athletic/6115344/2025/02/05/luis-rubiales-trial-hermoso-vilda/
+
+**What to Know About Changes in a Trade Loophole for Online Goods**\
+`President Trump scrapped the de minimis rule, a provision that allowed low-cost goods, like clothing from e-commerce sites, to enter the United States without facing taxes.`\
+https://nytimes.com/2025/02/05/business/tariffs-de-minimis-trump-china.html
+
 **Sam Kerr felt she was treated differently by police because of skin colour, court hears**\
 `Footballer Sam Kerr said she felt she was treated differently by police officers based on “what they perceived to be the colour of my skin”, a court heard on Wednesday.`\
 https://nytimes.com/athletic/6115827/2025/02/05/sam-kerr-trial-chelsea-australia/

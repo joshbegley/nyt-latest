@@ -1,3 +1,11 @@
+**Rubiales trial: Vilda spoke of 'consequences' for Hermoso, claims her brother**\
+`Jenni Hermoso's brother Rafael and Spain goalkeeper Misa Rodriguez testified on the third day of the Rubiales trial`\
+https://nytimes.com/athletic/6115344/2025/02/05/luis-rubiales-trial-hermoso-vilda/
+
+**What to Know About Changes in a Trade Loophole for Online Goods**\
+`President Trump scrapped the de minimis rule, a provision that allowed low-cost goods, like clothing from e-commerce sites, to enter the United States without facing taxes.`\
+https://nytimes.com/2025/02/05/business/tariffs-de-minimis-trump-china.html
+
 **Sam Kerr felt she was treated differently by police because of skin colour, court hears**\
 `Footballer Sam Kerr said she felt she was treated differently by police officers based on “what they perceived to be the colour of my skin”, a court heard on Wednesday.`\
 https://nytimes.com/athletic/6115827/2025/02/05/sam-kerr-trial-chelsea-australia/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/business/media/lara-trump-fox-news.html
 **C.I.A. Sends White House an Unclassified Email With Names of Some Employees**\
 `The list of partial names was provided in an effort to comply with an executive order to trim the federal work force.`\
 https://nytimes.com/2025/02/05/us/politics/cia-names-list.html
-
-**Khris Middleton-Kyle Kuzma trade grades: Bucks swap out member of their big three**\
-`Kyle Kuzma is on the way to Milwaukee to join Giannis Antetokounmpo and Damian Lillard.`\
-https://nytimes.com/athletic/6115603/2025/02/05/kyle-kuzma-bucks-khris-middleton-wizards-nba-trade-deadline/
-
-**Huge Bear Found Living Under California Home After Fires**\
-`A California homeowner, who was evacuated due to the wildfires in the area, returned home to find a 525-pound black bear under his home.`\
-https://nytimes.com/video/us/100000009972062/bear-altadena-wildfire-california.html
 
