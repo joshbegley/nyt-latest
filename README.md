@@ -1,3 +1,15 @@
+**The Pulse: Wait, KD on the trade block?**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6112385/2025/02/05/kevin-durant-suns-trade-the-pulse/
+
+**Is Waymo Friend or Foe to Uber?**\
+`The fast expansion of Waymo’s driverless car service is growing competition for Uber. The companies are also partners.`\
+https://nytimes.com/2025/02/05/technology/waymo-uber-partnership.html
+
+**England to play June friendly at Forest's City Ground**\
+`Forest have not hosted an England international since a wartime friendly against Wales in 1941.`\
+https://nytimes.com/athletic/6114962/2025/02/05/england-city-ground-senegal-forest/
+
 **Across the world, officials roundly reject Trump’s plan.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/international-reaction
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/briefing/remaking-the-government.html
 **Kareem Hunt never thought he'd get a second chance with the Chiefs. He's making the most of it**\
 `Hunt, who was a free agent in early September, led the Chiefs with 728 rushing yards and seven touchdowns this season.`\
 https://nytimes.com/athletic/6114354/2025/02/05/chiefs-kareem-hunt-super-bowl-opportunity/
-
-**Astros spring guide: 33 thoughts for 33 pitchers, from Blanco to McCullers to Whitley**\
-`Get to know every Astros pitcher who'll be at spring training.`\
-https://nytimes.com/athletic/6105406/2025/02/05/astros-pitchers-spring-training-guide/
-
-**Cardinals spring guide: 33 thoughts for 33 pitchers, from Bedell to Pallante to Thompson**\
-`Several prospects are on the rise and the Cardinals are about to find out which ones are ready for the big-league fire.`\
-https://nytimes.com/athletic/6113528/2025/02/05/cardinals-spring-training-pitchers/
-
-**NBA Trade Board: Kevin Durant No. 1; Julius Randle, Marcus Smart join the fray**\
-`Will we see another shocker like the Luka-AD deal? The clock is ticking.`\
-https://nytimes.com/athletic/6110859/2025/02/05/nba-trade-deadline-jimmy-butler-julius-randle/
 
