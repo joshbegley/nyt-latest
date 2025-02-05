@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspens
 `\
 https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
 
+**Wild blanked again vs. Bruins; Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
 **Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
 `The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
 `\
