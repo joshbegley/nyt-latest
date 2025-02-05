@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-t
 https://nytimes.com/athletic/6116865/2025/02/05/gabriel-martinelli-arsenal-injury-update/
 
 **Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
-`His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
+`His announcement comes after an outage last week to the primary system that provides pilots safety alerts in real time.`\
 https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
 
 **Schumer Urged Democrats to Oppose Trump Nominees in Protest of His Policies**\
