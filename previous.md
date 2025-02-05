@@ -1,3 +1,11 @@
+**New Raiders OC Chip Kelly welcomes challenge in Las Vegas' offense**\
+`Kelly is tasked with improving an offense that averaged the 27th most points and 26th most yards per game over the last two seasons.`\
+https://nytimes.com/athletic/6116070/2025/02/05/fresh-off-a-national-championship-new-raiders-oc-chip-kelly-welcomes-challenge-in-las-vegas/
+
+**Trump’s Gaza Plan: Illegal, Bizarre, Impractical, Distracting**\
+`Partly because this massive displacement won’t happen, it’s a distraction from the need to implement the cease-fire in Gaza and continue the release of both Israeli hostages and Palestinian prisoners.`\
+https://nytimes.com/2025/02/05/opinion/gaza-trump-israel.html
+
 **NFLPA leaders see 18th regular-season game as a non-starter**\
 `“No one wants to play an 18th game. No one,” NFLPA executive director Lloyd Howell said Wednesday.`\
 https://nytimes.com/athletic/6116377/2025/02/05/nfl-nflpa-18-games-schedule-expansion/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/business/media/cbs-60-minutes-harris-interview.ht
 **Why These Lovers Ghosted**\
 `They knew it was unkind. These are the reasons they did it anyway.`\
 https://nytimes.com/interactive/2025/02/05/magazine/ghosting-dating.html
-
-**Ernest Drucker, Public-Health Advocate for the Scorned, Dies at 84**\
-`He marshaled epidemiological research to press for changes in drug policy, alternatives to prison and needle-exchange programs to slow the spread of AIDS.`\
-https://nytimes.com/2025/02/05/health/ernest-drucker-dead.html
-
-**A ‘Stellar Crew,’ a ‘Tragic Accident’ and a Black Hawk’s Last Flight**\
-`The Army helicopter that collided with a passenger plane above the Potomac River boasted an experienced crew doing “an unforgiving job.” Friends and relatives are still baffled and mourning their loss.`\
-https://nytimes.com/2025/02/05/us/politics/black-hawk-helicopter-crew-dc-crash-families.html
 
