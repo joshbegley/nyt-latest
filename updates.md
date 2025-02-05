@@ -1,3 +1,7 @@
+**Linus Ullmark's health under the microscope in Senators' playoff chase**\
+`The Senators' No. 1 goalie returned to the lineup against the Lightning after missing over a month with a back injury. Can he stay healthy?`\
+https://nytimes.com/athletic/6089776/2025/02/05/senators-linus-ullmark-injury-nhl-playoffs/
+
 **Following Zach LaVine trade, Bulls moving forward, looking to 'make a shift'**\
 `A fresh start was needed for the Bulls. Billy Donovan says the team isn't finished making moves.`\
 https://nytimes.com/athletic/6114729/2025/02/05/zach-lavine-bulls-trade-direction/
