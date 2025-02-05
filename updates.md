@@ -1,3 +1,11 @@
+**‘The Antiquities’ Review: Relics of Late Human Life in 12 Exhibits**\
+`According to Jordan Harrison’s museum piece of a play, we are long extinct by 2240. But the future has kept our Betamaxes.`\
+https://nytimes.com/2025/02/04/theater/the-antiquities-review-ai.html
+
+**El Salvador’s Prisons Are Notorious. Will They House Trump’s Deportees?**\
+`President Nayib Bukele has offered to jail deported criminals from the United States. His prisons have earned him a reputation as being tough on crime, but have raised alarms over rights abuses.`\
+https://nytimes.com/2025/02/04/world/americas/el-salvador-prisons-bukele-migrants.html
+
 **Federal Ruling Says State Courts Should Decide North Carolina Election Case**\
 `Three counts found an incumbent Democrat won a State Supreme Court race. But the Republican candidate is trying to nullify more than 60,000 votes.`\
 https://nytimes.com/2025/02/04/us/north-carolina-supreme-court-race-ruling.html
