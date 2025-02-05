@@ -1,3 +1,7 @@
+**Tesla’s European Sales Drop in January After Musk Disrupts Politics There**\
+`The U.S. electric car company’s sales are sliding across Europe, amid what many see as interference in local affairs by Tesla’s chief executive, Elon Musk.`\
+https://nytimes.com/2025/02/05/business/tesla-germany-elon-musk.html
+
 **Kremlin Confirms Talks With Trump Administration About Ukraine**\
 `Russia said that discussions with Washington were underway regarding potential peace talks to end the war nearly three years after Moscow’s full-scale invasion.`\
 https://nytimes.com/2025/02/05/us/politics/russia-trump-ukraine-war-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/world/europe/prince-rahim-aga-khan-ismaili-muslim
 **Premier League 'would deal with' goal celebrations that 'cross into mockery or criticism'**\
 `Everton’s Iliman Ndiaye received a yellow card for his 'seagull' celebration against Brighton on January 25.`\
 https://nytimes.com/athletic/6115567/2025/02/05/premier-league-referee-celebrations/
-
-**Two Families, and One Moment in Time**\
-`Billy Witz, a reporter on the National desk who helped cover the wildfires, reflects on a surprising link between his father and a couple who lost their home in the Eaton fire.`\
-https://nytimes.com/2025/02/05/us/wildfires-two-families.html
 
