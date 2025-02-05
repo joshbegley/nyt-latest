@@ -1,3 +1,7 @@
+**No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
+`It was the first top-15 matchup St. John’s hosted at Madison Square Garden since the 1998-99 season.`\
+https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
+
 **Man Sentenced to 44 Years in Prison After Pleading Guilty to Qaeda Ties**\
 `Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
 https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/world/americas/el-salvador-prisons-bukele-migrant
 **Federal Ruling Says State Courts Should Decide North Carolina Election Case**\
 `Three counts found an incumbent Democrat won a State Supreme Court race. But the Republican candidate is trying to nullify more than 60,000 votes.`\
 https://nytimes.com/2025/02/04/us/north-carolina-supreme-court-race-ruling.html
-
-**Trump Proposes a U.S. Takeover of Gaza**\
-`President Trump suggested on Tuesday that the United States take over Gaza and that all Palestinians there — some two million people — should leave.`\
-https://nytimes.com/video/us/politics/100000009970495/us-gaza-takeover-trump.html
 

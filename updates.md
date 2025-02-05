@@ -1,3 +1,7 @@
+**No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
+`It was the first top-15 matchup St. John’s hosted at Madison Square Garden since the 1998-99 season.`\
+https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
+
 **Cubs to acquire Ryan Brasier in trade with Dodgers: Sources**\
 `The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
 https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
