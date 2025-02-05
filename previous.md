@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketba
 `Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
 https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
 
-**U.S. Postal Service Halts Parcel Service from China as Trump’s Trade Curbs Begin**\
-`The United States has been importing about 3 million parcels a day with almost no customs inspection and no duties collected.`\
+**U.S. Postal Service Halts Parcel Service From China as Trump’s Trade Curbs Begin**\
+`The U.S. has been importing about three million parcels a day with little customs inspection, raising concerns about the ease of sending fentanyl.`\
 https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
 
 **Cubs acquire Ryan Brasier in trade with Dodgers**\

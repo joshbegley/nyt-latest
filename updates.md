@@ -1,3 +1,7 @@
+**U.S. Postal Service Halts Parcel Service From China as Trump’s Trade Curbs Begin**\
+`The U.S. has been importing about three million parcels a day with little customs inspection, raising concerns about the ease of sending fentanyl.`\
+https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
+
 **Measure of Brightness**\
 `Kiran Pandey salts the pavement.`\
 https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
