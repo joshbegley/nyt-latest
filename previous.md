@@ -1,3 +1,15 @@
+**What is Cristiano Ronaldo at 40?**\
+`The Portuguese may be coming to the end of his time as a footballer but his influence is only likely to grow from here`\
+https://nytimes.com/athletic/6112482/2025/02/05/cristiano-ronaldo-40-youtube-influencer/
+
+**The Raptors are becoming the team Darko Rajaković promised to deliver**\
+`Down a pair of starters, the Raptors showed what their recent successful stretch has meant against the Knicks.`\
+https://nytimes.com/athletic/6114480/2025/02/05/raptors-knicks-darko-rajakovic/
+
+**Why did clubs in Spain spend so little money in the January transfer window?**\
+`The collective spending of all 20 teams in Spain's top flight was €26.1m, making it the 16th highest-spending league in football this winter`\
+https://nytimes.com/athletic/6100585/2025/02/05/la-liga-transfer-window-spending/
+
 **Last summer's Premier League transfer window proves one thing: they don't make much difference**\
 `This season shows that 'winning the transfer window' has little relevance to winning matches, or to landing the Premier League title`\
 https://nytimes.com/athletic/6111919/2025/02/05/transfer-window-importance-premier-league-2024-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin
 **Are Duran and Galeno a sign that Saudi Arabia is ready to splurge again?**\
 `The latest signings suggest a big summer may be about to come for the Saudi Pro League`\
 https://nytimes.com/athletic/6112531/2025/02/05/are-duran-and-galeno-a-sign-that-saudi-arabia-is-ready-to-splurge-again/
-
-**The transfer window is closed but clubs can still sign free agents. So who is available?**\
-`The transfer window is over but clubs can still sign free agents — so who are the standout players still available?`\
-https://nytimes.com/athletic/6111928/2025/02/05/transfer-latest-free-agents/
-
-**A Veteran U.K. Political Battler Takes on Trump’s Washington**\
-`Peter Mandelson, Britain’s new ambassador to the United States, will try to sustain a relationship strained by President Trump’s disdain for alliances and free trade.`\
-https://nytimes.com/2025/02/05/world/europe/mandelson-trump-uk-ambassador.html
-
-**Quote of the Day: Inside Musk’s Aggressive Incursion Into the Federal Government**\
-`Quotation of the Day for Wednesday, February 5, 2025`\
-https://nytimes.com/2025/02/04/pageoneplus/quote-of-the-day-inside-musks-aggressive-incursion-into-the-federal-government.html
 

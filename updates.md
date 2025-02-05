@@ -1,3 +1,15 @@
+**What is Cristiano Ronaldo at 40?**\
+`The Portuguese may be coming to the end of his time as a footballer but his influence is only likely to grow from here`\
+https://nytimes.com/athletic/6112482/2025/02/05/cristiano-ronaldo-40-youtube-influencer/
+
+**The Raptors are becoming the team Darko Rajaković promised to deliver**\
+`Down a pair of starters, the Raptors showed what their recent successful stretch has meant against the Knicks.`\
+https://nytimes.com/athletic/6114480/2025/02/05/raptors-knicks-darko-rajakovic/
+
+**Why did clubs in Spain spend so little money in the January transfer window?**\
+`The collective spending of all 20 teams in Spain's top flight was €26.1m, making it the 16th highest-spending league in football this winter`\
+https://nytimes.com/athletic/6100585/2025/02/05/la-liga-transfer-window-spending/
+
 **Last summer's Premier League transfer window proves one thing: they don't make much difference**\
 `This season shows that 'winning the transfer window' has little relevance to winning matches, or to landing the Premier League title`\
 https://nytimes.com/athletic/6111919/2025/02/05/transfer-window-importance-premier-league-2024-2025/
