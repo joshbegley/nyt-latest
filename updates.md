@@ -1,3 +1,7 @@
+**Jimmy Kimmel Wants Canada to Save Us, Eh?**\
+`Kimmel is all for making Canada the 51st state: “If Canada also had 54 electoral votes, forget MAGA — our next president will be a kindhearted lesbian moose.”`\
+https://nytimes.com/2025/02/05/arts/television/jimmy-kimmel-canada-trump.html
+
 **Ingmar Bergman’s Grandson Has a Prizewinning Movie of His Own**\
 `With his debut feature, “Armand,” Halfdan Ullmann Tøndel wants to step out of his revered grandfather’s shadow. (Though the movie still contains a secret tribute.)`\
 https://nytimes.com/2025/02/05/movies/armand-halfdan-ullmann-tondel.html
