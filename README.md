@@ -1,3 +1,7 @@
+**Trump officials walk back plan to take over Gaza.**\
+`President Trump often makes comments that go beyond what his aides wish and sometimes they try to walk them back. But the only statements that really matter are Mr. Trump’s.`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trump-officials-walk-back-plan-to-take-over-gaza
+
 **Are You Stockpiling Food Items in Response to Tariff Concerns? We Want to Hear From You.**\
 `We’re interested in hearing from readers about the items they’re buying in bulk to get ahead of anticipated price hikes on imported goods.`\
 https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/federal-employees-musk-protest-spoon.
 **Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
 `The deal is worth $6.25 million guaranteed plus up to $2 million in performance bonuses, according to major-league sources. `\
 https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
-
-**These Are the Major Obstacles to Trump’s Gaza Plan**\
-`Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
-https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
 
