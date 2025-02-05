@@ -1,3 +1,7 @@
+**Trump’s Gaza Takeover Would Violate International Law, Experts Say**\
+`Forcing Palestinians to leave the enclave would be “a straightforward crime against humanity,” an Oxford professor said. It would be a further violation to take over the territory.`\
+https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-takeover-illegal.html
+
 **Trump’s Gaza Plan Is Unworkable, Analysts Say. Does He Really Mean It?**\
 `President Trump’s proposal to transfer millions of people out of Gaza was hailed by the Israeli right and condemned by Palestinians. Some experts say it may be a negotiating tactic.`\
 https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-plan.html
