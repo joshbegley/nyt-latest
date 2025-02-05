@@ -1,3 +1,7 @@
+**Freezing Rain and Messy Travel Expected Across the Eastern U.S.**\
+`Beginning Wednesday, widespread ice accumulations may lead to hazardous driving conditions. And snow may be on the way after that.`\
+https://nytimes.com/2025/02/05/weather/ice-storm-snow-rain-forecast.html
+
 **Migrants Are Deported to India on U.S. Military Plane**\
 `The flight appeared to be the first use of an American military aircraft to deport people to India, which is one of the top sources of illegal immigration to the United States.`\
 https://nytimes.com/2025/02/05/world/asia/migrants-deported-india-us.html
