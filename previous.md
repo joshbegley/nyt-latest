@@ -1,3 +1,7 @@
+**These Are the Major Obstacles to Trump’s Gaza Plan**\
+`Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
+https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
+
 **Nassau County’s Armed Volunteer Force Faces Lawsuit From Democrats**\
 `Executive Bruce Blakeman’s corps is “an authoritarian power grab in the heart of suburban America,” said a lawyer representing county lawmakers.`\
 https://nytimes.com/2025/02/05/nyregion/nassau-county-blakeman-armed-force-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114903/2025/02/05/chelsea-tickets-boehly-vivid-sea
 **Kenyan commander says the United States supports the Haiti mission, despite a pause in aid.**\
 `By André Paultre and Frances Robles`\
 https://nytimes.com/live/2025/02/05/us/trump-news/kenyan-commander-says-us-supports-haiti-mission-despite-a-pause-in-aid
-
-**Trump Revokes Security Detail for Mark Esper, Former Defense Secretary**\
-`Within hours of his inauguration, Mr. Trump began to pull security details from nearly a half-dozen people who had served in his first term, most of them under threat for enforcing his Iran policy.`\
-https://nytimes.com/2025/02/05/us/politics/trump-security-mark-esper.html
 

@@ -1,3 +1,7 @@
+**These Are the Major Obstacles to Trump’s Gaza Plan**\
+`Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
+https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
+
 **Nassau County’s Armed Volunteer Force Faces Lawsuit From Democrats**\
 `Executive Bruce Blakeman’s corps is “an authoritarian power grab in the heart of suburban America,” said a lawyer representing county lawmakers.`\
 https://nytimes.com/2025/02/05/nyregion/nassau-county-blakeman-armed-force-suit.html
