@@ -1,3 +1,11 @@
+**Judge Blocks Trump’s Birthright Citizenship Order Nationwide**\
+`The nationwide injunction, from a Maryland case, is more permanent than last month's restraining order from a judge in Seattle.`\
+https://nytimes.com/2025/02/05/us/trump-birthright-citizenship.html
+
+**'My confidence right now is high': Bulls rookie Matas Buzelis looks to build on perfect night**\
+`As the Bulls face an uphill battle with a rebuild, Buzelis provided a glimmer of hope at the United Center on Tuesday night.`\
+https://nytimes.com/athletic/6115078/2025/02/05/matas-buzelis-bulls-heat/
+
 **U.K. Counterterror Program Prematurely Closed Case on Teen Killer, Report Says**\
 `Axel Rudakubana, who murdered three girls in a stabbing spree last year, had been referred to Britain’s counterterror program, Prevent, three times before his attack last July.`\
 https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
