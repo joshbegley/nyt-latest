@@ -1,40 +1,40 @@
-**How the British Art Market Went From Sublime to Ridiculous**\
-`“Rogues and Scholars,” James Stourton’s erudite and authoritative history, doesn’t spare the color.`\
-https://nytimes.com/2025/02/05/books/review/rogues-and-scholars-james-stourton.html
+**Cowboys unrestricted free-agent tiers: Who do they need to bring back most?**\
+`Osa Odighizuwa will get plenty of attention from other teams, but he's one player the Cowboys should make every effort to keep.`\
+https://nytimes.com/athletic/6101457/2025/02/05/cowboys-unrestricted-free-agents-osa-odighizuwa/
 
-**One Way to Get to Know the Locals in Britain? Stay in a Pub.**\
-`This quintessentially British lodging option offers room and board; the chance to hang out with regulars over pints of beer; and, if you’re lucky, an in-house ghost.`\
-https://nytimes.com/2025/02/05/travel/british-pub-overnight-stays.html
+**What I’m seeing: Nylander’s Rocket chances, Rielly's aggression**\
+`Nylander’s second career hat trick in Calgary on Tuesday nudged him up to 33 goals on the year — in only 53 games.`\
+https://nytimes.com/athletic/6114685/2025/02/05/william-nylanders-rocket-chances-morgan-rielly/
 
-**How to Improve Your Hip Mobility**\
-`Hip tightness can affect your whole body. Simple exercises can help you move more easily.`\
-https://nytimes.com/2025/02/05/well/move/hip-mobility-exercises.html
+**Trump’s Actions Are Defying Legal Limits**\
+`See examples of actions by President Trump and his administration that appear to constitute legal violations.`\
+https://nytimes.com/interactive/2025/02/05/us/trump-agenda-defying-law.html
 
-**Freezing Rain and Messy Travel Expected Across the Eastern U.S.**\
-`Beginning Wednesday, widespread ice accumulations may lead to hazardous driving conditions. And snow may be on the way after that.`\
-https://nytimes.com/2025/02/05/weather/ice-storm-snow-rain-forecast.html
+**A Super Bowl Preview, Minus the Football**\
+`A look at the musical acts, the famous fans, the commercials and all of the other things surrounding the N.F.L.’s signature event.`\
+https://nytimes.com/2025/02/05/style/super-bowl-watch-music-ads.html
 
-**Migrants Are Deported to India on U.S. Military Plane**\
-`The flight appeared to be the first use of an American military aircraft to deport people to India, which is one of the top sources of illegal immigration to the United States.`\
-https://nytimes.com/2025/02/05/world/asia/migrants-deported-india-us.html
+**Is It OK That I’m Withholding Sex Until My Husband Sorts Out His Invoices?**\
+`The magazine’s Ethicist columnist on quid pro quo and navigating serious medical changes in a marriage.`\
+https://nytimes.com/2025/02/05/magazine/invoices-dementia-sex-ethics.html
 
-**Jimmy Kimmel Wants Canada to Save Us, Eh?**\
-`Kimmel is all for making Canada the 51st state: “If Canada also had 54 electoral votes, forget MAGA — our next president will be a kindhearted lesbian moose.”`\
-https://nytimes.com/2025/02/05/arts/television/jimmy-kimmel-canada-trump.html
+**Discovering Family Roots in Brooklyn Slavery**\
+`“Trace/s,” an exhibition at the Center for Brooklyn History, highlights the borough’s neglected story of slavery — and the Black genealogists helping to unearth it.`\
+https://nytimes.com/2025/02/05/arts/design/slavery-brooklyn-history-center.html
 
-**Ingmar Bergman’s Grandson Has a Prizewinning Movie of His Own**\
-`With his debut feature, “Armand,” Halfdan Ullmann Tøndel wants to step out of his revered grandfather’s shadow. (Though the movie still contains a secret tribute.)`\
-https://nytimes.com/2025/02/05/movies/armand-halfdan-ullmann-tondel.html
+**‘Emilia Pérez’ and the New Era of Online Oscar Scandals**\
+`As Karla Sofía Gascón’s resurfaced social media posts upend the campaign for the year’s most-nominated film, what happens now?`\
+https://nytimes.com/2025/02/05/movies/emilia-perez-oscars-scandal.html
 
-**A Governor’s Bizarre Comment Made Him a Target of Trump’s Border Czar**\
-`“Good luck to the feds coming in to try to get her,” Gov. Phil Murphy of New Jersey said about a woman he seemed to falsely imply was an undocumented immigrant living on his property.`\
-https://nytimes.com/2025/02/05/nyregion/phil-murphy-new-jersey-immigration.html
+**In Seattle, a Renowned Family Restaurant Partnership Ends, Mindfully**\
+`Canlis, opened in 1950, has been run by two brothers since 2007. One of them, along with the executive chef, is leaving.`\
+https://nytimes.com/2025/02/05/dining/canlis-seattle.html
 
-**As Big Retailers Like Target Pull Back on D.E.I., What Happens to Black Sellers?**\
-`Black-owned brands got a foot in the door through accelerator programs at companies like Target and Amazon. Now they worry it might be closing.`\
-https://nytimes.com/2025/02/05/business/dei-target-black-sellers.html
+**Pedro Almodóvar Is Afraid of Death. But It’s All Over His Latest Work.**\
+`The visionary director says he’s trying to confront his mortality — but it’s complicated.`\
+https://nytimes.com/2025/02/05/podcasts/culture-desk-pedro-almodovar-memoir.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/05/crosswords/spelling-bee-forum.html
+**The Breaking of the Constitutional Order**\
+`The political analyst Yuval Levin discusses Trump’s first few weeks in office and the limits of presidential power.`\
+https://nytimes.com/2025/02/05/opinion/ezra-klein-podcast-yuval-levin.html
 
