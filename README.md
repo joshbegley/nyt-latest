@@ -1,3 +1,7 @@
+**Pro-Trump Media Sees Nothing but ‘Winning’**\
+`Among an array of right-wing personalities and media outlets, the president can do no wrong.`\
+https://nytimes.com/2025/02/05/technology/trump-media-right-wing.html
+
 **A Composer Turns Down the Tempo, and Turns Up the Complexity**\
 `Lisa Streich, an artist on the rise who has found success in Europe, is having a rare American showcase this week in New York.`\
 https://nytimes.com/2025/02/05/arts/music/lisa-streich-music.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
 **Novo Nordisk Annual Sales Jump on Higher Demand for Obesity Drugs**\
 `The Danish maker of Ozempic and Wegovy reported a 25 percent increase in sales to $40.6 billion, but said it expected slower growth this year.`\
 https://nytimes.com/2025/02/05/business/novo-nordisk-earnings-ozempic-wegovy.html
-
-**Trump’s Plan for the Cartels Isn’t Tough Enough**\
-`Trump misunderstands the cartels. His plan to take them on is not tough enough.`\
-https://nytimes.com/2025/02/05/opinion/trump-sheinbaum-cartels-mexico.html
 
