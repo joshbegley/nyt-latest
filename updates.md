@@ -1,3 +1,11 @@
+**Nassau County’s Armed Volunteer Force Faces Lawsuit From Democrats**\
+`Executive Bruce Blakeman’s corps is “an authoritarian power grab in the heart of suburban America,” said a lawyer representing county lawmakers.`\
+https://nytimes.com/2025/02/05/nyregion/nassau-county-blakeman-armed-force-suit.html
+
+**A Tribute to Marianne Faithfull**\
+`Hear 10 tracks from a long, winding career.`\
+https://nytimes.com/2025/02/05/arts/music/amplifer-newsletter-marianne-faithfull.html
+
 **Cal football hiring two-time NFL COY Ron Rivera in GM-like role**\
 `Rivera was an All-America linebacker for Cal in 1983 and went on to be a second-round NFL Draft pick by the Chicago Bears.`\
 https://nytimes.com/athletic/6116114/2025/02/05/ron-rivera-cal-football-gm/
