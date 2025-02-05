@@ -1,3 +1,11 @@
+**Disney Returns to Its Steamrolling Self**\
+`Per-share quarterly profit rose 44 percent from a year earlier, the company said, signaling that it had moved past a period of turmoil.`\
+https://nytimes.com/2025/02/05/business/media/disney-q4-2024-earnings.html
+
+**Remaking the Government**\
+`How the Trump administration is reshaping the federal bureaucracy.`\
+https://nytimes.com/2025/02/05/briefing/remaking-the-government.html
+
 **Minnesota Twins farm system heat check: What’s the immediate and future outlook?**\
 `Here’s an overview of where the Twins farm system stands and how it may factor into the team’s future near-term.`\
 https://nytimes.com/athletic/6112960/2025/02/05/minnesota-twins-farm-system-outlook/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6113767/2025/02/05/andy-reid-kansas-city-chiefs-sup
 `Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
-
-**One year from Milan Olympics, projecting Team Canada's women's hockey roster**\
-`With an established core of players either still in their prime or close to it, it’s fair to expect a roster of familiar faces.`\
-https://nytimes.com/athletic/6113745/2025/02/05/milan-2026-olympics-womens-hockey-canada-roster/
-
-**Inside Eagles-Chiefs Super Bowl matchup: What to watch when KC has the ball**\
-`Vic Fangio likes to take away explosive plays, but that might play right into what works best for Patrick Mahomes and the Chiefs.`\
-https://nytimes.com/athletic/6113500/2025/02/05/eagles-chiefs-super-bowl-film-what-to-watch/
 

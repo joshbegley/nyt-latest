@@ -1,3 +1,16 @@
+**Disney Returns to Its Steamrolling Self**\
+`Per-share quarterly profit rose 44 percent from a year earlier, the company said, signaling that it had moved past a period of turmoil.`\
+https://nytimes.com/2025/02/05/business/media/disney-q4-2024-earnings.html
+
+**Remaking the Government**\
+`How the Trump administration is reshaping the federal bureaucracy.`\
+https://nytimes.com/2025/02/05/briefing/remaking-the-government.html
+
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **Ranking the 5 best trade fits for the Maple Leafs on defence**\
 `Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
 `\
