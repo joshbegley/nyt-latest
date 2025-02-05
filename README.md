@@ -1,3 +1,15 @@
+**Giannis opens up on 'brother' Khris Middleton's exit as era ends in Milwaukee**\
+`"I'm going to have a relationship with him after basketball," Antetokounmpo said of his longtime teammate.`\
+https://nytimes.com/athletic/6114118/2025/02/05/khris-middleton-trade-bucks-giannis-antetokoumpo/
+
+**‘It Was Pandemonium’: Palestinian Americans React to Trump’s Gaza Plan**\
+`Palestinian Americans said in interviews that it was surreal and horrifying to hear the president talk about expelling millions of people from the Gaza Strip and placing it under U.S. control.`\
+https://nytimes.com/2025/02/05/nyregion/trump-gaza-strip-palestinian-american.html
+
+**Ohio State expected to hire Hokies OC Tyler Bowen as O-line coach: Sources**\
+`Tyler Bowen is expected to replace Justin Frye as Ohio State's offensive line coach. What does that mean for the Buckeyes' OC search?`\
+https://nytimes.com/athletic/6116393/2025/02/05/ohio-state-coaching-staff-bowen-hartline/
+
 **Have You Seen Changes to Federal Buildings? Send Us Photos.**\
 `We’re documenting how federal buildings are changing during the transition to the new government.`\
 https://nytimes.com/2025/02/05/upshot/government-buildings-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/style/miami-beach-spring-break-reality-check.html
 **Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
 `Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
 https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
-
-**This Isn’t Reform. It’s Sabotage.**\
-`Musk and Trump are launching a frontal assault on the concept of democratic governance`\
-https://nytimes.com/2025/02/05/opinion/trump-musk-government.html
-
-**Trump officials walk back plan to take over Gaza.**\
-`President Trump often makes comments that go beyond what his aides wish and sometimes they try to walk them back. But the only statements that really matter are Mr. Trump’s.`\
-https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trump-officials-walk-back-plan-to-take-over-gaza
-
-**Are You Stockpiling Food Items in Response to Tariff Concerns? We Want to Hear From You.**\
-`We’re interested in hearing from readers about the items they’re buying in bulk to get ahead of anticipated price hikes on imported goods.`\
-https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
 
