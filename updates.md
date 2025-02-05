@@ -1,3 +1,16 @@
+**Saudi Arabia Reiterates Support for a Palestinian State**\
+`Apparently contradicting President Trump, Saudi Arabia said that establishing ties with Israel would depend on the creation of an independent Palestinian state.`\
+https://nytimes.com/2025/02/04/us/politics/saudi-arabia-palestine-trump-gaza.html
+
+**Barely recognizable Blue Jackets end 4-game trip with loss to Sabres**\
+`The Blue Jackets played a tight third period but couldn't equalize in a game in which they were missing their top three scorers.`\
+https://nytimes.com/athletic/6114346/2025/02/04/blue-jackets-provorov-injuries-trip-sabres/
+
+**Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
 **Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
 `The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
 `\
