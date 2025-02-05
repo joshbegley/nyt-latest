@@ -1,3 +1,19 @@
+**Japan Airlines Plane Clips Delta Plane at Seattle-Tacoma Airport**\
+`No one was injured, but a passenger on one of the planes described “violent shaking” and a “really loud crunching sound.”`\
+https://nytimes.com/2025/02/05/us/delta-japan-airlines-collision-seattle-airport.html
+
+**Milan-Cortina Winter Olympics 'about taking the sport to its people' - Team GB chief**\
+`The curling gold medalists believes the 2026 Games will be a mix of the Winter Olympics' past and future. `\
+https://nytimes.com/athletic/6116495/2025/02/05/milan-cortina-winter-olympics-eve-muirhead/
+
+**Postecoglou on Tel signing: 'I didn't bring him here for six months'**\
+`Tel joined Spurs from Bayern Munich on loan with a €55m option to buy on deadline day.`\
+https://nytimes.com/athletic/6115503/2025/02/05/mathys-tel-tottenham-future-postecoglou/
+
+**What We Know About Trump’s New Executive Order on Trans Athletes**\
+`The order, called “Keeping Men Out of Women’s Sports,” is based on the Trump administration’s interpretation of Title IX.`\
+https://nytimes.com/2025/02/05/us/politics/trump-trans-athletes-executive-order.html
+
 **Lemina completes move to Galatasaray from Wolves**\
 `The former Wolves captain has joined the Super Lig side on a one-and-a-half-year contract with the option of a further year.`\
 https://nytimes.com/athletic/6105075/2025/02/05/mario-lemina-galatasaray-transfer-wolves/
