@@ -1,3 +1,11 @@
+**Lawyer says Musk hasn’t personally gained access to Treasury payments system data.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/02/05/us/trump-news/lawyer-says-musk-hasnt-personally-gained-access-to-treasury-payments-system-data
+
+**Google Unwinds Employee Diversity Goals, Citing Trump’s D.E.I. Orders**\
+`The Silicon Valley giant also said it was reviewing other diversity programs and initiatives and would update them if they seemed risky or ineffective.`\
+https://nytimes.com/2025/02/05/technology/google-diversity-goals-dei-trump.html
+
 **Japan Airlines Plane Clips Delta Plane at Seattle-Tacoma Airport**\
 `No one was injured, but a passenger on one of the planes described “violent shaking” and a “really loud crunching sound.”`\
 https://nytimes.com/2025/02/05/us/delta-japan-airlines-collision-seattle-airport.html
