@@ -1,3 +1,7 @@
+**Sweden Mourns Mass Shooting**\
+`The authorities were searching for a motive in the shooting, which killed at least 11 people, including the suspected shooter.`\
+https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
+
 **Braves spring guide: 28 notes for 28 pitchers, from Anderson to Strider to Waldrep**\
 `How close Strider gets to his previous dominant form could go a long way toward determining the Braves’ fortunes.`\
 https://nytimes.com/athletic/6111935/2025/02/05/braves-spring-guide-28-notes-for-28-pitchers-from-anderson-to-strider-to-waldrep/
