@@ -1,3 +1,7 @@
+**Several Injured in Shooting at Warehouse in Central Ohio**\
+`The suspect in the shooting in New Albany, near Columbus, was no longer in the area and several were hospitalized, the authorities said.`\
+https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
+
 **With Nick Leddy back, will Blues move any veteran defensemen before the NHL trade deadline?**\
 `Leddy, Ryan Suter and Justin Faulk are all possibilities to be traded if the Blues think they're out of the playoff mix. `\
 https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-deadline/
