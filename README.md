@@ -2,8 +2,8 @@
 `"I'm going to have a relationship with him after basketball," Antetokounmpo said of his longtime teammate.`\
 https://nytimes.com/athletic/6114118/2025/02/05/khris-middleton-trade-bucks-giannis-antetokoumpo/
 
-**‘It Was Pandemonium’: Palestinian Americans React to Trump’s Gaza Plan**\
-`Palestinian Americans said in interviews that it was surreal and horrifying to hear the president talk about expelling millions of people from the Gaza Strip and placing it under U.S. control.`\
+**Palestinian Americans React to Trump’s Gaza Plan: ‘It Was Pandemonium’**\
+`In interviews, Palestinian Americans said that it was surreal and horrifying to hear the president talk about expelling millions of people from the Gaza Strip and placing it under U.S. control.`\
 https://nytimes.com/2025/02/05/nyregion/trump-gaza-strip-palestinian-american.html
 
 **Ohio State expected to hire Hokies OC Tyler Bowen as O-line coach: Sources**\
