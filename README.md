@@ -1,3 +1,15 @@
+**Minnesota Twins farm system heat check: What’s the immediate and future outlook?**\
+`Here’s an overview of where the Twins farm system stands and how it may factor into the team’s future near-term.`\
+https://nytimes.com/athletic/6112960/2025/02/05/minnesota-twins-farm-system-outlook/
+
+**Kareem Hunt never thought he'd get a second chance with the Chiefs. He's making the most of it**\
+`Hunt, who was a free agent in early September, led the Chiefs with 728 rushing yards and seven touchdowns this season.`\
+https://nytimes.com/athletic/6114354/2025/02/05/chiefs-kareem-hunt-super-bowl-opportunity/
+
+**Astros spring guide: 33 thoughts for 33 pitchers, from Blanco to McCullers to Whitley**\
+`Get to know every Astros pitcher who'll be at spring training.`\
+https://nytimes.com/athletic/6105406/2025/02/05/astros-pitchers-spring-training-guide/
+
 **Cardinals spring guide: 33 thoughts for 33 pitchers, from Bedell to Pallante to Thompson**\
 `Several prospects are on the rise and the Cardinals are about to find out which ones are ready for the big-league fire.`\
 https://nytimes.com/athletic/6113528/2025/02/05/cardinals-spring-training-pitchers/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6113745/2025/02/05/milan-2026-olympics-womens-hocke
 **Inside Eagles-Chiefs Super Bowl matchup: What to watch when KC has the ball**\
 `Vic Fangio likes to take away explosive plays, but that might play right into what works best for Patrick Mahomes and the Chiefs.`\
 https://nytimes.com/athletic/6113500/2025/02/05/eagles-chiefs-super-bowl-film-what-to-watch/
-
-**Colts 2025 NFL Draft big board: 10 offensive and 10 defensive players Indy should consider**\
-`Indy must help Anthony Richardson flourish, but the defense needs a lot of help, too. Should the Colts draft offense or defense in Round 1?`\
-https://nytimes.com/athletic/6105704/2025/02/05/colts-2025-nfl-draft-big-board/
-
-**What we know about the Myles Garrett trade demand — and what's next for the Browns**\
-`What Cleveland knew before Monday's announcement, and where Garrett could land next.`\
-https://nytimes.com/athletic/6113240/2025/02/05/myles-garrett-trade-demand-cleveland-browns/
-
-**What the skyrocketing cap means for the Jets, Nikolaj Ehlers, Neal Pionk and more**\
-`How will an increasing salary cap and new CBA change the way Winnipeg does business?`\
-https://nytimes.com/athletic/6107392/2025/02/05/winnipeg-jets-salary-cap-ehlers-pionk/
 
