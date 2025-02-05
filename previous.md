@@ -1,3 +1,11 @@
+**Foreign Strongmen Cheer as Musk Dismantles U.S. Aid Agency**\
+`Leaders in Russia, Hungary and El Salvador welcomed the Trump administration’s assault on U.S.A.I.D., which many authoritarians have seen as a threat.`\
+https://nytimes.com/2025/02/05/world/europe/usaid-russia-putin.html
+
+**Zhou joins Ferrari in reserve role for 2025**\
+`The Chinese driver previously raced for Sauber between 2022 and 2024.`\
+https://nytimes.com/athletic/6114868/2025/02/05/ferrari-zhou-guanyu-reserve-driver/
+
 **Patrick Mahomes vs. Tom Brady: If Chiefs win Super Bowl, there will be a new playoff GOAT**\
 `Mahomes over Brady? Already? Absolutely. It's actually an easy case to make. `\
 https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-bowl-goat-nfl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-imp
 **Guardians spring guide: 33 notes for 33 pitchers, from Bibee to Bieber to Williams**\
 `As you monitor the action this spring, here’s a handy guide with insight on every pitcher with a locker in the Guards' big-league clubhouse.`\
 https://nytimes.com/athletic/6099816/2025/02/05/guardians-spring-guide-notes-pitchers/
-
-**Panthers pushed both Super Bowl teams to the brink: 'Hopefully one day we can get to that'**\
-`The Panthers lost in Week 12 to the Chiefs by three points and by six points two weeks later in Philadelphia.`\
-https://nytimes.com/athletic/6113584/2025/02/05/panthers-bryce-young-super-bowl-chiefs-eagles/
-
-**Rams way-too-early big board: Pre-free-agency needs, all-star game standouts**\
-`The Rams own the 26th pick in Round 1 and among their needs are: tight end, offensive and defensive tackle, receiver and cornerback.`\
-https://nytimes.com/athletic/6104162/2025/02/05/rams-nfl-draft-big-board-needs-analysis/
 

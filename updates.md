@@ -1,3 +1,11 @@
+**Foreign Strongmen Cheer as Musk Dismantles U.S. Aid Agency**\
+`Leaders in Russia, Hungary and El Salvador welcomed the Trump administration’s assault on U.S.A.I.D., which many authoritarians have seen as a threat.`\
+https://nytimes.com/2025/02/05/world/europe/usaid-russia-putin.html
+
+**Zhou joins Ferrari in reserve role for 2025**\
+`The Chinese driver previously raced for Sauber between 2022 and 2024.`\
+https://nytimes.com/athletic/6114868/2025/02/05/ferrari-zhou-guanyu-reserve-driver/
+
 **Sweden Mourns Mass Shooting**\
 `The authorities said that at least 11 people were killed and that the person suspected of being the shooter was believed to be among the dead.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
