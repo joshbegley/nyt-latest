@@ -1,3 +1,7 @@
+**Trump Signs Executive Order Calling for Review of U.S. Funding and Ties to U.N.**\
+`The move cast uncertainty on the leadership role of the United States in the global body. The president also withdrew from the U.N.’s Human Rights Council and stopped funding UNRWA.`\
+https://nytimes.com/2025/02/04/us/politics/trump-united-nations-unrwa.html
+
 **Bondi Confirmed as Attorney General**\
 `The quick confirmation highlighted the new administration’s focus on controlling and changing the Justice Department.`\
 https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/health/parkinsons-disease-exenatide-byetta.html
 **Who's in on Kevin Durant? What we're hearing as trade deadline nears**\
 `Yes, the Warriors are trying to find a way to land the 36-year-old superstar, but they aren't alone.`\
 https://nytimes.com/athletic/6113665/2025/02/04/kevin-durant-trade-rumors-suns-warriors-nba/
-
-**General Services Administration Workers Warned of Impending Staff Cuts**\
-`The notice came as the Trump administration pushes to shrink the work force, giving civil servants until Thursday to decide whether to resign.`\
-https://nytimes.com/2025/02/04/us/politics/gsa-staff-cuts-trump.html
 
