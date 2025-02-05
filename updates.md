@@ -1,3 +1,20 @@
+**Barely recognizable Blue Jackets end 4-game trip with loss to Sabres**\
+`The Blue Jackets played a tight third period but couldn't equalize in a game where they were missing their top three scorers.`\
+https://nytimes.com/athletic/6114346/2025/02/04/blue-jackets-provorov-injuries-trip-sabres/
+
+**Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
+**5 Takeaways From Trump’s News Conference With Netanyahu**\
+`President Trump said that the United States should take over Gaza and forcibly relocate two million Palestinians. Leaders in Gaza and Arab nations immediately rejected the idea.`\
+https://nytimes.com/2025/02/04/us/politics/5-takeaways-from-trumps-news-conference-with-netanyahu.html
+
+**Crowded Skies, Thin Margins for Error: The Minutes Before the D.C. Air Disaster**\
+`Using radio traffic, flight data and leaked footage of an air traffic control radar screen, we examine what was happening in the moments before the midair collision near Reagan National Airport that left 67 dead.`\
+https://nytimes.com/video/us/100000009963447/dc-plane-crash-investigation.html
+
 **'You want to deflate the other team': A Jeremy Swayman shutout signals a playoff path**\
 `Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
 https://nytimes.com/athletic/6114450/2025/02/04/bruins-jeremy-swayman-shutout-poitras-wild/

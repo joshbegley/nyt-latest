@@ -1,3 +1,20 @@
+**Barely recognizable Blue Jackets end 4-game trip with loss to Sabres**\
+`The Blue Jackets played a tight third period but couldn't equalize in a game where they were missing their top three scorers.`\
+https://nytimes.com/athletic/6114346/2025/02/04/blue-jackets-provorov-injuries-trip-sabres/
+
+**Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
+**5 Takeaways From Trump’s News Conference With Netanyahu**\
+`President Trump said that the United States should take over Gaza and forcibly relocate two million Palestinians. Leaders in Gaza and Arab nations immediately rejected the idea.`\
+https://nytimes.com/2025/02/04/us/politics/5-takeaways-from-trumps-news-conference-with-netanyahu.html
+
+**Crowded Skies, Thin Margins for Error: The Minutes Before the D.C. Air Disaster**\
+`Using radio traffic, flight data and leaked footage of an air traffic control radar screen, we examine what was happening in the moments before the midair collision near Reagan National Airport that left 67 dead.`\
+https://nytimes.com/video/us/100000009963447/dc-plane-crash-investigation.html
+
 **'You want to deflate the other team': A Jeremy Swayman shutout signals a playoff path**\
 `Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
 https://nytimes.com/athletic/6114450/2025/02/04/bruins-jeremy-swayman-shutout-poitras-wild/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketba
 **Man Sentenced to 44 Years in Prison After Pleading Guilty to Qaeda Ties**\
 `Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
 https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
-
-**U.S. Postal Service Halts Parcel Service From China as Trump’s Trade Curbs Begin**\
-`The U.S. has been importing about three million parcels a day with little customs inspection, raising concerns about the ease of sending fentanyl.`\
-https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
-
-**Cubs acquire Ryan Brasier in trade with Dodgers**\
-`The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
-https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
-
-**Will You Be Watching Super Bowl LIX?**\
-`Which stories have your attention this year, whether they’re about the players, the coaches, the commercials or the halftime performers?`\
-https://nytimes.com/2025/02/04/learning/will-you-be-watching-super-bowl-lix.html
-
-**Favorite Sports Team**\
-`Who is yours?`\
-https://nytimes.com/2025/02/04/learning/favorite-sports-team.html
 
