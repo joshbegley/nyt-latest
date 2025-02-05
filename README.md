@@ -1,3 +1,11 @@
+**For Wild's Ryan Hartman, latest suspension should be a wake-up call**\
+`Wild GM said of Hartman: “He’s pretty upset. This is affecting him.” But also: "He’s got to do a better job. … Look, he just can’t do it.”`\
+https://nytimes.com/athletic/6114459/2025/02/05/wild-ryan-hartman-suspension-wakeup-call/
+
+**The Briefing: Newcastle 2 Arsenal 0 (agg: 4-0) - Howe's system shock, Isak toys with Saliba, Wembley awaits**\
+`Newcastle are on the way to Wembley after powering past Arsenal in the second leg of the Carabao Cup semi-final. Here are the talking points`\
+https://nytimes.com/athletic/6109344/2025/02/05/newcastle-2-arsenal-0-agg-4-0-howe-isak-gordon-wembley/
+
 **What to Know About the Trump Family’s Deals in the Middle East**\
 `The region has become a hot spot for the family’s business. Jared Kushner, the president’s son-in-law, noted last year that “Gaza’s waterfront property could be very valuable.”`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-middle-east.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/dining/easy-shrimp-dinner-recipe.html
 **Transcript of ‘60 Minutes’ Interview With Kamala Harris**\
 `The Federal Communications Commission on Wednesday released the transcript of a “60 Minutes” interview with Vice President Kamala Harris that has been at the center of a lawsuit between CBS and President Trump.`\
 https://nytimes.com/interactive/2025/02/05/business/media/60-minutes-kamala-harris-interview-transcript.html
-
-**Trump Signs Order Barring Transgender Student-Athletes From Women’s Sports**\
-`The president said schools that violated the order would jeopardize their federal funding.`\
-https://nytimes.com/2025/02/05/us/politics/trump-order-transgender-athletes-womens-sports.html
-
-**Tom Brady looks back on Fox work, Raiders role ahead of Super Bowl**\
-`"I think the mistakes that I have made and I have made plenty, I have learned from all of them," Brady said.`\
-https://nytimes.com/athletic/6116452/2025/02/05/tom-brady-fox-analyst-raiders-super-bowl/
 
