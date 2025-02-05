@@ -1,3 +1,23 @@
+**Rams' Puka Nacua on Cooper Kupp trade talks: 'Too fresh to think about'**\
+`Rams WR discusses the impact Kupp has on the field and in the locker room, and how that would be missed if he is traded.`\
+https://nytimes.com/athletic/6116182/2025/02/05/puka-nacua-rams-trade-cooper-kupp/
+
+**Watch: What was the turning point for the Eagles' season?**\
+`The Athletic Football show hosts discuss how the Philadelphia Eagles got back to the Super Bowl.`\
+https://nytimes.com/athletic/6114924/2025/02/05/athletic-football-show-eagles-super-bowl/
+
+**Tiny Love Stories: ‘A Mini Breakdown in a Walmart Bathroom’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/02/05/style/tiny-modern-love-stories-a-mini-breakdown-in-a-walmart-bathroom.html
+
+**Wild claim veteran forward Vinnie Hinostroza off waivers from Nashville: Why?**\
+`Vinnie Hinostroza, a veteran winger who has played 387 games over 10 NHL seasons, was claimed from the Nashville Predators.`\
+https://nytimes.com/athletic/6116309/2025/02/05/wild-vinnie-hinostroza-waivers/
+
+**Let Us Help You Find Your Next Book: Romance**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/romance-books.html
+
 **Classic Romance Novels: A Starter Pack**\
 `These vintage books introduce the archetypes, settings and lavishly bonkers sensibility that are the hallmarks of great romance.`\
 https://nytimes.com/interactive/2025/02/05/books/romance-books-love.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
 **Nassau County’s Armed Volunteer Force Faces Lawsuit From Democrats**\
 `Executive Bruce Blakeman’s corps is “an authoritarian power grab in the heart of suburban America,” said a lawyer representing county lawmakers.`\
 https://nytimes.com/2025/02/05/nyregion/nassau-county-blakeman-armed-force-suit.html
-
-**A Tribute to Marianne Faithfull**\
-`Hear 10 tracks from a long, winding career.`\
-https://nytimes.com/2025/02/05/arts/music/amplifer-newsletter-marianne-faithfull.html
-
-**Cal football hiring two-time NFL COY Ron Rivera in GM-like role**\
-`Rivera was an All-America linebacker for Cal in 1983 and went on to be a second-round NFL Draft pick by the Chicago Bears.`\
-https://nytimes.com/athletic/6116114/2025/02/05/ron-rivera-cal-football-gm/
-
-**Carson Wentz not exactly living his Super Bowl dream; Chris Jones superstitious?**\
-`Wentz watched teammate Nick Foles win a Super Bowl with the Eagles. Now he's backing up Patrick Mahomes and facing his old team.`\
-https://nytimes.com/athletic/6115889/2025/02/05/chiefs-super-bowl-carson-wentz-chris-jones/
-
-**Betting for (by) dummies: Breaking the golden rule of parlays because it's the Super Bowl**\
-`Jon Greenberg and Zac Jackson having advice for how to bet the Super Bowl and how to raise teenagers, all in one column.`\
-https://nytimes.com/athletic/6115772/2025/02/05/betting-for-by-dummies-super-bowl-eagles-chiefs/
-
-**Prime Tire: Marveling at F1's teenaged drivers; Zhou returns to Ferrari**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6116039/2025/02/05/marveling-at-formula-1s-teenaged-drivers-plus-zhou-guanyu-returns-to-ferrari/
 
