@@ -1,3 +1,11 @@
+**Kremlin Confirms Talks With Trump Administration About Ukraine**\
+`Russia said that discussions with Washington were underway regarding potential peace talks to end the war nearly three years after Moscow’s full-scale invasion.`\
+https://nytimes.com/2025/02/05/us/politics/russia-trump-ukraine-war-talks.html
+
+**Spanish FA calls meeting to address refereeing issues, Real Madrid to not attend**\
+`Following their criticism of refereeing decisions in Saturday's loss to Espanyol, Madrid have communicated that they will not be present.`\
+https://nytimes.com/athletic/6115577/2025/02/05/spanish-fa-referee-meeting-real-madrid/
+
 **Harry Stewart Jr. Dies at 100; One of Last Tuskegee Airmen to See Combat**\
 `His boyhood dream to be an adventurous pilot was fulfilled thanks to World War II. But, as a civilian, racial prejudice kept him out of the cockpit.`\
 https://nytimes.com/2025/02/05/us/harry-stewart-jr-dead.html
