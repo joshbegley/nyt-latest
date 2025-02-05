@@ -1,3 +1,7 @@
+**Migrants Are Deported to India on U.S. Military Plane**\
+`The flight appeared to be the first use of an American military aircraft to deport people to India, which is one of the top sources of illegal immigration to the United States.`\
+https://nytimes.com/2025/02/05/world/asia/migrants-deported-india-us.html
+
 **Jimmy Kimmel Wants Canada to Save Us, Eh?**\
 `Kimmel is all for making Canada the 51st state: “If Canada also had 54 electoral votes, forget MAGA — our next president will be a kindhearted lesbian moose.”`\
 https://nytimes.com/2025/02/05/arts/television/jimmy-kimmel-canada-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-dead
 **Word of the Day: banal**\
 `This word has appeared in 195 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
-
-**Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
-`Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
-https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
 
