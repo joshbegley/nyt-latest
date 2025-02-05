@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspens
 `\
 https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
 
+**Wild endure back-to-back shutouts; Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
 **Kyrie Irving reflects on past 'dream' of playing with A.D., Kevin Durant**\
 `The Mavs guard was teammates with Durant in Brooklyn and is now, after the Luka Dončić deal, paired up with Davis in Dallas.`\
 https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin-durant-mavericks/
