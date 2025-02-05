@@ -1,3 +1,19 @@
+**Lemina completes move to Galatasaray from Wolves**\
+`Former Wolverhampton Wanderers captain Mario Lemina has joined Galatasaray on a permanent deal.`\
+https://nytimes.com/athletic/6105075/2025/02/05/mario-lemina-galatasaray-transfer-wolves/
+
+**Donald Trump signs executive order to block transgender athletes from women's sports**\
+`"With this executive order, the war on women's sports is over," Trump said from the East Room of the White House.`\
+https://nytimes.com/athletic/6115651/2025/02/05/trump-transgender-athletes-order/
+
+**Man Is Charged With First-Degree Murder in Shooting of Newark Boy, 9**\
+`The man, Jesse J. Dunbar II, also faces assault and weapons charges, prosecutors said.`\
+https://nytimes.com/2025/02/05/nyregion/newark-murder-arrest-shooting.html
+
+**Rams to host NFL's first regular-season game in Australia in 2026**\
+`The game will be one of several of the NFL’s growing number of regular season games to be played internationally over the next few seasons.`\
+https://nytimes.com/athletic/6116676/2025/02/05/los-angeles-rams-nfl-australia/
+
 **For Wild's Ryan Hartman, latest suspension should be a wake-up call**\
 `Wild GM said of Hartman: “He’s pretty upset. This is affecting him.” But also: "He’s got to do a better job. … Look, he just can’t do it.”`\
 https://nytimes.com/athletic/6114459/2025/02/05/wild-ryan-hartman-suspension-wakeup-call/

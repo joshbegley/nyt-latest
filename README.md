@@ -1,5 +1,5 @@
 **Lemina completes move to Galatasaray from Wolves**\
-`Former Wolverhampton Wanderers captain Mario Lemina has joined Galatasaray on a permanent deal.`\
+`The former Wolves captain has joined the Super Lig side on a one-and-a-half-year contract with the option of a further year.`\
 https://nytimes.com/athletic/6105075/2025/02/05/mario-lemina-galatasaray-transfer-wolves/
 
 **Donald Trump signs executive order to block transgender athletes from women's sports**\
