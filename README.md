@@ -1,3 +1,7 @@
+**Trump’s Plan for the Cartels Isn’t Tough Enough**\
+`Trump misunderstands the cartels. His plan to take them on is not tough enough.`\
+https://nytimes.com/2025/02/05/opinion/trump-sheinbaum-cartels-mexico.html
+
 **Bands, fireworks, cannons: What we know about the Blue Jackets' outdoor game**\
 `The stadium entrance figures to be a highlight when the Blue Jackets play the Red Wings at Ohio Stadium.`\
 https://nytimes.com/athletic/6113532/2025/02/05/blue-jackets-outdoor-ohio-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009970943/in-gaza-and-jerusalem
 **The Bounce: Will Kevin Durant be dealt by NBA trade deadline?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6115015/2025/02/05/kevin-durant-suns-jimmy-butler-heat-luka-doncic-anthony-davis-lakers-mavericks-nba-trade-deadline-the-bounce/
-
-**Vecenie: After Luka Dončić trade, Lakers should be thinking about summer 2026**\
-`The Dončić deal positions the Lakers extremely well for the future — especially when a bumper crop of stars might become available.`\
-https://nytimes.com/athletic/6108702/2025/02/05/lakers-trades-free-agents-cap-space-doncic-2026/
 
