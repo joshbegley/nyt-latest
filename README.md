@@ -1,3 +1,7 @@
+**Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
+`The Twins firmed up their roster, agreeing to sign Gold Glove-winning outfielder Harrison Bader to a one-year deal with a mutual option.`\
+https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
+
 **These Are the Major Obstacles to Trump’s Gaza Plan**\
 `Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
 https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115878/2025/02/05/josh-jacobs-packers-wide-receive
 **Chelsea's Boehly director of Premier League ticket reselling website**\
 `Vivid Seats sell tickets to concerts and other sporting events as well as Premier League games but its use is prohibited in the UK.`\
 https://nytimes.com/athletic/6114903/2025/02/05/chelsea-tickets-boehly-vivid-seats/
-
-**Kenyan commander says the United States supports the Haiti mission, despite a pause in aid.**\
-`By André Paultre and Frances Robles`\
-https://nytimes.com/live/2025/02/05/us/trump-news/kenyan-commander-says-us-supports-haiti-mission-despite-a-pause-in-aid
 
