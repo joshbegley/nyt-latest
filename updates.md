@@ -1,3 +1,7 @@
+**1 Killed in Warehouse Shooting in Central Ohio**\
+`At least five others were injured on Tuesday, the authorities said. The police said that the shooter did not pose a threat to the public.`\
+https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
+
 **Levy and Lange's late rush to give Postecoglou's Spurs squad the 'help' they needed**\
 `Tottenham coach Ange Postecoglou made it clear his squad needed strengthening in the winter window — he certainly had to be patient...`\
 https://nytimes.com/athletic/6112448/2025/02/05/tottenham-transfers-levy-lange-tel-danso/
