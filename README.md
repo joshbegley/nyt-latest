@@ -1,3 +1,11 @@
+**Thursday Briefing: An Uproar Over Trump’s Gaza Plan**\
+`Plus, drink (and sleep) in a British pub.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-goma-deaths-nissan-honda.html
+
+**Paul Plishka, Prolific Soloist at the Met, Dies at 83**\
+`Known for his liquid bass tones and flawless diction, he appeared in 88 roles, many of them comic, over 1,672 performances at the Metropolitan Opera.`\
+https://nytimes.com/2025/02/05/arts/music/paul-plishka-dead.html
+
 **100,000 Eggs Are Stolen in Pennsylvania Amid Shortage**\
 `The theft of the eggs, which the authorities said were worth $40,000, comes as grocery shoppers across the country are facing empty shelves and higher prices for eggs.`\
 https://nytimes.com/2025/02/05/us/eggs-stolen-pennsylvania-shortage.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/house-spea
 **‘Days of Mass Burials Ahead’ as Congo Mourns Its Dead in Goma**\
 `Nearly 3,000 people were killed over the last week as rebels captured a key city in one of the deadliest battles in the Central African country in decades.`\
 https://nytimes.com/2025/02/05/world/africa/congo-m23-rwanda-goma-burials.html
-
-**Trump Torpedoed the Iran Nuclear Deal. Now He’s Calling for Another One.**\
-`President Trump’s desire to engage in negotiations is a turnabout from his first term, when he often derided former President Barack Obama for agreeing to a nuclear deal with Iran.`\
-https://nytimes.com/2025/02/05/us/politics/trump-iran-nuclear-deal.html
-
-**Heat Today: Erik Spoelstra, Heat continue struggling with close losses as tough season continues**\
-`After blowing another double-digit lead, Heat continue struggling to maintain footing in East playoff picture`\
-https://nytimes.com/athletic/6116038/2025/02/05/erik-spoelstra-bam-adebayo-tyler-herro-heat-nba/
 
