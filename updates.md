@@ -1,3 +1,7 @@
+**Cubs to acquire Ryan Brasier in trade with Dodgers: Sources**\
+`The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
+https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
+
 **Man Sentenced to 44 Years in Prison After Pleading Guilty to Qaeda Ties**\
 `Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
 https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
