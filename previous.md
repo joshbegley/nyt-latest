@@ -1,5 +1,5 @@
-**‘You want to deflate the other team’: A Swayman shutout signals a playoff path**\
-`Jeremy Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
+**'You want to deflate the other team': A Jeremy Swayman shutout signals a playoff path**\
+`Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
 https://nytimes.com/athletic/6114450/2025/02/04/bruins-jeremy-swayman-shutout-poitras-wild/
 
 **Trump’s Proposal to ‘Take Over’ Gaza Sparks Immediate Rebukes**\
