@@ -1,3 +1,7 @@
+**UCLA keeps rolling with upset over No. 9 Michigan State**\
+`It's UCLA’s third consecutive win against a ranked team, too.`\
+https://nytimes.com/athletic/6114616/2025/02/05/ucla-michigan-state-mens-basketball-results-analysis/
+
 **Maple Leafs report cards: Nylander's hat trick helps Toronto sweep Alberta**\
 `The Leafs allowed two five-on-three goals but scored four in the second period to pick up their second win of their trip.`\
 https://nytimes.com/athletic/6114609/2025/02/05/maple-leafs-report-cards-nylander-hat-trick-flames/
