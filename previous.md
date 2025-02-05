@@ -1,3 +1,7 @@
+**Saquon Barkley on 'love' for Giants GM who drafted him, mending fences with Eric Dickerson**\
+`Plus, Cam Jurgens is managing his pain and Brandon Graham talks about his return.`\
+https://nytimes.com/athletic/6116401/2025/02/05/saquon-barkley-eagles-super-bowl-media-giants-gm-eric-dickerson/
+
 **New Raiders OC Chip Kelly welcomes challenge in Las Vegas' offense**\
 `Kelly is tasked with improving an offense that averaged the 27th most points and 26th most yards per game over the last two seasons.`\
 https://nytimes.com/athletic/6116070/2025/02/05/fresh-off-a-national-championship-new-raiders-oc-chip-kelly-welcomes-challenge-in-las-vegas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6116038/2025/02/05/erik-spoelstra-bam-adebayo-tyler
 **F.C.C. Releases ‘60 Minutes’ Interview With Kamala Harris**\
 `The complete interview, which is at the center of a lawsuit filed by President Trump, shows that “60 Minutes” aired a concise version of Ms. Harris’s answer on Israel.`\
 https://nytimes.com/2025/02/05/business/media/cbs-60-minutes-harris-interview.html
-
-**Why These Lovers Ghosted**\
-`They knew it was unkind. These are the reasons they did it anyway.`\
-https://nytimes.com/interactive/2025/02/05/magazine/ghosting-dating.html
 
