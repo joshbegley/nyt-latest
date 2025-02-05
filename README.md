@@ -1,3 +1,7 @@
+**Favorite Sports Team**\
+`Who is yours?`\
+https://nytimes.com/2025/02/04/learning/favorite-sports-team.html
+
 **Trump Says He Would Jail Americans in El Salvador ‘in a Heartbeat’**\
 `The proposal is almost certainly illegal, experts said, but President Trump’s eagerness to entertain it showed his willingness to embrace extreme measures to demonstrate he is tough on crime.`\
 https://nytimes.com/2025/02/04/us/politics/trump-el-salvador-americans-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmati
 **Daniel Penny Is Hired by Venture Capital Firm Whose Founder Backed Trump**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, will work for Andreessen Horowitz. Before the killing, he had been an architecture student.`\
 https://nytimes.com/2025/02/04/nyregion/daniel-penny-hired-andreessen-horowitz.html
-
-**Conditions May Have Stymied Black Hawk Crew Before Fatal Crash**\
-`The Army pilots were juggling dark skies, low altitude, a busy airspace and a cockpit without certain traffic detectors before the helicopter’s midair crash with a regional passenger jet.`\
-https://nytimes.com/2025/02/04/us/politics/plane-helicopter-crash-reagan-airport.html
 
