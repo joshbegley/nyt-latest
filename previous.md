@@ -1,3 +1,11 @@
+**Elon Musk says his efficiency team will tackle F.A.A. technology.**\
+`His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
+https://nytimes.com/live/2025/02/05/us/trump-news/elon-musk-doge-faa
+
+**Schumer Urged Democrats to Oppose Trump Nominees in Protest of His Policies**\
+`The Senate minority leader had initially said he would not lean on his colleagues to reflexively oppose every nominee, but changed his stance after the president’s actions generated heavy pressure from the left.`\
+https://nytimes.com/2025/02/05/us/politics/chuck-schumer-democrats-trump-nominees-protest.html
+
 **AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
 `The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
 https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116495/2025/02/05/milan-cortina-winter-olympics-ev
 **Postecoglou on Tel signing: 'I didn't bring him here for six months'**\
 `Tel joined Spurs from Bayern Munich on loan with a €55m option to buy on deadline day.`\
 https://nytimes.com/athletic/6115503/2025/02/05/mathys-tel-tottenham-future-postecoglou/
-
-**What We Know About Trump’s New Executive Order on Trans Athletes**\
-`The order, called “Keeping Men Out of Women’s Sports,” is based on the Trump administration’s interpretation of Title IX.`\
-https://nytimes.com/2025/02/05/us/politics/trump-trans-athletes-executive-order.html
-
-**Lemina completes move to Galatasaray from Wolves**\
-`The former Wolves captain has joined the Super Lig side on a one-and-a-half-year contract with the option of a further year.`\
-https://nytimes.com/athletic/6105075/2025/02/05/mario-lemina-galatasaray-transfer-wolves/
 

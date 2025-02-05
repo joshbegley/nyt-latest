@@ -1,3 +1,11 @@
+**Elon Musk says his efficiency team will tackle F.A.A. technology.**\
+`His announcement comes after an outage last week to a the primary system that provides pilots safety alerts in real time.`\
+https://nytimes.com/live/2025/02/05/us/trump-news/elon-musk-doge-faa
+
+**Schumer Urged Democrats to Oppose Trump Nominees in Protest of His Policies**\
+`The Senate minority leader had initially said he would not lean on his colleagues to reflexively oppose every nominee, but changed his stance after the president’s actions generated heavy pressure from the left.`\
+https://nytimes.com/2025/02/05/us/politics/chuck-schumer-democrats-trump-nominees-protest.html
+
 **AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
 `The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
 https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
