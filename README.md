@@ -1,4 +1,4 @@
-**Drake Maye on Vrabel, getting ready for Year Two, and his biggest move of the offseason**\
+**Drake Maye on Vrabel, getting ready for Year 2, and his biggest move of the offseason**\
 `The Patriots quarterback joined "Scoop City" at Super Bowl LIX.`\
 https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
 
