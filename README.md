@@ -1,5 +1,9 @@
+**Saudi Arabia Reiterates Support for a Palestinian State**\
+`Apparently contradicting President Trump, Saudi Arabia said that establishing ties with Israel would depend on the creation of an independent Palestinian state.`\
+https://nytimes.com/2025/02/04/us/politics/saudi-arabia-palestine-trump-gaza.html
+
 **Barely recognizable Blue Jackets end 4-game trip with loss to Sabres**\
-`The Blue Jackets played a tight third period but couldn't equalize in a game where they were missing their top three scorers.`\
+`The Blue Jackets played a tight third period but couldn't equalize in a game in which they were missing their top three scorers.`\
 https://nytimes.com/athletic/6114346/2025/02/04/blue-jackets-provorov-injuries-trip-sabres/
 
 **Wild blanked again vs. Bruins, Hartman expected to appeal suspension: 3 takeaways**\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
 **No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
 `Rick Pitino's Red Storm are on their longest winning streak against Big East competition since their 1984-85 Final Four season.`\
 https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
-
-**Man Sentenced to 44 Years in Prison After Pleading Guilty to Qaeda Ties**\
-`Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
-https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
 
