@@ -1,3 +1,44 @@
+**While Lamar Jackson has Super Bowl goals, a third MVP would put him in rare company**\
+`"As a quarterback, your goal is to be the best player you can be to help the team, and certainly Lamar is doing that," said Peyton Manning. `\
+https://nytimes.com/athletic/6112750/2025/02/05/super-bowl-lamar-jackson-nfl-mvp-ravens/
+
+**Andy Reid's superpower during Chiefs' historic pursuit: Preventing player complacency**\
+`Mental fortitude often defines elite teams, and the Chiefs seemingly have mastered this aspect of football under Reid.`\
+https://nytimes.com/athletic/6113767/2025/02/05/andy-reid-kansas-city-chiefs-super-bowl-complacency/
+
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
+**One year from Milan Olympics, projecting Team Canada's women's hockey roster**\
+`With an established core of players either still in their prime or close to it, it’s fair to expect a roster of familiar faces.`\
+https://nytimes.com/athletic/6113745/2025/02/05/milan-2026-olympics-womens-hockey-canada-roster/
+
+**Inside Eagles-Chiefs Super Bowl matchup: What to watch when KC has the ball**\
+`Vic Fangio likes to take away explosive plays, but that might play right into what works best for Patrick Mahomes and the Chiefs.`\
+https://nytimes.com/athletic/6113500/2025/02/05/eagles-chiefs-super-bowl-film-what-to-watch/
+
+**Colts 2025 NFL Draft big board: 10 offensive and 10 defensive players Indy should consider**\
+`Indy must help Anthony Richardson flourish, but the defense needs a lot of help, too. Should the Colts draft offense or defense in Round 1?`\
+https://nytimes.com/athletic/6105704/2025/02/05/colts-2025-nfl-draft-big-board/
+
+**What we know about the Myles Garrett trade demand — and what's next for the Browns**\
+`What Cleveland knew before Monday's announcement, and where Garrett could land next.`\
+https://nytimes.com/athletic/6113240/2025/02/05/myles-garrett-trade-demand-cleveland-browns/
+
+**What the skyrocketing cap means for the Jets, Nikolaj Ehlers, Neal Pionk and more**\
+`How will an increasing salary cap and new CBA change the way Winnipeg does business?`\
+https://nytimes.com/athletic/6107392/2025/02/05/winnipeg-jets-salary-cap-ehlers-pionk/
+
+**'He's a very positive player': Flyers take a chance on Jakob Pelletier**\
+`The Flyers acquired the 23-year-old last Thursday as part of the trade that sent Morgan Frost and Joel Farabee to the Flames.`\
+https://nytimes.com/athletic/6114368/2025/02/05/flyers-flames-jakob-pelletier-trade/
+
+**How the NHL’s salary-cap bump impacts the Rangers in the short and long term**\
+`The cap going up leaves room for the Rangers to aim high as GM Chris Drury identifies the team’s future direction.`\
+https://nytimes.com/athletic/6104060/2025/02/05/nhl-salary-cap-increase-rangers/
+
 **Luka Dončić trade resulted in fake funerals and blunt fan responses: 'It's soulless'**\
 `"Even if we win a championship, it’s soulless. We didn’t do it with our guy," one fan said after the Mavericks traded Dončić.`\
 https://nytimes.com/athletic/6114735/2025/02/05/luka-doncic-mavericks-lakers-fan-reaction/

@@ -1,40 +1,41 @@
-**Luka Dončić trade resulted in fake funerals and blunt fan responses: 'It's soulless'**\
-`"Even if we win a championship, it’s soulless. We didn’t do it with our guy," one fan said after the Mavericks traded Dončić.`\
-https://nytimes.com/athletic/6114735/2025/02/05/luka-doncic-mavericks-lakers-fan-reaction/
+**While Lamar Jackson has Super Bowl goals, a third MVP would put him in rare company**\
+`"As a quarterback, your goal is to be the best player you can be to help the team, and certainly Lamar is doing that," said Peyton Manning. `\
+https://nytimes.com/athletic/6112750/2025/02/05/super-bowl-lamar-jackson-nfl-mvp-ravens/
 
-**Foreign Strongmen Cheer as Musk Dismantles U.S. Aid Agency**\
-`Leaders in Russia, Hungary and El Salvador welcomed the Trump administration’s assault on U.S.A.I.D., which many authoritarians have seen as a threat.`\
-https://nytimes.com/2025/02/05/world/europe/usaid-russia-putin.html
+**Andy Reid's superpower during Chiefs' historic pursuit: Preventing player complacency**\
+`Mental fortitude often defines elite teams, and the Chiefs seemingly have mastered this aspect of football under Reid.`\
+https://nytimes.com/athletic/6113767/2025/02/05/andy-reid-kansas-city-chiefs-super-bowl-complacency/
 
-**Zhou joins Ferrari in reserve role for 2025**\
-`The Chinese driver previously raced for Sauber between 2022 and 2024.`\
-https://nytimes.com/athletic/6114868/2025/02/05/ferrari-zhou-guanyu-reserve-driver/
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
-**Patrick Mahomes vs. Tom Brady: If Chiefs win Super Bowl, there will be a new playoff GOAT**\
-`Mahomes over Brady? Already? Absolutely. It's actually an easy case to make. `\
-https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-bowl-goat-nfl-playoffs/
+**One year from Milan Olympics, projecting Team Canada's women's hockey roster**\
+`With an established core of players either still in their prime or close to it, it’s fair to expect a roster of familiar faces.`\
+https://nytimes.com/athletic/6113745/2025/02/05/milan-2026-olympics-womens-hockey-canada-roster/
 
-**The baseball statistic that's changing MLB ... for better or worse**\
-`The understanding of pitch quality, and how to improve it, has led to more strikeouts and perhaps more injuries as well.`\
-https://nytimes.com/athletic/6048449/2025/02/05/mlb-statistic-stuff-plus-changing-game/
+**Inside Eagles-Chiefs Super Bowl matchup: What to watch when KC has the ball**\
+`Vic Fangio likes to take away explosive plays, but that might play right into what works best for Patrick Mahomes and the Chiefs.`\
+https://nytimes.com/athletic/6113500/2025/02/05/eagles-chiefs-super-bowl-film-what-to-watch/
 
-**Sweden Mourns Mass Shooting**\
-`The authorities said that at least 11 people were killed and that the person suspected of being the shooter was believed to be among the dead.`\
-https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
+**Colts 2025 NFL Draft big board: 10 offensive and 10 defensive players Indy should consider**\
+`Indy must help Anthony Richardson flourish, but the defense needs a lot of help, too. Should the Colts draft offense or defense in Round 1?`\
+https://nytimes.com/athletic/6105704/2025/02/05/colts-2025-nfl-draft-big-board/
 
-**Braves spring guide: 28 notes for 28 pitchers, from Anderson to Strider to Waldrep**\
-`How close Strider gets to his previous dominant form could go a long way toward determining the Braves’ fortunes.`\
-https://nytimes.com/athletic/6111935/2025/02/05/braves-spring-guide-28-notes-for-28-pitchers-from-anderson-to-strider-to-waldrep/
+**What we know about the Myles Garrett trade demand — and what's next for the Browns**\
+`What Cleveland knew before Monday's announcement, and where Garrett could land next.`\
+https://nytimes.com/athletic/6113240/2025/02/05/myles-garrett-trade-demand-cleveland-browns/
 
-**Mets spring guide: 36 thoughts for 36 pitchers, from Adcock to Manaea to Zuber**\
-`The Mets' thrived last year behind some unexpected pitching contributions. Which hurlers could surprise in 2025?`\
-https://nytimes.com/athletic/6113834/2025/02/05/mets-spring-guide-36-thoughts-for-36-pitchers-from-adcock-to-manaea-to-zuber/
+**What the skyrocketing cap means for the Jets, Nikolaj Ehlers, Neal Pionk and more**\
+`How will an increasing salary cap and new CBA change the way Winnipeg does business?`\
+https://nytimes.com/athletic/6107392/2025/02/05/winnipeg-jets-salary-cap-ehlers-pionk/
 
-**Slot happy with Liverpool squad depth after no January transfer signings**\
-`Trent Alexander-Arnold, who has a minor thigh problem, is the only Liverpool player currently unavailable.`\
-https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-news-signings/
+**'He's a very positive player': Flyers take a chance on Jakob Pelletier**\
+`The Flyers acquired the 23-year-old last Thursday as part of the trade that sent Morgan Frost and Joel Farabee to the Flames.`\
+https://nytimes.com/athletic/6114368/2025/02/05/flyers-flames-jakob-pelletier-trade/
 
-**Philippines’ Vice President Is Impeached, Deepening Political Turmoil**\
-`A conviction would hamper the political ambitions of Sara Duterte, who has said that she would like to succeed President Ferdinand R. Marcos Jr.`\
-https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-impeached.html
+**How the NHL’s salary-cap bump impacts the Rangers in the short and long term**\
+`The cap going up leaves room for the Rangers to aim high as GM Chris Drury identifies the team’s future direction.`\
+https://nytimes.com/athletic/6104060/2025/02/05/nhl-salary-cap-increase-rangers/
 
