@@ -1,15 +1,3 @@
-**Why These Lovers Ghosted**\
-`They knew it was unkind. These are the reasons they did it anyway.`\
-https://nytimes.com/interactive/2025/02/05/magazine/ghosting-dating.html
-
-**Ernest Drucker, Public-Health Advocate for the Scorned, Dies at 84**\
-`He marshaled epidemiological research to press for changes in drug policy, alternatives to prison and needle-exchange programs to slow the spread of AIDS.`\
-https://nytimes.com/2025/02/05/health/ernest-drucker-dead.html
-
-**A ‘Stellar Crew,’ a ‘Tragic Accident’ and a Black Hawk’s Last Flight**\
-`The Army helicopter that collided with a passenger plane above the Potomac River boasted an experienced crew doing “an unforgiving job.” Friends and relatives are still baffled and mourning their loss.`\
-https://nytimes.com/2025/02/05/us/politics/black-hawk-helicopter-crew-dc-crash-families.html
-
 **Giannis opens up on 'brother' Khris Middleton's exit as era ends in Milwaukee**\
 `"I'm going to have a relationship with him after basketball," Antetokounmpo said of his longtime teammate.`\
 https://nytimes.com/athletic/6114118/2025/02/05/khris-middleton-trade-bucks-giannis-antetokoumpo/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/02/05/us/politics/trump-gaza-politics-reaction.html
 **Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
 `President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
 https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
+
+**The Blue Devils Made Me Do It**\
+`What I learned at my first-ever Duke-U.N.C. basketball game.`\
+https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
+
+**Can a Fake Reality Show Keep Spring Breakers Away?**\
+`As part of its yearslong effort to curb raucous partying, Miami Beach created “Reality Check,” a video in which revelers find out the rules and regulations that would await them.`\
+https://nytimes.com/2025/02/05/style/miami-beach-spring-break-reality-check.html
+
+**Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
+`Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
+https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
 
