@@ -1,3 +1,11 @@
+**Trump Signs Order Barring Transgender Student-Athletes From Women’s Sports**\
+`The president said schools that violated the order would jeopardize their federal funding.`\
+https://nytimes.com/2025/02/05/us/politics/trump-order-transgender-athletes-womens-sports.html
+
+**Tom Brady looks back on Fox work, Raiders role ahead of Super Bowl**\
+`"I think the mistakes that I have made and I have made plenty, I have learned from all of them," Brady said.`\
+https://nytimes.com/athletic/6116452/2025/02/05/tom-brady-fox-analyst-raiders-super-bowl/
+
 **Thursday Briefing: An Uproar Over Trump’s Gaza Plan**\
 `Plus, drink (and sleep) in a British pub.`\
 https://nytimes.com/2025/02/05/briefing/trump-gaza-goma-deaths-nissan-honda.html
