@@ -1,3 +1,7 @@
+**Word of the Day: banal**\
+`This word has appeared in 195 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
+
 **Canucks get their groove back in fun win over Avalanche: 3 takeaways**\
 `Vancouver played with intensity and even a sense of joy — in contrast to what fans have experienced most of this season.`\
 https://nytimes.com/athletic/6114578/2025/02/05/canucks-win-over-avalanche-takeaways/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
 `"I invite you to dream. I'm a dreamer, too," Diego Leon says of his incredible rise that has now taken him to Manchester United`\
 https://nytimes.com/athletic/6009562/2025/02/05/manchester-united-diego-leon-who-is-he/
 
+**Chelsea's winter window highlighted issues with summer 2024, and aims for summer 2025**\
+`It will be Chelsea’s most important signings of 2023, rather than 2024, who will determine the outcome of Maresca’s push for the top four`\
+https://nytimes.com/athletic/6113906/2025/02/05/chelseas-winter-window-highlighted-issues-with-summer-2024-and-aims-for-summer-2025/
+
 **Maple Leafs report cards: Nylander's hat trick helps Toronto sweep Alberta**\
 `The Leafs allowed two five-on-three goals but scored four in the second period to pick up their second win of their trip.`\
 https://nytimes.com/athletic/6114609/2025/02/05/maple-leafs-report-cards-nylander-hat-trick-flames/
-
-**Nottingham Forest transfer review: Not many new faces but keeping key players crucial**\
-`Forest had a composed transfer window — and the key deals were probably for existing players`\
-https://nytimes.com/athletic/6112177/2025/02/05/nottingham-forest-transfer-review/
-
-**Crystal Palace's transfer window: Romain Esse offers promise, but squad depth still a concern**\
-`Palace had to adapt after Chalobah returned to Chelsea and two players suffered season-ending injuries, but still brought only two in`\
-https://nytimes.com/athletic/6107040/2025/02/05/crystal-palace-transfers-esse-chilwell-chalobah-glasner/
 
