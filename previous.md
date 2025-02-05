@@ -1,3 +1,7 @@
+**Bondi Confirmed as Attorney General**\
+`The quick confirmation highlighted the new administration’s focus on controlling and changing the Justice Department.`\
+https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmation.html
+
 **Daniel Penny Is Hired by Venture Capital Firm Whose Founder Backed Trump**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, will work for Andreessen Horowitz. Before the killing, he had been an architecture student.`\
 https://nytimes.com/2025/02/04/nyregion/daniel-penny-hired-andreessen-horowitz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6113665/2025/02/04/kevin-durant-trade-rumors-suns-w
 **General Services Administration Workers Warned of Impending Staff Cuts**\
 `The notice came as the Trump administration pushes to shrink the work force, giving civil servants until Thursday to decide whether to resign.`\
 https://nytimes.com/2025/02/04/us/politics/gsa-staff-cuts-trump.html
-
-**Prosecutors Charge Man Said to Be Tied to Robbery of N.F.L. Quarterback**\
-`The home of Joe Burrow of the Cincinnati Bengals was burglarized in December. The authorities said a man detained in Manhattan was part of a related fencing operation.`\
-https://nytimes.com/2025/02/04/nyregion/joe-burrow-home-burglary-charges.html
 

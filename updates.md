@@ -1,3 +1,7 @@
+**Bondi Confirmed as Attorney General**\
+`The quick confirmation highlighted the new administration’s focus on controlling and changing the Justice Department.`\
+https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmation.html
+
 **Daniel Penny Is Hired by Venture Capital Firm Whose Founder Backed Trump**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, will work for Andreessen Horowitz. Before the killing, he had been an architecture student.`\
 https://nytimes.com/2025/02/04/nyregion/daniel-penny-hired-andreessen-horowitz.html
