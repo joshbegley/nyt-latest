@@ -1,3 +1,11 @@
+**The Blue Devils Made Me Do It**\
+`What I learned at my first-ever Duke-U.N.C. basketball game.`\
+https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
+
+**Can a Fake Reality Show Keep Spring Breakers Away?**\
+`As part of its yearslong effort to curb raucous partying, Miami Beach created “Reality Check,” a video in which revelers find out the rules and regulations that would await them.`\
+https://nytimes.com/2025/02/05/style/miami-beach-spring-break-reality-check.html
+
 **Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
 `Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
 https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
