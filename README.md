@@ -1,3 +1,7 @@
+**Freezing Rain and Messy Travel Expected Across the Eastern U.S.**\
+`Beginning Wednesday, widespread ice accumulations may lead to hazardous driving conditions. And snow may be on the way after that.`\
+https://nytimes.com/2025/02/05/weather/ice-storm-snow-rain-forecast.html
+
 **Migrants Are Deported to India on U.S. Military Plane**\
 `The flight appeared to be the first use of an American military aircraft to deport people to India, which is one of the top sources of illegal immigration to the United States.`\
 https://nytimes.com/2025/02/05/world/asia/migrants-deported-india-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
 **With Nick Leddy back, will Blues move any veteran defensemen before the NHL trade deadline?**\
 `Leddy, Ryan Suter and Justin Faulk are all possibilities to be traded if the Blues think they're out of the playoff mix. `\
 https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-deadline/
-
-**Word of the Day: banal**\
-`This word has appeared in 195 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
 
