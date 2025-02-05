@@ -1,5 +1,5 @@
 **Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
-`The Twins firmed up their roster, agreeing to sign Gold Glove-winning outfielder Harrison Bader to a one-year deal with a mutual option.`\
+`The deal is worth $6.25 million guaranteed plus up to $2 million in performance bonuses, according to major-league sources. `\
 https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
 
 **These Are the Major Obstacles to Trump’s Gaza Plan**\
