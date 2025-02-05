@@ -1,3 +1,11 @@
+**My Farewell Column**\
+`Growing into myself as a writer — and doing it in front of and for all of you — has been one of the great honors of my life.`\
+https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
+
+**The World’s Richest Men Take On the World’s Poorest Children**\
+`I’ve seen U.S.A.I.D. operate around the world, and it’s not woke — it’s lifesaving.`\
+https://nytimes.com/2025/02/05/opinion/usaid-spending-trump-musk.html
+
 **Right-Wing Group Publishes ‘D.E.I. Watch List’ Targeting Federal Workers**\
 `The American Accountability Foundation list included names and photos of more than 50 people, many in programs aimed at improving the health of people of color.`\
 https://nytimes.com/2025/02/05/us/politics/dei-watchlist-federal-health-workers-cdc-nih.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116782/2025/02/05/jonas-valanciunas-trade-grades-k
 **Browns' Myles Garrett gives first interview since announcing trade request**\
 `Garrett acknowledged that "it's always for me been about contending for championships ... and that's all I'm asking for."`\
 https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-trade-request-interview/
-
-**Martinelli set for scan on suspected hamstring injury**\
-`The 23-year-old forward was forced off in the 37th minute at St James' Park after going down clutching the back of his thigh.`\
-https://nytimes.com/athletic/6116865/2025/02/05/gabriel-martinelli-arsenal-injury-update/
-
-**Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
-`His announcement comes after an outage last week to the primary system that provides pilots safety alerts in real time.`\
-https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
 
