@@ -1,3 +1,11 @@
+**Why Adam Silver’s potential NBA Europe venture has a Paris problem**\
+`The NBA seems to have its sights set on major players in Europe, but one team has already "locked up the market" in the France capital.`\
+https://nytimes.com/athletic/6114371/2025/02/05/adam-silver-nba-europe-paris-basketball/
+
+**C.I.A. Extends Resignation Offers as Effort to Shrink Work Force Spreads**\
+`John Ratcliffe, the C.I.A. director, pushed to have agency employees given a version of the offer extended to millions of federal workers last week.`\
+https://nytimes.com/2025/02/05/us/politics/cia-workers-trump-musk-resignation-offers.html
+
 **With 4 meetings in 3 weeks, a Blazers season has changed**\
 `The Blazers are one of the hottest teams in the NBA, where behind the scenes, their coach has held a series of meetings to inspire change. `\
 https://nytimes.com/athletic/6113642/2025/02/05/chauncey-billups-and-the-4-meetings-that-sparked-a-trail-blazers-turnaround/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/books/new-book-joan-didion-notes-to-john.html
 **My Toddler Son Likes to Wear Dresses. Can He Wear One to My Sister’s Wedding?**\
 `A mother wants to respect her 2½-year-old’s preference for dressing like his older sister, but she worries that letting him do so would bother the bridal couple.`\
 https://nytimes.com/2025/02/05/style/toddler-gender-specific-clothing.html
-
-**LeBron James talks Luka Dončić-Anthony Davis trade: 'I ain’t never seen this one'**\
-`"I'm committed to the Lakers," James said after a win over the Clippers. "It's my job to make it as seamless as possible."`\
-https://nytimes.com/athletic/6114836/2025/02/05/lebron-james-luka-doncic-anthony-davis-trade/
-
-**Could the Trade Fight Take a Bite Out of Apple?**\
-`A news report says that Beijing is weighing an inquiry into the iPhone maker, underscoring Chinas options in fighting against President Trump’s tariff threat.`\
-https://nytimes.com/2025/02/05/business/dealbook/apple-trump-china-trade-tariffs.html
 
