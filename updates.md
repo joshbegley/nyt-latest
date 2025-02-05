@@ -1,3 +1,7 @@
+**Trump’s Plan for the Cartels Isn’t Tough Enough**\
+`Trump misunderstands the cartels. His plan to take them on is not tough enough.`\
+https://nytimes.com/2025/02/05/opinion/trump-sheinbaum-cartels-mexico.html
+
 **Bands, fireworks, cannons: What we know about the Blue Jackets' outdoor game**\
 `The stadium entrance figures to be a highlight when the Blue Jackets play the Red Wings at Ohio Stadium.`\
 https://nytimes.com/athletic/6113532/2025/02/05/blue-jackets-outdoor-ohio-stadium/
