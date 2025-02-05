@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-t
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **Disney Returns to Its Steamrolling Self**\
 `Per-share quarterly profit rose 44 percent from a year earlier, the company said, signaling that it had moved past a period of turmoil.`\
 https://nytimes.com/2025/02/05/business/media/disney-q4-2024-earnings.html
