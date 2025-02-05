@@ -1,3 +1,7 @@
+**Levy and Lange's late rush to give Postecoglou's Spurs squad the 'help' they needed**\
+`Tottenham coach Ange Postecoglou made it clear his squad needed strengthening in the winter window — he certainly had to be patient...`\
+https://nytimes.com/athletic/6112448/2025/02/05/tottenham-transfers-levy-lange-tel-danso/
+
 **Several Injured in Shooting at Warehouse in Central Ohio**\
 `The suspect in the shooting in New Albany, near Columbus, was no longer in the area and several were hospitalized, the authorities said.`\
 https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114616/2025/02/05/ucla-michigan-state-mens-basketb
 **How Liverpool are preventing injuries: Longer sessions, less intensity and smart subs**\
 `This time last year, Liverpool were gripped by an injury crisis; this year, they are virtually at full strength. What's changed?`\
 https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
-
-**'Dreamer' Diego Leon is Manchester United's new, raw, daring left-back**\
-`"I invite you to dream. I'm a dreamer, too," Diego Leon says of his incredible rise that has now taken him to Manchester United`\
-https://nytimes.com/athletic/6009562/2025/02/05/manchester-united-diego-leon-who-is-he/
 
