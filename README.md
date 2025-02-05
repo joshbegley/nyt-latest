@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6113227/2025/02/05/ty-haywood-michigan-football-rec
 
 **U.S. Trade Deficit Hit Record in 2024 as Imports Surged**\
 `A strong dollar helped drive an uptick in U.S. imports last year, while export growth remained modest.`\
-https://nytimes.com/2025/02/05/business/economy/us-trade-deficit-hit-record-in-2024-as-imports-surged.html
+https://nytimes.com/2025/02/05/business/economy/us-trade-deficit-2024-record.html
 
 **MoneyCall: What's 'success' for Fox's $375M man?**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
