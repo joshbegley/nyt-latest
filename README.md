@@ -1,3 +1,7 @@
+**UCLA keeps rolling with upset over No. 9 Michigan State**\
+`It's UCLA’s third consecutive win against a ranked team, too.`\
+https://nytimes.com/athletic/6114616/2025/02/05/ucla-michigan-state-mens-basketball-results-analysis/
+
 **How Liverpool are preventing injuries: Longer sessions, less intensity and smart subs**\
 `This time last year, Liverpool were gripped by an injury crisis; this year, they are virtually at full strength. What's changed?`\
 https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112484/2025/02/05/nico-gonzalez-manchester-city-pr
 **Inside Steidten's West Ham exit: Signing mistakes, managerial issues and relief at leaving**\
 `Technical director Steidten has left West Ham after a difficult 18 months - here's the behind-the-scenes story of that time`\
 https://nytimes.com/athletic/6082958/2025/02/05/west-ham-tim-steidten-exit/
-
-**Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/02/05/briefing/trump-gaza-china-trade.html
 
