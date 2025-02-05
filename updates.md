@@ -1,3 +1,7 @@
+**Twins to sign speedy veteran Harrison Bader to bolster outfield: Sources**\
+`The deal is worth $6.25 million guaranteed plus up to $2 million in performance bonuses, according to major-league sources. `\
+https://nytimes.com/athletic/6116198/2025/02/05/harrison-bader-contract-twins-mlb-free-agency/
+
 **These Are the Major Obstacles to Trump’s Gaza Plan**\
 `Experts say a proposal to move all Palestinians out of Gaza and remake it as a U.S. territory would be time-consuming, extraordinarily costly and probably a violation of international law.`\
 https://nytimes.com/2025/02/05/world/europe/trump-gaza-explainer.html
