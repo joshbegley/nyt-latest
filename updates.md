@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-t
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **NBA Trade Board: Kevin Durant No. 1; Julius Randle, Marcus Smart join the fray**\
 `Will we see another shocker like the Luka-AD deal? The clock is ticking.`\
 https://nytimes.com/athletic/6110859/2025/02/05/nba-trade-deadline-jimmy-butler-julius-randle/
