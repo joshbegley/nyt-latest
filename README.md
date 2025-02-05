@@ -1,3 +1,15 @@
+**How the British Art Market Went From Sublime to Ridiculous**\
+`“Rogues and Scholars,” James Stourton’s erudite and authoritative history, doesn’t spare the color.`\
+https://nytimes.com/2025/02/05/books/review/rogues-and-scholars-james-stourton.html
+
+**One Way to Get to Know the Locals in Britain? Stay in a Pub.**\
+`This quintessentially British lodging option offers room and board; the chance to hang out with regulars over pints of beer; and, if you’re lucky, an in-house ghost.`\
+https://nytimes.com/2025/02/05/travel/british-pub-overnight-stays.html
+
+**How to Improve Your Hip Mobility**\
+`Hip tightness can affect your whole body. Simple exercises can help you move more easily.`\
+https://nytimes.com/2025/02/05/well/move/hip-mobility-exercises.html
+
 **Freezing Rain and Messy Travel Expected Across the Eastern U.S.**\
 `Beginning Wednesday, widespread ice accumulations may lead to hazardous driving conditions. And snow may be on the way after that.`\
 https://nytimes.com/2025/02/05/weather/ice-storm-snow-rain-forecast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/05/business/dei-target-black-sellers.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/05/crosswords/spelling-bee-forum.html
-
-**Levy and Lange's late rush to give Postecoglou's Spurs squad the 'help' they needed**\
-`Tottenham coach Ange Postecoglou made it clear his squad needed strengthening in the winter window — he certainly had to be patient...`\
-https://nytimes.com/athletic/6112448/2025/02/05/tottenham-transfers-levy-lange-tel-danso/
-
-**1 Killed in Warehouse Shooting in Central Ohio**\
-`At least five others were injured on Tuesday, the authorities said. The police said that the shooter did not pose a threat to the public.`\
-https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
-
-**With Nick Leddy back, will Blues move any veteran defensemen before the NHL trade deadline?**\
-`Leddy, Ryan Suter and Justin Faulk are all possibilities to be traded if the Blues think they're out of the playoff mix. `\
-https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-deadline/
 
