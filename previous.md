@@ -1,3 +1,15 @@
+**Huge Bear Found Living Under California Home After Fires**\
+`A California homeowner, who was evacuated due to the wildfires in the area, returned home to find a 525-pound black bear under his home.`\
+https://nytimes.com/video/us/100000009972062/bear-altadena-wildfire-california.html
+
+**A Tennessee Williams-Marlon Brando Tango, and Other Riffs on Classics**\
+`Three new plays onstage in Manhattan, “Kowalski,” “Mrs. Loman” and “Nina,” mine treasures of theater history.`\
+https://nytimes.com/2025/02/05/theater/kowalski-mrs-loman-nina-off-broadway-review.html
+
+**Scoop City: Where Mahomes, Reid and Kelce land in GOAT debates**\
+`Inside: How Kansas City&#8217;s current stars compare to the GOATs, an initial free agency primer and New Orleans&#8217; storied Superdome, which has hosted ___ Super Bowls? (Hint: It&#8217;s more than five.`\
+https://nytimes.com/athletic/6115858/2025/02/05/goat-debates-nfl-mahomes-reid-kelce-chiefs-scoop-city/
+
 **Submit your Red Wings mailbag questions**\
 `Send in your questions, and Max Bultman may answer them in an upcoming story.`\
 https://nytimes.com/athletic/6115818/2025/02/05/submit-your-red-wings-mailbag-questions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6115577/2025/02/05/spanish-fa-referee-meeting-real-
 **Harry Stewart Jr. Dies at 100; One of Last Tuskegee Airmen to See Combat**\
 `His boyhood dream to be an adventurous pilot was fulfilled thanks to World War II. But, as a civilian, racial prejudice kept him out of the cockpit.`\
 https://nytimes.com/2025/02/05/us/harry-stewart-jr-dead.html
-
-**How YouTube Is Changing American Gun Culture**\
-`Influencers known as guntubers are delving into the world of firearms, showing viewers everything from how to shoot to how to modify an AR-15.`\
-https://nytimes.com/2025/02/05/us/gun-youtube-firearm-videos.html
-
-**Stephen Petronio Is Disbanding His Dance Company**\
-`The company, founded in 1984, has struggled with finances since the pandemic.`\
-https://nytimes.com/2025/02/05/arts/dance/stephen-petronio-dance-company-disbanding.html
-
-**Pro-Trump Media Sees Nothing but ‘Winning’**\
-`Among an array of right-wing personalities and media outlets, the president can do no wrong.`\
-https://nytimes.com/2025/02/05/technology/trump-media-right-wing.html
 
