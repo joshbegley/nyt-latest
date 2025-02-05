@@ -1,3 +1,7 @@
+**Kings to acquire Jonas Valančiūnas from Wizards for 2028, 2029 draft picks**\
+`Valančiūnas, 32, brings Sacramento plenty of rim protection rebounding and the ability to stretch the floor.`\
+https://nytimes.com/athletic/6117030/2025/02/05/kings-wizards-jonas-valanciunas-nba-trade/
+
 **Beating Death of Shackled N.Y. Inmate Is Ruled a Homicide, Governor Says**\
 `Gov. Kathy Hochul of New York said the autopsy results in the death of Robert Brooks, who was beaten by prison guards, should prompt the swift filing of criminal charges.`\
 https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
