@@ -1,3 +1,7 @@
+**Jonas Valančiūnas trade grades: Kings make waves in limited big-man market**\
+`Sacramento already sent its point guard to San Antonio; now it's shoring up its frontcourt. But is it needed?`\
+https://nytimes.com/athletic/6116782/2025/02/05/jonas-valanciunas-trade-grades-kings/
+
 **Browns' Myles Garrett gives first interview since announcing trade request**\
 `Garrett acknowledged that "it's always for me been about contending for championships ... and that's all I'm asking for."`\
 https://nytimes.com/athletic/6116575/2025/02/05/myles-garrett-cleveland-browns-trade-request-interview/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/02/05/us/politics/chuck-schumer-democrats-trump-nominee
 https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
 
 **Trump Officials Tried to Walk Back His Plan to Take Over Gaza**\
-`Also, the government is eying deeper work force cuts. Here’s the latest at the end of Wednesday.`\
+`Also, the government is eyeing deeper work force cuts. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/02/05/briefing/trump-gaza-plan-soften-egg-prices-waffle-house.html
 
 **The Best Movies and TV Shows Coming to Netflix in February**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/05/us/trump-news/lawyer-says-musk-hasnt-persona
 **Google Unwinds Employee Diversity Goals, Citing Trump’s D.E.I. Orders**\
 `The Silicon Valley giant also said it was reviewing other diversity programs and initiatives and would update them if they seemed risky or ineffective.`\
 https://nytimes.com/2025/02/05/technology/google-diversity-goals-dei-trump.html
-
-**Japan Airlines Plane Clips Delta Plane at Seattle-Tacoma Airport**\
-`No one was injured, but a passenger on one of the planes described “violent shaking” and a “really loud crunching sound.”`\
-https://nytimes.com/2025/02/05/us/delta-japan-airlines-collision-seattle-airport.html
 
