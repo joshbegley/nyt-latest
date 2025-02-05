@@ -1,3 +1,19 @@
+**Watch: Why Lewis-Skelly and Nwaneri's breakthrough shows Arteta's evolution as manager**\
+`The Athletic FC Podcast discuss Arsenal's exciting teenage talents Myles Lewis-Skelly and Ethan Nwaneri`\
+https://nytimes.com/athletic/6112358/2025/02/05/athletic-fc-podcast-nwaneri-lewis-skelly/
+
+**Dodgers spring guide: 41 thoughts for 41 pitchers, from Banda to Sasaki to Yates**\
+`From high-priced stars to Rule 5 draft picks, the Dodgers assembled a deep staff after learning there's no such thing as too many pitchers. `\
+https://nytimes.com/athletic/6110072/2025/02/05/dodgers-spring-training-pitching/
+
+**Super Bowl national anthem betting: How long will Jon Batiste sing?**\
+`The New Orleans native should bring rich musicality and innovation to the anthem. The over-under is set at 120.5 seconds.`\
+https://nytimes.com/athletic/6103181/2025/02/05/super-bowl-national-anthem-betting-jon-batiste/
+
+**Angels spring guide: 35 thoughts for 35 pitchers heading to camp**\
+`Facts about every Angels pitcher heading to Arizona, including new arrivals Yusei Kikuchi and Kyle Hendricks.`\
+https://nytimes.com/athletic/6110286/2025/02/05/angels-spring-training-pitchers-guide/
+
 **Trump’s Gaza Takeover Would Violate International Law, Experts Say**\
 `Forcing Palestinians to leave the enclave would be “a straightforward crime against humanity,” an Oxford professor said. It would be a further violation to take over the territory.`\
 https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-takeover-illegal.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6089776/2025/02/05/senators-linus-ullmark-injury-nh
 **Following Zach LaVine trade, Bulls moving forward, looking to 'make a shift'**\
 `A fresh start was needed for the Bulls. Billy Donovan says the team isn't finished making moves.`\
 https://nytimes.com/athletic/6114729/2025/02/05/zach-lavine-bulls-trade-direction/
-
-**F1 teenager Kimi Antonelli just got his driver’s license — right on time to replace Lewis Hamilton**\
-`Now, with his driver’s license, F1’s youngest driver is ready for anything`\
-https://nytimes.com/athletic/6113048/2025/02/05/andrea-kimi-antonelli-f1-mercedes-lewis-hamilton/
-
-**The Bundesliga's transfer window: Simons surprise, high-profile departures and the odd saga**\
-`Borussia Dortmund were busy, Bayer Leverkusen moved smartly, Eintracht reinvested and RB Leipzig made the biggest one-off January splash`\
-https://nytimes.com/athletic/6112597/2025/02/05/bundesliga-transfers-marmoush-simons-bayern-dortmund-leipzig/
-
-**Broncos' offseason contract questions begin with Courtland Sutton's future**\
-`The wide receiver has stated a desire to retire with the Broncos. Could a deal this offseason move him closer to that goal?`\
-https://nytimes.com/athletic/6112731/2025/02/05/broncos-offseason-courtland-sutton/
-
-**Arsenal mailbag: Summer transfer budget? Zubimendi plans? Are Williams or Watkins realistic?**\
-`From attacking targets in the summer to sporting director options, our writers answer your questions`\
-https://nytimes.com/athletic/6112233/2025/02/05/arsenal-transfers-zubimendi-watkins/
 
