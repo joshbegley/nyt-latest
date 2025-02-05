@@ -1,3 +1,11 @@
+**Across the world, officials roundly reject Trump’s plan.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/international-reaction
+
+**Phillies spring training preview: Thoughts on every pitcher headed to camp**\
+`From Mick Abel to Guillo Zuñiga, here are thoughts on the 34 pitchers coming to Phillies big-league camp.  `\
+https://nytimes.com/athletic/6097034/2025/02/05/phillies-spring-training-2025-pitchers/
+
 **Bowden: 30 top Rookie of the Year candidates I can't wait to watch in MLB spring training**\
 `Entering spring training, here's how the rookie field stacks up in my view, after getting input from front offices around the league. `\
 https://nytimes.com/athletic/6109884/2025/02/05/mlb-rookie-of-the-year-candidates-2025-spring-training/
