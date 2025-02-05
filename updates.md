@@ -1,3 +1,15 @@
+**How the British Art Market Went From Sublime to Ridiculous**\
+`“Rogues and Scholars,” James Stourton’s erudite and authoritative history, doesn’t spare the color.`\
+https://nytimes.com/2025/02/05/books/review/rogues-and-scholars-james-stourton.html
+
+**One Way to Get to Know the Locals in Britain? Stay in a Pub.**\
+`This quintessentially British lodging option offers room and board; the chance to hang out with regulars over pints of beer; and, if you’re lucky, an in-house ghost.`\
+https://nytimes.com/2025/02/05/travel/british-pub-overnight-stays.html
+
+**How to Improve Your Hip Mobility**\
+`Hip tightness can affect your whole body. Simple exercises can help you move more easily.`\
+https://nytimes.com/2025/02/05/well/move/hip-mobility-exercises.html
+
 **Freezing Rain and Messy Travel Expected Across the Eastern U.S.**\
 `Beginning Wednesday, widespread ice accumulations may lead to hazardous driving conditions. And snow may be on the way after that.`\
 https://nytimes.com/2025/02/05/weather/ice-storm-snow-rain-forecast.html
