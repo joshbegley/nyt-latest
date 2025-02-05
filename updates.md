@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-t
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **While Lamar Jackson has Super Bowl goals, a third MVP would put him in rare company**\
 `"As a quarterback, your goal is to be the best player you can be to help the team, and certainly Lamar is doing that," said Peyton Manning. `\
 https://nytimes.com/athletic/6112750/2025/02/05/super-bowl-lamar-jackson-nfl-mvp-ravens/
