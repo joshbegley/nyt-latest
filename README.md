@@ -1,10 +1,10 @@
 **Joelinton out for 'weeks not months' with knee injury - Howe**\
-`Eddie Howe says Newcastle United will be without midfielder Joelinton for &#8220;weeks not months&#8221; due to a knee injury.`\
+`The 28-year-old was withdrawn in the second half of his side’s defeat to Fulham and missed the Carabao Cup semi-final win over Arsenal.`\
 https://nytimes.com/athletic/6116980/2025/02/05/joelinton-injury-update-newcastle/
 
 **Thousands Protest Trump Policies Across the U.S.**\
 `In a grass-roots effort to kick off a national movement, organizers encouraged those opposed to President Trump’s actions on immigration, transgender rights and more to gather at state capitals and city halls.`\
-https://nytimes.com/2025/02/05/us/politics/anti-trump-protests-us-project-2025.html
+https://nytimes.com/2025/02/05/us/politics/trump-protests-50501-project-2025.html
 
 **Jonas Valančiūnas trade grades: Kings make waves in limited big-man market**\
 `Sacramento already sent its point guard to San Antonio; now it's shoring up its frontcourt. But is it needed?`\
