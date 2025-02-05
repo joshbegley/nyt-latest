@@ -1,3 +1,7 @@
+**100,000 Eggs Are Stolen in Pennsylvania Amid Shortage**\
+`The theft of the eggs, which the authorities said were worth $40,000, comes as grocery shoppers across the country are facing empty shelves and higher prices for eggs.`\
+https://nytimes.com/2025/02/05/us/eggs-stolen-pennsylvania-shortage.html
+
 **Saquon Barkley on 'love' for Giants GM who drafted him, mending fences with Eric Dickerson**\
 `Plus, Cam Jurgens is managing his pain and Brandon Graham talks about his return.`\
 https://nytimes.com/athletic/6116401/2025/02/05/saquon-barkley-eagles-super-bowl-media-giants-gm-eric-dickerson/

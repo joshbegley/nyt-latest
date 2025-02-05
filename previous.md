@@ -1,3 +1,7 @@
+**100,000 Eggs Are Stolen in Pennsylvania Amid Shortage**\
+`The theft of the eggs, which the authorities said were worth $40,000, comes as grocery shoppers across the country are facing empty shelves and higher prices for eggs.`\
+https://nytimes.com/2025/02/05/us/eggs-stolen-pennsylvania-shortage.html
+
 **Saquon Barkley on 'love' for Giants GM who drafted him, mending fences with Eric Dickerson**\
 `Plus, Cam Jurgens is managing his pain and Brandon Graham talks about his return.`\
 https://nytimes.com/athletic/6116401/2025/02/05/saquon-barkley-eagles-super-bowl-media-giants-gm-eric-dickerson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-iran-nuclear-deal.html
 **Heat Today: Erik Spoelstra, Heat continue struggling with close losses as tough season continues**\
 `After blowing another double-digit lead, Heat continue struggling to maintain footing in East playoff picture`\
 https://nytimes.com/athletic/6116038/2025/02/05/erik-spoelstra-bam-adebayo-tyler-herro-heat-nba/
-
-**F.C.C. Releases ‘60 Minutes’ Interview With Kamala Harris**\
-`The complete interview, which is at the center of a lawsuit filed by President Trump, shows that “60 Minutes” aired a concise version of Ms. Harris’s answer on Israel.`\
-https://nytimes.com/2025/02/05/business/media/cbs-60-minutes-harris-interview.html
 
