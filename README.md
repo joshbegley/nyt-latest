@@ -1,3 +1,15 @@
+**Why Musk Is So Focused on the Bureau of the Fiscal Service, America’s ‘Checkbook’**\
+`Spending power, privacy concerns and conflicts of interest have put the bureau at the center of a political fight.`\
+https://nytimes.com/2025/02/05/us/politics/trump-musk-bureau-fiscal-service.html
+
+**Has the Coronavirus Pandemic Changed Your Relationship to Grief?**\
+`The New York Times is interested in exploring how the response to loss may have changed in the last five years.`\
+https://nytimes.com/2025/02/05/us/covid-deaths-grief.html
+
+**How Did Covid Change Your Life?**\
+`We want to hear from readers reflecting on what life looks like now, five years later.`\
+https://nytimes.com/2025/02/05/us/covid-pandemic-changes.html
+
 **‘It Was My School’: Sweden Shooting Site Was at Heart of a Diverse Community**\
 `One day after the killings at an adult educational center, some gathered to lay flowers and come to grips with the violence.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-mass-shooting-community.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6114835/2025/02/05/midge-purce-gotham-fc-contract-n
 **Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/05/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
-
-**Inside Musk’s War on the Federal Work Force**\
-`Elon Musk is creating extraordinary upheaval as his lieutenants sweep through federal agencies, even gaining access to the federal government’s payment system.`\
-https://nytimes.com/video/us/politics/100000009968273/elon-musk-government-takeover.html
-
-**Gazans Condemn Trump’s Proposal for a U.S. Takeover**\
-`But while some Palestinians rejected leaving Gaza, others said conditions were so unlivable after 15 months of Israeli bombardment that they would consider relocating.`\
-https://nytimes.com/2025/02/05/world/middleeast/gaza-trump-takeover-palestinians.html
-
-**Drake Maye on Vrabel, getting ready for Year 2, and his biggest move of the offseason**\
-`The Patriots quarterback joined "Scoop City" at Super Bowl LIX.`\
-https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
 
