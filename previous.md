@@ -1,3 +1,7 @@
+**‘It Was My School’: Sweden Shooting Site Was at Heart of a Diverse Community**\
+`One day after the killings at an adult educational center, some gathered to lay flowers and come to grips with the violence.`\
+https://nytimes.com/2025/02/05/world/europe/sweden-mass-shooting-community.html
+
 **What the Black Hawk Pilots Could See, Just Before the Crash**\
 `A 3-D model created by The Times visualizes the helicopter pilots’ field of view minutes before a fatal crash with a jet in Washington.`\
 https://nytimes.com/interactive/2025/02/05/us/dc-crash-helicopter-black-hawk-pilots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/world/middleeast/gaza-trump-takeover-palestinians
 **Drake Maye on Vrabel, getting ready for Year 2, and his biggest move of the offseason**\
 `The Patriots quarterback joined "Scoop City" at Super Bowl LIX.`\
 https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
-
-**How NWSL will pay players who suffered abuse $5 million in new settlement**\
-`An investigation found that the 'NWSL was permeated by a culture of abusive behavior, including sexual harassment and discrimination'`\
-https://nytimes.com/athletic/6115277/2025/02/05/nwsl-5-million-abuse-settlement/
 
