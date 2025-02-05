@@ -1,3 +1,11 @@
+**Right-Wing Group Publishes ‘D.E.I. Watch List’ Targeting Federal Workers**\
+`The American Accountability Foundation list included names and photos of more than 50 people, many in programs aimed at improving the health of people of color.`\
+https://nytimes.com/2025/02/05/us/politics/dei-watchlist-federal-health-workers-cdc-nih.html
+
+**Child Welfare Agency Has No Right to Target Abused Parents, Court Rules**\
+`New York City child welfare agencies routinely investigate parents who report being abused, but a state appellate court ruled on Wednesday that the practice is illegal.`\
+https://nytimes.com/2025/02/05/nyregion/nyc-domestic-violence-child-abuse-case.html
+
 **Inside Trump’s Hastily Written Proposal to ‘Own’ Gaza**\
 `Although the president had been talking about the idea for weeks, there had been no meetings on the subject, and senior members of his government were taken by surprise.`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover.html

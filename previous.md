@@ -1,3 +1,11 @@
+**Right-Wing Group Publishes ‘D.E.I. Watch List’ Targeting Federal Workers**\
+`The American Accountability Foundation list included names and photos of more than 50 people, many in programs aimed at improving the health of people of color.`\
+https://nytimes.com/2025/02/05/us/politics/dei-watchlist-federal-health-workers-cdc-nih.html
+
+**Child Welfare Agency Has No Right to Target Abused Parents, Court Rules**\
+`New York City child welfare agencies routinely investigate parents who report being abused, but a state appellate court ruled on Wednesday that the practice is illegal.`\
+https://nytimes.com/2025/02/05/nyregion/nyc-domestic-violence-child-abuse-case.html
+
 **Inside Trump’s Hastily Written Proposal to ‘Own’ Gaza**\
 `Although the president had been talking about the idea for weeks, there had been no meetings on the subject, and senior members of his government were taken by surprise.`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116865/2025/02/05/gabriel-martinelli-arsenal-injur
 **Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
 `His announcement comes after an outage last week to the primary system that provides pilots safety alerts in real time.`\
 https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
-
-**Schumer Urged Democrats to Oppose Trump Nominees in Protest of His Policies**\
-`The Senate minority leader had initially said he would not lean on his colleagues to reflexively oppose every nominee, but changed his stance after the president’s actions generated heavy pressure from the left.`\
-https://nytimes.com/2025/02/05/us/politics/chuck-schumer-democrats-trump-nominees-protest.html
-
-**AC Milan advances to Coppa Italia semi on rare quiet night from Pulisic**\
-`The win was crucial for Milan, who have slipped to eighth in the Serie A table and fell into the playoff round of the Champions League.`\
-https://nytimes.com/athletic/6116759/2025/02/05/ac-milan-pulisic-musah-advance-coppa-italia-semifinal/
 
