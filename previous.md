@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Qasim Nauman`\
+https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump/here-is-the-latest
+
+**Live Updates: Trump Says Palestinians Should Leave Gaza and U.S. Should Control It**\
+`Saudi Arabia reiterated its support for a Palestinian state after President Trump’s proposal, which he made as he hosted Israel’s prime minister in Washington.`\
+https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump
+
 **After a long stretch of inconsistent play, the Celtics have finally built some momentum**\
 `"I think we know we're capable of this," Kristaps Porziņģis said after Boston closed out its three-game trip with a win over Cleveland.`\
 https://nytimes.com/athletic/6114604/2025/02/05/celtics-cavs-building-momentum/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6107040/2025/02/05/crystal-palace-transfers-esse-ch
 **Arsenal's transfer window reviewed: No new signings fuels expectation of a big summer**\
 `Arsenal decided to stick not twist as they chase Liverpool this season - which should free up spending power for 2025-26`\
 https://nytimes.com/athletic/6111907/2025/02/05/arsenal-transfer-window-reviewed/
-
-**Newcastle are 2-0 up, two games from immortality and what comes next will define their season**\
-`Newcastle are preparing for their latest shot at glory - and as their game with Arsenal gets closer, the mix of hope and pressure grows `\
-https://nytimes.com/athletic/6112173/2025/02/05/newcastle-arsenal-carabao-cup-second-leg/
-
-**Analysing Nico Gonzalez: A player built to play alongside Rodri at City, not replace him**\
-`The box-to-box Spaniard will add much-needed quality and physicality to Pep Guardiola's team  `\
-https://nytimes.com/athletic/6112484/2025/02/05/nico-gonzalez-manchester-city-profile-analysis/
 

@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Qasim Nauman`\
+https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump/here-is-the-latest
+
+**Live Updates: Trump Says Palestinians Should Leave Gaza and U.S. Should Control It**\
+`Saudi Arabia reiterated its support for a Palestinian state after President Trump’s proposal, which he made as he hosted Israel’s prime minister in Washington.`\
+https://nytimes.com/live/2025/world/israel-gaza-netanyahu-trump
+
 **After a long stretch of inconsistent play, the Celtics have finally built some momentum**\
 `"I think we know we're capable of this," Kristaps Porziņģis said after Boston closed out its three-game trip with a win over Cleveland.`\
 https://nytimes.com/athletic/6114604/2025/02/05/celtics-cavs-building-momentum/
