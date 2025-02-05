@@ -1,3 +1,7 @@
+**Man Sentenced to 44 Years in Prison After Pleading Guilty to Qaeda Ties**\
+`Minh Quang Pham was accused of plotting a suicide bombing at Heathrow Airport in London in support of Al Qaeda’s Yemen branch.`\
+https://nytimes.com/2025/02/04/nyregion/al-qaeda-london-heathrow-bomb-plot.html
+
 **U.S. Postal Service Halts Parcel Service from China as Trump’s Trade Curbs Begin**\
 `The United States has been importing about 3 million parcels a day with almost no customs inspection and no duties collected.`\
 https://nytimes.com/2025/02/04/business/china-us-usps-de-minimis.html
