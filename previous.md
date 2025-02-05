@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-
 https://nytimes.com/athletic/6048449/2025/02/05/mlb-statistic-stuff-plus-changing-game/
 
 **Sweden Mourns Mass Shooting**\
-`The authorities were searching for a motive in the shooting, which killed at least 11 people, including the suspected shooter.`\
+`The authorities said that at least 11 people were killed and that the person suspected of being the shooter was believed to be among the dead.`\
 https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
 
 **Braves spring guide: 28 notes for 28 pitchers, from Anderson to Strider to Waldrep**\

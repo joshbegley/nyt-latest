@@ -1,3 +1,7 @@
+**Sweden Mourns Mass Shooting**\
+`The authorities said that at least 11 people were killed and that the person suspected of being the shooter was believed to be among the dead.`\
+https://nytimes.com/2025/02/05/world/europe/sweden-orebro-shooting.html
+
 **Patrick Mahomes vs. Tom Brady: If Chiefs win Super Bowl, there will be a new playoff GOAT**\
 `Mahomes over Brady? Already? Absolutely. It's actually an easy case to make. `\
 https://nytimes.com/athletic/6110091/2025/02/05/patrick-mahomes-tom-brady-super-bowl-goat-nfl-playoffs/
