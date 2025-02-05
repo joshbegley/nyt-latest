@@ -1,40 +1,40 @@
-**Giannis opens up on 'brother' Khris Middleton's exit as era ends in Milwaukee**\
-`"I'm going to have a relationship with him after basketball," Antetokounmpo said of his longtime teammate.`\
-https://nytimes.com/athletic/6114118/2025/02/05/khris-middleton-trade-bucks-giannis-antetokoumpo/
+**NFLPA leaders see 18th regular-season game as a non-starter**\
+`“No one wants to play an 18th game. No one,” NFLPA executive director Lloyd Howell said Wednesday.`\
+https://nytimes.com/athletic/6116377/2025/02/05/nfl-nflpa-18-games-schedule-expansion/
 
-**Palestinian Americans React to Trump’s Gaza Plan: ‘It Was Pandemonium’**\
-`In interviews, Palestinian Americans said that it was surreal and horrifying to hear the president talk about expelling millions of people from the Gaza Strip and placing it under U.S. control.`\
-https://nytimes.com/2025/02/05/nyregion/trump-gaza-strip-palestinian-american.html
+**Foreign Aid Freeze Leaves Millions Without H.I.V. Treatment**\
+`President Trump’s pause on aid, and the gutting of the primary aid agency, could jeopardize the health of more than 20 million people worldwide, including 500,000 children, experts say.`\
+https://nytimes.com/2025/02/05/health/trump-usaid-pepfar.html
 
-**Ohio State expected to hire Hokies OC Tyler Bowen as O-line coach: Sources**\
-`Tyler Bowen is expected to replace Justin Frye as Ohio State's offensive line coach. What does that mean for the Buckeyes' OC search?`\
-https://nytimes.com/athletic/6116393/2025/02/05/ohio-state-coaching-staff-bowen-hartline/
+**The House speaker defends Trump’s Gaza plan, while other Republicans express doubts.**\
+`By Ephrat Livni and Robert Jimison`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/house-speaker-defends-trumps-gaza-plan-while-other-republicans-express-doubts
 
-**Have You Seen Changes to Federal Buildings? Send Us Photos.**\
-`We’re documenting how federal buildings are changing during the transition to the new government.`\
-https://nytimes.com/2025/02/05/upshot/government-buildings-photos.html
+**‘Days of Mass Burials Ahead’ as Congo Mourns Its Dead in Goma**\
+`Nearly 3,000 people were killed over the last week as rebels captured a key city in one of the deadliest battles in the Central African country in decades.`\
+https://nytimes.com/2025/02/05/world/africa/congo-m23-rwanda-goma-burials.html
 
-**Elon Musk Is a ‘Special Government Employee.’ What Does That Mean?**\
-`Ethics laws make it a federal criminal offense to take actions that benefit family businesses — even for so-called special government employees, unless a waiver is issued.`\
-https://nytimes.com/2025/02/05/us/politics/elon-musk-special-government-employee-explainer.html
+**Trump Torpedoed the Iran Nuclear Deal. Now He’s Calling for Another One.**\
+`President Trump’s desire to engage in negotiations is a turnabout from his first term, when he often derided former President Barack Obama for agreeing to a nuclear deal with Iran.`\
+https://nytimes.com/2025/02/05/us/politics/trump-iran-nuclear-deal.html
 
-**Trump’s Gaza Notion Sets Off Democratic Infighting and G.O.P. Doubts**\
-`The president’s far-fetched proposal to take over the enclave caused a new wave of recriminations after an election in which the Mideast war tore Democrats apart and pushed some voters to the right.`\
-https://nytimes.com/2025/02/05/us/politics/trump-gaza-politics-reaction.html
+**Heat Today: Erik Spoelstra, Heat continue struggling with close losses as tough season continues**\
+`After blowing another double-digit lead, Heat continue struggling to maintain footing in East playoff picture`\
+https://nytimes.com/athletic/6116038/2025/02/05/erik-spoelstra-bam-adebayo-tyler-herro-heat-nba/
 
-**Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
-`President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
-https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
+**F.C.C. Releases ‘60 Minutes’ Interview With Kamala Harris**\
+`The complete interview, which is at the center of a lawsuit filed by President Trump, shows that “60 Minutes” aired a concise version of Ms. Harris’s answer on Israel.`\
+https://nytimes.com/2025/02/05/business/media/cbs-60-minutes-harris-interview.html
 
-**The Blue Devils Made Me Do It**\
-`What I learned at my first-ever Duke-U.N.C. basketball game.`\
-https://nytimes.com/2025/02/05/opinion/blue-devils-tar-heels.html
+**Why These Lovers Ghosted**\
+`They knew it was unkind. These are the reasons they did it anyway.`\
+https://nytimes.com/interactive/2025/02/05/magazine/ghosting-dating.html
 
-**Can a Fake Reality Show Keep Spring Breakers Away?**\
-`As part of its yearslong effort to curb raucous partying, Miami Beach created “Reality Check,” a video in which revelers find out the rules and regulations that would await them.`\
-https://nytimes.com/2025/02/05/style/miami-beach-spring-break-reality-check.html
+**Ernest Drucker, Public-Health Advocate for the Scorned, Dies at 84**\
+`He marshaled epidemiological research to press for changes in drug policy, alternatives to prison and needle-exchange programs to slow the spread of AIDS.`\
+https://nytimes.com/2025/02/05/health/ernest-drucker-dead.html
 
-**Jayden Daniels on playing with poise, Kliff Kingsbury, and his favorite plays from his rookie year**\
-`Plus, what advice the Commanders QB would give the Chiefs when it comes to facing the Eagles defense.`\
-https://nytimes.com/athletic/6116201/2025/02/05/jayden-daniels-washington-commanders-interview/
+**A ‘Stellar Crew,’ a ‘Tragic Accident’ and a Black Hawk’s Last Flight**\
+`The Army helicopter that collided with a passenger plane above the Potomac River boasted an experienced crew doing “an unforgiving job.” Friends and relatives are still baffled and mourning their loss.`\
+https://nytimes.com/2025/02/05/us/politics/black-hawk-helicopter-crew-dc-crash-families.html
 
