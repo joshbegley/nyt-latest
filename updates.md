@@ -1,3 +1,7 @@
+**With Nick Leddy back, will Blues move any veteran defensemen before the NHL trade deadline?**\
+`Leddy, Ryan Suter and Justin Faulk are all possibilities to be traded if the Blues think they're out of the playoff mix. `\
+https://nytimes.com/athletic/6114303/2025/02/05/nick-leddy-back-blues-trade-deadline/
+
 **Word of the Day: banal**\
 `This word has appeared in 195 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/05/learning/word-of-the-day-banal.html
