@@ -1,3 +1,19 @@
+**Betting for (by) dummies: Breaking the golden rule of parlays because it's the Super Bowl**\
+`Jon Greenberg and Zac Jackson having advice for how to bet the Super Bowl and how to raise teenagers, all in one column.`\
+https://nytimes.com/athletic/6115772/2025/02/05/betting-for-by-dummies-super-bowl-eagles-chiefs/
+
+**Prime Tire: Marveling at F1's teenaged drivers; Zhou returns to Ferrari**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6116039/2025/02/05/marveling-at-formula-1s-teenaged-drivers-plus-zhou-guanyu-returns-to-ferrari/
+
+**Josh Jacobs says Packers need No. 1 WR in Green Bay**\
+`Jacobs said he's worked on recruiting Davante Adams, a WR and his former Raiders teammate, back to Green Bay.`\
+https://nytimes.com/athletic/6115878/2025/02/05/josh-jacobs-packers-wide-receiver-davante-adams/
+
+**Penguins' Sidney Crosby being evaluated for upper-body injury**\
+`Crosby left the game Tuesday night when his left arm was pinned between the Devils’ Luke Hughes and Erik Haula.`\
+https://nytimes.com/athletic/6115992/2025/02/05/penguins-sidney-crosby-injury/
+
 **Chelsea's Boehly director of Premier League ticket reselling website**\
 `Vivid Seats sell tickets to concerts and other sporting events as well as Premier League games but its use is prohibited in the UK.`\
 https://nytimes.com/athletic/6114903/2025/02/05/chelsea-tickets-boehly-vivid-seats/

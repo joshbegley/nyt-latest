@@ -1,3 +1,15 @@
+**Betting for (by) dummies: Breaking the golden rule of parlays because it's the Super Bowl**\
+`Jon Greenberg and Zac Jackson having advice for how to bet the Super Bowl and how to raise teenagers, all in one column.`\
+https://nytimes.com/athletic/6115772/2025/02/05/betting-for-by-dummies-super-bowl-eagles-chiefs/
+
+**Prime Tire: Marveling at F1's teenaged drivers; Zhou returns to Ferrari**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6116039/2025/02/05/marveling-at-formula-1s-teenaged-drivers-plus-zhou-guanyu-returns-to-ferrari/
+
+**Josh Jacobs says Packers need No. 1 WR in Green Bay**\
+`Jacobs said he's worked on recruiting Davante Adams, a WR and his former Raiders teammate, back to Green Bay.`\
+https://nytimes.com/athletic/6115878/2025/02/05/josh-jacobs-packers-wide-receiver-davante-adams/
+
 **Chelsea's Boehly director of Premier League ticket reselling website**\
 `Vivid Seats sell tickets to concerts and other sporting events as well as Premier League games but its use is prohibited in the UK.`\
 https://nytimes.com/athletic/6114903/2025/02/05/chelsea-tickets-boehly-vivid-seats/
@@ -11,7 +23,7 @@ https://nytimes.com/live/2025/02/05/us/trump-news/kenyan-commander-says-us-suppo
 https://nytimes.com/2025/02/05/us/politics/trump-security-mark-esper.html
 
 **Penguins' Sidney Crosby being evaluated for upper-body injury**\
-`CRANBERRY TOWNSHIP, Pa.`\
+`Crosby left the game Tuesday night when his left arm was pinned between the Devils’ Luke Hughes and Erik Haula.`\
 https://nytimes.com/athletic/6115992/2025/02/05/penguins-sidney-crosby-injury/
 
 **‘Riviera’ in Gaza and Aid Agency Assault Capture Trump’s Vision of U.S. Power**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6109514/2025/02/05/ben-chilwell-athletic-500-transf
 **Rubiales trial: Vilda spoke of 'consequences' for Hermoso, claims her brother**\
 `Jenni Hermoso's brother Rafael and Spain goalkeeper Misa Rodriguez testified on the third day of the Rubiales trial`\
 https://nytimes.com/athletic/6115344/2025/02/05/luis-rubiales-trial-hermoso-vilda/
-
-**What to Know About Changes in a Trade Loophole for Online Goods**\
-`President Trump scrapped the de minimis rule, a provision that allowed low-cost goods, like clothing from e-commerce sites, to enter the United States without facing taxes.`\
-https://nytimes.com/2025/02/05/business/tariffs-de-minimis-trump-china.html
-
-**Sam Kerr felt she was treated differently by police because of skin colour, court hears**\
-`Footballer Sam Kerr said she felt she was treated differently by police officers based on “what they perceived to be the colour of my skin”, a court heard on Wednesday.`\
-https://nytimes.com/athletic/6115827/2025/02/05/sam-kerr-trial-chelsea-australia/
-
-**Justice Dept. Accuses F.B.I. Leaders of ‘Insubordination’**\
-`In a remarkable email, the acting deputy attorney general criticized bureau leaders, saying they had refused to comply with repeated requests for information about agents involved in the Jan. 6 investigation.`\
-https://nytimes.com/2025/02/05/us/politics/justice-dept-fbi-insubordination.html
 
