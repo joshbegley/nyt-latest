@@ -1,3 +1,19 @@
+**Ingmar Bergman’s Grandson Has a Prizewinning Movie of His Own**\
+`With his debut feature, “Armand,” Halfdan Ullmann Tøndel wants to step out of his revered grandfather’s shadow. (Though the movie still contains a secret tribute.)`\
+https://nytimes.com/2025/02/05/movies/armand-halfdan-ullmann-tondel.html
+
+**A Governor’s Bizarre Comment Made Him a Target of Trump’s Border Czar**\
+`“Good luck to the feds coming in to try to get her,” Gov. Phil Murphy of New Jersey said about a woman he seemed to falsely imply was an undocumented immigrant living on his property.`\
+https://nytimes.com/2025/02/05/nyregion/phil-murphy-new-jersey-immigration.html
+
+**As Big Retailers Like Target Pull Back on D.E.I., What Happens to Black Sellers?**\
+`Black-owned brands got a foot in the door through accelerator programs at companies like Target and Amazon. Now they worry it might be closing.`\
+https://nytimes.com/2025/02/05/business/dei-target-black-sellers.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/05/crosswords/spelling-bee-forum.html
+
 **1 Killed in Warehouse Shooting in Central Ohio**\
 `At least five others were injured on Tuesday, the authorities said. The police said that the shooter did not pose a threat to the public.`\
 https://nytimes.com/2025/02/05/us/shooting-ohio-warehouse.html
