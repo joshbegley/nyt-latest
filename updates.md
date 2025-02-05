@@ -1,3 +1,11 @@
+**Jonas Valančiūnas trade grades: Kings make waves in limited big-man market**\
+`Sacramento already sent its point guard to San Antonio; now it's shoring up its frontcourt. But is it needed?`\
+https://nytimes.com/athletic/6116782/2025/02/05/jonas-valanciunas-trade-grades-kings/
+
+**Trump Officials Tried to Walk Back His Plan to Take Over Gaza**\
+`Also, the government is eyeing deeper work force cuts. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-plan-soften-egg-prices-waffle-house.html
+
 **Elon Musk Says His Efficiency Team Will Tackle F.A.A. Technology**\
 `His announcement comes after an outage last week to the primary system that provides pilots safety alerts in real time.`\
 https://nytimes.com/2025/02/05/us/politics/elon-musk-doge-faa.html
