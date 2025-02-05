@@ -1,3 +1,7 @@
+**Quote of the Day: Inside Musk’s Aggressive Incursion Into the Federal Government**\
+`Quotation of the Day for Wednesday, February 5, 2025`\
+https://nytimes.com/2025/02/04/pageoneplus/quote-of-the-day-inside-musks-aggressive-incursion-into-the-federal-government.html
+
 **Saudi Arabia Reiterates Support for a Palestinian State**\
 `Apparently contradicting President Trump, Saudi Arabia said that establishing ties with Israel would depend on the creation of an independent Palestinian state.`\
 https://nytimes.com/2025/02/04/us/politics/saudi-arabia-palestine-trump-gaza.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/04/us/trans-women-prisons-executive-order-ruling.htm
 **Measure of Brightness**\
 `Kiran Pandey salts the pavement.`\
 https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
-
-**No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
-`Rick Pitino's Red Storm are on their longest winning streak against Big East competition since their 1984-85 Final Four season.`\
-https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
 
