@@ -1,3 +1,19 @@
+**Rams to host NFL's first regular season game in Australia in 2026**\
+`The game will be one of several of the NFL’s growing number of regular season games to be played internationally over the next few seasons.`\
+https://nytimes.com/athletic/6116676/2025/02/05/los-angeles-rams-nfl-australia/
+
+**Why California’s Wettest Storms Can Be Its Trickiest**\
+`Atmospheric rivers like the ones hitting the state this week sometimes wobble, and these slight movements can be challenging to predict.`\
+https://nytimes.com/2025/02/05/weather/california-storms-rain-flooding.html
+
+**Cows Have Been Infected With a Second Form of Bird Flu**\
+`A new version of the virus is widespread in wild birds but had not previously been detected in cows.`\
+https://nytimes.com/2025/02/05/health/bird-flu-cattle-d11.html
+
+**Live from the Super Bowl Day 3: Jayden Daniels, Puka Nacua and Bears WR duo**\
+`Jayden Daniels and other stars join The Athletic's Dianna Russini and Robert Mays during day three of The Athletic's live Super Bowl show`\
+https://nytimes.com/athletic/6116573/2025/02/05/live-from-the-super-bowl-day-3-jayden-daniels-puka-nacua-and-bears-wr-duo/
+
 **Trump and Netanyahu Leave Little Daylight Between Them**\
 `Even aside from his stunning Gaza proposal, President Trump gave Prime Minister Benjamin Netanyahu of Israel nearly everything he wanted, signaling a renewal of their close alliance.`\
 https://nytimes.com/2025/02/05/us/politics/trump-netanyahu.html
