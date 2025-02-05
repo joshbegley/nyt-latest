@@ -1,3 +1,19 @@
+**Measure of Brightness**\
+`Kiran Pandey salts the pavement.`\
+https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
+
+**No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
+`Rick Pitino's Red Storm are on their longest winning streak against Big East competition since their 1984-85 Final Four season.`\
+https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
+
+**Cubs acquire Ryan Brasier in trade with Dodgers**\
+`The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
+https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
+
+**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/02/04/ovechkin-goals-record-wayne-gretzky-stats/
+
 **No. 12 St. John's still alone atop Big East after outdueling No. 11 Marquette**\
 `It was the first top-15 matchup St. John’s hosted at Madison Square Garden since the 1998-99 season.`\
 https://nytimes.com/athletic/6114307/2025/02/04/st-johns-marquette-mens-basketball-results-analysis/
