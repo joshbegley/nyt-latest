@@ -1,3 +1,23 @@
+**‘The Ezra Klein Show’ 2024 Book Recommendations**\
+`Readings that the podcast’s guests say shaped their thinking.`\
+https://nytimes.com/2025/02/05/opinion/the-ezra-klein-show-book-recommendations-2024.html
+
+**Watch: What dominoes need to fall for a Kevin Durant-Warriors reunion?**\
+`The Athletic NBA Daily discuss Kevin Durant potentially returning to the Golden State Warriors.`\
+https://nytimes.com/athletic/6115411/2025/02/05/nba-daily-kevin-durant-trade-rumors-warriors/
+
+**Fox News Adds a New Host: Lara Trump**\
+`There is no precedent for a sitting president’s relative to host a show on a major television news channel.`\
+https://nytimes.com/2025/02/05/business/media/lara-trump-fox-news.html
+
+**C.I.A. Sends White House an Unclassified Email With Names of Some Employees**\
+`The list of partial names was provided in an effort to comply with an executive order to trim the federal work force.`\
+https://nytimes.com/2025/02/05/us/politics/cia-names-list.html
+
+**Khris Middleton-Kyle Kuzma trade grades: Bucks swap out member of their big three**\
+`Kyle Kuzma is on the way to Milwaukee to join Giannis Antetokounmpo and Damian Lillard.`\
+https://nytimes.com/athletic/6115603/2025/02/05/kyle-kuzma-bucks-khris-middleton-wizards-nba-trade-deadline/
+
 **Huge Bear Found Living Under California Home After Fires**\
 `A California homeowner, who was evacuated due to the wildfires in the area, returned home to find a 525-pound black bear under his home.`\
 https://nytimes.com/video/us/100000009972062/bear-altadena-wildfire-california.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6115818/2025/02/05/submit-your-red-wings-mailbag-qu
 **LIV Golf recognized with automatic spot in the U.S. Open**\
 `The USGA is the first of the four major governing bodies to recognize LIV, which begins its fourth season this week.`\
 https://nytimes.com/athletic/6115817/2025/02/05/liv-golf-us-open/
-
-**Super Bowl 2024 props, picks: Best bets for Saquon Barkley and five other props**\
-`Austin Mock picks his best bets for Super Bowl 59, including a surprising prop pick on Saquon Barkley.`\
-https://nytimes.com/athletic/6115336/2025/02/05/super-bowl-59-prop-bets-saquon-barkley/
-
-**Tesla’s European Sales Drop in January After Musk Disrupts Politics There**\
-`The U.S. electric car company’s sales are sliding across Europe, amid what many see as interference in local affairs by Tesla’s chief executive, Elon Musk.`\
-https://nytimes.com/2025/02/05/business/tesla-germany-elon-musk.html
-
-**Kremlin Confirms Talks With Trump Administration About Ukraine**\
-`Russia said that discussions with Washington were underway regarding potential peace talks to end the war nearly three years after Moscow’s full-scale invasion.`\
-https://nytimes.com/2025/02/05/us/politics/russia-trump-ukraine-war-talks.html
-
-**Spanish FA calls meeting to address refereeing issues, Real Madrid to not attend**\
-`Following their criticism of refereeing decisions in Saturday's loss to Espanyol, Madrid have communicated that they will not be present.`\
-https://nytimes.com/athletic/6115577/2025/02/05/spanish-fa-referee-meeting-real-madrid/
-
-**Harry Stewart Jr. Dies at 100; One of Last Tuskegee Airmen to See Combat**\
-`His boyhood dream to be an adventurous pilot was fulfilled thanks to World War II. But, as a civilian, racial prejudice kept him out of the cockpit.`\
-https://nytimes.com/2025/02/05/us/harry-stewart-jr-dead.html
 
