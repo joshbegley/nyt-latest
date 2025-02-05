@@ -1,3 +1,11 @@
+**Cubs to acquire Ryan Brasier in trade with Dodgers: Source**\
+`The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
+https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
+
+**Will You Be Watching Super Bowl LIX?**\
+`Which stories have your attention this year, whether they’re about the players, the coaches, the commercials or the halftime performers?`\
+https://nytimes.com/2025/02/04/learning/will-you-be-watching-super-bowl-lix.html
+
 **Favorite Sports Team**\
 `Who is yours?`\
 https://nytimes.com/2025/02/04/learning/favorite-sports-team.html

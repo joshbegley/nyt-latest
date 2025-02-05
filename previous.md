@@ -1,3 +1,11 @@
+**Cubs to acquire Ryan Brasier in trade with Dodgers: Source**\
+`The trade bolsters what was a weakness for the Cubs last season and gives the Dodgers financial relief.`\
+https://nytimes.com/athletic/6114241/2025/02/04/ryan-brasier-dodgers-cubs-trade/
+
+**Will You Be Watching Super Bowl LIX?**\
+`Which stories have your attention this year, whether they’re about the players, the coaches, the commercials or the halftime performers?`\
+https://nytimes.com/2025/02/04/learning/will-you-be-watching-super-bowl-lix.html
+
 **Favorite Sports Team**\
 `Who is yours?`\
 https://nytimes.com/2025/02/04/learning/favorite-sports-team.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/04/us/doge-lawsuits-trump-elon-musk.html
 **Trump Signs Executive Order Calling for Review of U.S. Funding and Ties to U.N.**\
 `The move cast uncertainty on the leadership role of the United States in the global body. The president also withdrew from the U.N.’s Human Rights Council and stopped funding UNRWA.`\
 https://nytimes.com/2025/02/04/us/politics/trump-united-nations-unrwa.html
-
-**Bondi Confirmed as Attorney General**\
-`The quick confirmation highlighted the new administration’s focus on controlling and changing the Justice Department.`\
-https://nytimes.com/2025/02/04/us/politics/pam-bondi-attorney-general-confirmation.html
-
-**Daniel Penny Is Hired by Venture Capital Firm Whose Founder Backed Trump**\
-`Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, will work for Andreessen Horowitz. Before the killing, he had been an architecture student.`\
-https://nytimes.com/2025/02/04/nyregion/daniel-penny-hired-andreessen-horowitz.html
 
