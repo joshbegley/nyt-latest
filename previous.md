@@ -1,3 +1,7 @@
+**Gazans Condemn Trump’s Proposal for a U.S. Takeover**\
+`But while some Palestinians rejected leaving Gaza, others said conditions were so unlivable after 15 months of Israeli bombardment that they would consider relocating.`\
+https://nytimes.com/2025/02/05/world/middleeast/gaza-trump-takeover-palestinians.html
+
 **Drake Maye on Vrabel, getting ready for Year 2, and his biggest move of the offseason**\
 `The Patriots quarterback joined "Scoop City" at Super Bowl LIX.`\
 https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/business/economy/us-trade-deficit-2024-record.htm
 **MoneyCall: What's 'success' for Fox's $375M man?**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6114631/2025/02/05/tom-brady-super-bowl-broadcast-moneycall-newsletter/
-
-**Van de Ven to miss Carabao Cup tie against Liverpool with injury**\
-`Postecoglou confirmed centre-back is out, but new signings Kevin Danso and Mathys Tel are available.`\
-https://nytimes.com/athletic/6111856/2025/02/05/micky-van-de-ven-injury-spurs/
 

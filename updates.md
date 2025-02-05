@@ -1,3 +1,7 @@
+**Gazans Condemn Trump’s Proposal for a U.S. Takeover**\
+`But while some Palestinians rejected leaving Gaza, others said conditions were so unlivable after 15 months of Israeli bombardment that they would consider relocating.`\
+https://nytimes.com/2025/02/05/world/middleeast/gaza-trump-takeover-palestinians.html
+
 **Drake Maye on Vrabel, getting ready for Year 2, and his biggest move of the offseason**\
 `The Patriots quarterback joined "Scoop City" at Super Bowl LIX.`\
 https://nytimes.com/athletic/6115222/2025/02/05/drake-maye-new-england-patriots-interview/
