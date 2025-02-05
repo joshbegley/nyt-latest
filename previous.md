@@ -1,3 +1,15 @@
+**Trump Proposal Puts Egypt and Jordan in an Impossible Position**\
+`The countries are among the top recipients of American military aid, but forcing Palestinians out of their remaining territory could destabilize the entire region.`\
+https://nytimes.com/2025/02/05/world/middleeast/egypt-jordan-gaza-trump.html
+
+**Lowetide: Do the Oilers need a new No. 1 goaltender ahead of trade deadline?**\
+`The key for Edmonton is finding someone provably better than Stuart Skinner to tend the net`\
+https://nytimes.com/athletic/6112219/2025/02/05/edmonton-oilers-stuart-skinner-trade-bowman/
+
+**Bucks trading Middleton to Wizards in deal for Kuzma: Sources**\
+`Trading Middleton, one of the most storied players in Bucks history, is a massive move for the franchise.`\
+https://nytimes.com/athletic/6115295/2025/02/05/khris-middleton-trade-kyle-kuzma-wizards-bucks-nba/
+
 **Why Musk Is So Focused on the Bureau of the Fiscal Service, America’s ‘Checkbook’**\
 `Spending power, privacy concerns and conflicts of interest have put the bureau at the center of a political fight.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-bureau-fiscal-service.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/02/05/us/politics/trump-musk-bureau-fiscal-service.html
 https://nytimes.com/2025/02/05/us/covid-deaths-grief.html
 
 **How Did Covid Change Your Life?**\
-`We want to hear from readers reflecting on what life looks like now, five years later.`\
+`The New York Times wants to hear from readers reflecting on what life looks like now, five years later.`\
 https://nytimes.com/2025/02/05/us/covid-pandemic-changes.html
 
 **‘It Was My School’: Sweden Shooting Site Was at Heart of a Diverse Community**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6110668/2025/02/05/super-bowl-gatorade-shower-odds-
 **A.F.L.-C.I.O. Pushes Back on Elon Musk’s Campaign Against Federal Workers**\
 `The campaign by the nation’s largest federation of unions is called the Department of People Who Work for a Living, a play on Mr. Musk’s Department of Government Efficiency.`\
 https://nytimes.com/2025/02/05/us/politics/afl-cio-federal-workers-musk-doge.html
-
-**NASA Gave Up a Ride to the Moon. This Startup’s Rover Took It.**\
-`After the space agency canceled its VIPER rover, an empty space was available on a private spacecraft that will still head to the lunar surface.`\
-https://nytimes.com/2025/02/05/science/nasa-moon-rover-astrolab-astrobotic.html
-
-**Midge Purce signs new Gotham contract for 2025 season**\
-`Purce, 29, returns to Gotham after a brief stint as a free agent following her previous contract ending in December.`\
-https://nytimes.com/athletic/6114835/2025/02/05/midge-purce-gotham-fc-contract-new/
-
-**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
-`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
-https://nytimes.com/athletic/6100448/2025/02/05/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
 

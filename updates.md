@@ -1,3 +1,19 @@
+**Trump Proposal Puts Egypt and Jordan in an Impossible Position**\
+`The countries are among the top recipients of American military aid, but forcing Palestinians out of their remaining territory could destabilize the entire region.`\
+https://nytimes.com/2025/02/05/world/middleeast/egypt-jordan-gaza-trump.html
+
+**Lowetide: Do the Oilers need a new No. 1 goaltender ahead of trade deadline?**\
+`The key for Edmonton is finding someone provably better than Stuart Skinner to tend the net`\
+https://nytimes.com/athletic/6112219/2025/02/05/edmonton-oilers-stuart-skinner-trade-bowman/
+
+**Bucks trading Middleton to Wizards in deal for Kuzma: Sources**\
+`Trading Middleton, one of the most storied players in Bucks history, is a massive move for the franchise.`\
+https://nytimes.com/athletic/6115295/2025/02/05/khris-middleton-trade-kyle-kuzma-wizards-bucks-nba/
+
+**How Did Covid Change Your Life?**\
+`The New York Times wants to hear from readers reflecting on what life looks like now, five years later.`\
+https://nytimes.com/2025/02/05/us/covid-pandemic-changes.html
+
 **Why Musk Is So Focused on the Bureau of the Fiscal Service, America’s ‘Checkbook’**\
 `Spending power, privacy concerns and conflicts of interest have put the bureau at the center of a political fight.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-bureau-fiscal-service.html
