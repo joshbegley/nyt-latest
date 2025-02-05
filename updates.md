@@ -1,3 +1,7 @@
+**Favorite Sports Team**\
+`Who is yours?`\
+https://nytimes.com/2025/02/04/learning/favorite-sports-team.html
+
 **Trump Says He Would Jail Americans in El Salvador ‘in a Heartbeat’**\
 `The proposal is almost certainly illegal, experts said, but President Trump’s eagerness to entertain it showed his willingness to embrace extreme measures to demonstrate he is tough on crime.`\
 https://nytimes.com/2025/02/04/us/politics/trump-el-salvador-americans-jail.html
