@@ -1,3 +1,7 @@
+**Bowden: 30 top Rookie of the Year candidates I can't wait to watch in MLB spring training**\
+`Entering spring training, here's how the rookie field stacks up in my view, after getting input from front offices around the league. `\
+https://nytimes.com/athletic/6109884/2025/02/05/mlb-rookie-of-the-year-candidates-2025-spring-training/
+
 **Disney Returns to Its Steamrolling Self**\
 `Per-share quarterly profit rose 44 percent from a year earlier, the company said, signaling that it had moved past a period of turmoil.`\
 https://nytimes.com/2025/02/05/business/media/disney-q4-2024-earnings.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6112750/2025/02/05/super-bowl-lamar-jackson-nfl-mvp
 **Andy Reid's superpower during Chiefs' historic pursuit: Preventing player complacency**\
 `Mental fortitude often defines elite teams, and the Chiefs seemingly have mastered this aspect of football under Reid.`\
 https://nytimes.com/athletic/6113767/2025/02/05/andy-reid-kansas-city-chiefs-super-bowl-complacency/
-
-**Ranking the 5 best trade fits for the Maple Leafs on defence**\
-`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
-`\
-https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 

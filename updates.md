@@ -1,3 +1,7 @@
+**Bowden: 30 top Rookie of the Year candidates I can't wait to watch in MLB spring training**\
+`Entering spring training, here's how the rookie field stacks up in my view, after getting input from front offices around the league. `\
+https://nytimes.com/athletic/6109884/2025/02/05/mlb-rookie-of-the-year-candidates-2025-spring-training/
+
 **Ranking the 5 best trade fits for the Maple Leafs on defence**\
 `Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
 `\
