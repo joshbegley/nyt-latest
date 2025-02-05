@@ -1,3 +1,7 @@
+**Luka Dončić trade resulted in fake funerals and blunt fan responses: 'It's soulless'**\
+`"Even if we win a championship, it’s soulless. We didn’t do it with our guy," one fan said after the Mavericks traded Dončić.`\
+https://nytimes.com/athletic/6114735/2025/02/05/luka-doncic-mavericks-lakers-fan-reaction/
+
 **Foreign Strongmen Cheer as Musk Dismantles U.S. Aid Agency**\
 `Leaders in Russia, Hungary and El Salvador welcomed the Trump administration’s assault on U.S.A.I.D., which many authoritarians have seen as a threat.`\
 https://nytimes.com/2025/02/05/world/europe/usaid-russia-putin.html

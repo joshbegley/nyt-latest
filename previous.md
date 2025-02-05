@@ -1,3 +1,7 @@
+**Luka Dončić trade resulted in fake funerals and blunt fan responses: 'It's soulless'**\
+`"Even if we win a championship, it’s soulless. We didn’t do it with our guy," one fan said after the Mavericks traded Dončić.`\
+https://nytimes.com/athletic/6114735/2025/02/05/luka-doncic-mavericks-lakers-fan-reaction/
+
 **Foreign Strongmen Cheer as Musk Dismantles U.S. Aid Agency**\
 `Leaders in Russia, Hungary and El Salvador welcomed the Trump administration’s assault on U.S.A.I.D., which many authoritarians have seen as a threat.`\
 https://nytimes.com/2025/02/05/world/europe/usaid-russia-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114854/2025/02/05/arne-slot-liverpool-transfer-new
 **Philippines’ Vice President Is Impeached, Deepening Political Turmoil**\
 `A conviction would hamper the political ambitions of Sara Duterte, who has said that she would like to succeed President Ferdinand R. Marcos Jr.`\
 https://nytimes.com/2025/02/05/world/asia/philippines-vice-president-duterte-impeached.html
-
-**Guardians spring guide: 33 notes for 33 pitchers, from Bibee to Bieber to Williams**\
-`As you monitor the action this spring, here’s a handy guide with insight on every pitcher with a locker in the Guards' big-league clubhouse.`\
-https://nytimes.com/athletic/6099816/2025/02/05/guardians-spring-guide-notes-pitchers/
 
