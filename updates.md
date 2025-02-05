@@ -1,3 +1,7 @@
+**Trump officials walk back plan to take over Gaza.**\
+`President Trump often makes comments that go beyond what his aides wish and sometimes they try to walk them back. But the only statements that really matter are Mr. Trump’s.`\
+https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trump-officials-walk-back-plan-to-take-over-gaza
+
 **Are You Stockpiling Food Items in Response to Tariff Concerns? We Want to Hear From You.**\
 `We’re interested in hearing from readers about the items they’re buying in bulk to get ahead of anticipated price hikes on imported goods.`\
 https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
