@@ -1,3 +1,11 @@
+**U.K. Counterterror Program Prematurely Closed Case on Teen Killer, Report Says**\
+`Axel Rudakubana, who murdered three girls in a stabbing spree last year, had been referred to Britain’s counterterror program, Prevent, three times before his attack last July.`\
+https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
+
+**Novo Nordisk Annual Sales Jump on Higher Demand for Obesity Drugs**\
+`The Danish maker of Ozempic and Wegovy reported a 25 percent increase in sales to $40.6 billion, but said it expected slower growth this year.`\
+https://nytimes.com/2025/02/05/business/novo-nordisk-earnings-ozempic-wegovy.html
+
 **Trump’s Plan for the Cartels Isn’t Tough Enough**\
 `Trump misunderstands the cartels. His plan to take them on is not tough enough.`\
 https://nytimes.com/2025/02/05/opinion/trump-sheinbaum-cartels-mexico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/science/goose-duck-fossil.html
 **Nico Harrison gambles everything that he's right about his Mavericks — and Luka Dončić**\
 `For Harrison, winning just one title without Dončić won't do. He is all in, cards to the center of the table, certain he will prevail.`\
 https://nytimes.com/athletic/6113851/2025/02/05/nico-harrison-mavericks-luka-doncic/
-
-**In Gaza and Jerusalem, People React to Trump’s Proposal for Palestinians**\
-`A day after President Trump proposed that the United States take over Gaza, many Palestinians said they were committed to staying in the enclave despite the widespread devastation. In Jerusalem, some residents reacted with surprise and enthusiasm to the proposal.`\
-https://nytimes.com/video/world/middleeast/100000009970943/in-gaza-and-jerusalem-people-react-to-trumps-proposal-for-palestinians.html
-
-**The Bounce: Will Kevin Durant be dealt by NBA trade deadline?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6115015/2025/02/05/kevin-durant-suns-jimmy-butler-heat-luka-doncic-anthony-davis-lakers-mavericks-nba-trade-deadline-the-bounce/
 
