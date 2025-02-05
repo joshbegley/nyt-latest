@@ -1,3 +1,11 @@
+**Elon Musk Is a ‘Special Government Employee.’ What Does That Mean?**\
+`Ethics laws make it a federal criminal offense to take actions that benefit family businesses — even for so-called special government employees, unless a waiver is issued.`\
+https://nytimes.com/2025/02/05/us/politics/elon-musk-special-government-employee-explainer.html
+
+**Trump’s Gaza Notion Sets Off Democratic Infighting and G.O.P. Doubts**\
+`The president’s far-fetched proposal to take over the enclave caused a new wave of recriminations after an election in which the Mideast war tore Democrats apart and pushed some voters to the right.`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-politics-reaction.html
+
 **Mirroring Trump, Milei Pulls Argentina From W.H.O.**\
 `President Javier Milei has sought to align Argentina with President Trump, even if it means breaking with previous allies and partners.`\
 https://nytimes.com/2025/02/05/world/americas/argentina-who-withdrawal-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/dining/food-tariff-reader-call-out.html
 **Rams' Puka Nacua on Cooper Kupp trade talks: 'Too fresh to think about'**\
 `Rams WR discusses the impact Kupp has on the field and in the locker room, and how that would be missed if he is traded.`\
 https://nytimes.com/athletic/6116182/2025/02/05/puka-nacua-rams-trade-cooper-kupp/
-
-**Watch: What was the turning point for the Eagles' season?**\
-`The Athletic Football show hosts discuss how the Philadelphia Eagles got back to the Super Bowl.`\
-https://nytimes.com/athletic/6114924/2025/02/05/athletic-football-show-eagles-super-bowl/
-
-**Tiny Love Stories: ‘A Mini Breakdown in a Walmart Bathroom’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/02/05/style/tiny-modern-love-stories-a-mini-breakdown-in-a-walmart-bathroom.html
 
