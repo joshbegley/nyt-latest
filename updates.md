@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspens
 `\
 https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
 
+**Wild endure back-to-back shutouts; Hartman expected to appeal suspension: 3 takeaways**\
+`The Wild’s 3-0 loss to the Bruins was the first time Minnesota has been shut out in back-to-back games since Nov. 2022.
+`\
+https://nytimes.com/athletic/6114359/2025/02/04/wild-bruins-ryan-hartman-suspension/
+
 **Quote of the Day: Inside Musk’s Aggressive Incursion Into the Federal Government**\
 `Quotation of the Day for Wednesday, February 5, 2025`\
 https://nytimes.com/2025/02/04/pageoneplus/quote-of-the-day-inside-musks-aggressive-incursion-into-the-federal-government.html
