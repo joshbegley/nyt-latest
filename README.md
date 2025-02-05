@@ -2,7 +2,7 @@
 `The Portuguese may be coming to the end of his time as a footballer but his influence is only likely to grow from here`\
 https://nytimes.com/athletic/6112482/2025/02/05/cristiano-ronaldo-40-youtube-influencer/
 
-**The Raptors are becoming the team Darko Rajaković promised to deliver**\
+**Raptors are becoming the team Darko Rajaković promised to deliver**\
 `Down a pair of starters, the Raptors showed what their recent successful stretch has meant against the Knicks.`\
 https://nytimes.com/athletic/6114480/2025/02/05/raptors-knicks-darko-rajakovic/
 
