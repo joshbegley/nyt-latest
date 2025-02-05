@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6112176/2025/02/05/liverpool-injuries-prevention/
 https://nytimes.com/athletic/6009562/2025/02/05/manchester-united-diego-leon-who-is-he/
 
 **Maple Leafs report cards: Nylander hat trick helps Toronto sweep Alberta**\
-`The Leafs allowed two five-on-three goals but scored four in the second period to pick up their second win of the road trip.`\
+`The Leafs allowed two five-on-three goals but scored four in the second period to pick up their second win of their trip.`\
 https://nytimes.com/athletic/6114609/2025/02/05/maple-leafs-report-cards-nylander-hat-trick-flames/
 
 **Nottingham Forest transfer review: Not many new faces but keeping key players crucial**\
