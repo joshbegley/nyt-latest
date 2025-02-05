@@ -1,3 +1,11 @@
+**Judge Blocks Trump’s Birthright Citizenship Order Nationwide**\
+`The nationwide injunction, from a Maryland case, is more permanent than last month's restraining order from a judge in Seattle.`\
+https://nytimes.com/2025/02/05/us/trump-birthright-citizenship.html
+
+**'My confidence right now is high': Bulls rookie Matas Buzelis looks to build on perfect night**\
+`As the Bulls face an uphill battle with a rebuild, Buzelis provided a glimmer of hope at the United Center on Tuesday night.`\
+https://nytimes.com/athletic/6115078/2025/02/05/matas-buzelis-bulls-heat/
+
 **U.K. Counterterror Program Prematurely Closed Case on Teen Killer, Report Says**\
 `Axel Rudakubana, who murdered three girls in a stabbing spree last year, had been referred to Britain’s counterterror program, Prevent, three times before his attack last July.`\
 https://nytimes.com/2025/02/05/world/europe/rudakubana-program-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/dining/jam-bundt-cake.html
 **The Physics That Keeps a Crowd From Becoming a Stampede**\
 `A group of scientists studying the San Fermín festival in Pamplona, Spain, believe there’s a way to predict the motions of a large crowd.`\
 https://nytimes.com/2025/02/05/science/crowds-stampedes-pamplona.html
-
-**The Search for the Original Silly Goose in the Fossil Record**\
-`Some paleontologists think that fossils recovered from Antarctica are evidence of birds similar to modern geese and ducks that lived alongside the dinosaurs.`\
-https://nytimes.com/2025/02/05/science/goose-duck-fossil.html
-
-**Nico Harrison gambles everything that he's right about his Mavericks — and Luka Dončić**\
-`For Harrison, winning just one title without Dončić won't do. He is all in, cards to the center of the table, certain he will prevail.`\
-https://nytimes.com/athletic/6113851/2025/02/05/nico-harrison-mavericks-luka-doncic/
 
