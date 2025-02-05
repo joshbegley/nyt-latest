@@ -1,3 +1,7 @@
+**Trump’s Gaza Takeover Would Violate International Law, Experts Say**\
+`Forcing Palestinians to leave the enclave would be “a straightforward crime against humanity,” an Oxford professor said. It would be a further violation to take over the territory.`\
+https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-takeover-illegal.html
+
 **Trump’s Gaza Plan Is Unworkable, Analysts Say. Does He Really Mean It?**\
 `President Trump’s proposal to transfer millions of people out of Gaza was hailed by the Israeli right and condemned by Palestinians. Some experts say it may be a negotiating tactic.`\
 https://nytimes.com/2025/02/05/world/middleeast/trump-gaza-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112731/2025/02/05/broncos-offseason-courtland-sutt
 **Arsenal mailbag: Summer transfer budget? Zubimendi plans? Are Williams or Watkins realistic?**\
 `From attacking targets in the summer to sporting director options, our writers answer your questions`\
 https://nytimes.com/athletic/6112233/2025/02/05/arsenal-transfers-zubimendi-watkins/
-
-**The Pulse: Wait, KD on the trade block?**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6112385/2025/02/05/kevin-durant-suns-trade-the-pulse/
 
