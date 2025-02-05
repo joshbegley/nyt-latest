@@ -1,3 +1,7 @@
+**Cardinals spring guide: 33 thoughts for 33 pitchers, from Bedell to Pallante to Thompson**\
+`Several prospects are on the rise and the Cardinals are about to find out which ones are ready for the big-league fire.`\
+https://nytimes.com/athletic/6113528/2025/02/05/cardinals-spring-training-pitchers/
+
 **NBA Trade Board: Kevin Durant No. 1; Julius Randle, Marcus Smart join the fray**\
 `Will we see another shocker like the Luka-AD deal? The clock is ticking.`\
 https://nytimes.com/athletic/6110859/2025/02/05/nba-trade-deadline-jimmy-butler-julius-randle/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6113240/2025/02/05/myles-garrett-trade-demand-cleve
 **What the skyrocketing cap means for the Jets, Nikolaj Ehlers, Neal Pionk and more**\
 `How will an increasing salary cap and new CBA change the way Winnipeg does business?`\
 https://nytimes.com/athletic/6107392/2025/02/05/winnipeg-jets-salary-cap-ehlers-pionk/
-
-**'He's a very positive player': Flyers take a chance on Jakob Pelletier**\
-`The Flyers acquired the 23-year-old last Thursday as part of the trade that sent Morgan Frost and Joel Farabee to the Flames.`\
-https://nytimes.com/athletic/6114368/2025/02/05/flyers-flames-jakob-pelletier-trade/
 
