@@ -1,3 +1,31 @@
+**Nottingham Forest transfer review: Not many new faces but keeping key players crucial**\
+`Forest had a composed transfer window — and the key deals were probably for existing players`\
+https://nytimes.com/athletic/6112177/2025/02/05/nottingham-forest-transfer-review/
+
+**Crystal Palace's transfer window: Romain Esse offers promise, but squad depth still a concern**\
+`Palace had to adapt after Chalobah returned to Chelsea and two players suffered season-ending injuries, but still brought only two in`\
+https://nytimes.com/athletic/6107040/2025/02/05/crystal-palace-transfers-esse-chilwell-chalobah-glasner/
+
+**Arsenal's transfer window reviewed: No new signings fuels expectation of a big summer**\
+`Arsenal decided to stick not twist as they chase Liverpool this season - which should free up spending power for 2025-26`\
+https://nytimes.com/athletic/6111907/2025/02/05/arsenal-transfer-window-reviewed/
+
+**Newcastle are 2-0 up, two games from immortality and what comes next will define their season**\
+`Newcastle are preparing for their latest shot at glory - and as their game with Arsenal gets closer, the mix of hope and pressure grows `\
+https://nytimes.com/athletic/6112173/2025/02/05/newcastle-arsenal-carabao-cup-second-leg/
+
+**Analysing Nico Gonzalez: A player built to play alongside Rodri at City, not replace him**\
+`The box-to-box Spaniard will add much-needed quality and physicality to Pep Guardiola's team  `\
+https://nytimes.com/athletic/6112484/2025/02/05/nico-gonzalez-manchester-city-profile-analysis/
+
+**Inside Steidten's West Ham exit: Signing mistakes, managerial issues and relief at leaving**\
+`Technical director Steidten has left West Ham after a difficult 18 months - here's the behind-the-scenes story of that time`\
+https://nytimes.com/athletic/6082958/2025/02/05/west-ham-tim-steidten-exit/
+
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/05/briefing/trump-gaza-china-trade.html
+
 **What is Cristiano Ronaldo at 40?**\
 `The Portuguese may be coming to the end of his time as a footballer but his influence is only likely to grow from here`\
 https://nytimes.com/athletic/6112482/2025/02/05/cristiano-ronaldo-40-youtube-influencer/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6114480/2025/02/05/raptors-knicks-darko-rajakovic/
 **Why did clubs in Spain spend so little money in the January transfer window?**\
 `The collective spending of all 20 teams in Spain's top flight was €26.1m, making it the 16th highest-spending league in football this winter`\
 https://nytimes.com/athletic/6100585/2025/02/05/la-liga-transfer-window-spending/
-
-**Last summer's Premier League transfer window proves one thing: they don't make much difference**\
-`This season shows that 'winning the transfer window' has little relevance to winning matches, or to landing the Premier League title`\
-https://nytimes.com/athletic/6111919/2025/02/05/transfer-window-importance-premier-league-2024-2025/
-
-**Cristiano Ronaldo is 40 today, so here are 40 stats you (probably) don't know about him**\
-`Forty facts and pieces of trivia about the Portuguese forward's remarkable achievements`\
-https://nytimes.com/athletic/6047496/2025/02/05/cristiano-ronaldo-is-40-stats/
-
-**London calling: How foreign money is fuelling English football's southward shift**\
-`As foreign investment increases, potential owners want clubs near Heathrow and London's hotels`\
-https://nytimes.com/athletic/6071827/2025/02/05/london-calling-how-foreign-money-is-fuelling-english-footballs-southward-shift/
-
-**Trump’s Dreams of Gaza ‘Ownership’ Add to His List of Imperial Aspirations**\
-`Once a critic of nation building, the president now envisions taking over a Middle East enclave, driving out its Palestinian population and transforming it into “the Riviera of the Middle East.”`\
-https://nytimes.com/2025/02/05/us/politics/trump-gaza-netanyahu-takeover.html
-
-**Manchester City's cult hero of the post-match puns on creating a community of 'lovely people'**\
-`One of the most active WSL players on social media, Kerstin Casparij wants to entertain and inspire with her posts`\
-https://nytimes.com/athletic/6112243/2025/02/05/kerstin-casparij-manchester-city-social-media/
-
-**Kyrie Irving reflects on past 'dream' of playing with A.D., Kevin Durant**\
-`The Mavs guard was teammates with Durant in Brooklyn and is now, after the Luka Dončić deal, paired up with Davis in Dallas.`\
-https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin-durant-mavericks/
-
-**Are Duran and Galeno a sign that Saudi Arabia is ready to splurge again?**\
-`The latest signings suggest a big summer may be about to come for the Saudi Pro League`\
-https://nytimes.com/athletic/6112531/2025/02/05/are-duran-and-galeno-a-sign-that-saudi-arabia-is-ready-to-splurge-again/
 
