@@ -1,3 +1,15 @@
+**With 4 meetings in 3 weeks, a Blazers season has changed**\
+`The Blazers are one of the hottest teams in the NBA, where behind the scenes, their coach has held a series of meetings to inspire change. `\
+https://nytimes.com/athletic/6113642/2025/02/05/chauncey-billups-and-the-4-meetings-that-sparked-a-trail-blazers-turnaround/
+
+**The three misses that explain Simona Halep's tennis greatness**\
+`Halep's 56-minute Wimbledon final against Serena Williams in 2019 exemplified how she made the solid so spectacular.`\
+https://nytimes.com/athletic/6114879/2025/02/05/simona-halep-tennis-grand-slam-titles-record/
+
+**Michigan adds top-40 OT Ty Haywood to 2025 recruiting class**\
+`Michigan beat out Florida State and Texas Tech to land OT Ty Haywood, who previously committed to Alabama but didn't sign in December.`\
+https://nytimes.com/athletic/6113227/2025/02/05/ty-haywood-michigan-football-recruiting/
+
 **U.S. Trade Deficit Hit Record in 2024 as Imports Surged**\
 `A strong dollar helped drive an uptick in U.S. imports last year, while export growth remained modest.`\
 https://nytimes.com/2025/02/05/business/economy/us-trade-deficit-hit-record-in-2024-as-imports-surged.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6114836/2025/02/05/lebron-james-luka-doncic-anthony
 **Could the Trade Fight Take a Bite Out of Apple?**\
 `A news report says that Beijing is weighing an inquiry into the iPhone maker, underscoring Chinas options in fighting against President Trump’s tariff threat.`\
 https://nytimes.com/2025/02/05/business/dealbook/apple-trump-china-trade-tariffs.html
-
-**'Hard to comprehend': Eagles' defensive rookie duo on surreal journey to Super Bowl**\
-`The Eagles couldn't believe they ended up with Quinyon Mitchell and Cooper DeJean in the draft.`\
-https://nytimes.com/athletic/6112438/2025/02/05/eagles-superbowl-rookies-quinyon-mitchell-cooper-dejean/
-
-**Trump’s Gaza proposal comes as Israel and Hamas prepare to hold more cease-fire talks.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/02/05/world/israel-gaza-netanyahu-trump/trumps-gaza-proposal-comes-as-israel-and-hamas-prepare-to-hold-more-cease-fire-talks
-
-**Brighton agree deal to sign Bischoff from Brondby**\
-`Brighton will pay around €8million to acquire Bischoff and he is set to sign a four-and-a-half-year contract with the club.`\
-https://nytimes.com/athletic/6115003/2025/02/05/brighton-clement-bischoff-transfer/
 
