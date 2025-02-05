@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6116070/2025/02/05/fresh-off-a-national-championshi
 
 **Trump’s Gaza Plan: Illegal, Bizarre, Impractical, Distracting**\
 `Partly because this massive displacement won’t happen, it’s a distraction from the need to implement the cease-fire in Gaza and continue the release of both Israeli hostages and Palestinian prisoners.`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/gaza-trump-israel
+https://nytimes.com/2025/02/05/opinion/gaza-trump-israel.html
 
 **NFLPA leaders see 18th regular-season game as a non-starter**\
 `“No one wants to play an 18th game. No one,” NFLPA executive director Lloyd Howell said Wednesday.`\
