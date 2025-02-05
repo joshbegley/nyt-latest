@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-t
 `\
 https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
 
+**Ranking the 5 best trade fits for the Maple Leafs on defence**\
+`Identifying blueliners around the league who would make sense for Toronto and who may also be available as the trade deadline nears.
+`\
+https://nytimes.com/athletic/6113039/2025/02/05/maple-leafs-nhl-trade-deadline-targets/
+
 **Minnesota Twins farm system heat check: What’s the immediate and future outlook?**\
 `Here’s an overview of where the Twins farm system stands and how it may factor into the team’s future near-term.`\
 https://nytimes.com/athletic/6112960/2025/02/05/minnesota-twins-farm-system-outlook/
