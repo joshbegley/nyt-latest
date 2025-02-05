@@ -1,3 +1,19 @@
+**Kyrie Irving reflects on past 'dream' of playing with A.D., Kevin Durant**\
+`The Mavs guard was teammates with Durant in Brooklyn and is now, after the Luka Dončić deal, paired up with Davis in Dallas.`\
+https://nytimes.com/athletic/6114559/2025/02/05/kyrie-irving-anthony-davis-kevin-durant-mavericks/
+
+**Are Duran and Galeno a sign that Saudi Arabia is ready to splurge again?**\
+`The latest signings suggest a big summer may be about to come for the Saudi Pro League`\
+https://nytimes.com/athletic/6112531/2025/02/05/are-duran-and-galeno-a-sign-that-saudi-arabia-is-ready-to-splurge-again/
+
+**The transfer window is closed but clubs can still sign free agents. So who is available?**\
+`The transfer window is over but clubs can still sign free agents — so who are the standout players still available?`\
+https://nytimes.com/athletic/6111928/2025/02/05/transfer-latest-free-agents/
+
+**A Veteran U.K. Political Battler Takes on Trump’s Washington**\
+`Peter Mandelson, Britain’s new ambassador to the United States, will try to sustain a relationship strained by President Trump’s disdain for alliances and free trade.`\
+https://nytimes.com/2025/02/05/world/europe/mandelson-trump-uk-ambassador.html
+
 **Quote of the Day: Inside Musk’s Aggressive Incursion Into the Federal Government**\
 `Quotation of the Day for Wednesday, February 5, 2025`\
 https://nytimes.com/2025/02/04/pageoneplus/quote-of-the-day-inside-musks-aggressive-incursion-into-the-federal-government.html
@@ -22,20 +38,4 @@ https://nytimes.com/2025/02/04/us/politics/5-takeaways-from-trumps-news-conferen
 **Crowded Skies, Thin Margins for Error: The Minutes Before the D.C. Air Disaster**\
 `Using radio traffic, flight data and leaked footage of an air traffic control radar screen, we examine what was happening in the moments before the midair collision near Reagan National Airport that left 67 dead.`\
 https://nytimes.com/video/us/100000009963447/dc-plane-crash-investigation.html
-
-**'You want to deflate the other team': A Jeremy Swayman shutout signals a playoff path**\
-`Swayman and Matt Poitras kept the momentum rolling for the Bruins in a 3-0 win.`\
-https://nytimes.com/athletic/6114450/2025/02/04/bruins-jeremy-swayman-shutout-poitras-wild/
-
-**Trump’s Proposal to ‘Take Over’ Gaza Sparks Immediate Rebukes**\
-`President Trump’s suggestion was denounced in the Middle East, Washington and beyond.`\
-https://nytimes.com/2025/02/04/world/middleeast/trump-gaza-take-over-reactions.html
-
-**Judge Blocks Trump Effort to Move Trans Women to Men’s Prisons**\
-`A temporary restraining order blocked the administration from transferring transgender women and from ending gender-transition treatment for prisoners.`\
-https://nytimes.com/2025/02/04/us/trans-women-prisons-executive-order-ruling.html
-
-**Measure of Brightness**\
-`Kiran Pandey salts the pavement.`\
-https://nytimes.com/2025/02/04/crosswords/daily-puzzle-2025-02-05.html
 
