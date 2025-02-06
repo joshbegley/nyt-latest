@@ -1,3 +1,11 @@
+**When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
+`A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
+https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
+
+**Dozens of Live Beetles Found in Japanese Snacks During Customs Check at LAX**\
+`The insects were most likely intended for exotic insect collections, according to customs officials, who say the illegal pet trade is flourishing.`\
+https://nytimes.com/2025/02/06/us/live-beetles-japanese-snacks-lax.html
+
 **Wizards continue overhaul with deal that nets Marcus Smart, first-rounder**\
 `The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
 https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/trump-faa-air-traffic-plane-crash.htm
 **Richarlison injury 'didn't look good, another one to add to the list' - Postecoglou**\
 `The Brazilian was substituted in the first half of the Carabao Cup semi-final second leg at Anfield on Thursday.`\
 https://nytimes.com/athletic/6119479/2025/02/06/richarlison-injury-tottenham-postecoglou/
-
-**White House Cracks Down on News Subscriptions**\
-`The U.S.D.A. said Thursday that it had canceled its subscriptions to Politico Pro, a news and information service aimed at policy professionals.`\
-https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-house.html
-
-**Read the Guidance Sent to New York City Shelters**\
-`On Jan. 13, City Hall instructed city employees how to respond if federal law enforcement officers showed up on city property.`\
-https://nytimes.com/interactive/2025/02/06/nyregion/nyc-memo-shelters.html
 

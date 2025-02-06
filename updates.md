@@ -1,3 +1,11 @@
+**When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
+`A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
+https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
+
+**Dozens of Live Beetles Found in Japanese Snacks During Customs Check at LAX**\
+`The insects were most likely intended for exotic insect collections, according to customs officials, who say the illegal pet trade is flourishing.`\
+https://nytimes.com/2025/02/06/us/live-beetles-japanese-snacks-lax.html
+
 **Wizards continue overhaul with deal that nets Marcus Smart, first-rounder**\
 `The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
 https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
