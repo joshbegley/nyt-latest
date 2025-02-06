@@ -1,3 +1,7 @@
+**A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
+`Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
+https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
+
 **Every deal made during a monumental 2025 NBA trade season**\
 `Having trouble keeping track of every trade that happened in the NBA this season? We have you covered.`\
 https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-luka-doncic-jimmy-butler/

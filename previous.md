@@ -1,3 +1,7 @@
+**A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
+`Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
+https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
+
 **Every deal made during a monumental 2025 NBA trade season**\
 `Having trouble keeping track of every trade that happened in the NBA this season? We have you covered.`\
 https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-luka-doncic-jimmy-butler/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/t-magazine/new-designers-fall-2025-fashion.html
 **Who were the biggest winners of an unprecedented NBA trade deadline?**\
 `A couple of teams rise above the rest, but one group may be smiling from ear to ear after the dust settles.`\
 https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-lakers-cavaliers/
-
-**Trump Vows to Improve Air Traffic Control System After Crash**\
-`The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
-https://nytimes.com/2025/02/06/us/politics/trump-faa-air-traffic-plane-crash.html
 
