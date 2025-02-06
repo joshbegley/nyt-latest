@@ -1,3 +1,7 @@
+**Thompson: Warriors and Jimmy Butler a match made in mutual desperation**\
+`Jimmy Butler wanted a fresh start. The Warriors needed to shake things up. Now they'll try to rediscover glory together.`\
+https://nytimes.com/athletic/6117889/2025/02/06/jimmy-butler-warriors-heat-trade-desperation/
+
 **How does Brandon Ingram make sense for the Raptors' rebuild?**\
 `Toronto picked an odd time to trade for a win-now talent. `\
 https://nytimes.com/athletic/6117752/2025/02/06/brandon-ingram-raptors-pelicans-trade-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115178/2025/02/06/4-nations-face-off-centers/
 **Cubs spring guide: 34 thoughts for 34 pitchers, from Assad to Imanaga to Wicks **\
 `Cubs pitchers and catchers officially report to spring training on Super Bowl Sunday ahead of their Opening Day in Japan. `\
 https://nytimes.com/athletic/6116308/2025/02/06/chicago-cubs-spring-guide-pitchers/
-
-**Cooper Kupp trade proposals: 9 teams that could make a play for Rams receiver**\
-`The Rams told Cooper Kupp that they plan to trade him. What could they get in return for the receiver? We found some options.`\
-https://nytimes.com/athletic/6115378/2025/02/06/cooper-kupp-trade-proposals-commanders-steelers-jets/
 
