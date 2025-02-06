@@ -1,3 +1,7 @@
+**Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
+`U.`\
+https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
+
 **The Windup: Pete Alonso has landed!**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
