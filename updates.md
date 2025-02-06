@@ -1,3 +1,15 @@
+**Consumer bureau backs off legal fights as Treasury officials take charge.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
+
+**Irv Gotti: Key Milestones in the Life of the Rap Mogul**\
+`The producer, who died on Wednesday, built Murder Inc. into one of the most influential record labels of the early 2000s. His career was marred by a federal investigation and trial.`\
+https://nytimes.com/2025/02/06/arts/irv-gotti-murder-inc-timeline.html
+
+**A Judge Delayed Trump’s Plan to Persuade Federal Workers to Quit**\
+`Also, New Orleans is rattled but ready for the Super Bowl. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/02/06/briefing/delay-trump-resignation-plan-super-bowl-security.html
+
 **Days of Heavy Rain Turns California Lake Into a Quirky Tourist Spot**\
 `For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
 https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
