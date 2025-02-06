@@ -1,3 +1,15 @@
+**Trump Administration to Lay Off Nearly All of U.S. Aid Agency’s Staff**\
+`Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
+
+**NCAA changes transgender participation policy after Donald Trump's executive order**\
+`The U.S. Department of Education said Thursday it would launch investigations into San Jose State and the University of Pennsylvania.`\
+https://nytimes.com/athletic/6119241/2025/02/06/ncaa-transgender-policy-donald-trump/
+
+**Big bets rolling in early on Super Bowl, including $1.1 million on the Eagles**\
+`Ben Fawkes talks early action on the Super Bowl, including the five biggest bets so far and how bettors are all in on Saquon Barkley props.`\
+https://nytimes.com/athletic/6116265/2025/02/06/super-bowl-2025-biggest-betting-trends/
+
 **All you need to know about the Carabao Cup final**\
 `We bring you all you need to know about the Carabao Cup final including the impact on Fantasy Premier League.`\
 https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtures-explained/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6119209/2025/02/06/sergio-ramos-contract-monterrey/
 **Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
 `The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
 https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
-
-**What to Know About Wendy Williams’s Guardianship**\
-`Ms. Williams, whose health has been scrutinized since she left her daytime talk show in 2021, has been under the control of a court-appointed guardian for the past three years.`\
-https://nytimes.com/article/wendy-williams-guardianship.html
-
-**Live from the Super Bowl Day 4: Eli Manning, Terron Armstead, Puka Nacua and more**\
-`Eli Manning, Terron Armstead, Puka Nacua and more stop by the set to talk NFL and Super Bowl on our daily live show.`\
-https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-eli-manning-terron-armstead-puka-nacua-and-more/
-
-**SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
-`The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
-https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
 
