@@ -1,3 +1,7 @@
+**Why Super Bowl city New Orleans has strange, unfulfilled soccer history**\
+`The Big Easy was never under serious consideration to be part of a World Cup bid and is not known as a soccer city`\
+https://nytimes.com/athletic/6113980/2025/02/06/super-bowl-nola-soccer/
+
 **Leganes 2 Real Madrid 3: Garcia announces himself, tireless Valverde and Lunin's role**\
 `Real Madrid's exciting academy forward made the difference as Carlo Ancelotti's side scored late to advance in the Copa del Rey`\
 https://nytimes.com/athletic/6117496/2025/02/06/real-madrid-legances-gonzalo-garcia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/learning/word-of-the-day-kismet.html
 **What if... this is a new Newcastle?**\
 `Eddie Howe's side made light work of reaching the Carabao Cup final and are on course to end the club's long trophy drought`\
 https://nytimes.com/athletic/6114796/2025/02/06/newcastle-carabao-cup-arsenal-final/
-
-**Arsenal and the lesson of Alexander Isak**\
-`The Newcastle forward gave Arsenal a first-hand demonstration of what an elite centre-forward can offer`\
-https://nytimes.com/athletic/6117214/2025/02/06/arsenal-alexander-isak-newcastle/
 
