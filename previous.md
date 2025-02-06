@@ -1,3 +1,7 @@
+**Inside the Warriors' pivot toward a Jimmy Butler trade: 'He win? I win? That's the fit'**\
+`Wednesday's trade might have been a backup plan for both parties, and an expensive one. But Golden State thinks the risk could work.`\
+https://nytimes.com/athletic/6117747/2025/02/06/warriors-jimmy-butler-trade-steph-curry-fit/
+
 **Listen: Can Mathys Tel provide a much-needed spark to Tottenham's front line?**\
 `The View From The Lane discuss Tottenham's Deadline Day loan signing Mathys Tel`\
 https://nytimes.com/athletic/6116095/2025/02/06/view-from-the-lane-podcast-mathys-tel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117037/2025/02/06/rangers-jt-miller-trade-vincent-
 **Eagles defense gets inspiration from rare glimpse of vulnerable Vic Fangio**\
 `Vic Fangio, 66, is seeking his first Super Bowl championship.`\
 https://nytimes.com/athletic/6116224/2025/02/06/philadelphia-eagles-vic-fangio-defense-super-bowl/
-
-**Cheeseburgers and beyond: Andy Reid loves food as much as football**\
-`Whether it's fine German cuisine, barbecue, lobster pot pie or mac and cheese, Reid loves it and loves bonding with his players over food.`\
-https://nytimes.com/athletic/6117356/2025/02/06/chiefs-andy-reid-super-bowl-food/
 
