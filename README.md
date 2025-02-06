@@ -1,3 +1,7 @@
+**Journeyman outfielder Tommy Pham signs 1-year deal with Pirates: Sources**\
+`The Pirates will pay Pham, who turns 37 in March, $4 million to bring veteran experience and depth to their outfield.`\
+https://nytimes.com/athletic/6118423/2025/02/06/tommy-pham-signs-pittsburgh-pirates/
+
 **How Ruben Amorim could recalibrate Manchester United's defence after Lisandro Martinez's injury**\
 `Martinez is set to be a huge loss for United, so who should play in defence for them going forward?`\
 https://nytimes.com/athletic/5831626/2025/02/06/manchester-united-defence-amorim-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-janu
 **Arsenal's Saka and White travel with Dubai training camp squad**\
 `Bukayo Saka and Ben White have travelled with the Arsenal squad for the mid-season warm-weather training camp in Dubai.`\
 https://nytimes.com/athletic/6118100/2025/02/06/arsenal-dubai-saka-white-training-camp/
-
-**The American Dream, Through Foreign Eyes**\
-`A major Dutch museum is staging a huge exhibition of American photography that explores the tension between how the United States would like to see itself, and how it really looks.`\
-https://nytimes.com/2025/02/06/arts/design/american-photography-rijksmuseum.html
 
