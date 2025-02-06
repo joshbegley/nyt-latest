@@ -1,3 +1,7 @@
+**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
+`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
+https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
+
 **Luis Rubiales trial: Luque accused Hermoso of 'jumping on the bandwagon to kill Rubiales'**\
 `Hermoso's Spain team-mates Putellas, Paredes and Codina, and one of the forward's friends testified on day four in Madrid`\
 https://nytimes.com/athletic/6118614/2025/02/06/rubiales-trial-luque-hermoso-messages/
