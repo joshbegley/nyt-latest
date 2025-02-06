@@ -1,3 +1,15 @@
+**Dowman, 15, and Porter, 16, included in Arsenal's squad for Dubai camp**\
+`The pair will be joined by several other Arsenal academy players during the warm weather camp.`\
+https://nytimes.com/athletic/6117840/2025/02/06/arsenal-max-dowman-jack-porter-dubai/
+
+**Japan Seeks to Preserve Status Quo With Trump. That May Be a Big Ask.**\
+`Prime Minister Shigeru Ishiba is expected to cite his country’s increased investment in the U.S. and its regional security role when he meets President Trump on Friday.`\
+https://nytimes.com/2025/02/06/world/asia/japan-ishiba-trump-summit.html
+
+**Man United's Lisandro Martinez suffers ACL injury**\
+`Martinez has played 32 games for United this season, starting 20 out of 22 in the Premier League.`\
+https://nytimes.com/athletic/6107373/2025/02/06/lisandro-martinez-injury-acl-man-utd/
+
 **Phillies spring training preview: Thoughts on every hitter headed to camp**\
 `No unit on this club will face more scrutiny this season than the lineup. Here are thoughts on each of the 29 hitters coming to camp. `\
 https://nytimes.com/athletic/6111334/2025/02/06/phillies-spring-training-2025-hitters/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6113119/2025/02/06/michigan-football-roster-portal-
 **Which Big 12 teams are on the rise (and in trouble) after the winter transfer window?**\
 `The Big 12 added intriguing QBs in the winter portal window. Devon Dampier, from New Mexico, figures to be a great fit at Utah.`\
 https://nytimes.com/athletic/6116758/2025/02/06/big-12-transfer-portal-winners-losers/
-
-**Super Bowl guests love a great party game. Our ultimate prop sheet delivers the fun**\
-`Enhance your Super Bowl 59 experience with our ultimate party prop sheet, which captures all the pomp and circumstance surrounding the game.`\
-https://nytimes.com/athletic/6100227/2025/02/06/super-bowl-2025-party-prop-bet-sheet-taylor-swift/
-
-**Celtics trade Jaden Springer as bottom line becomes main factor at deadline**\
-`The Celtics are strapped by their financial realities, but they could still make a minor deal before Thursday's trade deadline.`\
-https://nytimes.com/athletic/6117055/2025/02/06/celtics-nba-trade-deadline-jaden-springer/
-
-**The Trump Crisis Deepens**\
-`The president is using every tool at his disposal to reshape the American founding.`\
-https://nytimes.com/2025/02/06/opinion/trump-power-constitution.html
 

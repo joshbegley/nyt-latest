@@ -1,3 +1,15 @@
+**Dowman, 15, and Porter, 16, included in Arsenal's squad for Dubai camp**\
+`The pair will be joined by several other Arsenal academy players during the warm weather camp.`\
+https://nytimes.com/athletic/6117840/2025/02/06/arsenal-max-dowman-jack-porter-dubai/
+
+**Japan Seeks to Preserve Status Quo With Trump. That May Be a Big Ask.**\
+`Prime Minister Shigeru Ishiba is expected to cite his country’s increased investment in the U.S. and its regional security role when he meets President Trump on Friday.`\
+https://nytimes.com/2025/02/06/world/asia/japan-ishiba-trump-summit.html
+
+**Man United's Lisandro Martinez suffers ACL injury**\
+`Martinez has played 32 games for United this season, starting 20 out of 22 in the Premier League.`\
+https://nytimes.com/athletic/6107373/2025/02/06/lisandro-martinez-injury-acl-man-utd/
+
 **Phillies spring training preview: Thoughts on every hitter headed to camp**\
 `No unit on this club will face more scrutiny this season than the lineup. Here are thoughts on each of the 29 hitters coming to camp. `\
 https://nytimes.com/athletic/6111334/2025/02/06/phillies-spring-training-2025-hitters/
