@@ -1,7 +1,3 @@
-**Until Saturday: College football fans' Super Bowl guide, plus Michigan's NCAA fight**\
-`Welcome to Until Saturday, the five-star college football newsletter: Three tips for following Super Bowl LIX for college fans.`\
-https://nytimes.com/athletic/6118401/2025/02/06/super-bowl-college-teams-until-saturday/
-
 **Federal Judge Deals Another Blow to Trump’s Birthright Citizenship Order**\
 `The injunction issued Thursday by a judge in Seattle came a day after an injunction stemming from a lawsuit in Maryland.`\
 https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/06/arts/television/apple-cider-vinegar-netflix.html
 **Free-spending Dodgers aren't bad for baseball, MLB commissioner says**\
 `At MLB's owners meetings, parity in the sport and the question of a salary cap are looming large. `\
 https://nytimes.com/athletic/6119056/2025/02/06/dodgers-not-bad-for-baseball-commissioner/
+
+**Chicago Bears matriarch Virginia McCaskey dies at 102**\
+`The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
+https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/
 
