@@ -1,3 +1,15 @@
+**Quote of the Day: A Smoking Ban That Goes the Whole 11 Yards**\
+`Quotation of the Day for Thursday, February 6, 2025`\
+https://nytimes.com/2025/02/05/pageoneplus/quote-of-the-day-a-smoking-ban-that-goes-the-whole-11-yards.html
+
+**What the Kyle Kuzma, Jonas Valančiūnas trades really mean for the Washington Wizards**\
+`Washington's moves Wednesday marked the beginning of a new stage of their rebuild.`\
+https://nytimes.com/athletic/6117509/2025/02/05/kyle-kuzma-jonas-valanciunas-trade-deadline-nba/
+
+**Pelicans trading Brandon Ingram to Raptors for Kelly Olynyk, Bruce Brown**\
+`Ingram finally finds a new home after almost 10 months of uncertainty surrounding his future`\
+https://nytimes.com/athletic/6117417/2025/02/05/pelicans-brandon-ingram-raptors-trade/
+
 **Arkansas beats Texas, gives SEC a 14th viable NCAA Tournament contender**\
 `If the 14 teams make it, that'd beat the former record of 11 set by the Big East in 2011.`\
 https://nytimes.com/athletic/6117633/2025/02/05/john-caliparis-arkansas-texas-mens-basketball-result-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5938726/2025/02/05/pete-alonso-contract-mets-mlb-fr
 **Jimmy Butler trade grades: Saga finally ends with multi-team deal involving Warriors**\
 `Golden State adds some star power next to Stephen Curry, while the Pistons and Jazz get involved, too.`\
 https://nytimes.com/athletic/6117184/2025/02/05/jimmy-butler-trade-grades-heat-warriors/
-
-**Lonzo Ball, Bulls agree to 2-year extension: Sources**\
-`The second year of Ball’s contract is a team option, the sources said.`\
-https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
-
-**Canucks sign D Marcus Pettersson to 6-year extension**\
-`Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins.`\
-https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contract-extension/
-
-**Michigan hands Oregon fourth straight loss, trends toward NCAA Tournament bid**\
-`In handing the Ducks their fourth straight loss, Michigan continues a remarkable turnaround under first-year coach Dusty May.`\
-https://nytimes.com/athletic/6117349/2025/02/05/michigan-oregon-mens-basketball-big-ten/
 
