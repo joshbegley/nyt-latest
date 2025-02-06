@@ -1,3 +1,11 @@
+**Clippers acquire Bogdan Bogdanović from Hawks**\
+`Hawks receive Terance Mann, Bones Hyland and three second-round picks in return.`\
+https://nytimes.com/athletic/6092808/2025/02/06/atlanta-hawks-bogdan-bogdanovic-traded/
+
+**Abandoned in the Middle of Clinical Trials, Because of a Trump Order**\
+`The stop-work order on U.S.A.I.D.-funded research has left thousands of people with experimental drugs and devices in their bodies, with no access to monitoring or care.`\
+https://nytimes.com/2025/02/06/health/usaid-clinical-trials-funding-trump.html
+
 **Cleveland Harris, N.F.L. Coach Who Pushed for Diversity, Dies at 79**\
 `An assistant coach for 33 years, he never fulfilled his dream of becoming a head coach, a rarity for a Black man. But he pressed the league to open the door for future minority coaches.`\
 https://nytimes.com/2025/02/06/sports/football/cleveland-harris-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/climate/greenland-ice-quakes.html
 **What Lurks in This Flower’s Bizarrely Large Y Chromosome?**\
 `Scientists published a full genetic sequence of the genes that make some white campions male, and hope their work could unlock how the flower got that way.`\
 https://nytimes.com/2025/02/06/science/giant-y-chromosome-flower.html
-
-**Cavaliers acquire De'Andre Hunter from Hawks: Source**\
-`Hunter, 27, is averaging a career-high 19 points per game this season.`\
-https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-hawks/
-
-**Crosby's status unclear with 4 Nations, big weekend looming**\
-`Crosby's status this weekend against the Flyers and Rangers, and for the 4 Nations tournament, is murky because of an injury.`\
-https://nytimes.com/athletic/6118990/2025/02/06/sidney-crosby-injury-update-penguins/
 
