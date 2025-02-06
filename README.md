@@ -1,3 +1,7 @@
+**Every deal made during a monumental 2025 NBA trade season**\
+`Having trouble keeping track of every trade that happened in the NBA this season? We have you covered.`\
+https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-luka-doncic-jimmy-butler/
+
 **When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
 `A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
 https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-laker
 **Trump Vows to Improve Air Traffic Control System After Crash**\
 `The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
 https://nytimes.com/2025/02/06/us/politics/trump-faa-air-traffic-plane-crash.html
-
-**Richarlison injury 'didn't look good, another one to add to the list' - Postecoglou**\
-`The Brazilian was substituted in the first half of the Carabao Cup semi-final second leg at Anfield on Thursday.`\
-https://nytimes.com/athletic/6119479/2025/02/06/richarlison-injury-tottenham-postecoglou/
 
