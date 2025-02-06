@@ -1,3 +1,7 @@
+**Luis Rubiales trial: Luque accused Hermoso of 'jumping on the bandwagon to kill Rubiales'**\
+`Hermoso's Spain team-mates Putellas, Paredes and Codina, and one of the forward's friends testified on day four in Madrid`\
+https://nytimes.com/athletic/6118614/2025/02/06/rubiales-trial-luque-hermoso-messages/
+
 **Republican Leaders in Congress Meet With Netanyahu**\
 `The sessions come after President Trump made a surprise proposal to take over Gaza and send Palestinians elsewhere.`\
 https://nytimes.com/2025/02/06/us/politics/republicans-netanyahu.html
