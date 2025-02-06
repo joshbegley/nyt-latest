@@ -1,3 +1,11 @@
+**Global Temperatures Shattered Records in January**\
+`Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
+https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
+
+**What’s Cooking?**\
+`Aidan Deshong and Jacob Reed hit the road.`\
+https://nytimes.com/2025/02/05/crosswords/daily-puzzle-2025-02-06.html
+
 **Justice Dept. Says It Will Not Bring Charges in Investigation of Project Veritas**\
 `Prosecutors in New York had spent years pursuing a case against the conservative group over its role in the theft of a diary kept by Ashley Biden.`\
 https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-charges-in-investigation-of-project-veritas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
 **Astros to sign outfielder Ben Gamel: Sources**\
 `Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
 https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
-
-**Jimmy Butler heading to Warriors, agrees to extension: Sources**\
-`The Heat are trading Butler, 35, to Golden State in a massive trade that involves fives teams, several players.`\
-https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
-
-**Some federally-funded clinics still cannot access funds after grant freeze.**\
-`By Sarah Kliff and Noah Weiland`\
-https://nytimes.com/live/2025/02/05/us/trump-news/trump-federal-funding-freeze-health-clinics
 

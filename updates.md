@@ -1,3 +1,11 @@
+**Global Temperatures Shattered Records in January**\
+`Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
+https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
+
+**What’s Cooking?**\
+`Aidan Deshong and Jacob Reed hit the road.`\
+https://nytimes.com/2025/02/05/crosswords/daily-puzzle-2025-02-06.html
+
 **Justice Dept. Says It Will Not Bring Charges in Investigation of Project Veritas**\
 `Prosecutors in New York had spent years pursuing a case against the conservative group over its role in the theft of a diary kept by Ashley Biden.`\
 https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-charges-in-investigation-of-project-veritas.html
