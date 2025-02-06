@@ -1,3 +1,15 @@
+**What’s Next for MrBeast? Class Consciousness.**\
+`On YouTube, he’s long prompted people to do extreme tasks for money. But on his new reality show and in social media posts, MrBeast is showing a new motivation.`\
+https://nytimes.com/2025/02/06/arts/television/mrbeast-beast-games-reality-tv-youtube.html
+
+**Chelsea's Guiu expected to miss Brighton trip with injury**\
+`The 19-year-old appeared to sustain an injury towards the end of Monday's win over West Ham United.`\
+https://nytimes.com/athletic/6118911/2025/02/06/marc-guiu-injury-chelsea/
+
+**De'Andre Hunter trade grades: Cavaliers get just what they need on the wing**\
+`There are concerns with Hunter's availability, but if he's healthy, Cavs fans should be thrilled.`\
+https://nytimes.com/athletic/6119163/2025/02/06/deandre-hunter-cavs-trade-grades-nba/
+
 **A Judge Tried to Get Out of Jury Duty. What He Said Cost Him His Job.**\
 `Richard Snyder, a town justice in upstate New York, said he could not serve as an impartial grand juror because he believed anyone appearing before him was guilty.`\
 https://nytimes.com/2025/02/06/nyregion/richard-snyder-judge-grand-jury-duty.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/06/health/usaid-clinical-trials-funding-trump.html
 **Cleveland Harris, N.F.L. Coach Who Pushed for Diversity, Dies at 79**\
 `An assistant coach for 33 years, he never fulfilled his dream of becoming a head coach, a rarity for a Black man. But he pressed the league to open the door for future minority coaches.`\
 https://nytimes.com/2025/02/06/sports/football/cleveland-harris-dead.html
-
-**‘Urinetown’ Review: More Than Toilet Humor**\
-`The Encores! revival of the musical from Mark Hollmann and Greg Kotis seems even more relevant today.`\
-https://nytimes.com/2025/02/06/theater/urinetown-review-encores.html
-
-**Palmerston, the British Foreign Service Cat, Takes Up New Post in Bermuda**\
-`The cat, who first served in 2016, had feuded with Larry, the chief mouser at 10 Downing Street.`\
-https://nytimes.com/2025/02/06/world/europe/cat-britain-palmerston-bermuda.html
-
-**'We just have to learn from it': Pistons vow to bounce back from painful last-second losses**\
-`Cade Cunningham led a furious Pistons' last-minute comeback against the Cavs, only for Detroit to experience another last-second heartbreak.`\
-https://nytimes.com/athletic/6117766/2025/02/06/pistons-cavs-cade-cunningham/
 
