@@ -1,3 +1,15 @@
+**Consumer bureau backs off legal fights as Treasury officials take charge.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
+
+**Irv Gotti: Key Milestones in the Life of the Rap Mogul**\
+`The producer, who died on Wednesday, built Murder Inc. into one of the most influential record labels of the early 2000s. His career was marred by a federal investigation and trial.`\
+https://nytimes.com/2025/02/06/arts/irv-gotti-murder-inc-timeline.html
+
+**A Judge Delayed Trump’s Plan to Persuade Federal Workers to Quit**\
+`Also, New Orleans is rattled but ready for the Super Bowl. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/02/06/briefing/delay-trump-resignation-plan-super-bowl-security.html
+
 **Days of Heavy Rain Turns California Lake Into a Quirky Tourist Spot**\
 `For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
 https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
 **NCAA changes transgender participation policy after Donald Trump's executive order**\
 `The U.S. Department of Education said Thursday it would launch investigations into San Jose State and the University of Pennsylvania.`\
 https://nytimes.com/athletic/6119241/2025/02/06/ncaa-transgender-policy-donald-trump/
-
-**Big bets rolling in early on Super Bowl, including $1.1 million on the Eagles**\
-`Ben Fawkes talks early action on the Super Bowl, including the five biggest bets so far and how bettors are all in on Saquon Barkley props.`\
-https://nytimes.com/athletic/6116265/2025/02/06/super-bowl-2025-biggest-betting-trends/
-
-**All you need to know about the Carabao Cup final**\
-`We bring you all you need to know about the Carabao Cup final including the impact on Fantasy Premier League.`\
-https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtures-explained/
-
-**The Giants' projected 2025 season win total is predictably unexciting**\
-`It probably isn't a surprise that the Giants are projected to be an average team, given the past few years. But is that a bad thing?`\
-https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
 
