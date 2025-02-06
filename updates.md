@@ -1,3 +1,7 @@
+**Cleveland Harris, N.F.L. Coach Who Pushed for Diversity, Dies at 79**\
+`An assistant coach for 33 years, he never fulfilled his dream of becoming a head coach, a rarity for a Black man. But he pressed the league to open the door for future minority coaches.`\
+https://nytimes.com/2025/02/06/sports/football/cleveland-harris-dead.html
+
 **‘Urinetown’ Review: More Than Toilet Humor**\
 `The Encores! revival of the musical from Mark Hollmann and Greg Kotis seems even more relevant today.`\
 https://nytimes.com/2025/02/06/theater/urinetown-review-encores.html
