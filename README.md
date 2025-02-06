@@ -1,3 +1,7 @@
+**Andreessen Horowitz Defends Hiring of Daniel Penny to Its Investors**\
+`Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, was hired to join the firm’s American Dynamism investment team.`\
+https://nytimes.com/2025/02/05/technology/daniel-penny-andreessen-horowitz-investors.html
+
 **Pete Alonso to return to Mets on 2-year, $54 million deal: Sources**\
 `After hitting 34 homers with a .788 OPS in 2024, Alonso entered this offseason as the No. 8 player on The Athletic’s Free Agent Big Board.`\
 https://nytimes.com/athletic/5938726/2025/02/05/pete-alonso-contract-mets-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/books/anson-rabinbach-dead.html
 **MLB owners debate push for salary cap at summit**\
 `Opinions among owners are mixed, people briefed on the discussions said. The union has said in the past players will not accept a cap.`\
 https://nytimes.com/athletic/6117420/2025/02/05/mlb-owners-salary-cap-push/
-
-**Corrections: Feb. 6, 2025**\
-`Corrections that appeared in print on Thursday, Feb. 6, 2025.`\
-https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
 
