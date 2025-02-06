@@ -1,3 +1,15 @@
+**Justice Dept. Says It Will Not Bring Charges in Investigation of Project Veritas**\
+`Prosecutors in New York had spent years pursuing a case against the conservative group over its role in the theft of a diary kept by Ashley Biden.`\
+https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-charges-in-investigation-of-project-veritas.html
+
+**Anson Rabinbach, Leading Historian of Nazi Culture, Dies at 79**\
+`He demonstrated that fascism had its own intellectual roots and showed how ideas, theories and an antisemitic “ethos” influenced German culture and policymaking.`\
+https://nytimes.com/2025/02/05/books/anson-rabinbach-dead.html
+
+**MLB owners debate push for salary cap at summit**\
+`Opinions among owners are mixed, people briefed on the discussions said. The union has said in the past players will not accept a cap.`\
+https://nytimes.com/athletic/6117420/2025/02/05/mlb-owners-salary-cap-push/
+
 **Corrections: Feb. 6, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 6, 2025.`\
 https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade
 **Some federally-funded clinics still cannot access funds after grant freeze.**\
 `By Sarah Kliff and Noah Weiland`\
 https://nytimes.com/live/2025/02/05/us/trump-news/trump-federal-funding-freeze-health-clinics
-
-**Once Raring to Fight, Newsom Softens His Approach Toward Trump**\
-`Gov. Gavin Newsom, a Democrat, has avoided criticizing President Trump as he has sought disaster aid for fire victims in Los Angeles.`\
-https://nytimes.com/2025/02/05/us/gavin-newsom-trump-california.html
-
-**Trump Administration Deepens Pressure on Federal Workers to Resign**\
-`Rattled civil servants struggled with whether to leave their posts in advance of a Thursday deadline as Elon Musk continued his push through agencies.`\
-https://nytimes.com/2025/02/05/us/politics/trump-musk-federal-workers.html
-
-**Did Mayor Adams Get a Colonoscopy? His Answer Led to Confusion.**\
-`Mayor Eric Adams of New York said he underwent anesthesia last week for what officials said was a colonoscopy, but then the story changed.`\
-https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
 
