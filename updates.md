@@ -1,3 +1,11 @@
+**Wizards continue overhaul with deal that nets Marcus Smart, first-rounder**\
+`The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
+https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
+
+**Samantha Power: Killing U.S.A.I.D. Is a Win for Autocrats Everywhere**\
+`The attacks on the agency are cruel and counterproductive.`\
+https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
+
 **N.Y.C. Officials Give City Workers Leeway to Yield to ICE Agents**\
 `City workers at migrant shelters, schools and hospitals can allow federal immigration personnel to enter city property if they feel threatened by the agents, a memo from City Hall said.`\
 https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html

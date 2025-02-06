@@ -1,3 +1,11 @@
+**Wizards continue overhaul with deal that nets Marcus Smart, first-rounder**\
+`The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
+https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
+
+**Samantha Power: Killing U.S.A.I.D. Is a Win for Autocrats Everywhere**\
+`The attacks on the agency are cruel and counterproductive.`\
+https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
+
 **N.Y.C. Officials Give City Workers Leeway to Yield to ICE Agents**\
 `City workers at migrant shelters, schools and hospitals can allow federal immigration personnel to enter city property if they feel threatened by the agents, a memo from City Hall said.`\
 https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-
 **Read the Guidance Sent to New York City Shelters**\
 `On Jan. 13, City Hall instructed city employees how to respond if federal law enforcement officers showed up on city property.`\
 https://nytimes.com/interactive/2025/02/06/nyregion/nyc-memo-shelters.html
-
-**Trump Met PGA Commissioner About Saudi Golf Tour Deal**\
-`Tour officials said the session at the White House “brought us closer to a final deal” that would be subject to Justice Department antitrust scrutiny.`\
-https://nytimes.com/2025/02/06/us/politics/trump-golf-pga-liv-monahan.html
-
-**C.D.C. Posts, Then Deletes, Data on Bird Flu Spread Between Cats and People**\
-`The data, which appeared fleetingly online on Wednesday, confirmed transmission in two households. Scientists called on the agency to release the full report.`\
-https://nytimes.com/2025/02/06/health/cdc-bird-flu-cats-people.html
 
