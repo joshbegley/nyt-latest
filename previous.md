@@ -1,3 +1,11 @@
+**New-look Leafs: Toronto shuffles lines as Mitch Marner, Anthony Stolarz return**\
+`Mitch Marner to play with John Tavares and William Nylander — a rare combination for the Maple Leafs.`\
+https://nytimes.com/athletic/6119019/2025/02/06/maple-leafs-marner-stolarz-lines/
+
+**On the U.S.A.I.D. Chopping Block: Elephants, Tigers and Coral Reefs**\
+`Among the programs affected by the possible freeze of American foreign aid are those that establish and support overseas national parks and conservation areas.`\
+https://nytimes.com/2025/02/06/travel/national-parks-tourism-usaid.html
+
 **Justice Dept.’s Weaponization Group Underscores Trump’s Quest for Retribution**\
 `The memo signaled the most significant first step in deploying the levers of government to carry out President Trump’s repeated suggestions that he will pursue those he perceives to be his enemies.`\
 https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-group.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/learning/are-youth-sports-too-stressful-teenagers
 **PGA Tour commissioner Jay Monahan meets with Donald Trump amid PIF negotiations**\
 `The golf community has been waiting for the finalized version of a PGA Tour-PIF agreement to materialize.`\
 https://nytimes.com/athletic/6119248/2025/02/06/donald-trump-pga-tour-jay-monahan-pif/
-
-**Brian Kelly repudiates claim he hasn’t supported Brooks Jr. since brain surgery**\
-`Brooks Jr. said LSU coaches pressured him to play through his symptoms and threatened him he could lose his starting spot if he sat out.`\
-https://nytimes.com/athletic/6118774/2025/02/06/lsu-brian-kelly-greg-brooks-jr-surgery/
-
-**What’s Next for MrBeast? Class Consciousness.**\
-`On YouTube, he’s long prompted people to do extreme tasks for money. But on his new reality show and in social media posts, MrBeast is showing a new motivation.`\
-https://nytimes.com/2025/02/06/arts/television/mrbeast-beast-games-reality-tv-youtube.html
 

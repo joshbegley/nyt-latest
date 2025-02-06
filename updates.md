@@ -1,3 +1,11 @@
+**New-look Leafs: Toronto shuffles lines as Mitch Marner, Anthony Stolarz return**\
+`Mitch Marner to play with John Tavares and William Nylander — a rare combination for the Maple Leafs.`\
+https://nytimes.com/athletic/6119019/2025/02/06/maple-leafs-marner-stolarz-lines/
+
+**On the U.S.A.I.D. Chopping Block: Elephants, Tigers and Coral Reefs**\
+`Among the programs affected by the possible freeze of American foreign aid are those that establish and support overseas national parks and conservation areas.`\
+https://nytimes.com/2025/02/06/travel/national-parks-tourism-usaid.html
+
 **Justice Dept.’s Weaponization Group Underscores Trump’s Quest for Retribution**\
 `The memo signaled the most significant first step in deploying the levers of government to carry out President Trump’s repeated suggestions that he will pursue those he perceives to be his enemies.`\
 https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-group.html
