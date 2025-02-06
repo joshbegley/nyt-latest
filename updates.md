@@ -1,3 +1,11 @@
+**Republican Leaders in Congress Meet With Netanyahu**\
+`The sessions come after President Trump made a surprise proposal to take over Gaza and send Palestinians elsewhere.`\
+https://nytimes.com/2025/02/06/us/politics/republicans-netanyahu.html
+
+**Trump, the Panama Canal and the Hong Kong Firm at the Heart of a Showdown**\
+`The canal’s two biggest ports are operated by a Hong Kong company with global reach. The Trump administration sees a Chinese threat to U.S. security.`\
+https://nytimes.com/2025/02/06/business/panama-canal-ck-hutchison.html
+
 **Just how bad are the Leafs at getting offence from the defence? Breaking it down**\
 `The Leafs are last in the NHL at getting goals from the defence. Breaking down the numbers behind the trend.`\
 https://nytimes.com/athletic/6036493/2025/02/06/maple-leafs-defence-goals-points-nhl/

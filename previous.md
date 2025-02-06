@@ -1,3 +1,11 @@
+**Republican Leaders in Congress Meet With Netanyahu**\
+`The sessions come after President Trump made a surprise proposal to take over Gaza and send Palestinians elsewhere.`\
+https://nytimes.com/2025/02/06/us/politics/republicans-netanyahu.html
+
+**Trump, the Panama Canal and the Hong Kong Firm at the Heart of a Showdown**\
+`The canal’s two biggest ports are operated by a Hong Kong company with global reach. The Trump administration sees a Chinese threat to U.S. security.`\
+https://nytimes.com/2025/02/06/business/panama-canal-ck-hutchison.html
+
 **Just how bad are the Leafs at getting offence from the defence? Breaking it down**\
 `The Leafs are last in the NHL at getting goals from the defence. Breaking down the numbers behind the trend.`\
 https://nytimes.com/athletic/6036493/2025/02/06/maple-leafs-defence-goals-points-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/well/organizing-books.html
 **Thunder's Chet Holmgren set to return from hip injury**\
 `Holmgren last played on Nov. 10 when he suffered a hip injury against the Warriors.`\
 https://nytimes.com/athletic/6118612/2025/02/06/chet-holmgren-return-okc-thunder-nba/
-
-**After upgrading bullpen, outfield, Twins could next add backup shortstop: Sources**\
-`The Twins have expressed interest in signing a backup shortstop, sources say. Were they to do so, they may need to trim payroll via a trade.`\
-https://nytimes.com/athletic/6117814/2025/02/06/minnesota-twins-offseason-signings-shortstop/
-
-**The Bounce: Why Jimmy Butler, not Kevin Durant, went to the Warriors as the NBA trade deadline nears**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6118402/2025/02/06/jimmy-butler-warriors-heat-kevin-durant-suns-nba-trade-deadline-the-bounce/
 
