@@ -1,3 +1,19 @@
+**Palace set to lose academy prospect Derry after contract rejection**\
+`Derry, 17, scored 16 goals in 22 games for Palace Under-18s last season.`\
+https://nytimes.com/athletic/6118856/2025/02/06/jesse-derry-crystal-palace/
+
+**Suit Over Firing by Trump Could Pave Way for Broader Presidential Power**\
+`If the case reaches the Supreme Court, its conservative majority will be receptive to Donald J. Trump’s argument that presidents have unlimited power to remove members of independent agencies.`\
+https://nytimes.com/2025/02/06/us/politics/trump-firing-labor-supreme-court.html
+
+**MLB owners approve John Seidler as new head of Padres**\
+`John Seidler replaces his younger brother, the late Peter Seidler, atop the Padres organization. `\
+https://nytimes.com/athletic/6118697/2025/02/06/mlb-owners-approve-seidler-padres/
+
+**‘Screams and Smoke’: How a Deadly Mass Shooting Unfolded in Sweden**\
+`The police responding to the attack encountered firing so intense that they struggled to tell how many gunmen were on the scene, an official said.`\
+https://nytimes.com/2025/02/06/world/europe/sweden-shooting-scene.html
+
 **Marijuana Dependence Linked to Higher Risk of Death**\
 `Two new Canadian studies are the largest to date looking at death rates and psychosis associated with cannabis use disorder.`\
 https://nytimes.com/2025/02/06/health/cannabis-marijuana-death-psychosis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/republicans-netanyahu.html
 **Trump, the Panama Canal and the Hong Kong Firm at the Heart of a Showdown**\
 `The canal’s two biggest ports are operated by a Hong Kong company with global reach. The Trump administration sees a Chinese threat to U.S. security.`\
 https://nytimes.com/2025/02/06/business/panama-canal-ck-hutchison.html
-
-**Just how bad are the Leafs at getting offence from the defence? Breaking it down**\
-`The Leafs are last in the NHL at getting goals from the defence. Breaking down the numbers behind the trend.`\
-https://nytimes.com/athletic/6036493/2025/02/06/maple-leafs-defence-goals-points-nhl/
-
-**How to Boil an Egg? Scientists Claim to Have Cracked the Recipe.**\
-`Their new method takes 32 minutes.`\
-https://nytimes.com/2025/02/06/science/boiled-egg-science-recipe.html
-
-**Here’s the Beans**\
-`Alexa Weibel’s creamy, spicy tomato beans and greens are a Reddit favorite: “I don’t know what kind of magic is at work here. 10/10. No notes.”`\
-https://nytimes.com/2025/02/06/dining/reddit-beans.html
-
-**Fossils Preserve Both Skin and Scales From an Ancient Sea Monster**\
-`The mix of features offers new clues to how plesiosaurs navigated prehistoric oceans.`\
-https://nytimes.com/2025/02/06/science/plesiosaur-fossils-skin-scales.html
 
