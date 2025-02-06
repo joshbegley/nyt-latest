@@ -1,3 +1,11 @@
+**Marijuana Dependence Linked to Higher Risk of Death**\
+`Two new Canadian studies are the largest to date looking at death rates and psychosis associated with cannabis use disorder.`\
+https://nytimes.com/2025/02/06/health/cannabis-marijuana-death-psychosis.html
+
+**Susan Alcorn, Voyager on Pedal Steel Guitar, Dies at 71**\
+`With a daring avant-garde approach, she pushed the frontiers of an instrument best known for speaking with a down-home accent.`\
+https://nytimes.com/2025/02/06/arts/music/susan-alcorn-dead.html
+
 **Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
