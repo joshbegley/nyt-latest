@@ -1,3 +1,11 @@
+**Clippers acquire Bogdan Bogdanović from Hawks**\
+`Hawks receive Terance Mann, Bones Hyland and three second-round picks in return.`\
+https://nytimes.com/athletic/6092808/2025/02/06/atlanta-hawks-bogdan-bogdanovic-traded/
+
+**Abandoned in the Middle of Clinical Trials, Because of a Trump Order**\
+`The stop-work order on U.S.A.I.D.-funded research has left thousands of people with experimental drugs and devices in their bodies, with no access to monitoring or care.`\
+https://nytimes.com/2025/02/06/health/usaid-clinical-trials-funding-trump.html
+
 **Cleveland Harris, N.F.L. Coach Who Pushed for Diversity, Dies at 79**\
 `An assistant coach for 33 years, he never fulfilled his dream of becoming a head coach, a rarity for a Black man. But he pressed the league to open the door for future minority coaches.`\
 https://nytimes.com/2025/02/06/sports/football/cleveland-harris-dead.html
