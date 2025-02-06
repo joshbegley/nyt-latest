@@ -1,3 +1,11 @@
+**Watch: Jimmy Butler or the Warriors — who needed this more?**\
+`The Athletic NBA Daily discuss Jimmy Butler's trade to the Golden State Warriors.`\
+https://nytimes.com/athletic/6117972/2025/02/06/nba-daily-jimmy-butler-warriors-trade/
+
+**Bubble Watch: Who can make plans for March, and who still has work to do?**\
+`With roughly 10 games remaining for most teams, a large number of teams can still call themselves tournament hopefuls.`\
+https://nytimes.com/athletic/6116961/2025/02/06/college-basketball-bubble-watch-mens-ncaa-tournament-bids/
+
 **More TikTok views than Taylor Swift. Report says women's sport ecosystem is 'thriving'**\
 `From Ilona Maher to Caitlin Clark, female athletes are finding their voice on social media, a Women's Sport Trust report says. `\
 https://nytimes.com/athletic/6115808/2025/02/06/womens-sport-trust-2024-review-ilona-maher-chelsea-women-caitlin-clark/
