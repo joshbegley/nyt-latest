@@ -1,3 +1,11 @@
+**Justice Dept.’s Weaponization Group Underscores Trump’s Quest for Retribution**\
+`The memo signaled the most significant first step in deploying the levers of government to carry out President Trump’s repeated suggestions that he will pursue those he perceives to be his enemies.`\
+https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-group.html
+
+**Kendrick Lamar reflects on 'grind' that preceded headlining Super Bowl show**\
+`Lamar performed in the Super Bowl LVI halftime show as part of Dr. Dre’s halftime show with Snoop Dogg, Eminem, 50 Cent and Mary J. Blige`\
+https://nytimes.com/athletic/6119292/2025/02/06/kendrick-lamar-super-bowl-halftime-performance/
+
 **Several Accused of Impersonating Agents Amid Trump Push on Deportations**\
 `At least three people in three states have recently been charged with pretending to be immigration agents, the authorities said.`\
 https://nytimes.com/2025/02/06/us/ice-raids-deportations-false-reports-impersonators.html
