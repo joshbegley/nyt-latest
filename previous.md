@@ -1,3 +1,7 @@
+**Trump Pauses Online Tirade to Preach Unity**\
+`At the National Prayer Breakfast in Washington, Mr. Trump took a moment to speak of bipartisan comity. Just hours earlier, he torched the federal bureaucracy, the global order, the media and Democrats.`\
+https://nytimes.com/2025/02/06/us/politics/trump-pauses-online-tirade-to-preach-unity.html
+
 **Consumer bureau backs off legal fights as Treasury officials take charge.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.ht
 **Jobs at U.S.A.I.D. will drop from more than 10,000 to about 290, according to several people.**\
 `Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
-
-**NCAA changes transgender participation policy after Donald Trump's executive order**\
-`The U.S. Department of Education said Thursday it would launch investigations into San Jose State and the University of Pennsylvania.`\
-https://nytimes.com/athletic/6119241/2025/02/06/ncaa-transgender-policy-donald-trump/
 

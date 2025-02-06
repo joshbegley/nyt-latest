@@ -1,3 +1,7 @@
+**Trump Pauses Online Tirade to Preach Unity**\
+`At the National Prayer Breakfast in Washington, Mr. Trump took a moment to speak of bipartisan comity. Just hours earlier, he torched the federal bureaucracy, the global order, the media and Democrats.`\
+https://nytimes.com/2025/02/06/us/politics/trump-pauses-online-tirade-to-preach-unity.html
+
 **Consumer bureau backs off legal fights as Treasury officials take charge.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
