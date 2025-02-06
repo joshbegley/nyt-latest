@@ -1,3 +1,7 @@
+**Which Big 12 teams are on the rise (and in trouble) after the winter transfer window?**\
+`The Big 12 added intriguing QBs in the winter portal window. Devon Dampier, from New Mexico, figures to be a great fit at Utah.`\
+https://nytimes.com/athletic/6116758/2025/02/06/big-12-transfer-portal-winners-losers/
+
 **Super Bowl guests love a great party game. Our ultimate prop sheet delivers the fun**\
 `Enhance your Super Bowl 59 experience with our ultimate party prop sheet, which captures all the pomp and circumstance surrounding the game.`\
 https://nytimes.com/athletic/6100227/2025/02/06/super-bowl-2025-party-prop-bet-sheet-taylor-swift/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/business/economy/jobs-report-revisions.html
 **I’m H.I.V.-Positive But Undetectable. Do Casual Sex Partners Need to Know?**\
 `The magazine’s Ethicist columnist on medical disclosure and marital malaise.`\
 https://nytimes.com/2025/02/06/magazine/hiv-disclosure-casual-partners-ethics.html
-
-**Treasury Sought to Freeze Foreign Aid Payments, Emails Show**\
-`Trump administration appointees and allies of Elon Musk wanted to use the Treasury’s sensitive payment system to block payments.`\
-https://nytimes.com/2025/02/06/us/politics/trump-musk-usaid.html
 
