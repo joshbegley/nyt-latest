@@ -1,4 +1,8 @@
-**Journeyman outfielder Tommy Pham signs 1-year deal with Pirates: Sources**\
+**Heat Today: With Jimmy Butler gone, 5 ways Miami can develop its long-term identity**\
+`The drama has finally ended. Here's how Miami can move forward.`\
+https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-bam-adebayo-kelel-ware-nba-trade-deadline/
+
+**Journeyman outfielder Tommy Pham signs 1-year deal with Pirates**\
 `The Pirates will pay Pham, who turns 37 in March, $4 million to bring veteran experience and depth to their outfield.`\
 https://nytimes.com/athletic/6118423/2025/02/06/tommy-pham-signs-pittsburgh-pirates/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/business/eaton-fire-power-lines-edison.html
 **Man United took 'risk' by not making more January signings - Amorim**\
 `Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month.`\
 https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-january-risk/
-
-**Arsenal's Saka and White travel with Dubai training camp squad**\
-`Bukayo Saka and Ben White have travelled with the Arsenal squad for the mid-season warm-weather training camp in Dubai.`\
-https://nytimes.com/athletic/6118100/2025/02/06/arsenal-dubai-saka-white-training-camp/
 
