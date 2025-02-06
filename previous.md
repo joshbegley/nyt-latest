@@ -1,3 +1,7 @@
+**‘Urinetown’ Review: More Than Toilet Humor**\
+`The Encores! revival of the musical from Mark Hollmann and Greg Kotis seems even more relevant today.`\
+https://nytimes.com/2025/02/06/theater/urinetown-review-encores.html
+
 **Palmerston, the British Foreign Service Cat, Takes Up New Post in Bermuda**\
 `The cat, who first served in 2016, had feuded with Larry, the chief mouser at 10 Downing Street.`\
 https://nytimes.com/2025/02/06/world/europe/cat-britain-palmerston-bermuda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118990/2025/02/06/sidney-crosby-injury-update-peng
 **Until Saturday: College football fans' Super Bowl guide, plus Michigan's NCAA fight**\
 `Welcome to Until Saturday, the five-star college football newsletter: Three tips for following Super Bowl LIX for college fans.`\
 https://nytimes.com/athletic/6118401/2025/02/06/super-bowl-college-teams-until-saturday/
-
-**Federal Judge Deals Another Blow to Trump’s Birthright Citizenship Order**\
-`The injunction issued Thursday by a judge in Seattle came a day after an injunction stemming from a lawsuit in Maryland.`\
-https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.html
 

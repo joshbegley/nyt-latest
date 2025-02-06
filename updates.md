@@ -1,3 +1,7 @@
+**‘Urinetown’ Review: More Than Toilet Humor**\
+`The Encores! revival of the musical from Mark Hollmann and Greg Kotis seems even more relevant today.`\
+https://nytimes.com/2025/02/06/theater/urinetown-review-encores.html
+
 **Palmerston, the British Foreign Service Cat, Takes Up New Post in Bermuda**\
 `The cat, who first served in 2016, had feuded with Larry, the chief mouser at 10 Downing Street.`\
 https://nytimes.com/2025/02/06/world/europe/cat-britain-palmerston-bermuda.html
