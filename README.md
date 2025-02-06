@@ -1,3 +1,11 @@
+**Marijuana Dependence Linked to Higher Risk of Death**\
+`Two new Canadian studies are the largest to date looking at death rates and psychosis associated with cannabis use disorder.`\
+https://nytimes.com/2025/02/06/health/cannabis-marijuana-death-psychosis.html
+
+**Susan Alcorn, Voyager on Pedal Steel Guitar, Dies at 71**\
+`With a daring avant-garde approach, she pushed the frontiers of an instrument best known for speaking with a down-home accent.`\
+https://nytimes.com/2025/02/06/arts/music/susan-alcorn-dead.html
+
 **Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/dining/reddit-beans.html
 **Fossils Preserve Both Skin and Scales From an Ancient Sea Monster**\
 `The mix of features offers new clues to how plesiosaurs navigated prehistoric oceans.`\
 https://nytimes.com/2025/02/06/science/plesiosaur-fossils-skin-scales.html
-
-**The Real Reason Big Tech Is Cozying Up to Trump**\
-`Big Tech is looking to President Trump for a bailout.`\
-https://nytimes.com/2025/02/06/opinion/trump-deepseek-regulation-bailout-big-tech.html
-
-**Having Big Feelings? Here’s How to ‘Shift’ Them.**\
-`In his new book, the emotion researcher Ethan Kross shares strategies for managing life’s curveballs.`\
-https://nytimes.com/2025/02/06/well/how-to-change-your-mood.html
 
