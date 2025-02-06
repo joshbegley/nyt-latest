@@ -1,3 +1,7 @@
+**Palmerston, the British Foreign Service Cat, Takes Up New Post in Bermuda**\
+`The cat, who first served in 2016, had feuded with Larry, the chief mouser at 10 Downing Street.`\
+https://nytimes.com/2025/02/06/world/europe/cat-britain-palmerston-bermuda.html
+
 **'We just have to learn from it': Pistons vow to bounce back from painful last-second losses**\
 `Cade Cunningham led a furious Pistons' last-minute comeback against the Cavs, only for Detroit to experience another last-second heartbreak.`\
 https://nytimes.com/athletic/6117766/2025/02/06/pistons-cavs-cade-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118401/2025/02/06/super-bowl-college-teams-until-s
 **Federal Judge Deals Another Blow to Trump’s Birthright Citizenship Order**\
 `The injunction issued Thursday by a judge in Seattle came a day after an injunction stemming from a lawsuit in Maryland.`\
 https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.html
-
-**The Price of Fraud in Alzheimer’s Research**\
-`Readers worry that fraud may tarnish the field and slow the race for a cure. Also: Charles Blow’s farewell; treatment for addiction; the Gulf of America; Socrates and Donald Trump.`\
-https://nytimes.com/2025/02/06/opinion/alzheimers-research-fraud.html
 
