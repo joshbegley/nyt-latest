@@ -1,3 +1,7 @@
+**Israel Tells Military to Draft Plan for Gazans to Leave**\
+`The order by the Israeli defense minister comes after President Trump proposed a U.S. takeover of Gaza and said that all two million Palestinians in the enclave should be displaced.`\
+https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinians-leave.html
+
 **Rosenthal: Pete Alonso's short-term deal showcases the need for a bounce-back 2025 season**\
 `Three other Scott Boras clients recently opted out of short-term deals after one year, then struck belated free-agent riches.`\
 https://nytimes.com/athletic/6118091/2025/02/06/pete-alonso-mets-contract-boras/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117972/2025/02/06/nba-daily-jimmy-butler-warriors-
 **Bubble Watch: Who can make plans for March, and who still has work to do?**\
 `With roughly 10 games remaining for most teams, a large number of teams can still call themselves tournament hopefuls.`\
 https://nytimes.com/athletic/6116961/2025/02/06/college-basketball-bubble-watch-mens-ncaa-tournament-bids/
-
-**More TikTok views than Taylor Swift. Report says women's sport ecosystem is 'thriving'**\
-`From Ilona Maher to Caitlin Clark, female athletes are finding their voice on social media, a Women's Sport Trust report says. `\
-https://nytimes.com/athletic/6115808/2025/02/06/womens-sport-trust-2024-review-ilona-maher-chelsea-women-caitlin-clark/
 
