@@ -1,3 +1,15 @@
+**Justice Dept. Says It Will Not Bring Charges in Investigation of Project Veritas**\
+`Prosecutors in New York had spent years pursuing a case against the conservative group over its role in the theft of a diary kept by Ashley Biden.`\
+https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-charges-in-investigation-of-project-veritas.html
+
+**Anson Rabinbach, Leading Historian of Nazi Culture, Dies at 79**\
+`He demonstrated that fascism had its own intellectual roots and showed how ideas, theories and an antisemitic “ethos” influenced German culture and policymaking.`\
+https://nytimes.com/2025/02/05/books/anson-rabinbach-dead.html
+
+**MLB owners debate push for salary cap at summit**\
+`Opinions among owners are mixed, people briefed on the discussions said. The union has said in the past players will not accept a cap.`\
+https://nytimes.com/athletic/6117420/2025/02/05/mlb-owners-salary-cap-push/
+
 **Corrections: Feb. 6, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 6, 2025.`\
 https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
