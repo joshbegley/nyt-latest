@@ -1,3 +1,7 @@
+**Trump’s Gaza Takeover Plan May Sound Death Knell for the Two-State Solution**\
+`Already unlikely, the prospects for creation of a Palestinian state alongside Israel could vanish altogether if the United States takes over Gaza and displaces the population, as President Trump proposes.`\
+https://nytimes.com/2025/02/06/us/politics/trump-gaza-two-state.html
+
 **Four Emerging Designers to Put on Your Radar This Season**\
 `These rising stars are creating fresh silhouettes out of classic materials.`\
 https://nytimes.com/2025/02/06/t-magazine/new-designers-fall-2025-fashion.html
