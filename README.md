@@ -1,3 +1,7 @@
+**Trump’s Vision for Gaza Gives No Immediate Answers About the War**\
+`President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
+https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
+
 **Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
 `U.`\
 https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/style/courthouse-wedding-ceremonies.html
 **Why Coal Has Been So Hard to Quit in the U.S.**\
 `What the economics of coal-rich states like Wyoming tells us about the transition away from the dirtiest fossil fuel.`\
 https://nytimes.com/2025/02/06/climate/why-coal-has-been-so-hard-to-quit-in-the-us.html
-
-**Golden State Valkyries to sign veteran guard Tiffany Hayes**\
-`Tiffany Hayes is currently averaging 18.5 points for the Laces in the Unrivaled league.`\
-https://nytimes.com/athletic/6118887/2025/02/06/golden-state-valkyries-signing-tiffany-hayes/
 
