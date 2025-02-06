@@ -1,3 +1,11 @@
+**See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
+`Documents and satellite imagery show how much buildup is underway at the military site.`\
+https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
+
+**U.S. Is Holding Migrants in Cells That Once Held Al Qaeda Suspects**\
+`The Trump administration said the 10 men who were sent to a prison on the base at Guantánamo Bay are affiliated with gangs.`\
+https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
+
 **Astros to sign outfielder Ben Gamel: Sources**\
 `Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
 https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
