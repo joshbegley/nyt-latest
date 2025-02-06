@@ -1,3 +1,7 @@
+**What is the NET, and what can it tell you about the NCAA Tournament bracket?**\
+`Of the 24 teams evaluated over that three-year period, any squad with at least nine Quad 1 losses did not qualify for the NCAA Tournament.`\
+https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-seeding-bubble/
+
 **In a Mexican Town Known for Big Waves, a Stylish New Hotel**\
 `Plus: a fashion designer’s floral rugs, a rooftop restaurant in Jaipur and more recommendations from T Magazine.`\
 https://nytimes.com/2025/02/06/t-magazine/mexico-coast-hotel.html
