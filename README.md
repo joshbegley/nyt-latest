@@ -19,7 +19,7 @@ https://nytimes.com/2025/02/06/dining/milk.html
 https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
 
 **Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
-`U.`\
+`United States international Kristie Mewis told a court on Thursday that her fiancee Sam Kerr was “speaking her truth in how she was feeling” when she called a police officer “stupid and white&#8221;.`\
 https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
 
 **Tariffs and Tightening Controls Threaten a Way of Life on the Border**\
