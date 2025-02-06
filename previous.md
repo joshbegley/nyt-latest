@@ -1,3 +1,7 @@
+**Brandon Ingram trade grades: Pelicans finally part ways with one-time All-Star**\
+`Ingram has been injured much of the season and will be an unrestricted free agent this summer.`\
+https://nytimes.com/athletic/6117647/2025/02/06/brandon-ingram-trade-grades-pelicans-raptors/
+
 **Classy, combative and with a point to prove - why Everton have signed Alcaraz**\
 `The 22-year-old has played in Argentina, Brazil, Italy and the Premier League - Everton see him as a signing with minimal risk and potential`\
 https://nytimes.com/athletic/6115148/2025/02/06/carlos-alcaraz-everton-transfer-flamengo-southampton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6096933/2025/02/06/manchester-united-strikers-trans
 **Stop making football less fun. Please**\
 `Football is meant to be fun. As minor as it seems, solemnly tutting at or punishing a player for mocking in celebrations, chips away at that`\
 https://nytimes.com/athletic/6116214/2025/02/06/celebrations-no-fun-football-premier-league/
-
-**Goalkeepers and the rise of the assist**\
-`The purpose of the modern goalkeeper is to be good off the floor as well as keep goals out — they are increasingly providing assists, too`\
-https://nytimes.com/athletic/6112292/2025/02/06/goalkeeper-assists-ederson-pickford-alisson/
 
