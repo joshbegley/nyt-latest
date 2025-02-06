@@ -1,3 +1,7 @@
+**Trump’s Vision for Gaza Gives No Immediate Answers About the War**\
+`President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
+https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
+
 **Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
 `U.`\
 https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
