@@ -1,3 +1,11 @@
+**Watch: Jimmy Butler or the Warriors — who needed this more?**\
+`The Athletic NBA Daily discuss Jimmy Butler's trade to the Golden State Warriors.`\
+https://nytimes.com/athletic/6117972/2025/02/06/nba-daily-jimmy-butler-warriors-trade/
+
+**Bubble Watch: Who can make plans for March, and who still has work to do?**\
+`With roughly 10 games remaining for most teams, a large number of teams can still call themselves tournament hopefuls.`\
+https://nytimes.com/athletic/6116961/2025/02/06/college-basketball-bubble-watch-mens-ncaa-tournament-bids/
+
 **More TikTok views than Taylor Swift. Report says women's sport ecosystem is 'thriving'**\
 `From Ilona Maher to Caitlin Clark, female athletes are finding their voice on social media, a Women's Sport Trust report says. `\
 https://nytimes.com/athletic/6115808/2025/02/06/womens-sport-trust-2024-review-ilona-maher-chelsea-women-caitlin-clark/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6114124/2025/02/06/bengals-draft-big-board-2025/
 **NBA trade deadline: Grading all the big deals of 2024-25 trade season**\
 `We've been filling out our report cards on the most notable moves of the past two months.`\
 https://nytimes.com/athletic/6100277/2025/02/06/nba-trade-deadline-grading-deals/
-
-**Kirk Cousins on just how injured he was, his future, and... the Luka Doncic trade?**\
-`The Atlanta Falcons quarterback enters an uncertain offseason.`\
-https://nytimes.com/athletic/6117460/2025/02/06/kirk-cousins-atlanta-falcons-interview/
-
-**Jayden Daniels' thrilling rookie season raised Commanders' bar — and their appeal**\
-`Daniels, the favorite to be named Offensive Rookie of the Year, took Washington places it hadn't been since 1991 in his first season.`\
-https://nytimes.com/athletic/6116918/2025/02/06/commanders-jayden-daniels-offensive-rookie-of-year/
 
