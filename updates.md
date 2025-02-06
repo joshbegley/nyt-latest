@@ -1,3 +1,15 @@
+**Las Palmas captain confirms cancer relapse, will step away from football**\
+`Las Palmas captain Kirian Rodriguez has announced his relapse with cancer and confirmed he will be unavailable for selection indefinitely while he undergoes chemotherapy treatment.`\
+https://nytimes.com/athletic/6117885/2025/02/06/kirian-rodriguez-cancer-las-palmas/
+
+**Marcus Freeman's first true QB battle is here. What will Notre Dame's offense look like?**\
+`Breaking down Notre Dame's new-look offense before spring practice, including a wide-open quarterback competition.`\
+https://nytimes.com/athletic/6116681/2025/02/06/notre-dame-football-roster-2025-spring/
+
+**How good can Michigan's defense be despite key losses to the NFL?**\
+`Michigan is set to begin life without Mason Graham, Kenneth Grant and Will Johnson. What will the 2025 Wolverines defense look like?`\
+https://nytimes.com/athletic/6113119/2025/02/06/michigan-football-roster-portal-defense-2025/
+
 **Which Big 12 teams are on the rise (and in trouble) after the winter transfer window?**\
 `The Big 12 added intriguing QBs in the winter portal window. Devon Dampier, from New Mexico, figures to be a great fit at Utah.`\
 https://nytimes.com/athletic/6116758/2025/02/06/big-12-transfer-portal-winners-losers/

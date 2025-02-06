@@ -1,3 +1,15 @@
+**Las Palmas captain confirms cancer relapse, will step away from football**\
+`Las Palmas captain Kirian Rodriguez has announced his relapse with cancer and confirmed he will be unavailable for selection indefinitely while he undergoes chemotherapy treatment.`\
+https://nytimes.com/athletic/6117885/2025/02/06/kirian-rodriguez-cancer-las-palmas/
+
+**Marcus Freeman's first true QB battle is here. What will Notre Dame's offense look like?**\
+`Breaking down Notre Dame's new-look offense before spring practice, including a wide-open quarterback competition.`\
+https://nytimes.com/athletic/6116681/2025/02/06/notre-dame-football-roster-2025-spring/
+
+**How good can Michigan's defense be despite key losses to the NFL?**\
+`Michigan is set to begin life without Mason Graham, Kenneth Grant and Will Johnson. What will the 2025 Wolverines defense look like?`\
+https://nytimes.com/athletic/6113119/2025/02/06/michigan-football-roster-portal-defense-2025/
+
 **Which Big 12 teams are on the rise (and in trouble) after the winter transfer window?**\
 `The Big 12 added intriguing QBs in the winter portal window. Devon Dampier, from New Mexico, figures to be a great fit at Utah.`\
 https://nytimes.com/athletic/6116758/2025/02/06/big-12-transfer-portal-winners-losers/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/06/climate/coal-plants-retirement.html
 **Two First-Time Buyers Searched the West Side With a $700,000 Budget. Which One-Bedroom Was Right?**\
 `After years of renting “typical shoebox Manhattan apartments,” a young couple went looking for a co-op unit they could buy. Here’s what they found.`\
 https://nytimes.com/interactive/2025/02/06/realestate/manhattan-one-bedroom-apartment.html
-
-**Trump’s Gaza Plan Has Many Pitfalls, Hamas Among the Biggest**\
-`President Trump’s proposal to “own” Gaza and transfer its population elsewhere has stirred condemnation and sarcasm, but it is an opening bid and could disrupt a tired diplomatic paradigm.`\
-https://nytimes.com/2025/02/06/world/europe/trump-gaza-hamas-palestinians.html
-
-**Friday’s Jobs Report Will Be Confusing. Here’s How to Make Sense of It.**\
-`The Labor Department’s January survey will include revisions making data for previous months look stronger in some cases and weaker in others.`\
-https://nytimes.com/2025/02/06/business/economy/jobs-report-revisions.html
-
-**I’m H.I.V.-Positive But Undetectable. Do Casual Sex Partners Need to Know?**\
-`The magazine’s Ethicist columnist on medical disclosure and marital malaise.`\
-https://nytimes.com/2025/02/06/magazine/hiv-disclosure-casual-partners-ethics.html
 
