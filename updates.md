@@ -1,3 +1,7 @@
+**Chicago Bears matriarch Virginia McCaskey dies at 102**\
+`The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
+https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/
+
 **Creamy, but No Cream**\
 `You don’t need dairy to get that luscious, comforting texture. Case in point: this new roasted broccoli and whipped tofu with chile crisp crunch.`\
 https://nytimes.com/2025/02/06/dining/creamy-but-no-cream.html
