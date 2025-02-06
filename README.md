@@ -1,3 +1,11 @@
+**Phillies spring training preview: Thoughts on every hitter headed to camp**\
+`No unit on this club will face more scrutiny this season than the lineup. Here are thoughts on each of the 29 hitters coming to camp. `\
+https://nytimes.com/athletic/6111334/2025/02/06/phillies-spring-training-2025-hitters/
+
+**Analysis: Short-term deal good for Mets, motivation for Pete Alonso**\
+`In the Mets' view, Alonso’s competitive drive will outweigh any possible dissatisfaction with a two-year contract.`\
+https://nytimes.com/athletic/6117748/2025/02/06/mets-pete-alonson-contract-analysis/
+
 **Braves spring guide: 28 notes on 28 hitters, from Acuña to Devers to Zebroski**\
 `Ronald Acuña Jr. is among the many Braves looking to bounce back from an injury-marred season.`\
 https://nytimes.com/athletic/6114979/2025/02/06/braves-spring-training-hitters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6117055/2025/02/06/celtics-nba-trade-deadline-jaden
 **The Trump Crisis Deepens**\
 `The president is using every tool at his disposal to reshape the American founding.`\
 https://nytimes.com/2025/02/06/opinion/trump-power-constitution.html
-
-**Trump’s Gaza Plan Reflects Broader Push for Annexation of Palestinian Land**\
-`Right-wing officials in Israel, evangelical Christians in the United States and Trump appointees have become increasingly outspoken in calling for Israel to take more territory.`\
-https://nytimes.com/2025/02/06/us/politics/trumps-gaza-plan-reflects-broader-push-for-annexation-of-palestinian-land.html
-
-**Where Coal Is Retiring, and Hanging On, in the U.S.**\
-`Once the dominant source of energy in the United States, today, 401 coal units supply roughly 16 percent of the nation’s grid.`\
-https://nytimes.com/interactive/2025/02/06/climate/coal-plants-retirement.html
 
