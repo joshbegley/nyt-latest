@@ -1,3 +1,15 @@
+**How Ruben Amorim could recalibrate Manchester United's defence after Lisandro Martinez's injury**\
+`Martinez is set to be a huge loss for United, so who should play in defence for them going forward?`\
+https://nytimes.com/athletic/5831626/2025/02/06/manchester-united-defence-amorim-martinez/
+
+**Sven Mislintat sacked by Dortmund**\
+`The 52-year-old's departure comes two weeks after the club parted ways with head coach Nuri Sahin.`\
+https://nytimes.com/athletic/6093823/2025/02/06/sven-mislintat-dortmund-sacked/
+
+**Jordi Fernández steps down as Canada's men's basketball coach**\
+`Fernández's departure leaves a hole at the top of one of the more talented rosters on the international stage.`\
+https://nytimes.com/athletic/6116757/2025/02/06/jordi-fernandez-steps-down-canada-basketball-coach/
+
 **USC introduces GM Chad Bowden, 3 new coaches: 10 thoughts on the Trojans' staff changes**\
 `It's evident that recruiting Southern California will now be a priority for USC. `\
 https://nytimes.com/athletic/6118264/2025/02/06/usc-gm-chad-bowden-coaches-rob-ryan/
