@@ -1,3 +1,11 @@
+**Lakers acquire Mark Williams, send Dalton Knecht, Cam Reddish to Hornets**\
+`The Lakers are sending two of its younger assets and draft capital East to pair Williams with five-time All-Star Luka Dončić`\
+https://nytimes.com/athletic/6117699/2025/02/06/lakers-hornets-nba-trade-dalton-knecht-cam-reddish/
+
+**Transcript Shows Rubio Asking U.S.A.I.D. Worker for ‘Trust’ and ‘Patience’**\
+`Speaking at the U.S. Embassy in Guatemala City, the secretary of state called foreign aid “the least popular thing” that government pays for.`\
+https://nytimes.com/2025/02/06/us/politics/rubio-usaid-worker-trust.html
+
 **Brandon Ingram trade grades: Pelicans finally part ways with one-time All-Star**\
 `Ingram has been injured much of the season and will be an unrestricted free agent this summer.`\
 https://nytimes.com/athletic/6117647/2025/02/06/brandon-ingram-trade-grades-pelicans-raptors/
