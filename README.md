@@ -1,3 +1,11 @@
+**Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
+`Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
+https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
+
+**How much did your team earn from the Premier League last season?**\
+`The Premier League’s annual report shows Man City’s fourth consecutive title earned them £175.9million ($218.2m) in prize money.`\
+https://nytimes.com/athletic/6118715/2025/02/06/how-much-premier-league-prize-money/
+
 **Palace set to lose academy prospect Derry after contract rejection**\
 `Derry, 17, scored 16 goals in 22 games for Palace Under-18s last season.`\
 https://nytimes.com/athletic/6118856/2025/02/06/jesse-derry-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-c
 **Luis Rubiales trial: Luque accused Hermoso of 'jumping on the bandwagon to kill Rubiales'**\
 `Hermoso's Spain team-mates Putellas, Paredes and Codina, and one of the forward's friends testified on day four in Madrid`\
 https://nytimes.com/athletic/6118614/2025/02/06/rubiales-trial-luque-hermoso-messages/
-
-**Republican Leaders in Congress Meet With Netanyahu**\
-`The sessions come after President Trump made a surprise proposal to take over Gaza and send Palestinians elsewhere.`\
-https://nytimes.com/2025/02/06/us/politics/republicans-netanyahu.html
-
-**Trump, the Panama Canal and the Hong Kong Firm at the Heart of a Showdown**\
-`The canal’s two biggest ports are operated by a Hong Kong company with global reach. The Trump administration sees a Chinese threat to U.S. security.`\
-https://nytimes.com/2025/02/06/business/panama-canal-ck-hutchison.html
 
