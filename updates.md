@@ -1,3 +1,19 @@
+**Trump Nominates Retired General Known for Inflammatory Remarks**\
+`Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
+https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html
+
+**Tariffs and Tightening Controls Threaten a Way of Life on the Border**\
+`President Trump’s immigration policies have injected new uncertainty for U.S. border communities that are already suffering after waves of clampdowns.`\
+https://nytimes.com/2025/02/06/us/politics/trump-border-life.html
+
+**Lawmakers in Minnesota Strike Deal, Ending Democrats’ Boycott**\
+`Democrats agreed to let a Republican take the speakership of the Minnesota House after a weekslong fight over control of the chamber.`\
+https://nytimes.com/2025/02/06/us/minnesota-lawmakers-end-democrats-boycott.html
+
+**Trump Trade Nominee Defends Plan to Reorder International Trade**\
+`Jamieson Greer advocated restructuring the international trading system and defended the president’s aggressive actions against Canada and Mexico as he testified before the Senate.`\
+https://nytimes.com/2025/02/06/us/politics/jamieson-greer-ustr-hearing.html
+
 **Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
 `Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
 https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
