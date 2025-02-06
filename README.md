@@ -1,3 +1,11 @@
+**USC introduces GM Chad Bowden, 3 new coaches: 10 thoughts on the Trojans' staff changes**\
+`It's evident that recruiting Southern California will now be a priority for USC. `\
+https://nytimes.com/athletic/6118264/2025/02/06/usc-gm-chad-bowden-coaches-rob-ryan/
+
+**In Another Shock to Fashion, Gucci’s Designer Is Leaving**\
+`Sabato De Sarno’s departure adds to the industry turmoil.`\
+https://nytimes.com/2025/02/06/style/gucci-sabato-de-sarno.html
+
 **Green Energy Ambitions of European Companies Take a Beating**\
 `Orsted of Denmark and Equinor of Norway tap the brakes on offshore wind development after setbacks and market shifts.`\
 https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6108559/2025/02/06/heat-future-jimmy-butler-drama-n
 **Daniel Barenboim Announces He Has Parkinson’s Disease**\
 `“I am planning to maintain as many of my professional commitments as possible,” the conductor said.`\
 https://nytimes.com/2025/02/06/arts/music/daniel-barenboim-parkinsons-disease.html
-
-**U.S. Military Deportation to India Creates Headache for Trump Ally**\
-`Reports that deported migrants had faced mistreatment stirred an uproar in India ahead of Prime Minister Narendra Modi’s trip to Washington.`\
-https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
-
-**Dodgers spring guide: 26 notes for 26 hitters, from Barnes to Ohtani to Ward**\
-`Can Ohtani bounce back quickly from labrum surgery? “I would never put anything past Shohei."`\
-https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
 
