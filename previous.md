@@ -1,3 +1,7 @@
+**Arkansas beats Texas, gives SEC a 14th viable NCAA Tournament contender**\
+`If the 14 teams make it, that'd beat the former record of 11 set by the Big East in 2011.`\
+https://nytimes.com/athletic/6117633/2025/02/05/john-caliparis-arkansas-texas-mens-basketball-result-analysis/
+
 **Top line looks elite, Kreider comes through short-handed: Rangers takeaways**\
 `The Rangers displayed some of the old comeback wizardry from last season in a promising win against the Bruins.`\
 https://nytimes.com/athletic/6117594/2025/02/05/rangers-kreider-top-line-zibanejad-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contra
 **Michigan hands Oregon fourth straight loss, trends toward NCAA Tournament bid**\
 `In handing the Ducks their fourth straight loss, Michigan continues a remarkable turnaround under first-year coach Dusty May.`\
 https://nytimes.com/athletic/6117349/2025/02/05/michigan-oregon-mens-basketball-big-ten/
-
-**Global Temperatures Shattered Records in January**\
-`Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
-https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
 
