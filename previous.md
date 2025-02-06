@@ -1,3 +1,23 @@
+**Suns dealing Jusuf Nurkić to Hornets: Reports**\
+`Nurkić, 30, hasn't played since Jan. 7.`\
+https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-team-nba-trade-deadline/
+
+**Humpback Whales Sing the Way Humans Speak**\
+`The animals’ complex songs share structural patterns with human language that may make them easier for whales to learn, a new study suggests.`\
+https://nytimes.com/2025/02/06/science/language-humpback-whale-song.html
+
+**In Greenland, the Ice Doesn’t Just Flow, It Quivers and Quakes**\
+`By using a fiber-optic cable to detect tiny vibrations a mile below the surface, scientists discovered a surprising way that ice sheets move.`\
+https://nytimes.com/2025/02/06/climate/greenland-ice-quakes.html
+
+**What Lurks in This Flower’s Bizarrely Large Y Chromosome?**\
+`Scientists published a full genetic sequence of the genes that make some white campions male, and hope their work could unlock how the flower got that way.`\
+https://nytimes.com/2025/02/06/science/giant-y-chromosome-flower.html
+
+**Cavaliers acquire De'Andre Hunter from Hawks: Source**\
+`Hunter, 27, is averaging a career-high 19 points per game this season.`\
+https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-from-hawks-source/
+
 **Crosby's status unclear with 4 Nations, big weekend looming**\
 `Crosby's status this weekend against the Flyers and Rangers, and for the 4 Nations tournament, is murky because of an injury.`\
 https://nytimes.com/athletic/6118990/2025/02/06/sidney-crosby-injury-update-penguins/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/06/opinion/alzheimers-research-fraud.html
 **A Runway Switch, a Vague Alert: What Pilots Heard Before Fatal D.C. Crash**\
 `The pilots of the American Airlines regional jet in the Washington airport collision acted as expected, aviation safety experts and other pilots said.`\
 https://nytimes.com/2025/02/06/business/dc-plane-crash-american-airlines-pilots.html
-
-**Judge suspends deadline for federal workers to apply for delayed resignation program.**\
-`The offer, which had been set to expire at 11:59 p.m. on Thursday, is part of President Trump’s campaign to drastically cut the size of the federal government.`\
-https://nytimes.com/live/2025/02/06/us/president-trump-news/judge-suspends-deadline-for-federal-workers-to-apply-for-delayed-resignation-program
-
-**New York Theater to See Now: Isabelle Huppert, ‘Urinetown’ and More**\
-`Also onstage in February: Calista Flockhart in a Sam Shepard revival, boldface names in Joy Behar’s “My First Ex-Husband” and a marionette made of ice.`\
-https://nytimes.com/2025/02/06/theater/plays-musicals-theater-nyc-february.html
-
-**Scoop City: Two plays that define the Super Bowl teams**\
-`Inside: How two plays define the Eagles and Chiefs, Jayden Daniels on Kliff Kingsbury, Saquon Barkley&#8217;s props and history&#8217;s greatest trio, as voted by you.`\
-https://nytimes.com/athletic/6119068/2025/02/06/super-bowl-defining-plays-tush-push-corndog-scoop-city-nfl/
-
-**Virginia McCaskey, Owner and Pillar of the Chicago Bears, Dies at 102**\
-`The daughter of the Bears founder and football pioneer George Halas, she took the reins beginning in 1983, after the death of her brother, George Jr.`\
-https://nytimes.com/2025/02/06/sports/football/virginia-mccaskey-dead.html
-
-**‘Apple Cider Vinegar’ Is a Scammer Docudrama With Bite**\
-`The Netflix series, starring Kaitlyn Dever, tells the story of an Australian blogger who found fame and money by lying about having cancer.`\
-https://nytimes.com/2025/02/06/arts/television/apple-cider-vinegar-netflix.html
 
