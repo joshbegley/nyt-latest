@@ -1,3 +1,11 @@
+**Leeds, Coventry and the exorcism of another of last season's ghosts**\
+`Leeds have painful recent memories of losing to Coventry, so this was another important moment in their quest for promotion`\
+https://nytimes.com/athletic/6117117/2025/02/06/leeds-coventry-farke-championship/
+
+**The Transfer DealSheet: What comes next after winter window?**\
+`The winter transfer window has now closed for most European leagues — what is the state of play going forward?`\
+https://nytimes.com/athletic/6112869/2025/02/06/transfer-latest-dealsheet-arsenal-manchester-united-liverpool/
+
 **Stephen Colbert Is a Little Alarmed About Trump’s Gaza Proposal**\
 `Colbert wasn’t the only host flabbergasted by President Trump’s plan to take over Gaza, move the Palestinians out and turn it into a resort destination.`\
 https://nytimes.com/2025/02/06/arts/television/stephen-colbert-trump-gaza.html
