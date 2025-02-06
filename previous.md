@@ -1,3 +1,7 @@
+**Once Raring to Fight, Newsom Softens His Approach Toward Trump**\
+`Gov. Gavin Newsom, a Democrat, has avoided criticizing President Trump as he has sought disaster aid for fire victims in Los Angeles.`\
+https://nytimes.com/2025/02/05/us/gavin-newsom-trump-california.html
+
 **Trump Administration Deepens Pressure on Federal Workers to Resign**\
 `Rattled civil servants struggled with whether to leave their posts in advance of a Thursday deadline as Elon Musk continued his push through agencies.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-federal-workers.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-palestinians.html
 
 **‘Effectively Unaccountable’: Inside the Trump-Musk Relationship**\
-`The relationship between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
+`The alliance between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
 
 **West Point Disbands Clubs for Women and Minorities After Trump Orders**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
 **My Farewell Column**\
 `Growing into myself as a writer — and doing it in front of and for all of you — has been one of the great honors of my life.`\
 https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
-
-**The World’s Richest Men Take On the World’s Poorest Children**\
-`I’ve seen U.S.A.I.D. operate around the world, and it’s not woke — it’s lifesaving.`\
-https://nytimes.com/2025/02/05/opinion/usaid-spending-trump-musk.html
 

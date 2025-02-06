@@ -1,3 +1,11 @@
+**Once Raring to Fight, Newsom Softens His Approach Toward Trump**\
+`Gov. Gavin Newsom, a Democrat, has avoided criticizing President Trump as he has sought disaster aid for fire victims in Los Angeles.`\
+https://nytimes.com/2025/02/05/us/gavin-newsom-trump-california.html
+
+**‘Effectively Unaccountable’: Inside the Trump-Musk Relationship**\
+`The alliance between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
+https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
+
 **Trump Administration Deepens Pressure on Federal Workers to Resign**\
 `Rattled civil servants struggled with whether to leave their posts in advance of a Thursday deadline as Elon Musk continued his push through agencies.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-federal-workers.html
