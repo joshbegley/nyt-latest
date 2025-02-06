@@ -1,3 +1,7 @@
+**N.Y.C. Officials Give City Workers Leeway to Yield to ICE Agents**\
+`City workers at migrant shelters, schools and hospitals can allow federal immigration personnel to enter city property if they feel threatened by the agents, a memo from City Hall said.`\
+https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html
+
 **Trump’s Gaza Takeover Plan May Sound Death Knell for the Two-State Solution**\
 `Already unlikely, the prospects for creation of a Palestinian state alongside Israel could vanish altogether if the United States takes over Gaza and displaces the population, as President Trump proposes.`\
 https://nytimes.com/2025/02/06/us/politics/trump-gaza-two-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/trump-golf-pga-liv-monahan.html
 **C.D.C. Posts, Then Deletes, Data on Bird Flu Spread Between Cats and People**\
 `The data, which appeared fleetingly online on Wednesday, confirmed transmission in two households. Scientists called on the agency to release the full report.`\
 https://nytimes.com/2025/02/06/health/cdc-bird-flu-cats-people.html
-
-**Review: Getting to the Essence of Camille A. Brown’s Artistry**\
-`With the high-energy “I AM,” Brown takes her signature interweaving of African diasporic dance forms to new heights.`\
-https://nytimes.com/2025/02/06/arts/dance/review-camille-a-brown-i-am.html
 
