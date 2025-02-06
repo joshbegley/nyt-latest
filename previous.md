@@ -1,3 +1,7 @@
+**All you need to know about the Carabao Cup final**\
+`We bring you all you need to know about the Carabao Cup final including the impact on Fantasy Premier League.`\
+https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtures-explained/
+
 **The Giants' projected 2025 season win total is predictably unexciting**\
 `It probably isn't a surprise that the Giants are projected to be an average team, given the last few years. But is that a bad thing?`\
 https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projec
 https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
 
 **The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
-`Salah scored his 28th goal of the season as Liverpool thumped Tottenham at Anfield to reach the Carabao Cup final at Wembley`\
+`Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield to reach the Carabao Cup final at Wembley`\
 https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
 
 **C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-e
 **SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
 `The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
 https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
-
-**NWSL's $5 million fund is 'necessary step toward accountability' after abuse scandal**\
-`Money won’t erase what happened to players in NWSL. Nor should it.`\
-https://nytimes.com/athletic/6119393/2025/02/06/nwsl-restitution-fund-players-accountability/
 
