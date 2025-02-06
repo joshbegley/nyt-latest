@@ -1,3 +1,7 @@
+**Education Dept. Investigates Schools Ensnared in Transgender Sports Disputes**\
+`Three new investigations announced on Thursday came after President Trump ordered federal agencies to help bar transgender women and girls from female sports teams.`\
+https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-dept.html
+
 **State Attorneys General to Sue Over Musk’s Access to Government Systems**\
 `Letitia James of New York and 11 others said that the so-called Department of Government Efficiency had revealed private information and was “unlawful, unprecedented and unacceptable.”`\
 https://nytimes.com/2025/02/06/nyregion/letitia-james-doge-suit.html
