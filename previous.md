@@ -1,3 +1,27 @@
+**Power Company Finds Irregularities in Equipment Where Eaton Fire Started**\
+`Southern California Edison said video evidence had led it to look more broadly at whether its equipment might have been the cause of the deadly blaze.`\
+https://nytimes.com/2025/02/06/business/eaton-fire-power-lines-edison.html
+
+**Man United took 'risk' by not making more January signings - Amorim**\
+`Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month`\
+https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-january-risk/
+
+**Arsenal's Saka and White travel with Dubai training camp squad**\
+`Bukayo Saka and Ben White have travelled with the Arsenal squad for the mid-season warm-weather training camp in Dubai.`\
+https://nytimes.com/athletic/6118100/2025/02/06/arsenal-dubai-saka-white-training-camp/
+
+**The American Dream, Through Foreign Eyes**\
+`A major Dutch museum is staging a huge exhibition of American photography that explores the tension between how the United States would like to see itself, and how it really looks.`\
+https://nytimes.com/2025/02/06/arts/design/american-photography-rijksmuseum.html
+
+**What should Lukáš Dostál's next contract look like?**\
+`The Ducks will soon have to pay Dostál like a No. 1 goalie. With a rising salary cap on the horizon, what could his next deal be worth?`\
+https://nytimes.com/athletic/6117890/2025/02/06/ducks-lukas-dostal-contract-nhl/
+
+**NBA Lookahead: Now past Jimmy Butler drama, Heat can focus on what's next**\
+`Miami can finally breathe without Jimmy Butler and figure out what the future holds.`\
+https://nytimes.com/athletic/6108559/2025/02/06/heat-future-jimmy-butler-drama-nba-trade-deadline/
+
 **Daniel Barenboim Announces He Has Parkinson’s Disease**\
 `“I am planning to maintain as many of my professional commitments as possible,” the conductor said.`\
 https://nytimes.com/2025/02/06/arts/music/daniel-barenboim-parkinsons-disease.html
@@ -11,30 +35,6 @@ https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
 https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
 
 **Thorns, WNBA Portland to receive $150 million joint training campus**\
-`The first phase of development involves building a privately funded $75 million, 12-acre training facility`\
+`The first phase of development involves building a privately funded $75 million 12-acre training facility`\
 https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
-
-**Washington Takes Aim at DeepSeek**\
-`Lawmakers are said to be working on a bill to block the Chinese chatbot app from government devices, underscoring concerns about the artificial intelligence race.`\
-https://nytimes.com/2025/02/06/business/dealbook/deepseek-ban-washington.html
-
-**Farm system heat check: What’s the immediate and future outlook for the Angels?**\
-`With a bottom-ranked farm system, is there any hope for the Angels moving forward?`\
-https://nytimes.com/athletic/6116007/2025/02/06/los-angeles-angels-2025-farm-system-heat-check/
-
-**How to build smart Super Bowl 59 parlays using game scripts**\
-`Stitching together common aspects of Eagles and Chiefs victories can offer some intriguing betting insights.`\
-https://nytimes.com/athletic/6115477/2025/02/06/2025-super-bowl-script-smart-parlays-using-game-scripts-for-eagles-chiefs/
-
-**A Top Documentary Director Finds a Billionaire Backer**\
-`The Oscar-winning filmmaker Alex Gibney has sold a majority stake in his Jigsaw Productions to the philanthropist Wendy Schmidt.`\
-https://nytimes.com/2025/02/06/business/alex-gibney-wendy-schmidt-jigsaw-documentaries.html
-
-**Brandon Ingram trade indicates Pelicans are (finally) ready to begin next phase**\
-`By dealing Ingram to Toronto, New Orleans ended one new era and now embarks on another.`\
-https://nytimes.com/athletic/6118012/2025/02/06/brandon-ingram-trade-pelicans-zion-williamson/
-
-**Leicester's Jeremy Monga, 15, and Jake Evans, 16, in squad vs Man Utd**\
-`The two wingers will be on the substitutes’ bench at Old Trafford as Van Nistelrooy looks to the club's youth system to strengthen his team.`\
-https://nytimes.com/athletic/6118156/2025/02/06/jeremy-monga-jake-evans-leicester-who/
 
