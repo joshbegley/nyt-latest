@@ -1,3 +1,7 @@
+**After upgrading bullpen, outfield, Twins could next add backup shortstop: Sources**\
+`The Twins have expressed interest in signing a backup shortstop, sources say. Were they to do so, they may need to trim payroll via a trade.`\
+https://nytimes.com/athletic/6117814/2025/02/06/minnesota-twins-offseason-signings-shortstop/
+
 **The Bounce: Why Jimmy Butler, not Kevin Durant, went to the Warriors as the NBA trade deadline nears**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6118402/2025/02/06/jimmy-butler-warriors-heat-kevin-durant-suns-nba-trade-deadline-the-bounce/
