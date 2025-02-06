@@ -1,3 +1,11 @@
+**Word of the Day: kismet**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/06/learning/word-of-the-day-kismet.html
+
+**What if... this is a new Newcastle?**\
+`Eddie Howe's side made light work of reaching the Carabao Cup final and are on course to end the club's long trophy drought`\
+https://nytimes.com/athletic/6114796/2025/02/06/newcastle-carabao-cup-arsenal-final/
+
 **How the Blackhawks plan to address goaltending in rebuild**\
 `The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
 https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
