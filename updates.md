@@ -1,3 +1,11 @@
+**Live from the Super Bowl Day 4: Eli Manning, Terron Armstead, Puka Nacua and more**\
+`Eli Manning, Terron Armstead, Puka Nacua and more stop by the set to talk NFL and Super Bowl on our daily live show.`\
+https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-eli-manning-terron-armstead-puka-nacua-and-more/
+
+**What to See in N.Y.C. Galleries in February**\
+`This week in Newly Reviewed, Holland Cotter covers two group shows: one devoted to an important gallery from the past, the other focused on language and silence.`\
+https://nytimes.com/2025/02/06/arts/art-galleries-nyc-february.html
+
 **SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
 `The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
 https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
