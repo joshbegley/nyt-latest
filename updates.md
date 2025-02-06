@@ -1,3 +1,11 @@
+**To Keep Aid Coming, Ukraine Appeals to Trump Allies: Conservative Christians**\
+`A Ukrainian delegation to the National Prayer Breakfast in Washington will make the case that Russia threatens the religious freedom of Christians who don’t follow the Russian Orthodox Church.`\
+https://nytimes.com/2025/02/06/world/europe/ukraine-national-prayer-breakfast.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/06/briefing/trump-gaza-congo.html
+
 **Quote of the Day: A Smoking Ban That Goes the Whole 11 Yards**\
 `Quotation of the Day for Thursday, February 6, 2025`\
 https://nytimes.com/2025/02/05/pageoneplus/quote-of-the-day-a-smoking-ban-that-goes-the-whole-11-yards.html
