@@ -1,3 +1,11 @@
+**Phillies spring training preview: Thoughts on every hitter headed to camp**\
+`No unit on this club will face more scrutiny this season than the lineup. Here are thoughts on each of the 29 hitters coming to camp. `\
+https://nytimes.com/athletic/6111334/2025/02/06/phillies-spring-training-2025-hitters/
+
+**Analysis: Short-term deal good for Mets, motivation for Pete Alonso**\
+`In the Mets' view, Alonso’s competitive drive will outweigh any possible dissatisfaction with a two-year contract.`\
+https://nytimes.com/athletic/6117748/2025/02/06/mets-pete-alonson-contract-analysis/
+
 **Braves spring guide: 28 notes on 28 hitters, from Acuña to Devers to Zebroski**\
 `Ronald Acuña Jr. is among the many Braves looking to bounce back from an injury-marred season.`\
 https://nytimes.com/athletic/6114979/2025/02/06/braves-spring-training-hitters/
