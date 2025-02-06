@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
+`Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield, leaving Slot one game from his first trophy in England`\
+https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
+
 **If ESPN opts out of TV deal, MLB warns it could walk away: source**\
 `ESPN has an opt out in its contract with the league covering the years 2026 to 2028. `\
 https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
