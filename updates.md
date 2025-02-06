@@ -1,3 +1,15 @@
+**Darius Slay still has gas in the tank, C.J. Gardner-Johnson's play 'speaks for itself'**\
+`Plus, Jalen Hurts prepares for a challenging test.`\
+https://nytimes.com/athletic/6119138/2025/02/06/eagles-defense-superbowl-darius-slay-cj-gardner-johnson/
+
+**Hawks-Clippers trade grades: Bogdan Bogdanović (probably) bolsters LA's backcourt**\
+`Naturally, we have some questions about the Hawks and what they're doing.`\
+https://nytimes.com/athletic/6119274/2025/02/06/bogdan-bogdanovic-terance-mann-bones-hyland-nba-trade-grades-hawks-clippers/
+
+**NBA trade deadline: Grading all the big deals of 2024-25 trade season**\
+`We've been filling out our report cards on the most notable moves of the past two months.`\
+https://nytimes.com/athletic/6100277/2025/02/06/nba-trade-deadline-grading-deals/
+
 **New-look Leafs: Toronto shuffles lines as Mitch Marner, Anthony Stolarz return**\
 `Mitch Marner to play with John Tavares and William Nylander — a rare combination for the Maple Leafs.`\
 https://nytimes.com/athletic/6119019/2025/02/06/maple-leafs-marner-stolarz-lines/
