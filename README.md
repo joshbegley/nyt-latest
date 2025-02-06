@@ -10,8 +10,8 @@ https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
 `Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
 https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
 
-**Heat deal Jimmy Butler to Warriors in multi-team trade: Sources**\
-`Butler, 35, is averaging 17 points and 5.2 rebounds in 20 games this season — his lowest scoring average since 2013-14.`\
+**Jimmy Butler heading to Warriors, agrees to extension: Sources**\
+`The Heat are trading Butler, 35, to Golden State in a massive trade that involves fives teams, several players.`\
 https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
 
 **Some federally-funded clinics still cannot access funds after grant freeze.**\
