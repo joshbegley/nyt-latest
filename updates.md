@@ -1,3 +1,7 @@
+**U.S. Military Deportation to India Creates Headache for Trump Ally**\
+`Reports that deported migrants had faced mistreatment stirred an uproar in India ahead of Prime Minister Narendra Modi’s trip to Washington.`\
+https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
+
 **Dodgers spring guide: 26 notes for 26 hitters, from Barnes to Ohtani to Ward**\
 `Can Ohtani bounce back quickly from labrum surgery? “I would never put anything past Shohei."`\
 https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/

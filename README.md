@@ -1,3 +1,7 @@
+**Daniel Barenboim Announces He Has Parkinson’s Disease**\
+`“I am planning to maintain as many of my professional commitments as possible,” the conductor said.`\
+https://nytimes.com/2025/02/06/arts/music/daniel-barenboim-parkinsons-disease.html
+
 **U.S. Military Deportation to India Creates Headache for Trump Ally**\
 `Reports that deported migrants had faced mistreatment stirred an uproar in India ahead of Prime Minister Narendra Modi’s trip to Washington.`\
 https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118012/2025/02/06/brandon-ingram-trade-pelicans-zi
 **Leicester's Jeremy Monga, 15, and Jake Evans, 16, in squad vs Man Utd**\
 `The two wingers will be on the substitutes’ bench at Old Trafford as Van Nistelrooy looks to the club's youth system to strengthen his team.`\
 https://nytimes.com/athletic/6118156/2025/02/06/jeremy-monga-jake-evans-leicester-who/
-
-**Israel Tells Military to Draft Plan for Gazans to Leave**\
-`The order by the Israeli defense minister comes after President Trump proposed a U.S. takeover of Gaza and said that all two million Palestinians in the enclave should be displaced.`\
-https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinians-leave.html
 
