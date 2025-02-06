@@ -1,3 +1,15 @@
+**Farm system heat check: What’s the immediate and future outlook for the Astros?**\
+`Cam Smith highlights a farm system that has seen better days, plus we predict Houston's 2027 Opening Day roster.`\
+https://nytimes.com/athletic/6107881/2025/02/06/houston-astros-farm-system-outlook/
+
+**Axel Disasi to Aston Villa: The Athletic 500 transfer ratings**\
+`Aston Villa have signed Axel Disasi on loan until the end of the season`\
+https://nytimes.com/athletic/6110789/2025/02/06/axel-disasi-transfer-aston-villa-analysis/
+
+**Channing Tatum on his Wrexham Super Bowl ad: 'They were just so sweet'**\
+`The Hollywood star on visiting Wales, teaching Wrexham players to dance, and why he wants to return to the Racecourse`\
+https://nytimes.com/athletic/6100952/2025/02/06/channing-tatum-wrexham-superbowl/
+
 **Inside the Warriors' pivot toward a Jimmy Butler trade: 'He win? I win? That's the fit'**\
 `Wednesday's trade might have been a backup plan for both parties, and an expensive one. But Golden State thinks the risk could work.`\
 https://nytimes.com/athletic/6117747/2025/02/06/warriors-jimmy-butler-trade-steph-curry-fit/
