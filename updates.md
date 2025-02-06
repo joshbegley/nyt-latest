@@ -1,3 +1,11 @@
+**SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
+`The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
+https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
+
+**NWSL's $5 million fund is 'necessary step toward accountability' after abuse scandal**\
+`Money won’t erase what happened to players in NWSL. Nor should it.`\
+https://nytimes.com/athletic/6119393/2025/02/06/nwsl-restitution-fund-players-accountability/
+
 **Amazon, under conservative pressure, reinstates a book critical of transgender care.**\
 `By Karen Weise and David McCabe`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/amazon-under-conservative-pressure-reinstates-a-book-critical-of-transgender-care
