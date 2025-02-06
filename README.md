@@ -1,3 +1,7 @@
+**Dodgers spring guide: 26 notes for 26 hitters, from Barnes to Ohtani to Ward**\
+`Can Ohtani bounce back quickly from labrum surgery? “I would never put anything past Shohei."`\
+https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
+
 **Thorns, WNBA Portland to receive $150-million joint training campus**\
 `The first phase of development involves building a privately funded $75 million, 12-acre training facility`\
 https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinian
 **Rosenthal: Pete Alonso's short-term deal showcases the need for a bounce-back 2025 season**\
 `Three other Scott Boras clients recently opted out of short-term deals after one year, then struck belated free-agent riches.`\
 https://nytimes.com/athletic/6118091/2025/02/06/pete-alonso-mets-contract-boras/
-
-**Eiran Cashin to Brighton & Hove Albion: The Athletic 500 transfer ratings**\
-`We rate Brighton's new defensive signing from Derby County`\
-https://nytimes.com/athletic/6104735/2025/02/06/eiran-cashin-brighton-the-athletic-500-transfer-ratings/
 
