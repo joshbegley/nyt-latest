@@ -1,3 +1,7 @@
+**Corrections: Feb. 6, 2025**\
+`Corrections that appeared in print on Thursday, Feb. 6, 2025.`\
+https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
+
 **The State Department says Panama will stop charging U.S. government ships for canal access.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-panama-will-stop-charging-us-government-ships-for-canal-access
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-musk-federal-workers.html
 **Did Mayor Adams Get a Colonoscopy? His Answer Led to Confusion.**\
 `Mayor Eric Adams of New York said he underwent anesthesia last week for what officials said was a colonoscopy, but then the story changed.`\
 https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
-
-**Beneath Trump’s Plan for Gaza, Painful Echoes of Forced Displacement**\
-`A plan to take over Gaza and force Palestinians to relocate would violate international law.`\
-https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-palestinians.html
 
