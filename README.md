@@ -1,3 +1,7 @@
+**Tariffs and Tightening Controls Threaten a Way of Life on the Border**\
+`President Trump’s immigration policies have injected new uncertainty for U.S. border communities that are already suffering after waves of clampdowns.`\
+https://nytimes.com/2025/02/06/us/politics/trump-border-life.html
+
 **The Windup: Pete Alonso has landed!**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
@@ -5,10 +9,6 @@ https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the
 **Trump Nominates Retired General Known for Inflammatory Remarks**\
 `Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
 https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html
-
-**Tariffs and Tightening Controls Threaten a Way of Life on the Border**\
-`President Trump’s immigration policies have injected new uncertainty for U.S. border communities that are already suffering after waves of clampdowns.`\
-https://nytimes.com/2025/02/06/us/politics/trump-border-life.html
 
 **Lawmakers in Minnesota Strike Deal, Ending Democrats’ Boycott**\
 `Democrats agreed to let a Republican take the speakership of the Minnesota House after a weekslong fight over control of the chamber.`\
