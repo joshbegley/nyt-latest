@@ -1,3 +1,11 @@
+**All of the Trump Administration’s Major Moves in the First 100 Days**\
+`The New York Times is tracking the actions taken by, and significant statements made by, President Trump and his administration during the first 100 days of Mr. Trump’s second term.`\
+https://nytimes.com/interactive/2025/us/trump-agenda-2025.html
+
+**Michigan hands Oregon fourth straight loss, trends toward NCAA Tournament bid**\
+`In handing the Ducks their fourth straight loss, Michigan continues a remarkable turnaround under first-year coach Dusty May.`\
+https://nytimes.com/athletic/6117349/2025/02/05/michigan-oregon-mens-basketball-big-ten/
+
 **2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
 `Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
 https://nytimes.com/athletic/5891633/2025/02/05/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/

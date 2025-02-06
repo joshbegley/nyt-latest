@@ -1,3 +1,7 @@
+**All of the Trump Administration’s Major Moves in the First 100 Days**\
+`The New York Times is tracking the actions taken by, and significant statements made by, President Trump and his administration during the first 100 days of Mr. Trump’s second term.`\
+https://nytimes.com/interactive/2025/us/trump-agenda-2025.html
+
 **2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
 `Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
 https://nytimes.com/athletic/5891633/2025/02/05/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
 `Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins.`\
 https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contract-extension/
 
+**Michigan hands Oregon fourth straight loss, trends toward NCAA Tournament bid**\
+`In handing the Ducks their fourth straight loss, Michigan continues a remarkable turnaround under first-year coach Dusty May.`\
+https://nytimes.com/athletic/6117349/2025/02/05/michigan-oregon-mens-basketball-big-ten/
+
 **Global Temperatures Shattered Records in January**\
 `Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
 https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
 **What’s Cooking?**\
 `Aidan Deshong and Jacob Reed hit the road.`\
 https://nytimes.com/2025/02/05/crosswords/daily-puzzle-2025-02-06.html
-
-**Justice Dept. Says It Will Not Bring Charges in Investigation of Project Veritas**\
-`Prosecutors in New York had spent years pursuing a case against the conservative group over its role in the theft of a diary kept by Ashley Biden.`\
-https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-charges-in-investigation-of-project-veritas.html
-
-**Anson Rabinbach, Leading Historian of Nazi Culture, Dies at 79**\
-`He demonstrated that fascism had its own intellectual roots and showed how ideas, theories and an antisemitic “ethos” influenced German culture and policymaking.`\
-https://nytimes.com/2025/02/05/books/anson-rabinbach-dead.html
 
