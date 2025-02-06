@@ -1,3 +1,7 @@
+**Jimmy Butler heading to Warriors, agrees to extension: Sources**\
+`The Heat are trading Butler, 35, to Golden State in a massive trade that involves fives teams, several players.`\
+https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
+
 **See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
 `Documents and satellite imagery show how much buildup is underway at the military site.`\
 https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
