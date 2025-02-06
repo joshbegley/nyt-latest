@@ -1,3 +1,7 @@
+**‘Smurfs’ Trailer Shows Rihanna as Smurfette (and Promises New Music)**\
+`The first preview of the animated feature shows the singer in her “blue era” and assures fans that new songs from her will be featured on the soundtrack.`\
+https://nytimes.com/2025/02/06/style/rihanna-smurfs-trailer.html
+
 **If ESPN opts out of TV deal, MLB warns it could walk away: source**\
 `ESPN has an opt out in its contract with the league covering the years 2026 to 2028. `\
 https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
 **The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
 `Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield, leaving Slot one game from his first trophy in England`\
 https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
-
-**C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
-`He was among the first backers of Apple Computer and 3Com, earning windfalls, but it was his humaneness that distinguished him from other venture capitalists.`\
-https://nytimes.com/2025/02/06/technology/c-richard-kramlich-dead.html
 
