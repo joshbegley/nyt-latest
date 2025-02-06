@@ -1,3 +1,11 @@
+**Trump Vows to Improve Air Traffic Control System After Crash**\
+`The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
+https://nytimes.com/2025/02/06/us/politics/trump-vows-to-improve-air-traffic-control-system-after-crash.html
+
+**Richarlison injury 'didn't look good, another one to add to the list' - Postecoglou**\
+`The Brazilian was substituted in the first half of the Carabao Cup semi-final second leg at Anfield on Thursday.`\
+https://nytimes.com/athletic/6119479/2025/02/06/richarlison-injury-tottenham-postecoglou/
+
 **White House Cracks Down on News Subscriptions**\
 `The U.S.D.A. said Thursday that it had canceled its subscriptions to Politico Pro, a news and information service aimed at policy professionals.`\
 https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/trump-pauses-online-tirade-to-preach-
 **Consumer bureau backs off legal fights as Treasury officials take charge.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
-
-**Irv Gotti: Key Milestones in the Life of the Rap Mogul**\
-`The producer, who died on Wednesday, built Murder Inc. into one of the most influential record labels of the early 2000s. His career was marred by a federal investigation and trial.`\
-https://nytimes.com/2025/02/06/arts/irv-gotti-murder-inc-timeline.html
-
-**A Judge Delayed Trump’s Plan to Persuade Federal Workers to Quit**\
-`Also, New Orleans is rattled but ready for the Super Bowl. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/02/06/briefing/delay-trump-resignation-plan-super-bowl-security.html
 
