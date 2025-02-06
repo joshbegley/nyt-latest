@@ -1,3 +1,11 @@
+**Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
+`The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
+https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
+
+**What to Know About Wendy Williams’s Guardianship**\
+`Ms. Williams, whose health has been scrutinized since she left her daytime talk show in 2021, has been under the control of a court-appointed guardian for the past three years.`\
+https://nytimes.com/article/wendy-williams-guardianship.html
+
 **Live from the Super Bowl Day 4: Eli Manning, Terron Armstead, Puka Nacua and more**\
 `Eli Manning, Terron Armstead, Puka Nacua and more stop by the set to talk NFL and Super Bowl on our daily live show.`\
 https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-eli-manning-terron-armstead-puka-nacua-and-more/
