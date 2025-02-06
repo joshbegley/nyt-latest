@@ -1,3 +1,7 @@
+**2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/05/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Andreessen Horowitz Defends Hiring of Daniel Penny to Its Investors**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, was hired to join the firm’s American Dynamism investment team.`\
 https://nytimes.com/2025/02/05/technology/daniel-penny-andreessen-horowitz-investors.html
