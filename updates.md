@@ -1,3 +1,7 @@
+**‘Smurfs’ Trailer Shows Rihanna as Smurfette (and Promises New Music)**\
+`The first preview of the animated feature shows the singer in her “blue era” and assures fans that new songs from her will be featured on the soundtrack.`\
+https://nytimes.com/2025/02/06/style/rihanna-smurfs-trailer.html
+
 **The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
 `Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield, leaving Slot one game from his first trophy in England`\
 https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
