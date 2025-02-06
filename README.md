@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-laker
 
 **Trump Vows to Improve Air Traffic Control System After Crash**\
 `The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
-https://nytimes.com/2025/02/06/us/politics/trump-vows-to-improve-air-traffic-control-system-after-crash.html
+https://nytimes.com/2025/02/06/us/politics/trump-faa-air-traffic-plane-crash.html
 
 **Richarlison injury 'didn't look good, another one to add to the list' - Postecoglou**\
 `The Brazilian was substituted in the first half of the Carabao Cup semi-final second leg at Anfield on Thursday.`\
