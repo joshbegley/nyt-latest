@@ -1,3 +1,7 @@
+**Dodgers spring guide: 26 notes for 26 hitters, from Barnes to Ohtani to Ward**\
+`Can Ohtani bounce back quickly from labrum surgery? “I would never put anything past Shohei."`\
+https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
+
 **Thorns, WNBA Portland to receive $150-million joint training campus**\
 `The first phase of development involves building a privately funded $75 million, 12-acre training facility`\
 https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
