@@ -1,3 +1,11 @@
+**Trump Vows to Improve Air Traffic Control System After Crash**\
+`The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
+https://nytimes.com/2025/02/06/us/politics/trump-vows-to-improve-air-traffic-control-system-after-crash.html
+
+**Richarlison injury 'didn't look good, another one to add to the list' - Postecoglou**\
+`The Brazilian was substituted in the first half of the Carabao Cup semi-final second leg at Anfield on Thursday.`\
+https://nytimes.com/athletic/6119479/2025/02/06/richarlison-injury-tottenham-postecoglou/
+
 **White House Cracks Down on News Subscriptions**\
 `The U.S.D.A. said Thursday that it had canceled its subscriptions to Politico Pro, a news and information service aimed at policy professionals.`\
 https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-house.html
