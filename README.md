@@ -1,3 +1,7 @@
+**Who were the biggest winners of an unprecedented NBA trade deadline?**\
+`A couple of teams rise above the rest, but one group may be smiling from ear to ear after the dust settles.`\
+https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-lakers-cavaliers/
+
 **Trump Vows to Improve Air Traffic Control System After Crash**\
 `The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
 https://nytimes.com/2025/02/06/us/politics/trump-vows-to-improve-air-traffic-control-system-after-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119634/2025/02/06/ippei-mizuhara-sentencing-shohei
 **Trump Pauses Online Tirade to Preach Unity**\
 `At the National Prayer Breakfast in Washington, Mr. Trump took a moment to speak of bipartisan comity. Just hours earlier, he torched the federal bureaucracy, the global order, the media and Democrats.`\
 https://nytimes.com/2025/02/06/us/politics/trump-pauses-online-tirade-to-preach-unity.html
-
-**Consumer bureau backs off legal fights as Treasury officials take charge.**\
-`By Stacy Cowley`\
-https://nytimes.com/live/2025/02/06/us/president-trump-news/consumer-bureau-backs-off-legal-fights-as-treasury-officials-take-charge
 
