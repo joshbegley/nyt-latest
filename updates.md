@@ -1,3 +1,7 @@
+**Lakers-Hornets trade grades: Mark Williams heading to L.A. to bolster frontcourt**\
+`The Lakers are sending out a first-round pick to take a gamble on a young replacement for Anthony Davis in the middle.`\
+https://nytimes.com/athletic/6117695/2025/02/06/mark-williams-trade-grades-lakers-hornets/
+
 **Lakers acquire Mark Williams, send Dalton Knecht, Cam Reddish to Hornets**\
 `The Lakers are sending two of its younger assets and draft capital East to pair Williams with five-time All-Star Luka Dončić`\
 https://nytimes.com/athletic/6117699/2025/02/06/lakers-hornets-nba-trade-dalton-knecht-cam-reddish/
