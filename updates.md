@@ -1,3 +1,7 @@
+**Braves spring guide: 28 notes on 28 hitters, from Acuña to Devers to Zebroski**\
+`Ronald Acuña Jr. is among the many Braves looking to bounce back from an injury-marred season.`\
+https://nytimes.com/athletic/6114979/2025/02/06/braves-spring-training-hitters/
+
 **Las Palmas captain confirms cancer relapse, will step away from football**\
 `Las Palmas captain Kirian Rodriguez has announced his relapse with cancer and confirmed he will be unavailable for selection indefinitely while he undergoes chemotherapy treatment.`\
 https://nytimes.com/athletic/6117885/2025/02/06/kirian-rodriguez-cancer-las-palmas/

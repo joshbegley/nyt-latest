@@ -1,3 +1,7 @@
+**Braves spring guide: 28 notes on 28 hitters, from Acuña to Devers to Zebroski**\
+`Ronald Acuña Jr. is among the many Braves looking to bounce back from an injury-marred season.`\
+https://nytimes.com/athletic/6114979/2025/02/06/braves-spring-training-hitters/
+
 **Las Palmas captain confirms cancer relapse, will step away from football**\
 `Las Palmas captain Kirian Rodriguez has announced his relapse with cancer and confirmed he will be unavailable for selection indefinitely while he undergoes chemotherapy treatment.`\
 https://nytimes.com/athletic/6117885/2025/02/06/kirian-rodriguez-cancer-las-palmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/trumps-gaza-plan-reflects-broader-pus
 **Where Coal Is Retiring, and Hanging On, in the U.S.**\
 `Once the dominant source of energy in the United States, today, 401 coal units supply roughly 16 percent of the nation’s grid.`\
 https://nytimes.com/interactive/2025/02/06/climate/coal-plants-retirement.html
-
-**Two First-Time Buyers Searched the West Side With a $700,000 Budget. Which One-Bedroom Was Right?**\
-`After years of renting “typical shoebox Manhattan apartments,” a young couple went looking for a co-op unit they could buy. Here’s what they found.`\
-https://nytimes.com/interactive/2025/02/06/realestate/manhattan-one-bedroom-apartment.html
 
