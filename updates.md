@@ -1,3 +1,7 @@
+**The Windup: Pete Alonso has landed!**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
+
 **Trump Nominates Retired General Known for Inflammatory Remarks**\
 `Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
 https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html

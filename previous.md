@@ -1,3 +1,7 @@
+**The Windup: Pete Alonso has landed!**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
+
 **Trump Nominates Retired General Known for Inflammatory Remarks**\
 `Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
 https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118887/2025/02/06/golden-state-valkyries-signing-t
 **How Each Senator Has Voted on Trump’s Nominees So Far**\
 `The Senate has confirmed each of President Trump’s cabinet nominees that faced a vote to this point.`\
 https://nytimes.com/interactive/2025/02/06/us/politics/cabinet-confirmation-votes.html
-
-**A Teacher’s Tips for Helping Students Write a Winning Essay for Our ‘How-To’ Contest**\
-`A teacher whose students won last year’s competition shares the steps she followed. (Spoiler: It ends with the whole class doing the worm.)`\
-https://nytimes.com/2025/02/06/learning/lesson-plans/a-teachers-tips-for-helping-students-write-a-winning-essay-for-our-how-to-contest.html
 
