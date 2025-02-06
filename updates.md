@@ -1,3 +1,11 @@
+**Heat Today: With Jimmy Butler gone, 5 ways Miami can develop its long-term identity**\
+`The drama has finally ended. Here's how Miami can move forward.`\
+https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-bam-adebayo-kelel-ware-nba-trade-deadline/
+
+**Journeyman outfielder Tommy Pham signs 1-year deal with Pirates**\
+`The Pirates will pay Pham, who turns 37 in March, $4 million to bring veteran experience and depth to their outfield.`\
+https://nytimes.com/athletic/6118423/2025/02/06/tommy-pham-signs-pittsburgh-pirates/
+
 **How Ruben Amorim could recalibrate Manchester United's defence after Lisandro Martinez's injury**\
 `Martinez is set to be a huge loss for United, so who should play in defence for them going forward?`\
 https://nytimes.com/athletic/5831626/2025/02/06/manchester-united-defence-amorim-martinez/
