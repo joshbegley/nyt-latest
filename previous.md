@@ -1,3 +1,7 @@
+**Pete Alonso to return to Mets on 2-year, $54 million deal: Sources**\
+`After hitting 34 homers with a .788 OPS in 2024, Alonso entered this offseason as the No. 8 player on The Athletic’s Free Agent Big Board.`\
+https://nytimes.com/athletic/5938726/2025/02/05/pete-alonso-contract-mets-mlb-free-agency/
+
 **Jimmy Butler trade grades: Saga finally ends with multi-team deal involving Warriors**\
 `Golden State adds some star power next to Stephen Curry, while the Pistons and Jazz get involved, too.`\
 https://nytimes.com/athletic/6117184/2025/02/05/jimmy-butler-trade-grades-heat-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117420/2025/02/05/mlb-owners-salary-cap-push/
 **Corrections: Feb. 6, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 6, 2025.`\
 https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
-
-**The State Department says Panama will stop charging U.S. government ships for canal access.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-panama-will-stop-charging-us-government-ships-for-canal-access
 
