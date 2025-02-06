@@ -1,4 +1,4 @@
-**Heat deal Jimmy Butler to Warriors multi-team trade**\
+**Heat deal Jimmy Butler to Warriors in multi-team trade**\
 `Butler, 35, is averaging 17 points and 5.2 rebounds in 20 games this season — his lowest scoring average since 2013-14.`\
 https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
 
