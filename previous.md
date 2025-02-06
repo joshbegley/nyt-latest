@@ -1,3 +1,15 @@
+**That’s My Old Ball Coach**\
+`A Times writer was browsing the gray columns of newsprint when a photograph transported him to the green infield grass of childhood.`\
+https://nytimes.com/2025/02/06/insider/thats-my-old-ball-coach.html
+
+**Shen Yun Is Said to Be Under Federal Investigation Over Possible Visa Fraud**\
+`Investigators with the U.S. Department of Homeland Security and State Department have also interviewed former performers in the dance group about their working and living conditions.`\
+https://nytimes.com/2025/02/06/nyregion/shen-yun-federal-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/06/crosswords/spelling-bee-forum.html
+
 **Leeds, Coventry and the exorcism of another of last season's ghosts**\
 `Leeds have painful recent memories of losing to Coventry, so this was another important moment in their quest for promotion`\
 https://nytimes.com/athletic/6117117/2025/02/06/leeds-coventry-farke-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6117214/2025/02/06/arsenal-alexander-isak-newcastle
 **How the Blackhawks plan to address goaltending in rebuild**\
 `The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
 https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
-
-**Lakers-Hornets trade grades: Mark Williams heading to L.A. to bolster frontcourt**\
-`The Lakers are sending out a first-round pick to take a gamble on a young replacement for Anthony Davis in the middle.`\
-https://nytimes.com/athletic/6117695/2025/02/06/mark-williams-trade-grades-lakers-hornets/
-
-**Lakers acquire Mark Williams, send Dalton Knecht, Cam Reddish to Hornets**\
-`The Lakers are sending two of its younger assets and draft capital East to pair Williams with five-time All-Star Luka Dončić`\
-https://nytimes.com/athletic/6117699/2025/02/06/lakers-hornets-nba-trade-dalton-knecht-cam-reddish/
-
-**Transcript Shows Rubio Asking U.S.A.I.D. Worker for ‘Trust’ and ‘Patience’**\
-`Speaking at the U.S. Embassy in Guatemala City, the secretary of state called foreign aid “the least popular thing” that government pays for.`\
-https://nytimes.com/2025/02/06/us/politics/rubio-usaid-worker-trust.html
 

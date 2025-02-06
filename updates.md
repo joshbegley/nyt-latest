@@ -1,3 +1,15 @@
+**That’s My Old Ball Coach**\
+`A Times writer was browsing the gray columns of newsprint when a photograph transported him to the green infield grass of childhood.`\
+https://nytimes.com/2025/02/06/insider/thats-my-old-ball-coach.html
+
+**Shen Yun Is Said to Be Under Federal Investigation Over Possible Visa Fraud**\
+`Investigators with the U.S. Department of Homeland Security and State Department have also interviewed former performers in the dance group about their working and living conditions.`\
+https://nytimes.com/2025/02/06/nyregion/shen-yun-federal-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/06/crosswords/spelling-bee-forum.html
+
 **Leeds, Coventry and the exorcism of another of last season's ghosts**\
 `Leeds have painful recent memories of losing to Coventry, so this was another important moment in their quest for promotion`\
 https://nytimes.com/athletic/6117117/2025/02/06/leeds-coventry-farke-championship/

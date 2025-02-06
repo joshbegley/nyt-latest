@@ -1,3 +1,7 @@
+**Leganes 2 Real Madrid 3: Garcia announces himself, tireless Valverde and Lunin's role**\
+`Real Madrid's exciting academy forward made the difference as Carlo Ancelotti's side scored late to advance in the Copa del Rey`\
+https://nytimes.com/athletic/6117496/2025/02/06/real-madrid-legances-gonzalo-garcia/
+
 **That’s My Old Ball Coach**\
 `A Times writer was browsing the gray columns of newsprint when a photograph transported him to the green infield grass of childhood.`\
 https://nytimes.com/2025/02/06/insider/thats-my-old-ball-coach.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114796/2025/02/06/newcastle-carabao-cup-arsenal-fi
 **Arsenal and the lesson of Alexander Isak**\
 `The Newcastle forward gave Arsenal a first-hand demonstration of what an elite centre-forward can offer`\
 https://nytimes.com/athletic/6117214/2025/02/06/arsenal-alexander-isak-newcastle/
-
-**How the Blackhawks plan to address goaltending in rebuild**\
-`The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
-https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
 
