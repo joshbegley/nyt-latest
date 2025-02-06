@@ -1,3 +1,11 @@
+**USC introduces GM Chad Bowden, 3 new coaches: 10 thoughts on the Trojans' staff changes**\
+`It's evident that recruiting Southern California will now be a priority for USC. `\
+https://nytimes.com/athletic/6118264/2025/02/06/usc-gm-chad-bowden-coaches-rob-ryan/
+
+**In Another Shock to Fashion, Gucci’s Designer Is Leaving**\
+`Sabato De Sarno’s departure adds to the industry turmoil.`\
+https://nytimes.com/2025/02/06/style/gucci-sabato-de-sarno.html
+
 **Green Energy Ambitions of European Companies Take a Beating**\
 `Orsted of Denmark and Equinor of Norway tap the brakes on offshore wind development after setbacks and market shifts.`\
 https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
