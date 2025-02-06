@@ -1,3 +1,11 @@
+**If ESPN opts out of TV deal, MLB warns it could walk away: source**\
+`ESPN has an opt out in its contract with the league covering the years 2026 to 2028. `\
+https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
+
+**Jobs at U.S.A.I.D. will drop from more than 10,000 to about 290, according to several people.**\
+`Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
+
 **Human Torso Found in Suitcase in the East River Near Manhattan**\
 `A New York City ferry captain saw the luggage and called the Police Department’s Harbor Unit. The authorities have not identified the remains.`\
 https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.html

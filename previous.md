@@ -1,8 +1,12 @@
+**If ESPN opts out of TV deal, MLB warns it could walk away: source**\
+`ESPN has an opt out in its contract with the league covering the years 2026 to 2028. `\
+https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
+
 **Human Torso Found in Suitcase in the East River Near Manhattan**\
 `A New York City ferry captain saw the luggage and called the Police Department’s Harbor Unit. The authorities have not identified the remains.`\
 https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.html
 
-**Trump Administration to Lay Off Nearly All of U.S. Aid Agency’s Staff**\
+**Jobs at U.S.A.I.D. will drop from more than 10,000 to about 290, according to several people.**\
 `Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-sala
 **C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
 `He was among the first backers of Apple Computer and 3Com, earning windfalls, but it was his humaneness that distinguished him from other venture capitalists.`\
 https://nytimes.com/2025/02/06/technology/c-richard-kramlich-dead.html
-
-**Ramos set to join Monterrey after agreeing one-year deal**\
-`The 38-year-old had a medical this week and is set to join the Liga MX side on a fixed salary with some bonuses.`\
-https://nytimes.com/athletic/6119209/2025/02/06/sergio-ramos-contract-monterrey/
 
