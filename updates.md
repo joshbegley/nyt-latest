@@ -1,3 +1,7 @@
+**Cavaliers acquire De'Andre Hunter from Hawks: Source**\
+`Hunter, 27, is averaging a career-high 19 points per game this season.`\
+https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-hawks/
+
 **'We just have to learn from it': Pistons vow to bounce back from painful last-second losses**\
 `Cade Cunningham led a furious Pistons' last-minute comeback against the Cavs, only for Detroit to experience another last-second heartbreak.`\
 https://nytimes.com/athletic/6117766/2025/02/06/pistons-cavs-cade-cunningham/
