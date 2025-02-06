@@ -1,3 +1,7 @@
+**In a Mexican Town Known for Big Waves, a Stylish New Hotel**\
+`Plus: a fashion designer’s floral rugs, a rooftop restaurant in Jaipur and more recommendations from T Magazine.`\
+https://nytimes.com/2025/02/06/t-magazine/mexico-coast-hotel.html
+
 **Heat Today: With Jimmy Butler gone, 5 ways Miami can develop its long-term identity**\
 `The drama has finally ended. Here's how Miami can move forward.`\
 https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-bam-adebayo-kelel-ware-nba-trade-deadline/
