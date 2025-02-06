@@ -1,3 +1,7 @@
+**Ryan Day to make $12.5 million per year in new Ohio State deal**\
+`Ryan Day's new Ohio State contract will make him college football's second-highest-paid coach behind Kirby Smart.`\
+https://nytimes.com/athletic/6118624/2025/02/06/ohio-state-ryan-day-new-contract-salary/
+
 **Hollinger: What Jimmy Butler trade really symbolizes is missed opportunity**\
 `It took half a decade, but the Warriors finally admitted the truth by giving up a first and most of their future cap flexibility for Butler.`\
 https://nytimes.com/athletic/6117854/2025/02/06/jimmy-butler-steph-curry-warriors-heat-problems-nba-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-ba
 **Journeyman outfielder Tommy Pham signs 1-year deal with Pirates**\
 `The Pirates will pay Pham, who turns 37 in March, $4 million to bring veteran experience and depth to their outfield.`\
 https://nytimes.com/athletic/6118423/2025/02/06/tommy-pham-signs-pittsburgh-pirates/
-
-**How Ruben Amorim could recalibrate Manchester United's defence after Lisandro Martinez's injury**\
-`Martinez is set to be a huge loss for United, so who should play in defence for them going forward?`\
-https://nytimes.com/athletic/5831626/2025/02/06/manchester-united-defence-amorim-martinez/
 
