@@ -1,3 +1,11 @@
+**The Bounce: Why Jimmy Butler, not Kevin Durant, went to the Warriors as the NBA trade deadline nears**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6118402/2025/02/06/jimmy-butler-warriors-heat-kevin-durant-suns-nba-trade-deadline-the-bounce/
+
+**Senate Democrats Hold the Floor in Overnight Protest of Trump Nominee**\
+`Powerless to stop President Trump or Russell T. Vought, the nominee to lead the White House budget office, Democrats pulled an all-nighter to show their opposition.`\
+https://nytimes.com/2025/02/06/us/politics/trump-senate-democrats-russell-vought.html
+
 **Ryan Day to make $12.5 million per year in new Ohio State deal**\
 `Ryan Day's new Ohio State contract will make him college football's second-highest-paid coach behind Kirby Smart.`\
 https://nytimes.com/athletic/6118624/2025/02/06/ohio-state-ryan-day-new-contract-salary/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-see
 **In a Mexican Town Known for Big Waves, a Stylish New Hotel**\
 `Plus: a fashion designer’s floral rugs, a rooftop restaurant in Jaipur and more recommendations from T Magazine.`\
 https://nytimes.com/2025/02/06/t-magazine/mexico-coast-hotel.html
-
-**Heat Today: With Jimmy Butler gone, 5 ways Miami can develop its long-term identity**\
-`The drama has finally ended. Here's how Miami can move forward.`\
-https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-bam-adebayo-kelel-ware-nba-trade-deadline/
-
-**Journeyman outfielder Tommy Pham signs 1-year deal with Pirates**\
-`The Pirates will pay Pham, who turns 37 in March, $4 million to bring veteran experience and depth to their outfield.`\
-https://nytimes.com/athletic/6118423/2025/02/06/tommy-pham-signs-pittsburgh-pirates/
 
