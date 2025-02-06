@@ -1,3 +1,7 @@
+**Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
+`Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
+https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
+
 **Trump Trade Nominee Defends Plan to Reorder International Trade**\
 `Jamieson Greer advocated restructuring the international trading system and defended the president’s aggressive actions against Canada and Mexico as he testified before the Senate.`\
 https://nytimes.com/2025/02/06/us/politics/jamieson-greer-ustr-hearing.html

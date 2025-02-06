@@ -1,7 +1,3 @@
-**Trump Trade Nominee Defends Plan to Reorder International Trade**\
-`Jamieson Greer advocated restructuring the international trading system and defended the president’s aggressive actions against Canada and Mexico as he testified before the Senate.`\
-https://nytimes.com/2025/02/06/us/politics/jamieson-greer-ustr-hearing.html
-
 **How Eddie Howe set Newcastle up to defeat Arsenal and reach the Carabao Cup final**\
 `There was no escape for Mikel Arteta's side last night - Newcastle's application without the ball made them worthy winners `\
 https://nytimes.com/athletic/6118175/2025/02/06/newcastle-arsenal-eddie-howe-tactics-carabao/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/06/us/susan-f-wood-dead.html
 **Trump Media Is Moving Into the Financial Services Industry**\
 `The parent company of Truth Social said it had applied for trademarks for investment products that would allow supporters to invest in the “patriotic economy.”`\
 https://nytimes.com/2025/02/06/business/trump-media-financial-services.html
+
+**Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
+`Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
+https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
 
