@@ -1,3 +1,7 @@
+**Leicester's Jeremy Monga, 15, and Jake Evans, 16, in squad vs Man Utd**\
+`The two wingers will be on the substitutes’ bench at Old Trafford as Van Nistelrooy looks to the club's youth system to strengthen his team.`\
+https://nytimes.com/athletic/6118156/2025/02/06/jeremy-monga-jake-evans-leicester-who/
+
 **Israel Tells Military to Draft Plan for Gazans to Leave**\
 `The order by the Israeli defense minister comes after President Trump proposed a U.S. takeover of Gaza and said that all two million Palestinians in the enclave should be displaced.`\
 https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinians-leave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/world/europe/grenfell-tower-uk-demolished-survivo
 **Watch: Jimmy Butler or the Warriors — who needed this more?**\
 `The Athletic NBA Daily discuss Jimmy Butler's trade to the Golden State Warriors.`\
 https://nytimes.com/athletic/6117972/2025/02/06/nba-daily-jimmy-butler-warriors-trade/
-
-**Bubble Watch: Who can make plans for March, and who still has work to do?**\
-`With roughly 10 games remaining for most teams, a large number of teams can still call themselves tournament hopefuls.`\
-https://nytimes.com/athletic/6116961/2025/02/06/college-basketball-bubble-watch-mens-ncaa-tournament-bids/
 
