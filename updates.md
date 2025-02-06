@@ -1,3 +1,7 @@
+**Who were the biggest winners of an unprecedented NBA trade deadline?**\
+`A couple of teams rise above the rest, but one group may be smiling from ear to ear after the dust settles.`\
+https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-lakers-cavaliers/
+
 **Trump Vows to Improve Air Traffic Control System After Crash**\
 `The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
 https://nytimes.com/2025/02/06/us/politics/trump-vows-to-improve-air-traffic-control-system-after-crash.html
