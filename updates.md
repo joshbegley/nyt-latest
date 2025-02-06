@@ -1,3 +1,7 @@
+**Several Accused of Impersonating Agents Amid Trump Push on Deportations**\
+`At least three people in three states have recently been charged with pretending to be immigration agents, the authorities said.`\
+https://nytimes.com/2025/02/06/us/ice-raids-deportations-false-reports-impersonators.html
+
 **Chiefs’ Justin Reid thinks New Orleans is perfect, just like K.C.’s 2022 draft class**\
 `The Chiefs' 2022 draftees haven’t experienced a postseason loss. They're going for a 10th consecutive playoff win and third Super Bowl ring.`\
 https://nytimes.com/athletic/6119266/2025/02/06/chiefs-super-bowl-justin-reid-bryan-cook/
