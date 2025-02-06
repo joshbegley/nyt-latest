@@ -1,3 +1,35 @@
+**Just how bad are the Leafs at getting offence from the defence? Breaking it down**\
+`The Leafs are last in the NHL at getting goals from the defence. Breaking down the numbers behind the trend.`\
+https://nytimes.com/athletic/6036493/2025/02/06/maple-leafs-defence-goals-points-nhl/
+
+**How to Boil an Egg? Scientists Claim to Have Cracked the Recipe.**\
+`Their new method takes 32 minutes.`\
+https://nytimes.com/2025/02/06/science/boiled-egg-science-recipe.html
+
+**Here’s the Beans**\
+`Alexa Weibel’s creamy, spicy tomato beans and greens are a Reddit favorite: “I don’t know what kind of magic is at work here. 10/10. No notes.”`\
+https://nytimes.com/2025/02/06/dining/reddit-beans.html
+
+**Fossils Preserve Both Skin and Scales From an Ancient Sea Monster**\
+`The mix of features offers new clues to how plesiosaurs navigated prehistoric oceans.`\
+https://nytimes.com/2025/02/06/science/plesiosaur-fossils-skin-scales.html
+
+**The Real Reason Big Tech Is Cozying Up to Trump**\
+`Big Tech is looking to President Trump for a bailout.`\
+https://nytimes.com/2025/02/06/opinion/trump-deepseek-regulation-bailout-big-tech.html
+
+**Having Big Feelings? Here’s How to ‘Shift’ Them.**\
+`In his new book, the emotion researcher Ethan Kross shares strategies for managing life’s curveballs.`\
+https://nytimes.com/2025/02/06/well/how-to-change-your-mood.html
+
+**5 Decluttering Books to Bring Order to Chaos**\
+`We asked professional organizers to share their favorites.`\
+https://nytimes.com/2025/02/06/well/organizing-books.html
+
+**Thunder's Chet Holmgren set to return from hip injury**\
+`Holmgren last played on Nov. 10 when he suffered a hip injury against the Warriors.`\
+https://nytimes.com/athletic/6118612/2025/02/06/chet-holmgren-return-okc-thunder-nba/
+
 **After upgrading bullpen, outfield, Twins could next add backup shortstop: Sources**\
 `The Twins have expressed interest in signing a backup shortstop, sources say. Were they to do so, they may need to trim payroll via a trade.`\
 https://nytimes.com/athletic/6117814/2025/02/06/minnesota-twins-offseason-signings-shortstop/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6117814/2025/02/06/minnesota-twins-offseason-signin
 **The Bounce: Why Jimmy Butler, not Kevin Durant, went to the Warriors as the NBA trade deadline nears**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6118402/2025/02/06/jimmy-butler-warriors-heat-kevin-durant-suns-nba-trade-deadline-the-bounce/
-
-**Senate Democrats Hold the Floor in Overnight Protest of Trump Nominee**\
-`Powerless to stop President Trump or Russell T. Vought, the nominee to lead the White House budget office, Democrats pulled an all-nighter to show their opposition.`\
-https://nytimes.com/2025/02/06/us/politics/trump-senate-democrats-russell-vought.html
-
-**Ryan Day to make $12.5 million per year in new Ohio State deal**\
-`Ryan Day's new Ohio State contract will make him college football's second-highest-paid coach behind Kirby Smart.`\
-https://nytimes.com/athletic/6118624/2025/02/06/ohio-state-ryan-day-new-contract-salary/
-
-**Hollinger: What Jimmy Butler trade really symbolizes is missed opportunity**\
-`It took half a decade, but the Warriors finally admitted the truth by giving up a first and most of their future cap flexibility for Butler.`\
-https://nytimes.com/athletic/6117854/2025/02/06/jimmy-butler-steph-curry-warriors-heat-problems-nba-trade/
-
-**Watch: ‘It Turns Out the ‘Deep State’ Is Actually Kind of Awesome’**\
-`Who are the people that help to make the federal government work?`\
-https://nytimes.com/2025/02/06/learning/watch-it-turns-out-the-deep-state-is-actually-kind-of-awesome.html
-
-**Workers at E.P.A.’s Office of Environmental Justice Are Told They May Be Put on Leave**\
-`President Trump is likely to close the office as he moves to eliminate programs on environmental justice, which aims to protect poor and minority communities from disproportionate harm from pollution.`\
-https://nytimes.com/2025/02/06/climate/epa-environmental-justice-workers-leave.html
-
-**Trump Amplifies Conspiracy Theory Over Payments to Politico**\
-`President Trump spread unfounded claims that the government had paid Politico and other news media outlets for positive coverage of Democrats. Records show agencies paid for subscriptions.`\
-https://nytimes.com/2025/02/06/business/trump-politico-usaid-spending-conspiracy.html
-
-**The correlation between close Super Bowl spreads and close games, plus other findings**\
-`Dan Santaromita examines close Super Bowl spreads throughout history and discovers interesting trends beyond score correlations.`\
-https://nytimes.com/athletic/6104131/2025/02/06/super-bowl-close-spreads-history/
-
-**What is the NET, and what can it tell you about the NCAA Tournament bracket?**\
-`Of the 24 teams evaluated over that three-year period, any squad with at least nine Quad 1 losses did not qualify for the NCAA Tournament.`\
-https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-seeding-bubble/
 
