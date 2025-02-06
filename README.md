@@ -1,4 +1,8 @@
-**Heat deal Jimmy Butler to Warriors in multi-team trade**\
+**Astros to sign outfielder Ben Gamel: Sources**\
+`Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
+https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
+
+**Heat deal Jimmy Butler to Warriors in multi-team trade: Sources**\
 `Butler, 35, is averaging 17 points and 5.2 rebounds in 20 games this season — his lowest scoring average since 2013-14.`\
 https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
 **ASAP Rocky’s Trial Style Scrambles the Signals**\
 `Fans could be forgiven for mistaking the rapper’s court appearances for fashion shoots.`\
 https://nytimes.com/2025/02/05/style/asap-rocky-trial.html
-
-**Kings to acquire Jonas Valančiūnas from Wizards for 2028, 2029 draft picks**\
-`Valančiūnas, 32, brings Sacramento plenty of rim protection rebounding and the ability to stretch the floor.`\
-https://nytimes.com/athletic/6117030/2025/02/05/kings-wizards-jonas-valanciunas-nba-trade/
 
