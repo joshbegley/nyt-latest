@@ -1,3 +1,7 @@
+**See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
+`Documents and satellite imagery show how much buildup is underway at the military site.`\
+https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
+
 **U.S. Is Holding Migrants in Cells That Once Held Al Qaeda Suspects**\
 `The Trump administration said the 10 men who were sent to a prison on the base at Guantánamo Bay are affiliated with gangs.`\
 https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-pale
 **‘Effectively Unaccountable’: Inside the Trump-Musk Relationship**\
 `The alliance between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
-
-**West Point Disbands Clubs for Women and Minorities After Trump Orders**\
-`The military academy ordered the closure of a dozen clubs for students affiliated with its Diversity, Equity and Inclusion office.`\
-https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
 
