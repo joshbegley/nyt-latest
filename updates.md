@@ -1,3 +1,15 @@
+**Footballers and learning new languages: Adele, The Da Vinci Code and the delivery room**\
+`Forget Duolingo or following an exam syllabus, language lessons for players start with football terminology and team-mate's nicknames`\
+https://nytimes.com/athletic/6109238/2025/02/06/footballers-learning-languages-translators-tutors/
+
+**Manchester United's No 9 struggles are a damning symptom of club's decline**\
+`Old Trafford, once the spiritual home of attacking football, has become a graveyard for centre-forwards `\
+https://nytimes.com/athletic/6096933/2025/02/06/manchester-united-strikers-transfers/
+
+**Stop making football less fun. Please**\
+`Football is meant to be fun. As minor as it seems, solemnly tutting at or punishing a player for mocking in celebrations, chips away at that`\
+https://nytimes.com/athletic/6116214/2025/02/06/celebrations-no-fun-football-premier-league/
+
 **Goalkeepers and the rise of the assist**\
 `The purpose of the modern goalkeeper is to be good off the floor as well as keep goals out — they are increasingly providing assists, too`\
 https://nytimes.com/athletic/6112292/2025/02/06/goalkeeper-assists-ederson-pickford-alisson/
