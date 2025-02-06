@@ -1,3 +1,7 @@
+**Leicester's Jeremy Monga, 15, and Jake Evans, 16, in squad vs Man Utd**\
+`The two wingers will be on the substitutes’ bench at Old Trafford as Van Nistelrooy looks to the club's youth system to strengthen his team.`\
+https://nytimes.com/athletic/6118156/2025/02/06/jeremy-monga-jake-evans-leicester-who/
+
 **Israel Tells Military to Draft Plan for Gazans to Leave**\
 `The order by the Israeli defense minister comes after President Trump proposed a U.S. takeover of Gaza and said that all two million Palestinians in the enclave should be displaced.`\
 https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinians-leave.html
