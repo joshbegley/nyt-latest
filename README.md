@@ -1,3 +1,7 @@
+**Darius Slay still has gas in the tank, C.J. Gardner-Johnson's play 'speaks for itself'**\
+`Plus, Jalen Hurts prepares for a challenging test.`\
+https://nytimes.com/athletic/6119138/2025/02/06/eagles-defense-superbowl-darius-slay-cj-gardner-johnson/
+
 **Hawks-Clippers trade grades: Bogdan Bogdanović (probably) bolsters LA's backcourt**\
 `Naturally, we have some questions about the Hawks and what they're doing.`\
 https://nytimes.com/athletic/6119274/2025/02/06/bogdan-bogdanovic-terance-mann-bones-hyland-nba-trade-grades-hawks-clippers/
@@ -18,6 +22,10 @@ https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-grou
 `Lamar performed in the Super Bowl LVI halftime show as part of Dr. Dre’s halftime show with Snoop Dogg, Eminem, 50 Cent and Mary J. Blige`\
 https://nytimes.com/athletic/6119292/2025/02/06/kendrick-lamar-super-bowl-halftime-performance/
 
+**NBA trade deadline: Grading all the big deals of 2024-25 trade season**\
+`We've been filling out our report cards on the most notable moves of the past two months.`\
+https://nytimes.com/athletic/6100277/2025/02/06/nba-trade-deadline-grading-deals/
+
 **Several Accused of Impersonating Agents Amid Trump Push on Deportations**\
 `At least three people in three states have recently been charged with pretending to be immigration agents, the authorities said.`\
 https://nytimes.com/2025/02/06/us/ice-raids-deportations-false-reports-impersonators.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6119266/2025/02/06/chiefs-super-bowl-justin-reid-br
 **After Attack, New Orleans Is Rattled but Ready for the ‘Biggest Show on Earth’**\
 `Officials scrutinized security plans for Super Bowl LIX after a deadly New Year’s Day terrorist attack on Bourbon Street stoked fears about safety.`\
 https://nytimes.com/2025/02/06/us/new-orleans-super-bowl-security.html
-
-**Ye Says He Has Autism Rather Than Bipolar Disorder**\
-`The rapper and designer formerly known as Kanye West revealed the diagnosis during a podcast interview where he also discussed his upcoming album.`\
-https://nytimes.com/2025/02/06/style/kanye-west-autism-podcast.html
-
-**Are Youth Sports Too Stressful? Teenagers Weigh In.**\
-`The N.B.A. superstar Luka Doncic worries that sports are no longer fun for many young players. We invited students to share their experiences.`\
-https://nytimes.com/2025/02/06/learning/are-youth-sports-too-stressful-teenagers-weigh-in.html
 
