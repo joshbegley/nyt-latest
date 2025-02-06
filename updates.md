@@ -1,3 +1,23 @@
+**Human Torso Found in Suitcase in the East River Near Manhattan**\
+`A New York City ferry captain saw the luggage and called the Police Department’s Harbor Unit. The authorities have not identified the remains.`\
+https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.html
+
+**Trump Administration to Lay Off Nearly All of U.S. Aid Agency’s Staff**\
+`Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
+
+**NCAA changes transgender participation policy after Donald Trump's executive order**\
+`The U.S. Department of Education said Thursday it would launch investigations into San Jose State and the University of Pennsylvania.`\
+https://nytimes.com/athletic/6119241/2025/02/06/ncaa-transgender-policy-donald-trump/
+
+**Big bets rolling in early on Super Bowl, including $1.1 million on the Eagles**\
+`Ben Fawkes talks early action on the Super Bowl, including the five biggest bets so far and how bettors are all in on Saquon Barkley props.`\
+https://nytimes.com/athletic/6116265/2025/02/06/super-bowl-2025-biggest-betting-trends/
+
+**The Giants' projected 2025 season win total is predictably unexciting**\
+`It probably isn't a surprise that the Giants are projected to be an average team, given the past few years. But is that a bad thing?`\
+https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
+
 **All you need to know about the Carabao Cup final**\
 `We bring you all you need to know about the Carabao Cup final including the impact on Fantasy Premier League.`\
 https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtures-explained/
