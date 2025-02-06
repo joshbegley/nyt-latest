@@ -1,6 +1,10 @@
+**'We just have to learn from it': Pistons vow to bounce back from painful last-second losses**\
+`Cade Cunningham led a furious Pistons' last-minute comeback against the Cavs, only for Detroit to experience another last-second heartbreak.`\
+https://nytimes.com/athletic/6117766/2025/02/06/pistons-cavs-cade-cunningham/
+
 **Suns dealing Jusuf Nurkić to Hornets: Reports**\
 `Nurkić, 30, hasn't played since Jan. 7.`\
-https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-team-nba-trade-deadline/
+https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-hornets-nba-trade-deadline/
 
 **Humpback Whales Sing the Way Humans Speak**\
 `The animals’ complex songs share structural patterns with human language that may make them easier for whales to learn, a new study suggests.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.htm
 **The Price of Fraud in Alzheimer’s Research**\
 `Readers worry that fraud may tarnish the field and slow the race for a cure. Also: Charles Blow’s farewell; treatment for addiction; the Gulf of America; Socrates and Donald Trump.`\
 https://nytimes.com/2025/02/06/opinion/alzheimers-research-fraud.html
-
-**A Runway Switch, a Vague Alert: What Pilots Heard Before Fatal D.C. Crash**\
-`The pilots of the American Airlines regional jet in the Washington airport collision acted as expected, aviation safety experts and other pilots said.`\
-https://nytimes.com/2025/02/06/business/dc-plane-crash-american-airlines-pilots.html
 
