@@ -1,3 +1,7 @@
+**Amazon, under conservative pressure, reinstates a book critical of transgender care.**\
+`By Karen Weise and David McCabe`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/amazon-under-conservative-pressure-reinstates-a-book-critical-of-transgender-care
+
 **Education Dept. Investigates Schools Ensnared in Transgender Sports Disputes**\
 `Three new investigations announced on Thursday came after President Trump ordered federal agencies to help bar transgender women and girls from female sports teams.`\
 https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-dept.html
