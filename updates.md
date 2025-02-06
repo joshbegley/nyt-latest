@@ -1,3 +1,11 @@
+**Palmerston, the British Foreign Service Cat, Takes Up New Post in Bermuda**\
+`The cat, who first served in 2016, had feuded with Larry, the chief mouser at 10 Downing Street.`\
+https://nytimes.com/2025/02/06/world/europe/cat-britain-palmerston-bermuda.html
+
+**Suns dealing Jusuf Nurkić to Hornets for Cody Martin: Sources**\
+`Nurkić, 30, hasn't played since Jan. 7 and hardly played in January between losing his starting spot and missing four games`\
+https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-hornets-nba-trade-deadline/
+
 **Cavaliers acquire De'Andre Hunter from Hawks: Source**\
 `Hunter, 27, is averaging a career-high 19 points per game this season.`\
 https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-hawks/
