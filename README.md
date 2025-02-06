@@ -1,3 +1,19 @@
+**Kevin Danso is back in the Premier League to save Tottenham's season**\
+`The self-described "gladiator" will relish the challenge of finally playing at Anfield five years later than he expected to...`\
+https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-tottenham/
+
+**Chelsea's transfer window reviewed: Squad players leave but judgement will have to wait**\
+`By their standards, Chelsea had a quiet window - but that could be a good thing`\
+https://nytimes.com/athletic/6112492/2025/02/06/chelsea-transfer-window-review/
+
+**Mascherano responds to Ronaldo 'greatest' claims: 'It's not that'**\
+`Ronaldo thinks he is the best soccer player in history, but Javier Mascherano disagrees.`\
+https://nytimes.com/athletic/6117619/2025/02/06/ronaldo-messi-goat-debate-mascherano/
+
+**Irv Gotti, Famed Hip-Hop Music Executive, Dies**\
+`The producer helped shape rap and R&B after founding the label Murder Inc., which launched artists like Ja Rule and Ashanti.`\
+https://nytimes.com/2025/02/06/arts/music/irv-gotti-dead.html
+
 **Footballers and learning new languages: Adele, The Da Vinci Code and the delivery room**\
 `Forget Duolingo or following an exam syllabus, language lessons for players start with football terminology and team-mate's nicknames`\
 https://nytimes.com/athletic/6109238/2025/02/06/footballers-learning-languages-translators-tutors/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6114899/2025/02/06/five-of-europes-shrewdest-under-
 **Does Erling Haaland need to do more without the ball?**\
 `The Manchester City striker was criticised by Thierry Henry for his performance against Arsenal last weekend - but was the analysis fair?`\
 https://nytimes.com/athletic/6109333/2025/02/06/does-erling-haaland-need-to-do-more-without-the-ball/
-
-**Is there a soccer equivalent of the Luka Doncic-Anthony Davis trade?**\
-`A few come close, but a true comparison can only be found in the realm of the hypothetical`\
-https://nytimes.com/athletic/6115963/2025/02/06/is-there-a-footballing-equivalent-of-the-luka-doncic-anthony-davis-trade/
-
-**To Keep Aid Coming, Ukraine Appeals to Trump Allies: Conservative Christians**\
-`A Ukrainian delegation to the National Prayer Breakfast in Washington will make the case that Russia threatens the religious freedom of Christians who don’t follow the Russian Orthodox Church.`\
-https://nytimes.com/2025/02/06/world/europe/ukraine-national-prayer-breakfast.html
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/02/06/briefing/trump-gaza-congo.html
-
-**Quote of the Day: A Smoking Ban That Goes the Whole 11 Yards**\
-`Quotation of the Day for Thursday, February 6, 2025`\
-https://nytimes.com/2025/02/05/pageoneplus/quote-of-the-day-a-smoking-ban-that-goes-the-whole-11-yards.html
 
