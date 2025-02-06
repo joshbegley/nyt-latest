@@ -1,7 +1,3 @@
-**After upgrading bullpen, outfield, Twins could next add backup shortstop: Sources**\
-`The Twins have expressed interest in signing a backup shortstop, sources say. Were they to do so, they may need to trim payroll via a trade.`\
-https://nytimes.com/athletic/6117814/2025/02/06/minnesota-twins-offseason-signings-shortstop/
-
 **The Bounce: Why Jimmy Butler, not Kevin Durant, went to the Warriors as the NBA trade deadline nears**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6118402/2025/02/06/jimmy-butler-warriors-heat-kevin-durant-suns-nba-trade-deadline-the-bounce/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6104131/2025/02/06/super-bowl-close-spreads-history
 **What is the NET, and what can it tell you about the NCAA Tournament bracket?**\
 `Of the 24 teams evaluated over that three-year period, any squad with at least nine Quad 1 losses did not qualify for the NCAA Tournament.`\
 https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-seeding-bubble/
+
+**In a Mexican Town Known for Big Waves, a Stylish New Hotel**\
+`Plus: a fashion designer’s floral rugs, a rooftop restaurant in Jaipur and more recommendations from T Magazine.`\
+https://nytimes.com/2025/02/06/t-magazine/mexico-coast-hotel.html
 
