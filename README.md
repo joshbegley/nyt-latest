@@ -35,6 +35,6 @@ https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
 https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
 
 **Thorns, WNBA Portland to receive $150 million joint training campus**\
-`The first phase of development involves building a privately funded $75 million, 12-acre training facility`\
+`The first phase of development involves building a privately funded $75 million 12-acre training facility`\
 https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
 
