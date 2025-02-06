@@ -1,4 +1,4 @@
-**Dowman, 15, and Porter, 16, included in Arsenal's squad for Dubai**\
+**Dowman, 15, and Porter, 16, included in Arsenal's squad for Dubai camp**\
 `The pair will be joined by several other Arsenal academy players during the warm weather camp.`\
 https://nytimes.com/athletic/6117840/2025/02/06/arsenal-max-dowman-jack-porter-dubai/
 
