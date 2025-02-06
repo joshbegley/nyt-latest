@@ -1,3 +1,7 @@
+**U.S. Waives Funding Freeze at Syrian Camp Holding Thousands of ISIS Fighters**\
+`Upholding security at the camp is seen as critical to prevent a resurgence of the Islamic State. A contractor that trains the police there got a temporary waiver allowing it to continue operating.`\
+https://nytimes.com/2025/02/06/world/europe/trump-usaid-funding-syria-isis.html
+
 **Lauren Macuga takes third, Lindsey Vonn skis out in super-G at world championships**\
 `Austria's Stephanie Venier topped the podium, and American Lauren Macuga hit a new milestone in her young career in Thursday's super-G.`\
 https://nytimes.com/athletic/6118092/2025/02/06/lindsey-vonn-lauren-macuga-super-g-world-championships-olympics/
