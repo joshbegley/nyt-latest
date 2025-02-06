@@ -1,3 +1,11 @@
+**Brandon Ingram trade indicates Pelicans are (finally) ready to begin next phase**\
+`By dealing Ingram to Toronto, New Orleans ended one new era and now embarks on another.`\
+https://nytimes.com/athletic/6118012/2025/02/06/brandon-ingram-trade-pelicans-zion-williamson/
+
+**Leicester's Jeremy Monga, 15, and Jake Evans, 16, in squad vs Man Utd**\
+`The two wingers will be on the substitutes’ bench at Old Trafford as Van Nistelrooy looks to the club's youth system to strengthen his team.`\
+https://nytimes.com/athletic/6118156/2025/02/06/jeremy-monga-jake-evans-leicester-who/
+
 **What should Lukáš Dostál's next contract look like?**\
 `The Ducks will soon have to pay Dostál like a No. 1 goalie. With a rising salary cap on the horizon, what could his next deal be worth?`\
 https://nytimes.com/athletic/6117890/2025/02/06/ducks-lukas-dostal-contract-nhl/
