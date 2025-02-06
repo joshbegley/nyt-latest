@@ -1,5 +1,9 @@
+**Lonzo Ball, Bulls agree to 2-year extension: Sources**\
+`The second year of Ball’s contract is a team option, the sources said.`\
+https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
+
 **Canucks sign D Marcus Pettersson to 6-year extension**\
-`Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins`\
+`Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins.`\
 https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contract-extension/
 
 **Global Temperatures Shattered Records in January**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-pana
 **See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
 `Documents and satellite imagery show how much buildup is underway at the military site.`\
 https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
-
-**U.S. Is Holding Migrants in Cells That Once Held Al Qaeda Suspects**\
-`The Trump administration said the 10 men who were sent to a prison on the base at Guantánamo Bay are affiliated with gangs.`\
-https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
 
