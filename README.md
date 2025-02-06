@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6118856/2025/02/06/jesse-derry-crystal-palace/
 
 **Suit Over Firing by Trump Could Pave Way for Broader Presidential Power**\
 `If the case reaches the Supreme Court, its conservative majority will be receptive to Donald J. Trump’s argument that presidents have unlimited power to remove members of independent agencies.`\
-https://nytimes.com/2025/02/06/us/politics/trump-labor-dismissal-power.html
+https://nytimes.com/2025/02/06/us/politics/trump-firing-labor-supreme-court.html
 
 **MLB owners approve John Seidler as new head of Padres**\
 `John Seidler replaces his younger brother, the late Peter Seidler, atop the Padres organization. `\
