@@ -1,3 +1,7 @@
+**Jimmy Butler trade grades: Saga finally ends with multi-team deal involving Warriors**\
+`Golden State adds some star power next to Stephen Curry, while the Pistons and Jazz get involved, too.`\
+https://nytimes.com/athletic/6117184/2025/02/05/jimmy-butler-trade-grades-heat-warriors/
+
 **Lonzo Ball, Bulls agree to 2-year extension: Sources**\
 `The second year of Ball’s contract is a team option, the sources said.`\
 https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/pageoneplus/corrections-feb-6-2025.html
 **The State Department says Panama will stop charging U.S. government ships for canal access.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-panama-will-stop-charging-us-government-ships-for-canal-access
-
-**See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
-`Documents and satellite imagery show how much buildup is underway at the military site.`\
-https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
 
