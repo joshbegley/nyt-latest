@@ -1,3 +1,11 @@
+**Review: Getting to the Essence of Camille A. Brown’s Artistry**\
+`With the high-energy “I AM,” Brown takes her signature interweaving of African diasporic dance forms to new heights.`\
+https://nytimes.com/2025/02/06/arts/dance/review-camille-a-brown-i-am.html
+
+**Ippei Mizuhara sentenced to five years for defrauding Shohei Ohtani**\
+`Prosecutors got the sentence they requested for Mizuhara, who had hoped to serve less than two years. `\
+https://nytimes.com/athletic/6119634/2025/02/06/ippei-mizuhara-sentencing-shohei-ohtani/
+
 **Trump Pauses Online Tirade to Preach Unity**\
 `At the National Prayer Breakfast in Washington, Mr. Trump took a moment to speak of bipartisan comity. Just hours earlier, he torched the federal bureaucracy, the global order, the media and Democrats.`\
 https://nytimes.com/2025/02/06/us/politics/trump-pauses-online-tirade-to-preach-unity.html
