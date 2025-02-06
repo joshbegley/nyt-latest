@@ -1,3 +1,7 @@
+**Education Dept. Investigates Schools Ensnared in Transgender Sports Disputes**\
+`Three new investigations announced on Thursday came after President Trump ordered federal agencies to help bar transgender women and girls from female sports teams.`\
+https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-dept.html
+
 **What to See in N.Y.C. Galleries in February**\
 `This week in Newly Reviewed, Holland Cotter covers two group shows: one devoted to an important gallery from the past, the other focused on language and silence.`\
 https://nytimes.com/2025/02/06/arts/what-to-see-in-nyc-galleries-in-february.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/briefing/trump-gaza-sweden-shooting-global-heat.h
 **Darius Slay still has gas in the tank, C.J. Gardner-Johnson's play 'speaks for itself'**\
 `Plus, Jalen Hurts prepares for a challenging test.`\
 https://nytimes.com/athletic/6119138/2025/02/06/eagles-defense-superbowl-darius-slay-cj-gardner-johnson/
-
-**Hawks-Clippers trade grades: Bogdan Bogdanović (probably) bolsters LA's backcourt**\
-`Naturally, we have some questions about the Hawks and what they're doing.`\
-https://nytimes.com/athletic/6119274/2025/02/06/bogdan-bogdanovic-terance-mann-bones-hyland-nba-trade-grades-hawks-clippers/
 
