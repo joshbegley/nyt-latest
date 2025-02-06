@@ -1,3 +1,11 @@
+**Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
+`Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
+https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
+
+**How much did your team earn from the Premier League last season?**\
+`The Premier League’s annual report shows Man City’s fourth consecutive title earned them £175.9million ($218.2m) in prize money.`\
+https://nytimes.com/athletic/6118715/2025/02/06/how-much-premier-league-prize-money/
+
 **Palace set to lose academy prospect Derry after contract rejection**\
 `Derry, 17, scored 16 goals in 22 games for Palace Under-18s last season.`\
 https://nytimes.com/athletic/6118856/2025/02/06/jesse-derry-crystal-palace/
