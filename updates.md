@@ -1,3 +1,11 @@
+**Chiefs’ Justin Reid thinks New Orleans is perfect, just like K.C.’s 2022 draft class**\
+`The Chiefs' 2022 draftees haven’t experienced a postseason loss. They're going for a 10th consecutive playoff win and third Super Bowl ring.`\
+https://nytimes.com/athletic/6119266/2025/02/06/chiefs-super-bowl-justin-reid-bryan-cook/
+
+**After Attack, New Orleans Is Rattled but Ready for the ‘Biggest Show on Earth’**\
+`Officials scrutinized security plans for Super Bowl LIX after a deadly New Year’s Day terrorist attack on Bourbon Street stoked fears about safety.`\
+https://nytimes.com/2025/02/06/us/new-orleans-super-bowl-security.html
+
 **Ye Says He Has Autism Rather Than Bipolar Disorder**\
 `The rapper and designer formerly known as Kanye West revealed the diagnosis during a podcast interview where he also discussed his upcoming album.`\
 https://nytimes.com/2025/02/06/style/kanye-west-autism-podcast.html
