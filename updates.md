@@ -1,3 +1,19 @@
+**White House Cracks Down on News Subscriptions**\
+`The U.S.D.A. said Thursday that it had canceled its subscriptions to Politico Pro, a news and information service aimed at policy professionals.`\
+https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-house.html
+
+**Read the Guidance Sent to New York City Shelters**\
+`On Jan. 13, City Hall instructed city employees how to respond if federal law enforcement officers showed up on city property.`\
+https://nytimes.com/interactive/2025/02/06/nyregion/nyc-memo-shelters.html
+
+**Trump Met PGA Commissioner About Saudi Golf Tour Deal**\
+`Tour officials said the session at the White House “brought us closer to a final deal” that would be subject to Justice Department antitrust scrutiny.`\
+https://nytimes.com/2025/02/06/us/politics/trump-golf-pga-liv-monahan.html
+
+**C.D.C. Posts, Then Deletes, Data on Bird Flu Spread Between Cats and People**\
+`The data, which appeared fleetingly online on Wednesday, confirmed transmission in two households. Scientists called on the agency to release the full report.`\
+https://nytimes.com/2025/02/06/health/cdc-bird-flu-cats-people.html
+
 **Review: Getting to the Essence of Camille A. Brown’s Artistry**\
 `With the high-energy “I AM,” Brown takes her signature interweaving of African diasporic dance forms to new heights.`\
 https://nytimes.com/2025/02/06/arts/dance/review-camille-a-brown-i-am.html

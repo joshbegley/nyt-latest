@@ -1,3 +1,19 @@
+**White House Cracks Down on News Subscriptions**\
+`The U.S.D.A. said Thursday that it had canceled its subscriptions to Politico Pro, a news and information service aimed at policy professionals.`\
+https://nytimes.com/2025/02/06/business/media/politico-news-subscriptions-white-house.html
+
+**Read the Guidance Sent to New York City Shelters**\
+`On Jan. 13, City Hall instructed city employees how to respond if federal law enforcement officers showed up on city property.`\
+https://nytimes.com/interactive/2025/02/06/nyregion/nyc-memo-shelters.html
+
+**Trump Met PGA Commissioner About Saudi Golf Tour Deal**\
+`Tour officials said the session at the White House “brought us closer to a final deal” that would be subject to Justice Department antitrust scrutiny.`\
+https://nytimes.com/2025/02/06/us/politics/trump-golf-pga-liv-monahan.html
+
+**C.D.C. Posts, Then Deletes, Data on Bird Flu Spread Between Cats and People**\
+`The data, which appeared fleetingly online on Wednesday, confirmed transmission in two households. Scientists called on the agency to release the full report.`\
+https://nytimes.com/2025/02/06/health/cdc-bird-flu-cats-people.html
+
 **Review: Getting to the Essence of Camille A. Brown’s Artistry**\
 `With the high-energy “I AM,” Brown takes her signature interweaving of African diasporic dance forms to new heights.`\
 https://nytimes.com/2025/02/06/arts/dance/review-camille-a-brown-i-am.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/06/arts/irv-gotti-murder-inc-timeline.html
 **A Judge Delayed Trump’s Plan to Persuade Federal Workers to Quit**\
 `Also, New Orleans is rattled but ready for the Super Bowl. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/02/06/briefing/delay-trump-resignation-plan-super-bowl-security.html
-
-**Days of Heavy Rain Turns California Lake Into a Quirky Tourist Spot**\
-`For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
-https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
-
-**Read the Memo Sent By City Hall Lawyers to New York City Agencies**\
-`The one-page memo tells city employees how to respond if federal law enforcement officers show up on city premises, including schools, shelters and hospitals.`\
-https://nytimes.com/interactive/2025/02/06/nyregion/ny-nyc-sanctuary-memo.html
-
-**‘Smurfs’ Trailer Shows Rihanna as Smurfette (and Promises New Music)**\
-`The first preview of the animated feature shows the singer in her “blue era” and assures fans that new songs from her will be featured on the soundtrack.`\
-https://nytimes.com/2025/02/06/style/rihanna-smurfs-trailer.html
-
-**If ESPN opts out of TV deal, MLB warns it could walk away: source**\
-`ESPN has an opt out in its contract with the league covering the years 2026 to 2028. `\
-https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
 
