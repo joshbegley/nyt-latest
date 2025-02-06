@@ -1,3 +1,7 @@
+**Israel Tells Military to Draft Plan for Gazans to Leave**\
+`The order by the Israeli defense minister comes after President Trump proposed a U.S. takeover of Gaza and said that all two million Palestinians in the enclave should be displaced.`\
+https://nytimes.com/2025/02/06/world/middleeast/israel-military-gaza-palestinians-leave.html
+
 **Rosenthal: Pete Alonso's short-term deal showcases the need for a bounce-back 2025 season**\
 `Three other Scott Boras clients recently opted out of short-term deals after one year, then struck belated free-agent riches.`\
 https://nytimes.com/athletic/6118091/2025/02/06/pete-alonso-mets-contract-boras/
