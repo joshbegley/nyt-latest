@@ -1,3 +1,19 @@
+**A Teacher’s Tips for Helping Students Write a Winning Essay for Our ‘How-To’ Contest**\
+`A teacher whose students won last year’s competition shares the steps she followed. (Spoiler: It ends with the whole class doing the worm.)`\
+https://nytimes.com/2025/02/06/learning/lesson-plans/a-teachers-tips-for-helping-students-write-a-winning-essay-for-our-how-to-contest.html
+
+**As Musk Attacks Diversity, Tesla Addressed Racism Complaints**\
+`The company’s board pledged to investors that it would pay closer attention to how the company managed workers.`\
+https://nytimes.com/2025/02/06/business/tesla-elon-musk-dei-discrimination.html
+
+**Susan F. Wood, Who Resigned From the F.D.A. Over Plan B, Dies at 66**\
+`She left the agency because of its delay in approving the morning-after pill for over-the-counter use. Her resignation drew national media attention.`\
+https://nytimes.com/2025/02/06/us/susan-f-wood-dead.html
+
+**Trump Media Is Moving Into the Financial Services Industry**\
+`The parent company of Truth Social said it had applied for trademarks for investment products that would allow supporters to invest in the “patriotic economy.”`\
+https://nytimes.com/2025/02/06/business/trump-media-financial-services.html
+
 **Buckley: As Super Bowl end zone messages go, 'Choose Love' is a step down from 'End Racism'**\
 `Whatever you think of the politics around the NFL's decision, one thing's for sure: "End Racism" is better than "Choose Love."`\
 https://nytimes.com/athletic/6116906/2025/02/06/nfl-super-bowl-end-racism-choose-love-end-zones/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6118697/2025/02/06/mlb-owners-approve-seidler-padre
 **‘Screams and Smoke’: How a Deadly Mass Shooting Unfolded in Sweden**\
 `The police responding to the attack encountered firing so intense that they struggled to tell how many gunmen were on the scene, an official said.`\
 https://nytimes.com/2025/02/06/world/europe/sweden-shooting-scene.html
-
-**Marijuana Dependence Linked to Higher Risk of Death**\
-`Two new Canadian studies are the largest to date looking at death rates and psychosis associated with cannabis use disorder.`\
-https://nytimes.com/2025/02/06/health/cannabis-marijuana-death-psychosis.html
-
-**Susan Alcorn, Voyager on Pedal Steel Guitar, Dies at 71**\
-`With a daring avant-garde approach, she pushed the frontiers of an instrument best known for speaking with a down-home accent.`\
-https://nytimes.com/2025/02/06/arts/music/susan-alcorn-dead.html
-
-**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
-`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
-https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
-
-**Luis Rubiales trial: Luque accused Hermoso of 'jumping on the bandwagon to kill Rubiales'**\
-`Hermoso's Spain team-mates Putellas, Paredes and Codina, and one of the forward's friends testified on day four in Madrid`\
-https://nytimes.com/athletic/6118614/2025/02/06/rubiales-trial-luque-hermoso-messages/
 
