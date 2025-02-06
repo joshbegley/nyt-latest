@@ -1,3 +1,7 @@
+**Chicago Bears matriarch Virginia McCaskey dies at 102**\
+`The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
+https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/
+
 **Creamy, but No Cream**\
 `You don’t need dairy to get that luscious, comforting texture. Case in point: this new roasted broccoli and whipped tofu with chile crisp crunch.`\
 https://nytimes.com/2025/02/06/dining/creamy-but-no-cream.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the
 **Trump Nominates Retired General Known for Inflammatory Remarks**\
 `Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
 https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html
-
-**Lawmakers in Minnesota Strike Deal, Ending Democrats’ Boycott**\
-`Democrats agreed to let a Republican take the speakership of the Minnesota House after a weekslong fight over control of the chamber.`\
-https://nytimes.com/2025/02/06/us/minnesota-lawmakers-end-democrats-boycott.html
 
