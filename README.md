@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6119351/2025/02/06/espn-mlb-opt-out-warning/
 `A New York City ferry captain saw the luggage and called the Police Department’s Harbor Unit. The authorities have not identified the remains.`\
 https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.html
 
-**Trump Administration to Lay Off Nearly All of U.S. Aid Agency’s Staff**\
+**Jobs at U.S.A.I.D. will drop from more than 10,000 to about 290, according to several people.**\
 `Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
 
