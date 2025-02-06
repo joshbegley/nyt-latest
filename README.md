@@ -1,3 +1,7 @@
+**2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/05/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Andreessen Horowitz Defends Hiring of Daniel Penny to Its Investors**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, was hired to join the firm’s American Dynamism investment team.`\
 https://nytimes.com/2025/02/05/technology/daniel-penny-andreessen-horowitz-investors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/justice-dept-says-it-will-not-bring-c
 **Anson Rabinbach, Leading Historian of Nazi Culture, Dies at 79**\
 `He demonstrated that fascism had its own intellectual roots and showed how ideas, theories and an antisemitic “ethos” influenced German culture and policymaking.`\
 https://nytimes.com/2025/02/05/books/anson-rabinbach-dead.html
-
-**MLB owners debate push for salary cap at summit**\
-`Opinions among owners are mixed, people briefed on the discussions said. The union has said in the past players will not accept a cap.`\
-https://nytimes.com/athletic/6117420/2025/02/05/mlb-owners-salary-cap-push/
 
