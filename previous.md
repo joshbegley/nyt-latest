@@ -1,8 +1,16 @@
+**Trump Administration Deepens Pressure on Federal Workers to Resign**\
+`Rattled civil servants struggled with whether to leave their posts in advance of a Thursday deadline as Elon Musk continued his push through agencies.`\
+https://nytimes.com/2025/02/05/us/politics/trump-musk-federal-workers.html
+
+**Did Mayor Adams Get a Colonoscopy? His Answer Led to Confusion.**\
+`Mayor Eric Adams of New York said he underwent anesthesia last week for what officials said was a colonoscopy, but then the story changed.`\
+https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
+
 **Beneath Trump’s Plan for Gaza, Painful Echoes of Forced Displacement**\
-`Legal experts say President Trump’s plan to take over Gaza and relocate Palestinians would violate international law.`\
+`A plan to take over Gaza and force Palestinians to relocate would violate international law.`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-palestinians.html
 
-**‘Effectively Unaccountable’: Inside the Trump-Musk relationship**\
+**‘Effectively Unaccountable’: Inside the Trump-Musk Relationship**\
 `The relationship between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
 **The World’s Richest Men Take On the World’s Poorest Children**\
 `I’ve seen U.S.A.I.D. operate around the world, and it’s not woke — it’s lifesaving.`\
 https://nytimes.com/2025/02/05/opinion/usaid-spending-trump-musk.html
-
-**Right-Wing Group Publishes ‘D.E.I. Watch List’ Targeting Federal Workers**\
-`The American Accountability Foundation list included names and photos of more than 50 people, many in programs aimed at improving the health of people of color.`\
-https://nytimes.com/2025/02/05/us/politics/dei-watchlist-federal-health-workers-cdc-nih.html
-
-**Child Welfare Agency Has No Right to Target Abused Parents, Court Rules**\
-`New York City child welfare agencies routinely investigate parents who report being abused, but a state appellate court ruled on Wednesday that the practice is illegal.`\
-https://nytimes.com/2025/02/05/nyregion/nyc-domestic-violence-child-abuse-case.html
 
