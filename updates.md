@@ -1,3 +1,11 @@
+**Days of Heavy Rain Turns California Lake Into a Quirky Tourist Spot**\
+`For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
+https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
+
+**Read the Memo Sent By City Hall Lawyers to New York City Agencies**\
+`The one-page memo tells city employees how to respond if federal law enforcement officers show up on city premises, including schools, shelters and hospitals.`\
+https://nytimes.com/interactive/2025/02/06/nyregion/ny-nyc-sanctuary-memo.html
+
 **‘Smurfs’ Trailer Shows Rihanna as Smurfette (and Promises New Music)**\
 `The first preview of the animated feature shows the singer in her “blue era” and assures fans that new songs from her will be featured on the soundtrack.`\
 https://nytimes.com/2025/02/06/style/rihanna-smurfs-trailer.html

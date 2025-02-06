@@ -1,3 +1,11 @@
+**Days of Heavy Rain Turns California Lake Into a Quirky Tourist Spot**\
+`For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
+https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
+
+**Read the Memo Sent By City Hall Lawyers to New York City Agencies**\
+`The one-page memo tells city employees how to respond if federal law enforcement officers show up on city premises, including schools, shelters and hospitals.`\
+https://nytimes.com/interactive/2025/02/06/nyregion/ny-nyc-sanctuary-memo.html
+
 **‘Smurfs’ Trailer Shows Rihanna as Smurfette (and Promises New Music)**\
 `The first preview of the animated feature shows the singer in her “blue era” and assures fans that new songs from her will be featured on the soundtrack.`\
 https://nytimes.com/2025/02/06/style/rihanna-smurfs-trailer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtu
 **The Giants' projected 2025 season win total is predictably unexciting**\
 `It probably isn't a surprise that the Giants are projected to be an average team, given the past few years. But is that a bad thing?`\
 https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
-
-**House Committee to Examine Secret Navy Effort on Pilot Brain Injuries**\
-`The Navy quietly started screening elite fighter pilots for signs of brain injuries caused by flying, a risk it officially denies exists.`\
-https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
-
-**The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
-`Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield, leaving Slot one game from his first trophy in England`\
-https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
 
