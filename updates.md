@@ -1,3 +1,15 @@
+**State Attorneys General to Sue Over Musk’s Access to Government Systems**\
+`Letitia James of New York and 11 others said that the so-called Department of Government Efficiency had revealed private information and was “unlawful, unprecedented and unacceptable.”`\
+https://nytimes.com/2025/02/06/nyregion/letitia-james-doge-suit.html
+
+**Army Helicopter’s Tracking Technology Turned Off at Time of Crash**\
+`Senator Ted Cruz, the chairman of the committee with oversight of transportation, said there was no compelling reason for the technology not to have been in use when the helicopter collided with a commercial jet over the Potomac River.`\
+https://nytimes.com/2025/02/06/us/politics/crash-army-helicopter-tracking.html
+
+**N.C.A.A., Following Trump’s Order, Excludes Transgender Athletes From Women’s Sports**\
+`The decision, effective immediately, came a day after President Trump signed an order barring transgender girls and women from playing in women’s sports at federally funded educational institutions.`\
+https://nytimes.com/2025/02/06/us/politics/ncaa-transgender-athletes-ban.html
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.html
