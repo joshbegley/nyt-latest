@@ -1,3 +1,7 @@
+**What if... this is a new Newcastle?**\
+`Eddie Howe's side made light work of reaching the Carabao Cup final and are on course to end the club's long trophy drought`\
+https://nytimes.com/athletic/6114796/2025/02/06/newcastle-carabao-cup-arsenal-final/
+
 **How the Blackhawks plan to address goaltending in rebuild**\
 `The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
 https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-totte
 **Chelsea's transfer window reviewed: Squad players leave but judgement will have to wait**\
 `By their standards, Chelsea had a quiet window - but that could be a good thing`\
 https://nytimes.com/athletic/6112492/2025/02/06/chelsea-transfer-window-review/
-
-**Mascherano responds to Ronaldo 'greatest' claims: 'It's not that'**\
-`Ronaldo thinks he is the best soccer player in history, but Javier Mascherano disagrees.`\
-https://nytimes.com/athletic/6117619/2025/02/06/ronaldo-messi-goat-debate-mascherano/
 
