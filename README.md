@@ -1,3 +1,7 @@
+**‘Effectively Unaccountable’: Inside the Trump-Musk relationship**\
+`The relationship between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
+https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
+
 **West Point Disbands Clubs for Women and Minorities After Trump Orders**\
 `The military academy ordered the closure of a dozen clubs for students affiliated with its Diversity, Equity and Inclusion office.`\
 https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/nyregion/nyc-domestic-violence-child-abuse-case.h
 **Inside Trump’s Hastily Written Proposal to ‘Own’ Gaza**\
 `Although the president had been talking about the idea for weeks, there had been no meetings on the subject, and senior members of his government were taken by surprise.`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover.html
-
-**Valérie André, Daring French Army Copter Pilot, Dies at 102**\
-`She was the first woman to fly rescue missions in a combat zone, in Indochina and Algeria. She was also the first Frenchwoman to become an army general.`\
-https://nytimes.com/2025/02/05/world/europe/valerie-andre-dead.html
 
