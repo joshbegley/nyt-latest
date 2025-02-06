@@ -1,3 +1,7 @@
+**Some federally-funded clinics still cannot access funds after grant freeze.**\
+`By Sarah Kliff and Noah Weiland`\
+https://nytimes.com/live/2025/02/05/us/trump-news/trump-federal-funding-freeze-health-clinics
+
 **Once Raring to Fight, Newsom Softens His Approach Toward Trump**\
 `Gov. Gavin Newsom, a Democrat, has avoided criticizing President Trump as he has sought disaster aid for fire victims in Los Angeles.`\
 https://nytimes.com/2025/02/05/us/gavin-newsom-trump-california.html

@@ -1,3 +1,7 @@
+**Some federally-funded clinics still cannot access funds after grant freeze.**\
+`By Sarah Kliff and Noah Weiland`\
+https://nytimes.com/live/2025/02/05/us/trump-news/trump-federal-funding-freeze-health-clinics
+
 **Once Raring to Fight, Newsom Softens His Approach Toward Trump**\
 `Gov. Gavin Newsom, a Democrat, has avoided criticizing President Trump as he has sought disaster aid for fire victims in Los Angeles.`\
 https://nytimes.com/2025/02/05/us/gavin-newsom-trump-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117030/2025/02/05/kings-wizards-jonas-valanciunas-
 **Beating Death of Shackled N.Y. Inmate Is Ruled a Homicide, Governor Says**\
 `Gov. Kathy Hochul of New York said the autopsy results in the death of Robert Brooks, who was beaten by prison guards, should prompt the swift filing of criminal charges.`\
 https://nytimes.com/2025/02/05/nyregion/robert-brooks-homicide-ruling.html
-
-**My Farewell Column**\
-`Growing into myself as a writer — and doing it in front of and for all of you — has been one of the great honors of my life.`\
-https://nytimes.com/2025/02/05/opinion/writing-journalism-coming-out.html
 
