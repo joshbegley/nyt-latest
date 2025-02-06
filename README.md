@@ -1,3 +1,7 @@
+**Word of the Day: kismet**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/06/learning/word-of-the-day-kismet.html
+
 **What if... this is a new Newcastle?**\
 `Eddie Howe's side made light work of reaching the Carabao Cup final and are on course to end the club's long trophy drought`\
 https://nytimes.com/athletic/6114796/2025/02/06/newcastle-carabao-cup-arsenal-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114952/2025/02/06/liverpool-loans-doak-koumas-beck
 **Kevin Danso is back in the Premier League to save Tottenham's season**\
 `The self-described "gladiator" will relish the challenge of finally playing at Anfield five years later than he expected to...`\
 https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-tottenham/
-
-**Chelsea's transfer window reviewed: Squad players leave but judgement will have to wait**\
-`By their standards, Chelsea had a quiet window - but that could be a good thing`\
-https://nytimes.com/athletic/6112492/2025/02/06/chelsea-transfer-window-review/
 
