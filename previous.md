@@ -1,3 +1,7 @@
+**Stephen Colbert Is a Little Alarmed About Trump’s Gaza Proposal**\
+`Colbert wasn’t the only host flabbergasted by President Trump’s plan to take over Gaza, move the Palestinians out and turn it into a resort destination.`\
+https://nytimes.com/2025/02/06/arts/television/stephen-colbert-trump-gaza.html
+
 **Word of the Day: kismet**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/06/learning/word-of-the-day-kismet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117647/2025/02/06/brandon-ingram-trade-grades-peli
 **Classy, combative and with a point to prove - why Everton have signed Alcaraz**\
 `The 22-year-old has played in Argentina, Brazil, Italy and the Premier League - Everton see him as a signing with minimal risk and potential`\
 https://nytimes.com/athletic/6115148/2025/02/06/carlos-alcaraz-everton-transfer-flamengo-southampton/
-
-**Doak, Koumas and Beck are thriving on loan - thanks to Liverpool's detailed planning**\
-`Several Liverpool youngsters are impressing away from Anfield thanks to the attention to detail that goes into their temporary moves`\
-https://nytimes.com/athletic/6114952/2025/02/06/liverpool-loans-doak-koumas-beck/
 

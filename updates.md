@@ -1,3 +1,7 @@
+**Stephen Colbert Is a Little Alarmed About Trump’s Gaza Proposal**\
+`Colbert wasn’t the only host flabbergasted by President Trump’s plan to take over Gaza, move the Palestinians out and turn it into a resort destination.`\
+https://nytimes.com/2025/02/06/arts/television/stephen-colbert-trump-gaza.html
+
 **Arsenal and the lesson of Alexander Isak**\
 `The Newcastle forward gave Arsenal a first-hand demonstration of what an elite centre-forward can offer`\
 https://nytimes.com/athletic/6117214/2025/02/06/arsenal-alexander-isak-newcastle/
