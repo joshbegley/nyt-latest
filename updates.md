@@ -1,3 +1,11 @@
+**Four Emerging Designers to Put on Your Radar This Season**\
+`These rising stars are creating fresh silhouettes out of classic materials.`\
+https://nytimes.com/2025/02/06/t-magazine/new-designers-fall-2025-fashion.html
+
+**Trump Vows to Improve Air Traffic Control System After Crash**\
+`The president said he would work with Congress to improve aging technology used by the Federal Aviation Administration.`\
+https://nytimes.com/2025/02/06/us/politics/trump-faa-air-traffic-plane-crash.html
+
 **Who were the biggest winners of an unprecedented NBA trade deadline?**\
 `A couple of teams rise above the rest, but one group may be smiling from ear to ear after the dust settles.`\
 https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-lakers-cavaliers/
