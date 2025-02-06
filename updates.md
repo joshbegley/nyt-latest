@@ -1,3 +1,11 @@
+**Creamy, but No Cream**\
+`You don’t need dairy to get that luscious, comforting texture. Case in point: this new roasted broccoli and whipped tofu with chile crisp crunch.`\
+https://nytimes.com/2025/02/06/dining/creamy-but-no-cream.html
+
+**Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
+`United States international Kristie Mewis told a court on Thursday that her fiancee Sam Kerr was “speaking her truth in how she was feeling” when she called a police officer “stupid and white&#8221;.`\
+https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
+
 **Let’s Discuss: A Column That Celebrates Love and Weddings**\
 `What place do stories of romance and marriage have in the pages of a newspaper? Join this conversation with the Vows writer Rosalie R. Radomsky by Feb. 13 to find out.`\
 https://nytimes.com/2025/02/06/learning/lesson-plans/lets-discuss-a-column-that-celebrates-love-and-weddings.html
