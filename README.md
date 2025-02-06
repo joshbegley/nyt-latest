@@ -1,3 +1,19 @@
+**Ye Says He Has Autism Rather Than Bipolar Disorder**\
+`The rapper and designer formerly known as Kanye West revealed the diagnosis during a podcast interview where he also discussed his upcoming album.`\
+https://nytimes.com/2025/02/06/style/kanye-west-autism-podcast.html
+
+**Are Youth Sports Too Stressful? Teenagers Weigh In.**\
+`The N.B.A. superstar Luka Doncic worries that sports are no longer fun for many young players. We invited students to share their experiences.`\
+https://nytimes.com/2025/02/06/learning/are-youth-sports-too-stressful-teenagers-weigh-in.html
+
+**PGA Tour commissioner Jay Monahan meets with Donald Trump amid PIF negotiations**\
+`The golf community has been waiting for the finalized version of a PGA Tour-PIF agreement to materialize.`\
+https://nytimes.com/athletic/6119248/2025/02/06/donald-trump-pga-tour-jay-monahan-pif/
+
+**Brian Kelly repudiates claim he hasn’t supported Brooks Jr. since brain surgery**\
+`Brooks Jr. said LSU coaches pressured him to play through his symptoms and threatened him he could lose his starting spot if he sat out.`\
+https://nytimes.com/athletic/6118774/2025/02/06/lsu-brian-kelly-greg-brooks-jr-surgery/
+
 **What’s Next for MrBeast? Class Consciousness.**\
 `On YouTube, he’s long prompted people to do extreme tasks for money. But on his new reality show and in social media posts, MrBeast is showing a new motivation.`\
 https://nytimes.com/2025/02/06/arts/television/mrbeast-beast-games-reality-tv-youtube.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6118739/2025/02/06/knicks-nba-trade-deadline-whats-
 **What’s Going On in This Picture? | Feb. 10, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/02/06/learning/whats-going-on-in-this-picture-feb-10-2025.html
-
-**What’s Going On in This Graph? | Feb. 12, 2025**\
-`What do you notice about the average earnings of college athletes? What do you wonder?`\
-https://nytimes.com/2025/02/06/learning/whats-going-on-in-this-graph-feb-12-2025.html
-
-**Clippers acquire Bogdan Bogdanović from Hawks**\
-`Hawks receive Terance Mann, Bones Hyland and three second-round picks in return.`\
-https://nytimes.com/athletic/6092808/2025/02/06/atlanta-hawks-bogdan-bogdanovic-traded/
-
-**Abandoned in the Middle of Clinical Trials, Because of a Trump Order**\
-`The stop-work order on U.S.A.I.D.-funded research has left thousands of people with experimental drugs and devices in their bodies, with no access to monitoring or care.`\
-https://nytimes.com/2025/02/06/health/usaid-clinical-trials-funding-trump.html
-
-**Cleveland Harris, N.F.L. Coach Who Pushed for Diversity, Dies at 79**\
-`An assistant coach for 33 years, he never fulfilled his dream of becoming a head coach, a rarity for a Black man. But he pressed the league to open the door for future minority coaches.`\
-https://nytimes.com/2025/02/06/sports/football/cleveland-harris-dead.html
 
