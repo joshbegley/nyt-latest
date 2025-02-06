@@ -1,3 +1,19 @@
+**Let’s Discuss: A Column That Celebrates Love and Weddings**\
+`What place do stories of romance and marriage have in the pages of a newspaper? Join this conversation with the Vows writer Rosalie R. Radomsky by Feb. 13 to find out.`\
+https://nytimes.com/2025/02/06/learning/lesson-plans/lets-discuss-a-column-that-celebrates-love-and-weddings.html
+
+**Trump Administration Sues Illinois Leaders Over Immigration Enforcement**\
+`The suit asserts that sanctuary laws in Chicago, Cook County and Illinois have obstructed federal efforts to enforce immigration policy.`\
+https://nytimes.com/2025/02/06/us/politics/trump-immigration-chicago-sanctuary.html
+
+**Got Weird? Milk Is Headed for Its Strangest Year Yet.**\
+`America has long had an unsettled relationship with milk. Another upheaval is underway.`\
+https://nytimes.com/2025/02/06/dining/milk.html
+
+**Trump’s Vision for a Gaza of the Future Skirts Reality of War Today**\
+`President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
+https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
+
 **Trump’s Vision for Gaza Gives No Immediate Answers About the War**\
 `President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
 https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
