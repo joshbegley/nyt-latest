@@ -1,5 +1,5 @@
 **Did Mayor Adams Get a Colonoscopy? His Answer Led to Confusion.**\
-`Mayor Eric Adams of New York said he underwent anesthesia last week to undergo what officials said was a colonoscopy, but then the story changed.`\
+`Mayor Eric Adams of New York said he underwent anesthesia last week for what officials said was a colonoscopy, but then the story changed.`\
 https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
 
 **Beneath Trump’s Plan for Gaza, Painful Echoes of Forced Displacement**\
