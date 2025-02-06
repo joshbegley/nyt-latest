@@ -1,3 +1,7 @@
+**The correlation between close Super Bowl spreads and close games, plus other findings**\
+`Dan Santaromita examines close Super Bowl spreads throughout history and discovers interesting trends beyond score correlations.`\
+https://nytimes.com/athletic/6104131/2025/02/06/super-bowl-close-spreads-history/
+
 **What is the NET, and what can it tell you about the NCAA Tournament bracket?**\
 `Of the 24 teams evaluated over that three-year period, any squad with at least nine Quad 1 losses did not qualify for the NCAA Tournament.`\
 https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-seeding-bubble/

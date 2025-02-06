@@ -1,3 +1,7 @@
+**The correlation between close Super Bowl spreads and close games, plus other findings**\
+`Dan Santaromita examines close Super Bowl spreads throughout history and discovers interesting trends beyond score correlations.`\
+https://nytimes.com/athletic/6104131/2025/02/06/super-bowl-close-spreads-history/
+
 **What is the NET, and what can it tell you about the NCAA Tournament bracket?**\
 `Of the 24 teams evaluated over that three-year period, any squad with at least nine Quad 1 losses did not qualify for the NCAA Tournament.`\
 https://nytimes.com/athletic/6117089/2025/02/06/ncaa-tournament-net-rankings-seeding-bubble/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118264/2025/02/06/usc-gm-chad-bowden-coaches-rob-r
 **In Another Shock to Fashion, Gucci’s Designer Is Leaving**\
 `Sabato De Sarno’s departure adds to the industry turmoil.`\
 https://nytimes.com/2025/02/06/style/gucci-sabato-de-sarno.html
-
-**Green Energy Ambitions of European Companies Take a Beating**\
-`Orsted of Denmark and Equinor of Norway tap the brakes on offshore wind development after setbacks and market shifts.`\
-https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
 
