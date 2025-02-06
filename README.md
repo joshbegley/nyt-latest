@@ -1,3 +1,7 @@
+**Scoop City: Two plays that define the Super Bowl teams**\
+`Inside: How two plays define the Eagles and Chiefs, Jayden Daniels on Kliff Kingsbury, Saquon Barkley&#8217;s props and history&#8217;s greatest trio, as voted by you.`\
+https://nytimes.com/athletic/6119068/2025/02/06/super-bowl-defining-plays-tush-push-corndog-scoop-city-nfl/
+
 **Virginia McCaskey, Owner and Pillar of the Chicago Bears, Dies at 102**\
 `The daughter of the Bears founder and football pioneer George Halas, she took the reins beginning in 1983, after the death of her brother, George Jr.`\
 https://nytimes.com/2025/02/06/sports/football/virginia-mccaskey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/dining/milk.html
 **Trump’s Vision for a Gaza of the Future Skirts Reality of War Today**\
 `President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
 https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
-
-**Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
-`United States international Kristie Mewis told a court on Thursday that her fiancee Sam Kerr was “speaking her truth in how she was feeling” when she called a police officer “stupid and white&#8221;.`\
-https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
 
