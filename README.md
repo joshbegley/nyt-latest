@@ -1,3 +1,7 @@
+**Amazon, under conservative pressure, reinstates a book critical of transgender care.**\
+`By Karen Weise and David McCabe`\
+https://nytimes.com/live/2025/02/06/us/president-trump-news/amazon-under-conservative-pressure-reinstates-a-book-critical-of-transgender-care
+
 **Education Dept. Investigates Schools Ensnared in Transgender Sports Disputes**\
 `Three new investigations announced on Thursday came after President Trump ordered federal agencies to help bar transgender women and girls from female sports teams.`\
 https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-dept.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/dining/we-answer-your-very-specific-restaurant-qu
 **Friday Briefing: Trump Digs in on Gaza Takeover**\
 `Plus, the complex patterns in whale songs.`\
 https://nytimes.com/2025/02/06/briefing/trump-gaza-sweden-shooting-global-heat.html
-
-**Darius Slay still has gas in the tank, C.J. Gardner-Johnson's play 'speaks for itself'**\
-`Plus, Jalen Hurts prepares for a challenging test.`\
-https://nytimes.com/athletic/6119138/2025/02/06/eagles-defense-superbowl-darius-slay-cj-gardner-johnson/
 
