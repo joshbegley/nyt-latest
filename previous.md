@@ -1,3 +1,7 @@
+**The State Department says Panama will stop charging U.S. government ships for canal access.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-panama-will-stop-charging-us-government-ships-for-canal-access
+
 **See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
 `Documents and satellite imagery show how much buildup is underway at the military site.`\
 https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/nyregion/eric-adams-colonoscopy.html
 **Beneath Trump’s Plan for Gaza, Painful Echoes of Forced Displacement**\
 `A plan to take over Gaza and force Palestinians to relocate would violate international law.`\
 https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-palestinians.html
-
-**‘Effectively Unaccountable’: Inside the Trump-Musk Relationship**\
-`The alliance between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
-https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
 

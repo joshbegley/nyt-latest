@@ -1,3 +1,7 @@
+**The State Department says Panama will stop charging U.S. government ships for canal access.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-panama-will-stop-charging-us-government-ships-for-canal-access
+
 **Jimmy Butler heading to Warriors, agrees to extension: Sources**\
 `The Heat are trading Butler, 35, to Golden State in a massive trade that involves fives teams, several players.`\
 https://nytimes.com/athletic/6114225/2025/02/05/jimmy-butler-warriors-heat-trade/
