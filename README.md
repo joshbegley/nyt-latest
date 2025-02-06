@@ -1,3 +1,15 @@
+**Why Coal Has Been So Hard to Quit in the U.S.**\
+`What the economics of coal-rich states like Wyoming tells us about the transition away from the dirtiest fossil fuel.`\
+https://nytimes.com/2025/02/06/climate/why-coal-has-been-so-hard-to-quit-in-the-us.html
+
+**Golden State Valkyries to sign veteran guard Tiffany Hayes: Sources**\
+`Tiffany Hayes is currently averaging 18.5 points for the Laces in the Unrivaled league.`\
+https://nytimes.com/athletic/6118887/2025/02/06/golden-state-valkyries-signing-tiffany-hayes/
+
+**How Each Senator Has Voted on Trump’s Nominees So Far**\
+`The Senate has confirmed each of President Trump’s cabinet nominees that faced a vote to this point.`\
+https://nytimes.com/interactive/2025/02/06/us/politics/cabinet-confirmation-votes.html
+
 **A Teacher’s Tips for Helping Students Write a Winning Essay for Our ‘How-To’ Contest**\
 `A teacher whose students won last year’s competition shares the steps she followed. (Spoiler: It ends with the whole class doing the worm.)`\
 https://nytimes.com/2025/02/06/learning/lesson-plans/a-teachers-tips-for-helping-students-write-a-winning-essay-for-our-how-to-contest.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6118715/2025/02/06/how-much-premier-league-prize-mo
 **Palace set to lose academy prospect Derry after contract rejection**\
 `Derry, 17, scored 16 goals in 22 games for Palace Under-18s last season.`\
 https://nytimes.com/athletic/6118856/2025/02/06/jesse-derry-crystal-palace/
-
-**Suit Over Firing by Trump Could Pave Way for Broader Presidential Power**\
-`If the case reaches the Supreme Court, its conservative majority will be receptive to Donald J. Trump’s argument that presidents have unlimited power to remove members of independent agencies.`\
-https://nytimes.com/2025/02/06/us/politics/trump-firing-labor-supreme-court.html
-
-**MLB owners approve John Seidler as new head of Padres**\
-`John Seidler replaces his younger brother, the late Peter Seidler, atop the Padres organization. `\
-https://nytimes.com/athletic/6118697/2025/02/06/mlb-owners-approve-seidler-padres/
-
-**‘Screams and Smoke’: How a Deadly Mass Shooting Unfolded in Sweden**\
-`The police responding to the attack encountered firing so intense that they struggled to tell how many gunmen were on the scene, an official said.`\
-https://nytimes.com/2025/02/06/world/europe/sweden-shooting-scene.html
 
