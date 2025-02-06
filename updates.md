@@ -1,3 +1,7 @@
+**Top line looks elite, Kreider comes through short-handed: Rangers takeaways**\
+`The Rangers displayed some of the old comeback wizardry from last season in a promising win against the Bruins.`\
+https://nytimes.com/athletic/6117594/2025/02/05/rangers-kreider-top-line-zibanejad-bruins/
+
 **All of the Trump Administration’s Major Moves in the First 100 Days**\
 `The New York Times is tracking the actions taken by, and significant statements made by, President Trump and his administration during the first 100 days of Mr. Trump’s second term.`\
 https://nytimes.com/interactive/2025/us/trump-agenda-2025.html
