@@ -1,3 +1,7 @@
+**Beneath Trump’s Plan for Gaza, Painful Echoes of Forced Displacement**\
+`Legal experts say President Trump’s plan to take over Gaza and relocate Palestinians would violate international law.`\
+https://nytimes.com/2025/02/05/us/politics/trump-gaza-takeover-displacement-palestinians.html
+
 **‘Effectively Unaccountable’: Inside the Trump-Musk relationship**\
 `The relationship between President Trump and the billionaire Elon Musk might be the most consequential in American government.`\
 https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
