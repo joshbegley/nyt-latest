@@ -1,3 +1,11 @@
+**Classy, combative and with a point to prove - why Everton have signed Alcaraz**\
+`The 22-year-old has played in Argentina, Brazil, Italy and the Premier League - Everton see him as a signing with minimal risk and potential`\
+https://nytimes.com/athletic/6115148/2025/02/06/carlos-alcaraz-everton-transfer-flamengo-southampton/
+
+**Doak, Koumas and Beck are thriving on loan - thanks to Liverpool's detailed planning**\
+`Several Liverpool youngsters are impressing away from Anfield thanks to the attention to detail that goes into their temporary moves`\
+https://nytimes.com/athletic/6114952/2025/02/06/liverpool-loans-doak-koumas-beck/
+
 **Kevin Danso is back in the Premier League to save Tottenham's season**\
 `The self-described "gladiator" will relish the challenge of finally playing at Anfield five years later than he expected to...`\
 https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-tottenham/

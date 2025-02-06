@@ -1,3 +1,11 @@
+**Classy, combative and with a point to prove - why Everton have signed Alcaraz**\
+`The 22-year-old has played in Argentina, Brazil, Italy and the Premier League - Everton see him as a signing with minimal risk and potential`\
+https://nytimes.com/athletic/6115148/2025/02/06/carlos-alcaraz-everton-transfer-flamengo-southampton/
+
+**Doak, Koumas and Beck are thriving on loan - thanks to Liverpool's detailed planning**\
+`Several Liverpool youngsters are impressing away from Anfield thanks to the attention to detail that goes into their temporary moves`\
+https://nytimes.com/athletic/6114952/2025/02/06/liverpool-loans-doak-koumas-beck/
+
 **Kevin Danso is back in the Premier League to save Tottenham's season**\
 `The self-described "gladiator" will relish the challenge of finally playing at Anfield five years later than he expected to...`\
 https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116214/2025/02/06/celebrations-no-fun-football-pre
 **Goalkeepers and the rise of the assist**\
 `The purpose of the modern goalkeeper is to be good off the floor as well as keep goals out — they are increasingly providing assists, too`\
 https://nytimes.com/athletic/6112292/2025/02/06/goalkeeper-assists-ederson-pickford-alisson/
-
-**Five of Europe's shrewdest under-the-radar winter signings - including Bournemouth's Julio Soler**\
-`Five deals that didn't get a lot of attention but should have`\
-https://nytimes.com/athletic/6114899/2025/02/06/five-of-europes-shrewdest-under-the-radar-winter-signings-including-bournemouths-julio-soler/
-
-**Does Erling Haaland need to do more without the ball?**\
-`The Manchester City striker was criticised by Thierry Henry for his performance against Arsenal last weekend - but was the analysis fair?`\
-https://nytimes.com/athletic/6109333/2025/02/06/does-erling-haaland-need-to-do-more-without-the-ball/
 
