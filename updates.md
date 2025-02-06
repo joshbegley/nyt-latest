@@ -1,3 +1,19 @@
+**Kevin Danso is back in the Premier League to save Tottenham's season**\
+`The self-described "gladiator" will relish the challenge of finally playing at Anfield five years later than he expected to...`\
+https://nytimes.com/athletic/6114822/2025/02/06/kevin-danso-premier-league-tottenham/
+
+**Chelsea's transfer window reviewed: Squad players leave but judgement will have to wait**\
+`By their standards, Chelsea had a quiet window - but that could be a good thing`\
+https://nytimes.com/athletic/6112492/2025/02/06/chelsea-transfer-window-review/
+
+**Mascherano responds to Ronaldo 'greatest' claims: 'It's not that'**\
+`Ronaldo thinks he is the best soccer player in history, but Javier Mascherano disagrees.`\
+https://nytimes.com/athletic/6117619/2025/02/06/ronaldo-messi-goat-debate-mascherano/
+
+**Irv Gotti, Famed Hip-Hop Music Executive, Dies**\
+`The producer helped shape rap and R&B after founding the label Murder Inc., which launched artists like Ja Rule and Ashanti.`\
+https://nytimes.com/2025/02/06/arts/music/irv-gotti-dead.html
+
 **Footballers and learning new languages: Adele, The Da Vinci Code and the delivery room**\
 `Forget Duolingo or following an exam syllabus, language lessons for players start with football terminology and team-mate's nicknames`\
 https://nytimes.com/athletic/6109238/2025/02/06/footballers-learning-languages-translators-tutors/
