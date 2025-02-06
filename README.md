@@ -1,6 +1,6 @@
 **Workers at E.P.A.’s Office of Environmental Justice Are Told They May Be Put on Leave**\
 `President Trump is likely to close the office as he moves to eliminate programs on environmental justice, which aims to protect poor and minority communities from disproportionate harm from pollution.`\
-https://nytimes.com/2025/02/06/climate/workers-at-epas-office-of-environmental-justice-are-told-they-may-be-put-on-leave.html
+https://nytimes.com/2025/02/06/climate/epa-environmental-justice-workers-leave.html
 
 **Trump Amplifies Conspiracy Theory Over Payments to Politico**\
 `President Trump spread unfounded claims that the government had paid Politico and other news media outlets for positive coverage of Democrats. Records show agencies paid for subscriptions.`\
