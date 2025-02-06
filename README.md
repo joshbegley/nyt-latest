@@ -1,3 +1,11 @@
+**SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
+`The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
+https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
+
+**NWSL's $5 million fund is 'necessary step toward accountability' after abuse scandal**\
+`Money won’t erase what happened to players in NWSL. Nor should it.`\
+https://nytimes.com/athletic/6119393/2025/02/06/nwsl-restitution-fund-players-accountability/
+
 **Amazon, under conservative pressure, reinstates a book critical of transgender care.**\
 `By Karen Weise and David McCabe`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/amazon-under-conservative-pressure-reinstates-a-book-critical-of-transgender-care
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.h
 **U.S. Deports Over 100 Undocumented Migrants To India**\
 `The use of a military aircraft, along with the claims of mistreatment, sparked protests from some Indian lawmakers, just days before Prime Minister Narendra Modi’s trip to Washington.`\
 https://nytimes.com/video/world/asia/100000009974226/india-us-deportation-illegal-migration.html
-
-**We Answer Your Very Specific Restaurant Questions**\
-`Italian food across from Lincoln Center, an excellent pickle soup for lunch and the perfect spots for Valentine’s Day.`\
-https://nytimes.com/2025/02/06/dining/we-answer-your-very-specific-restaurant-questions.html
-
-**Friday Briefing: Trump Digs in on Gaza Takeover**\
-`Plus, the complex patterns in whale songs.`\
-https://nytimes.com/2025/02/06/briefing/trump-gaza-sweden-shooting-global-heat.html
 
