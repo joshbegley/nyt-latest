@@ -1,3 +1,7 @@
+**Man United defender Martinez suffers ACL injury**\
+`Martinez has played 32 games for United this season, starting 20 out of 22 in the Premier League.`\
+https://nytimes.com/athletic/6107373/2025/02/06/lisandro-martinez-injury-acl-man-utd/
+
 **Dowman, 15, and Porter, 16, included in Arsenal's squad for Dubai camp**\
 `The pair will be joined by several other Arsenal academy players during the warm weather camp.`\
 https://nytimes.com/athletic/6117840/2025/02/06/arsenal-max-dowman-jack-porter-dubai/

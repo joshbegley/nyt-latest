@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6117840/2025/02/06/arsenal-max-dowman-jack-porter-d
 `Prime Minister Shigeru Ishiba is expected to cite his country’s increased investment in the U.S. and its regional security role when he meets President Trump on Friday.`\
 https://nytimes.com/2025/02/06/world/asia/japan-ishiba-trump-summit.html
 
-**Man United's Lisandro Martinez suffers ACL injury**\
+**Man United defender Martinez suffers ACL injury**\
 `Martinez has played 32 games for United this season, starting 20 out of 22 in the Premier League.`\
 https://nytimes.com/athletic/6107373/2025/02/06/lisandro-martinez-injury-acl-man-utd/
 
