@@ -1,3 +1,19 @@
+**Lauren Macuga takes third, Lindsey Vonn skis out in super-G at world championships**\
+`Austria's Stephanie Venier topped the podium, and American Lauren Macuga hit a new milestone in her young career in Thursday's super-G.`\
+https://nytimes.com/athletic/6118092/2025/02/06/lindsey-vonn-lauren-macuga-super-g-world-championships-olympics/
+
+**Bank of England Cuts Interest Rates as British Economy Weakens**\
+`The central bank cut rates for the third time in about six months as it said growth had been weaker than expected.`\
+https://nytimes.com/2025/02/06/business/bank-england-interest-rates.html
+
+**Cardinals spring guide: 32 notes for 32 hitters, from Arenado to Gorman to Yeager**\
+`The Cardinals would like Nolan Gorman to see get 600 plate appearances this season. Others will have to prove their worth in camp. `\
+https://nytimes.com/athletic/6104554/2025/02/06/cardinals-spring-training-hitters/
+
+**Grenfell Tower, Where Fire Killed 72, Will Be Demolished, Families Say**\
+`Survivors and bereaved families’ groups said Britain’s deputy prime minister had told them that the site of the 2017 catastrophe would be dismantled.`\
+https://nytimes.com/2025/02/06/world/europe/grenfell-tower-uk-demolished-survivors.html
+
 **Watch: Jimmy Butler or the Warriors — who needed this more?**\
 `The Athletic NBA Daily discuss Jimmy Butler's trade to the Golden State Warriors.`\
 https://nytimes.com/athletic/6117972/2025/02/06/nba-daily-jimmy-butler-warriors-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6112879/2025/02/06/raiders-nfl-draft-big-board-firs
 **Patriots NFL Draft big board: 15 prospects they could target in Rounds 1-3**\
 `A year ago, the Patriots landed Drake Maye with the No. 3 pick. This year, the top of the draft looks very different for New England.`\
 https://nytimes.com/athletic/6115869/2025/02/06/patriots-2025-nfl-draft-big-board/
-
-**Steelers mailbag: What would George Pickens return in a trade? Who to blame for OL woes?**\
-`Plus, we dig into reasons for hope that the Steelers might improve, as well as possible targets in free agency and the draft.`\
-https://nytimes.com/athletic/6117076/2025/02/06/george-pickens-trade-steelers-mailbag/
-
-**The Seahawks must fix their offensive line. Here's where they might start**\
-`With the help of offensive line expert Brandon Thorn, we break down Seattle's current group and possible free-agent and draft additions.`\
-https://nytimes.com/athletic/6116520/2025/02/06/seahawks-offensive-line-free-agency-nfl-draft/
-
-**Bengals positional priority draft big board: Pinpointing needs and targets**\
-`How the dominoes fall with stars Tee Higgins and Trey Hendrickson will heavily influence how Cincinnati chooses at No. 17.`\
-https://nytimes.com/athletic/6114124/2025/02/06/bengals-draft-big-board-2025/
-
-**NBA trade deadline: Grading all the big deals of 2024-25 trade season**\
-`We've been filling out our report cards on the most notable moves of the past two months.`\
-https://nytimes.com/athletic/6100277/2025/02/06/nba-trade-deadline-grading-deals/
 
