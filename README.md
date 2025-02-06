@@ -16,7 +16,7 @@ https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-
 
 **What to See in N.Y.C. Galleries in February**\
 `This week in Newly Reviewed, Holland Cotter covers two group shows: one devoted to an important gallery from the past, the other focused on language and silence.`\
-https://nytimes.com/2025/02/06/arts/what-to-see-in-nyc-galleries-in-february.html
+https://nytimes.com/2025/02/06/arts/art-galleries-nyc-february.html
 
 **State Attorneys General to Sue Over Musk’s Access to Government Systems**\
 `Letitia James of New York and 11 others said that the so-called Department of Government Efficiency had revealed private information and was “unlawful, unprecedented and unacceptable.”`\
