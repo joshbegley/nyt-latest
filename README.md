@@ -1,3 +1,7 @@
+**Human Torso Found in Suitcase in the East River Near Manhattan**\
+`A New York City ferry captain saw the luggage and called the Police Department’s Harbor Unit. The authorities have not identified the remains.`\
+https://nytimes.com/2025/02/06/nyregion/human-remains-suitcase-nyc-east-river.html
+
 **Trump Administration to Lay Off Nearly All of U.S. Aid Agency’s Staff**\
 `Officials for the agency were notified of the planned cuts on the same day they learned that about 800 awards and contracts administered through U.S.A.I.D. were being canceled, three people said.`\
 https://nytimes.com/live/2025/02/06/us/president-trump-news/usaid-job-cuts
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6116265/2025/02/06/super-bowl-2025-biggest-betting-
 https://nytimes.com/athletic/6118172/2025/02/06/carabao-cup-premier-league-fixtures-explained/
 
 **The Giants' projected 2025 season win total is predictably unexciting**\
-`It probably isn't a surprise that the Giants are projected to be an average team, given the last few years. But is that a bad thing?`\
+`It probably isn't a surprise that the Giants are projected to be an average team, given the past few years. But is that a bad thing?`\
 https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
 
 **House Committee to Examine Secret Navy Effort on Pilot Brain Injuries**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/technology/c-richard-kramlich-dead.html
 **Ramos set to join Monterrey after agreeing one-year deal**\
 `The 38-year-old had a medical this week and is set to join the Liga MX side on a fixed salary with some bonuses.`\
 https://nytimes.com/athletic/6119209/2025/02/06/sergio-ramos-contract-monterrey/
-
-**Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
-`The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
-https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
 
