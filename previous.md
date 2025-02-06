@@ -1,3 +1,11 @@
+**Workers at E.P.A.’s Office of Environmental Justice Are Told They May Be Put on Leave**\
+`President Trump is likely to close the office as he moves to eliminate programs on environmental justice, which aims to protect poor and minority communities from disproportionate harm from pollution.`\
+https://nytimes.com/2025/02/06/climate/workers-at-epas-office-of-environmental-justice-are-told-they-may-be-put-on-leave.html
+
+**Trump Amplifies Conspiracy Theory Over Payments to Politico**\
+`President Trump spread unfounded claims that the government had paid Politico and other news media outlets for positive coverage of Democrats. Records show agencies paid for subscriptions.`\
+https://nytimes.com/2025/02/06/business/trump-politico-usaid-spending-conspiracy.html
+
 **The correlation between close Super Bowl spreads and close games, plus other findings**\
 `Dan Santaromita examines close Super Bowl spreads throughout history and discovers interesting trends beyond score correlations.`\
 https://nytimes.com/athletic/6104131/2025/02/06/super-bowl-close-spreads-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6093823/2025/02/06/sven-mislintat-dortmund-sacked/
 **Jordi Fernández steps down as Canada's men's basketball coach**\
 `Fernández's departure leaves a hole at the top of one of the more talented rosters on the international stage.`\
 https://nytimes.com/athletic/6116757/2025/02/06/jordi-fernandez-steps-down-canada-basketball-coach/
-
-**USC introduces GM Chad Bowden, 3 new coaches: 10 thoughts on the Trojans' staff changes**\
-`It's evident that recruiting Southern California will now be a priority for USC. `\
-https://nytimes.com/athletic/6118264/2025/02/06/usc-gm-chad-bowden-coaches-rob-ryan/
-
-**In Another Shock to Fashion, Gucci’s Designer Is Leaving**\
-`Sabato De Sarno’s departure adds to the industry turmoil.`\
-https://nytimes.com/2025/02/06/style/gucci-sabato-de-sarno.html
 
