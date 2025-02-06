@@ -1,3 +1,11 @@
+**Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
+`The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
+https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
+
+**What to Know About Wendy Williams’s Guardianship**\
+`Ms. Williams, whose health has been scrutinized since she left her daytime talk show in 2021, has been under the control of a court-appointed guardian for the past three years.`\
+https://nytimes.com/article/wendy-williams-guardianship.html
+
 **Live from the Super Bowl Day 4: Eli Manning, Terron Armstead, Puka Nacua and more**\
 `Eli Manning, Terron Armstead, Puka Nacua and more stop by the set to talk NFL and Super Bowl on our daily live show.`\
 https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-eli-manning-terron-armstead-puka-nacua-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/nyregion/letitia-james-doge-suit.html
 **Army Helicopter’s Tracking Technology Turned Off at Time of Crash**\
 `Senator Ted Cruz, the chairman of the committee with oversight of transportation, said there was no compelling reason for the technology not to have been in use when the helicopter collided with a commercial jet over the Potomac River.`\
 https://nytimes.com/2025/02/06/us/politics/crash-army-helicopter-tracking.html
-
-**N.C.A.A., Following Trump’s Order, Excludes Transgender Athletes From Women’s Sports**\
-`The decision, effective immediately, came a day after President Trump signed an order barring transgender girls and women from playing in women’s sports at federally funded educational institutions.`\
-https://nytimes.com/2025/02/06/us/politics/ncaa-transgender-athletes-ban.html
-
-**5 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.html
 
