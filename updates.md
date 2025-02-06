@@ -1,3 +1,11 @@
+**Hollinger: What Jimmy Butler trade really symbolizes is missed opportunity**\
+`It took half a decade, but the Warriors finally admitted the truth by giving up a first and most of their future cap flexibility for Butler.`\
+https://nytimes.com/athletic/6117854/2025/02/06/jimmy-butler-steph-curry-warriors-heat-problems-nba-trade/
+
+**Watch: ‘It Turns Out the ‘Deep State’ Is Actually Kind of Awesome’**\
+`Who are the people that help to make the federal government work?`\
+https://nytimes.com/2025/02/06/learning/watch-it-turns-out-the-deep-state-is-actually-kind-of-awesome.html
+
 **Workers at E.P.A.’s Office of Environmental Justice Are Told They May Be Put on Leave**\
 `President Trump is likely to close the office as he moves to eliminate programs on environmental justice, which aims to protect poor and minority communities from disproportionate harm from pollution.`\
 https://nytimes.com/2025/02/06/climate/epa-environmental-justice-workers-leave.html
