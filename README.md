@@ -1,3 +1,15 @@
+**Farm system heat check: What’s the immediate and future outlook for the Astros?**\
+`Cam Smith highlights a farm system that has seen better days, plus we predict Houston's 2027 Opening Day roster.`\
+https://nytimes.com/athletic/6107881/2025/02/06/houston-astros-farm-system-outlook/
+
+**Axel Disasi to Aston Villa: The Athletic 500 transfer ratings**\
+`Aston Villa have signed Axel Disasi on loan until the end of the season`\
+https://nytimes.com/athletic/6110789/2025/02/06/axel-disasi-transfer-aston-villa-analysis/
+
+**Channing Tatum on his Wrexham Super Bowl ad: 'They were just so sweet'**\
+`The Hollywood star on visiting Wales, teaching Wrexham players to dance, and why he wants to return to the Racecourse`\
+https://nytimes.com/athletic/6100952/2025/02/06/channing-tatum-wrexham-superbowl/
+
 **Inside the Warriors' pivot toward a Jimmy Butler trade: 'He win? I win? That's the fit'**\
 `Wednesday's trade might have been a backup plan for both parties, and an expensive one. But Golden State thinks the risk could work.`\
 https://nytimes.com/athletic/6117747/2025/02/06/warriors-jimmy-butler-trade-steph-curry-fit/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6115964/2025/02/06/red-wings-nhl-salary-cap-increas
 **Projecting the American women’s Olympic hockey roster, one year from Milan 2026**\
 `The U.S. has some question marks on its roster with plenty of skilled younger players pushing for spots.`\
 https://nytimes.com/athletic/6116763/2025/02/06/milan-olympics-2026-womens-hockey-team-usa-roster/
-
-**Hall of Fame voting rules: Why the highest NFL honor is now more exclusive**\
-`Will Eli Manning or Adam Vinatieri become Hall of Famers tonight? Because of new rules, their path is now tougher.`\
-https://nytimes.com/athletic/6111416/2025/02/06/nfl-hall-of-fame-rules-class-of-2025/
-
-**How Vincent Trocheck played a role in bringing childhood friend J.T. Miller to New York**\
-`Friends Trocheck and Miller, who grew up together in the Pittsburgh area, are living out a childhood dream as Rangers teammates.`\
-https://nytimes.com/athletic/6117037/2025/02/06/rangers-jt-miller-trade-vincent-trocheck/
-
-**Eagles defense gets inspiration from rare glimpse of vulnerable Vic Fangio**\
-`Vic Fangio, 66, is seeking his first Super Bowl championship.`\
-https://nytimes.com/athletic/6116224/2025/02/06/philadelphia-eagles-vic-fangio-defense-super-bowl/
 
