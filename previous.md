@@ -1,9 +1,13 @@
+**Green Energy Ambitions of European Companies Take a Beating**\
+`Orsted of Denmark and Equinor of Norway tap the brakes on offshore wind development after setbacks and market shifts.`\
+https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
+
 **Power Company Finds Irregularities in Equipment Where Eaton Fire Started**\
 `Southern California Edison said video evidence had led it to look more broadly at whether its equipment might have been the cause of the deadly blaze.`\
 https://nytimes.com/2025/02/06/business/eaton-fire-power-lines-edison.html
 
 **Man United took 'risk' by not making more January signings - Amorim**\
-`Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month`\
+`Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month.`\
 https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-january-risk/
 
 **Arsenal's Saka and White travel with Dubai training camp squad**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/world/asia/india-deportation-trump-modi.html
 **Dodgers spring guide: 26 notes for 26 hitters, from Barnes to Ohtani to Ward**\
 `Can Ohtani bounce back quickly from labrum surgery? “I would never put anything past Shohei."`\
 https://nytimes.com/athletic/6110118/2025/02/06/dodgers-spring-training-hitters/
-
-**Thorns, WNBA Portland to receive $150 million joint training campus**\
-`The first phase of development involves building a privately funded $75 million 12-acre training facility`\
-https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
 

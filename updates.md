@@ -1,3 +1,11 @@
+**Green Energy Ambitions of European Companies Take a Beating**\
+`Orsted of Denmark and Equinor of Norway tap the brakes on offshore wind development after setbacks and market shifts.`\
+https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
+
+**Man United took 'risk' by not making more January signings - Amorim**\
+`Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month.`\
+https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-january-risk/
+
 **Power Company Finds Irregularities in Equipment Where Eaton Fire Started**\
 `Southern California Edison said video evidence had led it to look more broadly at whether its equipment might have been the cause of the deadly blaze.`\
 https://nytimes.com/2025/02/06/business/eaton-fire-power-lines-edison.html
