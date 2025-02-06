@@ -1,3 +1,7 @@
+**U.S. Waives Funding Freeze at Syrian Camp Holding Thousands of ISIS Fighters**\
+`Upholding security at the camp is seen as critical to prevent a resurgence of the Islamic State. A contractor that trains the police there got a temporary waiver allowing it to continue operating.`\
+https://nytimes.com/2025/02/06/world/europe/trump-usaid-funding-syria-isis.html
+
 **Lauren Macuga takes third, Lindsey Vonn skis out in super-G at world championships**\
 `Austria's Stephanie Venier topped the podium, and American Lauren Macuga hit a new milestone in her young career in Thursday's super-G.`\
 https://nytimes.com/athletic/6118092/2025/02/06/lindsey-vonn-lauren-macuga-super-g-world-championships-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6116350/2025/02/06/vikings-free-agency-rankings-sam
 **Raiders NFL Draft big board: 20 exciting prospects to watch in the first round**\
 `Can the Raiders land their quarterback of the future? Or will they have to audible to another position of need? We break down their options.`\
 https://nytimes.com/athletic/6112879/2025/02/06/raiders-nfl-draft-big-board-first-round/
-
-**Patriots NFL Draft big board: 15 prospects they could target in Rounds 1-3**\
-`A year ago, the Patriots landed Drake Maye with the No. 3 pick. This year, the top of the draft looks very different for New England.`\
-https://nytimes.com/athletic/6115869/2025/02/06/patriots-2025-nfl-draft-big-board/
 
