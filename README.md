@@ -1,3 +1,11 @@
+**Leeds, Coventry and the exorcism of another of last season's ghosts**\
+`Leeds have painful recent memories of losing to Coventry, so this was another important moment in their quest for promotion`\
+https://nytimes.com/athletic/6117117/2025/02/06/leeds-coventry-farke-championship/
+
+**The Transfer DealSheet: What comes next after winter window?**\
+`The winter transfer window has now closed for most European leagues — what is the state of play going forward?`\
+https://nytimes.com/athletic/6112869/2025/02/06/transfer-latest-dealsheet-arsenal-manchester-united-liverpool/
+
 **Stephen Colbert Is a Little Alarmed About Trump’s Gaza Proposal**\
 `Colbert wasn’t the only host flabbergasted by President Trump’s plan to take over Gaza, move the Palestinians out and turn it into a resort destination.`\
 https://nytimes.com/2025/02/06/arts/television/stephen-colbert-trump-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6117699/2025/02/06/lakers-hornets-nba-trade-dalton-
 **Transcript Shows Rubio Asking U.S.A.I.D. Worker for ‘Trust’ and ‘Patience’**\
 `Speaking at the U.S. Embassy in Guatemala City, the secretary of state called foreign aid “the least popular thing” that government pays for.`\
 https://nytimes.com/2025/02/06/us/politics/rubio-usaid-worker-trust.html
-
-**Brandon Ingram trade grades: Pelicans finally part ways with one-time All-Star**\
-`Ingram has been injured much of the season and will be an unrestricted free agent this summer.`\
-https://nytimes.com/athletic/6117647/2025/02/06/brandon-ingram-trade-grades-pelicans-raptors/
-
-**Classy, combative and with a point to prove - why Everton have signed Alcaraz**\
-`The 22-year-old has played in Argentina, Brazil, Italy and the Premier League - Everton see him as a signing with minimal risk and potential`\
-https://nytimes.com/athletic/6115148/2025/02/06/carlos-alcaraz-everton-transfer-flamengo-southampton/
 
