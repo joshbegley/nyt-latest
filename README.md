@@ -1,4 +1,16 @@
-**Trump’s Vision for Gaza Gives No Immediate Answers About the War**\
+**Let’s Discuss: A Column That Celebrates Love and Weddings**\
+`What place do stories of romance and marriage have in the pages of a newspaper? Join this conversation with the Vows writer Rosalie R. Radomsky by Feb. 13 to find out.`\
+https://nytimes.com/2025/02/06/learning/lesson-plans/lets-discuss-a-column-that-celebrates-love-and-weddings.html
+
+**Trump Administration Sues Illinois Leaders Over Immigration Enforcement**\
+`The suit asserts that sanctuary laws in Chicago, Cook County and Illinois have obstructed federal efforts to enforce immigration policy.`\
+https://nytimes.com/2025/02/06/us/politics/trump-immigration-chicago-sanctuary.html
+
+**Got Weird? Milk Is Headed for Its Strangest Year Yet.**\
+`America has long had an unsettled relationship with milk. Another upheaval is underway.`\
+https://nytimes.com/2025/02/06/dining/milk.html
+
+**Trump’s Vision for a Gaza of the Future Skirts Reality of War Today**\
 `President Trump’s grandiose plans for the enclave left out any ideas for advancing the cease-fire talks.`\
 https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fire.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/06/us/minnesota-lawmakers-end-democrats-boycott.html
 **Trump Trade Nominee Defends Plan to Reorder International Trade**\
 `Jamieson Greer advocated restructuring the international trading system and defended the president’s aggressive actions against Canada and Mexico as he testified before the Senate.`\
 https://nytimes.com/2025/02/06/us/politics/jamieson-greer-ustr-hearing.html
-
-**How Eddie Howe set Newcastle up to defeat Arsenal and reach the Carabao Cup final**\
-`There was no escape for Mikel Arteta's side last night - Newcastle's application without the ball made them worthy winners `\
-https://nytimes.com/athletic/6118175/2025/02/06/newcastle-arsenal-eddie-howe-tactics-carabao/
-
-**Courthouse Weddings Have Never Been More Chic**\
-`These low-key nuptials are growing in popularity and becoming an aesthetic, offering couples intimate yet affordable settings for their big day.`\
-https://nytimes.com/2025/02/06/style/courthouse-wedding-ceremonies.html
-
-**Why Coal Has Been So Hard to Quit in the U.S.**\
-`What the economics of coal-rich states like Wyoming tells us about the transition away from the dirtiest fossil fuel.`\
-https://nytimes.com/2025/02/06/climate/why-coal-has-been-so-hard-to-quit-in-the-us.html
 
