@@ -1,3 +1,7 @@
+**In a Mexican Town Known for Big Waves, a Stylish New Hotel**\
+`Plus: a fashion designer’s floral rugs, a rooftop restaurant in Jaipur and more recommendations from T Magazine.`\
+https://nytimes.com/2025/02/06/t-magazine/mexico-coast-hotel.html
+
 **Heat Today: With Jimmy Butler gone, 5 ways Miami can develop its long-term identity**\
 `The drama has finally ended. Here's how Miami can move forward.`\
 https://nytimes.com/athletic/6117508/2025/02/06/jimmy-butler-heat-tyler-herro-bam-adebayo-kelel-ware-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/business/offshore-wind-green-energy.html
 **Power Company Finds Irregularities in Equipment Where Eaton Fire Started**\
 `Southern California Edison said video evidence had led it to look more broadly at whether its equipment might have been the cause of the deadly blaze.`\
 https://nytimes.com/2025/02/06/business/eaton-fire-power-lines-edison.html
-
-**Man United took 'risk' by not making more January signings - Amorim**\
-`Patrick Dorgu and Ayden Heaven were the only new additions made to Ruben Amorim's Manchester United squad last month.`\
-https://nytimes.com/athletic/6118350/2025/02/06/manchester-united-transfers-january-risk/
 
