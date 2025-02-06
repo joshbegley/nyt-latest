@@ -1,3 +1,19 @@
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.html
+
+**U.S. Deports Over 100 Undocumented Migrants To India**\
+`The use of a military aircraft, along with the claims of mistreatment, sparked protests from some Indian lawmakers, just days before Prime Minister Narendra Modi’s trip to Washington.`\
+https://nytimes.com/video/world/asia/100000009974226/india-us-deportation-illegal-migration.html
+
+**We Answer Your Very Specific Restaurant Questions**\
+`Italian food across from Lincoln Center, an excellent pickle soup for lunch and the perfect spots for Valentine’s Day.`\
+https://nytimes.com/2025/02/06/dining/we-answer-your-very-specific-restaurant-questions.html
+
+**Friday Briefing: Trump Digs in on Gaza Takeover**\
+`Plus, the complex patterns in whale songs.`\
+https://nytimes.com/2025/02/06/briefing/trump-gaza-sweden-shooting-global-heat.html
+
 **What to See in N.Y.C. Galleries in February**\
 `This week in Newly Reviewed, Holland Cotter covers two group shows: one devoted to an important gallery from the past, the other focused on language and silence.`\
 https://nytimes.com/2025/02/06/arts/what-to-see-in-nyc-galleries-in-february.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/06/travel/national-parks-tourism-usaid.html
 **Justice Dept.’s Weaponization Group Underscores Trump’s Quest for Retribution**\
 `The memo signaled the most significant first step in deploying the levers of government to carry out President Trump’s repeated suggestions that he will pursue those he perceives to be his enemies.`\
 https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-group.html
-
-**Kendrick Lamar reflects on 'grind' that preceded headlining Super Bowl show**\
-`Lamar performed in the Super Bowl LVI halftime show as part of Dr. Dre’s halftime show with Snoop Dogg, Eminem, 50 Cent and Mary J. Blige`\
-https://nytimes.com/athletic/6119292/2025/02/06/kendrick-lamar-super-bowl-halftime-performance/
-
-**NBA trade deadline: Grading all the big deals of 2024-25 trade season**\
-`We've been filling out our report cards on the most notable moves of the past two months.`\
-https://nytimes.com/athletic/6100277/2025/02/06/nba-trade-deadline-grading-deals/
-
-**Several Accused of Impersonating Agents Amid Trump Push on Deportations**\
-`At least three people in three states have recently been charged with pretending to be immigration agents, the authorities said.`\
-https://nytimes.com/2025/02/06/us/ice-raids-deportations-false-reports-impersonators.html
-
-**Chiefs’ Justin Reid thinks New Orleans is perfect, just like K.C.’s 2022 draft class**\
-`The Chiefs' 2022 draftees haven’t experienced a postseason loss. They're going for a 10th consecutive playoff win and third Super Bowl ring.`\
-https://nytimes.com/athletic/6119266/2025/02/06/chiefs-super-bowl-justin-reid-bryan-cook/
 
