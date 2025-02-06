@@ -1,3 +1,11 @@
+**Lakers acquire Mark Williams, send Dalton Knecht, Cam Reddish to Hornets**\
+`The Lakers are sending two of its younger assets and draft capital East to pair Williams with five-time All-Star Luka Dončić`\
+https://nytimes.com/athletic/6117699/2025/02/06/lakers-hornets-nba-trade-dalton-knecht-cam-reddish/
+
+**Transcript Shows Rubio Asking U.S.A.I.D. Worker for ‘Trust’ and ‘Patience’**\
+`Speaking at the U.S. Embassy in Guatemala City, the secretary of state called foreign aid “the least popular thing” that government pays for.`\
+https://nytimes.com/2025/02/06/us/politics/rubio-usaid-worker-trust.html
+
 **Brandon Ingram trade grades: Pelicans finally part ways with one-time All-Star**\
 `Ingram has been injured much of the season and will be an unrestricted free agent this summer.`\
 https://nytimes.com/athletic/6117647/2025/02/06/brandon-ingram-trade-grades-pelicans-raptors/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/arts/music/irv-gotti-dead.html
 **Footballers and learning new languages: Adele, The Da Vinci Code and the delivery room**\
 `Forget Duolingo or following an exam syllabus, language lessons for players start with football terminology and team-mate's nicknames`\
 https://nytimes.com/athletic/6109238/2025/02/06/footballers-learning-languages-translators-tutors/
-
-**Manchester United's No 9 struggles are a damning symptom of club's decline**\
-`Old Trafford, once the spiritual home of attacking football, has become a graveyard for centre-forwards `\
-https://nytimes.com/athletic/6096933/2025/02/06/manchester-united-strikers-transfers/
-
-**Stop making football less fun. Please**\
-`Football is meant to be fun. As minor as it seems, solemnly tutting at or punishing a player for mocking in celebrations, chips away at that`\
-https://nytimes.com/athletic/6116214/2025/02/06/celebrations-no-fun-football-premier-league/
 
