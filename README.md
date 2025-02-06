@@ -1,3 +1,11 @@
+**To Keep Aid Coming, Ukraine Appeals to Trump Allies: Conservative Christians**\
+`A Ukrainian delegation to the National Prayer Breakfast in Washington will make the case that Russia threatens the religious freedom of Christians who don’t follow the Russian Orthodox Church.`\
+https://nytimes.com/2025/02/06/world/europe/ukraine-national-prayer-breakfast.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/06/briefing/trump-gaza-congo.html
+
 **Quote of the Day: A Smoking Ban That Goes the Whole 11 Yards**\
 `Quotation of the Day for Thursday, February 6, 2025`\
 https://nytimes.com/2025/02/05/pageoneplus/quote-of-the-day-a-smoking-ban-that-goes-the-whole-11-yards.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891633/2025/02/05/2024-25-mlb-top-40-free-agmlb-to
 **Andreessen Horowitz Defends Hiring of Daniel Penny to Its Investors**\
 `Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, was hired to join the firm’s American Dynamism investment team.`\
 https://nytimes.com/2025/02/05/technology/daniel-penny-andreessen-horowitz-investors.html
-
-**Pete Alonso to return to Mets on 2-year, $54 million deal: Sources**\
-`After hitting 34 homers with a .788 OPS in 2024, Alonso entered this offseason as the No. 8 player on The Athletic’s Free Agent Big Board.`\
-https://nytimes.com/athletic/5938726/2025/02/05/pete-alonso-contract-mets-mlb-free-agency/
-
-**Jimmy Butler trade grades: Saga finally ends with multi-team deal involving Warriors**\
-`Golden State adds some star power next to Stephen Curry, while the Pistons and Jazz get involved, too.`\
-https://nytimes.com/athletic/6117184/2025/02/05/jimmy-butler-trade-grades-heat-warriors/
 
