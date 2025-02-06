@@ -1,3 +1,7 @@
+**Live from the Super Bowl Day 4: Eli Manning, Terron Armstead, Puka Nacua and more**\
+`Eli Manning, Terron Armstead, Puka Nacua and more stop by the set to talk NFL and Super Bowl on our daily live show.`\
+https://nytimes.com/athletic/6119376/2025/02/06/live-from-the-super-bowl-day-4-eli-manning-terron-armstead-puka-nacua-and-more/
+
 **SEC reports $808.4 million in revenue share, boosted by Texas and Oklahoma**\
 `The amount the 14 schools in the SEC last year only inched up, from $51.3 million to $52.5 million because Oklahoma and Texas received a cut`\
 https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/ncaa-transgender-athletes-ban.html
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.html
-
-**U.S. Deports Over 100 Undocumented Migrants To India**\
-`The use of a military aircraft, along with the claims of mistreatment, sparked protests from some Indian lawmakers, just days before Prime Minister Narendra Modi’s trip to Washington.`\
-https://nytimes.com/video/world/asia/100000009974226/india-us-deportation-illegal-migration.html
 
