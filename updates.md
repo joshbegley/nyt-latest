@@ -1,3 +1,7 @@
+**Arsenal and the lesson of Alexander Isak**\
+`The Newcastle forward gave Arsenal a first-hand demonstration of what an elite centre-forward can offer`\
+https://nytimes.com/athletic/6117214/2025/02/06/arsenal-alexander-isak-newcastle/
+
 **Word of the Day: kismet**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/06/learning/word-of-the-day-kismet.html
