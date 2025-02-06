@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projec
 https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
 
 **The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
-`Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield to reach the Carabao Cup final at Wembley`\
+`Salah scored his 26th goal of the season as Liverpool thumped Tottenham at Anfield, leaving Slot one game from his first trophy in England`\
 https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
 
 **C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
