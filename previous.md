@@ -1,3 +1,11 @@
+**How does Brandon Ingram make sense for the Raptors' rebuild?**\
+`Toronto picked an odd time to trade for a win-now talent. `\
+https://nytimes.com/athletic/6117752/2025/02/06/brandon-ingram-raptors-pelicans-trade-nba/
+
+**Marcelo: Former Real Madrid and Brazil captain retires, aged 36**\
+`The Brazilian is best known for his 15 years at Madrid, where he won 25 trophies including 6 La Liga titles and 5 Champions League trophies.`\
+https://nytimes.com/athletic/6118042/2025/02/06/marcelo-retires-real-madrid-brazil/
+
 **Farm system heat check: What’s the immediate and future outlook for the Astros?**\
 `Cam Smith highlights a farm system that has seen better days, plus we predict Houston's 2027 Opening Day roster.`\
 https://nytimes.com/athletic/6107881/2025/02/06/houston-astros-farm-system-outlook/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116308/2025/02/06/chicago-cubs-spring-guide-pitche
 **Cooper Kupp trade proposals: 9 teams that could make a play for Rams receiver**\
 `The Rams told Cooper Kupp that they plan to trade him. What could they get in return for the receiver? We found some options.`\
 https://nytimes.com/athletic/6115378/2025/02/06/cooper-kupp-trade-proposals-commanders-steelers-jets/
-
-**What the rising NHL salary cap could mean for the Red Wings**\
-`The Red Wings' current contracts and stocked prospect cupboard have Detroit positioned to make the most of a rising cap.`\
-https://nytimes.com/athletic/6115964/2025/02/06/red-wings-nhl-salary-cap-increases/
-
-**Projecting the American women’s Olympic hockey roster, one year from Milan 2026**\
-`The U.S. has some question marks on its roster with plenty of skilled younger players pushing for spots.`\
-https://nytimes.com/athletic/6116763/2025/02/06/milan-olympics-2026-womens-hockey-team-usa-roster/
 

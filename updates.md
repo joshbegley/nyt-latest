@@ -1,3 +1,11 @@
+**How does Brandon Ingram make sense for the Raptors' rebuild?**\
+`Toronto picked an odd time to trade for a win-now talent. `\
+https://nytimes.com/athletic/6117752/2025/02/06/brandon-ingram-raptors-pelicans-trade-nba/
+
+**Marcelo: Former Real Madrid and Brazil captain retires, aged 36**\
+`The Brazilian is best known for his 15 years at Madrid, where he won 25 trophies including 6 La Liga titles and 5 Champions League trophies.`\
+https://nytimes.com/athletic/6118042/2025/02/06/marcelo-retires-real-madrid-brazil/
+
 **Farm system heat check: What’s the immediate and future outlook for the Astros?**\
 `Cam Smith highlights a farm system that has seen better days, plus we predict Houston's 2027 Opening Day roster.`\
 https://nytimes.com/athletic/6107881/2025/02/06/houston-astros-farm-system-outlook/
