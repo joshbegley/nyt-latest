@@ -1,3 +1,11 @@
+**Rosenthal: Pete Alonso's short-term deal showcases the need for a bounce-back 2025 season**\
+`Three other Scott Boras clients recently opted out of short-term deals after one year, then struck belated free-agent riches.`\
+https://nytimes.com/athletic/6118091/2025/02/06/pete-alonso-mets-contract-boras/
+
+**Eiran Cashin to Brighton & Hove Albion: The Athletic 500 transfer ratings**\
+`We rate Brighton's new defensive signing from Derby County`\
+https://nytimes.com/athletic/6104735/2025/02/06/eiran-cashin-brighton-the-athletic-500-transfer-ratings/
+
 **U.S. Waives Funding Freeze at Syrian Camp Holding Thousands of ISIS Fighters**\
 `Upholding security at the camp is seen as critical to prevent a resurgence of the Islamic State. A contractor that trains the police there got a temporary waiver allowing it to continue operating.`\
 https://nytimes.com/2025/02/06/world/europe/trump-usaid-funding-syria-isis.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6116961/2025/02/06/college-basketball-bubble-watch-
 **More TikTok views than Taylor Swift. Report says women's sport ecosystem is 'thriving'**\
 `From Ilona Maher to Caitlin Clark, female athletes are finding their voice on social media, a Women's Sport Trust report says. `\
 https://nytimes.com/athletic/6115808/2025/02/06/womens-sport-trust-2024-review-ilona-maher-chelsea-women-caitlin-clark/
-
-**Vikings free agency: Sam Darnold and 9 other important players set to hit the market**\
-`With 23 players set to become free agents, it's an understatement to say the Vikings roster could look very different next season.`\
-https://nytimes.com/athletic/6116350/2025/02/06/vikings-free-agency-rankings-sam-darnold/
-
-**Raiders NFL Draft big board: 20 exciting prospects to watch in the first round**\
-`Can the Raiders land their quarterback of the future? Or will they have to audible to another position of need? We break down their options.`\
-https://nytimes.com/athletic/6112879/2025/02/06/raiders-nfl-draft-big-board-first-round/
 

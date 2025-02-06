@@ -1,3 +1,11 @@
+**Rosenthal: Pete Alonso's short-term deal showcases the need for a bounce-back 2025 season**\
+`Three other Scott Boras clients recently opted out of short-term deals after one year, then struck belated free-agent riches.`\
+https://nytimes.com/athletic/6118091/2025/02/06/pete-alonso-mets-contract-boras/
+
+**Eiran Cashin to Brighton & Hove Albion: The Athletic 500 transfer ratings**\
+`We rate Brighton's new defensive signing from Derby County`\
+https://nytimes.com/athletic/6104735/2025/02/06/eiran-cashin-brighton-the-athletic-500-transfer-ratings/
+
 **U.S. Waives Funding Freeze at Syrian Camp Holding Thousands of ISIS Fighters**\
 `Upholding security at the camp is seen as critical to prevent a resurgence of the Islamic State. A contractor that trains the police there got a temporary waiver allowing it to continue operating.`\
 https://nytimes.com/2025/02/06/world/europe/trump-usaid-funding-syria-isis.html
