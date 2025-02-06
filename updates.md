@@ -1,3 +1,11 @@
+**'We just have to learn from it': Pistons vow to bounce back from painful last-second losses**\
+`Cade Cunningham led a furious Pistons' last-minute comeback against the Cavs, only for Detroit to experience another last-second heartbreak.`\
+https://nytimes.com/athletic/6117766/2025/02/06/pistons-cavs-cade-cunningham/
+
+**Suns dealing Jusuf Nurkić to Hornets: Reports**\
+`Nurkić, 30, hasn't played since Jan. 7.`\
+https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-hornets-nba-trade-deadline/
+
 **Suns dealing Jusuf Nurkić to Hornets: Reports**\
 `Nurkić, 30, hasn't played since Jan. 7.`\
 https://nytimes.com/athletic/6092350/2025/02/06/jusuf-nurkic-traded-suns-team-nba-trade-deadline/
