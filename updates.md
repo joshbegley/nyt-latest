@@ -1,3 +1,11 @@
+**Lonzo Ball, Bulls agree to 2-year extension: Sources**\
+`The second year of Ball’s contract is a team option, the sources said.`\
+https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
+
+**Canucks sign D Marcus Pettersson to 6-year extension**\
+`Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins.`\
+https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contract-extension/
+
 **Global Temperatures Shattered Records in January**\
 `Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
 https://nytimes.com/2025/02/05/climate/earth-hottest-january.html

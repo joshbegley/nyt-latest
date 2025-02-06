@@ -1,3 +1,11 @@
+**Lonzo Ball, Bulls agree to 2-year extension: Sources**\
+`The second year of Ball’s contract is a team option, the sources said.`\
+https://nytimes.com/athletic/6117486/2025/02/05/lonzo-ball-bulls-extension/
+
+**Canucks sign D Marcus Pettersson to 6-year extension**\
+`Pettersson, who was a pending unrestricted free agent, was acquired by Vancouver on Friday in a trade with the Penguins.`\
+https://nytimes.com/athletic/6117427/2025/02/05/canucks-marcus-pettersson-contract-extension/
+
 **Global Temperatures Shattered Records in January**\
 `Earth’s prolonged streak of abnormal heat continued into 2025 despite the arrival of La Niña ocean conditions, which typically bring cooler temperatures.`\
 https://nytimes.com/2025/02/05/climate/earth-hottest-january.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/05/us/trump-news/the-state-department-says-pana
 **See Where Trump Is Expanding Immigrant Detention at Guantánamo**\
 `Documents and satellite imagery show how much buildup is underway at the military site.`\
 https://nytimes.com/interactive/2025/02/05/us/politics/immigrant-detention-guantanamo.html
-
-**U.S. Is Holding Migrants in Cells That Once Held Al Qaeda Suspects**\
-`The Trump administration said the 10 men who were sent to a prison on the base at Guantánamo Bay are affiliated with gangs.`\
-https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
-
-**Astros to sign outfielder Ben Gamel: Sources**\
-`Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
-https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
 
