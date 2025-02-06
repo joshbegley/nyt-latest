@@ -1,3 +1,7 @@
+**Andreessen Horowitz Defends Hiring of Daniel Penny to Its Investors**\
+`Mr. Penny, who was acquitted after choking a mentally ill subway passenger to death, was hired to join the firm’s American Dynamism investment team.`\
+https://nytimes.com/2025/02/05/technology/daniel-penny-andreessen-horowitz-investors.html
+
 **Pete Alonso to return to Mets on 2-year, $54 million deal: Sources**\
 `After hitting 34 homers with a .788 OPS in 2024, Alonso entered this offseason as the No. 8 player on The Athletic’s Free Agent Big Board.`\
 https://nytimes.com/athletic/5938726/2025/02/05/pete-alonso-contract-mets-mlb-free-agency/
