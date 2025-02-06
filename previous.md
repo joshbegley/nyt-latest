@@ -1,3 +1,23 @@
+**The Giants' projected 2025 season win total is predictably unexciting**\
+`It probably isn't a surprise that the Giants are projected to be an average team, given the last few years. But is that a bad thing?`\
+https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
+
+**House Committee to Examine Secret Navy Effort on Pilot Brain Injuries**\
+`The Navy quietly started screening elite fighter pilots for signs of brain injuries caused by flying, a risk it officially denies exists.`\
+https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
+
+**The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
+`Salah scored his 28th goal of the season as Liverpool thumped Tottenham at Anfield to reach the Carabao Cup final at Wembley`\
+https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
+
+**C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
+`He was among the first backers of Apple Computer and 3Com, earning windfalls, but it was his humaneness that distinguished him from other venture capitalists.`\
+https://nytimes.com/2025/02/06/technology/c-richard-kramlich-dead.html
+
+**Ramos set to join Monterrey after agreeing one-year deal**\
+`The 38-year-old had a medical this week and is set to join the Liga MX side on a fixed salary with some bonuses.`\
+https://nytimes.com/athletic/6119209/2025/02/06/sergio-ramos-contract-monterrey/
+
 **Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
 `The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
 https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6119505/2025/02/06/sec-revenue-texas-oklahoma/
 **NWSL's $5 million fund is 'necessary step toward accountability' after abuse scandal**\
 `Money won’t erase what happened to players in NWSL. Nor should it.`\
 https://nytimes.com/athletic/6119393/2025/02/06/nwsl-restitution-fund-players-accountability/
-
-**Amazon, under conservative pressure, reinstates a book critical of transgender care.**\
-`By Karen Weise and David McCabe`\
-https://nytimes.com/live/2025/02/06/us/president-trump-news/amazon-under-conservative-pressure-reinstates-a-book-critical-of-transgender-care
-
-**Education Dept. Investigates Schools Ensnared in Transgender Sports Disputes**\
-`Three new investigations announced on Thursday came after President Trump ordered federal agencies to help bar transgender women and girls from female sports teams.`\
-https://nytimes.com/2025/02/06/us/politics/trump-transgender-athletes-education-dept.html
-
-**What to See in N.Y.C. Galleries in February**\
-`This week in Newly Reviewed, Holland Cotter covers two group shows: one devoted to an important gallery from the past, the other focused on language and silence.`\
-https://nytimes.com/2025/02/06/arts/art-galleries-nyc-february.html
-
-**State Attorneys General to Sue Over Musk’s Access to Government Systems**\
-`Letitia James of New York and 11 others said that the so-called Department of Government Efficiency had revealed private information and was “unlawful, unprecedented and unacceptable.”`\
-https://nytimes.com/2025/02/06/nyregion/letitia-james-doge-suit.html
-
-**Army Helicopter’s Tracking Technology Turned Off at Time of Crash**\
-`Senator Ted Cruz, the chairman of the committee with oversight of transportation, said there was no compelling reason for the technology not to have been in use when the helicopter collided with a commercial jet over the Potomac River.`\
-https://nytimes.com/2025/02/06/us/politics/crash-army-helicopter-tracking.html
 

@@ -1,3 +1,23 @@
+**The Giants' projected 2025 season win total is predictably unexciting**\
+`It probably isn't a surprise that the Giants are projected to be an average team, given the last few years. But is that a bad thing?`\
+https://nytimes.com/athletic/6119085/2025/02/06/sf-giants-2025-season-win-projections/
+
+**House Committee to Examine Secret Navy Effort on Pilot Brain Injuries**\
+`The Navy quietly started screening elite fighter pilots for signs of brain injuries caused by flying, a risk it officially denies exists.`\
+https://nytimes.com/2025/02/06/us/topgun-navy-pilot-brain-injury.html
+
+**The Briefing: Liverpool 4 Tottenham 0 (Agg: 4-1) - Salah's perfect penalty helps Slot's team reach Carabao Cup final**\
+`Salah scored his 28th goal of the season as Liverpool thumped Tottenham at Anfield to reach the Carabao Cup final at Wembley`\
+https://nytimes.com/athletic/6109346/2025/02/06/liverpool-carabao-cup-final-salah-slot-gakpo-van-dijk/
+
+**C. Richard Kramlich, Early Investor in Silicon Valley, Dies at 89**\
+`He was among the first backers of Apple Computer and 3Com, earning windfalls, but it was his humaneness that distinguished him from other venture capitalists.`\
+https://nytimes.com/2025/02/06/technology/c-richard-kramlich-dead.html
+
+**Ramos set to join Monterrey after agreeing one-year deal**\
+`The 38-year-old had a medical this week and is set to join the Liga MX side on a fixed salary with some bonuses.`\
+https://nytimes.com/athletic/6119209/2025/02/06/sergio-ramos-contract-monterrey/
+
 **Amazon Says Profits Rose 88% but Cautions Growth May Slow**\
 `The company’s cloud computing business showed strong growth, while a forecast for the current quarter disappointed investors.`\
 https://nytimes.com/2025/02/06/technology/amazon-earnings-profits.html
