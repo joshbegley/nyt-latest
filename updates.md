@@ -1,3 +1,7 @@
+**Free-spending Dodgers aren't bad for baseball, MLB commissioner says**\
+`At MLB's owners meetings, parity in the sport and the question of a salary cap are looming large. `\
+https://nytimes.com/athletic/6119056/2025/02/06/dodgers-not-bad-for-baseball-commissioner/
+
 **Chicago Bears matriarch Virginia McCaskey dies at 102**\
 `The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
 https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/

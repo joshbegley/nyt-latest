@@ -1,3 +1,7 @@
+**Free-spending Dodgers aren't bad for baseball, MLB commissioner says**\
+`At MLB's owners meetings, parity in the sport and the question of a salary cap are looming large. `\
+https://nytimes.com/athletic/6119056/2025/02/06/dodgers-not-bad-for-baseball-commissioner/
+
 **Chicago Bears matriarch Virginia McCaskey dies at 102**\
 `The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
 https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/trump-border-life.html
 **The Windup: Pete Alonso has landed!**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
-
-**Trump Nominates Retired General Known for Inflammatory Remarks**\
-`Anthony J. Tata, a retired brigadier general, would hold a senior position at the Pentagon.`\
-https://nytimes.com/2025/02/06/us/politics/trump-tata-pentagon.html
 

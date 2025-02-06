@@ -1,3 +1,11 @@
+**Virginia McCaskey, Owner and Pillar of the Chicago Bears, Dies at 102**\
+`The daughter of the Bears founder and football pioneer George Halas, she took the reins beginning in 1983, after the death of her brother, George Jr.`\
+https://nytimes.com/2025/02/06/sports/football/virginia-mccaskey-dead.html
+
+**‘Apple Cider Vinegar’ Is a Scammer Docudrama With Bite**\
+`The Netflix series, starring Kaitlyn Dever, tells the story of an Australian blogger who found fame and money by lying about having cancer.`\
+https://nytimes.com/2025/02/06/arts/television/apple-cider-vinegar-netflix.html
+
 **Free-spending Dodgers aren't bad for baseball, MLB commissioner says**\
 `At MLB's owners meetings, parity in the sport and the question of a salary cap are looming large. `\
 https://nytimes.com/athletic/6119056/2025/02/06/dodgers-not-bad-for-baseball-commissioner/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/world/middleeast/trump-gaza-war-hostages-cease-fi
 **Kristie Mewis tells court Sam Kerr was 'speaking her truth' in comments to police officer**\
 `United States international Kristie Mewis told a court on Thursday that her fiancee Sam Kerr was “speaking her truth in how she was feeling” when she called a police officer “stupid and white&#8221;.`\
 https://nytimes.com/athletic/6118898/2025/02/06/kristie-mewis-sam-kerr-court/
-
-**Tariffs and Tightening Controls Threaten a Way of Life on the Border**\
-`President Trump’s immigration policies have injected new uncertainty for U.S. border communities that are already suffering after waves of clampdowns.`\
-https://nytimes.com/2025/02/06/us/politics/trump-border-life.html
-
-**The Windup: Pete Alonso has landed!**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6118949/2025/02/06/pete-alonso-mets-free-agency-the-windup/
 
