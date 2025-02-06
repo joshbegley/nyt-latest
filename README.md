@@ -2,7 +2,7 @@
 `For the first time in six years, water is gushing through a unique spillway in Lake Berryessa, just north of San Francisco.`\
 https://nytimes.com/2025/02/06/weather/lake-berryessa-spillover-california.html
 
-**Read the Memo From City Hall Lawyers Sent to New York City Agencies**\
+**Read the Memo Sent By City Hall Lawyers to New York City Agencies**\
 `The one-page memo tells city employees how to respond if federal law enforcement officers show up on city premises, including schools, shelters and hospitals.`\
 https://nytimes.com/interactive/2025/02/06/nyregion/ny-nyc-sanctuary-memo.html
 
