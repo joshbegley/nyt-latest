@@ -1,3 +1,7 @@
+**Thorns, WNBA Portland to receive $150-million joint training campus**\
+`The first phase of development involves building a privately funded $75 million, 12-acre training facility`\
+https://nytimes.com/athletic/6117454/2025/02/06/portland-thorns-wnba-nwsl-training-center/
+
 **Washington Takes Aim at DeepSeek**\
 `Lawmakers are said to be working on a bill to block the Chinese chatbot app from government devices, underscoring concerns about the artificial intelligence race.`\
 https://nytimes.com/2025/02/06/business/dealbook/deepseek-ban-washington.html
