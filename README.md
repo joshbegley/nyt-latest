@@ -20,7 +20,7 @@ https://nytimes.com/2025/02/06/science/giant-y-chromosome-flower.html
 
 **Cavaliers acquire De'Andre Hunter from Hawks: Source**\
 `Hunter, 27, is averaging a career-high 19 points per game this season.`\
-https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-from-hawks-source/
+https://nytimes.com/athletic/6119180/2025/02/06/cavaliers-acquire-deandre-hunter-hawks/
 
 **Crosby's status unclear with 4 Nations, big weekend looming**\
 `Crosby's status this weekend against the Flyers and Rangers, and for the 4 Nations tournament, is murky because of an injury.`\
