@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6117509/2025/02/05/kyle-kuzma-jonas-valanciunas-tra
 https://nytimes.com/athletic/6117417/2025/02/05/pelicans-brandon-ingram-raptors-trade/
 
 **Arkansas beats Texas, gives SEC a 14th viable NCAA Tournament contender**\
-`If the 14 teams make it, that'd beat the former record of 11 set by the Big East in 2011.`\
+`The Big East holds the record for most NCAA Tournament teams in one season with 11, set in 2011.`\
 https://nytimes.com/athletic/6117633/2025/02/05/john-caliparis-arkansas-texas-mens-basketball-result-analysis/
 
 **Top line looks elite, Kreider comes through short-handed: Rangers takeaways**\
