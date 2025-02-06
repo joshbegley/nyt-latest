@@ -1,3 +1,7 @@
+**Thompson: Warriors and Jimmy Butler a match made in mutual desperation**\
+`Jimmy Butler wanted a fresh start. The Warriors needed to shake things up. Now they'll try to rediscover glory together.`\
+https://nytimes.com/athletic/6117889/2025/02/06/jimmy-butler-warriors-heat-trade-desperation/
+
 **How does Brandon Ingram make sense for the Raptors' rebuild?**\
 `Toronto picked an odd time to trade for a win-now talent. `\
 https://nytimes.com/athletic/6117752/2025/02/06/brandon-ingram-raptors-pelicans-trade-nba/
