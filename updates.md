@@ -1,3 +1,7 @@
+**How the Blackhawks plan to address goaltender in rebuild**\
+`The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
+https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
+
 **Lakers-Hornets trade grades: Mark Williams heading to L.A. to bolster frontcourt**\
 `The Lakers are sending out a first-round pick to take a gamble on a young replacement for Anthony Davis in the middle.`\
 https://nytimes.com/athletic/6117695/2025/02/06/mark-williams-trade-grades-lakers-hornets/

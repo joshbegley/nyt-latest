@@ -1,4 +1,4 @@
-**How the Blackhawks plan to address goaltender in rebuild**\
+**How the Blackhawks plan to address goaltending in rebuild**\
 `The Blackhawks' plan for the future is easy to decipher when you look at their pool of forwards and defensemen. But what about goalie?`\
 https://nytimes.com/athletic/6117627/2025/02/06/blackhawks-goaltender-plan-rebuild-arvid-soderblom/
 
