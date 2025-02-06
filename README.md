@@ -1,3 +1,7 @@
+**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
+`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
+https://nytimes.com/athletic/6100448/2025/02/06/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
+
 **Luis Rubiales trial: Luque accused Hermoso of 'jumping on the bandwagon to kill Rubiales'**\
 `Hermoso's Spain team-mates Putellas, Paredes and Codina, and one of the forward's friends testified on day four in Madrid`\
 https://nytimes.com/athletic/6118614/2025/02/06/rubiales-trial-luque-hermoso-messages/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/opinion/trump-deepseek-regulation-bailout-big-tec
 **Having Big Feelings? Here’s How to ‘Shift’ Them.**\
 `In his new book, the emotion researcher Ethan Kross shares strategies for managing life’s curveballs.`\
 https://nytimes.com/2025/02/06/well/how-to-change-your-mood.html
-
-**5 Decluttering Books to Bring Order to Chaos**\
-`We asked professional organizers to share their favorites.`\
-https://nytimes.com/2025/02/06/well/organizing-books.html
 
