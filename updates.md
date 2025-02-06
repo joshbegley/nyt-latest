@@ -1,3 +1,11 @@
+**Federal Judge Deals Another Blow to Trump’s Birthright Citizenship Order**\
+`The injunction issued Thursday by a judge in Seattle came a day after an injunction stemming from a lawsuit in Maryland.`\
+https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.html
+
+**The Price of Fraud in Alzheimer’s Research**\
+`Readers worry that fraud may tarnish the field and slow the race for a cure. Also: Charles Blow’s farewell; treatment for addiction; the Gulf of America; Socrates and Donald Trump.`\
+https://nytimes.com/2025/02/06/opinion/alzheimers-research-fraud.html
+
 **A Runway Switch, a Vague Alert: What Pilots Heard Before Fatal D.C. Crash**\
 `The pilots of the American Airlines regional jet in the Washington airport collision acted as expected, aviation safety experts and other pilots said.`\
 https://nytimes.com/2025/02/06/business/dc-plane-crash-american-airlines-pilots.html

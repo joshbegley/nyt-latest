@@ -1,3 +1,11 @@
+**Federal Judge Deals Another Blow to Trump’s Birthright Citizenship Order**\
+`The injunction issued Thursday by a judge in Seattle came a day after an injunction stemming from a lawsuit in Maryland.`\
+https://nytimes.com/2025/02/06/us/federal-judge-trump-birthright-citizenship.html
+
+**The Price of Fraud in Alzheimer’s Research**\
+`Readers worry that fraud may tarnish the field and slow the race for a cure. Also: Charles Blow’s farewell; treatment for addiction; the Gulf of America; Socrates and Donald Trump.`\
+https://nytimes.com/2025/02/06/opinion/alzheimers-research-fraud.html
+
 **A Runway Switch, a Vague Alert: What Pilots Heard Before Fatal D.C. Crash**\
 `The pilots of the American Airlines regional jet in the Washington airport collision acted as expected, aviation safety experts and other pilots said.`\
 https://nytimes.com/2025/02/06/business/dc-plane-crash-american-airlines-pilots.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6119056/2025/02/06/dodgers-not-bad-for-baseball-com
 **Chicago Bears matriarch Virginia McCaskey dies at 102**\
 `The daughter of Bears founder George Halas, McCaskey watched the NFL go from a struggling start-up to the most powerful league in America.`\
 https://nytimes.com/athletic/3241220/2025/02/06/virginia-mccaskey-chicago-bears/
-
-**Creamy, but No Cream**\
-`You don’t need dairy to get that luscious, comforting texture. Case in point: this new roasted broccoli and whipped tofu with chile crisp crunch.`\
-https://nytimes.com/2025/02/06/dining/creamy-but-no-cream.html
-
-**Let’s Discuss: A Column That Celebrates Love and Weddings**\
-`What place do stories of romance and marriage have in the pages of a newspaper? Join this conversation with the Vows writer Rosalie R. Radomsky by Feb. 13 to find out.`\
-https://nytimes.com/2025/02/06/learning/lesson-plans/lets-discuss-a-column-that-celebrates-love-and-weddings.html
 
