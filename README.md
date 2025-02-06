@@ -1,3 +1,15 @@
+**State Attorneys General to Sue Over Musk’s Access to Government Systems**\
+`Letitia James of New York and 11 others said that the so-called Department of Government Efficiency had revealed private information and was “unlawful, unprecedented and unacceptable.”`\
+https://nytimes.com/2025/02/06/nyregion/letitia-james-doge-suit.html
+
+**Army Helicopter’s Tracking Technology Turned Off at Time of Crash**\
+`Senator Ted Cruz, the chairman of the committee with oversight of transportation, said there was no compelling reason for the technology not to have been in use when the helicopter collided with a commercial jet over the Potomac River.`\
+https://nytimes.com/2025/02/06/us/politics/crash-army-helicopter-tracking.html
+
+**N.C.A.A., Following Trump’s Order, Excludes Transgender Athletes From Women’s Sports**\
+`The decision, effective immediately, came a day after President Trump signed an order barring transgender girls and women from playing in women’s sports at federally funded educational institutions.`\
+https://nytimes.com/2025/02/06/us/politics/ncaa-transgender-athletes-ban.html
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/02/06/books/review/5-new-books-we-recommend-this-week.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6119138/2025/02/06/eagles-defense-superbowl-darius-
 **Hawks-Clippers trade grades: Bogdan Bogdanović (probably) bolsters LA's backcourt**\
 `Naturally, we have some questions about the Hawks and what they're doing.`\
 https://nytimes.com/athletic/6119274/2025/02/06/bogdan-bogdanovic-terance-mann-bones-hyland-nba-trade-grades-hawks-clippers/
-
-**New-look Leafs: Toronto shuffles lines as Mitch Marner, Anthony Stolarz return**\
-`Mitch Marner to play with John Tavares and William Nylander — a rare combination for the Maple Leafs.`\
-https://nytimes.com/athletic/6119019/2025/02/06/maple-leafs-marner-stolarz-lines/
-
-**On the U.S.A.I.D. Chopping Block: Elephants, Tigers and Coral Reefs**\
-`Among the programs affected by the possible freeze of American foreign aid are those that establish and support overseas national parks and conservation areas.`\
-https://nytimes.com/2025/02/06/travel/national-parks-tourism-usaid.html
-
-**Justice Dept.’s Weaponization Group Underscores Trump’s Quest for Retribution**\
-`The memo signaled the most significant first step in deploying the levers of government to carry out President Trump’s repeated suggestions that he will pursue those he perceives to be his enemies.`\
-https://nytimes.com/2025/02/06/us/politics/justice-department-weaponization-group.html
 
