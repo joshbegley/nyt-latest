@@ -1,3 +1,7 @@
+**U.S. Is Holding Migrants in Cells That Once Held Al Qaeda Suspects**\
+`The Trump administration said the 10 men who were sent to a prison on the base at Guantánamo Bay are affiliated with gangs.`\
+https://nytimes.com/2025/02/05/us/politics/migrants-trump-guantanamo-prison.html
+
 **Astros to sign outfielder Ben Gamel: Sources**\
 `Gamel has a great chance to make Houston's Opening Day roster as either a fourth outfielder or part of a platoon in left field.`\
 https://nytimes.com/athletic/6117306/2025/02/05/ben-gamel-astros-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/05/us/politics/trump-musk-relationship.html
 **West Point Disbands Clubs for Women and Minorities After Trump Orders**\
 `The military academy ordered the closure of a dozen clubs for students affiliated with its Diversity, Equity and Inclusion office.`\
 https://nytimes.com/2025/02/05/us/west-point-clubs-women-minorities.html
-
-**ASAP Rocky’s Trial Style Scrambles the Signals**\
-`Fans could be forgiven for mistaking the rapper’s court appearances for fashion shoots.`\
-https://nytimes.com/2025/02/05/style/asap-rocky-trial.html
 
