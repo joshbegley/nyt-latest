@@ -1,3 +1,7 @@
+**Every deal made during a monumental 2025 NBA trade season**\
+`Having trouble keeping track of every trade that happened in the NBA this season? We have you covered.`\
+https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-luka-doncic-jimmy-butler/
+
 **When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
 `A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
 https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
