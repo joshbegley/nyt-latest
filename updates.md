@@ -1,3 +1,7 @@
+**Campus Figures**\
+`Kelly Morenus opens our solving weekend.`\
+https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
+
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/06/ovechkin-goals-record-wayne-gretzky-stats/
