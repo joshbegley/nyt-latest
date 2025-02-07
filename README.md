@@ -1,3 +1,7 @@
+**S.F.C. Is Latest City to Sue Trump Over Immigration Policies**\
+`Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
+https://nytimes.com/2025/02/07/us/politics/sfc-is-latest-city-to-sue-trump-over-immigration-policies.html
+
 **The Singular Magic of Torrisi: New York City on a Plate**\
 `Sam Sifton takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
 https://nytimes.com/2025/02/07/dining/torrisi-restaurant-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122221/2025/02/07/jack-flaherty-detroit-tigers-rot
 **A Party With an Edible Zen Garden**\
 `For the opening of her new store in Los Angeles, the florist Ren MacDonald-Balasia filled the space with food and flowers inspired by her heritage.`\
 https://nytimes.com/2025/02/07/t-magazine/renko-floral-los-angeles-party.html
-
-**'We like the core': Pistons GM Trajan Langdon explains Detroit's trade deadline**\
-`Langdon's message was consistent throughout his 20-minute media conference: He believes in the players currently on the Pistons' roster.`\
-https://nytimes.com/athletic/6121635/2025/02/07/pistons-trade-deadline-cunningham-langdon/
 
