@@ -1,8 +1,8 @@
 **Gates, Sharpe, Allen lead small Hall of Fame class; Eli Manning left out**\
-`The four-person class is the first class since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
+`The four-person class is the first since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
 https://nytimes.com/athletic/6120229/2025/02/06/nfl-hall-of-fame-class-of-2025/
 
-**Gustavsson beats Carolina once again, Hinostroza scores winner in Wild debut: 4 takeaways**\
+**Filip Gustavsson beats Canes again, Vinnie Hinostroza scores winner in Wild debut: 4 takeaways**\
 `The Wild picked up just their fifth win in their past 14 home games with a sterling Gustavsson performance against Carolina.`\
 https://nytimes.com/athletic/6120127/2025/02/06/wild-gustavsson-hinostroza-first-goal-hurricanes/
 
