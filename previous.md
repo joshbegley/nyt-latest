@@ -1,3 +1,7 @@
+**Vance Calls for Rehiring of DOGE Staffer Who Quit Over Racist Posts**\
+`The vice president said he “obviously” disagreed with some of the man’s posts but “I don’t think stupid social media activity should ruin a kid’s life.”`\
+https://nytimes.com/2025/02/07/us/politics/vance-doge-staffer-racist-posts.html
+
 **Hollinger's NBA buyout market tiers: 35 players to watch post-trade deadline**\
 `Now it’s time for our annual round of speed dating to fill in the back end of everyone’s rosters.`\
 https://nytimes.com/athletic/6120862/2025/02/07/nba-buyout-market-tiers-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121787/2025/02/07/fantasy-basketball-trade-deadlin
 **Former Adams Aide to Plead Guilty to Conspiracy in Straw Donations Case**\
 `The aide, Mohamed Bahi, had been accused of telling a witness to lie to federal agents investigating illegal contributions to the mayor’s campaign.`\
 https://nytimes.com/2025/02/07/nyregion/adams-corruption-bahi-plea.html
-
-**Doechii’s Victory Lap, and 10 More New Songs**\
-`Hear tracks from Valerie June, Coi Leray, Destroyer and others.`\
-https://nytimes.com/2025/02/07/arts/music/playlist-doechii-lady-gaga.html
 

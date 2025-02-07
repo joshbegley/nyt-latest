@@ -1,3 +1,7 @@
+**Vance Calls for Rehiring of DOGE Staffer Who Quit Over Racist Posts**\
+`The vice president said he “obviously” disagreed with some of the man’s posts but “I don’t think stupid social media activity should ruin a kid’s life.”`\
+https://nytimes.com/2025/02/07/us/politics/vance-doge-staffer-racist-posts.html
+
 **Hollinger's NBA buyout market tiers: 35 players to watch post-trade deadline**\
 `Now it’s time for our annual round of speed dating to fill in the back end of everyone’s rosters.`\
 https://nytimes.com/athletic/6120862/2025/02/07/nba-buyout-market-tiers-2025/
