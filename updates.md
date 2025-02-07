@@ -1,3 +1,7 @@
+**Fighting Intensifies in Sudan, Leaving Hundreds Dead**\
+`The army and the paramilitary forces are locked in a new and ruinous battle for territory across the northeast African nation.`\
+https://nytimes.com/2025/02/07/world/africa/sudan-clashes.html
+
 **FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
 `Sports Interactive said that 'following extensive internal discussion and careful consideration' with Sega, it would not be running FM25.`\
 https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/

@@ -1,3 +1,7 @@
+**Fighting Intensifies in Sudan, Leaving Hundreds Dead**\
+`The army and the paramilitary forces are locked in a new and ruinous battle for territory across the northeast African nation.`\
+https://nytimes.com/2025/02/07/world/africa/sudan-clashes.html
+
 **Pedri and the passes**\
 `The Barcelona midfielder is playing deeper under new coach Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
 https://nytimes.com/athletic/6120079/2025/02/07/pedri-barcelona-flick-passes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-f
 **Brighton's Cashin ready for Premier League step up - Hurzeler**\
 `Cashin, 23, has swapped a relegation fight with Derby County in the Championship for a move to the Amex Stadium.`\
 https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
-
-**Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
-`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes from a first Anfield trophy`\
-https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
 
