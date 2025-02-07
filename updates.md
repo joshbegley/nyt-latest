@@ -1,3 +1,7 @@
+**A Constitutional Crisis?**\
+`We’re covering an imbalance of power in the government.`\
+https://nytimes.com/2025/02/07/briefing/a-constitutional-crisis.html
+
 **Where are the Bulls going after Zach LaVine trade? That's a good question**\
 `Artūras Karnišovas couldn't offer a clear vision for the franchise after Thursday's trade deadline.`\
 https://nytimes.com/athletic/6120372/2025/02/07/bulls-nba-trade-franchise-zach-lavine-changes/
