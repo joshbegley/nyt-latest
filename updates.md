@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman: Gleyber Torres was 'unwilling' to change positions**\
+`Cashman said that when he traded for Jazz Chisholm Jr., his intent was for Gleyber Torres to move to third base.`\
+https://nytimes.com/athletic/6120414/2025/02/06/yankees-brian-cashman-gleyber-torres-position-change/
+
 **Campus Figures**\
 `Kelly Morenus opens our solving weekend.`\
 https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
