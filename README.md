@@ -1,3 +1,7 @@
+**NBA futures odds: Did Jimmy Butler's trade to Golden State move the needle?**\
+`Jimmy Butler's trade to Golden State was a big one, but did it move the odds in the NBA futures market?`\
+https://nytimes.com/athletic/6121870/2025/02/07/nba-futures-odds-jimmy-butler/
+
 **9 Spellbinding Songs About Magic**\
 `Lady Gaga’s latest has inspired a playlist.`\
 https://nytimes.com/2025/02/07/arts/music/amplifier-newsletter-magic-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121989/2025/02/07/smu-ad-rick-hart-step-down/
 **Ye Takes Back Apology and Calls Himself a Nazi in Social Media Rant**\
 `The rapper praised Hitler and took back an apology he made in 2023 for his past antisemitic remarks.`\
 https://nytimes.com/2025/02/07/arts/music/ye-takes-back-apology.html
-
-**Grenfell Tower Was a Death Trap. Some Wanted It to Stand as a Warning.**\
-`Britain’s government confirmed Friday that the tower block in London, where 72 people died, would be demolished, provoking a combination of anger and relief from survivors and bereaved families.`\
-https://nytimes.com/2025/02/07/world/europe/grenfell-tower-demolition-memorial-debate.html
 
