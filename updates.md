@@ -1,3 +1,7 @@
+**LeBron goes No. 1 by O’Neal as Barkley takes all 6 foreign players in All-Star draft**\
+`In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
+https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
+
 **Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
 `The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
 https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
