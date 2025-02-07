@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/06/nyregion/climate-change-superfund-act-lawsuit.htm
 `The Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
 https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
 
-**LeBron goes No. 1 by O’Neal as Barkley takes all 6 foreign players in All-Star draft**\
+**LeBron goes No. 1 by O’Neal, Barkley takes 6 foreign players in All-Star draft**\
 `In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
 https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
 
