@@ -1,3 +1,11 @@
+**Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
+`For the third time in the last decade, Indiana needs a new men’s basketball coach. But the circumstances around this job are different.`\
+https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
+
+**Mavericks bracing for 'heartbreak' and 'boos' from fans when they return to Dallas**\
+`“Nobody is mad at Dallas fans for their reaction. With something that’s emotional, you have to give it a chance to process.” Dinwiddie said.`\
+https://nytimes.com/athletic/6120785/2025/02/07/mavericks-fans-nba-trade-luka-doncic/
+
 **NHL Power Rankings: A new No. 1 emerges just in time for haiku week**\
 `There's a new No. 1 and the rest of the rankings are perfect too.`\
 https://nytimes.com/athletic/6120765/2025/02/07/nhl-power-rankings-new-no-1/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html
 **Why Transferring Credit Card Debt Won’t Pay It Off**\
 `A new report finds that people are spending more on their cards and paying down less. Financial experts offer tips for reducing that debt, starting with looking at your spending habits.`\
 https://nytimes.com/2025/02/07/your-money/credit-card-debt.html
-
-**How Dirk Nowitzki plays a central role in Mavericks fans' heartbreak over Luka Dončić**\
-`Nowitzki spent his entire career with the Mavericks, and when he handed over the team to Dončić, most Dallas fans expected the same.`\
-https://nytimes.com/athletic/6118762/2025/02/07/how-dirk-nowitzki-plays-a-central-role-in-mavericks-fans-heartbreak-over-luka-doncic/
-
-**Sweden Moves to Tighten Gun Laws After Mass Shooting**\
-`The changes would make it harder to access semiautomatic weapons, and enhance police and medical checks in license applications.`\
-https://nytimes.com/2025/02/07/world/europe/sweden-gun-laws.html
 
