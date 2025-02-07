@@ -1,3 +1,7 @@
+**Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
+`Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
+https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
+
 **Malen and Garcia left out of Villa's Champions League squad**\
 `Marcus Rashford, Axel Disasi and Marco Asensio, however, have been added to Villa's squad for the UCL knockout phase.`\
 https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squad-malen-garcia/
