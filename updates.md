@@ -1,3 +1,15 @@
+**Hollinger's NBA buyout market tiers: 35 players to watch post-trade deadline**\
+`Now it’s time for our annual round of speed dating to fill in the back end of everyone’s rosters.`\
+https://nytimes.com/athletic/6120862/2025/02/07/nba-buyout-market-tiers-2025/
+
+**What will the Oilers be looking for at the NHL trade deadline? Catching up with GM Stan Bowman**\
+`The Oilers have hit their stride after a bumpy start, but there's still room to add. What's on the list beyond defensive depth?`\
+https://nytimes.com/athletic/6121964/2025/02/07/oilers-trade-deadline-stan-bowman/
+
+**January’s job gains were fewer than expected.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/januarys-job-gains-were-fewer-than-expected
+
 **OpenAI Close to Deal That Values Company at $300 Billion**\
 `The Japanese conglomerate SoftBank would invest up to $40 billion in the maker of the chatbot ChatGPT.`\
 https://nytimes.com/2025/02/07/technology/openai-softbank-investment.html
