@@ -1,3 +1,11 @@
+**U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
+`The four people, whose identities have not been released, were on a small plane that went down during a routine mission, the U.S. military said.`\
+https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
+
+**What Marshall Munetsi and Nasser Djiga will bring to Wolves**\
+`Wolves will have two new faces in their squad when they travel to Blackburn on Sunday - and neither signing was entirely conventional`\
+https://nytimes.com/athletic/6118347/2025/02/07/marshall-munetsi-marshall-djiga-wolves/
+
 **West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
 `West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
 https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6119097/2025/02/07/real-madrid-centre-backs-atletic
 **Saving the head coach from 'fire', lake jumping and paper footballs: The making of Patrick Dorgu**\
 `A relentless drive to succeed and a powerful will to win have helped propel Ruben Amorim's new signing towards elite football`\
 https://nytimes.com/athletic/6118674/2025/02/07/making-of-dorgu-man-utd/
-
-**At home with the manager (and his wife) preparing to face Pep Guardiola**\
-`Richie Wellens has transformed Leyton Orient's fortunes. The Athletic met him, and Nicola, before the third-tier club's big FA Cup tie`\
-https://nytimes.com/athletic/6118869/2025/02/07/richie-wellens-leyton-orient-pep-guardiola-fa-cup/
-
-**Can World Cup 2026 match the advertising might of the Super Bowl?**\
-`Firms pay millions to run a 30-second commercial during the Super Bowl. Why are ads shown in soccer's equivalent games less of a big deal?`\
-https://nytimes.com/athletic/6118354/2025/02/07/world-cup-2026-soccer-advertising-super-bowl/
 

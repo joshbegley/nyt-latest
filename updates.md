@@ -1,3 +1,11 @@
+**U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
+`The four people, whose identities have not been released, were on a small plane that went down during a routine mission, the U.S. military said.`\
+https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
+
+**What Marshall Munetsi and Nasser Djiga will bring to Wolves**\
+`Wolves will have two new faces in their squad when they travel to Blackburn on Sunday - and neither signing was entirely conventional`\
+https://nytimes.com/athletic/6118347/2025/02/07/marshall-munetsi-marshall-djiga-wolves/
+
 **West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
 `West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
 https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
