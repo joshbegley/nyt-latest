@@ -1,3 +1,7 @@
+**An El Greco Is Pulled From an Auction as Romania Objects**\
+`The Romanian government has long sought dozens of valuable paintings that it says the country’s last king took into exile in 1947.`\
+https://nytimes.com/2025/02/07/arts/design/el-greco-painting-christies-romania-government.html
+
 **Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
 `A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
 https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
