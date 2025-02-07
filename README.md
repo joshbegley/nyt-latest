@@ -1,3 +1,11 @@
+**Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
+`Daniels joins Robert Griffin III as the only Washington players to take home the award. `\
+https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
+
+**Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
+`Ellen L. Weintraub, who has served as a commissioner for the nation's top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
+https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
+
 **Kamala Harris Tours the Destruction in the Palisades**\
 `Asked during her visit on Thursday if she was considering running for governor of California, Ms. Harris did not give a direct answer, but did not rule it out either.`\
 https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/russell-vought-omb-senate-vote.html
 **A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
 `Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
 https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
-
-**Every deal made during a monumental 2025 NBA trade season**\
-`Having trouble keeping track of every trade that happened in the NBA this season? We have you covered.`\
-https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-luka-doncic-jimmy-butler/
-
-**When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
-`A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
-https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
 
