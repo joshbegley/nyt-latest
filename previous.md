@@ -30,7 +30,7 @@ https://nytimes.com/2025/02/06/us/live-beetles-japanese-snacks-lax.html
 `The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
 https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
 
-**Samantha Power: Killing U.S.A.I.D. Is a Win for Autocrats Everywhere**\
+**I Ran U.S.A.I.D. Killing It Is a Win for Autocrats Everywhere.**\
 `The attacks on the agency are cruel and counterproductive.`\
 https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
 

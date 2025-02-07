@@ -1,3 +1,7 @@
+**I Ran U.S.A.I.D. Killing It Is a Win for Autocrats Everywhere.**\
+`The attacks on the agency are cruel and counterproductive.`\
+https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
+
 **LeBron goes No. 1 by O’Neal as Barkley takes all 6 foreign players in All-Star draft**\
 `In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
 https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
