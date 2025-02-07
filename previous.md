@@ -1,3 +1,7 @@
+**‘Love Hurts’ Review: A Valentine Full of Action**\
+`Ke Huy Quan and Ariana DeBose play reunited former associates from a criminal outfit. Sparks don’t exactly fly.`\
+https://nytimes.com/2025/02/07/movies/love-hurts-review.html
+
 **Fighting Intensifies in Sudan, Leaving Hundreds Dead**\
 `The army and the paramilitary forces are locked in a new and ruinous battle for territory across the northeast African nation.`\
 https://nytimes.com/2025/02/07/world/africa/sudan-clashes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/arts/television/jimmy-kimmel-trump-prayer-breakfa
 **Tottenham Hotspur: If you won't go for it now, then when?**\
 `This was always going to be a huge week for Spurs and Postecoglou - the manner of the soulless performance at Anfield was alarming`\
 https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-final/
-
-**Brighton's Cashin ready for Premier League step up - Hurzeler**\
-`Cashin, 23, has swapped a relegation fight with Derby County in the Championship for a move to the Amex Stadium.`\
-https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
 

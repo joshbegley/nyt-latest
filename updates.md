@@ -1,3 +1,7 @@
+**‘Love Hurts’ Review: A Valentine Full of Action**\
+`Ke Huy Quan and Ariana DeBose play reunited former associates from a criminal outfit. Sparks don’t exactly fly.`\
+https://nytimes.com/2025/02/07/movies/love-hurts-review.html
+
 **Fighting Intensifies in Sudan, Leaving Hundreds Dead**\
 `The army and the paramilitary forces are locked in a new and ruinous battle for territory across the northeast African nation.`\
 https://nytimes.com/2025/02/07/world/africa/sudan-clashes.html
