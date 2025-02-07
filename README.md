@@ -1,3 +1,11 @@
+**A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
+`Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
+
+**Chicks Raised to Lay Eggs Are Lost in Fire at a Large Farm in Ohio**\
+`The chicken-raising facility in western Ohio was licensed to house about 280,000 young hens. The destruction came amid egg shortages linked to an avian influenza outbreak.`\
+https://nytimes.com/2025/02/07/us/ohio-chicken-farm-fire.html
+
 **Hegseth Uses His First Town Hall to Attack Diversity**\
 `The defense secretary, speaking to the Pentagon work force, defended his “unconventional approaches” to an audience that included women and people of color.`\
 https://nytimes.com/2025/02/07/us/politics/hegseth-pentagon-town-hall.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/health/medical-parole-new-york.html
 **Trump Administration Flips U.S. Position in Supreme Court Transgender Case**\
 `An administration lawyer said a Tennessee law barring some medical treatments for transgender youths is constitutional and urged the justices to say so.`\
 https://nytimes.com/2025/02/07/us/politics/supreme-court-transgender-case.html
-
-**Giants spring guide: 32 thoughts for 32 pitchers, from Beck to Verlander to Winn**\
-`A brief look at the 32 pitchers the Giants are bringing to Scottsdale when major-league camp opens in a few days.`\
-https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-preview/
-
-**Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
-`President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
-https://nytimes.com/2025/02/07/us/politics/trump-nippon-steel-us.html
 

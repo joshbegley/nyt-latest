@@ -1,3 +1,19 @@
+**Hegseth Uses His First Town Hall to Attack Diversity**\
+`The defense secretary, speaking to the Pentagon work force, defended his “unconventional approaches” to an audience that included women and people of color.`\
+https://nytimes.com/2025/02/07/us/politics/hegseth-pentagon-town-hall.html
+
+**Kyle Kuzma 'grateful' to be with Bucks and play 'winning basketball' again**\
+`What role the 29-year-old forward will fill is unclear, but he's eager to contribute alongside Giannis Antetokounmpo and Damian Lillard.`\
+https://nytimes.com/athletic/6115098/2025/02/07/kyle-kuzma-bucks-giannis-lillard/
+
+**Why Is Trump Targeting the International Criminal Court?**\
+`President Trump says the work of the I.C.C., the world’s highest criminal court, threatens the national security of the United States and its allies, including Israel.`\
+https://nytimes.com/2025/02/07/us/politics/trump-icc.html
+
+**How Alcohol Affects Your Gut**\
+`If you have gut problems, alcohol might be contributing to them. Alice Callahan, a reporter covering nutrition and health for The New York Times, describes several common effects.`\
+https://nytimes.com/video/well/100000009971648/how-alcohol-affects-your-gut.html
+
 **An El Greco Is Pulled From an Auction as Romania Objects**\
 `The Romanian government has long sought dozens of valuable paintings that it says the country’s last king took into exile in 1947.`\
 https://nytimes.com/2025/02/07/arts/design/el-greco-painting-christies-romania-government.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-previe
 **Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
 `President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
 https://nytimes.com/2025/02/07/us/politics/trump-nippon-steel-us.html
-
-**Mike Woodson stepping down as Indiana head coach at season's end**\
-`Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
-https://nytimes.com/athletic/6119966/2025/02/07/indiana-basketball-mike-woodson-future/
-
-**Leave a Maple Leafs question for James Mirtle’s next mailbag**\
-`We&#8217;re about to head into the 4 Nations break, so it feels like a good time to take a step back and take some questions about where the Maple Leafs are at.`\
-https://nytimes.com/athletic/6122467/2025/02/07/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag/
-
-**2 Killed as Tornadoes Sweep Through Eastern Tennessee**\
-`The tornadoes, which also injured three people and caused widespread damage, reached wind speeds in excess of 100 miles per hour.`\
-https://nytimes.com/2025/02/07/us/tennessee-tornado-morgan-county-mother-daughter.html
-
-**At Justice Dept., Trump’s Former Criminal Defender Emerges as His Enforcer**\
-`As the acting deputy attorney general, Emil Bove has overseen the forced transfers of senior officials and an effort to collect the names of F.B.I. agents who worked on Jan. 6 cases.`\
-https://nytimes.com/2025/02/07/us/politics/emil-bove-justice-fbi-trump-bondi.html
 
