@@ -1,3 +1,15 @@
+**Falsehoods Fuel the Right-Wing Crusade Against U.S.A.I.D.**\
+`As the Trump administration works to dismantle the aid agency, right-wing influencers have flooded the internet with falsehoods about its work.`\
+https://nytimes.com/2025/02/07/business/usaid-conspiracy-theories-disinformation.html
+
+**A.I. Military Start-Up Anduril Close to Deal That Would Value Company at $28 Billion**\
+`The Southern California start-up, which builds flying drones and missiles, is set to raise up to $2.5 billion.`\
+https://nytimes.com/2025/02/07/technology/anduril-funding-valuation-28-billion.html
+
+**Trump Says He Will Dismiss Kennedy Center Board Members and Install Himself as Chair**\
+`The move by the president, whose authority to make the changes was not clear, is the latest attempt to bring a Washington institution under his control.`\
+https://nytimes.com/2025/02/07/us/politics/trump-kennedy-center.html
+
 **Van Nistelrooy criticises 'offside time' officiating mistake in Man United defeat**\
 `Ruud van Nisterlooy said his Leicester City side were defeated in “offside time” after being knocked out of the FA Cup by Manchester United due to an official failing to spot an offside.`\
 https://nytimes.com/athletic/6122618/2025/02/07/man-united-leicester-fa-cup-offside-van-nistelrooy/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/07/us/monica-getz-dead.html
 **The E.P.A. orders a review of funding from the 2022 climate law.**\
 `A memo to`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-epa-orders-a-review-of-funding-from-the-2022-climate-law
-
-**Critics Choice Awards Photos: All the Looks From the 2025 Red Carpet**\
-`See what the biggest stars of film and television wore to make their entrances at the Critics Choice Awards, hosted by Chelsea Handler in Santa Monica, Calif.`\
-https://nytimes.com/2025/02/07/style/critics-choice-red-carpet-photos-2025.html
-
-**Tottenham's Van de Ven out of Villa match**\
-`Ange Postecoglou has admitted that Micky van de Ven’s injury is “a bit of a slow burner”, amid uncertainty over when the centre-back will return to the Tottenham Hotspur team.`\
-https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-tottenham/
-
-**The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
-`Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
-https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
 
