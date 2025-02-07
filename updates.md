@@ -1,3 +1,11 @@
+**Where are the Bulls going after Zach LaVine trade? That's a good question**\
+`Artūras Karnišovas couldn't offer a clear vision for the franchise after Thursday's trade deadline.`\
+https://nytimes.com/athletic/6120372/2025/02/07/bulls-nba-trade-franchise-zach-lavine-changes/
+
+**Marcus Smart's time in Memphis ends, Rockets make minor moves and more: The IkoSystem**\
+`The Rockets decided to keep their core intact, while the Grizzlies sent Smart to Washington at the deadline. `\
+https://nytimes.com/athletic/6119486/2025/02/07/marcus-smart-nba-trade-deadline-grizzlies/
+
 **'The guy shouldn't have a job' – Reilly Opelka calls for umpire to be suspended by ATP**\
 `Opelka criticized Greg Allensworth after he was penalized for swearing at a spectator, describing him as 'amateur hour' and 'bush league.`\
 https://nytimes.com/athletic/6120977/2025/02/07/reilly-opelka-greg-allensworth-umpire-dallas-open/
