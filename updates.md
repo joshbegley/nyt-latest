@@ -1,3 +1,7 @@
+**Wall Street Prepares to Defend a Favored Tax Break, Again**\
+`President Trump called for ending the so-called carried interest loophole, which saves financiers billions. It’s a tax break that has survived time after time.`\
+https://nytimes.com/2025/02/07/business/dealbook/trump-carried-interest-tax.html
+
 **Angels spring guide: 32 thoughts for 32 hitters, from Trout to Rendon to Adell**\
 `Get to know Angels hitters who are likely to be in major-league spring training.`\
 https://nytimes.com/athletic/6113060/2025/02/07/angels-spring-guide-hitters/
