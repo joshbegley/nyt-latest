@@ -1,3 +1,11 @@
+**OpenAI Close to Deal That Values Company at $300 Billion**\
+`The Japanese conglomerate SoftBank would invest up to $40 billion in the maker of the chatbot ChatGPT.`\
+https://nytimes.com/2025/02/07/technology/openai-softbank-investment.html
+
+**UMass student, initially denied $10K for making half-court shot, will get prize money**\
+`A video review showed the student's foot was on the half-court line, but the school said it will step in to give him the prize money.`\
+https://nytimes.com/athletic/6121722/2025/02/07/umass-student-half-court-shot-prize/
+
 **Kash Patel owns at least $1 million in stock in the parent firm of Shein, the Chinese clothing maker.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/kash-patel-elite-depot-shein
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6120453/2025/02/07/super-bowl-merchandise-memorabil
 **How Many Federal Worker Resignations Would Be a Lot?**\
 `Sixty-five thousand have submitted resignations as part of Elon Musk’s “fork in the road” offer. But 150,000 voluntarily leave every year anyway.`\
 https://nytimes.com/2025/02/07/upshot/elon-musk-federal-workers.html
-
-**FBI announces crackdown on group connected with burglaries at athletes' homes**\
-`Friday's announcement depicts a coordinated network behind the burglaries, which involves the group creating "fences" to cover their tracks.`\
-https://nytimes.com/athletic/6121815/2025/02/07/fbi-athlete-burglaries-investigation/
-
-**Review: Worlds Collide to Make a Big Ballet Bang**\
-`Alexei Ratmansky creates a joyful new “Paquita” for New York City Ballet, giving the dancers a classical frame in which to find new versions of themselves.`\
-https://nytimes.com/2025/02/07/arts/dance/review-paquita-alexei-ratmansky-new-york-city-ballet.html
 
