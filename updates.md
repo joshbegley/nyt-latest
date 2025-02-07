@@ -1,3 +1,7 @@
+**Revisions show slower job growth but a still-solid labor market.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
+
 **Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
 `For the third time in the last decade, Indiana needs a new men’s basketball coach. But the circumstances around this job are different.`\
 https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/

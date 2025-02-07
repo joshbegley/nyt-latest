@@ -1,3 +1,7 @@
+**Revisions show slower job growth but a still-solid labor market.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
+
 **Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
 `For the third time in the last decade, Indiana needs a new men’s basketball coach. But the circumstances around this job are different.`\
 https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squ
 **Is Artificial Intelligence Really Worth the Hype?**\
 `After the arrival of a less costly A.I. model from China, U.S. markets and academics are wrestling with the ultimate economic value of the technology.`\
 https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html
-
-**Why Transferring Credit Card Debt Won’t Pay It Off**\
-`A new report finds that people are spending more on their cards and paying down less. Financial experts offer tips for reducing that debt, starting with looking at your spending habits.`\
-https://nytimes.com/2025/02/07/your-money/credit-card-debt.html
 
