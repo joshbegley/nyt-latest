@@ -1,3 +1,7 @@
+**Democrats Take Aim at Elon Musk**\
+`It’s the first sign of unified opposition for a rudderless and leaderless Democratic Party.`\
+https://nytimes.com/2025/02/07/us/politics/trump-musk-democrats.html
+
 **Woman Arrested in Connection With Super Bowl Reporter’s Death**\
 `Adan Manzano, a reporter for Telemundo Kansas City, was found dead in a hotel room near New Orleans. A woman he was last seen with has been charged with stealing his credit card and phone.`\
 https://nytimes.com/2025/02/07/us/adan-manzano-death-new-orleans-arrest.html
