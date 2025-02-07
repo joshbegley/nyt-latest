@@ -1,3 +1,7 @@
+**Live Bird Markets Ordered to Close in New York After Avian Flu Is Found**\
+`The order affects roughly 80 markets in New York City and in several nearby counties. Gov. Kathy Hochul described it as a “proactive” step to help curb the spread of bird flu.`\
+https://nytimes.com/2025/02/07/nyregion/nyc-bird-flu-markets.html
+
 **In fiery words, the federal prosecutor in Washington promises an inquiry into allegations raised by Musk.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/federal-prosecutor-ed-martin-elon-musk
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/arts/music/amplifier-newsletter-magic-songs.html
 **My Favorite Argument for the Existence of God**\
 `We, ourselves, are part of the proof.`\
 https://nytimes.com/2025/02/07/opinion/religion-god.html
-
-**Former NBA dunk champ Nate Robinson undergoing kidney transplant**\
-`Robinson, who started his NBA career with the Knicks, has dealt with renal failure for the last seven years.`\
-https://nytimes.com/athletic/6121933/2025/02/07/nate-robinson-kidney-transplant/
 
