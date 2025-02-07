@@ -1,3 +1,11 @@
+**Kamala Harris Tours the Destruction in the Palisades**\
+`Asked during her visit on Thursday if she was considering running for governor of California, Ms. Harris did not give a direct answer, but did not rule it out either.`\
+https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
+
+**Trump Imposes Sanctions on International Court, Accusing It of Targeting the U.S. and Israel**\
+`The president signed an executive order that said the I.C.C.’s actions against Israel and preliminary investigations into the United States “set a dangerous precedent.”`\
+https://nytimes.com/2025/02/06/us/politics/trump-icc-sanctions.html
+
 **22 States Sue to Block New York Law Targeting Fossil Fuel Companies**\
 `Emboldened by President Trump, West Virginia and other states are challenging a law that makes corporate polluters pay for past emissions.`\
 https://nytimes.com/2025/02/06/nyregion/climate-change-superfund-act-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6119624/2025/02/06/nba-trade-deadline-2025-deals-lu
 **When a Pro-Trump Crypto King Came Knocking, San Francisco Elites Locked the Door**\
 `A Bitcoin pioneer’s apartment purchase was rejected by the building’s residents after he was in escrow. The sellers — including a powerful Democrat — say they don’t care about his politics.`\
 https://nytimes.com/2025/02/06/us/san-francisco-powell-buell.html
-
-**Dozens of Live Beetles Found in Japanese Snacks During Customs Check at LAX**\
-`The insects were most likely intended for exotic insect collections, according to customs officials, who say the illegal pet trade is flourishing.`\
-https://nytimes.com/2025/02/06/us/live-beetles-japanese-snacks-lax.html
-
-**Wizards continue overhaul with deal that nets Marcus Smart, first-rounder**\
-`The Wizards' rebuild received a boost at the trade deadline, as they've gathered a significant inventory of future draft picks.`\
-https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadline/
 
