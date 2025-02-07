@@ -1,3 +1,7 @@
+**The report will revise figures from 2023 and 2024. Here’s what to know.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/the-report-will-revise-figures-from-2023-and-2024-heres-what-to-know
+
 **A Constitutional Crisis?**\
 `We’re covering an imbalance of power in the government.`\
 https://nytimes.com/2025/02/07/briefing/a-constitutional-crisis.html
