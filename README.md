@@ -1,3 +1,7 @@
+**As Trump and Musk Upend Washington, Congressional Phones Can’t Keep Up**\
+`In the three weeks since President Trump took office and gave Elon Musk free rein inside the federal government, millions of calls have poured in to members of Congress, jamming the system.`\
+https://nytimes.com/2025/02/07/us/politics/congressional-phone-lines-trump-musk.html
+
 **Alexander Brothers Plead Not Guilty in Sex Trafficking Case**\
 `Real estate brokers Tal and Oren Alexander, along with their brother Alon Alexander, are charged with drugging and assaulting multiple women.`\
 https://nytimes.com/2025/02/07/realestate/alexander-brothers-arraignment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121757/2025/02/07/bam-adebayo-tyler-herro-heat-jim
 **Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/07/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
-
-**Judge in Boston Hears Arguments on Two Birthright Suits**\
-`The hearing involved two separate but similar lawsuits`\
-https://nytimes.com/live/2025/02/07/us/trump-administration-updates/a-judge-in-boston-heard-arguments-on-two-birthright-suits
 
