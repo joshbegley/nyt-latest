@@ -1,3 +1,11 @@
+**California Asks Insurers to Spare Wildfire Victims ‘the List’**\
+`The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
+https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
+
+**Broncos' Pat Surtain II's DPOY season built on relentless quest to improve**\
+`Surtain is the second Bronco to win the NFL's top honor for a defensive player and the youngest to claim it in 12 years.`\
+https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-candidate/
+
 **Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
 `Daniels joins Robert Griffin III as the only Washington players to take home the award. `\
 https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-le
 **Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
 `The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
 https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
-
-**Senate Confirms Russell Vought as Office of Management and Budget Director**\
-`Mr. Vought, an architect of Project 2025 who served in the first Trump administration, will be at the center of President Trump’s plans to upend the federal bureaucracy.`\
-https://nytimes.com/2025/02/06/us/politics/russell-vought-omb-senate-vote.html
-
-**A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
-`Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
-https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
 
