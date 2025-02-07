@@ -1,3 +1,7 @@
+**Trump’s Gaza Plan Complicates Hoped-for Saudi-Israeli Deal**\
+`President Trump wants to broker normal ties between Saudi Arabia and Israel, but his proposal to transfer Palestinians out of Gaza just made that a lot harder.`\
+https://nytimes.com/2025/02/07/world/middleeast/trumps-saudi-israel-palestinians.html
+
 **Can Brandon Ingram get it right with Raptors after frustrating tenure in New Orleans?**\
 `Eric Koreen and Will Guillory break down the trade between the Pelicans and Raptors that sent Ingram to Toronto.`\
 https://nytimes.com/athletic/6120297/2025/02/07/brandon-ingram-raptors-trade-pelicans/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/07/learning/are-you-worried-about-ai-taking-human-jo
 **Deportation Flights to Venezuela Will Begin ‘Within the Next 30 Days’**\
 `The assertion by Tom Homan, President Trump’s border czar, could herald a shift in the relationship between the United States and Venezuela’s autocrat, Nicolás Maduro.`\
 https://nytimes.com/2025/02/07/world/americas/venezuela-deportation-flights-trump.html
-
-**Ecuador’s President Has Had a Year of Chaos. Why Is He Still So Popular?**\
-`President Daniel Noboa is favored to win Sunday’s presidential election as many voters embrace his heavy-handed tactics to fight violence and corruption.`\
-https://nytimes.com/2025/02/07/world/americas/ecuador-presidential-election-noboa.html
 

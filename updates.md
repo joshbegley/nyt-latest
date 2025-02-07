@@ -1,3 +1,7 @@
+**Trump’s Gaza Plan Complicates Hoped-for Saudi-Israeli Deal**\
+`President Trump wants to broker normal ties between Saudi Arabia and Israel, but his proposal to transfer Palestinians out of Gaza just made that a lot harder.`\
+https://nytimes.com/2025/02/07/world/middleeast/trumps-saudi-israel-palestinians.html
+
 **Can Brandon Ingram get it right with Raptors after frustrating tenure in New Orleans?**\
 `Eric Koreen and Will Guillory break down the trade between the Pelicans and Raptors that sent Ingram to Toronto.`\
 https://nytimes.com/athletic/6120297/2025/02/07/brandon-ingram-raptors-trade-pelicans/
