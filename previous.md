@@ -1,3 +1,7 @@
+**Trump Gave Elon Musk Access to America’s Checkbook. 19 States Are Suing.**\
+`Nineteen attorneys general, including New York’s Letitia James, accused the president of failing to faithfully execute the nation’s laws when he let Mr. Musk comb through federal computer systems.`\
+https://nytimes.com/2025/02/07/nyregion/attorneys-general-trump-musk-suit.html
+
 **Firefighter Hiring Stalls at Federal Agencies After Trump’s Freeze**\
 `Job offers have been rescinded and start dates pushed back just as firefighting staffing for the summer wildfire season was beginning, a union said.`\
 https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
 **Howard Twilley, Receiver on the 1972 Champion Dolphins, Dies at 81**\
 `After a stellar college career, he spent 11 years with Miami. He caught a touchdown pass in the Super Bowl that concluded the team’s undefeated season.`\
 https://nytimes.com/2025/02/07/sports/football/howard-twilley-dead.html
-
-**Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
-`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
-https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
 

@@ -1,3 +1,7 @@
+**Trump Gave Elon Musk Access to America’s Checkbook. 19 States Are Suing.**\
+`Nineteen attorneys general, including New York’s Letitia James, accused the president of failing to faithfully execute the nation’s laws when he let Mr. Musk comb through federal computer systems.`\
+https://nytimes.com/2025/02/07/nyregion/attorneys-general-trump-musk-suit.html
+
 **Firefighter Hiring Stalls at Federal Agencies After Trump’s Freeze**\
 `Job offers have been rescinded and start dates pushed back just as firefighting staffing for the summer wildfire season was beginning, a union said.`\
 https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.html

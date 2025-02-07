@@ -1,3 +1,7 @@
+**Woman Arrested in Connection With Super Bowl Reporter’s Death**\
+`Adan Manzano, a reporter for Telemundo Kansas City, was found dead in a hotel room near New Orleans. A woman he was last seen with has been charged with stealing his credit card and phone.`\
+https://nytimes.com/2025/02/07/us/adan-manzano-death-new-orleans-arrest.html
+
 **Trump Gave Elon Musk Access to America’s Checkbook. 19 States Are Suing.**\
 `Nineteen attorneys general, including New York’s Letitia James, accused the president of failing to faithfully execute the nation’s laws when he let Mr. Musk comb through federal computer systems.`\
 https://nytimes.com/2025/02/07/nyregion/attorneys-general-trump-musk-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122618/2025/02/07/man-united-leicester-fa-cup-offs
 **Tony Roberts, Nonchalant Fixture in Woody Allen Films, Dies at 85**\
 `He had an acclaimed Broadway career in musicals and comedies, but moviegoers knew him mostly as the tall, self-assured, easygoing pal to Mr. Allen’s insecure heroes.`\
 https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
-
-**Howard Twilley, Receiver on the 1972 Champion Dolphins, Dies at 81**\
-`After a stellar college career, he spent 11 years with Miami. He caught a touchdown pass in the Super Bowl that concluded the team’s undefeated season.`\
-https://nytimes.com/2025/02/07/sports/football/howard-twilley-dead.html
 
