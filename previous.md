@@ -1,3 +1,11 @@
+**Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
+`The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
+https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
+
+**‘He’s Just Old and Homeless’: California Jail Death Leads to Accusations of Neglect**\
+`Court-appointed monitors of Sacramento County jails say a man’s fatal overdose was one of multiple deaths in which deputies and nurses exhibited a “callous” indifference toward detainees.`\
+https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
+
 **Revisions show slower job growth but a still-solid labor market.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
@@ -22,19 +30,11 @@ https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
 `The Rooney family that owns the Steelers has a long and deep connection to Ireland.`\
 https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
 
-**Congress and White House Head for Showdown Over Power of the Purse**\
+**White House Forces Showdown Over Congress’s Power of the Purse**\
 `The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
 https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
 
 **Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
 `Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
 https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
-
-**Malen and Garcia left out of Villa's Champions League squad**\
-`Marcus Rashford, Axel Disasi and Marco Asensio, however, have been added to Villa's squad for the UCL knockout phase.`\
-https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squad-malen-garcia/
-
-**Is Artificial Intelligence Really Worth the Hype?**\
-`After the arrival of a less costly A.I. model from China, U.S. markets and academics are wrestling with the ultimate economic value of the technology.`\
-https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html
 

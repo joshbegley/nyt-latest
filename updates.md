@@ -1,3 +1,15 @@
+**Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
+`The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
+https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
+
+**‘He’s Just Old and Homeless’: California Jail Death Leads to Accusations of Neglect**\
+`Court-appointed monitors of Sacramento County jails say a man’s fatal overdose was one of multiple deaths in which deputies and nurses exhibited a “callous” indifference toward detainees.`\
+https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
+
+**White House Forces Showdown Over Congress’s Power of the Purse**\
+`The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
+https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
+
 **Revisions show slower job growth but a still-solid labor market.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
