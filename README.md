@@ -1,3 +1,7 @@
+**The report will revise figures from 2023 and 2024. Here’s what to know.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/the-report-will-revise-figures-from-2023-and-2024-heres-what-to-know
+
 **A Constitutional Crisis?**\
 `We’re covering an imbalance of power in the government.`\
 https://nytimes.com/2025/02/07/briefing/a-constitutional-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119528/2025/02/07/nfl-super-bowl-picks-chiefs-eagl
 **Emma Hayes outlines long-term strategy for U.S. women's national team**\
 `Hayes says that by creating the best environments, the U.S. will continue to win`\
 https://nytimes.com/athletic/6120078/2025/02/07/emma-hayes-uswnt-way-soccer/
-
-**Cubs spring guide: 26 thoughts on 26 hitters as the Kyle Tucker era begins**\
-`Unless there’s a last-minute addition, this will be the group of position players surrounding Kyle Tucker in spring training.`\
-https://nytimes.com/athletic/6119035/2025/02/07/chicago-cubs-spring-guide-hitters/
 
