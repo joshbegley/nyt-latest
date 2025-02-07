@@ -1,3 +1,7 @@
+**The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
+`Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
+https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
+
 **A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
 `Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
