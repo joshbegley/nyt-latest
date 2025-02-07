@@ -1,3 +1,11 @@
+**Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
+`President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-nippon-steel-us-steel
+
+**Leave a Maple Leafs question for James Mirtle’s next mailbag**\
+`We&#8217;re about to head into the 4 Nations break, so it feels like a good time to take a step back and take some questions about where the Maple Leafs are at.`\
+https://nytimes.com/athletic/6122467/2025/02/07/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag/
+
 **2 Killed as Tornadoes Sweep Through Eastern Tennessee**\
 `The tornadoes, which also injured three people and caused widespread damage, reached wind speeds in excess of 100 miles per hour.`\
 https://nytimes.com/2025/02/07/us/tennessee-tornado-morgan-county-mother-daughter.html
