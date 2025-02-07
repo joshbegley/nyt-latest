@@ -1,3 +1,15 @@
+**Angels spring guide: 32 thoughts for 32 hitters, from Trout to Rendon to Adell**\
+`Get to know Angels hitters who are likely to be in major-league spring training.`\
+https://nytimes.com/athletic/6113060/2025/02/07/angels-spring-guide-hitters/
+
+**Surgeons Transplant Engineered Pig Kidney Into Fourth Patient**\
+`A 66-year-old man from New Hampshire became the fourth person to receive a pig’s kidney.`\
+https://nytimes.com/2025/02/07/health/fourth-pig-kidney-transplant.html
+
+**Troubled Volksbühne Theater Announces Another New Director**\
+`Matthias Lilienthal will take over running the Berlin playhouse, which has been lurching from crisis to crisis for years.`\
+https://nytimes.com/2025/02/07/theater/matthias-lilienthal-volksbuehne.html
+
 **Chelsea to play Man City in UWCL quarter-finals**\
 `The quarter-final first legs will be played over March 18 and 19 with the second legs coming the following week.`\
 https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fixtures/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cr
 **The Pulse: An NFL MVP first since 1987**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6120781/2025/02/07/josh-allen-mvp-super-bowl-connections-the-pulse/
-
-**Iran’s Supreme Leader Denounces Talk With U.S. but Seems to Leave Door Ajar**\
-`Both President Trump and Iranian officials have shown interest in negotiations. Ayatollah Ali Khamenei called the idea unwise, but stopped short of ordering his government not to engage.`\
-https://nytimes.com/2025/02/07/world/europe/khamenei-iran-us-negotiations.html
-
-**The Athletic FC: How many trophies will Liverpool win? Plus: Inside Birmingham's U.S. revolution**\
-`Today in TAFC: Are Liverpool really in a quadruple hunt? Plus: We go inside Birmingham's U.S. revolution, FM25 is canned, Neymar still king.`\
-https://nytimes.com/athletic/6121078/2025/02/07/liverpool-tottenham-carabao-cup-fm25-cancelled/
-
-**Man City add Marmoush, Nico, Khusanov to Champions League squad**\
-`City made four signings in the transfer window but were only allowed to add three players to their Champions League squad.`\
-https://nytimes.com/athletic/6118980/2025/02/07/manchester-city-champions-league-squad-reis/
 

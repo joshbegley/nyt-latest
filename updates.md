@@ -1,3 +1,15 @@
+**Angels spring guide: 32 thoughts for 32 hitters, from Trout to Rendon to Adell**\
+`Get to know Angels hitters who are likely to be in major-league spring training.`\
+https://nytimes.com/athletic/6113060/2025/02/07/angels-spring-guide-hitters/
+
+**Surgeons Transplant Engineered Pig Kidney Into Fourth Patient**\
+`A 66-year-old man from New Hampshire became the fourth person to receive a pig’s kidney.`\
+https://nytimes.com/2025/02/07/health/fourth-pig-kidney-transplant.html
+
+**Troubled Volksbühne Theater Announces Another New Director**\
+`Matthias Lilienthal will take over running the Berlin playhouse, which has been lurching from crisis to crisis for years.`\
+https://nytimes.com/2025/02/07/theater/matthias-lilienthal-volksbuehne.html
+
 **Chelsea to play Man City in UWCL quarter-finals**\
 `The quarter-final first legs will be played over March 18 and 19 with the second legs coming the following week.`\
 https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fixtures/
