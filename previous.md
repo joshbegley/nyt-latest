@@ -1,3 +1,11 @@
+**Notre Dame faces more questions than usual on defense. How many answers does it have?**\
+`New defensive coordinator Chris Ash has a tough act to follow and questions to answer, but Notre Dame has intriguing potential.`\
+https://nytimes.com/athletic/6119604/2025/02/07/notre-dame-football-roster-2025-defense/
+
+**How Dusty May blended Bob Knight's old-school teachings with a new-school appraoch**\
+`May, a student basketball manager at Indiana in the late 1990s, will return to Bloomington on Saturday as Michigan's head coach.`\
+https://nytimes.com/athletic/6118662/2025/02/07/dusty-may-michigan-indiana-bob-knight/
+
 **Trump’s Gaza Plan Complicates Hoped-for Saudi-Israeli Deal**\
 `President Trump wants to broker normal ties between Saudi Arabia and Israel, but his proposal to transfer Palestinians out of Gaza just made that a lot harder.`\
 https://nytimes.com/2025/02/07/world/middleeast/trumps-saudi-israel-palestinians.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/02/07/opinion/trump-gaza-war-crimes.html
 **The New York Times News Quiz, Feb. 7, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/02/07/briefing/trump-gaza-usaid-grammys-super-bowl.html
-
-**Are You Worried About A.I. Taking Human Jobs?**\
-`A “Simpsons” voice actor is concerned about A.I. coming for his work. Should we all be?`\
-https://nytimes.com/2025/02/07/learning/are-you-worried-about-ai-taking-human-jobs.html
-
-**Deportation Flights to Venezuela Will Begin ‘Within the Next 30 Days’**\
-`The assertion by Tom Homan, President Trump’s border czar, could herald a shift in the relationship between the United States and Venezuela’s autocrat, Nicolás Maduro.`\
-https://nytimes.com/2025/02/07/world/americas/venezuela-deportation-flights-trump.html
 
