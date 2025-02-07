@@ -1,3 +1,11 @@
+**Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
+`In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who pours care and finesse into patients’ meals at a Pittsburgh hospital.`\
+https://nytimes.com/2025/02/07/dining/hospital-cook.html
+
+**SMU AD Rick Hart to step down after 13 years, transition to ACC**\
+`Hart leaves what's expected to be a highly sought-after job following SMU's conference switch and CFP appearance.`\
+https://nytimes.com/athletic/6121989/2025/02/07/smu-ad-rick-hart-step-down/
+
 **Hamas Names 3 Hostages to Be Released in Next Cease-Fire Exchange**\
 `The Israelis were identified as Eli Sharabi, Or Levy and Ohad Ben-Ami, all of whom were abducted during the 2023 Hamas-led attack. Israel is expected to let dozens of Palestinian prisoners go in return.`\
 https://nytimes.com/2025/02/07/world/middleeast/israel-hamas-gaza-hostages-release-names.html
