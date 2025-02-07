@@ -1,3 +1,15 @@
+**Plane Crashes Into Street in Brazil Shortly After Takeoff**\
+`Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
+https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html
+
+**The Bounce: Luka Dončić to Lakers made big waves, but who were NBA trade deadline's winners & losers?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6121229/2025/02/07/luka-doncic-lakers-mavericks-jimmy-butler-warriors-heat-nba-trade-deadline-the-bounce/
+
+**Trump’s New Line of Attack Against the Media Gains Momentum**\
+`First Amendment experts say Mr. Trump’s lawsuits, based on an unproven legal theory, lack merit. But more could be on the way.`\
+https://nytimes.com/2025/02/07/business/media/trump-media-lawsuits.html
+
 **Brooklyn Museum Will Lay Off Employees and Scale Back Exhibitions**\
 `The museum, which faces a projected $10 million deficit, said it planned to cut more than a tenth of its employees and mount fewer exhibitions.`\
 https://nytimes.com/2025/02/07/arts/design/brooklyn-museum-layoffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/democrats-georgia-ballot-law-trump.ht
 **Trump Calls Directly for Closure of U.S.A.I.D.**\
 `The president’s demand to end the U.S. Agency for International Development came as the vast majority of the agency’s employees were expecting to be placed on indefinite administrative leave`\
 https://nytimes.com/2025/02/07/us/politics/usaid-trump.html
-
-**Should Your Partner Really Be Your Best Friend?**\
-`Expecting a spouse to be both friend and lover is a relatively new concept. Some think it’s asking too much.`\
-https://nytimes.com/2025/02/07/well/family/husband-wife-best-friend.html
-
-**How a Family’s Life Is Upended in ‘I’m Still Here’**\
-`The film’s director, Walter Salles, narrates a sequence from his film, which is nominated for best picture. Its star, Fernanda Torres is nominated for best actress.`\
-https://nytimes.com/2025/02/07/movies/im-still-here-clip.html
-
-**‘I’m Still Here’ | Anatomy of a Scene**\
-`The director Walter Salles narrates a scene from his film, which has an Oscar nomination for best picture.`\
-https://nytimes.com/video/movies/100000009967354/im-still-here-scene.html
 
