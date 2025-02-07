@@ -1,3 +1,7 @@
+**Tottenham's Van de Ven out of Villa match**\
+`Ange Postecoglou has admitted that Micky van de Ven’s injury is “a bit of a slow burner”, amid uncertainty over when the centre-back will return to the Tottenham Hotspur team.`\
+https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-tottenham/
+
 **The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
 `Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
 https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/arts/design/el-greco-painting-christies-romania-g
 **Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
 `A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
 https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
-
-**A Sick Inmate in New York Is Freed After Suing Over Parole Delay**\
-`Steve Coleman was kept for 21 months after his parole date because the state could not find a nursing home placement.`\
-https://nytimes.com/2025/02/07/health/medical-parole-new-york.html
 
