@@ -1,8 +1,20 @@
+**Nyzier Fourqurean has preliminary injunction against NCAA for fifth year granted**\
+`The judge did not strike down the NCAA’s rule giving athletes five years to play four seasons, absent a waiver.`\
+https://nytimes.com/athletic/6120463/2025/02/06/nyzier-fourqurean-ncaa-injunction-wisconsin-football/
+
+**Fairfield's Deon Perry connects on 75-foot buzzer-beater to stun Marist**\
+`Before Perry’s preposterous prayer, the Stags were just 8-14 overall, 4-7 in Metro Atlantic play`\
+https://nytimes.com/athletic/6120443/2025/02/06/fairfield-marist-buzzer-beater-college-basketball/
+
+**Bills' Allen named NFL MVP in stunning win over Ravens' Jackson**\
+`The 28-year-old Allen is the only Bills quarterback to be named MVP since the team joined the NFL in 1970.`\
+https://nytimes.com/athletic/6120405/2025/02/06/bills-josh-allen-2024-nfl-mvp-ravens-lamar-jackson/
+
 **Vikings' Kevin O’Connell earns Coach of the Year after 14-win season**\
 `O'Connell's strong season on the sideline earned the Minnesota coach a contract extension last month. `\
 https://nytimes.com/athletic/6119102/2025/02/06/kevin-oconnell-vikings-nfl-coach-of-the-year/
 
-**Gates, Sharpe, Allen lead small Hall of Fame class; Eli Manning left out**\
+**Gates, Allen lead smallest HOF class since '05; Eli Manning misses cut**\
 `The four-person class is the first since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
 https://nytimes.com/athletic/6120229/2025/02/06/nfl-hall-of-fame-class-of-2025/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/06/ovechkin-goals-record-wayne-gretzky-stats/
-
-**No. 19 Tennessee bests No. 5 UConn 80-76 in rivalry upset**\
-`With Tennessee’s most recent win, the rivalry now stands at 17-10 with UConn leading the way.`\
-https://nytimes.com/athletic/6120312/2025/02/06/tennessee-uconn-womens-basketball-results-analysis/
-
-**Corrections: Feb. 7, 2025**\
-`Corrections that appeared in print on Friday, Feb. 7, 2025.`\
-https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
-
-**California Asks Insurers to Spare Wildfire Victims ‘the List’**\
-`The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
-https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
 
