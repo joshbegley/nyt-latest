@@ -1,3 +1,7 @@
+**A Constitutional Crisis?**\
+`We’re covering an imbalance of power in the government.`\
+https://nytimes.com/2025/02/07/briefing/a-constitutional-crisis.html
+
 **Where are the Bulls going after Zach LaVine trade? That's a good question**\
 `Artūras Karnišovas couldn't offer a clear vision for the franchise after Thursday's trade deadline.`\
 https://nytimes.com/athletic/6120372/2025/02/07/bulls-nba-trade-franchise-zach-lavine-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120078/2025/02/07/emma-hayes-uswnt-way-soccer/
 **Cubs spring guide: 26 thoughts on 26 hitters as the Kyle Tucker era begins**\
 `Unless there’s a last-minute addition, this will be the group of position players surrounding Kyle Tucker in spring training.`\
 https://nytimes.com/athletic/6119035/2025/02/07/chicago-cubs-spring-guide-hitters/
-
-**'Emotion is a double-edged sword': Inside the Tortorella-Michkov spat**\
-`As the rookie goes through the process of trying to figure out the NHL, his coach will be there to push his buttons from time to time.`\
-https://nytimes.com/athletic/6120332/2025/02/07/flyers-matvei-michkov-john-tortorella/
 
