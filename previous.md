@@ -1,3 +1,27 @@
+**Is Artificial Intelligence Really Worth the Hype?**\
+`After the arrival of a less costly A.I. model from China, U.S. markets and academics are wrestling with the ultimate economic value of the technology.`\
+https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html
+
+**Why Transferring Credit Card Debt Won’t Pay It Off**\
+`A new report finds that people are spending more on their cards and paying down less. Financial experts offer tips for reducing that debt, starting with looking at your spending habits.`\
+https://nytimes.com/2025/02/07/your-money/credit-card-debt.html
+
+**How Dirk Nowitzki plays a central role in Mavericks fans' heartbreak over Luka Dončić**\
+`Nowitzki spent his entire career with the Mavericks, and when he handed over the team to Dončić, most Dallas fans expected the same.`\
+https://nytimes.com/athletic/6118762/2025/02/07/how-dirk-nowitzki-plays-a-central-role-in-mavericks-fans-heartbreak-over-luka-doncic/
+
+**Sweden Moves to Tighten Gun Laws After Mass Shooting**\
+`The changes would make it harder to access semiautomatic weapons, and enhance police and medical checks in license applications.`\
+https://nytimes.com/2025/02/07/world/europe/sweden-gun-laws.html
+
+**Tears, a missed flight and suspensions: How Jimmy Butler-Heat tension finally bubbled over**\
+`An inside look at Jimmy Butler’s last days in Miami before the team and player finally pushed each other away for good.`\
+https://nytimes.com/athletic/6108043/2025/02/07/jimmy-butler-pat-riley-heat-tensions-nba-trade/
+
+**'Boys, we won the trade': How a fan broke the Jimmy Butler news to Heat players**\
+`How did Kevin Love, Tyler Herro and the Miami players learn about the Butler trade? From a fan behind their bench during a game in Philly.`\
+https://nytimes.com/athletic/6120250/2025/02/07/fan-jimmy-butler-trade-miami-heat-bench/
+
 **The Lakers are going all-in around the LeBron James and Luka Dončić pairing**\
 `The Lakers' trade for center Mark Williams shows that the team isn't just looking toward the future. They want to win now.`\
 https://nytimes.com/athletic/6117455/2025/02/07/lakers-lebron-luka-doncic-mark-williams-trade/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/07/movies/paint-me-a-road-out-of-here-faith-ringgold
 **U.S.A.I.D. Turmoil Threatens Key Aid Supplies to Gaza, Officials Say**\
 `Washington has funded roughly a third of the aid sent to the enclave since the war began. With most agency workers set to be put on leave, officials say that those supplies are under threat.`\
 https://nytimes.com/2025/02/07/world/middleeast/usaid-trump-gaza-aid.html
-
-**Wall Street Prepares to Defend a Favored Tax Break, Again**\
-`President Trump called for ending the so-called carried interest loophole, which saves financiers billions. It’s a tax break that has survived time after time.`\
-https://nytimes.com/2025/02/07/business/dealbook/trump-carried-interest-tax.html
-
-**Angels spring guide: 32 thoughts for 32 hitters, from Trout to Rendon to Adell**\
-`Get to know Angels hitters who are likely to be in major-league spring training.`\
-https://nytimes.com/athletic/6113060/2025/02/07/angels-spring-guide-hitters/
-
-**Surgeons Transplant Engineered Pig Kidney Into Fourth Patient**\
-`A 66-year-old man from New Hampshire became the fourth person to receive a pig’s kidney.`\
-https://nytimes.com/2025/02/07/health/fourth-pig-kidney-transplant.html
-
-**Troubled Volksbühne Theater Announces Another New Director**\
-`Matthias Lilienthal will take over running the Berlin playhouse, which has been lurching from crisis to crisis for years.`\
-https://nytimes.com/2025/02/07/theater/matthias-lilienthal-volksbuehne.html
-
-**Chelsea to play Man City in UWCL quarter-finals**\
-`The quarter-final first legs will be played over March 18 and 19 with the second legs coming the following week.`\
-https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fixtures/
-
-**Maresca: Nkunku ready for bigger role at Chelsea**\
-`The 27-year-old forward has started only twice in the Premier League this season but has scored 13 goals in all competitions.`\
-https://nytimes.com/athletic/6121158/2025/02/07/christopher-nkunku-chelsea-maresca/
 
