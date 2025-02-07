@@ -1,3 +1,11 @@
+**How Many Federal Worker Resignations Would Be a Lot?**\
+`Sixty-five thousand have submitted resignations as part of Elon Musk’s “fork in the road” offer. But 150,000 voluntarily leave every year anyway.`\
+https://nytimes.com/2025/02/07/upshot/elon-musk-federal-workers.html
+
+**FBI announces crackdown on group connected with burglaries at athletes' homes**\
+`Friday's announcement depicts a coordinated network behind the burglaries, which involves the group creating "fences" to cover their tracks.`\
+https://nytimes.com/athletic/6121815/2025/02/07/fbi-athlete-burglaries-investigation/
+
 **Review: Worlds Collide to Make a Big Ballet Bang**\
 `Alexei Ratmansky creates a joyful new “Paquita” for New York City Ballet, giving the dancers a classical frame in which to find new versions of themselves.`\
 https://nytimes.com/2025/02/07/arts/dance/review-paquita-alexei-ratmansky-new-york-city-ballet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/arts/television/super-bowl-commercials-ads-best-w
 **Vecenie: The good, the bad and the ugly of the NBA trade deadline**\
 `After a frenzied and often bold series of moves, which teams helped and hurt themselves the most? And what are the Bulls doing, exactly? `\
 https://nytimes.com/athletic/6117566/2025/02/07/nba-trade-deadline-review-lakers-mavericks/
-
-**Can Movie Stars Handle Greek Classics? London Is Finding Out.**\
-`Sophocles is suddenly everywhere on the city’s stages. In concurrent shows, Rami Malek is playing Oedipus and Brie Larson is taking on Elektra.`\
-https://nytimes.com/2025/02/07/theater/rami-malek-oedpius-brie-larson-elektra-sophocles-london.html
-
-**Carl Edwards 'shocked' by NASCAR Hall of Fame nod he never thought would come**\
-`Carl Edwards left NASCAR abruptly in 2016 and has mostly stayed away since, making his Hall of Fame induction all the more special to him.`\
-https://nytimes.com/athletic/6121469/2025/02/07/carl-edwards-nascar-hall-of-fame-class/
 

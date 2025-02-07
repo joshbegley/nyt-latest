@@ -1,3 +1,11 @@
+**How Many Federal Worker Resignations Would Be a Lot?**\
+`Sixty-five thousand have submitted resignations as part of Elon Musk’s “fork in the road” offer. But 150,000 voluntarily leave every year anyway.`\
+https://nytimes.com/2025/02/07/upshot/elon-musk-federal-workers.html
+
+**FBI announces crackdown on group connected with burglaries at athletes' homes**\
+`Friday's announcement depicts a coordinated network behind the burglaries, which involves the group creating "fences" to cover their tracks.`\
+https://nytimes.com/athletic/6121815/2025/02/07/fbi-athlete-burglaries-investigation/
+
 **Review: Worlds Collide to Make a Big Ballet Bang**\
 `Alexei Ratmansky creates a joyful new “Paquita” for New York City Ballet, giving the dancers a classical frame in which to find new versions of themselves.`\
 https://nytimes.com/2025/02/07/arts/dance/review-paquita-alexei-ratmansky-new-york-city-ballet.html
