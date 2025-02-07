@@ -1,3 +1,7 @@
+**Brighton's Cashin ready for Premier League step up - Hurzeler**\
+`Cashin, 23, has swapped a relegation fight with Derby County in the Championship for a move to the Amex Stadium.`\
+https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
+
 **Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
 `Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
 https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.ht
 **What Marshall Munetsi and Nasser Djiga will bring to Wolves**\
 `Wolves will have two new faces in their squad when they travel to Blackburn on Sunday - and neither signing was entirely conventional`\
 https://nytimes.com/athletic/6118347/2025/02/07/marshall-munetsi-marshall-djiga-wolves/
-
-**West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
-`West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
-https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
 

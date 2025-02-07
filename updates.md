@@ -1,3 +1,7 @@
+**Brighton's Cashin ready for Premier League step up - Hurzeler**\
+`Cashin, 23, has swapped a relegation fight with Derby County in the Championship for a move to the Amex Stadium.`\
+https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
+
 **Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
 `Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
 https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
