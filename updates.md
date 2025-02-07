@@ -1,3 +1,7 @@
+**Pakistan to Force Tens of Thousands of Afghan Refugees Out of the Capital**\
+`The order, giving Afghans until March 31 to go elsewhere in Pakistan, came on the heels of President Trump’s suspension of refugee admissions to the United States.`\
+https://nytimes.com/2025/02/07/world/asia/pakistan-afghanistan-refugees.html
+
 **At a Draft Site in Ukraine, an Anguished Wait for a Chance to Say Goodbye**\
 `The Ukrainian authorities are rounding up recruits. Relatives huddle at a center on the edge of Kyiv for a chance to see loved ones before they’re shipped to war.`\
 https://nytimes.com/2025/02/07/world/europe/ukraine-war-troops-draft-recruitment.html
