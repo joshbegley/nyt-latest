@@ -1,3 +1,7 @@
+**Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
+`Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
+https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
+
 **Malen and Garcia left out of Villa's Champions League squad**\
 `Marcus Rashford, Axel Disasi and Marco Asensio, however, have been added to Villa's squad for the UCL knockout phase.`\
 https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squad-malen-garcia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117455/2025/02/07/lakers-lebron-luka-doncic-mark-w
 **Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
 `Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
 https://nytimes.com/athletic/6120591/2025/02/07/chiefs-vs-eagles-team-comparison/
-
-**‘Paint Me a Road Out of Here’: Faith Ringgold’s Gift to Prisoners**\
-`In this documentary, the artist depicts what a more just and beautiful world might look like.`\
-https://nytimes.com/2025/02/07/movies/paint-me-a-road-out-of-here-faith-ringgold.html
 
