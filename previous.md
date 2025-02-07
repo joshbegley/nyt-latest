@@ -1,3 +1,7 @@
+**Vikings' Kevin O’Connell earns Coach of the Year after 14-win season**\
+`O'Connell's strong season on the sideline earned the Minnesota coach a contract extension last month. `\
+https://nytimes.com/athletic/6119102/2025/02/06/kevin-oconnell-vikings-nfl-coach-of-the-year/
+
 **Gates, Sharpe, Allen lead small Hall of Fame class; Eli Manning left out**\
 `The four-person class is the first since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
 https://nytimes.com/athletic/6120229/2025/02/06/nfl-hall-of-fame-class-of-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
 **California Asks Insurers to Spare Wildfire Victims ‘the List’**\
 `The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
 https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
-
-**Broncos' Pat Surtain II's DPOY season built on relentless quest to improve**\
-`Surtain is the second Bronco to win the NFL's top honor for a defensive player and the youngest to claim it in 12 years.`\
-https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-candidate/
 

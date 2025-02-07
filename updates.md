@@ -1,3 +1,7 @@
+**Vikings' Kevin O’Connell earns Coach of the Year after 14-win season**\
+`O'Connell's strong season on the sideline earned the Minnesota coach a contract extension last month. `\
+https://nytimes.com/athletic/6119102/2025/02/06/kevin-oconnell-vikings-nfl-coach-of-the-year/
+
 **Gates, Sharpe, Allen lead small Hall of Fame class; Eli Manning left out**\
 `The four-person class is the first since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
 https://nytimes.com/athletic/6120229/2025/02/06/nfl-hall-of-fame-class-of-2025/
