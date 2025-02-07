@@ -1,3 +1,7 @@
+**Suns' path forward with Kevin Durant seems clear after minor moves at deadline**\
+`The Kevin Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
+https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
+
 **I Ran U.S.A.I.D. Killing It Is a Win for Autocrats Everywhere.**\
 `The attacks on the agency are cruel and counterproductive.`\
 https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html

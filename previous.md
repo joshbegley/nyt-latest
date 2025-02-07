@@ -1,3 +1,7 @@
+**Suns' path forward with Kevin Durant seems clear after minor moves at deadline**\
+`The Kevin Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
+https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
+
 **LeBron goes No. 1 by O’Neal as Barkley takes all 6 foreign players in All-Star draft**\
 `In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
 https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120013/2025/02/06/marcus-smart-wizards-trade-deadl
 **I Ran U.S.A.I.D. Killing It Is a Win for Autocrats Everywhere.**\
 `The attacks on the agency are cruel and counterproductive.`\
 https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
-
-**N.Y.C. Officials Give City Workers Leeway to Yield to ICE Agents**\
-`City workers at migrant shelters, schools and hospitals can allow federal immigration personnel to enter city property if they feel threatened by the agents, a memo from City Hall said.`\
-https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html
 
