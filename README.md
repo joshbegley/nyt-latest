@@ -1,3 +1,7 @@
+**The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
+`Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
+https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
+
 **A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
 `Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-laws
 **A Sick Inmate in New York Is Freed After Suing Over Parole Delay**\
 `Steve Coleman was kept for 21 months after his parole date because the state could not find a nursing home placement.`\
 https://nytimes.com/2025/02/07/health/medical-parole-new-york.html
-
-**Trump Administration Flips U.S. Position in Supreme Court Transgender Case**\
-`An administration lawyer said a Tennessee law barring some medical treatments for transgender youths is constitutional and urged the justices to say so.`\
-https://nytimes.com/2025/02/07/us/politics/supreme-court-transgender-case.html
 
