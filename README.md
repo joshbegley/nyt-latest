@@ -1,3 +1,7 @@
+**West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
+`West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
+https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
+
 **Marco Asensio's Aston Villa arrival - and a chance to put his career back on track**\
 `Villa's confidence in their new loan signing comes from Emery's desire to provide a stable environment for players who have lost their way`\
 https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transfer-real-madrid-psg/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-
 https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
 
 **Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
-`Vinnie Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
+`Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
 https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
 
 **Inside the Birmingham City revolution: 'This will be the football story of the next decade'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118869/2025/02/07/richie-wellens-leyton-orient-pep
 **Can World Cup 2026 match the advertising might of the Super Bowl?**\
 `Firms pay millions to run a 30-second commercial during the Super Bowl. Why are ads shown in soccer's equivalent games less of a big deal?`\
 https://nytimes.com/athletic/6118354/2025/02/07/world-cup-2026-soccer-advertising-super-bowl/
-
-**From surprise Manchester United return to toils at Leicester: Ruud van Nistelrooy's surreal seven months**\
-`Dutchman who returned to football as United's No 2 last summer is now back at Old Trafford with a Leicester team labouring against the drop`\
-https://nytimes.com/athletic/6118365/2025/02/07/nistelrooy-ruud-manchester-united-leicester-city-surreal/
 
