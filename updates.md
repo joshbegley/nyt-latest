@@ -1,3 +1,7 @@
+**Indiana, Mike Woodson reportedly in talks about coach's future with program**\
+`Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
+https://nytimes.com/athletic/6119966/2025/02/06/indiana-basketball-mike-woodson-future/
+
 **Nyzier Fourqurean has preliminary injunction against NCAA for fifth year granted**\
 `The judge did not strike down the NCAA’s rule giving athletes five years to play four seasons, absent a waiver.`\
 https://nytimes.com/athletic/6120463/2025/02/06/nyzier-fourqurean-ncaa-injunction-wisconsin-football/
