@@ -1,4 +1,4 @@
-**S.F.C. Is Latest City to Sue Trump Over Immigration Policies**\
+**San Francisco Is Latest City to Sue Trump Over Immigration Policies**\
 `Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
 https://nytimes.com/2025/02/07/us/politics/sfc-is-latest-city-to-sue-trump-over-immigration-policies.html
 
