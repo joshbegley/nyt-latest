@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6117282/2025/02/07/anthony-edwards-dillon-brooks-ti
 `The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
 https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
 
-**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
-`Tim Spiers takes a look at the sillier side of football this week`\
+**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed-dating at Molineux**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
 
 **The Pulse: An NFL MVP first since 1987**\
