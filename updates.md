@@ -1,3 +1,11 @@
+**22 States Sue to Block New York Law Targeting Fossil Fuel Companies**\
+`Emboldened by President Trump, West Virginia and other states are challenging a law that makes corporate polluters pay for past emissions.`\
+https://nytimes.com/2025/02/06/nyregion/climate-change-superfund-act-lawsuit.html
+
+**Suns' path forward with Kevin Durant seems clear after minor moves at deadline**\
+`The Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
+https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
+
 **Suns' path forward with Kevin Durant seems clear after minor moves at deadline**\
 `The Kevin Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
 https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
