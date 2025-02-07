@@ -1,3 +1,11 @@
+**Trump Says Elon Musk Will Examine Defense Department Spending**\
+`As part of his cost-cutting effort, the billionaire, whose companies have enormous contracts with the military, will turn his so-called Department of Government Efficiency on the Pentagon.`\
+https://nytimes.com/2025/02/07/us/politics/trump-musk-doge-pentagon.html
+
+**San Francisco Is Latest City to Sue Trump Over Immigration Policies**\
+`Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
+https://nytimes.com/2025/02/07/us/politics/san-francisco-sues-trump-sanctuary-cities.html
+
 **The Singular Magic of Torrisi: New York City on a Plate**\
 `Sam Sifton takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
 https://nytimes.com/2025/02/07/dining/torrisi-restaurant-nyc.html
