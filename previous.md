@@ -1,3 +1,15 @@
+**Why Nuno's tactical flexibility is Forest's secret weapon**\
+`Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
+https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
+
+**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
+`Vinnie Hinostroza became the eighth player in franchise history to score in his Wild debut against the Hurricanes.`\
+https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
+
+**Inside the Birmingham City revolution: 'This will be the football story of the next decade'**\
+`Ahead of the club's biggest game in years, The Athletic went behind the scenes to see the effect of their Tom Brady-backed transformation`\
+https://nytimes.com/athletic/6113680/2025/02/07/birmingham-city-tom-brady-revolution-inside/
+
 **Madrid don't have a fit senior centre-back. How will they line up against Atletico and City?**\
 `Madrid are facing a defensive dilemma before two crucial games in their season`\
 https://nytimes.com/athletic/6119097/2025/02/07/real-madrid-centre-backs-atletico-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6112275/2025/02/07/amorim-glasner-manchester-united
 **Friday Briefing**\
 `U.S. sanctions on the International Criminal Court.`\
 https://nytimes.com/2025/02/07/briefing/sanctions-icc-trump-warming.html
-
-**Senate Democrats Demand Clarity About Musk’s Efforts at Education Dept.**\
-`In a letter released on Thursday, a coalition of 15 Democrats asked the department to explain what data associates of Elon Musk’s had scraped from the agency’s servers.`\
-https://nytimes.com/2025/02/07/us/politics/education-dept-elon-musk-senate.html
-
-**Europe’s Trump Playbook: Offer Carrots but Warn That You Have a Big Stick**\
-`The European Union’s so-called Trump task force spent 2024 preparing for a possible trade dispute. Specifics are secret, but guiding principles are becoming clear.`\
-https://nytimes.com/2025/02/07/world/europe/eu-tariffs-trump.html
-
-**When Your Only Job Is to Cuddle**\
-`By cradling strangers’ infants in the neonatal unit, I regained faith in the value of small acts of tenderness.`\
-https://nytimes.com/2025/02/07/style/modern-love-when-your-only-job-is-to-cuddle.html
 

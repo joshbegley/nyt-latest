@@ -1,3 +1,15 @@
+**Why Nuno's tactical flexibility is Forest's secret weapon**\
+`Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
+https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
+
+**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
+`Vinnie Hinostroza became the eighth player in franchise history to score in his Wild debut against the Hurricanes.`\
+https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
+
+**Inside the Birmingham City revolution: 'This will be the football story of the next decade'**\
+`Ahead of the club's biggest game in years, The Athletic went behind the scenes to see the effect of their Tom Brady-backed transformation`\
+https://nytimes.com/athletic/6113680/2025/02/07/birmingham-city-tom-brady-revolution-inside/
+
 **Madrid don't have a fit senior centre-back. How will they line up against Atletico and City?**\
 `Madrid are facing a defensive dilemma before two crucial games in their season`\
 https://nytimes.com/athletic/6119097/2025/02/07/real-madrid-centre-backs-atletico-city/
