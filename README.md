@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-
 https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
 
 **Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
-`Vinnie Hinostroza became the eighth player in franchise history to score in his Wild debut against the Hurricanes.`\
+`Vinnie Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
 https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
 
 **Inside the Birmingham City revolution: 'This will be the football story of the next decade'**\
