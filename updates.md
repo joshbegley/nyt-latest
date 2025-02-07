@@ -1,3 +1,11 @@
+**Mikko Rantanen is off to a slow start with the Hurricanes: Is it time to panic?**\
+`Rantanen has one goal and one assist in six games since the big trade. What's going on?`\
+https://nytimes.com/athletic/6120629/2025/02/07/mikko-rantanen-hurricanes-trade/
+
+**Derrick Henry: 'I want to finish my career in Baltimore'**\
+`Derrick Henry averaged a career high 5.9 yards per carry in his first season with the Ravens.`\
+https://nytimes.com/athletic/6121500/2025/02/07/ravens-derrick-henry-nfl-finish-career/
+
 **Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
 `New signing Mathis Amougou has also been added to Chelsea's squad for the knockout phase.`\
 https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
