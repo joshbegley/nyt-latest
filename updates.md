@@ -1,3 +1,7 @@
+**The Singular Magic of Torrisi: New York City on a Plate**\
+`Sam Sifton takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
+https://nytimes.com/2025/02/07/dining/torrisi-restaurant-nyc.html
+
 **Story of a Restaurant: The Magic of New York City on a Plate**\
 `Our critic takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
 https://nytimes.com/video/dining/100000009962807/torrisi-restaurant-nyc.html
