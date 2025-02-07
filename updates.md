@@ -1,3 +1,7 @@
+**Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
+`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
+https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
+
 **How Thatcher Demko, Drew O'Connor helped Canucks avoid a slip: 3 takeaways**\
 `Vancouver got an overtime victory in San Jose thanks to an O'Connor penalty shot goal.`\
 https://nytimes.com/athletic/6120773/2025/02/07/thatcher-demko-drew-oconnor-canucks-sharks/

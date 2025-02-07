@@ -1,3 +1,7 @@
+**Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
+`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
+https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
+
 **How Thatcher Demko, Drew O'Connor helped Canucks avoid a slip: 3 takeaways**\
 `Vancouver got an overtime victory in San Jose thanks to an O'Connor penalty shot goal.`\
 https://nytimes.com/athletic/6120773/2025/02/07/thatcher-demko-drew-oconnor-canucks-sharks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118347/2025/02/07/marshall-munetsi-marshall-djiga-
 **West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
 `West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
 https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
-
-**Marco Asensio's Aston Villa arrival - and a chance to put his career back on track**\
-`Villa's confidence in their new loan signing comes from Emery's desire to provide a stable environment for players who have lost their way`\
-https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transfer-real-madrid-psg/
 
