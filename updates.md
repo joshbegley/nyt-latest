@@ -1,3 +1,19 @@
+**Canelo Alvarez signs 4-fight deal with Riyadh; Crawford eyes megafight**\
+`Alvarez and Crawford are slated to fight on Sept. 13 at Allegiant Stadium in Las Vegas, the weekend ahead of Mexican Independence Day.`\
+https://nytimes.com/athletic/6120377/2025/02/07/canelo-alvarez-riyadh-season-deal-terence-crawford/
+
+**Ben Simmons working toward buyout, to meet with Cavs, Clippers, Rockets**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/07/ben-simmons-working-toward-buyout-with-nets-to-meet-with-cavaliers-clippers-rockets-source/
+
+**Plane Crashes Into Street in Brazil Shortly After Takeoff**\
+`Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
+https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html
+
+**The Bounce: Luka Dončić to Lakers made big waves, but who were NBA trade deadline's winners & losers?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6121229/2025/02/07/luka-doncic-lakers-mavericks-jimmy-butler-warriors-heat-nba-trade-deadline-the-bounce/
+
 **The Jimmy Butler era arrives as Joe Lacob and the Warriors ‘picked a path’**\
 `After making a run at Paul George and Lauri Markkanen in the summer, and Kevin Durant in recent days, the Warriors finally got their guy.`\
 https://nytimes.com/athletic/6120545/2025/02/07/jimmy-butler-joe-lacob-warriors-mike-dunleavy-nba/

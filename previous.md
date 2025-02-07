@@ -1,15 +1,3 @@
-**The Jimmy Butler era arrives as Joe Lacob and the Warriors ‘picked a path’**\
-`After making a run at Paul George and Lauri Markkanen in the summer, and Kevin Durant in recent days, the Warriors finally got their guy.`\
-https://nytimes.com/athletic/6120545/2025/02/07/jimmy-butler-joe-lacob-warriors-mike-dunleavy-nba/
-
-**Millions Will See This Super Bowl Ad. Health Experts (and Two Senators) Aren’t Pleased.**\
-`The spot makes lofty claims about weight-loss drugs offered by the telehealth company Hims & Hers, but says little about risks.`\
-https://nytimes.com/2025/02/07/well/hims-hers-health-super-bowl-ad.html
-
-**‘My Home Is on Fire. My Home Is on Fire.’**\
-`Daniel Ramirez, a Times audio engineer, writes about the trauma of losing everything in the Eaton fire.`\
-https://nytimes.com/2025/02/07/us/fires-losing-my-home.html
-
 **A 311-Year-Old Stradivarius Violin Sells for $11.25 Million at Sotheby’s**\
 `The money from the sale of the violin, which was once owned by the 19th-century virtuoso Joseph Joachim, will benefit a scholarship program at the New England Conservatory.`\
 https://nytimes.com/2025/02/07/arts/music/stradivarius-violin-10-million-auction.html
@@ -34,7 +22,19 @@ https://nytimes.com/2025/02/07/arts/music/heartbeat-opera-salome-review.html
 `A single image captures the grim task facing those who needed to find space for the dead after a spasm of violence in Central Africa.`\
 https://nytimes.com/2025/02/07/world/africa/congo-photo-burial.html
 
-**Canelo Alvarez signs 4-fight deal with Riyadh, Crawford eyes megafight**\
+**Canelo Alvarez signs 4-fight deal with Riyadh; Crawford eyes megafight**\
 `Alvarez and Crawford are slated to fight on Sept. 13 at Allegiant Stadium in Las Vegas, the weekend ahead of Mexican Independence Day.`\
 https://nytimes.com/athletic/6120377/2025/02/07/canelo-alvarez-riyadh-season-deal-terence-crawford/
+
+**Ben Simmons working toward buyout, to meet with Cavs, Clippers, Rockets**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/07/ben-simmons-working-toward-buyout-with-nets-to-meet-with-cavaliers-clippers-rockets-source/
+
+**Plane Crashes Into Street in Brazil Shortly After Takeoff**\
+`Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
+https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html
+
+**The Bounce: Luka Dončić to Lakers made big waves, but who were NBA trade deadline's winners & losers?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6121229/2025/02/07/luka-doncic-lakers-mavericks-jimmy-butler-warriors-heat-nba-trade-deadline-the-bounce/
 
