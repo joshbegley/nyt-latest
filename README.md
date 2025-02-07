@@ -1,3 +1,7 @@
+**Mikko Rantanen is off to a slow start with the Hurricanes: Is it time to panic?**\
+`Rantanen has one goal and one assist in six games since the big trade. What's going on?`\
+https://nytimes.com/athletic/6120629/2025/02/07/mikko-rantanen-hurricanes-trade/
+
 **Derrick Henry: 'I want to finish my career in Baltimore'**\
 `Derrick Henry averaged a career high 5.9 yards per carry in his first season with the Ravens.`\
 https://nytimes.com/athletic/6121500/2025/02/07/ravens-derrick-henry-nfl-finish-career/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-
 **Revisions show slower job growth but a still-solid labor market.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
-
-**Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
-`For the third time in the last decade, Indiana will need a new men’s basketball coach. But the circumstances around this job are different.`\
-https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
 
