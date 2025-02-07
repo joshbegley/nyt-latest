@@ -1,3 +1,7 @@
+**No. 19 Tennessee bests No. 5 UConn 80-76 in rivalry upset**\
+`With Tennessee’s most recent win, the rivalry now stands at 17-10 with UConn leading the way.`\
+https://nytimes.com/athletic/6120312/2025/02/06/tennessee-uconn-womens-basketball-results-analysis/
+
 **Corrections: Feb. 7, 2025**\
 `Corrections that appeared in print on Friday, Feb. 7, 2025.`\
 https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/nyregion/climate-change-superfund-act-lawsuit.htm
 **Suns' path forward with Kevin Durant seems clear after minor moves at deadline**\
 `The Durant era in Phoenix is the most puzzling and frustrating in franchise history, and it's likely nearing its final chapter. `\
 https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline-future/
-
-**LeBron goes No. 1 by O’Neal, Barkley takes 6 foreign players in All-Star draft**\
-`In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
-https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
 
