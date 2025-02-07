@@ -1,3 +1,7 @@
+**Hamas Names 3 Hostages to Be Released in Next Cease-Fire Exchange**\
+`The Israelis were identified as Eli Sharabi, Or Levy and Ohad Ben-Ami, all of whom were abducted during the 2023 Hamas-led attack. Israel is expected to let dozens of Palestinian prisoners go in return.`\
+https://nytimes.com/2025/02/07/world/middleeast/israel-hamas-gaza-hostages-release-names.html
+
 **Ye Takes Back Apology and Calls Himself a Nazi in Social Media Rant**\
 `The rapper praised Hitler and took back an apology he made in 2023 for his past antisemitic remarks.`\
 https://nytimes.com/2025/02/07/arts/music/ye-takes-back-apology.html
