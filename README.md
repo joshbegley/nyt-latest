@@ -1,5 +1,5 @@
 **'The guy shouldn't have a job' – Reilly Opelka calls for umpire to be suspended by ATP**\
-`Opelka criticized the umpire after he was penalized for twice swearing at a spectator, describing him as 'amateur hour' and 'bush league.'`\
+`Opelka criticized Greg Allensworth after he was penalized for swearing at a spectator, describing him as 'amateur hour' and 'bush league.`\
 https://nytimes.com/athletic/6120977/2025/02/07/reilly-opelka-greg-allensworth-umpire-dallas-open/
 
 **Solid Labor Market Gives Fed Cover to Extend Rate Pause**\
