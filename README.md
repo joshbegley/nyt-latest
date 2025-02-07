@@ -1,3 +1,11 @@
+**Tony Roberts, Nonchalant Fixture in Woody Allen Films, Dies at 85**\
+`He had an acclaimed Broadway career in musicals and comedies, but moviegoers knew him mostly as the tall, self-assured, easygoing pal to Mr. Allen’s insecure heroes.`\
+https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
+
+**Howard Twilley, Receiver on the 1972 Champion Dolphins, Dies at 81**\
+`After a stellar college career, he spent 11 years with Miami. He caught a touchdown pass in the Super Bowl that concluded the team’s undefeated season.`\
+https://nytimes.com/2025/02/07/sports/football/howard-twilley-dead.html
+
 **Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
 `The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
 https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garn
 **A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
 `Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
-
-**Chicks Raised to Lay Eggs Are Lost in Fire at a Large Farm in Ohio**\
-`The chicken-raising facility in western Ohio was licensed to house about 280,000 young hens. The destruction came amid egg shortages linked to an avian influenza outbreak.`\
-https://nytimes.com/2025/02/07/us/ohio-chicken-farm-fire.html
-
-**Hegseth Uses His First Town Hall to Attack Diversity**\
-`The defense secretary, speaking to the Pentagon work force, defended his “unconventional approaches” to an audience that included women and people of color.`\
-https://nytimes.com/2025/02/07/us/politics/hegseth-pentagon-town-hall.html
 
