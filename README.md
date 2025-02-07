@@ -1,3 +1,11 @@
+**Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
+`The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
+https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
+
+**Senate Confirms Russell Vought as Office of Management and Budget Director**\
+`Mr. Vought, an architect of Project 2025 who served in the first Trump administration, will be at the center of President Trump’s plans to upend the federal bureaucracy.`\
+https://nytimes.com/2025/02/06/us/politics/russell-vought-omb-senate-vote.html
+
 **A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
 `Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
 https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html
 **Trump’s Gaza Takeover Plan May Sound Death Knell for the Two-State Solution**\
 `Already unlikely, the prospects for creation of a Palestinian state alongside Israel could vanish altogether if the United States takes over Gaza and displaces the population, as President Trump proposes.`\
 https://nytimes.com/2025/02/06/us/politics/trump-gaza-two-state.html
-
-**Four Emerging Designers to Put on Your Radar This Season**\
-`These rising stars are creating fresh silhouettes out of classic materials.`\
-https://nytimes.com/2025/02/06/t-magazine/new-designers-fall-2025-fashion.html
-
-**Who were the biggest winners of an unprecedented NBA trade deadline?**\
-`A couple of teams rise above the rest, but one group may be smiling from ear to ear after the dust settles.`\
-https://nytimes.com/athletic/6119667/2025/02/06/nba-trade-deadline-winners-lakers-cavaliers/
 
