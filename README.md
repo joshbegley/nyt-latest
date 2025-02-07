@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/07/world/europe/khamenei-iran-us-negotiations.html
 `Today in TAFC: Are Liverpool really in a quadruple hunt? Plus: We go inside Birmingham's U.S. revolution, FM25 is canned, Neymar still king.`\
 https://nytimes.com/athletic/6121078/2025/02/07/liverpool-tottenham-carabao-cup-fm25-cancelled/
 
-**Man City add Marmoush, Gonzalez, Khusanov to Champions League squad**\
+**Man City add Marmoush, Nico, Khusanov to Champions League squad**\
 `City made four signings in the transfer window but were only allowed to add three players to their Champions League squad.`\
 https://nytimes.com/athletic/6118980/2025/02/07/manchester-city-champions-league-squad-reis/
 
