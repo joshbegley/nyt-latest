@@ -1,3 +1,7 @@
+**Marcus Smart's time in Memphis ends, Rockets make minor moves and more: The IkoSystem**\
+`The Rockets decided to keep their core intact, while the Grizzlies sent Smart to Washington at the deadline. `\
+https://nytimes.com/athletic/6119486/2025/02/07/marcus-smart-nba-trade-deadline-grizzlies/
+
 **'The guy shouldn't have a job' – Reilly Opelka calls for umpire to be suspended by ATP**\
 `Opelka criticized Greg Allensworth after he was penalized for swearing at a spectator, describing him as 'amateur hour' and 'bush league.`\
 https://nytimes.com/athletic/6120977/2025/02/07/reilly-opelka-greg-allensworth-umpire-dallas-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120332/2025/02/07/flyers-matvei-michkov-john-torto
 **Is the national criticism of Connor Bedard fair? Breaking down his shifts**\
 `Recent nationally televised games mean more eyes on Bedard's play, for good or bad. Let's take a closer look.`\
 https://nytimes.com/athletic/6119388/2025/02/07/connor-bedard-national-criticism-nhl-blackhawks-oilers/
-
-**'It’s a test of character, a test of your will': Rielly opens up about losing his swagger**\
-`January was a particularly rough stretch for the Leafs' longest-serving player, but Rielly is starting to feel like himself again.`\
-https://nytimes.com/athletic/6120104/2025/02/07/morgan-rielly-toronto-maple-leafs-breaking-slump/
 
