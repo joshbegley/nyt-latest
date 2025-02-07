@@ -1,3 +1,11 @@
+**OpenAI Close to Deal That Values Company at $300 Billion**\
+`The Japanese conglomerate SoftBank would invest up to $40 billion in the maker of the chatbot ChatGPT.`\
+https://nytimes.com/2025/02/07/technology/openai-softbank-investment.html
+
+**UMass student, initially denied $10K for making half-court shot, will get prize money**\
+`A video review showed the student's foot was on the half-court line, but the school said it will step in to give him the prize money.`\
+https://nytimes.com/athletic/6121722/2025/02/07/umass-student-half-court-shot-prize/
+
 **Kash Patel owns at least $1 million in stock in the parent firm of Shein, the Chinese clothing maker.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/kash-patel-elite-depot-shein
