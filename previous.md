@@ -1,3 +1,11 @@
+**Gates, Sharpe, Allen lead small Hall of Fame class; Eli Manning left out**\
+`The four-person class is the first since 2005 with fewer than six inductees. Adam Vinatieri also missed out in his first chance.`\
+https://nytimes.com/athletic/6120229/2025/02/06/nfl-hall-of-fame-class-of-2025/
+
+**Filip Gustavsson beats Canes again, Vinnie Hinostroza scores winner in Wild debut: 4 takeaways**\
+`The Wild picked up just their fifth win in their past 14 home games with a sterling Gustavsson performance against Carolina.`\
+https://nytimes.com/athletic/6120127/2025/02/06/wild-gustavsson-hinostroza-first-goal-hurricanes/
+
 **Giants legend Eli Manning denied entry into Pro Football Hall of Fame**\
 `The two-time Super Bowl MVP will have to wait until next year for another shot at enshrinement. `\
 https://nytimes.com/athletic/6119318/2025/02/06/eli-manning-hall-of-fame-giants-snub/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
 **Broncos' Pat Surtain II's DPOY season built on relentless quest to improve**\
 `Surtain is the second Bronco to win the NFL's top honor for a defensive player and the youngest to claim it in 12 years.`\
 https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-candidate/
-
-**Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
-`Daniels won the award in a landslide as he received 49 of 50 first-place votes with Raiders tight end Brock Bowers getting the other.`\
-https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
-
-**Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
-`Ellen L. Weintraub, who has served as a commissioner for the nation’s top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
-https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
 
