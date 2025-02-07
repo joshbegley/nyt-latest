@@ -1,3 +1,15 @@
+**Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
+`Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
+https://nytimes.com/athletic/6120591/2025/02/07/breaking-down-the-chiefs-eagles-super-bowl-matchup-by-the-numbers/
+
+**‘Paint Me a Road Out of Here’: Faith Ringgold’s Gift to Prisoners**\
+`In this documentary, the artist depicts what a more just and beautiful world might look like.`\
+https://nytimes.com/2025/02/07/movies/paint-me-a-road-out-of-here-faith-ringgold.html
+
+**U.S.A.I.D. Turmoil Threatens Key Aid Supplies to Gaza, Officials Say**\
+`Washington has funded roughly a third of the aid sent to the enclave since the war began. With most agency workers set to be put on leave, officials say that those supplies are under threat.`\
+https://nytimes.com/2025/02/07/world/middleeast/usaid-trump-gaza-aid.html
+
 **Wall Street Prepares to Defend a Favored Tax Break, Again**\
 `President Trump called for ending the so-called carried interest loophole, which saves financiers billions. It’s a tax break that has survived time after time.`\
 https://nytimes.com/2025/02/07/business/dealbook/trump-carried-interest-tax.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6121158/2025/02/07/christopher-nkunku-chelsea-mares
 **Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
 `Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
 https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html
-
-**Anthony Edwards teaches Dillon Brooks a lesson: Don't poke the Wolf**\
-`Edwards scored more than 40 points for the second straight night, finding an energy boost from Houston's chippy, chirpy ways. `\
-https://nytimes.com/athletic/6117282/2025/02/07/anthony-edwards-dillon-brooks-timberwolves-rockets/
-
-**I.C.C. Pushes Back on Trump Order Imposing Sanctions on It**\
-`The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
-https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
-
-**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed-dating at Molineux**\
-`Tim Spiers takes his weekly look at the sillier side of football...`\
-https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
 
