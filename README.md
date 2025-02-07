@@ -1,3 +1,15 @@
+**Doechii’s Victory Lap, and 10 More New Songs**\
+`Hear tracks from Valerie June, Coi Leray, Destroyer and others.`\
+https://nytimes.com/2025/02/07/arts/music/playlist-doechii-lady-gaga.html
+
+**The Military Led Diversity Efforts. West Point’s Club Ban Is a Shift.**\
+`West Point leaders complied with President Trump’s D.E.I. ban by ending a dozen student clubs. Critics say the move contradicts decades of efforts to diversify the nation’s fighting force.`\
+https://nytimes.com/2025/02/07/us/west-point-clubs-minorities-women-trump.html
+
+**Super Bowl LIX memorabilia challenge: Who had the better haul?**\
+`We sent two local writers around New Orleans on a hunt for the best Super Bowl merch they can buy on a budget`\
+https://nytimes.com/athletic/6120453/2025/02/07/super-bowl-merchandise-memorabilia-challenge/
+
 **How Many Federal Worker Resignations Would Be a Lot?**\
 `Sixty-five thousand have submitted resignations as part of Elon Musk’s “fork in the road” offer. But 150,000 voluntarily leave every year anyway.`\
 https://nytimes.com/2025/02/07/upshot/elon-musk-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6120660/2025/02/07/figure-skating-crash-victims-gri
 **Texas Tech keeping GM James Blanchard after Notre Dame pursuit**\
 `Blanchard received a three-year deal to stay in Lubbock through 2027 with a total value of $1.575 million, per a source.`\
 https://nytimes.com/athletic/6121748/2025/02/07/texas-tech-james-blanchard-notre-dame-gm/
-
-**Real Madrid and Vinicius Jr open talks over new contract**\
-`The Brazil international's current terms run until 2027 and include a €1billion release clause.`\
-https://nytimes.com/athletic/6121543/2025/02/07/real-madrid-vinicius-jr-contract-new-talks/
-
-**The Super Bowl Ads, Ranked**\
-`Here is our critic’s evolving survey of this year’s Super Bowl commercials, from best to worst.`\
-https://nytimes.com/2025/02/07/arts/television/super-bowl-commercials-ads-best-worst.html
-
-**Vecenie: The good, the bad and the ugly of the NBA trade deadline**\
-`After a frenzied and often bold series of moves, which teams helped and hurt themselves the most? And what are the Bulls doing, exactly? `\
-https://nytimes.com/athletic/6117566/2025/02/07/nba-trade-deadline-review-lakers-mavericks/
 
