@@ -1,3 +1,7 @@
+**‘I’m Still Here’ | Anatomy of a Scene**\
+`The director Walter Salles narrates a scene from his film, which has an Oscar nomination for best picture.`\
+https://nytimes.com/video/movies/100000009967354/im-still-here-scene.html
+
 **Commanders big board: 4 positions to consider in the first round**\
 `Outside of the quarterback position, Washington has needs up and down its roster. Which players should the team consider in Round 1?`\
 https://nytimes.com/athletic/6120861/2025/02/07/commanders-big-board-2025-nfl-draft/
