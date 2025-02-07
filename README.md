@@ -1,3 +1,7 @@
+**Van Nistelrooy criticises 'offside time' officiating mistake in Man United defeat**\
+`Ruud van Nisterlooy said his Leicester City side were defeated in “offside time” after being knocked out of the FA Cup by Manchester United due to an official failing to spot an offside.`\
+https://nytimes.com/athletic/6122618/2025/02/07/man-united-leicester-fa-cup-offside-van-nistelrooy/
+
 **Tony Roberts, Nonchalant Fixture in Woody Allen Films, Dies at 85**\
 `He had an acclaimed Broadway career in musicals and comedies, but moviegoers knew him mostly as the tall, self-assured, easygoing pal to Mr. Allen’s insecure heroes.`\
 https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-t
 **The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
 `Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
 https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
-
-**A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
-`Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
-https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
 
