@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman: Gleyber Torres was 'unwilling' to change positions**\
+`Cashman said that when he traded for Jazz Chisholm Jr., his intent was for Gleyber Torres to move to third base.`\
+https://nytimes.com/athletic/6120414/2025/02/06/yankees-brian-cashman-gleyber-torres-position-change/
+
 **Campus Figures**\
 `Kelly Morenus opens our solving weekend.`\
 https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub
 **Kamala Harris Tours the Destruction in the Palisades**\
 `Asked during her visit on Thursday if she was considering running for governor of California, Ms. Harris did not give a direct answer, but did not rule it out either.`\
 https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
-
-**Trump Imposes Sanctions on International Court, Accusing It of Targeting the U.S. and Israel**\
-`The president signed an executive order that said the I.C.C.’s actions against Israel and preliminary investigations into the United States “set a dangerous precedent.”`\
-https://nytimes.com/2025/02/06/us/politics/trump-icc-sanctions.html
 
