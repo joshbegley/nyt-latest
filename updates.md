@@ -1,3 +1,7 @@
+**Ben Simmons working toward buyout, to meet with Cavs, Clippers, Rockets**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/07/ben-simmons-working-toward-buyout-with-nets-to-meet-with-cavaliers-clippers-rockets-source/
+
 **Plane Crashes Into Street in Brazil Shortly After Takeoff**\
 `Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
 https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html

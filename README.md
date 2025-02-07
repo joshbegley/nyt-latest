@@ -28,7 +28,7 @@ https://nytimes.com/2025/02/07/arts/shannon-sharpe-club-shay-shay.html
 
 **Five International Movies to Stream Now**\
 `This week’s picks include an unconventional Georgian love story, a small-town Slovakian horror movie, a Lithuanian thriller about a woman in crisis and more.`\
-https://nytimes.com/2025/02/07/movies/five-international-movies-to-stream-now.html
+https://nytimes.com/2025/02/07/movies/international-movies.html
 
 **Should the Kings pay big for pending UFA Vladislav Gavrikov? Trade him? Let him walk?**\
 `Losing the talented defenseman would sting the Kings, but what is the smartest move?`\
