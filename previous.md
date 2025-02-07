@@ -6,6 +6,10 @@ https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
 `Court-appointed monitors of Sacramento County jails say a man’s fatal overdose was one of multiple deaths in which deputies and nurses exhibited a “callous” indifference toward detainees.`\
 https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
 
+**Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
+`Cole Palmer has been added to Chelsea&#8217;s Conference League squad for the remainder of the competition but Romeo Lavia and Wesley Fofana have not been included.`\
+https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
+
 **Revisions show slower job growth but a still-solid labor market.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
 **White House Forces Showdown Over Congress’s Power of the Purse**\
 `The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
 https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
-
-**Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
-`Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
-https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
 

@@ -1,3 +1,7 @@
+**Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
+`Cole Palmer has been added to Chelsea&#8217;s Conference League squad for the remainder of the competition but Romeo Lavia and Wesley Fofana have not been included.`\
+https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
+
 **Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
 `The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
 https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
