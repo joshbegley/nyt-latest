@@ -1,3 +1,7 @@
+**Farm system heat check: What’s the immediate and future outlook for the New York Mets**\
+`Brandon Sproat will start the season at Triple A but could make his debut by the end of the season. Who else is on the way?`\
+https://nytimes.com/athletic/6120057/2025/02/07/mets-farm-system-heat-check/
+
 **Notre Dame faces more questions than usual on defense. How many answers does it have?**\
 `New defensive coordinator Chris Ash has a tough act to follow and questions to answer, but Notre Dame has intriguing potential.`\
 https://nytimes.com/athletic/6119604/2025/02/07/notre-dame-football-roster-2025-defense/
