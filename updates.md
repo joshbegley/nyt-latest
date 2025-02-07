@@ -1,3 +1,7 @@
+**Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
+`Ellen L. Weintraub, who has served as a commissioner for the nation’s top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
+https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
+
 **Corrections: Feb. 7, 2025**\
 `Corrections that appeared in print on Friday, Feb. 7, 2025.`\
 https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
