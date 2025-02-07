@@ -1,3 +1,7 @@
+**‘I’m Still Here’ | Anatomy of a Scene**\
+`The director Walter Salles narrates a scene from his film, which has an Oscar nomination for best picture.`\
+https://nytimes.com/video/movies/100000009967354/im-still-here-scene.html
+
 **Commanders big board: 4 positions to consider in the first round**\
 `Outside of the quarterback position, Washington has needs up and down its roster. Which players should the team consider in Round 1?`\
 https://nytimes.com/athletic/6120861/2025/02/07/commanders-big-board-2025-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-wai
 **Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
 `The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
 https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
-
-**‘He’s Just Old and Homeless’: California Jail Death Leads to Accusations of Neglect**\
-`Court-appointed monitors of Sacramento County jails say a man’s fatal overdose was one of multiple deaths in which deputies and nurses exhibited a “callous” indifference toward detainees.`\
-https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
 
