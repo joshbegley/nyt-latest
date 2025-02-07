@@ -1,3 +1,11 @@
+**Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
+`According to Kimmel, “MAGA Teresa” only attended the National Prayer Breakfast “because he doesn’t like it when people worship anyone other than him.”`\
+https://nytimes.com/2025/02/07/arts/television/jimmy-kimmel-trump-prayer-breakfast.html
+
+**Tottenham Hotspur: If you won't go for it now, then when?**\
+`This was always going to be a huge week for Spurs and Postecoglou - the manner of the soulless performance at Anfield was alarming`\
+https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-final/
+
 **Brighton's Cashin ready for Premier League step up - Hurzeler**\
 `Cashin, 23, has swapped a relegation fight with Derby County in the Championship for a move to the Amex Stadium.`\
 https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
 **Small Plane With 10 Onboard Goes Missing in Alaska**\
 `The Cessna, operated by Bering Air, went off the radar and lost radio contact minutes before it was scheduled to land in Nome.`\
 https://nytimes.com/2025/02/07/us/alaska-plane-missing.html
-
-**U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
-`The plane, which had been contracted by the Pentagon, went down during a routine mission in the southern Philippines, the U.S. military said.`\
-https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
-
-**What Marshall Munetsi and Nasser Djiga will bring to Wolves**\
-`Wolves will have two new faces in their squad when they travel to Blackburn on Sunday - and neither signing was entirely conventional`\
-https://nytimes.com/athletic/6118347/2025/02/07/marshall-munetsi-marshall-djiga-wolves/
 
