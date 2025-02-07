@@ -1,5 +1,5 @@
 **FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
-`Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25.`\
+`Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25`\
 https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
 
 **Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
