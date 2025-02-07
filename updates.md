@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Stellar Stolarz and a bit of luck lead to win in Seattle**\
+`Buoyed by some good fortune and strong goaltending, Leafs extend winning streak to three games with 3-1 win over Kraken.`\
+https://nytimes.com/athletic/6120442/2025/02/07/maple-leafs-kraken-nhl-report-cards/
+
 **Trump Signs Order to Fight ‘Anti-Christian Bias’**\
 `The president convened a task force to “prosecute anti-Christian violence and vandalism.” Critics said he’d turned religious freedom on its head by singling out one faith.`\
 https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-christian-bias.html
