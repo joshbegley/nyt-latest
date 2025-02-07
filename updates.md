@@ -1,3 +1,7 @@
+**Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
+`New signing Mathis Amougou has also been added to Chelsea's squad for the knockout phase.`\
+https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
+
 **Three added to Spurs' Europa League squad but Kinsky left out**\
 `Kinsky, 21, joined Spurs at the beginning of January and has been the club's No 1 in the league with Guglielmo Vicario out injured.`\
 https://nytimes.com/athletic/6114941/2025/02/07/tottenham-europa-league-squad-tel-spence-kinsky/

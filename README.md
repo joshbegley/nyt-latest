@@ -1,3 +1,7 @@
+**Derrick Henry: 'I want to finish my career in Baltimore'**\
+`Derrick Henry averaged a career high 5.9 yards per carry in his first season with the Ravens.`\
+https://nytimes.com/athletic/6121500/2025/02/07/ravens-derrick-henry-nfl-finish-career/
+
 **Three added to Spurs' Europa League squad but Kinsky left out**\
 `Kinsky, 21, joined Spurs at the beginning of January and has been the club's No 1 in the league with Guglielmo Vicario out injured.`\
 https://nytimes.com/athletic/6114941/2025/02/07/tottenham-europa-league-squad-tel-spence-kinsky/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisio
 **Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
 `For the third time in the last decade, Indiana will need a new men’s basketball coach. But the circumstances around this job are different.`\
 https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
-
-**Mavericks bracing for 'heartbreak' and 'boos' from fans when they return to Dallas**\
-`“Nobody is mad at Dallas fans for their reaction. With something that’s emotional, you have to give it a chance to process.” Dinwiddie said.`\
-https://nytimes.com/athletic/6120785/2025/02/07/mavericks-fans-nba-trade-luka-doncic/
 

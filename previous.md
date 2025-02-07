@@ -23,7 +23,7 @@ https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
 https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
 
 **Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
-`Cole Palmer has been added to Chelsea&#8217;s Conference League squad for the remainder of the competition but Romeo Lavia and Wesley Fofana have not been included.`\
+`New signing Mathis Amougou has also been added to Chelsea's squad for the knockout phase.`\
 https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
 
 **Revisions show slower job growth but a still-solid labor market.**\
