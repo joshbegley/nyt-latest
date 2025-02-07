@@ -1,40 +1,36 @@
-**‘Love Hurts’ Review: A Valentine Full of Action**\
-`Ke Huy Quan and Ariana DeBose play reunited former associates from a criminal outfit. Sparks don’t exactly fly.`\
-https://nytimes.com/2025/02/07/movies/love-hurts-review.html
+**Creative (and Cheap) Valentine’s Day Ideas**\
+`A meaningful gift doesn’t have to cost a lot.`\
+https://nytimes.com/2025/02/07/well/cheap-valentines-day-ideas.html
 
-**Fighting Intensifies in Sudan, Leaving Hundreds Dead**\
-`The army and the paramilitary forces are locked in a new and ruinous battle for territory across the northeast African nation.`\
-https://nytimes.com/2025/02/07/world/africa/sudan-clashes.html
+**Trump’s Gaza Deal: War Crimes in Exchange for Beachfront Property**\
+`The president’s proposal wasn’t serious, but it was dangerous.`\
+https://nytimes.com/2025/02/07/opinion/trump-gaza-war-crimes.html
 
-**Pedri and the passes**\
-`The Barcelona midfielder is playing deeper under new coach Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
-https://nytimes.com/athletic/6120079/2025/02/07/pedri-barcelona-flick-passes/
+**The New York Times News Quiz, Feb. 7, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/02/07/briefing/trump-gaza-usaid-grammys-super-bowl.html
 
-**N.Y.U. Parent Has an Idea: Deport Hamas Supporters on Campus**\
-`The founder of Mothers Against College Antisemitism advised the group’s over 61,000 followers to take advantage of a new executive order allowing the deportation of Hamas supporters.`\
-https://nytimes.com/2025/02/07/nyregion/nyu-parent-has-an-idea-deport-hamas-supporters-on-campus.html
+**Are You Worried About A.I. Taking Human Jobs?**\
+`A “Simpsons” voice actor is concerned about A.I. coming for his work. Should we all be?`\
+https://nytimes.com/2025/02/07/learning/are-you-worried-about-ai-taking-human-jobs.html
 
-**Tree and Frames**\
-`Tell a story, real or made up, that connects three or more of the elements in this image.`\
-https://nytimes.com/2025/02/07/learning/tree-and-frames.html
+**Deportation Flights to Venezuela Will Begin ‘Within the Next 30 Days’**\
+`The assertion by Tom Homan, President Trump’s border czar, could herald a shift in the relationship between the United States and Venezuela’s autocrat, Nicolás Maduro.`\
+https://nytimes.com/2025/02/07/world/americas/venezuela-deportation-flights-trump.html
 
-**The Lawyer Priest From Ireland Who Counsels New York’s Immigrants**\
-`Msgr. James Kelly has been helping people obtain citizenship since he moved to Brooklyn in 1960. His job has never felt more urgent, or more controversial.`\
-https://nytimes.com/2025/02/07/nyregion/nyc-immigrants-trump-brooklyn.html
+**Ecuador’s President Has Had a Year of Chaos. Why Is He Still So Popular?**\
+`President Daniel Noboa is favored to win Sunday’s presidential election as many voters embrace his heavy-handed tactics to fight violence and corruption.`\
+https://nytimes.com/2025/02/07/world/americas/ecuador-presidential-election-noboa.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/07/crosswords/spelling-bee-forum.html
+**Trump’s Executive Orders Leave Imprint on the Fed**\
+`The central bank has halted hiring to align with a White House directive and pulled back its work on climate change.`\
+https://nytimes.com/2025/02/07/business/federal-reserve-trump-executive-orders.html
 
-**FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
-`Sports Interactive said that 'following extensive internal discussion and careful consideration' with Sega, it would not be running FM25.`\
-https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
+**Trump’s Power Grab Defies G.O.P. Orthodoxy on Local Control**\
+`New York City traffic. California water rules. Middle school sports. Few local policies are outside the reach of Donald J. Trump’s federal government.`\
+https://nytimes.com/2025/02/07/us/politics/donald-trump-california-newyork-executive-orders.html
 
-**Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
-`According to Kimmel, “MAGA Teresa” only attended the National Prayer Breakfast “because he doesn’t like it when people worship anyone other than him.”`\
-https://nytimes.com/2025/02/07/arts/television/jimmy-kimmel-trump-prayer-breakfast.html
-
-**Tottenham Hotspur: If you won't go for it now, then when?**\
-`This was always going to be a huge week for Spurs and Postecoglou - the manner of the soulless performance at Anfield was alarming`\
-https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-final/
+**Doncic Trade Has Mavericks Fans Feeling They ‘Lost a Family Member’**\
+`Dallas built its team’s identity around Luka Doncic, on the court and off. Now that he’s gone, some supporters no longer feel a connection to the franchise.`\
+https://nytimes.com/2025/02/07/business/luka-doncic-dallas-mavericks-fans.html
 
