@@ -1,3 +1,7 @@
+**Trump Signs Order to Fight ‘Anti-Christian Bias’**\
+`The president convened a task force to “prosecute anti-Christian violence and vandalism.” Critics said he’d turned religious freedom on its head by singling out one faith.`\
+https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-christian-bias.html
+
 **Reimagining the American War Machine**\
 `The biggest challenge for any peacetime military is preparing for the next war.`\
 https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
