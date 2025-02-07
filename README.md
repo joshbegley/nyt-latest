@@ -1,3 +1,7 @@
+**Critics Choice Awards 2025: The Complete Winners List**\
+`Here’s who went home a winner from the 30th annual Critics Choice Awards.`\
+https://nytimes.com/2025/02/07/style/critics-choice-awards-winners-complete-list.html
+
 **Democrats Take Aim at Elon Musk**\
 `It’s the first sign of unified opposition for a rudderless and leaderless Democratic Party.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/technology/anduril-funding-valuation-28-billion.h
 **Trump Says He Will Dismiss Kennedy Center Board Members and Install Himself as Chair**\
 `The move by the president, whose authority to make the changes was not clear, is the latest attempt to bring a Washington institution under his control.`\
 https://nytimes.com/2025/02/07/us/politics/trump-kennedy-center.html
-
-**Van Nistelrooy criticises 'offside time' officiating mistake in Man United defeat**\
-`Ruud van Nisterlooy said his Leicester City side were defeated in “offside time” after being knocked out of the FA Cup by Manchester United due to an official failing to spot an offside.`\
-https://nytimes.com/athletic/6122618/2025/02/07/man-united-leicester-fa-cup-offside-van-nistelrooy/
 
