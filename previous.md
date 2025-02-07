@@ -1,3 +1,11 @@
+**Does My Wife Need to Know About My Porn Habit?**\
+`The magazine’s Ethicist columnist on self-pleasuring secrets and the pressures of living up to one’s sexual orientation.`\
+https://nytimes.com/2025/02/07/magazine/porn-habit-bisexual-polyamory-ethics.html
+
+**Slot has 'no guarantees' on Alisson or Kelleher starting EFL Cup final**\
+`Alisson started the first leg of their semi final against Tottenham Hotspur with Kelleher preferred for Thursday’s second leg.`\
+https://nytimes.com/athletic/6121014/2025/02/07/liverpool-carabao-cup-alisson-kelleher/
+
 **The report will revise figures from 2023 and 2024. Here’s what to know.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/the-report-will-revise-figures-from-2023-and-2024-heres-what-to-know
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy
 **Explaining the Penguins' latest business changes as a key executive resigns**\
 `Fenway Sports Group will need to find a new Penguins president of business operations. Here's what we know.`\
 https://nytimes.com/athletic/6119331/2025/02/07/penguins-owners-fsg-kevin-acklin/
-
-**NFL coaches pick the Super Bowl: Eagles better on paper, but is Mahomes the difference?**\
-`Five coaches helped us break down the Super Bowl matchup, where a loaded Eagles team meets Patrick Mahomes, the great equalizer.`\
-https://nytimes.com/athletic/6119528/2025/02/07/nfl-super-bowl-picks-chiefs-eagles-coaches/
-
-**Emma Hayes outlines long-term strategy for U.S. women's national team**\
-`Hayes says that by creating the best environments, the U.S. will continue to win`\
-https://nytimes.com/athletic/6120078/2025/02/07/emma-hayes-uswnt-way-soccer/
 

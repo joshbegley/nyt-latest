@@ -1,3 +1,11 @@
+**Does My Wife Need to Know About My Porn Habit?**\
+`The magazine’s Ethicist columnist on self-pleasuring secrets and the pressures of living up to one’s sexual orientation.`\
+https://nytimes.com/2025/02/07/magazine/porn-habit-bisexual-polyamory-ethics.html
+
+**Slot has 'no guarantees' on Alisson or Kelleher starting EFL Cup final**\
+`Alisson started the first leg of their semi final against Tottenham Hotspur with Kelleher preferred for Thursday’s second leg.`\
+https://nytimes.com/athletic/6121014/2025/02/07/liverpool-carabao-cup-alisson-kelleher/
+
 **The report will revise figures from 2023 and 2024. Here’s what to know.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/the-report-will-revise-figures-from-2023-and-2024-heres-what-to-know
