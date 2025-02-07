@@ -1,3 +1,11 @@
+**Reimagining the American War Machine**\
+`The biggest challenge for any peacetime military is preparing for the next war.`\
+https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
+
+**Small Plane With 10 Onboard Goes Missing in Alaska**\
+`The Cessna, operated by Bering Air, went off the radar and lost radio contact minutes before it was scheduled to land in Nome.`\
+https://nytimes.com/2025/02/07/us/alaska-plane-missing.html
+
 **U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
 `The plane, which had been contracted by the Pentagon, went down during a routine mission in the southern Philippines, the U.S. military said.`\
 https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
