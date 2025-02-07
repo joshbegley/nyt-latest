@@ -1,6 +1,10 @@
+**Trump Says Elon Musk Will Examine Defense Department Spending**\
+`As part of his cost-cutting effort, the billionaire, whose companies have enormous contracts with the military, will turn his so-called Department of Government Efficiency on the Pentagon.`\
+https://nytimes.com/2025/02/07/us/politics/trump-musk-doge-pentagon.html
+
 **San Francisco Is Latest City to Sue Trump Over Immigration Policies**\
 `Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
-https://nytimes.com/2025/02/07/us/politics/sfc-is-latest-city-to-sue-trump-over-immigration-policies.html
+https://nytimes.com/2025/02/07/us/politics/san-francisco-sues-trump-sanctuary-cities.html
 
 **The Singular Magic of Torrisi: New York City on a Plate**\
 `Sam Sifton takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121296/2025/02/07/clemson-baseball-absolutely-ridi
 **Jack Flaherty's return looks like a victory for the Tigers. Here's what it means**\
 `Flaherty signed a two-year contract worth up to $45 million. His return creates a new level of competition in the Tigers rotation.`\
 https://nytimes.com/athletic/6122221/2025/02/07/jack-flaherty-detroit-tigers-rotation/
-
-**A Party With an Edible Zen Garden**\
-`For the opening of her new store in Los Angeles, the florist Ren MacDonald-Balasia filled the space with food and flowers inspired by her heritage.`\
-https://nytimes.com/2025/02/07/t-magazine/renko-floral-los-angeles-party.html
 
