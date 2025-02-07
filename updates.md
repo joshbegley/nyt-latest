@@ -1,3 +1,11 @@
+**Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
+`The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
+https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
+
+**Senate Confirms Russell Vought as Office of Management and Budget Director**\
+`Mr. Vought, an architect of Project 2025 who served in the first Trump administration, will be at the center of President Trump’s plans to upend the federal bureaucracy.`\
+https://nytimes.com/2025/02/06/us/politics/russell-vought-omb-senate-vote.html
+
 **A juicy what-if: Inside Timberwolves' exploration of Kevin Durant trade**\
 `Minnesota explored getting into the KD sweepstakes in an effort to unite him with his pal, Anthony Edwards, according to sources.`\
 https://nytimes.com/athletic/6120069/2025/02/06/kevin-durant-timberwolves-interest-nba-trade/
