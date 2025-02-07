@@ -1,3 +1,7 @@
+**LeBron goes No. 1 by O’Neal as Barkley takes all 6 foreign players in All-Star draft**\
+`In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
+https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
+
 **Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
 `The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
 https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/opinion/usaid-trump-samantha-power.html
 **N.Y.C. Officials Give City Workers Leeway to Yield to ICE Agents**\
 `City workers at migrant shelters, schools and hospitals can allow federal immigration personnel to enter city property if they feel threatened by the agents, a memo from City Hall said.`\
 https://nytimes.com/2025/02/06/nyregion/raids-migrants-shelters-nyc.html
-
-**Trump’s Gaza Takeover Plan May Sound Death Knell for the Two-State Solution**\
-`Already unlikely, the prospects for creation of a Palestinian state alongside Israel could vanish altogether if the United States takes over Gaza and displaces the population, as President Trump proposes.`\
-https://nytimes.com/2025/02/06/us/politics/trump-gaza-two-state.html
 
