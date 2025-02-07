@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Stellar Stolarz and a bit of luck lead to win in Seattle**\
+`Buoyed by some good fortune and strong goaltending, Leafs extend winning streak to three games with 3-1 win over Kraken.`\
+https://nytimes.com/athletic/6120442/2025/02/07/maple-leafs-kraken-nhl-report-cards/
+
 **Trump Signs Order to Fight ‘Anti-Christian Bias’**\
 `The president convened a task force to “prosecute anti-Christian violence and vandalism.” Critics said he’d turned religious freedom on its head by singling out one faith.`\
 https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-christian-bias.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-
 **Why Nuno's tactical flexibility is Forest's secret weapon**\
 `Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
 https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
-
-**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
-`Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
-https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
 
