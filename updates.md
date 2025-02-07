@@ -1,3 +1,11 @@
+**At a Draft Site in Ukraine, an Anguished Wait for a Chance to Say Goodbye**\
+`The Ukrainian authorities are rounding up recruits. Relatives huddle at a center on the edge of Kyiv for a chance to see loved ones before they’re shipped to war.`\
+https://nytimes.com/2025/02/07/world/europe/ukraine-war-troops-draft-recruitment.html
+
+**Winter Storm Marches East, Promising a Snowy Weekend for Many**\
+`Another winter storm will rush across the Midwest and the Northeast this weekend, bringing snow and ice along the way.`\
+https://nytimes.com/2025/02/07/weather/snow-ice-northeast.html
+
 **Farm system heat check: What’s the immediate and future outlook for the New York Mets**\
 `Brandon Sproat will start the season at Triple A but could make his debut by the end of the season. Who else is on the way?`\
 https://nytimes.com/athletic/6120057/2025/02/07/mets-farm-system-heat-check/
