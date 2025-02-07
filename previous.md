@@ -1,3 +1,11 @@
+**Kash Patel owns at least $1 million in stock in the parent firm of Shein, the Chinese clothing maker.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/kash-patel-elite-depot-shein
+
+**Shaw returns to Man City training after racist, misogynistic abuse**\
+`City said on Tuesday they were "appalled" at the "disgusting treatment" of Shaw following Sunday's WSL game against Arsenal.`\
+https://nytimes.com/athletic/6120929/2025/02/07/bunny-shaw-racism-man-city-arsenal/
+
 **Jimmy Butler, Zach LaVine and more fantasy basketball trade deadline winners, losers**\
 `Eric Wong looks at the teams most impacted by the NBA trade deadline and the players who will be most helped or hurt by those deals.`\
 https://nytimes.com/athletic/6121787/2025/02/07/fantasy-basketball-trade-deadline-winners-losers-jimmy-butler-luka-doncic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6121815/2025/02/07/fbi-athlete-burglaries-investiga
 **Review: Worlds Collide to Make a Big Ballet Bang**\
 `Alexei Ratmansky creates a joyful new “Paquita” for New York City Ballet, giving the dancers a classical frame in which to find new versions of themselves.`\
 https://nytimes.com/2025/02/07/arts/dance/review-paquita-alexei-ratmansky-new-york-city-ballet.html
-
-**Liverpool add Ngumoha to Champions League squad**\
-`The 16-year-old winger joined Liverpool from Chelsea last summer.`\
-https://nytimes.com/athletic/6121873/2025/02/07/rio-ngumoha-liverpool-champions-league/
-
-**Democratic senators press Rubio over changes at the U.S. foreign aid agency.**\
-`In a letter, Senate Democrats pushed Secretary of State Marco Rubio for details about the Trump administration’s plans for U.S.A.I.D. They also demanded answers on legal authority over the agency’s funding.`\
-https://nytimes.com/live/2025/02/07/us/trump-administration-updates/marco-rubio-usaid
 

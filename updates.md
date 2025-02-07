@@ -1,3 +1,11 @@
+**Kash Patel owns at least $1 million in stock in the parent firm of Shein, the Chinese clothing maker.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/kash-patel-elite-depot-shein
+
+**Shaw returns to Man City training after racist, misogynistic abuse**\
+`City said on Tuesday they were "appalled" at the "disgusting treatment" of Shaw following Sunday's WSL game against Arsenal.`\
+https://nytimes.com/athletic/6120929/2025/02/07/bunny-shaw-racism-man-city-arsenal/
+
 **Jimmy Butler, Zach LaVine and more fantasy basketball trade deadline winners, losers**\
 `Eric Wong looks at the teams most impacted by the NBA trade deadline and the players who will be most helped or hurt by those deals.`\
 https://nytimes.com/athletic/6121787/2025/02/07/fantasy-basketball-trade-deadline-winners-losers-jimmy-butler-luka-doncic/
