@@ -1,3 +1,7 @@
+**How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/02/06/ovechkin-goals-record-wayne-gretzky-stats/
+
 **No. 19 Tennessee bests No. 5 UConn 80-76 in rivalry upset**\
 `With Tennessee’s most recent win, the rivalry now stands at 17-10 with UConn leading the way.`\
 https://nytimes.com/athletic/6120312/2025/02/06/tennessee-uconn-womens-basketball-results-analysis/
