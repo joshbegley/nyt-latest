@@ -1,3 +1,7 @@
+**Senate G.O.P. unveils its own budget plan, teeing up a fight with the House.**\
+`House Republicans have been toiling unsuccessfully to reach agreement on a fiscal blueprint. Their Senate colleagues are leapfrogging ahead.`\
+https://nytimes.com/2025/02/07/us/politics/senate-republicans-budget-spending.html
+
 **NBA futures odds: Did Jimmy Butler's trade to Golden State move the needle?**\
 `Jimmy Butler's trade to Golden State was a big one, but did it move the odds in the NBA futures market?`\
 https://nytimes.com/athletic/6121870/2025/02/07/nba-futures-odds-jimmy-butler/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/dining/hospital-cook.html
 **SMU AD Rick Hart, who helped lead move to ACC, to step down after 13 years**\
 `Hart leaves what's expected to be a highly sought-after job following SMU's conference switch and CFP appearance.`\
 https://nytimes.com/athletic/6121989/2025/02/07/smu-ad-rick-hart-step-down/
-
-**Ye Takes Back Apology and Calls Himself a Nazi in Social Media Rant**\
-`The rapper praised Hitler and took back an apology he made in 2023 for his past antisemitic remarks.`\
-https://nytimes.com/2025/02/07/arts/music/ye-takes-back-apology.html
 
