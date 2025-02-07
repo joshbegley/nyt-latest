@@ -1,3 +1,11 @@
+**A judge in Boston heard arguments on two birthright suits.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/a-judge-in-boston-heard-arguments-on-two-birthright-suits
+
+**An active global transfer market is beneficial to NWSL and USWNT**\
+`NWSL is still a healthy and vital part of the global soccer ecosystem. `\
+https://nytimes.com/athletic/6121665/2025/02/07/uswnt-nwsl-transfer-global-soccer/
+
 **Young Aides Emerge as Enforcers in Musk’s Broadside Against Government**\
 `Much of the billionaire’s handiwork — gaining access to internal systems and asking employees to justify their jobs — is being driven by a group of engineers operating in secrecy.`\
 https://nytimes.com/2025/02/07/us/politics/musk-doge-aides.html
