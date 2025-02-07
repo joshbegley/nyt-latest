@@ -1,3 +1,15 @@
+**Heat Today: Bam Adebayo, Tyler Herro lead Miami's post-Jimmy Butler chapter**\
+`The Butler saga no longer hangs over Miami, and now it's back to the business of basketball.`\
+https://nytimes.com/athletic/6121757/2025/02/07/bam-adebayo-tyler-herro-heat-jimmy-butler-warriors-nba-trade-deadline/
+
+**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
+`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
+https://nytimes.com/athletic/6100448/2025/02/07/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
+
+**A judge in Boston heard arguments on two birthright suits.**\
+`By Jenna Russell`\
+https://nytimes.com/2025/02/07/us/politics/a-judge-in-boston-heard-arguments-on-two-birthright-suits.html
+
 **A judge in Boston heard arguments on two birthright suits.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/a-judge-in-boston-heard-arguments-on-two-birthright-suits
