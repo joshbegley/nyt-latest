@@ -1,3 +1,7 @@
+**Malen and Garcia left out of Villa's Champions League squad**\
+`Marcus Rashford, Axel Disasi and Marco Asensio, however, have been added to Villa's squad for the UCL knockout phase.`\
+https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squad-malen-garcia/
+
 **Is Artificial Intelligence Really Worth the Hype?**\
 `After the arrival of a less costly A.I. model from China, U.S. markets and academics are wrestling with the ultimate economic value of the technology.`\
 https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html

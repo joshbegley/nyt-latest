@@ -1,3 +1,7 @@
+**Malen and Garcia left out of Villa's Champions League squad**\
+`Marcus Rashford, Axel Disasi and Marco Asensio, however, have been added to Villa's squad for the UCL knockout phase.`\
+https://nytimes.com/athletic/6114961/2025/02/07/aston-villa-champions-league-squad-malen-garcia/
+
 **Is Artificial Intelligence Really Worth the Hype?**\
 `After the arrival of a less costly A.I. model from China, U.S. markets and academics are wrestling with the ultimate economic value of the technology.`\
 https://nytimes.com/2025/02/07/business/ai-deepseek-nvidia-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120591/2025/02/07/chiefs-vs-eagles-team-comparison
 **‘Paint Me a Road Out of Here’: Faith Ringgold’s Gift to Prisoners**\
 `In this documentary, the artist depicts what a more just and beautiful world might look like.`\
 https://nytimes.com/2025/02/07/movies/paint-me-a-road-out-of-here-faith-ringgold.html
-
-**U.S.A.I.D. Turmoil Threatens Key Aid Supplies to Gaza, Officials Say**\
-`Washington has funded roughly a third of the aid sent to the enclave since the war began. With most agency workers set to be put on leave, officials say that those supplies are under threat.`\
-https://nytimes.com/2025/02/07/world/middleeast/usaid-trump-gaza-aid.html
 
