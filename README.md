@@ -1,3 +1,7 @@
+**Judge Orders U.S. to Keep Secret a List of F.B.I. Officials Who Worked on Jan. 6 Cases**\
+`The Trump administration argued that the list had been commissioned only for an internal review.`\
+https://nytimes.com/2025/02/07/us/politics/jan-6-fbi-names-secret.html
+
 **Clemson brings custom gear, self-expression and Jazz Chisholm to college baseball**\
 `With the rise of NIL, Clemson Baseball is hoping a focus on fun can set the program apart`\
 https://nytimes.com/athletic/6121296/2025/02/07/clemson-baseball-absolutely-ridiculous-jazz-chisholm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121665/2025/02/07/uswnt-nwsl-transfer-global-socce
 **Young Aides Emerge as Enforcers in Musk’s Broadside Against Government**\
 `Much of the billionaire’s handiwork — gaining access to internal systems and asking employees to justify their jobs — is being driven by a group of engineers operating in secrecy.`\
 https://nytimes.com/2025/02/07/us/politics/musk-doge-aides.html
-
-**Live Bird Markets Ordered to Close in New York After Avian Flu Is Found**\
-`The order affects roughly 80 markets in New York City and in several nearby counties. Gov. Kathy Hochul described it as a “proactive” step to help curb the spread of bird flu.`\
-https://nytimes.com/2025/02/07/nyregion/nyc-bird-flu-markets.html
 
