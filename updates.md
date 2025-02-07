@@ -1,3 +1,7 @@
+**Treasury Installs Musk Ally to Oversee Its Payment System**\
+`Tom Krause, a software executive, is the Treasury Department’s fiscal assistant secretary with access to a system that disburses government funds and includes Americans’ personal information.`\
+https://nytimes.com/2025/02/07/us/politics/treasury-musk-doge-payment-system.html
+
 **Senate G.O.P. unveils its own budget plan, teeing up a fight with the House.**\
 `House Republicans have been toiling unsuccessfully to reach agreement on a fiscal blueprint. Their Senate colleagues are leapfrogging ahead.`\
 https://nytimes.com/2025/02/07/us/politics/senate-republicans-budget-spending.html

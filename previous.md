@@ -1,3 +1,7 @@
+**Treasury Installs Musk Ally to Oversee Its Payment System**\
+`Tom Krause, a software executive, is the Treasury Department’s fiscal assistant secretary with access to a system that disburses government funds and includes Americans’ personal information.`\
+https://nytimes.com/2025/02/07/us/politics/treasury-musk-doge-payment-system.html
+
 **Senate G.O.P. unveils its own budget plan, teeing up a fight with the House.**\
 `House Republicans have been toiling unsuccessfully to reach agreement on a fiscal blueprint. Their Senate colleagues are leapfrogging ahead.`\
 https://nytimes.com/2025/02/07/us/politics/senate-republicans-budget-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122150/2025/02/07/arsenal-martinelli-hamstring-inj
 **Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
 `In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who brings care and finesse to patients’ meals at a Pittsburgh hospital.`\
 https://nytimes.com/2025/02/07/dining/hospital-cook.html
-
-**SMU AD Rick Hart, who helped lead move to ACC, to step down after 13 years**\
-`Hart leaves what's expected to be a highly sought-after job following SMU's conference switch and CFP appearance.`\
-https://nytimes.com/athletic/6121989/2025/02/07/smu-ad-rick-hart-step-down/
 
