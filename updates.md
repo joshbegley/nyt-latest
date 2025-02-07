@@ -1,3 +1,7 @@
+**Giants legend Eli Manning denied entry into Pro Football Hall of Fame**\
+`The two-time Super Bowl MVP will have to wait until next year for another shot at enshrinement. `\
+https://nytimes.com/athletic/6119318/2025/02/06/eli-manning-hall-of-fame-giants-snub/
+
 **Yankees' Brian Cashman: Gleyber Torres was 'unwilling' to change positions**\
 `Cashman said that when he traded for Jazz Chisholm Jr., his intent was for Gleyber Torres to move to third base.`\
 https://nytimes.com/athletic/6120414/2025/02/06/yankees-brian-cashman-gleyber-torres-position-change/
