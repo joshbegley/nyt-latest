@@ -1,3 +1,19 @@
+**West Ham's transfer window reviewed: Potter's Ferguson reunion provides an option up top - for now**\
+`West Ham's biggest changes during the winter window happened off the pitch but they did win the race for a sought-after striker`\
+https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-ferguson-ward-prowse/
+
+**Marco Asensio's Aston Villa arrival - and a chance to put his career back on track**\
+`Villa's confidence in their new loan signing comes from Emery's desire to provide a stable environment for players who have lost their way`\
+https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transfer-real-madrid-psg/
+
+**Nwaneri has seven matches to beat a record set by Michael Owen and Wayne Rooney**\
+`Can he match two of the greatest talents English football has seen?`\
+https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-to-beat-a-record-set-by-michael-owen-and-wayne-rooney/
+
+**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
+`Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
+https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
+
 **Why Nuno's tactical flexibility is Forest's secret weapon**\
 `Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
 https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
