@@ -1,3 +1,7 @@
+**‘Demon Copperhead’ Explored Addiction. Its Profits Built a Rehab Center.**\
+`Barbara Kingsolver has put royalties from her Pulitzer Prize-winning novel to work in the region it portrayed, starting a home for women in recovery.`\
+https://nytimes.com/2025/02/07/books/barbara-kingsolver-demon-copperhead-recovery.html
+
 **Watch: Who has the most at stake at Super Bowl LIX?**\
 `The Athletic Football Show hosts discuss who has the most to gain from a Super Bowl win on Sunday.`\
 https://nytimes.com/athletic/6121026/2025/02/07/athletic-football-show-super-bowl-lix-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120765/2025/02/07/nhl-power-rankings-new-no-1/
 **Plane Crashes Into Street in Brazil, Killing 2**\
 `Six people on the ground were also injured by the plane, part of which struck a bus on the road when it crashed.`\
 https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
-
-**Steelers to be home team for NFL's first regular-season game in Ireland**\
-`The Rooney family that owns the Steelers has a long and deep connection to Ireland.`\
-https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
 

@@ -1,3 +1,7 @@
+**‘Demon Copperhead’ Explored Addiction. Its Profits Built a Rehab Center.**\
+`Barbara Kingsolver has put royalties from her Pulitzer Prize-winning novel to work in the region it portrayed, starting a home for women in recovery.`\
+https://nytimes.com/2025/02/07/books/barbara-kingsolver-demon-copperhead-recovery.html
+
 **Watch: Who has the most at stake at Super Bowl LIX?**\
 `The Athletic Football Show hosts discuss who has the most to gain from a Super Bowl win on Sunday.`\
 https://nytimes.com/athletic/6121026/2025/02/07/athletic-football-show-super-bowl-lix-preview/
