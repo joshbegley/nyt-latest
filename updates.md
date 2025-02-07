@@ -1,3 +1,15 @@
+**Review: Strauss’s ‘Salome,’ Squeezed Down to Some Clarinets**\
+`Heartbeat Opera specializes in daring reductions of the classics, and this may be its most implausible undertaking yet.`\
+https://nytimes.com/2025/02/07/arts/music/heartbeat-opera-salome-review.html
+
+**Congo Buries Its Dead After Rebel Assault**\
+`A single image captures the grim task facing those who needed to find space for the dead after a spasm of violence in Central Africa.`\
+https://nytimes.com/2025/02/07/world/africa/congo-photo-burial.html
+
+**Canelo Alvarez signs 4-fight deal with Riyadh, Crawford eyes megafight**\
+`Alvarez and Crawford are slated to fight on Sept. 13 at Allegiant Stadium in Las Vegas, the weekend ahead of Mexican Independence Day.`\
+https://nytimes.com/athletic/6120377/2025/02/07/canelo-alvarez-riyadh-season-deal-terence-crawford/
+
 **Ben Simmons working toward buyout, to meet with Cavs, Clippers, Rockets**\
 `Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
 https://nytimes.com/athletic/6121593/2025/02/07/ben-simmons-working-toward-buyout-with-nets-to-meet-with-cavaliers-clippers-rockets-source/
