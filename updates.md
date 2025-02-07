@@ -1,3 +1,15 @@
+**Giants spring guide: 32 thoughts for 32 pitchers, from Beck to Verlander to Winn**\
+`A brief look at the 32 pitchers the Giants are bringing to Scottsdale when major-league camp opens in a few days.`\
+https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-preview/
+
+**Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
+`President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
+https://nytimes.com/2025/02/07/us/politics/trump-nippon-steel-us.html
+
+**Mike Woodson stepping down as Indiana head coach at season's end**\
+`Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
+https://nytimes.com/athletic/6119966/2025/02/07/indiana-basketball-mike-woodson-future/
+
 **Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
 `President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-nippon-steel-us-steel
