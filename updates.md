@@ -1,3 +1,7 @@
+**Pedri and the passes**\
+`The Barcelona midfielder is playing deeper under Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
+https://nytimes.com/athletic/6120079/2025/02/07/pedri-barcelona-flick-passes/
+
 **N.Y.U. Parent Has an Idea: Deport Hamas Supporters on Campus**\
 `The founder of Mothers Against College Antisemitism advised the group’s over 61,000 followers to take advantage of a new executive order allowing the deportation of Hamas supporters.`\
 https://nytimes.com/2025/02/07/nyregion/nyu-parent-has-an-idea-deport-hamas-supporters-on-campus.html
