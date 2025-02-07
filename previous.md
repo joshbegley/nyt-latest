@@ -1,3 +1,7 @@
+**Young Aides Emerge as Enforcers in Musk’s Broadside Against Government**\
+`Much of the billionaire’s handiwork — gaining access to internal systems and asking employees to justify their jobs — is being driven by a group of engineers operating in secrecy.`\
+https://nytimes.com/2025/02/07/us/politics/musk-doge-aides.html
+
 **Live Bird Markets Ordered to Close in New York After Avian Flu Is Found**\
 `The order affects roughly 80 markets in New York City and in several nearby counties. Gov. Kathy Hochul described it as a “proactive” step to help curb the spread of bird flu.`\
 https://nytimes.com/2025/02/07/nyregion/nyc-bird-flu-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121870/2025/02/07/nba-futures-odds-jimmy-butler/
 **9 Spellbinding Songs About Magic**\
 `Lady Gaga’s latest has inspired a playlist.`\
 https://nytimes.com/2025/02/07/arts/music/amplifier-newsletter-magic-songs.html
-
-**My Favorite Argument for the Existence of God**\
-`We, ourselves, are part of the proof.`\
-https://nytimes.com/2025/02/07/opinion/religion-god.html
 
