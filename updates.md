@@ -1,3 +1,11 @@
+**The E.P.A. orders a review of funding from the 2022 climate law.**\
+`A memo to`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-epa-orders-a-review-of-funding-from-the-2022-climate-law
+
+**Critics Choice Awards Photos: All the Looks From the 2025 Red Carpet**\
+`See what the biggest stars of film and television wore to make their entrances at the Critics Choice Awards, hosted by Chelsea Handler in Santa Monica, Calif.`\
+https://nytimes.com/2025/02/07/style/critics-choice-red-carpet-photos-2025.html
+
 **Tottenham's Van de Ven out of Villa match**\
 `Ange Postecoglou has admitted that Micky van de Ven’s injury is “a bit of a slow burner”, amid uncertainty over when the centre-back will return to the Tottenham Hotspur team.`\
 https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-tottenham/

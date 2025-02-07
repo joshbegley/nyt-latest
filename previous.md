@@ -1,3 +1,11 @@
+**The E.P.A. orders a review of funding from the 2022 climate law.**\
+`A memo to`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-epa-orders-a-review-of-funding-from-the-2022-climate-law
+
+**Critics Choice Awards Photos: All the Looks From the 2025 Red Carpet**\
+`See what the biggest stars of film and television wore to make their entrances at the Critics Choice Awards, hosted by Chelsea Handler in Santa Monica, Calif.`\
+https://nytimes.com/2025/02/07/style/critics-choice-red-carpet-photos-2025.html
+
 **Tottenham's Van de Ven out of Villa match**\
 `Ange Postecoglou has admitted that Micky van de Ven’s injury is “a bit of a slow burner”, amid uncertainty over when the centre-back will return to the Tottenham Hotspur team.`\
 https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/trump-icc.html
 **How Alcohol Affects Your Gut**\
 `If you have gut problems, alcohol might be contributing to them. Alice Callahan, a reporter covering nutrition and health for The New York Times, describes several common effects.`\
 https://nytimes.com/video/well/100000009971648/how-alcohol-affects-your-gut.html
-
-**An El Greco Is Pulled From an Auction as Romania Objects**\
-`The Romanian government has long sought dozens of valuable paintings that it says the country’s last king took into exile in 1947.`\
-https://nytimes.com/2025/02/07/arts/design/el-greco-painting-christies-romania-government.html
-
-**Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
-`A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
-https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
 
