@@ -1,3 +1,43 @@
+**'The guy shouldn't have a job' – Reilly Opelka calls for umpire to be suspended by ATP**\
+`Opelka criticized the umpire after he was penalized for twice swearing at a spectator, describing him as 'amateur hour' and 'bush league.'`\
+https://nytimes.com/athletic/6120977/2025/02/07/reilly-opelka-greg-allensworth-umpire-dallas-open/
+
+**Solid Labor Market Gives Fed Cover to Extend Rate Pause**\
+`The central bank is grappling with how quickly to lower interest rates after pausing cuts last month.`\
+https://nytimes.com/2025/02/07/business/economy/jobs-federal-reserve-interest-rates.html
+
+**Live Updates: U.S. Jobs Report Expected to Show a January Gain of 175,000**\
+`The employment data is forecast to show a strong labor market on the eve of the transition to the administration of President Trump.`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy
+
+**Explaining the Penguins' latest business changes as a key executive resigns**\
+`Fenway Sports Group will need to find a new Penguins president of business operations. Here's what we know.`\
+https://nytimes.com/athletic/6119331/2025/02/07/penguins-owners-fsg-kevin-acklin/
+
+**NFL coaches pick the Super Bowl: Eagles better on paper, but is Mahomes the difference?**\
+`Five coaches helped us break down the Super Bowl matchup, where a loaded Eagles team meets Patrick Mahomes, the great equalizer.`\
+https://nytimes.com/athletic/6119528/2025/02/07/nfl-super-bowl-picks-chiefs-eagles-coaches/
+
+**Emma Hayes outlines long-term strategy for U.S. women's national team**\
+`Hayes says that by creating the best environments, the U.S. will continue to win`\
+https://nytimes.com/athletic/6120078/2025/02/07/emma-hayes-uswnt-way-soccer/
+
+**Cubs spring guide: 26 thoughts on 26 hitters as the Kyle Tucker era begins**\
+`Unless there’s a last-minute addition, this will be the group of position players surrounding Kyle Tucker in spring training.`\
+https://nytimes.com/athletic/6119035/2025/02/07/chicago-cubs-spring-guide-hitters/
+
+**'Emotion is a double-edged sword': Inside the Tortorella-Michkov spat**\
+`As the rookie goes through the process of trying to figure out the NHL, his coach will be there to push his buttons from time to time.`\
+https://nytimes.com/athletic/6120332/2025/02/07/flyers-matvei-michkov-john-tortorella/
+
+**Is the national criticism of Connor Bedard fair? Breaking down his shifts**\
+`Recent nationally televised games mean more eyes on Bedard's play, for good or bad. Let's take a closer look.`\
+https://nytimes.com/athletic/6119388/2025/02/07/connor-bedard-national-criticism-nhl-blackhawks-oilers/
+
+**'It’s a test of character, a test of your will': Rielly opens up about losing his swagger**\
+`January was a particularly rough stretch for the Leafs' longest-serving player, but Rielly is starting to feel like himself again.`\
+https://nytimes.com/athletic/6120104/2025/02/07/morgan-rielly-toronto-maple-leafs-breaking-slump/
+
 **Netflix considering bid for Formula 1's U.S. TV rights**\
 `ESPN has broadcast F1 in the U.S. since 2017 but its contract expires after the upcoming 2025 season.`\
 https://nytimes.com/athletic/6120990/2025/02/07/formula-1-netflix-tv-espn/

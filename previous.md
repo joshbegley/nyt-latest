@@ -1,40 +1,40 @@
-**Netflix considering bid for Formula 1's U.S. TV rights**\
-`ESPN has broadcast F1 in the U.S. since 2017 but its contract expires after the upcoming 2025 season.`\
-https://nytimes.com/athletic/6120990/2025/02/07/formula-1-netflix-tv-espn/
+**'The guy shouldn't have a job' – Reilly Opelka calls for umpire to be suspended by ATP**\
+`Opelka criticized the umpire after he was penalized for twice swearing at a spectator, describing him as 'amateur hour' and 'bush league.'`\
+https://nytimes.com/athletic/6120977/2025/02/07/reilly-opelka-greg-allensworth-umpire-dallas-open/
 
-**Pakistan to Force Tens of Thousands of Afghan Refugees Out of the Capital**\
-`The order, giving Afghans until March 31 to go elsewhere in Pakistan, came on the heels of President Trump’s suspension of refugee admissions to the United States.`\
-https://nytimes.com/2025/02/07/world/asia/pakistan-afghanistan-refugees.html
+**Solid Labor Market Gives Fed Cover to Extend Rate Pause**\
+`The central bank is grappling with how quickly to lower interest rates after pausing cuts last month.`\
+https://nytimes.com/2025/02/07/business/economy/jobs-federal-reserve-interest-rates.html
 
-**At a Draft Site in Ukraine, an Anguished Wait for a Chance to Say Goodbye**\
-`The Ukrainian authorities are rounding up recruits. Relatives huddle at a center on the edge of Kyiv for a chance to see loved ones before they’re shipped to war.`\
-https://nytimes.com/2025/02/07/world/europe/ukraine-war-troops-draft-recruitment.html
+**Live Updates: U.S. Jobs Report Expected to Show a January Gain of 175,000**\
+`The employment data is forecast to show a strong labor market on the eve of the transition to the administration of President Trump.`\
+https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy
 
-**Winter Storm Marches East, Promising a Snowy Weekend for Many**\
-`Another winter storm will rush across the Midwest and the Northeast this weekend, bringing snow and ice along the way.`\
-https://nytimes.com/2025/02/07/weather/snow-ice-northeast.html
+**Explaining the Penguins' latest business changes as a key executive resigns**\
+`Fenway Sports Group will need to find a new Penguins president of business operations. Here's what we know.`\
+https://nytimes.com/athletic/6119331/2025/02/07/penguins-owners-fsg-kevin-acklin/
 
-**Farm system heat check: What’s the immediate and future outlook for the New York Mets**\
-`Brandon Sproat will start the season at Triple A but could make his debut by the end of the season. Who else is on the way?`\
-https://nytimes.com/athletic/6120057/2025/02/07/mets-farm-system-heat-check/
+**NFL coaches pick the Super Bowl: Eagles better on paper, but is Mahomes the difference?**\
+`Five coaches helped us break down the Super Bowl matchup, where a loaded Eagles team meets Patrick Mahomes, the great equalizer.`\
+https://nytimes.com/athletic/6119528/2025/02/07/nfl-super-bowl-picks-chiefs-eagles-coaches/
 
-**Notre Dame faces more questions than usual on defense. How many answers does it have?**\
-`New defensive coordinator Chris Ash has a tough act to follow and questions to answer, but Notre Dame has intriguing potential.`\
-https://nytimes.com/athletic/6119604/2025/02/07/notre-dame-football-roster-2025-defense/
+**Emma Hayes outlines long-term strategy for U.S. women's national team**\
+`Hayes says that by creating the best environments, the U.S. will continue to win`\
+https://nytimes.com/athletic/6120078/2025/02/07/emma-hayes-uswnt-way-soccer/
 
-**How Dusty May blended Bob Knight's old-school teachings with a new-school appraoch**\
-`May, a student basketball manager at Indiana in the late 1990s, will return to Bloomington on Saturday as Michigan's head coach.`\
-https://nytimes.com/athletic/6118662/2025/02/07/dusty-may-michigan-indiana-bob-knight/
+**Cubs spring guide: 26 thoughts on 26 hitters as the Kyle Tucker era begins**\
+`Unless there’s a last-minute addition, this will be the group of position players surrounding Kyle Tucker in spring training.`\
+https://nytimes.com/athletic/6119035/2025/02/07/chicago-cubs-spring-guide-hitters/
 
-**Trump’s Gaza Plan Complicates Hoped-for Saudi-Israeli Deal**\
-`President Trump wants to broker normal ties between Saudi Arabia and Israel, but his proposal to transfer Palestinians out of Gaza just made that a lot harder.`\
-https://nytimes.com/2025/02/07/world/middleeast/trumps-saudi-israel-palestinians.html
+**'Emotion is a double-edged sword': Inside the Tortorella-Michkov spat**\
+`As the rookie goes through the process of trying to figure out the NHL, his coach will be there to push his buttons from time to time.`\
+https://nytimes.com/athletic/6120332/2025/02/07/flyers-matvei-michkov-john-tortorella/
 
-**Can Brandon Ingram get it right with Raptors after frustrating tenure in New Orleans?**\
-`Eric Koreen and Will Guillory break down the trade between the Pelicans and Raptors that sent Ingram to Toronto.`\
-https://nytimes.com/athletic/6120297/2025/02/07/brandon-ingram-raptors-trade-pelicans/
+**Is the national criticism of Connor Bedard fair? Breaking down his shifts**\
+`Recent nationally televised games mean more eyes on Bedard's play, for good or bad. Let's take a closer look.`\
+https://nytimes.com/athletic/6119388/2025/02/07/connor-bedard-national-criticism-nhl-blackhawks-oilers/
 
-**Phillies farm system heat check: What's the immediate and future outlook?**\
-`Here's a look at the Phillies' top prospects and what the Opening Day roster could look like in two years.`\
-https://nytimes.com/athletic/6113383/2025/02/07/phillies-farm-system-prospects-outlook/
+**'It’s a test of character, a test of your will': Rielly opens up about losing his swagger**\
+`January was a particularly rough stretch for the Leafs' longest-serving player, but Rielly is starting to feel like himself again.`\
+https://nytimes.com/athletic/6120104/2025/02/07/morgan-rielly-toronto-maple-leafs-breaking-slump/
 
