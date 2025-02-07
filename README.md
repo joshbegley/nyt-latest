@@ -1,3 +1,11 @@
+**Jimmy Butler, Zach LaVine and more fantasy basketball trade deadline winners, losers**\
+`Eric Wong looks at the teams most impacted by the NBA trade deadline and the players who will be most helped or hurt by those deals.`\
+https://nytimes.com/athletic/6121787/2025/02/07/fantasy-basketball-trade-deadline-winners-losers-jimmy-butler-luka-doncic/
+
+**Former Adams Aide to Plead Guilty to Conspiracy in Straw Donations Case**\
+`The aide, Mohamed Bahi, had been accused of telling a witness to lie to federal agents investigating illegal contributions to the mayor’s campaign.`\
+https://nytimes.com/2025/02/07/nyregion/adams-corruption-bahi-plea.html
+
 **Doechii’s Victory Lap, and 10 More New Songs**\
 `Hear tracks from Valerie June, Coi Leray, Destroyer and others.`\
 https://nytimes.com/2025/02/07/arts/music/playlist-doechii-lady-gaga.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6121873/2025/02/07/rio-ngumoha-liverpool-champions-
 **Democratic senators press Rubio over changes at the U.S. foreign aid agency.**\
 `In a letter, Senate Democrats pushed Secretary of State Marco Rubio for details about the Trump administration’s plans for U.S.A.I.D. They also demanded answers on legal authority over the agency’s funding.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/marco-rubio-usaid
-
-**As figure skating honors victims, it also readies its youth for 'a lifelong process'**\
-`As communities grieve and offer prayers for those killed in the crash, there’s an entire generation of young skaters trying to sort it out.`\
-https://nytimes.com/athletic/6120660/2025/02/07/figure-skating-crash-victims-grief-memorials/
-
-**Texas Tech keeping GM James Blanchard after Notre Dame pursuit**\
-`Blanchard received a three-year deal to stay in Lubbock through 2027 with a total value of $1.575 million, per a source.`\
-https://nytimes.com/athletic/6121748/2025/02/07/texas-tech-james-blanchard-notre-dame-gm/
 
