@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-f
 https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
 
 **Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
-`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
+`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes from a first Anfield trophy`\
 https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
 
