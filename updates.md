@@ -1,3 +1,15 @@
+**Chelsea to play Man City in UWCL quarter-finals**\
+`The quarter-final first legs will be played over March 18 and 19 with the second legs coming the following week.`\
+https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fixtures/
+
+**Maresca: Nkunku ready for bigger role at Chelsea**\
+`The 27-year-old forward has started only twice in the Premier League this season but has scored 13 goals in all competitions.`\
+https://nytimes.com/athletic/6121158/2025/02/07/christopher-nkunku-chelsea-maresca/
+
+**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed-dating at Molineux**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
+https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
+
 **Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
 `Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
 https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html

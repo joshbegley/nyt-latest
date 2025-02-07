@@ -1,3 +1,11 @@
+**Chelsea to play Man City in UWCL quarter-finals**\
+`The quarter-final first legs will be played over March 18 and 19 with the second legs coming the following week.`\
+https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fixtures/
+
+**Maresca: Nkunku ready for bigger role at Chelsea**\
+`The 27-year-old forward has started only twice in the Premier League this season but has scored 13 goals in all competitions.`\
+https://nytimes.com/athletic/6121158/2025/02/07/christopher-nkunku-chelsea-maresca/
+
 **Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
 `Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
 https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6117282/2025/02/07/anthony-edwards-dillon-brooks-ti
 `The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
 https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
 
-**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
-`Tim Spiers takes a look at the sillier side of football this week`\
+**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed-dating at Molineux**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
 
 **The Pulse: An NFL MVP first since 1987**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6121078/2025/02/07/liverpool-tottenham-carabao-cup-
 **Man City add Marmoush, Nico, Khusanov to Champions League squad**\
 `City made four signings in the transfer window but were only allowed to add three players to their Champions League squad.`\
 https://nytimes.com/athletic/6118980/2025/02/07/manchester-city-champions-league-squad-reis/
-
-**NHL trade board 6.0: Latest on the top targets heading into the 4 Nations break**\
-`The Big Board has been decimated by a flurry of activity in recent weeks. Who's left and demands watching? Here are our latest top targets.`\
-https://nytimes.com/athletic/6118824/2025/02/07/nhl-trade-board-nelson-byram-jones/
-
-**49ers NFL Draft big board: 26 players to watch at 4 big-bodied positions of need**\
-`If the 49ers are intent on filling their trenches this offseason, they'll find plenty of options in the draft, especially on defense.`\
-https://nytimes.com/athletic/6119303/2025/02/07/49ers-2025-nfl-draft-big-board/
 
