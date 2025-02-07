@@ -1,3 +1,19 @@
+**N.Y.U. Parent Has an Idea: Deport Hamas Supporters on Campus**\
+`The founder of Mothers Against College Antisemitism advised the group’s over 61,000 followers to take advantage of a new executive order allowing the deportation of Hamas supporters.`\
+https://nytimes.com/2025/02/07/nyregion/nyu-parent-has-an-idea-deport-hamas-supporters-on-campus.html
+
+**Tree and Frames**\
+`Tell a story, real or made up, that connects three or more of the elements in this image.`\
+https://nytimes.com/2025/02/07/learning/tree-and-frames.html
+
+**The Lawyer Priest From Ireland Who Counsels New York’s Immigrants**\
+`Msgr. James Kelly has been helping people obtain citizenship since he moved to Brooklyn in 1960. His job has never felt more urgent, or more controversial.`\
+https://nytimes.com/2025/02/07/nyregion/nyc-immigrants-trump-brooklyn.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/07/crosswords/spelling-bee-forum.html
+
 **FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
 `Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25`\
 https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arn
 **How Thatcher Demko, Drew O'Connor helped Canucks avoid a slip: 3 takeaways**\
 `Vancouver got an overtime victory in San Jose thanks to an O'Connor penalty shot goal.`\
 https://nytimes.com/athletic/6120773/2025/02/07/thatcher-demko-drew-oconnor-canucks-sharks/
-
-**Word of the Day: intelligible**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/07/learning/word-of-the-day-intelligible.html
-
-**Maple Leafs report cards: Stellar Stolarz and a bit of luck lead to win in Seattle**\
-`Buoyed by some good fortune and strong goaltending, Leafs extend winning streak to three games with 3-1 win over Kraken.`\
-https://nytimes.com/athletic/6120442/2025/02/07/maple-leafs-kraken-nhl-report-cards/
-
-**Trump Signs Order to Fight ‘Anti-Christian Bias’**\
-`The president convened a task force to “prosecute anti-Christian violence and vandalism.” Critics said he’d turned religious freedom on its head by singling out one faith.`\
-https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-christian-bias.html
-
-**Reimagining the American War Machine**\
-`The biggest challenge for any peacetime military is preparing for the next war.`\
-https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
 
