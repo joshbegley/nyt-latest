@@ -1,3 +1,11 @@
+**Commanders big board: 4 positions to consider in the first round**\
+`Outside of the quarterback position, Washington has needs up and down its roster. Which players should the team consider in Round 1?`\
+https://nytimes.com/athletic/6120861/2025/02/07/commanders-big-board-2025-nfl-draft/
+
+**Hollinger: Why the trade deadline was all about 2026 — and Victor Wembanyama**\
+`Even though it's 16 months away, summer 2026 was the dominant factor in this week's surge of deadline dealing.`\
+https://nytimes.com/athletic/6120364/2025/02/07/nba-trade-deadline-free-agency-2026-wembanyama/
+
 **Mikko Rantanen is off to a slow start with the Hurricanes: Is it time to panic?**\
 `Rantanen has one goal and one assist in six games since the big trade. What's going on?`\
 https://nytimes.com/athletic/6120629/2025/02/07/mikko-rantanen-hurricanes-trade/
