@@ -1,3 +1,11 @@
+**Jimmy Butler, Zach LaVine and more fantasy basketball trade deadline winners, losers**\
+`Eric Wong looks at the teams most impacted by the NBA trade deadline and the players who will be most helped or hurt by those deals.`\
+https://nytimes.com/athletic/6121787/2025/02/07/fantasy-basketball-trade-deadline-winners-losers-jimmy-butler-luka-doncic/
+
+**Former Adams Aide to Plead Guilty to Conspiracy in Straw Donations Case**\
+`The aide, Mohamed Bahi, had been accused of telling a witness to lie to federal agents investigating illegal contributions to the mayor’s campaign.`\
+https://nytimes.com/2025/02/07/nyregion/adams-corruption-bahi-plea.html
+
 **Doechii’s Victory Lap, and 10 More New Songs**\
 `Hear tracks from Valerie June, Coi Leray, Destroyer and others.`\
 https://nytimes.com/2025/02/07/arts/music/playlist-doechii-lady-gaga.html
