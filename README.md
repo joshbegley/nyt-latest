@@ -1,3 +1,11 @@
+**Marco Asensio's Aston Villa arrival - and a chance to put his career back on track**\
+`Villa's confidence in their new loan signing comes from Emery's desire to provide a stable environment for players who have lost their way`\
+https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transfer-real-madrid-psg/
+
+**Nwaneri has seven matches to beat a record set by Michael Owen and Wayne Rooney**\
+`Can he match two of the greatest talents English football has seen?`\
+https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-to-beat-a-record-set-by-michael-owen-and-wayne-rooney/
+
 **Why Nuno's tactical flexibility is Forest's secret weapon**\
 `Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
 https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6118354/2025/02/07/world-cup-2026-soccer-advertisin
 **From surprise Manchester United return to toils at Leicester: Ruud van Nistelrooy's surreal seven months**\
 `Dutchman who returned to football as United's No 2 last summer is now back at Old Trafford with a Leicester team labouring against the drop`\
 https://nytimes.com/athletic/6118365/2025/02/07/nistelrooy-ruud-manchester-united-leicester-city-surreal/
-
-**Glasner, Amorim and the 3-4-2-1: Why Palace are flourishing as United flounder**\
-`The Austrian's success in implementing his style of play at Palace should provide a pointer for United as they strive for tactical evolution`\
-https://nytimes.com/athletic/6112275/2025/02/07/amorim-glasner-manchester-united-crystal-palace-tactics/
-
-**Friday Briefing**\
-`U.S. sanctions on the International Criminal Court.`\
-https://nytimes.com/2025/02/07/briefing/sanctions-icc-trump-warming.html
 
