@@ -1,3 +1,19 @@
+**In fiery words, the federal prosecutor in Washington promises an inquiry into allegations raised by Musk.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/federal-prosecutor-ed-martin-elon-musk
+
+**Champions League knockout underdog bets: Can Man City boot out Madrid?**\
+`Brett Koremenos breaks down the matchups and qualification odds for every tie of the Champions League play-off round. Who has value?`\
+https://nytimes.com/athletic/6121074/2025/02/07/champions-league-underdog-bets-manchester-city-real-madrid/
+
+**NBA trade deadline effects I'm watching: Anthony Davis' fit, Kyle Kuzma's habits and more**\
+`Can Dallas replicate Cleveland's two-man game now that it has Anthony Davis? Can Kyle Kuzma can be the next P.J. Washington? `\
+https://nytimes.com/athletic/6121387/2025/02/07/anthony-davis-trade-kyle-kuzma/
+
+**After New Orleans’s Super Bowl Makeover, Some Residents Say: What About Us?**\
+`Streetlights and sidewalks have been installed. Broken pavement has been replaced. But residents say the work should continue after the Super Bowl leaves.`\
+https://nytimes.com/2025/02/07/us/super-bowl-new-orleans.html
+
 **Treasury Installs Musk Ally to Oversee Its Payment System**\
 `Tom Krause, a software executive, is the Treasury Department’s fiscal assistant secretary with access to a system that disburses government funds and includes Americans’ personal information.`\
 https://nytimes.com/2025/02/07/us/politics/treasury-musk-doge-payment-system.html
