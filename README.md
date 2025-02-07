@@ -1,3 +1,19 @@
+**Democrats, Under New Leader, Join Fight Against Georgia Election Rules**\
+`One of the D.N.C.’s first official moves with Ken Martin at the helm is joining a lawsuit seeking to block the hand-counting of ballots in Georgia.`\
+https://nytimes.com/2025/02/07/us/politics/democrats-georgia-ballot-law-trump.html
+
+**Trump Calls Directly for Closure of U.S.A.I.D.**\
+`The president’s demand to end the U.S. Agency for International Development came as the vast majority of the agency’s employees were expecting to be placed on indefinite administrative leave`\
+https://nytimes.com/2025/02/07/us/politics/usaid-trump.html
+
+**Should Your Partner Really Be Your Best Friend?**\
+`Expecting a spouse to be both friend and lover is a relatively new concept. Some think it’s asking too much.`\
+https://nytimes.com/2025/02/07/well/family/husband-wife-best-friend.html
+
+**How a Family’s Life Is Upended in ‘I’m Still Here’**\
+`The film’s director, Walter Salles, narrates a sequence from his film, which is nominated for best picture. Its star, Fernanda Torres is nominated for best actress.`\
+https://nytimes.com/2025/02/07/movies/im-still-here-clip.html
+
 **‘I’m Still Here’ | Anatomy of a Scene**\
 `The director Walter Salles narrates a scene from his film, which has an Oscar nomination for best picture.`\
 https://nytimes.com/video/movies/100000009967354/im-still-here-scene.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6121500/2025/02/07/ravens-derrick-henry-nfl-finish-
 **Three added to Spurs' Europa League squad but Kinsky left out**\
 `Kinsky, 21, joined Spurs at the beginning of January and has been the club's No 1 in the league with Guglielmo Vicario out injured.`\
 https://nytimes.com/athletic/6114941/2025/02/07/tottenham-europa-league-squad-tel-spence-kinsky/
-
-**‘Demon Copperhead’ Explored Addiction. Its Profits Built a Rehab Center.**\
-`Barbara Kingsolver has put royalties from her Pulitzer Prize-winning novel to work in the region it portrayed, starting a home for women in recovery.`\
-https://nytimes.com/2025/02/07/books/barbara-kingsolver-demon-copperhead-recovery.html
-
-**Watch: Who has the most at stake at Super Bowl LIX?**\
-`The Athletic Football Show hosts discuss who has the most to gain from a Super Bowl win on Sunday.`\
-https://nytimes.com/athletic/6121026/2025/02/07/athletic-football-show-super-bowl-lix-preview/
-
-**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
-`Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
-https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
-
-**Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
-`The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
-https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
 
