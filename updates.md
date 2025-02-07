@@ -1,3 +1,11 @@
+**Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
+`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
+https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
+
+**Trump Defended Musk’s Cost-Cutting Effort**\
+`Also, a judge paused job cuts at U.S.A.I.D. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/02/07/briefing/trump-elon-musk-pentagon-usaid-job-cuts.html
+
 **Monica Getz, Advocate for Divorce Court Reform, Dies at 90**\
 `Her troubled marriage to the jazz star Stan Getz led to a headline-making divorce case. The result of the trial gave her a cause to fight for.`\
 https://nytimes.com/2025/02/07/us/monica-getz-dead.html

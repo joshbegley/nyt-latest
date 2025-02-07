@@ -1,3 +1,11 @@
+**Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
+`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
+https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
+
+**Trump Defended Musk’s Cost-Cutting Effort**\
+`Also, a judge paused job cuts at U.S.A.I.D. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/02/07/briefing/trump-elon-musk-pentagon-usaid-job-cuts.html
+
 **Monica Getz, Advocate for Divorce Court Reform, Dies at 90**\
 `Her troubled marriage to the jazz star Stan Getz led to a headline-making divorce case. The result of the trial gave her a cause to fight for.`\
 https://nytimes.com/2025/02/07/us/monica-getz-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/us/ohio-chicken-farm-fire.html
 **Hegseth Uses His First Town Hall to Attack Diversity**\
 `The defense secretary, speaking to the Pentagon work force, defended his “unconventional approaches” to an audience that included women and people of color.`\
 https://nytimes.com/2025/02/07/us/politics/hegseth-pentagon-town-hall.html
-
-**Kyle Kuzma 'grateful' to be with Bucks and play 'winning basketball' again**\
-`What role the 29-year-old forward will fill is unclear, but he's eager to contribute alongside Giannis Antetokounmpo and Damian Lillard.`\
-https://nytimes.com/athletic/6115098/2025/02/07/kyle-kuzma-bucks-giannis-lillard/
-
-**Why Is Trump Targeting the International Criminal Court?**\
-`President Trump says the work of the I.C.C., the world’s highest criminal court, threatens the national security of the United States and its allies, including Israel.`\
-https://nytimes.com/2025/02/07/us/politics/trump-icc.html
 
