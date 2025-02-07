@@ -1,3 +1,11 @@
+**Commanders big board: 4 positions to consider in the first round**\
+`Outside of the quarterback position, Washington has needs up and down its roster. Which players should the team consider in Round 1?`\
+https://nytimes.com/athletic/6120861/2025/02/07/commanders-big-board-2025-nfl-draft/
+
+**Hollinger: Why the trade deadline was all about 2026 — and Victor Wembanyama**\
+`Even though it's 16 months away, summer 2026 was the dominant factor in this week's surge of deadline dealing.`\
+https://nytimes.com/athletic/6120364/2025/02/07/nba-trade-deadline-free-agency-2026-wembanyama/
+
 **Mikko Rantanen is off to a slow start with the Hurricanes: Is it time to panic?**\
 `Rantanen has one goal and one assist in six games since the big trade. What's going on?`\
 https://nytimes.com/athletic/6120629/2025/02/07/mikko-rantanen-hurricanes-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
 **‘He’s Just Old and Homeless’: California Jail Death Leads to Accusations of Neglect**\
 `Court-appointed monitors of Sacramento County jails say a man’s fatal overdose was one of multiple deaths in which deputies and nurses exhibited a “callous” indifference toward detainees.`\
 https://nytimes.com/2025/02/07/us/california-jail-death-sacramento-county-neglect.html
-
-**Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
-`New signing Mathis Amougou has also been added to Chelsea's squad for the knockout phase.`\
-https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
-
-**Revisions show slower job growth but a still-solid labor market.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
 
