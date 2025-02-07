@@ -1,3 +1,7 @@
+**Ben Simmons working toward buyout, to meet with Cavs, Clippers, Rockets**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/07/ben-simmons-working-toward-buyout-with-nets-to-meet-with-cavaliers-clippers-rockets-source/
+
 **Plane Crashes Into Street in Brazil Shortly After Takeoff**\
 `Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
 https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121022/2025/02/07/gavrikov-kings-contract-trade-uf
 **Democrats, Under New Leader, Join Fight Against Georgia Election Rules**\
 `One of the D.N.C.’s first official moves with Ken Martin at the helm is joining a lawsuit seeking to block the hand-counting of ballots in Georgia.`\
 https://nytimes.com/2025/02/07/us/politics/democrats-georgia-ballot-law-trump.html
-
-**Trump Calls Directly for Closure of U.S.A.I.D.**\
-`The president’s demand to end the U.S. Agency for International Development came as the vast majority of the agency’s employees were expecting to be placed on indefinite administrative leave`\
-https://nytimes.com/2025/02/07/us/politics/usaid-trump.html
 
