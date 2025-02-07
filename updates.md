@@ -1,3 +1,7 @@
+**Vecenie: The good, the bad and the ugly of the NBA trade deadline**\
+`After a frenzied and often bold series of moves, which teams helped and hurt themselves the most? And what are the Bulls doing, exactly? `\
+https://nytimes.com/athletic/6117566/2025/02/07/nba-trade-deadline-review-lakers-mavericks/
+
 **Can Movie Stars Handle Greek Classics? London Is Finding Out.**\
 `Sophocles is suddenly everywhere on the city’s stages. In concurrent shows, Rami Malek is playing Oedipus and Brie Larson is taking on Elektra.`\
 https://nytimes.com/2025/02/07/theater/rami-malek-oedpius-brie-larson-elektra-sophocles-london.html
