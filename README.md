@@ -1,3 +1,11 @@
+**Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
+`Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
+https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html
+
+**Anthony Edwards teaches Dillon Brooks a lesson: Don't poke the Wolf**\
+`Edwards scored more than 40 points for the second straight night, finding an energy boost from Houston's chippy, chirpy ways. `\
+https://nytimes.com/athletic/6117282/2025/02/07/anthony-edwards-dillon-brooks-timberwolves-rockets/
+
 **I.C.C. Pushes Back on Trump Order Imposing Sanctions on It**\
 `The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
 https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6118824/2025/02/07/nhl-trade-board-nelson-byram-jon
 **49ers NFL Draft big board: 26 players to watch at 4 big-bodied positions of need**\
 `If the 49ers are intent on filling their trenches this offseason, they'll find plenty of options in the draft, especially on defense.`\
 https://nytimes.com/athletic/6119303/2025/02/07/49ers-2025-nfl-draft-big-board/
-
-**The Athletic’s Friday football quiz question #41**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6118151/2025/02/07/the-athletics-friday-football-quiz-question-41/
-
-**Lowetide: How Darnell Nurse has unlocked a new gear with his passing**\
-`Nurse is contributing to the Oilers' offence in a more substantial way than in the past`\
-https://nytimes.com/athletic/6118445/2025/02/07/oilers-defenceman-darnell-nurse-passing/
 
