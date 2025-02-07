@@ -1,3 +1,7 @@
+**Story of a Restaurant: The Magic of New York City on a Plate**\
+`Our critic takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
+https://nytimes.com/video/dining/100000009962807/torrisi-restaurant-nyc.html
+
 **As Trump and Musk Upend Washington, Congressional Phones Can’t Keep Up**\
 `In the three weeks since President Trump took office and gave Elon Musk free rein inside the federal government, millions of calls have poured in to members of Congress, jamming the system.`\
 https://nytimes.com/2025/02/07/us/politics/congressional-phone-lines-trump-musk.html

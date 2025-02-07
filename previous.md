@@ -1,3 +1,7 @@
+**Story of a Restaurant: The Magic of New York City on a Plate**\
+`Our critic takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
+https://nytimes.com/video/dining/100000009962807/torrisi-restaurant-nyc.html
+
 **As Trump and Musk Upend Washington, Congressional Phones Can’t Keep Up**\
 `In the three weeks since President Trump took office and gave Elon Musk free rein inside the federal government, millions of calls have poured in to members of Congress, jamming the system.`\
 https://nytimes.com/2025/02/07/us/politics/congressional-phone-lines-trump-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121635/2025/02/07/pistons-trade-deadline-cunningha
 **Heat Today: Bam Adebayo, Tyler Herro lead Miami's post-Jimmy Butler chapter**\
 `The Butler saga no longer hangs over Miami, and now it's back to the business of basketball.`\
 https://nytimes.com/athletic/6121757/2025/02/07/bam-adebayo-tyler-herro-heat-jimmy-butler-warriors-nba-trade-deadline/
-
-**Super Bowl 2025 betting hub: Eagles vs. Chiefs how to watch, odds, picks and predictions**\
-`Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
-https://nytimes.com/athletic/6100448/2025/02/07/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
 
