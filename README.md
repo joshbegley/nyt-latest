@@ -1,3 +1,7 @@
+**Clemson brings custom gear, self-expression and Jazz Chisholm to college baseball**\
+`With the rise of NIL, Clemson Baseball is hoping a focus on fun can set the program apart`\
+https://nytimes.com/athletic/6121296/2025/02/07/clemson-baseball-absolutely-ridiculous-jazz-chisholm/
+
 **Jack Flaherty's return looks like a victory for the Tigers. Here's what it means**\
 `Flaherty signed a two-year contract worth up to $45 million. His return creates a new level of competition in the Tigers rotation.`\
 https://nytimes.com/athletic/6122221/2025/02/07/jack-flaherty-detroit-tigers-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/musk-doge-aides.html
 **Live Bird Markets Ordered to Close in New York After Avian Flu Is Found**\
 `The order affects roughly 80 markets in New York City and in several nearby counties. Gov. Kathy Hochul described it as a “proactive” step to help curb the spread of bird flu.`\
 https://nytimes.com/2025/02/07/nyregion/nyc-bird-flu-markets.html
-
-**In fiery words, the federal prosecutor in Washington promises an inquiry into allegations raised by Musk.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2025/02/07/us/trump-administration-updates/federal-prosecutor-ed-martin-elon-musk
 
