@@ -1,3 +1,7 @@
+**Man City add Marmoush, Nico, Khusanov to Champions League squad**\
+`City made four signings in the transfer window but were only allowed to add three players to their Champions League squad.`\
+https://nytimes.com/athletic/6118980/2025/02/07/manchester-city-champions-league-squad-reis/
+
 **Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
 `Tim Spiers takes a look at the sillier side of football this week`\
 https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
