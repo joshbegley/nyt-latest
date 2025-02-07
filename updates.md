@@ -1,3 +1,11 @@
+**California Asks Insurers to Spare Wildfire Victims ‘the List’**\
+`The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
+https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
+
+**Broncos' Pat Surtain II's DPOY season built on relentless quest to improve**\
+`Surtain is the second Bronco to win the NFL's top honor for a defensive player and the youngest to claim it in 12 years.`\
+https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-candidate/
+
 **Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
 `Daniels joins Robert Griffin III as the only Washington players to take home the award. `\
 https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
