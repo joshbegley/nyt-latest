@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-cand
 https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
 
 **Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
-`Ellen L. Weintraub, who has served as a commissioner for the nation's top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
+`Ellen L. Weintraub, who has served as a commissioner for the nation’s top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
 https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
 
 **Kamala Harris Tours the Destruction in the Palisades**\
