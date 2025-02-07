@@ -1,3 +1,15 @@
+**Plane Crashes Into Street in Brazil, Killing 2**\
+`Six people on the ground were also injured by the plane, part of which struck a bus on the road when it crashed.`\
+https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
+
+**Steelers to be home team for NFL's first regular-season game in Ireland**\
+`The Rooney family that owns the Steelers has a long and deep connection to Ireland.`\
+https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
+
+**Congress and White House Head for Showdown Over Power of the Purse**\
+`The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
+https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
+
 **Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
 `Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
 https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/07/world/europe/sweden-gun-laws.html
 **Tears, a missed flight and suspensions: How Jimmy Butler-Heat tension finally bubbled over**\
 `An inside look at Jimmy Butler’s last days in Miami before the team and player finally pushed each other away for good.`\
 https://nytimes.com/athletic/6108043/2025/02/07/jimmy-butler-pat-riley-heat-tensions-nba-trade/
-
-**'Boys, we won the trade': How a fan broke the Jimmy Butler news to Heat players**\
-`How did Kevin Love, Tyler Herro and the Miami players learn about the Butler trade? From a fan behind their bench during a game in Philly.`\
-https://nytimes.com/athletic/6120250/2025/02/07/fan-jimmy-butler-trade-miami-heat-bench/
-
-**The Lakers are going all-in around the LeBron James and Luka Dončić pairing**\
-`The Lakers' trade for center Mark Williams shows that the team isn't just looking toward the future. They want to win now.`\
-https://nytimes.com/athletic/6117455/2025/02/07/lakers-lebron-luka-doncic-mark-williams-trade/
-
-**Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
-`Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
-https://nytimes.com/athletic/6120591/2025/02/07/chiefs-vs-eagles-team-comparison/
 

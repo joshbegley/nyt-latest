@@ -1,3 +1,15 @@
+**Plane Crashes Into Street in Brazil, Killing 2**\
+`Six people on the ground were also injured by the plane, part of which struck a bus on the road when it crashed.`\
+https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
+
+**Steelers to be home team for NFL's first regular-season game in Ireland**\
+`The Rooney family that owns the Steelers has a long and deep connection to Ireland.`\
+https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
+
+**Congress and White House Head for Showdown Over Power of the Purse**\
+`The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
+https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
+
 **Colorado hires Pro Football Hall of Famer Marshall Faulk as RB coach**\
 `Faulk is the third Hall of Fame member on the Colorado staff, joining head coach Deion Sanders and Warren Sapp.`\
 https://nytimes.com/athletic/6120715/2025/02/07/marshall-faulk-deion-sanders-colorado-running-backs-coach/
