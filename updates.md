@@ -1,3 +1,23 @@
+**Carl Edwards 'shocked' by NASCAR Hall of Fame nod he never thought would come**\
+`Carl Edwards left NASCAR abruptly in 2016 and has mostly stayed away since, making his Hall of Fame induction all the more special to him.`\
+https://nytimes.com/athletic/6121469/2025/02/07/carl-edwards-nascar-hall-of-fame-class/
+
+**Man City in fresh legal battle with Premier League over APT rules**\
+`City believe the new associated party transaction rules, voted through in November, face the same legal obstacles as the previous ones.`\
+https://nytimes.com/athletic/6121711/2025/02/07/manchester-city-premier-league-apt/
+
+**The Jimmy Butler era arrives as Joe Lacob and the Warriors ‘picked a path’**\
+`After making a run at Paul George and Lauri Markkanen in the summer, and Kevin Durant in recent days, the Warriors finally got their guy.`\
+https://nytimes.com/athletic/6120545/2025/02/07/jimmy-butler-joe-lacob-warriors-mike-dunleavy-nba/
+
+**Millions Will See This Super Bowl Ad. Health Experts (and Two Senators) Aren’t Pleased.**\
+`The spot makes lofty claims about weight-loss drugs offered by the telehealth company Hims & Hers, but says little about risks.`\
+https://nytimes.com/2025/02/07/well/hims-hers-health-super-bowl-ad.html
+
+**‘My Home Is on Fire. My Home Is on Fire.’**\
+`Daniel Ramirez, a Times audio engineer, writes about the trauma of losing everything in the Eaton fire.`\
+https://nytimes.com/2025/02/07/us/fires-losing-my-home.html
+
 **Canelo Alvarez signs 4-fight deal with Riyadh; Crawford eyes megafight**\
 `Alvarez and Crawford are slated to fight on Sept. 13 at Allegiant Stadium in Las Vegas, the weekend ahead of Mexican Independence Day.`\
 https://nytimes.com/athletic/6120377/2025/02/07/canelo-alvarez-riyadh-season-deal-terence-crawford/
