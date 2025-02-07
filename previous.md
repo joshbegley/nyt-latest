@@ -1,3 +1,7 @@
+**Watch: Who has the most at stake at Super Bowl LIX?**\
+`The Athletic Football Show hosts discuss who has the most to gain from a Super Bowl win on Sunday.`\
+https://nytimes.com/athletic/6121026/2025/02/07/athletic-football-show-super-bowl-lix-preview/
+
 **Kris Jenner Puts the ‘Keeping Up With the Kardashians’ House Up for Sale**\
 `The six-bedroom home in Los Angeles, where the family’s reality TV show was filmed for more than a decade, is being listed for $13.5 million.`\
 https://nytimes.com/2025/02/07/realestate/jenner-kardashian-house-sale.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy/revisions-show-slower-job-growth-but-a-still-solid-labor-market
 
 **Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
-`For the third time in the last decade, Indiana needs a new men’s basketball coach. But the circumstances around this job are different.`\
+`For the third time in the last decade, Indiana will need a new men’s basketball coach. But the circumstances around this job are different.`\
 https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
 
 **Mavericks bracing for 'heartbreak' and 'boos' from fans when they return to Dallas**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
 **Steelers to be home team for NFL's first regular-season game in Ireland**\
 `The Rooney family that owns the Steelers has a long and deep connection to Ireland.`\
 https://nytimes.com/athletic/6120016/2025/02/07/steelers-ireland-nfl-game/
-
-**White House Forces Showdown Over Congress’s Power of the Purse**\
-`The confirmation of Russell T. Vought to lead the powerful White House budget office is likely to escalate the funding fights roiling Washington and the nation.`\
-https://nytimes.com/2025/02/07/us/politics/congress-trump-spending.html
 

@@ -1,3 +1,11 @@
+**Watch: Who has the most at stake at Super Bowl LIX?**\
+`The Athletic Football Show hosts discuss who has the most to gain from a Super Bowl win on Sunday.`\
+https://nytimes.com/athletic/6121026/2025/02/07/athletic-football-show-super-bowl-lix-preview/
+
+**Indiana basketball coaching candidates: How should Hoosiers replace Mike Woodson?**\
+`For the third time in the last decade, Indiana will need a new men’s basketball coach. But the circumstances around this job are different.`\
+https://nytimes.com/athletic/6121250/2025/02/07/indiana-basketball-coaching-candidates-dusty-may/
+
 **Palmer added to Chelsea's Conference League squad; Lavia, Fofana not included**\
 `Cole Palmer has been added to Chelsea&#8217;s Conference League squad for the remainder of the competition but Romeo Lavia and Wesley Fofana have not been included.`\
 https://nytimes.com/athletic/6114898/2025/02/07/chelsea-conference-league-squad-palmer-lavia-chalobah/
