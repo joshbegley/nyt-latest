@@ -1,3 +1,11 @@
+**Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
+`Daniels joins Robert Griffin III as the only Washington players to take home the award. `\
+https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
+
+**Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
+`Ellen L. Weintraub, who has served as a commissioner for the nation's top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
+https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
+
 **LeBron goes No. 1 by O’Neal, Barkley takes 6 foreign players in All-Star draft**\
 `In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
 https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
