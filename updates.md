@@ -1,3 +1,7 @@
+**Senate G.O.P. unveils its own budget plan, teeing up a fight with the House.**\
+`House Republicans have been toiling unsuccessfully to reach agreement on a fiscal blueprint. Their Senate colleagues are leapfrogging ahead.`\
+https://nytimes.com/2025/02/07/us/politics/senate-republicans-budget-spending.html
+
 **NBA futures odds: Did Jimmy Butler's trade to Golden State move the needle?**\
 `Jimmy Butler's trade to Golden State was a big one, but did it move the odds in the NBA futures market?`\
 https://nytimes.com/athletic/6121870/2025/02/07/nba-futures-odds-jimmy-butler/
