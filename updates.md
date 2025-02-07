@@ -1,4 +1,8 @@
 **U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
+`The plane, which had been contracted by the Pentagon, went down during a routine mission in the southern Philippines, the U.S. military said.`\
+https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
+
+**U.S. Service Member and 3 Contractors Are Killed in Philippines Plane Crash**\
 `The four people, whose identities have not been released, were on a small plane that went down during a routine mission, the U.S. military said.`\
 https://nytimes.com/2025/02/07/world/asia/us-military-philippines-plane-crash.html
 
