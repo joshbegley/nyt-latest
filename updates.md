@@ -1,3 +1,11 @@
+**Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
+`Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
+https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html
+
+**Anthony Edwards teaches Dillon Brooks a lesson: Don't poke the Wolf**\
+`Edwards scored more than 40 points for the second straight night, finding an energy boost from Houston's chippy, chirpy ways. `\
+https://nytimes.com/athletic/6117282/2025/02/07/anthony-edwards-dillon-brooks-timberwolves-rockets/
+
 **I.C.C. Pushes Back on Trump Order Imposing Sanctions on It**\
 `The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
 https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
