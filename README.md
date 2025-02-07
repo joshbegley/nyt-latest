@@ -1,3 +1,7 @@
+**Wall Street Prepares to Defend a Favored Tax Break, Again**\
+`President Trump called for ending the so-called carried interest loophole, which saves financiers billions. It’s a tax break that has survived time after time.`\
+https://nytimes.com/2025/02/07/business/dealbook/trump-carried-interest-tax.html
+
 **Angels spring guide: 32 thoughts for 32 hitters, from Trout to Rendon to Adell**\
 `Get to know Angels hitters who are likely to be in major-league spring training.`\
 https://nytimes.com/athletic/6113060/2025/02/07/angels-spring-guide-hitters/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
 **Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed-dating at Molineux**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
-
-**The Pulse: An NFL MVP first since 1987**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/6120781/2025/02/07/josh-allen-mvp-super-bowl-connections-the-pulse/
 
