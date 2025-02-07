@@ -1,3 +1,11 @@
+**The Lakers are going all-in around the LeBron James and Luka Dončić pairing**\
+`The Lakers' trade for center Mark Williams shows that the team isn't just looking toward the future. They want to win now.`\
+https://nytimes.com/athletic/6117455/2025/02/07/lakers-lebron-luka-doncic-mark-williams-trade/
+
+**Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
+`Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
+https://nytimes.com/athletic/6120591/2025/02/07/chiefs-vs-eagles-team-comparison/
+
 **Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
 `Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
 https://nytimes.com/athletic/6120591/2025/02/07/breaking-down-the-chiefs-eagles-super-bowl-matchup-by-the-numbers/

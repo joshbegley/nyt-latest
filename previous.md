@@ -1,6 +1,10 @@
+**The Lakers are going all-in around the LeBron James and Luka Dončić pairing**\
+`The Lakers' trade for center Mark Williams shows that the team isn't just looking toward the future. They want to win now.`\
+https://nytimes.com/athletic/6117455/2025/02/07/lakers-lebron-luka-doncic-mark-williams-trade/
+
 **Breaking down the Chiefs-Eagles Super Bowl matchup, by the numbers**\
 `Here’s what to know — culture, coaches, quarterbacks and more — about this year’s Super Bowl.`\
-https://nytimes.com/athletic/6120591/2025/02/07/breaking-down-the-chiefs-eagles-super-bowl-matchup-by-the-numbers/
+https://nytimes.com/athletic/6120591/2025/02/07/chiefs-vs-eagles-team-comparison/
 
 **‘Paint Me a Road Out of Here’: Faith Ringgold’s Gift to Prisoners**\
 `In this documentary, the artist depicts what a more just and beautiful world might look like.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121020/2025/02/07/womens-champions-league-draw-fix
 **Maresca: Nkunku ready for bigger role at Chelsea**\
 `The 27-year-old forward has started only twice in the Premier League this season but has scored 13 goals in all competitions.`\
 https://nytimes.com/athletic/6121158/2025/02/07/christopher-nkunku-chelsea-maresca/
-
-**Trump Envoy Pushes Lebanon’s New Leaders to Isolate Hezbollah**\
-`Hezbollah, a powerful Iran-backed militia, has long been the country’s dominant political force and has formed part of the government for decades.`\
-https://nytimes.com/2025/02/07/world/middleeast/lebanon-hezbollah-trump.html
 
