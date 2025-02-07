@@ -1,3 +1,27 @@
+**Ye Takes Back Apology and Calls Himself a Nazi in Social Media Rant**\
+`The rapper praised Hitler and took back an apology he made in 2023 for his past antisemitic remarks.`\
+https://nytimes.com/2025/02/07/arts/music/ye-takes-back-apology.html
+
+**Grenfell Tower Was a Death Trap. Some Wanted It to Stand as a Warning.**\
+`Britain’s government confirmed Friday that the tower block in London, where 72 people died, would be demolished, provoking a combination of anger and relief from survivors and bereaved families.`\
+https://nytimes.com/2025/02/07/world/europe/grenfell-tower-demolition-memorial-debate.html
+
+**Trump Allows Low-Cost Chinese Products to Enter U.S. Without Tariffs, for Now**\
+`The president temporarily paused a provision that had imposed tariffs on many packages sent from China beginning this week and that had sowed confusion among retailers and shippers.`\
+https://nytimes.com/2025/02/07/business/economy/trump-tariffs-china-de-minimis-trade.html
+
+**The ousted director of federal prisons contests her firing, citing civil service rules.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-ousted-director-of-federal-prisons-contests-her-firing-citing-civil-service-rules
+
+**Happy Hour in D.C.: ‘I’ve Never Felt More Patriotic in My Life’**\
+`Young federal workers gathered at DC9, a Washington bar offering cheap drinks for any government employee as the deadline to take a buyout loomed.`\
+https://nytimes.com/2025/02/07/style/federal-workers-happy-hour.html
+
+**Behind Closed Doors, Trudeau Says Trump Threat to Take Over Canada Is Real**\
+`Prime Minister Justin Trudeau, in a talk with business leaders, said Canada’s wealth of critical minerals are behind Mr. Trump’s comments about making its northern neighbor a U.S. state.`\
+https://nytimes.com/2025/02/07/world/canada/trump-canada-trudeau.html
+
 **‘BACK TO PLASTIC’: Trump Vows to Keep the Government on Plastic Straws**\
 `The move would run counter to a Biden administration push to cut back on single-use plastic, which was considered a milestone.`\
 https://nytimes.com/2025/02/07/climate/trump-paper-straws.html
