@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6121876/2025/02/07/stopping-patrick-mahomes-saquon-
 https://nytimes.com/athletic/6121369/2025/02/07/dc-united-away-kit-leak/
 
 **Behind Closed Doors, Trudeau Says Trump Threat to Take Over Canada Is Real**\
-`Prime Minister Justin Trudeau, speaking to business leaders in Toronto, attributed Mr. Trump’s statements about making Canada a U.S. state to Canada’s wealth of critical minerals.`\
+`Prime Minister Justin Trudeau, in a talk with business leaders, said Canada’s wealth of critical minerals are behind Mr. Trump’s comments about making its northern neighbor a U.S. state.`\
 https://nytimes.com/2025/02/07/world/canada/trump-canada-trudeau.html
 
 **Hamas Names 3 Hostages To Be Released in Next Cease-Fire Exchange**\
