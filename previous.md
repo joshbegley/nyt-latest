@@ -1,3 +1,27 @@
+**Madrid don't have a fit senior centre-back. How will they line up against Atletico and City?**\
+`Madrid are facing a defensive dilemma before two crucial games in their season`\
+https://nytimes.com/athletic/6119097/2025/02/07/real-madrid-centre-backs-atletico-city/
+
+**Saving the head coach from 'fire', lake jumping and paper footballs: The making of Patrick Dorgu**\
+`A relentless drive to succeed and a powerful will to win have helped propel Ruben Amorim's new signing towards elite football`\
+https://nytimes.com/athletic/6118674/2025/02/07/making-of-dorgu-man-utd/
+
+**At home with the manager (and his wife) preparing to face Pep Guardiola**\
+`Richie Wellens has transformed Leyton Orient's fortunes. The Athletic met him, and Nicola, before the third-tier club's big FA Cup tie`\
+https://nytimes.com/athletic/6118869/2025/02/07/richie-wellens-leyton-orient-pep-guardiola-fa-cup/
+
+**Can World Cup 2026 match the advertising might of the Super Bowl?**\
+`Firms pay millions to run a 30-second commercial during the Super Bowl. Why are ads shown in soccer's equivalent games less of a big deal?`\
+https://nytimes.com/athletic/6118354/2025/02/07/world-cup-2026-soccer-advertising-super-bowl/
+
+**From surprise Manchester United return to toils at Leicester: Ruud van Nistelrooy's surreal seven months**\
+`Dutchman who returned to football as United's No 2 last summer is now back at Old Trafford with a Leicester team labouring against the drop`\
+https://nytimes.com/athletic/6118365/2025/02/07/nistelrooy-ruud-manchester-united-leicester-city-surreal/
+
+**Glasner, Amorim and the 3-4-2-1: Why Palace are flourishing as United flounder**\
+`The Austrian's success in implementing his style of play at Palace should provide a pointer for United as they strive for tactical evolution`\
+https://nytimes.com/athletic/6112275/2025/02/07/amorim-glasner-manchester-united-crystal-palace-tactics/
+
 **Friday Briefing**\
 `U.S. sanctions on the International Criminal Court.`\
 https://nytimes.com/2025/02/07/briefing/sanctions-icc-trump-warming.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/07/world/europe/eu-tariffs-trump.html
 **When Your Only Job Is to Cuddle**\
 `By cradling strangers’ infants in the neonatal unit, I regained faith in the value of small acts of tenderness.`\
 https://nytimes.com/2025/02/07/style/modern-love-when-your-only-job-is-to-cuddle.html
-
-**Falling for ‘the Same Kind of Weird’**\
-`When Jessica Papilla’s sister managed Michael Burnett at Starbucks, she had a hunch he and her sibling would hit it off.`\
-https://nytimes.com/2025/02/07/style/jessica-papilla-michael-burnett-wedding.html
-
-**A Wedding Where Cold Feet Were to Be Expected**\
-`When Eric Sun and Jennifer Liu, avid travelers who met in college, decided to marry, there was one continent left on their list: Antarctica.`\
-https://nytimes.com/2025/02/07/style/eric-sun-jennifer-liu-wedding.html
-
-**They Met Analyzing Stories Like These**\
-`As Kim Nguyen gathered data on New York Times wedding announcements, she came across Todd Schneider’s analysis of them.`\
-https://nytimes.com/2025/02/07/style/kim-nguyen-todd-schneider-wedding.html
-
-**They Were Best Friends — Until That Trip to Mexico**\
-`Catherine Singiser became Dr. Sara Attalla’s go-to person when she first joined the gastroenterology practice where both are employed. A romance eventually followed.`\
-https://nytimes.com/2025/02/07/style/catherine-singiser-sara-attalla-wedding.html
-
-**Severson's scrap, Provorov's short-handed goal help Blue Jackets steal a point**\
-`Tired and missing some of their top players, the Blue Jackets nevertheless earned a point thanks to Severson's energy-boosting tilt.`\
-https://nytimes.com/athletic/6120560/2025/02/06/blue-jackets-severson-fight-provorov-utah/
-
-**Indiana, Mike Woodson reportedly in talks about coach's future with program**\
-`Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
-https://nytimes.com/athletic/6119966/2025/02/06/indiana-basketball-mike-woodson-future/
 
