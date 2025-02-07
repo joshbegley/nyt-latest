@@ -1,3 +1,15 @@
+**Plane Crashes Into Street in Brazil Shortly After Takeoff**\
+`Two people were killed and six were injured by a plane crash in the middle of the street in São Paolo.`\
+https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-paolo.html
+
+**The Bounce: Luka Dončić to Lakers made big waves, but who were NBA trade deadline's winners & losers?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6121229/2025/02/07/luka-doncic-lakers-mavericks-jimmy-butler-warriors-heat-nba-trade-deadline-the-bounce/
+
+**Trump’s New Line of Attack Against the Media Gains Momentum**\
+`First Amendment experts say Mr. Trump’s lawsuits, based on an unproven legal theory, lack merit. But more could be on the way.`\
+https://nytimes.com/2025/02/07/business/media/trump-media-lawsuits.html
+
 **Brooklyn Museum Will Lay Off Employees and Scale Back Exhibitions**\
 `The museum, which faces a projected $10 million deficit, said it planned to cut more than a tenth of its employees and mount fewer exhibitions.`\
 https://nytimes.com/2025/02/07/arts/design/brooklyn-museum-layoffs.html
