@@ -1,3 +1,7 @@
+**Firefighter Hiring Stalls at Federal Agencies After Trump’s Freeze**\
+`Job offers have been rescinded and start dates pushed back just as firefighting staffing for the summer wildfire season was beginning, a union said.`\
+https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.html
+
 **Arts Endowment Cuts Grants Dedicated to Underserved Communities**\
 `The National Endowment for the Arts said it will instead prioritize work that connects with the upcoming 250th anniversary of American independence.`\
 https://nytimes.com/2025/02/07/arts/national-endowment-for-the-arts-trump.html
