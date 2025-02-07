@@ -1,3 +1,7 @@
+**Trump Signs Order to Fight ‘Anti-Christian Bias’**\
+`The president convened a task force to “prosecute anti-Christian violence and vandalism.” Critics said he’d turned religious freedom on its head by singling out one faith.`\
+https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-christian-bias.html
+
 **Reimagining the American War Machine**\
 `The biggest challenge for any peacetime military is preparing for the next war.`\
 https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactica
 **Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
 `Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
 https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
-
-**Inside the Birmingham City revolution: 'This will be the football story of the next decade'**\
-`Ahead of the club's biggest game in years, The Athletic went behind the scenes to see the effect of their Tom Brady-backed transformation`\
-https://nytimes.com/athletic/6113680/2025/02/07/birmingham-city-tom-brady-revolution-inside/
 
