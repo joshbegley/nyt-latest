@@ -1,7 +1,3 @@
-**Giants spring guide: 32 thoughts for 32 pitchers, from Beck to Verlander to Winn**\
-`A brief look at the 32 pitchers the Giants are bringing to Scottsdale when major-league camp opens in a few days.`\
-https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-preview/
-
 **Trump Says Nippon Steel Will Make Major Investment in U.S. Steel**\
 `President Trump supports the Japanese company’s taking a stake in the American steel maker after the U.S. blocked a $14 billion takeover bid.`\
 https://nytimes.com/2025/02/07/us/politics/trump-nippon-steel-us-steel.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/07/us/politics/trump-musk-doge-pentagon.html
 **San Francisco Is Latest City to Sue Trump Over Immigration Policies**\
 `Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
 https://nytimes.com/2025/02/07/us/politics/san-francisco-sues-trump-sanctuary-cities.html
+
+**The Singular Magic of Torrisi: New York City on a Plate**\
+`Sam Sifton takes you through a meal at Torrisi, where the story of the five boroughs is channeled through the food.`\
+https://nytimes.com/2025/02/07/dining/torrisi-restaurant-nyc.html
 
