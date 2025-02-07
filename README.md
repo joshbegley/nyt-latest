@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6121369/2025/02/07/dc-united-away-kit-leak/
 `Prime Minister Justin Trudeau, in a talk with business leaders, said Canada’s wealth of critical minerals are behind Mr. Trump’s comments about making its northern neighbor a U.S. state.`\
 https://nytimes.com/2025/02/07/world/canada/trump-canada-trudeau.html
 
-**Hamas Names 3 Hostages To Be Released in Next Cease-Fire Exchange**\
+**Hamas Names 3 Hostages to Be Released in Next Cease-Fire Exchange**\
 `The Israelis were identified as Eli Sharabi, Or Levy and Ohad Ben-Ami, all of whom were abducted during the 2023 Hamas-led attack. Israel is expected to let dozens of Palestinian prisoners go in return.`\
 https://nytimes.com/2025/02/07/world/middleeast/israel-hamas-gaza-hostages-release-names.html
 
