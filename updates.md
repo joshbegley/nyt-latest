@@ -1,3 +1,11 @@
+**A judge says he will freeze elements of Trump’s plan to shut down U.S.A.I.D.**\
+`Judge Carl Nichols will temporarily block plans to put some 2,200 employees on paid leave and to recall nearly all agency workers posted abroad.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/judge-will-freeze-elements-of-trump-plan-to-shut-down-usaid
+
+**Chicks Raised to Lay Eggs Are Lost in Fire at a Large Farm in Ohio**\
+`The chicken-raising facility in western Ohio was licensed to house about 280,000 young hens. The destruction came amid egg shortages linked to an avian influenza outbreak.`\
+https://nytimes.com/2025/02/07/us/ohio-chicken-farm-fire.html
+
 **Hegseth Uses His First Town Hall to Attack Diversity**\
 `The defense secretary, speaking to the Pentagon work force, defended his “unconventional approaches” to an audience that included women and people of color.`\
 https://nytimes.com/2025/02/07/us/politics/hegseth-pentagon-town-hall.html
