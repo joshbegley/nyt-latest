@@ -1,3 +1,7 @@
+**An Uproar as Trump and Musk Wreak Havoc**\
+`Readers protest the abrupt seizure and threats to some of the nation’s most essential agencies. Also: Praise for federal workers; King George III.`\
+https://nytimes.com/2025/02/07/opinion/trump-musk-usaid.html
+
 **Judge Orders U.S. to Keep Secret a List of F.B.I. Officials Who Worked on Jan. 6 Cases**\
 `The Trump administration argued that the list had been commissioned only for an internal review.`\
 https://nytimes.com/2025/02/07/us/politics/jan-6-fbi-names-secret.html
