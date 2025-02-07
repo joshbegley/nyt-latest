@@ -1,3 +1,15 @@
+**Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
+`A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
+https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
+
+**A Sick Inmate in New York Is Freed After Suing Over Parole Delay**\
+`Steve Coleman was kept for 21 months after his parole date because the state could not find a nursing home placement.`\
+https://nytimes.com/2025/02/07/health/medical-parole-new-york.html
+
+**Trump Administration Flips U.S. Position in Supreme Court Transgender Case**\
+`An administration lawyer said a Tennessee law barring some medical treatments for transgender youths is constitutional and urged the justices to say so.`\
+https://nytimes.com/2025/02/07/us/politics/supreme-court-transgender-case.html
+
 **Giants spring guide: 32 thoughts for 32 pitchers, from Beck to Verlander to Winn**\
 `A brief look at the 32 pitchers the Giants are bringing to Scottsdale when major-league camp opens in a few days.`\
 https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-preview/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/emil-bove-justice-fbi-trump-bondi.htm
 **Tyreek Hill issues public apology to Dolphins, Tua Tagovailoa**\
 `Hill previously voiced his frustration after the Dolphins missed the playoffs at 8-9, their first time missing the postseason since 2021.`\
 https://nytimes.com/athletic/6122231/2025/02/07/tyreek-hill-apology-dolphins-tua-tagovailoa/
-
-**Stream Near Buenos Aires Turns Red, ‘Like a River Covered in Blood’**\
-`A stream south of the Argentine capital turned a freakish vermilion this week, prompting concerns about pollution. Officials said it could be the result of “some type of organic dye.”`\
-https://nytimes.com/2025/02/07/world/americas/argentina-canal-turns-red.html
-
-**Trump Says Elon Musk Will Examine Defense Department Spending**\
-`As part of his cost-cutting effort, the billionaire, whose companies have enormous contracts with the military, will turn his so-called Department of Government Efficiency on the Pentagon.`\
-https://nytimes.com/2025/02/07/us/politics/trump-musk-doge-pentagon.html
-
-**San Francisco Is Latest City to Sue Trump Over Immigration Policies**\
-`Some local officials are pushing back against the federal government’s assertion that they must help ICE with its deportation campaign.`\
-https://nytimes.com/2025/02/07/us/politics/san-francisco-sues-trump-sanctuary-cities.html
 
