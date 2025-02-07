@@ -1,3 +1,15 @@
+**Scared of Spiders? Also Scared of Zombies? We Have Some Bad News.**\
+`A BBC documentary crew in Northern Ireland stumbled upon a fungus that hijacks spiders in an arachnid version of “The Last of Us.”`\
+https://nytimes.com/2025/02/07/science/spiders-fungus-zombies-bbc.html
+
+**Arsenal's Martinelli faces more than a month on sidelines with hamstring injury**\
+`Arsenal winger Gabriel Martinelli faces more than a month on the sidelines with a hamstring injury suffered during Wednesday’s EFL Cup loss at Newcastle United.`\
+https://nytimes.com/athletic/6122150/2025/02/07/arsenal-martinelli-hamstring-injury-update/
+
+**Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
+`In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who brings care and finesse to patients’ meals at a Pittsburgh hospital.`\
+https://nytimes.com/2025/02/07/dining/hospital-cook.html
+
 **Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
 `In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who pours care and finesse into patients’ meals at a Pittsburgh hospital.`\
 https://nytimes.com/2025/02/07/dining/hospital-cook.html

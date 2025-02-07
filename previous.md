@@ -1,5 +1,13 @@
+**Scared of Spiders? Also Scared of Zombies? We Have Some Bad News.**\
+`A BBC documentary crew in Northern Ireland stumbled upon a fungus that hijacks spiders in an arachnid version of “The Last of Us.”`\
+https://nytimes.com/2025/02/07/science/spiders-fungus-zombies-bbc.html
+
+**Arsenal's Martinelli faces more than a month on sidelines with hamstring injury**\
+`Arsenal winger Gabriel Martinelli faces more than a month on the sidelines with a hamstring injury suffered during Wednesday’s EFL Cup loss at Newcastle United.`\
+https://nytimes.com/athletic/6122150/2025/02/07/arsenal-martinelli-hamstring-injury-update/
+
 **Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
-`In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who pours care and finesse into patients’ meals at a Pittsburgh hospital.`\
+`In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who brings care and finesse to patients’ meals at a Pittsburgh hospital.`\
 https://nytimes.com/2025/02/07/dining/hospital-cook.html
 
 **SMU AD Rick Hart to step down after 13 years, transition to ACC**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/style/federal-workers-happy-hour.html
 **‘BACK TO PLASTIC’: Trump Vows to Keep the Government on Plastic Straws**\
 `The move would run counter to a Biden administration push to cut back on single-use plastic, which was considered a milestone.`\
 https://nytimes.com/2025/02/07/climate/trump-paper-straws.html
-
-**Scoop City: One way to stop Mahomes, plus other key Super Bowl matchups**\
-`Inside: Matchups that decide the Super Bowl, making sense of the NFL&#8217;s MVP and three perfect foods for Sunday.`\
-https://nytimes.com/athletic/6121876/2025/02/07/stopping-patrick-mahomes-saquon-barkley-key-super-bowl-matchups-nfl-scoop-city/
-
-**D.C. United's away kit leaked**\
-`January and February’s kit leaks have become a time-honored MLS tradition.`\
-https://nytimes.com/athletic/6121369/2025/02/07/dc-united-away-kit-leak/
 
