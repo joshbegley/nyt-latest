@@ -1,3 +1,7 @@
+**Vecenie: The good, the bad and the ugly of the NBA trade deadline**\
+`After a frenzied and often bold series of moves, which teams helped and hurt themselves the most? And what are the Bulls doing, exactly? `\
+https://nytimes.com/athletic/6117566/2025/02/07/nba-trade-deadline-review-lakers-mavericks/
+
 **Can Movie Stars Handle Greek Classics? London Is Finding Out.**\
 `Sophocles is suddenly everywhere on the city’s stages. In concurrent shows, Rami Malek is playing Oedipus and Brie Larson is taking on Elektra.`\
 https://nytimes.com/2025/02/07/theater/rami-malek-oedpius-brie-larson-elektra-sophocles-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120954/2025/02/07/monterrey-sign-sergio-ramos-tran
 **Wolves' Dawson in talks with club over possible contract termination**\
 `Wolves defender Craig Dawson is in talks with the club about a possible termination of his contract after head coach Vitor Pereira told the veteran he does not figure in his plans.`\
 https://nytimes.com/athletic/6121578/2025/02/07/wolves-craig-dawson-contract-termination/
-
-**Where the Dealmakers and Strivers Get Their Gossip**\
-`Emily Sundberg’s business newsletter, Feed Me, has made her a rising Substack star.`\
-https://nytimes.com/2025/02/07/business/emily-sundberg-feed-me.html
 
