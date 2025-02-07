@@ -1,3 +1,11 @@
+**Tony Roberts, Nonchalant Fixture in Woody Allen Films, Dies at 85**\
+`He had an acclaimed Broadway career in musicals and comedies, but moviegoers knew him mostly as the tall, self-assured, easygoing pal to Mr. Allen’s insecure heroes.`\
+https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
+
+**Howard Twilley, Receiver on the 1972 Champion Dolphins, Dies at 81**\
+`After a stellar college career, he spent 11 years with Miami. He caught a touchdown pass in the Super Bowl that concluded the team’s undefeated season.`\
+https://nytimes.com/2025/02/07/sports/football/howard-twilley-dead.html
+
 **Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
 `The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
 https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
