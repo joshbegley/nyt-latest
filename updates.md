@@ -1,3 +1,11 @@
+**Corrections: Feb. 7, 2025**\
+`Corrections that appeared in print on Friday, Feb. 7, 2025.`\
+https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
+
+**Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
+`Daniels won the award in a landslide as he received 49 of 50 first-place votes with Raiders tight end Brock Bowers getting the other.`\
+https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
+
 **California Asks Insurers to Spare Wildfire Victims ‘the List’**\
 `The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
 https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html

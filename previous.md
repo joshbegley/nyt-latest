@@ -1,3 +1,7 @@
+**Corrections: Feb. 7, 2025**\
+`Corrections that appeared in print on Friday, Feb. 7, 2025.`\
+https://nytimes.com/2025/02/06/pageoneplus/corrections-feb-7-2025.html
+
 **California Asks Insurers to Spare Wildfire Victims ‘the List’**\
 `The state’s regulator wants insurance carriers to pay full policy limits without requiring victims to itemize every object in their destroyed homes.`\
 https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/02/06/realestate/california-insurance-itemization.html
 https://nytimes.com/athletic/6116441/2025/02/06/pat-surtain-ii-broncos-dpoy-candidate/
 
 **Daniels named Offensive Rookie of the Year; full list of NFL Honors winners**\
-`Daniels joins Robert Griffin III as the only Washington players to take home the award. `\
+`Daniels won the award in a landslide as he received 49 of 50 first-place votes with Raiders tight end Brock Bowers getting the other.`\
 https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie-of-the-year-commanders/
 
 **Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119481/2025/02/06/suns-kevin-durant-trade-deadline
 **LeBron goes No. 1 by O’Neal, Barkley takes 6 foreign players in All-Star draft**\
 `In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
 https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
-
-**Harlem House Where Billie Holiday Lived Is Damaged in Fire**\
-`The jazz legend lived in the five-story building on West 139th Street as a teenager with her mother.`\
-https://nytimes.com/2025/02/06/realestate/billie-holiday-harlem-home-fire.html
 
