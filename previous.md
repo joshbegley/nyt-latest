@@ -1,3 +1,7 @@
+**Netflix considering bid for Formula 1's U.S. TV rights**\
+`ESPN has broadcast F1 in the U.S. since 2017 but its contract expires after the upcoming 2025 season.`\
+https://nytimes.com/athletic/6120990/2025/02/07/formula-1-netflix-tv-espn/
+
 **Pakistan to Force Tens of Thousands of Afghan Refugees Out of the Capital**\
 `The order, giving Afghans until March 31 to go elsewhere in Pakistan, came on the heels of President Trump’s suspension of refugee admissions to the United States.`\
 https://nytimes.com/2025/02/07/world/asia/pakistan-afghanistan-refugees.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120297/2025/02/07/brandon-ingram-raptors-trade-pel
 **Phillies farm system heat check: What's the immediate and future outlook?**\
 `Here's a look at the Phillies' top prospects and what the Opening Day roster could look like in two years.`\
 https://nytimes.com/athletic/6113383/2025/02/07/phillies-farm-system-prospects-outlook/
-
-**Brad Stevens discusses Celtics sale, Jaden Springer trade and playing inconsistency**\
-`Celtics GM explains "boring as hell" trade deadline and why he's not concerned by his team's up and down performance. `\
-https://nytimes.com/athletic/6120390/2025/02/07/celtics-sale-brad-stevens-trade-deadline/
 

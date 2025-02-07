@@ -1,3 +1,7 @@
+**Netflix considering bid for Formula 1's U.S. TV rights**\
+`ESPN has broadcast F1 in the U.S. since 2017 but its contract expires after the upcoming 2025 season.`\
+https://nytimes.com/athletic/6120990/2025/02/07/formula-1-netflix-tv-espn/
+
 **Pakistan to Force Tens of Thousands of Afghan Refugees Out of the Capital**\
 `The order, giving Afghans until March 31 to go elsewhere in Pakistan, came on the heels of President Trump’s suspension of refugee admissions to the United States.`\
 https://nytimes.com/2025/02/07/world/asia/pakistan-afghanistan-refugees.html
