@@ -1,3 +1,11 @@
+**Three added to Spurs' Europa League squad but Kinsky left out**\
+`Kinsky, 21, joined Spurs at the beginning of January and has been the club's No 1 in the league with Guglielmo Vicario out injured.`\
+https://nytimes.com/athletic/6114941/2025/02/07/tottenham-europa-league-squad-tel-spence-kinsky/
+
+**Vinnie Hinostroza hopes to find a home after dream Wild debut: 'That was a lot of fun'**\
+`Hinostroza became the eighth player in franchise history to score the winning goal in his Wild debut against the Hurricanes.`\
+https://nytimes.com/athletic/6120676/2025/02/07/vinnie-hinostroza-wild-debut-waivers-hurricanes/
+
 **‘Demon Copperhead’ Explored Addiction. Its Profits Built a Rehab Center.**\
 `Barbara Kingsolver has put royalties from her Pulitzer Prize-winning novel to work in the region it portrayed, starting a home for women in recovery.`\
 https://nytimes.com/2025/02/07/books/barbara-kingsolver-demon-copperhead-recovery.html
