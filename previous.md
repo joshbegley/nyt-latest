@@ -1,3 +1,7 @@
+**NHL Power Rankings: A new No. 1 emerges just in time for haiku week**\
+`There's a new No. 1 and the rest of the rankings are perfect too.`\
+https://nytimes.com/athletic/6120765/2025/02/07/nhl-power-rankings-new-no-1/
+
 **Plane Crashes Into Street in Brazil, Killing 2**\
 `Six people on the ground were also injured by the plane, part of which struck a bus on the road when it crashed.`\
 https://nytimes.com/2025/02/07/world/americas/brazil-plane-crash-sao-paulo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118762/2025/02/07/how-dirk-nowitzki-plays-a-centra
 **Sweden Moves to Tighten Gun Laws After Mass Shooting**\
 `The changes would make it harder to access semiautomatic weapons, and enhance police and medical checks in license applications.`\
 https://nytimes.com/2025/02/07/world/europe/sweden-gun-laws.html
-
-**Tears, a missed flight and suspensions: How Jimmy Butler-Heat tension finally bubbled over**\
-`An inside look at Jimmy Butler’s last days in Miami before the team and player finally pushed each other away for good.`\
-https://nytimes.com/athletic/6108043/2025/02/07/jimmy-butler-pat-riley-heat-tensions-nba-trade/
 
