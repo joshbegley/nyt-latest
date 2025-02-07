@@ -1,3 +1,7 @@
+**Giants legend Eli Manning denied entry into Pro Football Hall of Fame**\
+`The two-time Super Bowl MVP will have to wait until next year for another shot at enshrinement. `\
+https://nytimes.com/athletic/6119318/2025/02/06/eli-manning-hall-of-fame-giants-snub/
+
 **Yankees' Brian Cashman: Gleyber Torres was 'unwilling' to change positions**\
 `Cashman said that when he traded for Jazz Chisholm Jr., his intent was for Gleyber Torres to move to third base.`\
 https://nytimes.com/athletic/6120414/2025/02/06/yankees-brian-cashman-gleyber-torres-position-change/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118984/2025/02/06/nfl-honors-jayden-daniels-rookie
 **Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
 `Ellen L. Weintraub, who has served as a commissioner for the nation’s top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
 https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
-
-**Kamala Harris Tours the Destruction in the Palisades**\
-`Asked during her visit on Thursday if she was considering running for governor of California, Ms. Harris did not give a direct answer, but did not rule it out either.`\
-https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
 
