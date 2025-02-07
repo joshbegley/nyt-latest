@@ -1,3 +1,7 @@
+**Judge Orders U.S. to Keep Secret a List of F.B.I. Officials Who Worked on Jan. 6 Cases**\
+`The Trump administration argued that the list had been commissioned only for an internal review.`\
+https://nytimes.com/2025/02/07/us/politics/jan-6-fbi-names-secret.html
+
 **Clemson brings custom gear, self-expression and Jazz Chisholm to college baseball**\
 `With the rise of NIL, Clemson Baseball is hoping a focus on fun can set the program apart`\
 https://nytimes.com/athletic/6121296/2025/02/07/clemson-baseball-absolutely-ridiculous-jazz-chisholm/
