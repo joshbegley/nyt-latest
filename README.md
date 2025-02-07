@@ -1,5 +1,5 @@
 **Pedri and the passes**\
-`The Barcelona midfielder is playing deeper under Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
+`The Barcelona midfielder is playing deeper under new coach Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
 https://nytimes.com/athletic/6120079/2025/02/07/pedri-barcelona-flick-passes/
 
 **N.Y.U. Parent Has an Idea: Deport Hamas Supporters on Campus**\
