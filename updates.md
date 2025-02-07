@@ -1,3 +1,7 @@
+**As Trump and Musk Upend Washington, Congressional Phones Can’t Keep Up**\
+`In the three weeks since President Trump took office and gave Elon Musk free rein inside the federal government, millions of calls have poured in to members of Congress, jamming the system.`\
+https://nytimes.com/2025/02/07/us/politics/congressional-phone-lines-trump-musk.html
+
 **Alexander Brothers Plead Not Guilty in Sex Trafficking Case**\
 `Real estate brokers Tal and Oren Alexander, along with their brother Alon Alexander, are charged with drugging and assaulting multiple women.`\
 https://nytimes.com/2025/02/07/realestate/alexander-brothers-arraignment.html
