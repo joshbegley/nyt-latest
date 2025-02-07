@@ -1,3 +1,7 @@
+**Clemson brings custom gear, self-expression and Jazz Chisholm to college baseball**\
+`With the rise of NIL, Clemson Baseball is hoping a focus on fun can set the program apart`\
+https://nytimes.com/athletic/6121296/2025/02/07/clemson-baseball-absolutely-ridiculous-jazz-chisholm/
+
 **Jack Flaherty's return looks like a victory for the Tigers. Here's what it means**\
 `Flaherty signed a two-year contract worth up to $45 million. His return creates a new level of competition in the Tigers rotation.`\
 https://nytimes.com/athletic/6122221/2025/02/07/jack-flaherty-detroit-tigers-rotation/
