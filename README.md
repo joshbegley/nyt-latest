@@ -1,3 +1,7 @@
+**Alexander Brothers Plead Not Guilty in Sex Trafficking Case**\
+`Real estate brokers Tal and Oren Alexander, along with their brother Alon Alexander, are charged with drugging and assaulting multiple women.`\
+https://nytimes.com/2025/02/07/realestate/alexander-brothers-arraignment.html
+
 **An Uproar as Trump and Musk Wreak Havoc**\
 `Readers protest the abrupt seizure and threats to some of the nation’s most essential agencies. Also: Praise for federal workers; King George III.`\
 https://nytimes.com/2025/02/07/opinion/trump-musk-usaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100448/2025/02/07/super-bowl-2025-betting-eagles-c
 **A judge in Boston heard arguments on two birthright suits.**\
 `By Jenna Russell`\
 https://nytimes.com/2025/02/07/us/politics/a-judge-in-boston-heard-arguments-on-two-birthright-suits.html
-
-**An active global transfer market is beneficial to NWSL and USWNT**\
-`NWSL is still a healthy and vital part of the global soccer ecosystem. `\
-https://nytimes.com/athletic/6121665/2025/02/07/uswnt-nwsl-transfer-global-soccer/
 
