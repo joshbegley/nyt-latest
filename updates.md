@@ -1,3 +1,7 @@
+**Monica Getz, Advocate for Divorce Court Reform, Dies at 90**\
+`Her troubled marriage to the jazz star Stan Getz led to a headline-making divorce case. The result of the trial gave her a cause to fight for.`\
+https://nytimes.com/2025/02/07/us/monica-getz-dead.html
+
 **The E.P.A. orders a review of funding from the 2022 climate law.**\
 `A memo to`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-epa-orders-a-review-of-funding-from-the-2022-climate-law
