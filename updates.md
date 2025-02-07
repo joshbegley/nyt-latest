@@ -1,3 +1,7 @@
+**No. 19 Tennessee bests No. 5 UConn 80-76 in rivalry upset**\
+`With Tennessee’s most recent win, the rivalry now stands at 17-10 with UConn leading the way.`\
+https://nytimes.com/athletic/6120312/2025/02/06/tennessee-uconn-womens-basketball-results-analysis/
+
 **Federal Election Commission Chair Says Trump Has Moved to Fire Her**\
 `Ellen L. Weintraub, who has served as a commissioner for the nation’s top elections watchdog since 2002, said she did not recognize a letter from President Trump relieving her from her post as legally valid.`\
 https://nytimes.com/2025/02/06/us/politics/federal-election-commission-weintraub-trump.html
