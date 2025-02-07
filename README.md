@@ -1,3 +1,7 @@
+**Campus Figures**\
+`Kelly Morenus opens our solving weekend.`\
+https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
+
 **How many goals does Alex Ovechkin have? Tracking his chase to catch Wayne Gretzky**\
 `We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
 https://nytimes.com/athletic/6083468/2025/02/06/ovechkin-goals-record-wayne-gretzky-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
 **Trump Imposes Sanctions on International Court, Accusing It of Targeting the U.S. and Israel**\
 `The president signed an executive order that said the I.C.C.’s actions against Israel and preliminary investigations into the United States “set a dangerous precedent.”`\
 https://nytimes.com/2025/02/06/us/politics/trump-icc-sanctions.html
-
-**22 States Sue to Block New York Law Targeting Fossil Fuel Companies**\
-`Emboldened by President Trump, West Virginia and other states are challenging a law that makes corporate polluters pay for past emissions.`\
-https://nytimes.com/2025/02/06/nyregion/climate-change-superfund-act-lawsuit.html
 
