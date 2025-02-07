@@ -1,3 +1,7 @@
+**Is the national criticism of Connor Bedard fair? Breaking down his shifts**\
+`Recent nationally televised games mean more eyes on Bedard's play, for good or bad. Let's take a closer look.`\
+https://nytimes.com/athletic/6119388/2025/02/07/connor-bedard-national-criticism-nhl-blackhawks-oilers/
+
 **Where are the Bulls going after Zach LaVine trade? That's a good question**\
 `Artūras Karnišovas couldn't offer a clear vision for the franchise after Thursday's trade deadline.`\
 https://nytimes.com/athletic/6120372/2025/02/07/bulls-nba-trade-franchise-zach-lavine-changes/
