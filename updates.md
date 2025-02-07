@@ -1,3 +1,7 @@
+**LeBron goes No. 1 by O’Neal, Barkley takes 6 foreign players in All-Star draft**\
+`In the NBA commissioner’s latest attempt to introduce more competition, the traditional All-Star Game was replaced by a mini tournament.`\
+https://nytimes.com/athletic/6119935/2025/02/06/nba-all-star-tournament-draft-lebron-james/
+
 **Kamala Harris Tours the Destruction in the Palisades**\
 `Asked during her visit on Thursday if she was considering running for governor of California, Ms. Harris did not give a direct answer, but did not rule it out either.`\
 https://nytimes.com/2025/02/06/us/kamala-harris-tours-palisades.html
