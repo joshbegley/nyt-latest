@@ -1,3 +1,7 @@
+**Firefighter Hiring Stalls at Federal Agencies After Trump’s Freeze**\
+`Job offers have been rescinded and start dates pushed back just as firefighting staffing for the summer wildfire season was beginning, a union said.`\
+https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.html
+
 **Arts Endowment Cuts Grants Dedicated to Underserved Communities**\
 `The National Endowment for the Arts said it will instead prioritize work that connects with the upcoming 250th anniversary of American independence.`\
 https://nytimes.com/2025/02/07/arts/national-endowment-for-the-arts-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/sports/football/howard-twilley-dead.html
 **Chiefs, Eagles release final injury reports ahead of Super Bowl LIX**\
 `The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
 https://nytimes.com/athletic/6122496/2025/02/07/chiefs-eagles-final-injury-reports-super-bowl/
-
-**Trump Defended Musk’s Cost-Cutting Effort**\
-`Also, a judge paused job cuts at U.S.A.I.D. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/02/07/briefing/trump-elon-musk-pentagon-usaid-job-cuts.html
 
