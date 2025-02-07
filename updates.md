@@ -1,3 +1,15 @@
+**Doechii’s Victory Lap, and 10 More New Songs**\
+`Hear tracks from Valerie June, Coi Leray, Destroyer and others.`\
+https://nytimes.com/2025/02/07/arts/music/playlist-doechii-lady-gaga.html
+
+**The Military Led Diversity Efforts. West Point’s Club Ban Is a Shift.**\
+`West Point leaders complied with President Trump’s D.E.I. ban by ending a dozen student clubs. Critics say the move contradicts decades of efforts to diversify the nation’s fighting force.`\
+https://nytimes.com/2025/02/07/us/west-point-clubs-minorities-women-trump.html
+
+**Super Bowl LIX memorabilia challenge: Who had the better haul?**\
+`We sent two local writers around New Orleans on a hunt for the best Super Bowl merch they can buy on a budget`\
+https://nytimes.com/athletic/6120453/2025/02/07/super-bowl-merchandise-memorabilia-challenge/
+
 **How Many Federal Worker Resignations Would Be a Lot?**\
 `Sixty-five thousand have submitted resignations as part of Elon Musk’s “fork in the road” offer. But 150,000 voluntarily leave every year anyway.`\
 https://nytimes.com/2025/02/07/upshot/elon-musk-federal-workers.html
