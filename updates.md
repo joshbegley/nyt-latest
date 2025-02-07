@@ -1,3 +1,7 @@
+**The Super Bowl Ads, Ranked**\
+`Here is our critic’s evolving survey of this year’s Super Bowl commercials, from best to worst.`\
+https://nytimes.com/2025/02/07/arts/television/super-bowl-commercials-ads-best-worst.html
+
 **Vecenie: The good, the bad and the ugly of the NBA trade deadline**\
 `After a frenzied and often bold series of moves, which teams helped and hurt themselves the most? And what are the Bulls doing, exactly? `\
 https://nytimes.com/athletic/6117566/2025/02/07/nba-trade-deadline-review-lakers-mavericks/
