@@ -1,3 +1,11 @@
+**Jack Flaherty's return looks like a victory for the Tigers. Here's what it means**\
+`Flaherty signed a two-year contract worth up to $45 million. His return creates a new level of competition in the Tigers rotation.`\
+https://nytimes.com/athletic/6122221/2025/02/07/jack-flaherty-detroit-tigers-rotation/
+
+**A Party With an Edible Zen Garden**\
+`For the opening of her new store in Los Angeles, the florist Ren MacDonald-Balasia filled the space with food and flowers inspired by her heritage.`\
+https://nytimes.com/2025/02/07/t-magazine/renko-floral-los-angeles-party.html
+
 **'We like the core': Pistons GM Trajan Langdon explains Detroit's trade deadline**\
 `Langdon's message was consistent throughout his 20-minute media conference: He believes in the players currently on the Pistons' roster.`\
 https://nytimes.com/athletic/6121635/2025/02/07/pistons-trade-deadline-cunningham-langdon/
