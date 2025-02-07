@@ -1,3 +1,11 @@
+**2 Killed as Tornadoes Sweep Through Eastern Tennessee**\
+`The tornadoes, which also injured three people and caused widespread damage, reached wind speeds in excess of 100 miles per hour.`\
+https://nytimes.com/2025/02/07/us/tennessee-tornado-morgan-county-mother-daughter.html
+
+**At Justice Dept., Trump’s Former Criminal Defender Emerges as His Enforcer**\
+`As the acting deputy attorney general, Emil Bove has overseen the forced transfers of senior officials and an effort to collect the names of F.B.I. agents who worked on Jan. 6 cases.`\
+https://nytimes.com/2025/02/07/us/politics/emil-bove-justice-fbi-trump-bondi.html
+
 **Tyreek Hill issues public apology to Dolphins, Tua Tagovailoa**\
 `Hill previously voiced his frustration after the Dolphins missed the playoffs at 8-9, their first time missing the postseason since 2021.`\
 https://nytimes.com/athletic/6122231/2025/02/07/tyreek-hill-apology-dolphins-tua-tagovailoa/
