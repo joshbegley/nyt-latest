@@ -1,3 +1,7 @@
+**Can Movie Stars Handle Greek Classics? London Is Finding Out.**\
+`Sophocles is suddenly everywhere on the city’s stages. In concurrent shows, Rami Malek is playing Oedipus and Brie Larson is taking on Elektra.`\
+https://nytimes.com/2025/02/07/theater/rami-malek-oedpius-brie-larson-elektra-sophocles-london.html
+
 **Carl Edwards 'shocked' by NASCAR Hall of Fame nod he never thought would come**\
 `Carl Edwards left NASCAR abruptly in 2016 and has mostly stayed away since, making his Hall of Fame induction all the more special to him.`\
 https://nytimes.com/athletic/6121469/2025/02/07/carl-edwards-nascar-hall-of-fame-class/

@@ -1,3 +1,7 @@
+**Can Movie Stars Handle Greek Classics? London Is Finding Out.**\
+`Sophocles is suddenly everywhere on the city’s stages. In concurrent shows, Rami Malek is playing Oedipus and Brie Larson is taking on Elektra.`\
+https://nytimes.com/2025/02/07/theater/rami-malek-oedpius-brie-larson-elektra-sophocles-london.html
+
 **Carl Edwards 'shocked' by NASCAR Hall of Fame nod he never thought would come**\
 `Carl Edwards left NASCAR abruptly in 2016 and has mostly stayed away since, making his Hall of Fame induction all the more special to him.`\
 https://nytimes.com/athletic/6121469/2025/02/07/carl-edwards-nascar-hall-of-fame-class/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121578/2025/02/07/wolves-craig-dawson-contract-ter
 **Where the Dealmakers and Strivers Get Their Gossip**\
 `Emily Sundberg’s business newsletter, Feed Me, has made her a rising Substack star.`\
 https://nytimes.com/2025/02/07/business/emily-sundberg-feed-me.html
-
-**Review: Strauss’s ‘Salome,’ Squeezed Down to Some Clarinets**\
-`Heartbeat Opera specializes in daring reductions of the classics, and this may be its most implausible undertaking yet.`\
-https://nytimes.com/2025/02/07/arts/music/heartbeat-opera-salome-review.html
 
