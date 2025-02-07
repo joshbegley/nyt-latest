@@ -1,3 +1,7 @@
+**The E.P.A. orders a review of funding from the 2022 climate law.**\
+`A memo to`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/the-epa-orders-a-review-of-funding-from-the-2022-climate-law
+
 **Transgender Americans Challenge Trump’s Passport Policy in Court**\
 `The A.C.L.U. filed a lawsuit after the president’s administration stopped issuing passports that reflect the gender identity of transgender and nonbinary people.`\
 https://nytimes.com/2025/02/07/us/transgender-americans-lawsuit-trump-passports.html
