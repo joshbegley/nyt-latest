@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6121757/2025/02/07/bam-adebayo-tyler-herro-heat-jim
 `Your one-stop shop to all things Super Bowl 2025 betting, from picks and predictions to player prop bets and novelty wagers. `\
 https://nytimes.com/athletic/6100448/2025/02/07/super-bowl-2025-betting-eagles-chiefs-odds-picks-predictions/
 
-**A judge in Boston heard arguments on two birthright suits.**\
-`By Jenna Russell`\
-https://nytimes.com/2025/02/07/us/politics/a-judge-in-boston-heard-arguments-on-two-birthright-suits.html
+**Judge in Boston Hears Arguments on Two Birthright Suits**\
+`The hearing involved two separate but similar lawsuits`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/a-judge-in-boston-heard-arguments-on-two-birthright-suits
 
