@@ -1,3 +1,15 @@
+**Can Brandon Ingram get it right with Raptors after frustrating tenure in New Orleans?**\
+`Eric Koreen and Will Guillory break down the trade between the Pelicans and Raptors that sent Ingram to Toronto.`\
+https://nytimes.com/athletic/6120297/2025/02/07/brandon-ingram-raptors-trade-pelicans/
+
+**Phillies farm system heat check: What's the immediate and future outlook?**\
+`Here's a look at the Phillies' top prospects and what the Opening Day roster could look like in two years.`\
+https://nytimes.com/athletic/6113383/2025/02/07/phillies-farm-system-prospects-outlook/
+
+**Brad Stevens discusses Celtics sale, Jaden Springer trade and playing inconsistency**\
+`Celtics GM explains "boring as hell" trade deadline and why he's not concerned by his team's up and down performance. `\
+https://nytimes.com/athletic/6120390/2025/02/07/celtics-sale-brad-stevens-trade-deadline/
+
 **Creative (and Cheap) Valentine’s Day Ideas**\
 `A meaningful gift doesn’t have to cost a lot.`\
 https://nytimes.com/2025/02/07/well/cheap-valentines-day-ideas.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/02/07/world/americas/venezuela-deportation-flights-trum
 **Ecuador’s President Has Had a Year of Chaos. Why Is He Still So Popular?**\
 `President Daniel Noboa is favored to win Sunday’s presidential election as many voters embrace his heavy-handed tactics to fight violence and corruption.`\
 https://nytimes.com/2025/02/07/world/americas/ecuador-presidential-election-noboa.html
-
-**Trump’s Executive Orders Leave Imprint on the Fed**\
-`The central bank has halted hiring to align with a White House directive and pulled back its work on climate change.`\
-https://nytimes.com/2025/02/07/business/federal-reserve-trump-executive-orders.html
-
-**Trump’s Power Grab Defies G.O.P. Orthodoxy on Local Control**\
-`New York City traffic. California water rules. Middle school sports. Few local policies are outside the reach of Donald J. Trump’s federal government.`\
-https://nytimes.com/2025/02/07/us/politics/donald-trump-california-newyork-executive-orders.html
-
-**Doncic Trade Has Mavericks Fans Feeling They ‘Lost a Family Member’**\
-`Dallas built its team’s identity around Luka Doncic, on the court and off. Now that he’s gone, some supporters no longer feel a connection to the franchise.`\
-https://nytimes.com/2025/02/07/business/luka-doncic-dallas-mavericks-fans.html
 
