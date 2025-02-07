@@ -1,3 +1,7 @@
+**How Thatcher Demko, Drew O'Connor helped Canucks avoid a slip: 3 takeaways**\
+`Vancouver got an overtime victory in San Jose thanks to an O'Connor penalty shot goal.`\
+https://nytimes.com/athletic/6120773/2025/02/07/thatcher-demko-drew-oconnor-canucks-sharks/
+
 **Word of the Day: intelligible**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/07/learning/word-of-the-day-intelligible.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115254/2025/02/07/west-ham-transfer-window-review-
 **Marco Asensio's Aston Villa arrival - and a chance to put his career back on track**\
 `Villa's confidence in their new loan signing comes from Emery's desire to provide a stable environment for players who have lost their way`\
 https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transfer-real-madrid-psg/
-
-**Nwaneri has seven matches to beat a record set by Michael Owen and Wayne Rooney**\
-`Can he match two of the greatest talents English football has seen?`\
-https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-to-beat-a-record-set-by-michael-owen-and-wayne-rooney/
 
