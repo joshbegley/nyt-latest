@@ -1,3 +1,7 @@
+**Transgender Americans Challenge Trump’s Passport Policy in Court**\
+`The A.C.L.U. filed a lawsuit after the president’s administration stopped issuing passports that reflect the gender identity of transgender and nonbinary people.`\
+https://nytimes.com/2025/02/07/us/transgender-americans-lawsuit-trump-passports.html
+
 **Falsehoods Fuel the Right-Wing Crusade Against U.S.A.I.D.**\
 `As the Trump administration works to dismantle the aid agency, right-wing influencers have flooded the internet with falsehoods about its work.`\
 https://nytimes.com/2025/02/07/business/usaid-conspiracy-theories-disinformation.html
