@@ -1,3 +1,7 @@
+**Severson's scrap, Provorov's short-handed goal help Blue Jackets steal a point**\
+`Tired and missing some of their top players, the Blue Jackets nevertheless earned a point thanks to Severson's energy-boosting tilt.`\
+https://nytimes.com/athletic/6120560/2025/02/06/blue-jackets-severson-fight-provorov-utah/
+
 **Indiana, Mike Woodson reportedly in talks about coach's future with program**\
 `Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
 https://nytimes.com/athletic/6119966/2025/02/06/indiana-basketball-mike-woodson-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119318/2025/02/06/eli-manning-hall-of-fame-giants-
 **Yankees' Brian Cashman: Gleyber Torres was 'unwilling' to change positions**\
 `Cashman said that when he traded for Jazz Chisholm Jr., his intent was for Gleyber Torres to move to third base.`\
 https://nytimes.com/athletic/6120414/2025/02/06/yankees-brian-cashman-gleyber-torres-position-change/
-
-**Campus Figures**\
-`Kelly Morenus opens our solving weekend.`\
-https://nytimes.com/2025/02/06/crosswords/daily-puzzle-2025-02-07.html
 

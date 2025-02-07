@@ -1,3 +1,7 @@
+**Severson's scrap, Provorov's short-handed goal help Blue Jackets steal a point**\
+`Tired and missing some of their top players, the Blue Jackets nevertheless earned a point thanks to Severson's energy-boosting tilt.`\
+https://nytimes.com/athletic/6120560/2025/02/06/blue-jackets-severson-fight-provorov-utah/
+
 **Indiana, Mike Woodson reportedly in talks about coach's future with program**\
 `Struggling Hoosiers appear to be heading toward a second straight season without an NCAA Tournament bid.`\
 https://nytimes.com/athletic/6119966/2025/02/06/indiana-basketball-mike-woodson-future/
