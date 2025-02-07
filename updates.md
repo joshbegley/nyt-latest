@@ -1,3 +1,7 @@
+**Critics Choice Awards 2025: The Complete Winners List**\
+`Here’s who went home a winner from the 30th annual Critics Choice Awards.`\
+https://nytimes.com/2025/02/07/style/critics-choice-awards-winners-complete-list.html
+
 **Democrats Take Aim at Elon Musk**\
 `It’s the first sign of unified opposition for a rudderless and leaderless Democratic Party.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-democrats.html
