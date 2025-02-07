@@ -1,3 +1,7 @@
+**Word of the Day: intelligible**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/07/learning/word-of-the-day-intelligible.html
+
 **Maple Leafs report cards: Stellar Stolarz and a bit of luck lead to win in Seattle**\
 `Buoyed by some good fortune and strong goaltending, Leafs extend winning streak to three games with 3-1 win over Kraken.`\
 https://nytimes.com/athletic/6120442/2025/02/07/maple-leafs-kraken-nhl-report-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117875/2025/02/07/marco-asensio-aston-villa-transf
 **Nwaneri has seven matches to beat a record set by Michael Owen and Wayne Rooney**\
 `Can he match two of the greatest talents English football has seen?`\
 https://nytimes.com/athletic/6115201/2025/02/07/ethan-nwaneri-has-seven-matches-to-beat-a-record-set-by-michael-owen-and-wayne-rooney/
-
-**Why Nuno's tactical flexibility is Forest's secret weapon**\
-`Now Nuno has got Forest's identity set, he can focus on tactical tweaks`\
-https://nytimes.com/athletic/6111754/2025/02/07/why-nuno-espirito-santos-tactical-flexibility-is-nottingham-forests-secret-weapon/
 
