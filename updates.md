@@ -1,3 +1,7 @@
+**Van Nistelrooy criticises 'offside time' officiating mistake in Man United defeat**\
+`Ruud van Nisterlooy said his Leicester City side were defeated in “offside time” after being knocked out of the FA Cup by Manchester United due to an official failing to spot an offside.`\
+https://nytimes.com/athletic/6122618/2025/02/07/man-united-leicester-fa-cup-offside-van-nistelrooy/
+
 **Tony Roberts, Nonchalant Fixture in Woody Allen Films, Dies at 85**\
 `He had an acclaimed Broadway career in musicals and comedies, but moviegoers knew him mostly as the tall, self-assured, easygoing pal to Mr. Allen’s insecure heroes.`\
 https://nytimes.com/2025/02/07/movies/tony-roberts-dead.html
