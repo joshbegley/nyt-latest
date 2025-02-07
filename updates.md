@@ -1,3 +1,11 @@
+**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
+`Tim Spiers takes a look at the sillier side of football this week`\
+https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
+
+**The Pulse: An NFL MVP first since 1987**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6120781/2025/02/07/josh-allen-mvp-super-bowl-connections-the-pulse/
+
 **Iran’s Supreme Leader Denounces Talk With U.S. but Seems to Leave Door Ajar**\
 `Both President Trump and Iranian officials have shown interest in negotiations. Ayatollah Ali Khamenei called the idea unwise, but stopped short of ordering his government not to engage.`\
 https://nytimes.com/2025/02/07/world/europe/khamenei-iran-us-negotiations.html

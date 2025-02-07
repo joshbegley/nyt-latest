@@ -1,3 +1,11 @@
+**Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
+`Tim Spiers takes a look at the sillier side of football this week`\
+https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
+
+**The Pulse: An NFL MVP first since 1987**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6120781/2025/02/07/josh-allen-mvp-super-bowl-connections-the-pulse/
+
 **Iran’s Supreme Leader Denounces Talk With U.S. but Seems to Leave Door Ajar**\
 `Both President Trump and Iranian officials have shown interest in negotiations. Ayatollah Ali Khamenei called the idea unwise, but stopped short of ordering his government not to engage.`\
 https://nytimes.com/2025/02/07/world/europe/khamenei-iran-us-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6118445/2025/02/07/oilers-defenceman-darnell-nurse-
 **Inside the Chiefs’ top 10 postseason blitzes unleashed by Steve Spagnuolo**\
 `The Chiefs enter Sunday with a nine-game winning streak in the playoffs because Spagnuolo and his players have outwitted offenses.`\
 https://nytimes.com/athletic/6120462/2025/02/07/chiefs-blitzes-super-bowl-steve-spagnuolo/
-
-**Broncos 2025 NFL Draft big board: 10 players who fit Sean Payton's roster 'musts'**\
-`A running back or tight end with elite receiving traits, an athletic inside linebacker and a more athletic safety are priorities for Denver.`\
-https://nytimes.com/athletic/6118865/2025/02/07/broncos-2025-nfl-draft-big-board/
-
-**The Musketeers Take Washington + Spotify’s Ghost Music + Tool Time**\
-`“The way to control government is to control the computers”`\
-https://nytimes.com/2025/02/07/podcasts/hardfork-doge-spotify-tools.html
 
