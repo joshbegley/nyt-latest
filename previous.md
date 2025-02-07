@@ -1,3 +1,7 @@
+**I.C.C. Pushes Back on Trump Order Imposing Sanctions on It**\
+`The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
+https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
+
 **Row Z: Staying humble, Cristiano Ronaldo's surprise favourite player and speed dating at Molineux**\
 `Tim Spiers takes a look at the sillier side of football this week`\
 https://nytimes.com/athletic/6119555/2025/02/07/row-z-arsenal-manchester-city-cristiano-ronaldo-joao-felix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118151/2025/02/07/the-athletics-friday-football-qu
 **Lowetide: How Darnell Nurse has unlocked a new gear with his passing**\
 `Nurse is contributing to the Oilers' offence in a more substantial way than in the past`\
 https://nytimes.com/athletic/6118445/2025/02/07/oilers-defenceman-darnell-nurse-passing/
-
-**Inside the Chiefs’ top 10 postseason blitzes unleashed by Steve Spagnuolo**\
-`The Chiefs enter Sunday with a nine-game winning streak in the playoffs because Spagnuolo and his players have outwitted offenses.`\
-https://nytimes.com/athletic/6120462/2025/02/07/chiefs-blitzes-super-bowl-steve-spagnuolo/
 

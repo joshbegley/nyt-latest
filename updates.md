@@ -1,3 +1,7 @@
+**I.C.C. Pushes Back on Trump Order Imposing Sanctions on It**\
+`The International Criminal Court said President Trump’s executive order sought to harm its “independent and impartial judicial work.”`\
+https://nytimes.com/2025/02/07/us/politics/icc-trump-sanctions-order.html
+
 **Man City add Marmoush, Nico, Khusanov to Champions League squad**\
 `City made four signings in the transfer window but were only allowed to add three players to their Champions League squad.`\
 https://nytimes.com/athletic/6118980/2025/02/07/manchester-city-champions-league-squad-reis/
