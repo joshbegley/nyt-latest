@@ -1,3 +1,19 @@
+**A 311-Year-Old Stradivarius Violin Sells for $10 Million at Sotheby’s**\
+`The money from the sale of the violin, which was once owned by the 19th-century virtuoso Joseph Joachim, will benefit a scholarship program at the New England Conservatory.`\
+https://nytimes.com/2025/02/07/arts/music/stradivarius-violin-10-million-auction.html
+
+**How Monterrey signed Sergio Ramos: 'The only way to make a girl fall in love is to be yourself'**\
+`Monterrey president Jose Antonio Noriega explains how and why they moved for the 38-year-old Real Madrid and Spain legend `\
+https://nytimes.com/athletic/6120954/2025/02/07/monterrey-sign-sergio-ramos-transfer-noriega/
+
+**Wolves' Dawson in talks with club over possible contract termination**\
+`Wolves defender Craig Dawson is in talks with the club about a possible termination of his contract after head coach Vitor Pereira told the veteran he does not figure in his plans.`\
+https://nytimes.com/athletic/6121578/2025/02/07/wolves-craig-dawson-contract-termination/
+
+**Where the Dealmakers and Strivers Get Their Gossip**\
+`Emily Sundberg’s business newsletter, Feed Me, has made her a rising Substack star.`\
+https://nytimes.com/2025/02/07/business/emily-sundberg-feed-me.html
+
 **Review: Strauss’s ‘Salome,’ Squeezed Down to Some Clarinets**\
 `Heartbeat Opera specializes in daring reductions of the classics, and this may be its most implausible undertaking yet.`\
 https://nytimes.com/2025/02/07/arts/music/heartbeat-opera-salome-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/americas/100000009976597/brazil-plane-crash-sao-
 **The Bounce: Luka Dončić to Lakers made big waves, but who were NBA trade deadline's winners & losers?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6121229/2025/02/07/luka-doncic-lakers-mavericks-jimmy-butler-warriors-heat-nba-trade-deadline-the-bounce/
-
-**Trump’s New Line of Attack Against the Media Gains Momentum**\
-`First Amendment experts say Mr. Trump’s lawsuits, based on an unproven legal theory, lack merit. But more could be on the way.`\
-https://nytimes.com/2025/02/07/business/media/trump-media-lawsuits.html
-
-**Brooklyn Museum Will Lay Off Employees and Scale Back Exhibitions**\
-`The museum, which faces a projected $10 million deficit, said it planned to cut more than a tenth of its employees and mount fewer exhibitions.`\
-https://nytimes.com/2025/02/07/arts/design/brooklyn-museum-layoffs.html
-
-**Blackened Salmon, Spiced Heavily and Seared Hard**\
-`That’s Saturday’s supper, with French toast amandine for breakfast and yakamein for lunch.`\
-https://nytimes.com/2025/02/07/dining/blackened-salmon.html
-
-**Three Super Bowl Titles, Two Podcasts and One Explosive Interview**\
-`“Club Shay Shay” became a must-stop destination for Hollywood after Katt Williams aired his grievances. “This was our ‘Thriller’ album,” said the host Shannon Sharpe.`\
-https://nytimes.com/2025/02/07/arts/shannon-sharpe-club-shay-shay.html
 

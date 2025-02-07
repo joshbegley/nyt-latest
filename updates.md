@@ -1,3 +1,19 @@
+**A 311-Year-Old Stradivarius Violin Sells for $10 Million at Sotheby’s**\
+`The money from the sale of the violin, which was once owned by the 19th-century virtuoso Joseph Joachim, will benefit a scholarship program at the New England Conservatory.`\
+https://nytimes.com/2025/02/07/arts/music/stradivarius-violin-10-million-auction.html
+
+**How Monterrey signed Sergio Ramos: 'The only way to make a girl fall in love is to be yourself'**\
+`Monterrey president Jose Antonio Noriega explains how and why they moved for the 38-year-old Real Madrid and Spain legend `\
+https://nytimes.com/athletic/6120954/2025/02/07/monterrey-sign-sergio-ramos-transfer-noriega/
+
+**Wolves' Dawson in talks with club over possible contract termination**\
+`Wolves defender Craig Dawson is in talks with the club about a possible termination of his contract after head coach Vitor Pereira told the veteran he does not figure in his plans.`\
+https://nytimes.com/athletic/6121578/2025/02/07/wolves-craig-dawson-contract-termination/
+
+**Where the Dealmakers and Strivers Get Their Gossip**\
+`Emily Sundberg’s business newsletter, Feed Me, has made her a rising Substack star.`\
+https://nytimes.com/2025/02/07/business/emily-sundberg-feed-me.html
+
 **Review: Strauss’s ‘Salome,’ Squeezed Down to Some Clarinets**\
 `Heartbeat Opera specializes in daring reductions of the classics, and this may be its most implausible undertaking yet.`\
 https://nytimes.com/2025/02/07/arts/music/heartbeat-opera-salome-review.html
