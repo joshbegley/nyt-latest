@@ -1,3 +1,7 @@
+**FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
+`Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25.`\
+https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
+
 **Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
 `According to Kimmel, “MAGA Teresa” only attended the National Prayer Breakfast “because he doesn’t like it when people worship anyone other than him.”`\
 https://nytimes.com/2025/02/07/arts/television/jimmy-kimmel-trump-prayer-breakfast.html

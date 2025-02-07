@@ -1,3 +1,7 @@
+**FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
+`Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25.`\
+https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
+
 **Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
 `According to Kimmel, “MAGA Teresa” only attended the National Prayer Breakfast “because he doesn’t like it when people worship anyone other than him.”`\
 https://nytimes.com/2025/02/07/arts/television/jimmy-kimmel-trump-prayer-breakfast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/trump-signs-order-to-fight-anti-chris
 **Reimagining the American War Machine**\
 `The biggest challenge for any peacetime military is preparing for the next war.`\
 https://nytimes.com/2025/02/07/opinion/us-military-weapons-pentagon.html
-
-**Small Plane With 10 Onboard Goes Missing in Alaska**\
-`The Cessna, operated by Bering Air, went off the radar and lost radio contact minutes before it was scheduled to land in Nome.`\
-https://nytimes.com/2025/02/07/us/alaska-plane-missing.html
 
