@@ -1,3 +1,15 @@
+**Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
+`A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
+https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
+
+**A Sick Inmate in New York Is Freed After Suing Over Parole Delay**\
+`Steve Coleman was kept for 21 months after his parole date because the state could not find a nursing home placement.`\
+https://nytimes.com/2025/02/07/health/medical-parole-new-york.html
+
+**Trump Administration Flips U.S. Position in Supreme Court Transgender Case**\
+`An administration lawyer said a Tennessee law barring some medical treatments for transgender youths is constitutional and urged the justices to say so.`\
+https://nytimes.com/2025/02/07/us/politics/supreme-court-transgender-case.html
+
 **Giants spring guide: 32 thoughts for 32 pitchers, from Beck to Verlander to Winn**\
 `A brief look at the 32 pitchers the Giants are bringing to Scottsdale when major-league camp opens in a few days.`\
 https://nytimes.com/athletic/6120195/2025/02/07/sf-giants-spring-pitching-preview/

@@ -1,3 +1,7 @@
+**An El Greco Is Pulled From an Auction as Romania Objects**\
+`The Romanian government has long sought dozens of valuable paintings that it says the country’s last king took into exile in 1947.`\
+https://nytimes.com/2025/02/07/arts/design/el-greco-painting-christies-romania-government.html
+
 **Skip Bayless, Joy Taylor deny allegations made in lawsuit filed by former hairstylist**\
 `A spokeswoman on behalf of Taylor told The Athletic that Faraji including Taylor in the complaint was an attempt to leverage attention.`\
 https://nytimes.com/athletic/6122107/2025/02/07/skip-bayless-joy-taylor-fox-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/tennessee-tornado-morgan-county-mother-daughte
 **At Justice Dept., Trump’s Former Criminal Defender Emerges as His Enforcer**\
 `As the acting deputy attorney general, Emil Bove has overseen the forced transfers of senior officials and an effort to collect the names of F.B.I. agents who worked on Jan. 6 cases.`\
 https://nytimes.com/2025/02/07/us/politics/emil-bove-justice-fbi-trump-bondi.html
-
-**Tyreek Hill issues public apology to Dolphins, Tua Tagovailoa**\
-`Hill previously voiced his frustration after the Dolphins missed the playoffs at 8-9, their first time missing the postseason since 2021.`\
-https://nytimes.com/athletic/6122231/2025/02/07/tyreek-hill-apology-dolphins-tua-tagovailoa/
 
