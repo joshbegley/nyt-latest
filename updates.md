@@ -1,3 +1,7 @@
+**'We like the core': Pistons GM Trajan Langdon explains Detroit's trade deadline**\
+`Langdon's message was consistent throughout his 20-minute media conference: He believes in the players currently on the Pistons' roster.`\
+https://nytimes.com/athletic/6121635/2025/02/07/pistons-trade-deadline-cunningham-langdon/
+
 **Heat Today: Bam Adebayo, Tyler Herro lead Miami's post-Jimmy Butler chapter**\
 `The Butler saga no longer hangs over Miami, and now it's back to the business of basketball.`\
 https://nytimes.com/athletic/6121757/2025/02/07/bam-adebayo-tyler-herro-heat-jimmy-butler-warriors-nba-trade-deadline/
