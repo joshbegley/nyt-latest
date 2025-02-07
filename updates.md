@@ -1,3 +1,7 @@
+**The Musketeers Take Washington + Spotify’s Ghost Music + Tool Time**\
+`“The way to control government is to control the computers”`\
+https://nytimes.com/2025/02/07/podcasts/hardfork-doge-spotify-tools.html
+
 **Does My Wife Need to Know About My Porn Habit?**\
 `The magazine’s Ethicist columnist on self-pleasuring secrets and the pressures of living up to one’s sexual orientation.`\
 https://nytimes.com/2025/02/07/magazine/porn-habit-bisexual-polyamory-ethics.html

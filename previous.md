@@ -1,3 +1,7 @@
+**The Musketeers Take Washington + Spotify’s Ghost Music + Tool Time**\
+`“The way to control government is to control the computers”`\
+https://nytimes.com/2025/02/07/podcasts/hardfork-doge-spotify-tools.html
+
 **Does My Wife Need to Know About My Porn Habit?**\
 `The magazine’s Ethicist columnist on self-pleasuring secrets and the pressures of living up to one’s sexual orientation.`\
 https://nytimes.com/2025/02/07/magazine/porn-habit-bisexual-polyamory-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/business/economy/jobs-federal-reserve-interest-ra
 **Live Updates: U.S. Jobs Report Expected to Show a January Gain of 175,000**\
 `The employment data is forecast to show a strong labor market on the eve of the transition to the administration of President Trump.`\
 https://nytimes.com/live/2025/02/07/business/jobs-report-january-economy
-
-**Explaining the Penguins' latest business changes as a key executive resigns**\
-`Fenway Sports Group will need to find a new Penguins president of business operations. Here's what we know.`\
-https://nytimes.com/athletic/6119331/2025/02/07/penguins-owners-fsg-kevin-acklin/
 
