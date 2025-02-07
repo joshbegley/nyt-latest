@@ -1,3 +1,19 @@
+**In fiery words, the federal prosecutor in Washington promises an inquiry into allegations raised by Musk.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/federal-prosecutor-ed-martin-elon-musk
+
+**Champions League knockout underdog bets: Can Man City boot out Madrid?**\
+`Brett Koremenos breaks down the matchups and qualification odds for every tie of the Champions League play-off round. Who has value?`\
+https://nytimes.com/athletic/6121074/2025/02/07/champions-league-underdog-bets-manchester-city-real-madrid/
+
+**NBA trade deadline effects I'm watching: Anthony Davis' fit, Kyle Kuzma's habits and more**\
+`Can Dallas replicate Cleveland's two-man game now that it has Anthony Davis? Can Kyle Kuzma can be the next P.J. Washington? `\
+https://nytimes.com/athletic/6121387/2025/02/07/anthony-davis-trade-kyle-kuzma/
+
+**After New Orleans’s Super Bowl Makeover, Some Residents Say: What About Us?**\
+`Streetlights and sidewalks have been installed. Broken pavement has been replaced. But residents say the work should continue after the Super Bowl leaves.`\
+https://nytimes.com/2025/02/07/us/super-bowl-new-orleans.html
+
 **Treasury Installs Musk Ally to Oversee Its Payment System**\
 `Tom Krause, a software executive, is the Treasury Department’s fiscal assistant secretary with access to a system that disburses government funds and includes Americans’ personal information.`\
 https://nytimes.com/2025/02/07/us/politics/treasury-musk-doge-payment-system.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/07/opinion/religion-god.html
 **Former NBA dunk champ Nate Robinson undergoing kidney transplant**\
 `Robinson, who started his NBA career with the Knicks, has dealt with renal failure for the last seven years.`\
 https://nytimes.com/athletic/6121933/2025/02/07/nate-robinson-kidney-transplant/
-
-**Mort Künstler, Renowned Painter of Epic Historical Scenes, Dies at 97**\
-`His years illustrating pulp novels honed his sense of pictorial drama, and his meticulous research ensured historical accuracy, notably in his Civil War paintings.`\
-https://nytimes.com/2025/02/07/arts/mort-kunstler-dead.html
-
-**Scared of Spiders? Also Scared of Zombies? We Have Some Bad News.**\
-`A BBC documentary crew in Northern Ireland stumbled upon a fungus that hijacks spiders in an arachnid version of “The Last of Us.”`\
-https://nytimes.com/2025/02/07/science/spiders-fungus-zombies-bbc.html
-
-**Arsenal's Martinelli faces more than a month on sidelines with hamstring injury**\
-`Arsenal winger Gabriel Martinelli faces more than a month on the sidelines with a hamstring injury suffered during Wednesday’s EFL Cup loss at Newcastle United.`\
-https://nytimes.com/athletic/6122150/2025/02/07/arsenal-martinelli-hamstring-injury-update/
-
-**Meet the Cheerful Cook Who Wants You to Love Hospital Food**\
-`In the latest episode of “On the Job,” Priya Krishna visited Bill Freeman, who brings care and finesse to patients’ meals at a Pittsburgh hospital.`\
-https://nytimes.com/2025/02/07/dining/hospital-cook.html
 
