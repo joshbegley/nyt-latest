@@ -1,3 +1,7 @@
+**Tottenham's Van de Ven out of Villa match**\
+`Ange Postecoglou has admitted that Micky van de Ven’s injury is “a bit of a slow burner”, amid uncertainty over when the centre-back will return to the Tottenham Hotspur team.`\
+https://nytimes.com/athletic/6121441/2025/02/07/micky-van-de-ven-injury-update-tottenham/
+
 **The Briefing: Man United 2 Leicester 1 - The Garnacho effect, that first-half dirge, Dorgu on the right?**\
 `Analysis of the main talking points from the fourth round of the FA Cup at Old Trafford as Ruben Amorim's side huffed and puffed but won`\
 https://nytimes.com/athletic/6109347/2025/02/07/manchester-united-leicester-garnacho-dorgu/
