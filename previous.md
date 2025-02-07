@@ -19,7 +19,7 @@ https://nytimes.com/2025/02/07/nyregion/nyc-immigrants-trump-brooklyn.html
 https://nytimes.com/2025/02/07/crosswords/spelling-bee-forum.html
 
 **FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
-`Sports Interactive said that "following extensive internal discussion and careful consideration" with Sega, it would not be running FM25`\
+`Sports Interactive said that 'following extensive internal discussion and careful consideration' with Sega, it would not be running FM25.`\
 https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
 
 **Jimmy Kimmel Has Doubts About Trump’s Religious Convictions**\
@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6120237/2025/02/07/tottenham-hotspur-anfield-semi-f
 https://nytimes.com/athletic/6118508/2025/02/07/eiran-cashin-brighton-signing/
 
 **Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
-`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes away from a first trophy`\
+`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes from a first Anfield trophy`\
 https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
 

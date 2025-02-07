@@ -1,3 +1,11 @@
+**FM25 cancelled 'following extensive internal discussion' - Sports Interactive**\
+`Sports Interactive said that 'following extensive internal discussion and careful consideration' with Sega, it would not be running FM25.`\
+https://nytimes.com/athletic/6120865/2025/02/07/football-manager-2025-cancelled-why/
+
+**Dominik Szoboszlai: The beating heart of Liverpool's remarkable midfield**\
+`Liverpool's midfield, with Szoboszlai Gerrard-esque, were levels above Tottenham - Arne Slot is 90 minutes from a first Anfield trophy`\
+https://nytimes.com/athletic/6120146/2025/02/07/dominik-szoboszlai-liverpool-arne-slot-midfield/
+
 **Pedri and the passes**\
 `The Barcelona midfielder is playing deeper under new coach Hansi Flick and thriving. He put on a passing masterclass against Valencia`\
 https://nytimes.com/athletic/6120079/2025/02/07/pedri-barcelona-flick-passes/
