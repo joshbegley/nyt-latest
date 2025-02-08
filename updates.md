@@ -1,3 +1,43 @@
+**NHL fan predictions: Your picks for Stanley Cup winner, awards and more**\
+`We react to the survey responses of over 2,500 fans who voted for which team has been the biggest disappointment, best surprise and more.`\
+https://nytimes.com/athletic/6114200/2025/02/08/nhl-midseason-predictions-stanley-cup/
+
+**Brazeau’s contract is expiring. Negotiations are quiet. Could he be traded?**\
+`“I really try not to focus on it,” Brazeau said of his next deal. “I just let my agent do that. That’s what I pay him for.”`\
+https://nytimes.com/athletic/6122176/2025/02/08/bruins-justin-brazeau-trade-deadline/
+
+**Playing DOGE-ball With the Government**\
+`Lost boys find ways to ransack the capital.`\
+https://nytimes.com/2025/02/08/opinion/trump-musk-doge.html
+
+**Now Is Not the Time to Tune Out**\
+`Trump’s presidency demands your attention.`\
+https://nytimes.com/2025/02/08/opinion/trump-musk-public-attention.html
+
+**To Obey or Not to Obey**\
+`The voluntarily surrender of the public’s power is how autocracies are built.`\
+https://nytimes.com/2025/02/08/opinion/trump-power-surrender.html
+
+**The Price We Pay Betting on Sports**\
+`What sports betting reveals about addiction.`\
+https://nytimes.com/2025/02/08/opinion/sports-betting-addiction.html
+
+**The Assault on Diversity**\
+`Readers discuss diversity, equity and inclusion in the military, the government and in corporations.`\
+https://nytimes.com/2025/02/08/opinion/diversity-equity-inclusion-dei.html
+
+**The Political Future of Palestinians, According to Palestinians**\
+`Times Opinion spoke to five Palestinian scholars and analysts about what they believe the future holds for their people.`\
+https://nytimes.com/2025/02/08/opinion/palestinians-political-future-gaza.html
+
+**We Thought We Were Compassionate, but We Were Too Permissive**\
+`A friend’s journey through drugs and homelessness was aggravated by West Coast decriminalization. There’s a better path forward.`\
+https://nytimes.com/2025/02/08/opinion/fentanyl-addiction-drug-policy.html
+
+**Can MAGA Run the American Empire?**\
+`The real stakes of the U.S.A.I.D. debate.`\
+https://nytimes.com/2025/02/08/opinion/trump-usaid-maga.html
+
 **Dark Comedy**\
 `Movie audiences are cracking up during serious scenes. What’s a theatergoer to do?`\
 https://nytimes.com/2025/02/08/briefing/dark-comedy.html
