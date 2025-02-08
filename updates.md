@@ -1,3 +1,7 @@
+**Sept. 11 Plea Deal Includes Lifetime Gag Order on C.I.A. Torture Secrets**\
+`The clause is included in a disputed plea agreement between a Pentagon official and the man accused of planning the attacks that killed 3,000 people.`\
+https://nytimes.com/2025/02/07/us/politics/sept-11-plea-deal.html
+
 **Corrections: Feb. 8, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 8, 2025.`\
 https://nytimes.com/2025/02/07/pageoneplus/corrections-feb-8-2025.html
