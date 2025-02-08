@@ -1,3 +1,7 @@
+**Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
+`Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
+https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
+
 **Democratic Lawmakers Denied Entry to the Department of Education**\
 `It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
 https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html

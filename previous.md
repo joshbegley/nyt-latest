@@ -1,3 +1,7 @@
+**Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
+`Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
+https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
+
 **Democratic Lawmakers Denied Entry to the Department of Education**\
 `It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
 https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hama
 **A Tent City Is Rising at Guantánamo Bay**\
 `These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
 https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
-
-**Michigan's Dusty May calls Indiana job speculation 'flattering'**\
-`May is likely at or near the top of the coaching wish list for IU fans and its athletic director after Mike Woodson steps down.`\
-https://nytimes.com/athletic/6123420/2025/02/08/dusty-may-michigan-indiana/
 
