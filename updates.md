@@ -1,3 +1,7 @@
+**Will a Time Magazine Cover Drive a Wedge Between Trump and Musk?**\
+`The cover of the venerable newsweekly, long an object of fixation for the president, put Elon Musk behind the Resolute Desk.`\
+https://nytimes.com/2025/02/07/us/politics/trump-musk-time-magazine-cover.html
+
 **Deep Cuts to Medical Research Funds Could Hobble University Budgets**\
 `Grants from the National Institutes of Health come with additional money for overhead. Proposed funding cuts would leave colleges with large budget gaps.`\
 https://nytimes.com/2025/02/07/us/politics/medical-research-funding-cuts-university-budgets.html
