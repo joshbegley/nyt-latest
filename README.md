@@ -1,3 +1,7 @@
+**Corrections: Feb. 8, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 8, 2025.`\
+https://nytimes.com/2025/02/07/pageoneplus/corrections-feb-8-2025.html
+
 **Will a Time Magazine Cover Drive a Wedge Between Trump and Musk?**\
 `The cover of the venerable newsweekly, long an object of fixation for the president, put Elon Musk behind the Resolute Desk.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-time-magazine-cover.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/02/07/us/politics/medical-research-funding-cuts-univers
 https://nytimes.com/2025/02/07/nyregion/girl-bathtub-dead-brooklyn-apartment.html
 
 **Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
-`The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white “Afrikaner refugees” into the United States.`\
+`The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white, “Afrikaner refugees” into the United States.`\
 https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html
 
 **Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119641/2025/02/07/san-diego-padres-connor-joe-deal
 **Trump Administration Move to Freeze E.V. Charger Funding Confounds States**\
 `Some have halted work on the Biden-era $5 billion program to build E.V. charging stations. Others plan to keep building. Most are confused.`\
 https://nytimes.com/2025/02/07/climate/trump-ev-charger-funding-freeze.html
-
-**Trump and Musk Attack Journalists by Name in Social Media Posts**\
-`Since his inauguration, the president has been quick to demonize what he calls “the fake news media.” On Friday, both men demanded that individuals be fired.`\
-https://nytimes.com/2025/02/07/business/media/trump-musk-attack-journalists.html
 
