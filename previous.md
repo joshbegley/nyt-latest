@@ -1,3 +1,7 @@
+**Brandon Ingram is ready to start anew in Toronto: 'A change of scenery can be ... good'**\
+`The former All-Star hopes his injury woes will slow down on his third team.`\
+https://nytimes.com/athletic/6122370/2025/02/08/brandon-ingram-toronto-raptors-trade/
+
 **Why the Odds of an Asteroid Striking Earth in 2032 Keep Going Up (and Down)**\
 `NASA and European scientists explain how they calculate the probability of the space rock 2024 YR4 impacting our planet, and why it’s not yet time to worry.`\
 https://nytimes.com/2025/02/08/science/asteroid-yr4-2024-impact-odds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/magazine/gender-ideology-trump-orban.html
 **Betrayed: How Trump’s Tariff Threats Tore the U.S.-Canada Bond**\
 `Patriotic sentiment is bursting in Canada after President Trump’s threat to apply hefty tariffs and even annex the country. The damage to the two nations’ relationship could be lasting.`\
 https://nytimes.com/2025/02/08/world/canada/us-canada-relations-trump-tariffs.html
-
-**A Fishing Season That Lasts Just 17 Minutes**\
-`Despite its brevity, the rush to spear giant sturgeon in Cheboygan, Mich., is important to the local economy.`\
-https://nytimes.com/2025/02/08/sports/sturgeon-michigan-black-lake.html
 

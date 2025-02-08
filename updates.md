@@ -1,3 +1,7 @@
+**Brandon Ingram is ready to start anew in Toronto: 'A change of scenery can be ... good'**\
+`The former All-Star hopes his injury woes will slow down on his third team.`\
+https://nytimes.com/athletic/6122370/2025/02/08/brandon-ingram-toronto-raptors-trade/
+
 **Why the Odds of an Asteroid Striking Earth in 2032 Keep Going Up (and Down)**\
 `NASA and European scientists explain how they calculate the probability of the space rock 2024 YR4 impacting our planet, and why it’s not yet time to worry.`\
 https://nytimes.com/2025/02/08/science/asteroid-yr4-2024-impact-odds.html
