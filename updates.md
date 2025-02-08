@@ -1,3 +1,11 @@
+**Corrections: Feb. 8, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 8, 2025.`\
+https://nytimes.com/2025/02/07/pageoneplus/corrections-feb-8-2025.html
+
+**Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
+`The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white, “Afrikaner refugees” into the United States.`\
+https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html
+
 **Will a Time Magazine Cover Drive a Wedge Between Trump and Musk?**\
 `The cover of the venerable newsweekly, long an object of fixation for the president, put Elon Musk behind the Resolute Desk.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-time-magazine-cover.html
