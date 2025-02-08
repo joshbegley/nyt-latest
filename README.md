@@ -1,3 +1,7 @@
+**With Chet Holmgren's return, OKC's dominant defense could become impenetrable**\
+`OKC more than survived without the former second-overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
+https://nytimes.com/athletic/6122872/2025/02/08/chet-holmgren-return-thunder/
+
 **Why Malen was left out of Villa's Champions League squad - and how Emery's handling the fallout**\
 `The Dutch forward was sold an ambitious project by Unai Emery, with the cachet of Champions League football carrying significant appeal`\
 https://nytimes.com/athletic/6121958/2025/02/08/why-malen-was-left-out-of-villas-champions-league-squad-and-how-emerys-handling-the-fallout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6091002/2025/02/08/the-rise-of-new-balance-in-socce
 **Julian Alvarez has hit the ground running at Atletico. And just kept on running**\
 `The 2022 World Cup winner left Man City for Atletico last summer for a fee that could rise to €95m and has made a brilliant start`\
 https://nytimes.com/athletic/6112752/2025/02/08/julian-alvarez-atletico-madrid-impact-analysis/
-
-**Real Madrid vs La Liga's referees: A timeline of mistrust ahead of Atletico derby**\
-`The build-up to the Bernabeu clash has been overshadowed by fractious exchanges between Madrid and La Liga and the RFEF over officials`\
-https://nytimes.com/athletic/6121191/2025/02/08/madrid-real-atletico-referees-tebas-perez-rfef/
 
