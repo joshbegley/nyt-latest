@@ -1,3 +1,7 @@
+**Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
+`Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
+
 **Eagles activate Brandon Graham from injury report ahead of Super Bowl LIX**\
 `The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
 https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-reports-super-bowl/
