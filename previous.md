@@ -1,3 +1,7 @@
+**Tom Izzo ties Bob Knight’s Big Ten wins record as MSU tops Oregon**\
+`A star turn by Jase Richardson and a defensive turnaround in the second half flipped the game as the Spartans remained in Big Ten hunt.`\
+https://nytimes.com/athletic/6123337/2025/02/08/tom-izzo-michigan-state-record-bob-knight-oregon/
+
 **Birmingham 2 Newcastle 3: 'Super Bowl' fireworks, a refereeing row - and a goal for the ages**\
 `The big talking points analysed from a thrilling FA Cup fourth round tie at St Andrew's`\
 https://nytimes.com/athletic/6123224/2025/02/08/birmingham-city-newcastle-united-fa-cup-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/opinion/trump-shock-awe.html
 **Malik Beasley’s career high lifts Pistons past 76ers to get back to .500**\
 `Considering All-Star Cade Cunningham was sidelined with a sprained ankle, Detroit’s win on Friday was one of the season's most complete.`\
 https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
-
-**The courts have slowed many of Trump’s plans.**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
 
