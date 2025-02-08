@@ -6,6 +6,10 @@ https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
 `May is likely at or near the top of the coaching wish list for IU fans and its athletic director after Mike Woodson steps down.`\
 https://nytimes.com/athletic/6123420/2025/02/08/dusty-may-michigan-indiana/
 
+**Eagles activate Brandon Graham from injury report ahead of Super Bowl LIX**\
+`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
+https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-reports-super-bowl/
+
 **The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/world/europe/far-right-spain-rally.html
 **Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
 `President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
-
-**Tom Izzo ties Bob Knight’s Big Ten wins record as MSU tops Oregon**\
-`A star turn by Jase Richardson and a defensive turnaround in the second half flipped the game as the Spartans remained in Big Ten hunt.`\
-https://nytimes.com/athletic/6123337/2025/02/08/tom-izzo-michigan-state-record-bob-knight-oregon/
 

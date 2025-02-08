@@ -1,3 +1,7 @@
+**Eagles activate Brandon Graham from injury report ahead of Super Bowl LIX**\
+`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
+https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-reports-super-bowl/
+
 **Tent City Rising at Guantánamo Bay**\
 `These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
 https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
