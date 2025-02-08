@@ -18,8 +18,8 @@ https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.
 `Several Democratic lawmakers attempted to access the department’s headquarters on Friday, after a request to meet with the acting education secretary went unanswered.`\
 https://nytimes.com/video/us/politics/100000009979233/congressional-democrats-education-dept.html
 
-**PlayStation Network Outage Persists, Sony Says**\
-`Users on social media complained that they could not access their games after the unexplained outage began on Friday night.`\
+**PlayStation Network Is Working After 24-Hour Outage, Sony Says**\
+`Users on social media had complained that they could not access their games after the unexplained outage began on Friday night.`\
 https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
 
 **Musk attacks judge who temporarily blocked access to Treasury data.**\
