@@ -1,3 +1,7 @@
+**Luis Enrique signs new PSG contract extension**\
+`The 54-year-old joined PSG in July 2023 and his new deals runs until 2027. `\
+https://nytimes.com/athletic/5850329/2025/02/08/luis-enrique-psg-contract/
+
 **Denzel Washington Has Finally Found His Purpose (It’s Not Acting)**\
 `The legendary actor discusses the prophecy that changed his life, his Oscar snub and his upcoming role starring alongside a “complicated” Jake Gyllenhaal in “Othello” on Broadway.`\
 https://nytimes.com/2025/02/08/magazine/denzel-washington-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/movies/karla-sofia-gascon-emilia-perez-controvers
 **Worn Out by an Extrovert? You Can Go ‘Gray.’**\
 `Don’t engage an overbearing colleague — that is, be boring — and eventually the attention-seeker may give up and go away.`\
 https://nytimes.com/2025/02/08/business/extrovert-colleague-work-advice.html
-
-**Trump Joins a Global War on ‘Gender Ideology’**\
-`He’s allying with a movement that stretches to Hungary and Poland — one that looks with skepticism not just on trans rights but on feminism itself.`\
-https://nytimes.com/2025/02/08/magazine/gender-ideology-trump-orban.html
 
