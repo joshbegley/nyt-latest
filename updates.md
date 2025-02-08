@@ -1,3 +1,11 @@
+**In revoking Biden’s security clearance, Trump makes clear his motivation is payback.**\
+`The president made clear that he was acting in retaliation for his predecessor’s pulling of his security clearance shortly after the Jan. 6 riot.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-biden-security-clearances
+
+**Padres nearing deal with San Diego native Connor Joe: Sources**\
+`A product of Poway High School and the University of San Diego, Joe will play for his hometown club. `\
+https://nytimes.com/athletic/6119641/2025/02/07/san-diego-padres-connor-joe-deal/
+
 **Trump Administration Move to Freeze E.V. Charger Funding Confounds States**\
 `Some have halted work on the Biden-era $5 billion program to build E.V. charging stations. Others plan to keep building. Most are confused.`\
 https://nytimes.com/2025/02/07/climate/trump-ev-charger-funding-freeze.html

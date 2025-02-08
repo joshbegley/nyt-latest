@@ -1,3 +1,11 @@
+**In revoking Biden’s security clearance, Trump makes clear his motivation is payback.**\
+`The president made clear that he was acting in retaliation for his predecessor’s pulling of his security clearance shortly after the Jan. 6 riot.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-biden-security-clearances
+
+**Padres nearing deal with San Diego native Connor Joe: Sources**\
+`A product of Poway High School and the University of San Diego, Joe will play for his hometown club. `\
+https://nytimes.com/athletic/6119641/2025/02/07/san-diego-padres-connor-joe-deal/
+
 **Trump Administration Move to Freeze E.V. Charger Funding Confounds States**\
 `Some have halted work on the Biden-era $5 billion program to build E.V. charging stations. Others plan to keep building. Most are confused.`\
 https://nytimes.com/2025/02/07/climate/trump-ev-charger-funding-freeze.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.htm
 **Arts Endowment Cuts Grants Dedicated to Underserved Communities**\
 `The National Endowment for the Arts said it will instead prioritize work that connects with the upcoming 250th anniversary of American independence.`\
 https://nytimes.com/2025/02/07/arts/national-endowment-for-the-arts-trump.html
-
-**Transgender Americans Challenge Trump’s Passport Policy in Court**\
-`The A.C.L.U. filed a lawsuit after the president’s administration stopped issuing passports that reflect the gender identity of transgender and nonbinary people.`\
-https://nytimes.com/2025/02/07/us/transgender-americans-lawsuit-trump-passports.html
-
-**Falsehoods Fuel the Right-Wing Crusade Against U.S.A.I.D.**\
-`As the Trump administration works to dismantle the aid agency, right-wing influencers have flooded the internet with falsehoods about its work.`\
-https://nytimes.com/2025/02/07/business/usaid-conspiracy-theories-disinformation.html
 
