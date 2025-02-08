@@ -1,3 +1,11 @@
+**What’s It All About?**\
+`Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
+https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
+
+**As Red Wings stumble into break, a frantic playoff race awaits**\
+`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of playoff contention.`\
+https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
+
 **Chiefs Might Win Third Title in a Row, but They Can’t Own the Phrase ‘Three-Peat’**\
 `As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
 https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html

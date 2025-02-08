@@ -1,9 +1,13 @@
+**What’s It All About?**\
+`Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
+https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
+
 **Chiefs Might Win Third Title in a Row, but They Can’t Own the Phrase ‘Three-Peat’**\
 `As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
 https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
 
 **As Red Wings stumble into break, a frantic playoff race awaits**\
-`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of a playoff race as the 4 Nations break arrives.`\
+`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of playoff contention.`\
 https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
 
 **Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-sys
 **Follow a Styles Photographer for a Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style
-
-**Passengers Restrain Man Who Bashed a Window on a Flight**\
-`The man broke the window’s inner pane and plastic frame before being subdued on a Frontier Airlines flight on Tuesday. The F.B.I. is investigating.`\
-https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
 
