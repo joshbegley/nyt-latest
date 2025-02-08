@@ -1,3 +1,7 @@
+**Here’s what to know about the hostage and prisoner releases.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/heres-what-to-know-about-the-hostage-and-prisoner-releases
+
 **Why have Real Madrid struggled in big games this season?**\
 `Madrid have lost to Barcelona (twice), Liverpool, Milan, Athletic Club and Lille and now face three tough matches against Atletico and City`\
 https://nytimes.com/athletic/6069038/2025/02/08/real-madrid-big-game-struggles/
