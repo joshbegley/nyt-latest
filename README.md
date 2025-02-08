@@ -1,3 +1,7 @@
+**Malik Beasley’s career high lifts Pistons past 76ers to get back to .500**\
+`Considering All-Star Cade Cunningham was sidelined with a sprained ankle, Detroit’s win on Friday was one of the season's most complete.`\
+https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
+
 **The courts have slowed many of Trump’s plans.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/insider/weight-loss-drugs-marriage-nyt-article.ht
 **Kate Moss, Christy Turlington and the New Calvin Klein**\
 `New York Fashion Week begins with a big debut.`\
 https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
-
-**Israel releases over 180 Palestinian prisoners as part of the exchange.**\
-`By Lara Jakes and Fatima AbdulKarim`\
-https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
 
