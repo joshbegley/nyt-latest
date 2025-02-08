@@ -1,3 +1,15 @@
+**These Wings Are ‘Finger-Lickin’ Fabulous’**\
+`A five-star recipe from the chef Rio Irie yields spicy chicken wings that are funky and salty, sweet and sticky.`\
+https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
+
+**An Original Warhol, Carved From Potatoes**\
+`Illustrations by the artist, commissioned for The Times in 1962, were sculpted on spuds before being stamped onto paper.`\
+https://nytimes.com/2025/02/08/insider/andy-warhol-potato-sculpture-art.html
+
+**Weight Loss, Love and Opening Up About It All**\
+`For an article about how weight-loss drugs affect marriage and intimacy, one health reporter worked with couples to “hold up a mirror to readers.”`\
+https://nytimes.com/2025/02/08/insider/weight-loss-drugs-marriage-nyt-article.html
+
 **Kate Moss, Christy Turlington and the New Calvin Klein**\
 `New York Fashion Week begins with a big debut.`\
 https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/a-freed-isr
 **Her Brother Disappeared in War 80 Years Ago. She Finally Got to Say Goodbye.**\
 `Margery Hop Wong last saw her older brother Sgt. Yuen Hop in 1943. He was a soldier missing in action, until researchers solved the mystery behind his death.`\
 https://nytimes.com/2025/02/08/us/her-brother-disappeared-in-war-80-years-ago-she-finally-got-to-say-goodbye.html
-
-**Giants spring guide: 26 thoughts for 26 hitters, from Adames to Luciano to Yastrzemski**\
-`A brief look at the 26 position players who will be in Scottsdale when the Giants open camp on Feb. 12.`\
-https://nytimes.com/athletic/6120529/2025/02/08/sf-giants-spring-hitters-preview/
-
-**Delaware Law Has Entered the Culture War**\
-`Elon Musk has helped bring an esoteric debate around the Delaware Chancery Court to a national stage. Now Dropbox and Meta are contemplating moving their incorporation away from the state.`\
-https://nytimes.com/2025/02/08/business/dealbook/delaware-law-has-entered-the-culture-war.html
-
-**2 Books for Anxious Minds**\
-`Nadine Gordimer’s stories; Margaret Atwood’s sketches.`\
-https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html
 

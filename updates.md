@@ -1,3 +1,15 @@
+**These Wings Are ‘Finger-Lickin’ Fabulous’**\
+`A five-star recipe from the chef Rio Irie yields spicy chicken wings that are funky and salty, sweet and sticky.`\
+https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
+
+**An Original Warhol, Carved From Potatoes**\
+`Illustrations by the artist, commissioned for The Times in 1962, were sculpted on spuds before being stamped onto paper.`\
+https://nytimes.com/2025/02/08/insider/andy-warhol-potato-sculpture-art.html
+
+**Weight Loss, Love and Opening Up About It All**\
+`For an article about how weight-loss drugs affect marriage and intimacy, one health reporter worked with couples to “hold up a mirror to readers.”`\
+https://nytimes.com/2025/02/08/insider/weight-loss-drugs-marriage-nyt-article.html
+
 **Israel releases over 180 Palestinian prisoners as part of the exchange.**\
 `By Lara Jakes and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
