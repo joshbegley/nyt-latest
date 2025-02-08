@@ -1,3 +1,7 @@
+**Chiefs Might Win Third Title in a Row, but They Can’t Own the Phrase ‘Three-Peat’**\
+`As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
+https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
+
 **As Red Wings stumble into break, a frantic playoff race awaits**\
 `Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of a playoff race as the 4 Nations break arrives.`\
 https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
