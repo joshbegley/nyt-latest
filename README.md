@@ -1,3 +1,7 @@
+**PlayStation Network Outage Persists, Sony Says**\
+`Users on social media complained that they could not access their games after the unexplained outage began on Friday night.`\
+https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
+
 **Musk attacks judge who temporarily blocked access to Treasury data.**\
 `It was not clear if Elon Musk and his team would take steps to comply with the order.`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-federal-judge-treasury-data
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-repor
 **The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
-
-**Musk Team’s Access to Treasury Systems Raised Security Concerns**\
-`A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
-https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-systems-raised-security-concerns.html
 
