@@ -1,3 +1,7 @@
+**Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
+`The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
+https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
+
 **Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
 `In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
 https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
 **As Red Wings stumble into break, a frantic playoff race awaits**\
 `Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of playoff contention.`\
 https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
-
-**Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
-`Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
-https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
 
