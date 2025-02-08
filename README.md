@@ -1,3 +1,7 @@
+**Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
+`Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
+
 **Tent City Rising at Guantánamo Bay**\
 `These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
 https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123390/2025/02/08/newcastle-botman-gordon-burn-inj
 **Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
 `At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
 https://nytimes.com/2025/02/08/world/europe/far-right-spain-rally.html
-
-**Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
-`President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
-https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
 
