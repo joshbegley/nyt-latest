@@ -1,3 +1,7 @@
+**Dark Comedy**\
+`Movie audiences are cracking up during serious scenes. What’s a theatergoer to do?`\
+https://nytimes.com/2025/02/08/briefing/dark-comedy.html
+
 **Cubs spring preview: Key dates, position battles and 3 questions to answer**\
 `The Cubs enter the spring with the flexibility to potentially make a compelling trade or sign a last-minute free agent. `\
 https://nytimes.com/athletic/6122331/2025/02/08/chicago-cubs-spring-training-preview/
