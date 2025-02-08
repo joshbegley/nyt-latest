@@ -1,3 +1,7 @@
+**American Breezy Johnson captures downhill at world championships for biggest win of career**\
+`Breezy Johnson had never won a major race before Saturday's breakthrough, one year to the day until the 2026 Olympic downhill race.`\
+https://nytimes.com/athletic/6123004/2025/02/08/breezy-johnson-downhill-gold-world-championships-lindsey-vonn/
+
 **NHL fan predictions: Your picks for Stanley Cup winner, awards and more**\
 `We react to the survey responses of over 2,500 fans who voted for which team has been the biggest disappointment, best surprise and more.`\
 https://nytimes.com/athletic/6114200/2025/02/08/nhl-midseason-predictions-stanley-cup/
