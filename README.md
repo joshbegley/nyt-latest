@@ -1,4 +1,4 @@
-**The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Madrid flick a switch, where does it leave title race?**\
+**The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-1-atletico-madrid-1-controversial-penalty-madrid-flick-a-switch-where-does-it-leave-title-race/
 
