@@ -2,8 +2,8 @@
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
 
-**The Musk team’s access to Treasury systems raised security concerns.**\
-`By David E. Sanger`\
+**Musk team’s access to Treasury systems raised security concerns.**\
+`A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/the-musk-teams-access-to-treasury-systems-raised-security-concerns
 
 **Follow a Styles Photographer for a Day**\
