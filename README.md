@@ -1,3 +1,7 @@
+**It’s No Secret What Trump and His Allies Mean When They Talk About ‘Shock and Awe’**\
+`How the war in Iraq helps us understand Trump’s war on the federal government.`\
+https://nytimes.com/2025/02/08/opinion/trump-shock-awe.html
+
 **Malik Beasley’s career high lifts Pistons past 76ers to get back to .500**\
 `Considering All-Star Cade Cunningham was sidelined with a sprained ankle, Detroit’s win on Friday was one of the season's most complete.`\
 https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/insider/andy-warhol-potato-sculpture-art.html
 **Weight Loss, Love and Opening Up About It All**\
 `For an article about how weight-loss drugs affect marriage and intimacy, one health reporter worked with couples to “hold up a mirror to readers.”`\
 https://nytimes.com/2025/02/08/insider/weight-loss-drugs-marriage-nyt-article.html
-
-**Kate Moss, Christy Turlington and the New Calvin Klein**\
-`New York Fashion Week begins with a big debut.`\
-https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
 
