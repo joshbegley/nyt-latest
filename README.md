@@ -1,3 +1,7 @@
+**Nets waive Ben Simmons after 2-plus seasons**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/
+
 **Former Bears, Bills coach Dick Jauron dies at 74**\
 `Jauron won AP Coach of the Year in 2001 after leading the Bears to a 13-3 record.`\
 https://nytimes.com/athletic/6123181/2025/02/08/dick-jauron-death-bills-lions-bears-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123133/2025/02/08/leeds-millwall-tragedy-chanting/
 **These Wings Are ‘Finger-Lickin’ Fabulous’**\
 `A five-star recipe from the chef Rio Irie yields spicy chicken wings that are funky and salty, sweet and sticky.`\
 https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
-
-**An Original Warhol, Carved From Potatoes**\
-`Illustrations by the artist, commissioned for The Times in 1962, were sculpted on spuds before being stamped onto paper.`\
-https://nytimes.com/2025/02/08/insider/andy-warhol-potato-sculpture-art.html
 
