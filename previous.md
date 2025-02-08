@@ -1,3 +1,11 @@
+**Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
+`Gov. Gavin Newsom, a Democrat, has been balancing a desire to push back on Republican policies with a need to cooperate in seeking federal disaster aid.`\
+https://nytimes.com/2025/02/07/us/politics/newsom-bills-fighting-trump.html
+
+**Child protection group is told to comply with Trump’s gender order.**\
+`The National Center for Missing and Exploited Children is removing references to transgender children from its website but says its operations will carry on as usual.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/child-protection-group-told-to-comply-with-trumps-gender-order
+
 **In revoking Biden’s security clearance, Trump makes clear his motivation is payback.**\
 `The president made clear that he was acting in retaliation for his predecessor’s pulling of his security clearance shortly after the Jan. 6 riot.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-biden-security-clearances
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/us/adan-manzano-death-new-orleans-arrest.html
 **Trump Gave Elon Musk Access to America’s Checkbook. 19 States Are Suing.**\
 `Nineteen attorneys general, including New York’s Letitia James, accused the president of failing to faithfully execute the nation’s laws when he let Mr. Musk comb through federal computer systems.`\
 https://nytimes.com/2025/02/07/nyregion/attorneys-general-trump-musk-suit.html
-
-**Firefighter Hiring Stalls at Federal Agencies After Trump’s Freeze**\
-`Job offers have been rescinded and start dates pushed back just as firefighting staffing for the summer wildfire season was beginning, a union said.`\
-https://nytimes.com/2025/02/07/us/politics/firefighters-trump-funding-freeze.html
-
-**Arts Endowment Cuts Grants Dedicated to Underserved Communities**\
-`The National Endowment for the Arts said it will instead prioritize work that connects with the upcoming 250th anniversary of American independence.`\
-https://nytimes.com/2025/02/07/arts/national-endowment-for-the-arts-trump.html
 

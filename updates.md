@@ -1,3 +1,11 @@
+**Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
+`Gov. Gavin Newsom, a Democrat, has been balancing a desire to push back on Republican policies with a need to cooperate in seeking federal disaster aid.`\
+https://nytimes.com/2025/02/07/us/politics/newsom-bills-fighting-trump.html
+
+**Child protection group is told to comply with Trump’s gender order.**\
+`The National Center for Missing and Exploited Children is removing references to transgender children from its website but says its operations will carry on as usual.`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/child-protection-group-told-to-comply-with-trumps-gender-order
+
 **In revoking Biden’s security clearance, Trump makes clear his motivation is payback.**\
 `The president made clear that he was acting in retaliation for his predecessor’s pulling of his security clearance shortly after the Jan. 6 riot.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-biden-security-clearances
