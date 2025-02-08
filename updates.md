@@ -1,3 +1,7 @@
+**Follow a Styles Photographer for a Day**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style
+
 **Passengers Restrain Man Who Bashed a Window on a Flight**\
 `The man broke the window’s inner pane and plastic frame before being subdued on a Frontier Airlines flight on Tuesday. The F.B.I. is investigating.`\
 https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
