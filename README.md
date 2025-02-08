@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
 https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
 
 **As Red Wings stumble into break, a frantic playoff race awaits**\
-`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of a playoff race as the 4 Nations break arrives.`\
+`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of playoff contention.`\
 https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
 
 **Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
