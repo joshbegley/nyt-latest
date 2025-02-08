@@ -1,3 +1,11 @@
+**The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
+`Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
+https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-1-atletico-madrid-1-controversial-penalty-madrid-flick-a-switch-where-does-it-leave-title-race/
+
+**Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
+`At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
+https://nytimes.com/2025/02/08/world/europe/far-right-spain-rally.html
+
 **The Musk team’s access to Treasury systems raised security concerns.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/the-musk-teams-access-to-treasury-systems-raised-security-concerns
