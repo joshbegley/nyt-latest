@@ -1,3 +1,11 @@
+**Tent City Rising at Guantánamo Bay**\
+`These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
+https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
+
+**Michigan's Dusty May calls Indiana job speculation 'flattering'**\
+`May is likely at or near the top of the coaching wish list for IU fans and its athletic director after Mike Woodson steps down.`\
+https://nytimes.com/athletic/6123420/2025/02/08/dusty-may-michigan-indiana/
+
 **The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
