@@ -1,3 +1,7 @@
+**PlayStation Network Is Working After 24-Hour Outage, Sony Says**\
+`Users on social media had complained that they could not access their games after the unexplained outage began on Friday night.`\
+https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
+
 **Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
 `The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
 https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
