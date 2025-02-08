@@ -1,3 +1,11 @@
+**Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
+`Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
+https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
+
+**Large Earthquake Strikes Caribbean Near Cayman Islands**\
+`The 7.6-magnitude struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
+https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
+
 **PlayStation Network Is Working After 24-Hour Outage, Sony Says**\
 `Users on social media had complained that they could not access their games after the unexplained outage began on Friday night.`\
 https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html

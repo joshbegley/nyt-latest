@@ -1,3 +1,11 @@
+**Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
+`Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
+https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
+
+**Large Earthquake Strikes Caribbean Near Cayman Islands**\
+`The 7.6-magnitude struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
+https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
+
 **Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
 `The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
 https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-feder
 **What’s It All About?**\
 `Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
 https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
-
-**Super Bowl ‘Three-Peat’? Be Prepared to Pay for the Bragging Rights.**\
-`As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
-https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
-
-**As Red Wings stumble into break, a frantic playoff race awaits**\
-`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of playoff contention.`\
-https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
 
