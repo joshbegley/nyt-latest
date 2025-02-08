@@ -1,3 +1,7 @@
+**Malik Beasley’s career high lifts Pistons past 76ers to get back to .500**\
+`Considering All-Star Cade Cunningham was sidelined with a sprained ankle, Detroit’s win on Friday was one of the season's most complete.`\
+https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
+
 **The courts have slowed many of Trump’s plans.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
