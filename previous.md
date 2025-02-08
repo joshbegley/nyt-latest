@@ -1,3 +1,7 @@
+**U.S.A.I.D. Workers Brace for the Worst**\
+`A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
+https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
+
 **Wintry Mess Predicted Across Parts of the Northeast**\
 `Nearly a foot of snow could fall in Boston, and three to five inches of snow and sleet are expected in New York.`\
 https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123004/2025/02/08/breezy-johnson-downhill-gold-wor
 **NHL fan predictions: Your picks for Stanley Cup winner, awards and more**\
 `We react to the survey responses of over 2,500 fans who voted for which team has been the biggest disappointment, best surprise and more.`\
 https://nytimes.com/athletic/6114200/2025/02/08/nhl-midseason-predictions-stanley-cup/
-
-**Brazeau’s contract is expiring. Negotiations are quiet. Could he be traded?**\
-`“I really try not to focus on it,” Brazeau said of his next deal. “I just let my agent do that. That’s what I pay him for.”`\
-https://nytimes.com/athletic/6122176/2025/02/08/bruins-justin-brazeau-trade-deadline/
 

@@ -1,3 +1,7 @@
+**U.S.A.I.D. Workers Brace for the Worst**\
+`A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
+https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
+
 **Wintry Mess Predicted Across Parts of the Northeast**\
 `Nearly a foot of snow could fall in Boston, and three to five inches of snow and sleet are expected in New York.`\
 https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
