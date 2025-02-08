@@ -1,3 +1,7 @@
+**With Chet Holmgren's return, OKC's dominant defense could become impenetrable**\
+`OKC more than survived without the former second-overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
+https://nytimes.com/athletic/6122872/2025/02/08/chet-holmgren-return-thunder/
+
 **Why Malen was left out of Villa's Champions League squad - and how Emery's handling the fallout**\
 `The Dutch forward was sold an ambitious project by Unai Emery, with the cachet of Champions League football carrying significant appeal`\
 https://nytimes.com/athletic/6121958/2025/02/08/why-malen-was-left-out-of-villas-champions-league-squad-and-how-emerys-handling-the-fallout/
