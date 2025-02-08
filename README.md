@@ -1,3 +1,7 @@
+**Here’s what to know about the hostage and prisoner releases.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/heres-what-to-know-about-the-hostage-and-prisoner-releases
+
 **Why have Real Madrid struggled in big games this season?**\
 `Madrid have lost to Barcelona (twice), Liverpool, Milan, Athletic Club and Lille and now face three tough matches against Atletico and City`\
 https://nytimes.com/athletic/6069038/2025/02/08/real-madrid-big-game-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6121911/2025/02/08/will-the-independent-regulator-f
 **Super Bowl LIX: Everything you needed to know but were too afraid to ask**\
 `From the Vince Lombardi Trophy to scrimmages and punts, this is our beginner's guide to the Super Bowl`\
 https://nytimes.com/athletic/6121157/2025/02/08/super-bowl-2025-taylor-swift-eagles-chiefs/
-
-**Quote of the Day: The U.S. Economy Is Racing Ahead As the Well-Being Of the Nation Lags**\
-`Quotation of the Day for Saturday, February 8, 2025`\
-https://nytimes.com/2025/02/07/pageoneplus/quote-of-the-day-the-us-economy-is-racing-ahead-as-the-well-being-of-the-nation-lags.html
 
