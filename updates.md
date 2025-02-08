@@ -1,3 +1,7 @@
+**Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
+`The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white “Afrikaner refugees” into the United States.`\
+https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html
+
 **Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
 `Gov. Gavin Newsom, a Democrat, has been balancing a desire to push back on Republican policies with a need to cooperate in seeking federal disaster aid.`\
 https://nytimes.com/2025/02/07/us/politics/newsom-bills-fighting-trump.html
