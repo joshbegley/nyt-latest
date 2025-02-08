@@ -1,3 +1,7 @@
+**Denzel Washington Has Finally Found His Purpose (It’s Not Acting)**\
+`The legendary actor discusses the prophecy that changed his life, his Oscar snub and his upcoming role starring alongside a “complicated” Jake Gyllenhaal in “Othello” on Broadway.`\
+https://nytimes.com/2025/02/08/magazine/denzel-washington-interview.html
+
 **Brandon Ingram is ready to start anew in Toronto: 'A change of scenery can be ... good'**\
 `The former All-Star hopes his injury woes will slow down on his third team.`\
 https://nytimes.com/athletic/6122370/2025/02/08/brandon-ingram-toronto-raptors-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/business/extrovert-colleague-work-advice.html
 **Trump Joins a Global War on ‘Gender Ideology’**\
 `He’s allying with a movement that stretches to Hungary and Poland — one that looks with skepticism not just on trans rights but on feminism itself.`\
 https://nytimes.com/2025/02/08/magazine/gender-ideology-trump-orban.html
-
-**Betrayed: How Trump’s Tariff Threats Tore the U.S.-Canada Bond**\
-`Patriotic sentiment is bursting in Canada after President Trump’s threat to apply hefty tariffs and even annex the country. The damage to the two nations’ relationship could be lasting.`\
-https://nytimes.com/2025/02/08/world/canada/us-canada-relations-trump-tariffs.html
 
