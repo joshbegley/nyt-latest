@@ -1,3 +1,7 @@
+**Connor Bedard embraces challenge, Ryan Donato increases trade value in Blackhawks' rout**\
+`Donato had two goals and two assists in Chicago's 6-2 win over Nashville on Friday night.`\
+https://nytimes.com/athletic/6122888/2025/02/08/connor-bedard-ryan-donato-blackhawks-predators/
+
 **With Chet Holmgren's return, OKC's dominant defense could become impenetrable**\
 `The Thunder more than survived without the 2022 second overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
 https://nytimes.com/athletic/6122872/2025/02/08/chet-holmgren-return-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120922/2025/02/08/james-mcconnell-liverpool-arne-s
 **How New Balance cracked soccer: From Kawhi's NBA deal to Saka and Weah’s personalised boots**\
 `The rise of the sports brand in the world of soccer endorsements`\
 https://nytimes.com/athletic/6091002/2025/02/08/the-rise-of-new-balance-in-soccer/
-
-**Julian Alvarez has hit the ground running at Atletico. And just kept on running**\
-`The 2022 World Cup winner left Man City for Atletico last summer for a fee that could rise to €95m and has made a brilliant start`\
-https://nytimes.com/athletic/6112752/2025/02/08/julian-alvarez-atletico-madrid-impact-analysis/
 
