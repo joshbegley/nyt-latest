@@ -1,3 +1,7 @@
+**PlayStation Network Outage Persists, Sony Says**\
+`Users on social media complained that they could not access their games after the unexplained outage began on Friday night.`\
+https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
+
 **Musk attacks judge who temporarily blocked access to Treasury data.**\
 `It was not clear if Elon Musk and his team would take steps to comply with the order.`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-federal-judge-treasury-data
