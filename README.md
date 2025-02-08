@@ -1,4 +1,4 @@
-**In revoking Biden’s security clearance, Trump makes clear his motivation was payback.**\
+**In revoking Biden’s security clearance, Trump makes clear his motivation is payback.**\
 `The president made clear that he was acting in retaliation for his predecessor’s pulling of his security clearance shortly after the Jan. 6 riot.`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-biden-security-clearances
 
