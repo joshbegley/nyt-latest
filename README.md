@@ -1,3 +1,35 @@
+**Cubs spring preview: Key dates, position battles and 3 questions to answer**\
+`The Cubs enter the spring with the flexibility to potentially make a compelling trade or sign a last-minute free agent. `\
+https://nytimes.com/athletic/6122331/2025/02/08/chicago-cubs-spring-training-preview/
+
+**Seven years later, Carson Wentz’s mind still wanders**\
+`He watched his backup win a storybook Super Bowl, setting off years of criticism, but Wentz’s old teammates have his back.`\
+https://nytimes.com/athletic/6122810/2025/02/08/carson-wentz-super-bowl-return-nick-foles/
+
+**Twins' payroll gets late increase as team pushes to add depth**\
+`The Twins made adding depth a priority this offseason and ownership has increased the payroll to bolster the roster. `\
+https://nytimes.com/athletic/6122797/2025/02/08/minnesota-twins-payroll-increase/
+
+**Jones: Two Black QBs will start Super Bowl 59, but NFL diversity is still a work in progress**\
+`Patrick Mahomes and Jalen Hurts lead a rising number of Black NFL QBs. When will coaches and GMs of color celebrate similar equality?`\
+https://nytimes.com/athletic/6122210/2025/02/08/patrick-mahomes-jalen-hurts-black-quarterbacks/
+
+**Super Bowl LIX key questions: What must the QBs do? Who will be the X-factor?**\
+`What's the key for each quarterback? What's the most intriguing individual matchup? Our Eagles and Chiefs writers break it down.`\
+https://nytimes.com/athletic/6122219/2025/02/08/super-bowl-eagles-chiefs-key-questions-matchups/
+
+**A Trade War Is on Hold, but Trump’s Motives and a Fix Remain Uncertain**\
+`President Trump announced potentially crippling tariffs against Canada, only to suspend them for 30 days. What will satisfy him remains unknown.`\
+https://nytimes.com/2025/02/08/world/canada/a-trade-war-is-on-hold-but-trumps-motives-and-a-fix-remain-uncertain.html
+
+**Connections Companion No. 609**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 9, 2025.`\
+https://nytimes.com/2025/02/08/crosswords/connections-companion-609.html
+
+**Wordle Review No. 1,331**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 9, 2025.`\
+https://nytimes.com/2025/02/08/crosswords/wordle-review-1331.html
+
 **Luis Enrique signs new PSG contract extension**\
 `The 54-year-old joined PSG in July 2023 and his new deals runs until 2027. `\
 https://nytimes.com/athletic/5850329/2025/02/08/luis-enrique-psg-contract/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5850329/2025/02/08/luis-enrique-psg-contract/
 **Denzel Washington Has Finally Found His Purpose (It’s Not Acting)**\
 `The legendary actor discusses the prophecy that changed his life, his Oscar snub and his upcoming role starring alongside a “complicated” Jake Gyllenhaal in “Othello” on Broadway.`\
 https://nytimes.com/2025/02/08/magazine/denzel-washington-interview.html
-
-**Brandon Ingram is ready to start anew in Toronto: 'A change of scenery can be ... good'**\
-`The former All-Star hopes his injury woes will slow down on his third team.`\
-https://nytimes.com/athletic/6122370/2025/02/08/brandon-ingram-toronto-raptors-trade/
-
-**Why the Odds of an Asteroid Striking Earth in 2032 Keep Going Up (and Down)**\
-`NASA and European scientists explain how they calculate the probability of the space rock 2024 YR4 impacting our planet, and why it’s not yet time to worry.`\
-https://nytimes.com/2025/02/08/science/asteroid-yr4-2024-impact-odds.html
-
-**Is It OK to Read a Newspaper Online When I’ve Stopped Paying for It?**\
-`The magazine’s Ethicist columnist on whether it’s fair to peek behind a publication’s paywall if you’re no longer a subscriber.`\
-https://nytimes.com/2025/02/08/magazine/free-digital-subscription-newspaper-ethics.html
-
-**U.S. Aid Agency’s Climate Programs Aimed to Curb Migration. Now They’re Gone.**\
-`Aid projects were designed to help Central Americans withstand extreme weather at home. Their end could undercut Trump’s goal of reducing  migration.`\
-https://nytimes.com/2025/02/08/climate/us-aid-climate-migration.html
-
-**Fact-Checking Claims About U.S.A.I.D. Funding**\
-`Trump administration officials have misled about how the aid agency is spending its funding, in an effort to cite widespread “waste.”`\
-https://nytimes.com/2025/02/08/us/politics/usaid-funding-trump-fact-check.html
-
-**‘We Are in Disbelief’: Africa Reels as U.S. Aid Agency Is Dismantled**\
-`The collapse of U.S.A.I.D. at the hands of President Trump and Elon Musk is already leaving gaping holes in vital health care and other services that millions of Africans rely on for their survival.`\
-https://nytimes.com/2025/02/08/world/africa/usaid-africa-trump-musk.html
-
-**Karla Sofía Gascón Scandal Is Not the Only ‘Emilia Pérez’ Controversy**\
-`The actress’s old social media posts have threatened to derail the film’s Oscar campaign, but backlash has been building for months for other reasons.`\
-https://nytimes.com/2025/02/08/movies/karla-sofia-gascon-emilia-perez-controversies.html
-
-**Worn Out by an Extrovert? You Can Go ‘Gray.’**\
-`Don’t engage an overbearing colleague — that is, be boring — and eventually the attention-seeker may give up and go away.`\
-https://nytimes.com/2025/02/08/business/extrovert-colleague-work-advice.html
 
