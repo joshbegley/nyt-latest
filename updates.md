@@ -1,3 +1,7 @@
+**A staged hostage handover and forced speeches may raise pressure on the Israeli government.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/staged-handover-forced-speeches
+
 **Trump appointee, Russell Vought, takes over consumer bureau after Musk team arrives.**\
 `The key archi`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/trump-appointee-russell-vought-takes-over-consumer-bureau-after-musk-team-arrives

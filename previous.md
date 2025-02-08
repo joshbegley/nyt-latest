@@ -1,3 +1,7 @@
+**A staged hostage handover and forced speeches may raise pressure on the Israeli government.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/staged-handover-forced-speeches
+
 **Trump appointee, Russell Vought, takes over consumer bureau after Musk team arrives.**\
 `The key archi`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/trump-appointee-russell-vought-takes-over-consumer-bureau-after-musk-team-arrives
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manche
 **U.S.A.I.D. Workers Brace for the Worst**\
 `A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
 https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
-
-**Wintry Mess Predicted Across Parts of the Northeast**\
-`Nearly a foot of snow could fall in Boston, and three to five inches of snow and sleet are expected in New York.`\
-https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
 
