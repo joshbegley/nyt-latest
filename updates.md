@@ -1,3 +1,7 @@
+**Connor Bedard embraces challenge, Ryan Donato increases trade value in Blackhawks' rout**\
+`Donato had two goals and two assists in Chicago's 6-2 win over Nashville on Friday night.`\
+https://nytimes.com/athletic/6122888/2025/02/08/connor-bedard-ryan-donato-blackhawks-predators/
+
 **With Chet Holmgren's return, OKC's dominant defense could become impenetrable**\
 `The Thunder more than survived without the 2022 second overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
 https://nytimes.com/athletic/6122872/2025/02/08/chet-holmgren-return-thunder/
