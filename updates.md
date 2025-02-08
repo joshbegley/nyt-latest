@@ -1,3 +1,7 @@
+**How 'demanding' Ndidi's return benefits Leicester City**\
+`Luck was in short supply for Leicester at Old Trafford but Ndidi's return offers hope for Van Nistelrooy's side`\
+https://nytimes.com/athletic/6122695/2025/02/08/manchester-united-ndidi-leciester-city/
+
 **What DeepSeek? Big Tech Keeps Its A.I. Building Boom Alive.**\
 `An apparent breakthrough in efficiency from the Chinese start-up did not make tech’s biggest companies question their extravagant spending on new data centers.`\
 https://nytimes.com/2025/02/08/technology/deepseek-data-centers-ai.html

@@ -1,3 +1,7 @@
+**How 'demanding' Ndidi's return benefits Leicester City**\
+`Luck was in short supply for Leicester at Old Trafford but Ndidi's return offers hope for Van Nistelrooy's side`\
+https://nytimes.com/athletic/6122695/2025/02/08/manchester-united-ndidi-leciester-city/
+
 **What DeepSeek? Big Tech Keeps Its A.I. Building Boom Alive.**\
 `An apparent breakthrough in efficiency from the Chinese start-up did not make tech’s biggest companies question their extravagant spending on new data centers.`\
 https://nytimes.com/2025/02/08/technology/deepseek-data-centers-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6106702/2025/02/08/manchester-united-dorgu-right-fa
 **Modi’s Party Leads in Race for India’s Capital Region, Early Results Show**\
 `Control of the assembly in New Delhi seems likely to change hands, in an election that has showcased the cutthroat nature of Indian politics.`\
 https://nytimes.com/2025/02/08/world/asia/india-delhi-election-results.html
-
-**Padres agree to free-agent deal with veteran outfielder Jason Heyward: Sources**\
-`Heyward, a five-time Gold Glove winner in right field, is expected to platoon in left field with Connor Joe for San Diego.`\
-https://nytimes.com/athletic/6122917/2025/02/08/padres-jason-heyward-deal/
 
