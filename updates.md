@@ -1,3 +1,7 @@
+**Why was Leyton Orient's FA Cup wonder strike against Man City an own goal?**\
+`The on-loan Tottenham midfielder's 40-yard goal was credited to City goalkeeper Stefan Ortega`\
+https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manchester-city/
+
 **U.S.A.I.D. Workers Brace for the Worst**\
 `A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
 https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html

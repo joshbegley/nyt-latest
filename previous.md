@@ -1,3 +1,7 @@
+**Why was Leyton Orient's FA Cup wonder strike against Man City an own goal?**\
+`The on-loan Tottenham midfielder's 40-yard goal was credited to City goalkeeper Stefan Ortega`\
+https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manchester-city/
+
 **U.S.A.I.D. Workers Brace for the Worst**\
 `A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
 https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123009/2025/02/08/rick-pitino-st-johns-college-bas
 **American Breezy Johnson captures downhill at world championships for biggest win of career**\
 `Breezy Johnson had never won a major race before Saturday's breakthrough, one year to the day until the 2026 Olympic downhill race.`\
 https://nytimes.com/athletic/6123004/2025/02/08/breezy-johnson-downhill-gold-world-championships-lindsey-vonn/
-
-**NHL fan predictions: Your picks for Stanley Cup winner, awards and more**\
-`We react to the survey responses of over 2,500 fans who voted for which team has been the biggest disappointment, best surprise and more.`\
-https://nytimes.com/athletic/6114200/2025/02/08/nhl-midseason-predictions-stanley-cup/
 
