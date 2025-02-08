@@ -1,3 +1,7 @@
+**Why does Rick Pitino win? The answer is in no-man's-land**\
+`St. John's is playing basketball of a bygone era. And it's working`\
+https://nytimes.com/athletic/6123009/2025/02/08/rick-pitino-st-johns-college-basketball-2/
+
 **American Breezy Johnson captures downhill at world championships for biggest win of career**\
 `Breezy Johnson had never won a major race before Saturday's breakthrough, one year to the day until the 2026 Olympic downhill race.`\
 https://nytimes.com/athletic/6123004/2025/02/08/breezy-johnson-downhill-gold-world-championships-lindsey-vonn/
