@@ -1,3 +1,7 @@
+**Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
+`The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white “Afrikaner refugees” into the United States.`\
+https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html
+
 **Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
 `Gov. Gavin Newsom, a Democrat, has been balancing a desire to push back on Republican policies with a need to cooperate in seeking federal disaster aid.`\
 https://nytimes.com/2025/02/07/us/politics/newsom-bills-fighting-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/trump-musk-democrats.html
 **Woman Arrested in Connection With Super Bowl Reporter’s Death**\
 `Adan Manzano, a reporter for Telemundo Kansas City, was found dead in a hotel room near New Orleans. A woman he was last seen with has been charged with stealing his credit card and phone.`\
 https://nytimes.com/2025/02/07/us/adan-manzano-death-new-orleans-arrest.html
-
-**Trump Gave Elon Musk Access to America’s Checkbook. 19 States Are Suing.**\
-`Nineteen attorneys general, including New York’s Letitia James, accused the president of failing to faithfully execute the nation’s laws when he let Mr. Musk comb through federal computer systems.`\
-https://nytimes.com/2025/02/07/nyregion/attorneys-general-trump-musk-suit.html
 
