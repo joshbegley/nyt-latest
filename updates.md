@@ -1,3 +1,7 @@
+**Nets waive Ben Simmons after 2-plus seasons**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/
+
 **Former Bears, Bills coach Dick Jauron dies at 74**\
 `Jauron won AP Coach of the Year in 2001 after leading the Bears to a 13-3 record.`\
 https://nytimes.com/athletic/6123181/2025/02/08/dick-jauron-death-bills-lions-bears-coach/
