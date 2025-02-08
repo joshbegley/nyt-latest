@@ -1,3 +1,7 @@
+**What Elon Musk Wants**\
+`The journalist Kara Swisher discusses Elon Musk’s goals in government — and the factors that have led to his radicalization.`\
+https://nytimes.com/video/opinion/100000009969515/what-elon-musk-wants.html
+
 **Trump fires the nation’s archivist in latest round of personnel purge.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-fires-the-nations-archivist-in-latest-round-of-personnel-purge
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/pageoneplus/corrections-feb-8-2025.html
 **Will a Time Magazine Cover Drive a Wedge Between Trump and Musk?**\
 `The cover of the venerable newsweekly, long an object of fixation for the president, put Elon Musk behind the Resolute Desk.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-time-magazine-cover.html
-
-**Deep Cuts to Medical Research Funds Could Hobble University Budgets**\
-`Grants from the National Institutes of Health come with additional money for overhead. Proposed funding cuts would leave colleges with large budget gaps.`\
-https://nytimes.com/2025/02/07/us/politics/medical-research-funding-cuts-university-budgets.html
 

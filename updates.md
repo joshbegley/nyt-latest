@@ -1,3 +1,7 @@
+**What Elon Musk Wants**\
+`The journalist Kara Swisher discusses Elon Musk’s goals in government — and the factors that have led to his radicalization.`\
+https://nytimes.com/video/opinion/100000009969515/what-elon-musk-wants.html
+
 **Trump fires the nation’s archivist in latest round of personnel purge.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/02/07/us/trump-administration-updates/trump-fires-the-nations-archivist-in-latest-round-of-personnel-purge
