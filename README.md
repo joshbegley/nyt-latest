@@ -1,3 +1,7 @@
+**As Red Wings stumble into break, a frantic playoff race awaits**\
+`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of a playoff race as the 4 Nations break arrives.`\
+https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
+
 **Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
 `Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
 **Newcastle's Botman and Gordon doubts for Man City clash, Burn set for scan**\
 `Sven Botman and Anthony Gordon are injury doubts for Newcastle United&#8217;s visit to Manchester City next weekend, while Dan Burn is also set for a scan on a groin problem.`\
 https://nytimes.com/athletic/6123390/2025/02/08/newcastle-botman-gordon-burn-injury-update/
-
-**Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
-`At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
-https://nytimes.com/2025/02/08/world/europe/far-right-spain-rally.html
 
