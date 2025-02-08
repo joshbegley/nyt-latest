@@ -1,3 +1,7 @@
+**Kate Moss, Christy Turlington and the New Calvin Klein**\
+`New York Fashion Week begins with a big debut.`\
+https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
+
 **Israel releases 183 Palestinian prisoners as part of the exchange.**\
 `By Lara Jakes and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange

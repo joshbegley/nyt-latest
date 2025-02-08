@@ -1,3 +1,7 @@
+**Kate Moss, Christy Turlington and the New Calvin Klein**\
+`New York Fashion Week begins with a big debut.`\
+https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
+
 **Israel releases 183 Palestinian prisoners as part of the exchange.**\
 `By Lara Jakes and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/business/dealbook/delaware-law-has-entered-the-cu
 **2 Books for Anxious Minds**\
 `Nadine Gordimer’s stories; Margaret Atwood’s sketches.`\
 https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html
-
-**Why does Rick Pitino win? The answer is in no-man's-land**\
-`St. John's is playing basketball of a bygone era. And it's working`\
-https://nytimes.com/athletic/6123009/2025/02/08/rick-pitino-st-johns-college-basketball-2/
 
