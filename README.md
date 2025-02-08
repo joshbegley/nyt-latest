@@ -1,3 +1,11 @@
+**Wintry Mess Predicted Across Parts of the Northeast**\
+`Nearly a foot of snow could fall in Boston, and three to five inches of snow and sleet are expected in New York.`\
+https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
+
+**A freed Israeli hostage returns to a life shattered by the Oct. 7 attacks.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/a-freed-israeli-hostage-returns-to-a-life-shattered-by-the-oct-7-attacks
+
 **Her Brother Disappeared in War 80 Years Ago. She Finally Got to Say Goodbye.**\
 `Margery Hop Wong last saw her older brother Sgt. Yuen Hop in 1943. He was a soldier missing in action, until researchers solved the mystery behind his death.`\
 https://nytimes.com/2025/02/08/us/her-brother-disappeared-in-war-80-years-ago-she-finally-got-to-say-goodbye.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6114200/2025/02/08/nhl-midseason-predictions-stanle
 **Brazeau’s contract is expiring. Negotiations are quiet. Could he be traded?**\
 `“I really try not to focus on it,” Brazeau said of his next deal. “I just let my agent do that. That’s what I pay him for.”`\
 https://nytimes.com/athletic/6122176/2025/02/08/bruins-justin-brazeau-trade-deadline/
-
-**Playing DOGE-ball With the Government**\
-`Lost boys find ways to ransack the capital.`\
-https://nytimes.com/2025/02/08/opinion/trump-musk-doge.html
-
-**Now Is Not the Time to Tune Out**\
-`Trump’s presidency demands your attention.`\
-https://nytimes.com/2025/02/08/opinion/trump-musk-public-attention.html
 
