@@ -1,3 +1,7 @@
+**Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
+`In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
+https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
+
 **Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
 `Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
 https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html

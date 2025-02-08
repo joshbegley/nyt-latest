@@ -1,3 +1,7 @@
+**Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
+`In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
+https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
+
 **Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
 `Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
 https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl
 **Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
 `Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
-
-**A Tent City Is Rising at Guantánamo Bay**\
-`These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
-https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
 
