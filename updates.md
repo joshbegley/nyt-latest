@@ -1,3 +1,7 @@
+**Ben Simmons waived by Nets, intends to sign with Clippers**\
+`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
+https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/
+
 **Brighton's move for Bischoff seemingly off after clubs fail to agree deal**\
 `Brighton &amp; Hove Albion’s move for Brondby midfielder Clement Bischoff appears to have collapsed.`\
 https://nytimes.com/athletic/6123185/2025/02/08/brighton-clement-bischoff-deal-off-update/

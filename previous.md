@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
 `Ryan Mac and Kate Conger, two New York Times technology reporters who together wrote a book about what happened when Elon Musk bought Twitter, explain some of his tactics.`\
 https://nytimes.com/video/us/politics/100000009973981/elon-musk-brings-his-playbook-from-twitter-to-the-government.html
 
-**Nets waive Ben Simmons after 2-plus seasons**\
+**Ben Simmons waived by Nets, intends to sign with Clippers**\
 `Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
 https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/
 
