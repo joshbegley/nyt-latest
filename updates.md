@@ -1,3 +1,7 @@
+**Birmingham 2 Newcastle 3: 'Super Bowl' fireworks, a refereeing row - and a goal for the ages**\
+`The big talking points analysed from a thrilling FA Cup fourth round tie at St Andrew's`\
+https://nytimes.com/athletic/6123224/2025/02/08/birmingham-city-newcastle-united-fa-cup-analysis/
+
 **Ben Simmons waived by Nets, intends to sign with Clippers**\
 `Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
 https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/

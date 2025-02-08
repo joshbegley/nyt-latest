@@ -1,3 +1,7 @@
+**Birmingham 2 Newcastle 3: 'Super Bowl' fireworks, a refereeing row - and a goal for the ages**\
+`The big talking points analysed from a thrilling FA Cup fourth round tie at St Andrew's`\
+https://nytimes.com/athletic/6123224/2025/02/08/birmingham-city-newcastle-united-fa-cup-analysis/
+
 **Brighton's move for Bischoff seemingly off after clubs fail to agree deal**\
 `Brighton &amp; Hove Albion’s move for Brondby midfielder Clement Bischoff appears to have collapsed.`\
 https://nytimes.com/athletic/6123185/2025/02/08/brighton-clement-bischoff-deal-off-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
 **The courts have slowed many of Trump’s plans.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
-
-**Hamas Makes Gaunt Israeli Hostages Thank Captors Before Release**\
-`The scenes at the latest hostage release in Gaza angered Israelis and created even more uncertainty surrounding the next steps in a phased cease-fire deal.`\
-https://nytimes.com/2025/02/08/world/middleeast/israel-hamas-hostages-prisoners.html
 
