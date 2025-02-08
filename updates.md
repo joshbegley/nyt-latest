@@ -1,3 +1,7 @@
+**Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
+`The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
+https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
+
 **Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
 `In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
 https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
