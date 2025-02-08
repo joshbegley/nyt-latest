@@ -1,5 +1,5 @@
 **With Chet Holmgren's return, OKC's dominant defense could become impenetrable**\
-`OKC more than survived without the 2022 second overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
+`The Thunder more than survived without the 2022 second overall pick, going 32-7. With him, their defensive ceiling is the sky.`\
 https://nytimes.com/athletic/6122872/2025/02/08/chet-holmgren-return-thunder/
 
 **Why Malen was left out of Villa's Champions League squad - and how Emery's handling the fallout**\
