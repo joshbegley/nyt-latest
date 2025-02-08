@@ -1,3 +1,7 @@
+**Dark Comedy**\
+`Movie audiences are cracking up during serious scenes. What’s a theatergoer to do?`\
+https://nytimes.com/2025/02/08/briefing/dark-comedy.html
+
 **Cubs spring preview: Key dates, position battles and 3 questions to answer**\
 `The Cubs enter the spring with the flexibility to potentially make a compelling trade or sign a last-minute free agent. `\
 https://nytimes.com/athletic/6122331/2025/02/08/chicago-cubs-spring-training-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/crosswords/wordle-review-1331.html
 **Luis Enrique signs new PSG contract extension**\
 `The 54-year-old joined PSG in July 2023 and his new deals runs until 2027. `\
 https://nytimes.com/athletic/5850329/2025/02/08/luis-enrique-psg-contract/
-
-**Denzel Washington Has Finally Found His Purpose (It’s Not Acting)**\
-`The legendary actor discusses the prophecy that changed his life, his Oscar snub and his upcoming role starring alongside a “complicated” Jake Gyllenhaal in “Othello” on Broadway.`\
-https://nytimes.com/2025/02/08/magazine/denzel-washington-interview.html
 
