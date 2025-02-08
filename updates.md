@@ -1,3 +1,7 @@
+**As Red Wings stumble into break, a frantic playoff race awaits**\
+`Detroit had a seven-game win streak snapped Saturday, but it remains right in the thick of a playoff race as the 4 Nations break arrives.`\
+https://nytimes.com/athletic/6123398/2025/02/08/4-nations-face-off-red-wings-nhl/
+
 **A Tent City Is Rising at Guantánamo Bay**\
 `These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
 https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
