@@ -1,3 +1,7 @@
+**Israel releases 183 Palestinian prisoners as part of the exchange.**\
+`By Lara Jakes and Fatima AbdulKarim`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
+
 **Why was Leyton Orient's FA Cup wonder strike against Man City an own goal?**\
 `The on-loan Tottenham midfielder's 40-yard goal was credited to City goalkeeper Stefan Ortega`\
 https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html
 **Why does Rick Pitino win? The answer is in no-man's-land**\
 `St. John's is playing basketball of a bygone era. And it's working`\
 https://nytimes.com/athletic/6123009/2025/02/08/rick-pitino-st-johns-college-basketball-2/
-
-**American Breezy Johnson captures downhill at world championships for biggest win of career**\
-`Breezy Johnson had never won a major race before Saturday's breakthrough, one year to the day until the 2026 Olympic downhill race.`\
-https://nytimes.com/athletic/6123004/2025/02/08/breezy-johnson-downhill-gold-world-championships-lindsey-vonn/
 
