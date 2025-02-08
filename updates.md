@@ -1,3 +1,7 @@
+**2 Books for Anxious Minds**\
+`Nadine Gordimer’s stories; Margaret Atwood’s sketches.`\
+https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html
+
 **Why does Rick Pitino win? The answer is in no-man's-land**\
 `St. John's is playing basketball of a bygone era. And it's working`\
 https://nytimes.com/athletic/6123009/2025/02/08/rick-pitino-st-johns-college-basketball-2/
