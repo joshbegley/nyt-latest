@@ -1,3 +1,7 @@
+**Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
+`President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
+
 **Tom Izzo ties Bob Knight’s Big Ten wins record as MSU tops Oregon**\
 `A star turn by Jase Richardson and a defensive turnaround in the second half flipped the game as the Spartans remained in Big Ten hunt.`\
 https://nytimes.com/athletic/6123337/2025/02/08/tom-izzo-michigan-state-record-bob-knight-oregon/
