@@ -1,3 +1,15 @@
+**Super Bowl LIX: Everything you needed to know but were too afraid to ask**\
+`From the Vince Lombardi Trophy to scrimmages and punts, this is our beginner's guide to the Super Bowl`\
+https://nytimes.com/athletic/6121157/2025/02/08/super-bowl-2025-taylor-swift-eagles-chiefs/
+
+**Quote of the Day: The U.S. Economy Is Racing Ahead As the Well-Being Of the Nation Lags**\
+`Quotation of the Day for Saturday, February 8, 2025`\
+https://nytimes.com/2025/02/07/pageoneplus/quote-of-the-day-the-us-economy-is-racing-ahead-as-the-well-being-of-the-nation-lags.html
+
+**Consumer bureau website’s new message: ‘Page not found.’**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/consumer-bureau-websites-new-message-page-not-found
+
 **What Elon Musk Wants**\
 `The journalist Kara Swisher discusses Elon Musk’s goals in government — and the factors that have led to his radicalization.`\
 https://nytimes.com/video/opinion/100000009969515/what-elon-musk-wants.html

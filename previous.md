@@ -1,3 +1,15 @@
+**Super Bowl LIX: Everything you needed to know but were too afraid to ask**\
+`From the Vince Lombardi Trophy to scrimmages and punts, this is our beginner's guide to the Super Bowl`\
+https://nytimes.com/athletic/6121157/2025/02/08/super-bowl-2025-taylor-swift-eagles-chiefs/
+
+**Quote of the Day: The U.S. Economy Is Racing Ahead As the Well-Being Of the Nation Lags**\
+`Quotation of the Day for Saturday, February 8, 2025`\
+https://nytimes.com/2025/02/07/pageoneplus/quote-of-the-day-the-us-economy-is-racing-ahead-as-the-well-being-of-the-nation-lags.html
+
+**Consumer bureau website’s new message: ‘Page not found.’**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/07/us/trump-administration-updates/consumer-bureau-websites-new-message-page-not-found
+
 **What Elon Musk Wants**\
 `The journalist Kara Swisher discusses Elon Musk’s goals in government — and the factors that have led to his radicalization.`\
 https://nytimes.com/video/opinion/100000009969515/what-elon-musk-wants.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6122777/2025/02/07/sidney-crosby-injury-penguins/
 **Capo, e.g.**\
 `Alina Abidi makes a sweet, smart Saturday puzzle.`\
 https://nytimes.com/2025/02/07/crosswords/daily-puzzle-2025-02-08.html
-
-**Sept. 11 Plea Deal Includes Lifetime Gag Order on C.I.A. Torture Secrets**\
-`The clause is included in a disputed plea agreement between a Pentagon official and the man accused of planning the attacks that killed 3,000 people.`\
-https://nytimes.com/2025/02/07/us/politics/sept-11-plea-deal.html
-
-**Corrections: Feb. 8, 2025**\
-`Corrections that appeared in print on Saturday, Feb. 8, 2025.`\
-https://nytimes.com/2025/02/07/pageoneplus/corrections-feb-8-2025.html
-
-**Will a Time Magazine Cover Drive a Wedge Between Trump and Musk?**\
-`The cover of the venerable newsweekly, long an object of fixation for the president, put Elon Musk behind the Resolute Desk.`\
-https://nytimes.com/2025/02/07/us/politics/trump-musk-time-magazine-cover.html
 
