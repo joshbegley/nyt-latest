@@ -1,3 +1,7 @@
+**Girl, 6, Is Dead After Being Found in a Water-Filled Bathtub, Police Say**\
+`The girl was unconscious when officers found her in a Brooklyn apartment Friday afternoon, officials said.`\
+https://nytimes.com/2025/02/07/nyregion/girl-bathtub-dead-brooklyn-apartment.html
+
 **Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
 `The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white “Afrikaner refugees” into the United States.`\
 https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html

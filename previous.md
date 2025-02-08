@@ -1,3 +1,7 @@
+**Girl, 6, Is Dead After Being Found in a Water-Filled Bathtub, Police Say**\
+`The girl was unconscious when officers found her in a Brooklyn apartment Friday afternoon, officials said.`\
+https://nytimes.com/2025/02/07/nyregion/girl-bathtub-dead-brooklyn-apartment.html
+
 **Trump Orders Halt to Aid to South Africa, Claiming Mistreatment of White Landowners**\
 `The president ordered that all foreign assistance to South Africa be halted and said his administration would prioritize the resettling of white “Afrikaner refugees” into the United States.`\
 https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/style/critics-choice-awards-winners-complete-list
 **Democrats Take Aim at Elon Musk**\
 `It’s the first sign of unified opposition for a rudderless and leaderless Democratic Party.`\
 https://nytimes.com/2025/02/07/us/politics/trump-musk-democrats.html
-
-**Woman Arrested in Connection With Super Bowl Reporter’s Death**\
-`Adan Manzano, a reporter for Telemundo Kansas City, was found dead in a hotel room near New Orleans. A woman he was last seen with has been charged with stealing his credit card and phone.`\
-https://nytimes.com/2025/02/07/us/adan-manzano-death-new-orleans-arrest.html
 
