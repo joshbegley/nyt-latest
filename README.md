@@ -1,3 +1,7 @@
+**Manchester United won (just) and Ruben Amorim started Patrick Dorgu on the right**\
+`United found a way to progress in the FA Cup but, as the head coach said, they "need to do better"`\
+https://nytimes.com/athletic/6106702/2025/02/08/manchester-united-dorgu-right-facup-result/
+
 **Modi’s Party Leads in Race for India’s Capital Region, Early Results Show**\
 `Control of the assembly in New Delhi seems likely to change hands, in an election that has showcased the cutthroat nature of Indian politics.`\
 https://nytimes.com/2025/02/08/world/asia/india-delhi-election-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/heres-what-
 **Why have Real Madrid struggled in big games this season?**\
 `Madrid have lost to Barcelona (twice), Liverpool, Milan, Athletic Club and Lille and now face three tough matches against Atletico and City`\
 https://nytimes.com/athletic/6069038/2025/02/08/real-madrid-big-game-struggles/
-
-**Brandon Barker interview: Why Trent Alexander-Arnold's 'toughest opponent' is without a club**\
-`The former Manchester City prodigy on training with David Silva, why loan moves go wrong and how a stolen passport harmed his prospects `\
-https://nytimes.com/athletic/6119281/2025/02/08/brandon-barker-interview-manchester-city-rangers/
 
