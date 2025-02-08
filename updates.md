@@ -1,3 +1,7 @@
+**Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
+`At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
+https://nytimes.com/2025/02/08/world/europe/nationalist-leaders-rally-in-spain-to-make-europe-great-again.html
+
 **Follow a Styles Photographer for a Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style

@@ -10,7 +10,7 @@ https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
 `Sven Botman and Anthony Gordon are injury doubts for Newcastle United&#8217;s visit to Manchester City next weekend, while Dan Burn is also set for a scan on a groin problem.`\
 https://nytimes.com/athletic/6123390/2025/02/08/newcastle-botman-gordon-burn-injury-update/
 
-**Nationalist Leaders Rally in Spain to ‘Make Europe Great Again’**\
+**Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
 `At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
 https://nytimes.com/2025/02/08/world/europe/nationalist-leaders-rally-in-spain-to-make-europe-great-again.html
 
