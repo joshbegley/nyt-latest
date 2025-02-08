@@ -1,3 +1,11 @@
+**Trump Administration Move to Freeze E.V. Charger Funding Confounds States**\
+`Some have halted work on the Biden-era $5 billion program to build E.V. charging stations. Others plan to keep building. Most are confused.`\
+https://nytimes.com/2025/02/07/climate/trump-ev-charger-funding-freeze.html
+
+**Trump and Musk Attack Journalists by Name in Social Media Posts**\
+`Since his inauguration, the president has been quick to demonize what he calls “the fake news media.” On Friday, both men demanded that individuals be fired.`\
+https://nytimes.com/2025/02/07/business/media/trump-musk-attack-journalists.html
+
 **Critics Choice Awards 2025: The Complete Winners List**\
 `Here’s who went home a winner from the 30th annual Critics Choice Awards.`\
 https://nytimes.com/2025/02/07/style/critics-choice-awards-winners-complete-list.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/07/us/transgender-americans-lawsuit-trump-passports.
 **Falsehoods Fuel the Right-Wing Crusade Against U.S.A.I.D.**\
 `As the Trump administration works to dismantle the aid agency, right-wing influencers have flooded the internet with falsehoods about its work.`\
 https://nytimes.com/2025/02/07/business/usaid-conspiracy-theories-disinformation.html
-
-**A.I. Military Start-Up Anduril Close to Deal That Would Value Company at $28 Billion**\
-`The Southern California start-up, which builds flying drones and missiles, is set to raise up to $2.5 billion.`\
-https://nytimes.com/2025/02/07/technology/anduril-funding-valuation-28-billion.html
-
-**Trump Says He Will Dismiss Kennedy Center Board Members and Install Himself as Chair**\
-`The move by the president, whose authority to make the changes was not clear, is the latest attempt to bring a Washington institution under his control.`\
-https://nytimes.com/2025/02/07/us/politics/trump-kennedy-center.html
 
