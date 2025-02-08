@@ -1,3 +1,15 @@
+**Passengers Restrain Man Who Bashed a Window on a Flight**\
+`The man broke the window’s inner pane and plastic frame before being subdued on a Frontier Airlines flight on Tuesday. The F.B.I. is investigating.`\
+https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
+
+**Newcastle's Botman and Gordon doubts for Man City clash, Burn set for scan**\
+`Sven Botman and Anthony Gordon are injury doubts for Newcastle United&#8217;s visit to Manchester City next weekend, while Dan Burn is also set for a scan on a groin problem.`\
+https://nytimes.com/athletic/6123390/2025/02/08/newcastle-botman-gordon-burn-injury-update/
+
+**Nationalist Leaders Rally in Spain to ‘Make Europe Great Again’**\
+`At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
+https://nytimes.com/2025/02/08/world/europe/nationalist-leaders-rally-in-spain-to-make-europe-great-again.html
+
 **Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
 `President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
 **Elon Musk Brings His Playbook From Twitter to the Government**\
 `Ryan Mac and Kate Conger, two New York Times technology reporters who together wrote a book about what happened when Elon Musk bought Twitter, explain some of his tactics.`\
 https://nytimes.com/video/us/politics/100000009973981/elon-musk-brings-his-playbook-from-twitter-to-the-government.html
-
-**Ben Simmons waived by Nets, intends to sign with Clippers**\
-`Simmons is in the final year of a five-year, $177 million extension he signed with the 76ers.`\
-https://nytimes.com/athletic/6121593/2025/02/08/ben-simmons-contract-buyout-nets/
-
-**Former Bears, Bills coach Dick Jauron dies at 74**\
-`Jauron won AP Coach of the Year in 2001 after leading the Bears to a 13-3 record.`\
-https://nytimes.com/athletic/6123181/2025/02/08/dick-jauron-death-bills-lions-bears-coach/
-
-**It’s No Secret What Trump and His Allies Mean When They Talk About ‘Shock and Awe’**\
-`How the war in Iraq helps us understand Trump’s war on the federal government.`\
-https://nytimes.com/2025/02/08/opinion/trump-shock-awe.html
 
