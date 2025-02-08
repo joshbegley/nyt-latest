@@ -1,3 +1,7 @@
+**Modi’s Party Leads in Race for India’s Capital Region, Early Results Show**\
+`Control of the assembly in New Delhi seems likely to change hands, in an election that has showcased the cutthroat nature of Indian politics.`\
+https://nytimes.com/2025/02/08/world/asia/india-delhi-election-results.html
+
 **Padres agree to free-agent deal with veteran outfielder Jason Heyward: Sources**\
 `Heyward, a five-time Gold Glove winner in right field, is expected to platoon in left field with Connor Joe for San Diego.`\
 https://nytimes.com/athletic/6122917/2025/02/08/padres-jason-heyward-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6069038/2025/02/08/real-madrid-big-game-struggles/
 **Brandon Barker interview: Why Trent Alexander-Arnold's 'toughest opponent' is without a club**\
 `The former Manchester City prodigy on training with David Silva, why loan moves go wrong and how a stolen passport harmed his prospects `\
 https://nytimes.com/athletic/6119281/2025/02/08/brandon-barker-interview-manchester-city-rangers/
-
-**Ambassador Tells Rubio U.S.A.I.D. Cuts Would Cause ‘Major Vulnerability’ in Africa**\
-`Other diplomats across the continent are sending similar cables to the secretary of state to try to maintain lifesaving aid programs on which millions of Africans depend.`\
-https://nytimes.com/2025/02/07/us/politics/rubio-usaid-africa-cuts.html
 

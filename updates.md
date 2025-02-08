@@ -1,3 +1,7 @@
+**Modi’s Party Leads in Race for India’s Capital Region, Early Results Show**\
+`Control of the assembly in New Delhi seems likely to change hands, in an election that has showcased the cutthroat nature of Indian politics.`\
+https://nytimes.com/2025/02/08/world/asia/india-delhi-election-results.html
+
 **Padres agree to free-agent deal with veteran outfielder Jason Heyward: Sources**\
 `Heyward, a five-time Gold Glove winner in right field, is expected to platoon in left field with Connor Joe for San Diego.`\
 https://nytimes.com/athletic/6122917/2025/02/08/padres-jason-heyward-deal/
