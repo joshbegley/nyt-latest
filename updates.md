@@ -1,3 +1,7 @@
+**The Musk team’s access to Treasury systems raised security concerns.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/the-musk-teams-access-to-treasury-systems-raised-security-concerns
+
 **Far-Right Leaders Rally in Spain to ‘Make Europe Great Again’**\
 `At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
 https://nytimes.com/2025/02/08/world/europe/nationalist-leaders-rally-in-spain-to-make-europe-great-again.html

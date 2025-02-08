@@ -1,7 +1,3 @@
-**The Musk team’s access to Treasury systems raised security concerns.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2025/02/08/us/trump-administration-news/the-musk-teams-access-to-treasury-systems-raised-security-concerns
-
 **Follow a Styles Photographer for a Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6123185/2025/02/08/brighton-clement-bischoff-deal-o
 **Best 2025 Super Bowl commercials: Ranking the ads**\
 `Award-winning ranker of all things, Jake Ciely, ranks the best (and worst) Super Bowl commercials. `\
 https://nytimes.com/athletic/6097969/2025/02/08/best-2025-super-bowl-commercials-ranking-the-ads-worst-commercials-david-beckham-seal/
+
+**Amy Lau, Interior Designer and a Founder of Design Miami, Dies at 56**\
+`Known for her expertise on midcentury modernism and love of Southwestern colors, she also helped create an annual event showcasing the work of other designers.`\
+https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
 
