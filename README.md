@@ -1,3 +1,7 @@
+**Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
+`President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
+
 **Tom Izzo ties Bob Knight’s Big Ten wins record as MSU tops Oregon**\
 `A star turn by Jase Richardson and a defensive turnaround in the second half flipped the game as the Spartans remained in Big Ten hunt.`\
 https://nytimes.com/athletic/6123337/2025/02/08/tom-izzo-michigan-state-record-bob-knight-oregon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123181/2025/02/08/dick-jauron-death-bills-lions-be
 **It’s No Secret What Trump and His Allies Mean When They Talk About ‘Shock and Awe’**\
 `How the war in Iraq helps us understand Trump’s war on the federal government.`\
 https://nytimes.com/2025/02/08/opinion/trump-shock-awe.html
-
-**Malik Beasley’s career high lifts Pistons past 76ers to get back to .500**\
-`Considering All-Star Cade Cunningham was sidelined with a sprained ankle, Detroit’s win on Friday was one of the season's most complete.`\
-https://nytimes.com/athletic/6122942/2025/02/08/malik-beasley-pistons-76ers-win/
 
