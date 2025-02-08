@@ -1,3 +1,11 @@
+**The courts have slowed many of Trump’s plans.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
+
+**Hamas Makes Gaunt Israeli Hostages Thank Captors Before Release**\
+`The scenes at the latest hostage release in Gaza angered Israelis and created even more uncertainty surrounding the next steps in a phased cease-fire deal.`\
+https://nytimes.com/2025/02/08/world/middleeast/israel-hamas-hostages-prisoners.html
+
 **A Trump appointee, Russell Vought, takes over consumer bureau after Musk team arrives.**\
 `The key archi`\
 https://nytimes.com/live/2025/02/08/us/trump-administration-news/trump-appointee-russell-vought-takes-over-consumer-bureau-after-musk-team-arrives
