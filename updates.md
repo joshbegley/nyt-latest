@@ -1,3 +1,7 @@
+**Deep Cuts to Medical Research Funds Could Hobble University Budgets**\
+`Grants from the National Institutes of Health come with additional money for overhead. Proposed funding cuts would leave colleges with large budget gaps.`\
+https://nytimes.com/2025/02/07/us/politics/medical-research-funding-cuts-university-budgets.html
+
 **Girl, 6, Is Dead After Being Found in a Water-Filled Bathtub, Police Say**\
 `The girl was unconscious when officers found her in a Brooklyn apartment Friday afternoon, officials said.`\
 https://nytimes.com/2025/02/07/nyregion/girl-bathtub-dead-brooklyn-apartment.html
