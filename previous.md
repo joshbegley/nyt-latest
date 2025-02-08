@@ -1,3 +1,7 @@
+**Leeds and Millwall assist police after alleged tragedy chanting in FA Cup tie**\
+`Chanting was allegedly heard referencing the fatal stabbings of Leeds fans Chris Loftus and Kevin Speight in Istanbul in 2000.`\
+https://nytimes.com/athletic/6123133/2025/02/08/leeds-millwall-tragedy-chanting/
+
 **These Wings Are ‘Finger-Lickin’ Fabulous’**\
 `A five-star recipe from the chef Rio Irie yields spicy chicken wings that are funky and salty, sweet and sticky.`\
 https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
 **A freed Israeli hostage returns to a life shattered by the Oct. 7 attacks.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/a-freed-israeli-hostage-returns-to-a-life-shattered-by-the-oct-7-attacks
-
-**Her Brother Disappeared in War 80 Years Ago. She Finally Got to Say Goodbye.**\
-`Margery Hop Wong last saw her older brother Sgt. Yuen Hop in 1943. He was a soldier missing in action, until researchers solved the mystery behind his death.`\
-https://nytimes.com/2025/02/08/us/her-brother-disappeared-in-war-80-years-ago-she-finally-got-to-say-goodbye.html
 

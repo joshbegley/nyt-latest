@@ -1,3 +1,7 @@
+**Leeds and Millwall assist police after alleged tragedy chanting in FA Cup tie**\
+`Chanting was allegedly heard referencing the fatal stabbings of Leeds fans Chris Loftus and Kevin Speight in Istanbul in 2000.`\
+https://nytimes.com/athletic/6123133/2025/02/08/leeds-millwall-tragedy-chanting/
+
 **These Wings Are ‘Finger-Lickin’ Fabulous’**\
 `A five-star recipe from the chef Rio Irie yields spicy chicken wings that are funky and salty, sweet and sticky.`\
 https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
