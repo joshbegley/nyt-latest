@@ -1,3 +1,7 @@
+**Musk attacks judge who temporarily blocked access to Treasury data.**\
+`It was not clear if Elon Musk and his team would take steps to comply with the order.`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-federal-judge-treasury-data
+
 **What’s It All About?**\
 `Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
 https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-pena
 **Musk Team’s Access to Treasury Systems Raised Security Concerns**\
 `A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
 https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-systems-raised-security-concerns.html
-
-**Follow a Styles Photographer for a Day**\
-`Text by Simbarashe Cha`\
-https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style
 

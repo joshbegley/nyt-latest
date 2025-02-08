@@ -1,3 +1,7 @@
+**Musk attacks judge who temporarily blocked access to Treasury data.**\
+`It was not clear if Elon Musk and his team would take steps to comply with the order.`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-federal-judge-treasury-data
+
 **Super Bowl ‘Three-Peat’? Be Prepared to Pay for the Bragging Rights.**\
 `As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
 https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
