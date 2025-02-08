@@ -1,3 +1,11 @@
+**Rangers lack urgency in 'inexcusable' and 'unacceptable' effort: 3 takeaways**\
+`The Rangers were a no-show for much of Friday's 3-2 loss to Pittsburgh, which was New York's fourth loss in its past six games.`\
+https://nytimes.com/athletic/6122811/2025/02/07/rangers-penguins-vincent-trocheck-adam-fox/
+
+**'Encouraging' Crosby injury development precedes inspired Penguins performance**\
+`Crosby missed his first game in over two years Friday but also appeared to take a step toward playing in the 4 Nations next week.`\
+https://nytimes.com/athletic/6122777/2025/02/07/sidney-crosby-injury-penguins/
+
 **14 Unforgettable Looks at the Critics Choice Awards**\
 `Jellyfish gowns, Old Hollywood suits, tube tops and more.`\
 https://nytimes.com/2025/02/07/style/critics-choice-awards-2025-red-carpet.html
