@@ -1,3 +1,7 @@
+**Trump and Musk Attack Journalists by Name in Social Media Posts**\
+`Since his inauguration, the president has been quick to demonize what he calls “the fake news media.” On Friday, both men demanded that individuals be fired.`\
+https://nytimes.com/2025/02/07/business/media/trump-musk-attack-journalists.html
+
 **Critics Choice Awards 2025: The Complete Winners List**\
 `Here’s who went home a winner from the 30th annual Critics Choice Awards.`\
 https://nytimes.com/2025/02/07/style/critics-choice-awards-winners-complete-list.html
