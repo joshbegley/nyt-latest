@@ -1,3 +1,11 @@
+**The courts have slowed many of Trump’s plans.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/courts
+
+**Hamas Makes Gaunt Israeli Hostages Thank Captors Before Release**\
+`The scenes at the latest hostage release in Gaza angered Israelis and created even more uncertainty surrounding the next steps in a phased cease-fire deal.`\
+https://nytimes.com/2025/02/08/world/middleeast/israel-hamas-hostages-prisoners.html
+
 **A staged hostage handover and forced speeches may raise pressure on the Israeli government.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/staged-handover-forced-speeches
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/08/style/calvin-klein-new-york-fashion-week.html
 **Israel releases over 180 Palestinian prisoners as part of the exchange.**\
 `By Lara Jakes and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
-
-**Why was Leyton Orient's FA Cup wonder strike against Man City an own goal?**\
-`The on-loan Tottenham midfielder's 40-yard goal was credited to City goalkeeper Stefan Ortega`\
-https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manchester-city/
-
-**U.S.A.I.D. Workers Brace for the Worst**\
-`A judge halted parts of the Trump administration’s plan to shut down the agency. A verdict might not come for weeks or even longer as thousands are left in limbo.`\
-https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
 
