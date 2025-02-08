@@ -1,3 +1,7 @@
+**Israel releases 183 Palestinian prisoners as part of the exchange.**\
+`By Lara Jakes and Fatima AbdulKarim`\
+https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/israel-releases-183-palestinian-prisoners-as-part-of-the-exchange
+
 **Why was Leyton Orient's FA Cup wonder strike against Man City an own goal?**\
 `The on-loan Tottenham midfielder's 40-yard goal was credited to City goalkeeper Stefan Ortega`\
 https://nytimes.com/athletic/6123029/2025/02/08/leyton-orient-donley-goal-manchester-city/
