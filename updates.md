@@ -1,3 +1,15 @@
+**Passengers Restrain Man Who Bashed a Window on a Flight**\
+`The man broke the window’s inner pane and plastic frame before being subdued on a Frontier Airlines flight on Tuesday. The F.B.I. is investigating.`\
+https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
+
+**Newcastle's Botman and Gordon doubts for Man City clash, Burn set for scan**\
+`Sven Botman and Anthony Gordon are injury doubts for Newcastle United&#8217;s visit to Manchester City next weekend, while Dan Burn is also set for a scan on a groin problem.`\
+https://nytimes.com/athletic/6123390/2025/02/08/newcastle-botman-gordon-burn-injury-update/
+
+**Nationalist Leaders Rally in Spain to ‘Make Europe Great Again’**\
+`At a gathering in Madrid, members of Europe’s far-right parties set aside any trepidation they might have about President Trump’s threats, and instead focused on a common enemy — the European Union.`\
+https://nytimes.com/2025/02/08/world/europe/nationalist-leaders-rally-in-spain-to-make-europe-great-again.html
+
 **Trump Administration Moves to Send $8 Billion in Arms to Israel, Bypassing Some Lawmakers**\
 `President Biden announced the arms sales at the end of his administration, and President Trump is pushing it soon after his meeting with Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/2025/02/08/us/politics/trump-israel-arms-weapons.html
