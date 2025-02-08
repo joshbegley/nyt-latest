@@ -1,3 +1,11 @@
+**Democratic Lawmakers Denied Entry to the Department of Education**\
+`It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
+https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
+
+**House Democrats Denied Entry to the U.S. Department of Education**\
+`Several Democratic lawmakers attempted to access the department’s headquarters on Friday, after a request to meet with the acting education secretary went unanswered.`\
+https://nytimes.com/video/us/politics/100000009979233/congressional-democrats-education-dept.html
+
 **PlayStation Network Outage Persists, Sony Says**\
 `Users on social media complained that they could not access their games after the unexplained outage began on Friday night.`\
 https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
 **Michigan's Dusty May calls Indiana job speculation 'flattering'**\
 `May is likely at or near the top of the coaching wish list for IU fans and its athletic director after Mike Woodson steps down.`\
 https://nytimes.com/athletic/6123420/2025/02/08/dusty-may-michigan-indiana/
-
-**Eagles activate Brandon Graham from injury report ahead of Super Bowl LIX**\
-`The reigning AFC and NFC champions released the final injury designations ahead of Sunday's showdown in New Orleans.`\
-https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-reports-super-bowl/
-
-**The Briefing: Real Madrid 1 Atletico 1 - Controversial penalty, Mbappe hits back, where does it leave title race?**\
-`Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
-https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
 
