@@ -1,3 +1,7 @@
+**A Tent City Is Rising at Guantánamo Bay**\
+`These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
+https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
+
 **Musk Team’s Access to Treasury Systems Raised Security Concerns**\
 `A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
 https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-systems-raised-security-concerns.html

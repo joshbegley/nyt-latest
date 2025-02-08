@@ -2,7 +2,7 @@
 `Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
 
-**Tent City Rising at Guantánamo Bay**\
+**A Tent City Is Rising at Guantánamo Bay**\
 `These are the first independent images to emerge from the migrant operation that the Trump administration has begun at the Navy base.`\
 https://nytimes.com/2025/02/08/us/politics/guantanamo-bay-migrants.html
 
