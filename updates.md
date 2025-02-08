@@ -1,3 +1,7 @@
+**14 Unforgettable Looks at the Critics Choice Awards**\
+`Jellyfish gowns, Old Hollywood suits, tube tops and more.`\
+https://nytimes.com/2025/02/07/style/critics-choice-awards-2025-red-carpet.html
+
 **'Encouraging' Crosby injury development precedes inspired Penguins performance**\
 `Crosby missed his first game in over two years on Friday, but also appeared to take a step toward playing in the 4 Nations next week.`\
 https://nytimes.com/athletic/6122777/2025/02/07/sidney-crosby-injury-penguins/

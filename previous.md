@@ -1,3 +1,7 @@
+**14 Unforgettable Looks at the Critics Choice Awards**\
+`Jellyfish gowns, Old Hollywood suits, tube tops and more.`\
+https://nytimes.com/2025/02/07/style/critics-choice-awards-2025-red-carpet.html
+
 **'Encouraging' Crosby injury development precedes inspired Penguins performance**\
 `Crosby missed his first game in over two years on Friday, but also appeared to take a step toward playing in the 4 Nations next week.`\
 https://nytimes.com/athletic/6122777/2025/02/07/sidney-crosby-injury-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/trump-south-africa-aid-white-landowne
 **Newsom Signs Bills to Fight Trump, Including Legal Aid for Immigrants**\
 `Gov. Gavin Newsom, a Democrat, has been balancing a desire to push back on Republican policies with a need to cooperate in seeking federal disaster aid.`\
 https://nytimes.com/2025/02/07/us/politics/newsom-bills-fighting-trump.html
-
-**Child protection group is told to comply with Trump’s gender order.**\
-`The National Center for Missing and Exploited Children is removing references to transgender children from its website but says its operations will carry on as usual.`\
-https://nytimes.com/live/2025/02/07/us/trump-administration-updates/child-protection-group-told-to-comply-with-trumps-gender-order
 
