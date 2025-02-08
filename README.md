@@ -1,3 +1,7 @@
+**Follow a Styles Photographer for a Day**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/02/08/style/nyfw-calvin-klein-theory-street-style
+
 **Passengers Restrain Man Who Bashed a Window on a Flight**\
 `The man broke the window’s inner pane and plastic frame before being subdued on a Frontier Airlines flight on Tuesday. The F.B.I. is investigating.`\
 https://nytimes.com/2025/02/08/us/frontier-airlines-passenger-restrained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097969/2025/02/08/best-2025-super-bowl-commercials
 **Amy Lau, Interior Designer and a Founder of Design Miami, Dies at 56**\
 `Known for her expertise on midcentury modernism and love of Southwestern colors, she also helped create an annual event showcasing the work of other designers.`\
 https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
-
-**Elon Musk Brings His Playbook From Twitter to the Government**\
-`Ryan Mac and Kate Conger, two New York Times technology reporters who together wrote a book about what happened when Elon Musk bought Twitter, explain some of his tactics.`\
-https://nytimes.com/video/us/politics/100000009973981/elon-musk-brings-his-playbook-from-twitter-to-the-government.html
 
