@@ -1,3 +1,7 @@
+**Padres agree to free-agent deal with veteran outfielder Jason Heyward: Sources**\
+`Heyward, a five-time Gold Glove winner in right field, is expected to platoon in left field with Connor Joe for San Diego.`\
+https://nytimes.com/athletic/6122917/2025/02/08/padres-jason-heyward-deal/
+
 **It’s 3,500 Miles From Philadelphia. But for Eagles Fans, It Feels Like Home.**\
 `At Passyunk Avenue, a London bar founded by a Philadelphia transplant, the authentic touches go beyond cheesesteaks (but there are cheesesteaks).`\
 https://nytimes.com/2025/02/08/sports/eagles-super-bowl-philadelphia-passyunk-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119281/2025/02/08/brandon-barker-interview-manches
 **Ambassador Tells Rubio U.S.A.I.D. Cuts Would Cause ‘Major Vulnerability’ in Africa**\
 `Other diplomats across the continent are sending similar cables to the secretary of state to try to maintain lifesaving aid programs on which millions of Africans depend.`\
 https://nytimes.com/2025/02/07/us/politics/rubio-usaid-africa-cuts.html
-
-**Standing out at nine, his 'amazing telescopic legs' and 'impressing' Slot: The making of James McConnell**\
-`The midfielder was spotted at the same club as Alan Shearer - he's swapped the north east for the north west and is tipped for the top`\
-https://nytimes.com/athletic/6120922/2025/02/08/james-mcconnell-liverpool-arne-slot-midfielder/
 

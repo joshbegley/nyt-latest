@@ -1,3 +1,7 @@
+**Padres agree to free-agent deal with veteran outfielder Jason Heyward: Sources**\
+`Heyward, a five-time Gold Glove winner in right field, is expected to platoon in left field with Connor Joe for San Diego.`\
+https://nytimes.com/athletic/6122917/2025/02/08/padres-jason-heyward-deal/
+
 **It’s 3,500 Miles From Philadelphia. But for Eagles Fans, It Feels Like Home.**\
 `At Passyunk Avenue, a London bar founded by a Philadelphia transplant, the authentic touches go beyond cheesesteaks (but there are cheesesteaks).`\
 https://nytimes.com/2025/02/08/sports/eagles-super-bowl-philadelphia-passyunk-london.html
