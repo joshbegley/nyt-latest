@@ -18,9 +18,9 @@ https://nytimes.com/athletic/6122496/2025/02/08/chiefs-eagles-final-injury-repor
 `Madrid and Atletico played out a 1-1 draw at the Bernabeu with plenty of controversy`\
 https://nytimes.com/athletic/6118665/2025/02/08/real-madrid-atletico-madrid-penalty-mbappe/
 
-**Musk team’s access to Treasury systems raised security concerns.**\
+**Musk Team’s Access to Treasury Systems Raised Security Concerns**\
 `A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
-https://nytimes.com/live/2025/02/08/us/trump-administration-news/the-musk-teams-access-to-treasury-systems-raised-security-concerns
+https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-systems-raised-security-concerns.html
 
 **Follow a Styles Photographer for a Day**\
 `Text by Simbarashe Cha`\

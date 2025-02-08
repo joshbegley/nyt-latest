@@ -1,3 +1,7 @@
+**Musk Team’s Access to Treasury Systems Raised Security Concerns**\
+`A judge ruled Saturday that the activities of Elon Musk’s government cost-cutting effort risk “the disclosure of sensitive and confidential information.”`\
+https://nytimes.com/2025/02/08/us/politics/the-musk-teams-access-to-treasury-systems-raised-security-concerns.html
+
 **Three Israeli Hostages Are Released for 183 Palestinian Prisoners**\
 `Hamas released three Israeli hostages on Saturday in an exchange with Israel for more than 180 Palestinian prisoners, as part of a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009979098/israel-palestine-hamas-prisoners-hostages.html
