@@ -1,3 +1,11 @@
+**Giants spring guide: 26 thoughts for 26 hitters, from Adames to Luciano to Yastrzemski**\
+`A brief look at the 26 position players who will be in Scottsdale when the Giants open camp on Feb. 12.`\
+https://nytimes.com/athletic/6120529/2025/02/08/sf-giants-spring-hitters-preview/
+
+**Delaware Law Has Entered the Culture War**\
+`Elon Musk has helped bring an esoteric debate around the Delaware Chancery Court to a national stage. Now Dropbox and Meta are contemplating moving their incorporation away from the state.`\
+https://nytimes.com/2025/02/08/business/dealbook/delaware-law-has-entered-the-culture-war.html
+
 **2 Books for Anxious Minds**\
 `Nadine Gordimer’s stories; Margaret Atwood’s sketches.`\
 https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html

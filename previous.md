@@ -1,3 +1,11 @@
+**Giants spring guide: 26 thoughts for 26 hitters, from Adames to Luciano to Yastrzemski**\
+`A brief look at the 26 position players who will be in Scottsdale when the Giants open camp on Feb. 12.`\
+https://nytimes.com/athletic/6120529/2025/02/08/sf-giants-spring-hitters-preview/
+
+**Delaware Law Has Entered the Culture War**\
+`Elon Musk has helped bring an esoteric debate around the Delaware Chancery Court to a national stage. Now Dropbox and Meta are contemplating moving their incorporation away from the state.`\
+https://nytimes.com/2025/02/08/business/dealbook/delaware-law-has-entered-the-culture-war.html
+
 **2 Books for Anxious Minds**\
 `Nadine Gordimer’s stories; Margaret Atwood’s sketches.`\
 https://nytimes.com/2025/02/08/books/read-like-wind-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/08/opinion/trump-musk-public-attention.html
 **To Obey or Not to Obey**\
 `The voluntarily surrender of the public’s power is how autocracies are built.`\
 https://nytimes.com/2025/02/08/opinion/trump-power-surrender.html
-
-**The Price We Pay Betting on Sports**\
-`What sports betting reveals about addiction.`\
-https://nytimes.com/2025/02/08/opinion/sports-betting-addiction.html
-
-**The Assault on Diversity**\
-`Readers discuss diversity, equity and inclusion in the military, the government and in corporations.`\
-https://nytimes.com/2025/02/08/opinion/diversity-equity-inclusion-dei.html
 
