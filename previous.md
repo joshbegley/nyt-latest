@@ -1,3 +1,7 @@
+**It’s 3,500 Miles From Philadelphia. But for Eagles Fans, It Feels Like Home.**\
+`At Passyunk Avenue, a London bar founded by a Philadelphia transplant, the authentic touches go beyond cheesesteaks (but there are cheesesteaks).`\
+https://nytimes.com/2025/02/08/sports/eagles-super-bowl-philadelphia-passyunk-london.html
+
 **Connor Bedard embraces challenge, Ryan Donato increases trade value in Blackhawks' rout**\
 `Donato had two goals and two assists in Chicago's 6-2 win over Nashville on Friday night.`\
 https://nytimes.com/athletic/6122888/2025/02/08/connor-bedard-ryan-donato-blackhawks-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/07/us/politics/rubio-usaid-africa-cuts.html
 **Standing out at nine, his 'amazing telescopic legs' and 'impressing' Slot: The making of James McConnell**\
 `The midfielder was spotted at the same club as Alan Shearer - he's swapped the north east for the north west and is tipped for the top`\
 https://nytimes.com/athletic/6120922/2025/02/08/james-mcconnell-liverpool-arne-slot-midfielder/
-
-**How New Balance cracked soccer: From Kawhi's NBA deal to Saka and Weah’s personalised boots**\
-`The rise of the sports brand in the world of soccer endorsements`\
-https://nytimes.com/athletic/6091002/2025/02/08/the-rise-of-new-balance-in-soccer/
 
