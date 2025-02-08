@@ -2,7 +2,7 @@
 `Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
 https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
 
-**Chiefs Might Win Third Title in a Row, but They Can’t Own the Phrase ‘Three-Peat’**\
+**Super Bowl ‘Three-Peat’? Be Prepared to Pay for the Bragging Rights.**\
 `As sports catchphrases start to stick, savvy coaches and athletes are moving to protect them with federal trademarks. “Three-Peat” is just one of many.`\
 https://nytimes.com/2025/02/08/sports/three-peat-sports-trademarks-phrases.html
 
