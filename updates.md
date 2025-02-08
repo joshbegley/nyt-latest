@@ -1,3 +1,11 @@
+**Brighton's move for Bischoff seemingly off after clubs fail to agree deal**\
+`Brighton &amp; Hove Albion’s move for Brondby midfielder Clement Bischoff appears to have collapsed.`\
+https://nytimes.com/athletic/6123185/2025/02/08/brighton-clement-bischoff-deal-off-update/
+
+**Best 2025 Super Bowl commercials: Ranking the ads**\
+`Award-winning ranker of all things, Jake Ciely, ranks the best (and worst) Super Bowl commercials. `\
+https://nytimes.com/athletic/6097969/2025/02/08/best-2025-super-bowl-commercials-ranking-the-ads-worst-commercials-david-beckham-seal/
+
 **Amy Lau, Interior Designer and a Founder of Design Miami, Dies at 56**\
 `Known for her expertise on midcentury modernism and love of Southwestern colors, she also helped create an annual event showcasing the work of other designers.`\
 https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
