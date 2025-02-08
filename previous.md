@@ -1,3 +1,7 @@
+**Former Bears, Bills coach Dick Jauron dies at 74**\
+`Jauron won AP Coach of the Year in 2001 after leading the Bears to a 13-3 record.`\
+https://nytimes.com/athletic/6123181/2025/02/08/dick-jauron-death-bills-lions-bears-coach/
+
 **It’s No Secret What Trump and His Allies Mean When They Talk About ‘Shock and Awe’**\
 `How the war in Iraq helps us understand Trump’s war on the federal government.`\
 https://nytimes.com/2025/02/08/opinion/trump-shock-awe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/dining/chicken-wings-super-bowl.html
 **An Original Warhol, Carved From Potatoes**\
 `Illustrations by the artist, commissioned for The Times in 1962, were sculpted on spuds before being stamped onto paper.`\
 https://nytimes.com/2025/02/08/insider/andy-warhol-potato-sculpture-art.html
-
-**Weight Loss, Love and Opening Up About It All**\
-`For an article about how weight-loss drugs affect marriage and intimacy, one health reporter worked with couples to “hold up a mirror to readers.”`\
-https://nytimes.com/2025/02/08/insider/weight-loss-drugs-marriage-nyt-article.html
 
