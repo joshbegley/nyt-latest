@@ -1,3 +1,7 @@
+**Amy Lau, Interior Designer and a Founder of Design Miami, Dies at 56**\
+`Known for her expertise on midcentury modernism and love of Southwestern colors, she also helped create an annual event showcasing the work of other designers.`\
+https://nytimes.com/2025/02/08/arts/design/amy-lau-dead.html
+
 **Elon Musk Brings His Playbook From Twitter to the Government**\
 `Ryan Mac and Kate Conger, two New York Times technology reporters who together wrote a book about what happened when Elon Musk bought Twitter, explain some of his tactics.`\
 https://nytimes.com/video/us/politics/100000009973981/elon-musk-brings-his-playbook-from-twitter-to-the-government.html
