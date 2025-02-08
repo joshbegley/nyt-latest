@@ -1,3 +1,7 @@
+**Trump appointee, Russell Vought, takes over consumer bureau after Musk team arrives.**\
+`The key archi`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/trump-appointee-russell-vought-takes-over-consumer-bureau-after-musk-team-arrives
+
 **Leeds and Millwall assist police after alleged tragedy chanting in FA Cup tie**\
 `Chanting was allegedly heard referencing the fatal stabbings of Leeds fans Chris Loftus and Kevin Speight in Istanbul in 2000.`\
 https://nytimes.com/athletic/6123133/2025/02/08/leeds-millwall-tragedy-chanting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/us/politics/usaid-workers-trump.html
 **Wintry Mess Predicted Across Parts of the Northeast**\
 `Nearly a foot of snow could fall in Boston, and three to five inches of snow and sleet are expected in New York.`\
 https://nytimes.com/2025/02/08/weather/new-york-boston-northeast-snow.html
-
-**A freed Israeli hostage returns to a life shattered by the Oct. 7 attacks.**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2025/02/08/world/israel-hamas-gaza-hostages/a-freed-israeli-hostage-returns-to-a-life-shattered-by-the-oct-7-attacks
 

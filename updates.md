@@ -1,3 +1,7 @@
+**Trump appointee, Russell Vought, takes over consumer bureau after Musk team arrives.**\
+`The key archi`\
+https://nytimes.com/live/2025/02/08/us/trump-administration-news/trump-appointee-russell-vought-takes-over-consumer-bureau-after-musk-team-arrives
+
 **Leeds and Millwall assist police after alleged tragedy chanting in FA Cup tie**\
 `Chanting was allegedly heard referencing the fatal stabbings of Leeds fans Chris Loftus and Kevin Speight in Istanbul in 2000.`\
 https://nytimes.com/athletic/6123133/2025/02/08/leeds-millwall-tragedy-chanting/
