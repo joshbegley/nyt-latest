@@ -1,3 +1,16 @@
+**Matt Boldy's big game, Yakov Trenin's response and Wild go strong into break: 3 takeaways**\
+`Minnesota didn't fold after New York took a 3-1 lead, scoring five unanswered goals for a 6-3 victory.`\
+https://nytimes.com/athletic/6123833/2025/02/09/matt-boldy-yakov-trenin-wild-takeaways/
+
+**Everton 0 Bournemouth 2: Bogey side pounce on sloppy errors - but Alcaraz shines**\
+`The last ever FA Cup tie at Goodison Park threw up some familiar failings as Everton crashed out of the competition`\
+https://nytimes.com/athletic/6123287/2025/02/09/everton-bournemouth-fa-cup-analysis/
+
+**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\
