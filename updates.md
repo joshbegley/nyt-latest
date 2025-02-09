@@ -1,3 +1,11 @@
+**The Secret Service is set to air a recruitment video at the Super Bowl.**\
+`The agency is charged with protecting the president and other dignitaries. It is one of a few not affected by a widespread federal hiring freeze.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-service-is-set-to-air-a-recruitment-video-at-the-super-bowl
+
+**Gyalo Thondup, Political Operator and Brother of the Dalai Lama, Dies at 97**\
+`Mr. Thondup’s influence in Tibet has been seen as second only to his younger brother, Tenzin Gyatso, the exiled head of Tibetan Buddhism, whom he spent decades trying to help return to their homeland.`\
+https://nytimes.com/2025/02/09/obituaries/gyalo-thondup-dead-dalai-lama-brother.html
+
 **When Clothing Is Also a Bullhorn**\
 `For some designers, sustainability, gender and inclusion are still in style.`\
 https://nytimes.com/2025/02/09/style/fashion-trump.html

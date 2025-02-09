@@ -1,3 +1,11 @@
+**The Secret Service is set to air a recruitment video at the Super Bowl.**\
+`The agency is charged with protecting the president and other dignitaries. It is one of a few not affected by a widespread federal hiring freeze.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-service-is-set-to-air-a-recruitment-video-at-the-super-bowl
+
+**Gyalo Thondup, Political Operator and Brother of the Dalai Lama, Dies at 97**\
+`Mr. Thondup’s influence in Tibet has been seen as second only to his younger brother, Tenzin Gyatso, the exiled head of Tibetan Buddhism, whom he spent decades trying to help return to their homeland.`\
+https://nytimes.com/2025/02/09/obituaries/gyalo-thondup-dead-dalai-lama-brother.html
+
 **When Clothing Is Also a Bullhorn**\
 `For some designers, sustainability, gender and inclusion are still in style.`\
 https://nytimes.com/2025/02/09/style/fashion-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-fa
 **‘Anora’ Wins Big at Producers and Directors Guild Awards**\
 `The film that takes those two major industry prizes almost always goes on to win the best-picture Oscar.`\
 https://nytimes.com/2025/02/09/movies/anora-wins-producers-and-directors-guild-awards.html
-
-**An Esteemed Biographer Puts Her Own Life in the Spotlight**\
-`The standout essays in Megan Marshall’s “After Lives” recall her troubled father and the fate of a high school classmate.`\
-https://nytimes.com/2025/02/09/books/review/megan-marshall-after-lives-biography.html
-
-**The Democrats Are in Disarray. Now What?**\
-`Readers differ about whom to blame for the party’s situation and how to fix it. Also: Asheville’s challenges; caring for mental health.`\
-https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
 
