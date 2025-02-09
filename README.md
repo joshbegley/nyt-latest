@@ -1,3 +1,7 @@
+**Notre Dame hiring Penn State assistant Ja'Juan Seider as RBs coach**\
+`Seider heads to the Irish after serving as Penn State’s running backs coach, assistant head coach and co-offensive coordinator.`\
+https://nytimes.com/athletic/6124396/2025/02/09/jajuan-seider-hired-notre-dame-penn-state/
+
 **Trump to Revoke Security Clearances for Prosecutors and Biden Officials**\
 `Former Secretary of State Antony Blinken, Attorney General Letitia James of New York and the Manhattan district attorney, Alvin Bragg, were among those the president singled out.`\
 https://nytimes.com/2025/02/09/us/politics/trump-blinken-james-bragg-security-clearances.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-s
 **Gyalo Thondup, Political Operator and Brother of the Dalai Lama, Dies at 97**\
 `Mr. Thondup’s influence in Tibet has been seen as second only to his younger brother, Tenzin Gyatso, the exiled head of Tibetan Buddhism, whom he spent decades trying to help return to their homeland.`\
 https://nytimes.com/2025/02/09/obituaries/gyalo-thondup-dead-dalai-lama-brother.html
-
-**When Clothing Is Also a Bullhorn**\
-`For some designers, sustainability, gender and inclusion are still in style.`\
-https://nytimes.com/2025/02/09/style/fashion-trump.html
 
