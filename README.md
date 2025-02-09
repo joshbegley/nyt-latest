@@ -1,3 +1,7 @@
+**Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
+`Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9.`\
+https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
+
 **Down goes Duke for the first time in 2 months. Is that the worst thing?**\
 `Duke's loss to Clemson could be just the opportunity to learn that the Blue Devils need heading into March.`\
 https://nytimes.com/athletic/6123935/2025/02/09/duke-loses-to-clemson-cooper-flagg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-re
 **Plymouth owner Simon Hallett on 'unfinished business' with Liverpool and taking a risk on Rooney**\
 `Plymouth's chairman on picking managers, fighting relegation and why 'knowing a league' doesn't matter as they face Liverpool FA Cup tie`\
 https://nytimes.com/athletic/6071845/2025/02/09/plymouth-owner-simon-hallett-rooney-liverpool-fa-cup/
-
-**Who are the Premier League's most versatile teams and players?**\
-`The numbers that show why Nuno Espirito Santo is the master of mid-game tweaks to a system during this Premier League season`\
-https://nytimes.com/athletic/6120937/2025/02/09/premier-league-team-player-versatility/
 
