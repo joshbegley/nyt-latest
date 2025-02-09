@@ -1,3 +1,11 @@
+**Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
+`The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
+https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
+
+**Georgia Man Sentenced to 475 Years for Dogfighting**\
+`Vincent Lemark Burrell was found guilty last month of more than 100 counts of dogfighting and animal cruelty after dozens of dogs were found in poor condition at his home.`\
+https://nytimes.com/2025/02/09/us/dogfight-sentence-georgia.html
+
 **Trump to impose metal tariffs on Monday, followed by broader levies.**\
 `The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
