@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-of
 `\
 https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
 
+**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **Who are the Premier League's most versatile teams and players?**\
 `The numbers that show why Nuno Espirito Santo is the master of mid-game tweaks to a system during this Premier League season`\
 https://nytimes.com/athletic/6120937/2025/02/09/premier-league-team-player-versatility/
