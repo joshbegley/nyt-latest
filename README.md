@@ -1,3 +1,7 @@
+**How Cuylle's simplicity, Laviolette's line blender paid off: Rangers takeaways**\
+`Thanks to a pair of late Cuylle goals, New York beat the Blue Jackets 4-3 for their third third-period comeback in four games.`\
+https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviolette-takeaways/
+
 **Submit a question for Chris Vannini's Group of 5 college football mailbag**\
 `What's on your mind with signing day in the rearview mirror and spring practice coming up fast?`\
 https://nytimes.com/athletic/6120337/2025/02/08/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-18/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 **Clemson snaps No. 2 Duke’s 16-game winning streak: How Blue Devils finally fell**\
 `The Blue Devils hadn't experienced a loss yet this calendar year, last registering a defeat to Kansas on Nov. 12.`\
 https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
-
-**Lakers-Hornets Mark Williams deal falls through after center fails physical**\
-`The Lakers had agreed to trade Dalton Knecht, Cam Reddish, a 2031 first-round pick and a 2030 pick swap in exchange for Williams on Feb. 5.`\
-https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charlotte-rescinded/
 
