@@ -1,3 +1,7 @@
+**One Big Super Bowl Tailgate: Celebrities Embrace New Orleans**\
+`Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
+https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
+
 **Democrats Hint at Government Shutdown to Stop Trump’s Axing at Federal Agencies**\
 `Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
 https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097969/2025/02/09/best-2025-super-bowl-commercials
 **49ers give Deebo Samuel permission to seek a trade**\
 `The move comes after Samuel asked the 49ers to trade him after the players' exit meetings this offseason.`\
 https://nytimes.com/athletic/6124418/2025/02/09/deebo-samuel-trade-request-49ers/
-
-**2 Million Baked Goods Are Recalled Over Listeria Risk**\
-`The recall, which was initiated on Jan. 7 and upgraded on Wednesday, includes several Dunkin’ products, federal safety officials said.`\
-https://nytimes.com/2025/02/09/health/fda-donuts-recall-listeria.html
 

@@ -1,3 +1,7 @@
+**Vance Accuses Judges Who Block Trump’s Executive Orders of Acting Illegally**\
+`“Judges aren’t allowed to control the executive’s legitimate power,” Vice President JD Vance wrote on social media, raising questions about whether the Trump administration would abide by federal rulings curtailing its agenda.`\
+https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
+
 **One Big Super Bowl Tailgate: Celebrities Embrace New Orleans**\
 `Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
 https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/us/politics/federal-workers-trump.html
 **Best 2025 Super Bowl commercials: Ranking the ads**\
 `Award-winning ranker of all things, Jake Ciely, ranks the best (and worst) Super Bowl commercials. `\
 https://nytimes.com/athletic/6097969/2025/02/09/best-2025-super-bowl-commercials-ranking-the-ads-worst-commercials-david-beckham-seal/
-
-**49ers give Deebo Samuel permission to seek a trade**\
-`The move comes after Samuel asked the 49ers to trade him after the players' exit meetings this offseason.`\
-https://nytimes.com/athletic/6124418/2025/02/09/deebo-samuel-trade-request-49ers/
 

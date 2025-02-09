@@ -1,3 +1,7 @@
+**One Big Super Bowl Tailgate: Celebrities Embrace New Orleans**\
+`Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
+https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
+
 **Democrats Hint at Government Shutdown to Stop Trump’s Axing at Federal Agencies**\
 `Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
 https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
