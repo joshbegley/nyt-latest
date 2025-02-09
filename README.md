@@ -1,5 +1,5 @@
 **Real Madrid defensive injury list grows as Vazquez out of Man City match**\
-`Real Madrid right-back Lucas Vazquez is expected to miss Tuesday&#8217;s Champions League tie against Manchester City as the Spanish club&#8217;s defensive injury crisis worsens.`\
+`The defender underwent assessments on Sunday which revealed a hamstring injury in his left leg.`\
 https://nytimes.com/athletic/6124333/2025/02/09/lucas-vazquez-real-madrid-injury/
 
 **Jalapeño-Corn Dip, a Super Bowl**\
