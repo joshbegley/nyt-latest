@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
 **Submit a question for Chris Vannini's Group of 5 college football mailbag**\
 `What's on your mind with signing day in the rearview mirror and spring practice coming up fast?`\
 https://nytimes.com/athletic/6120337/2025/02/08/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-18/
