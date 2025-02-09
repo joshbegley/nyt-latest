@@ -1,3 +1,7 @@
+**Plymouth 1 Liverpool 0: Hardie penalty knocks Premier League leaders out of FA Cup**\
+`Championship Plymouth Argyle pulled off the biggest shock of the FA Cup fourth round with a 1-0 victory over Premier League leaders Liverpool at Home Park on Sunday.`\
+https://nytimes.com/athletic/6124383/2025/02/09/plymouth-argyle-liverpool-fa-cup-result/
+
 **The Secret Service is set to air a recruitment video at the Super Bowl.**\
 `The agency is charged with protecting the president and other dignitaries. It is one of a few not affected by a widespread federal hiring freeze.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-service-is-set-to-air-a-recruitment-video-at-the-super-bowl
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-count
 **Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
 `The veteran Los Angeles Kings defenseman was added to the roster late Saturday as an injury replacement for Alex Pietrangelo.`\
 https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-face-off/
-
-**‘Anora’ Wins Big at Producers and Directors Guild Awards**\
-`The film that takes those two major industry prizes almost always goes on to win the best-picture Oscar.`\
-https://nytimes.com/2025/02/09/movies/anora-wins-producers-and-directors-guild-awards.html
 

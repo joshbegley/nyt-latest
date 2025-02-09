@@ -1,3 +1,7 @@
+**Plymouth 1 Liverpool 0: Hardie penalty knocks Premier League leaders out of FA Cup**\
+`Championship Plymouth Argyle pulled off the biggest shock of the FA Cup fourth round with a 1-0 victory over Premier League leaders Liverpool at Home Park on Sunday.`\
+https://nytimes.com/athletic/6124383/2025/02/09/plymouth-argyle-liverpool-fa-cup-result/
+
 **The Secret Service is set to air a recruitment video at the Super Bowl.**\
 `The agency is charged with protecting the president and other dignitaries. It is one of a few not affected by a widespread federal hiring freeze.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-service-is-set-to-air-a-recruitment-video-at-the-super-bowl
