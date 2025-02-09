@@ -58,6 +58,16 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Anthony Davis' debut, Max Christie's big game and a Mavs win quell Luka protesting**\
 `"It’s our job as players to continue to play basketball, win basketball games. The rest of it will take care of itself," Davis said.`\
 https://nytimes.com/athletic/6123613/2025/02/08/anthony-davis-mavericks-max-christie-luka-doncic/
