@@ -1,3 +1,15 @@
+**For Stunned Federal Workers, Sleeplessness, Anger and Tears**\
+`One thing lost in the Trump administration’s war on the federal bureaucracy is the collective voice of the employees. But some have begun to speak out.`\
+https://nytimes.com/2025/02/09/us/politics/federal-workers-trump.html
+
+**Best 2025 Super Bowl commercials: Ranking the ads**\
+`Award-winning ranker of all things, Jake Ciely, ranks the best (and worst) Super Bowl commercials. `\
+https://nytimes.com/athletic/6097969/2025/02/09/best-2025-super-bowl-commercials-ranking-the-ads-worst-commercials-david-beckham-seal/
+
+**49ers give Deebo Samuel permission to seek a trade**\
+`The move comes after Samuel asked the 49ers to trade him after the players' exit meetings this offseason.`\
+https://nytimes.com/athletic/6124418/2025/02/09/deebo-samuel-trade-request-49ers/
+
 **2 Million Baked Goods Are Recalled Over Listeria Risk**\
 `The recall, which was initiated on Jan. 7 and upgraded on Wednesday, includes several Dunkin’ products, federal safety officials said.`\
 https://nytimes.com/2025/02/09/health/fda-donuts-recall-listeria.html
