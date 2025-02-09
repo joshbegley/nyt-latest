@@ -1,3 +1,7 @@
+**Russell Vought Orders Consumer Protection Bureau’s Headquarters Closed for a Week**\
+`The order to shutter the agency’s headquarters follows another order issued Saturday by Mr. Vought, who also leads the Office of Management and Budget, telling agency employees to halt nearly all their work.`\
+https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-close.html
+
 **One Big Super Bowl Tailgate: Celebrities Embrace New Orleans.**\
 `Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
 https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
