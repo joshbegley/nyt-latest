@@ -1,7 +1,3 @@
-**Map: 7.6-Magnitude Earthquake Strikes the Caribbean Sea**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-sea-nyt93gtj.html
-
 **Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
 `The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
 `\
@@ -38,4 +34,8 @@ https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.ht
 **Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
 `Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
 https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
+
+**Democratic Lawmakers Denied Entry to the Department of Education**\
+`It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
+https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
 
