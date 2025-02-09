@@ -1,3 +1,7 @@
+**No. 4 Texas ends No. 2 South Carolina's 57-game winning streak in SEC play**\
+`The Longhorns' win shifts the picture at the top of women’s college basketball with only a handful of regular-season games to play.`\
+https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carolina-winning-streak-sec/
+
 **Tom Robbins, Whose Comic Novels Drew a Cult Following, Dies at 92**\
 `He blended pop philosophy and absurdist comedy in best-selling books like “Even Cowgirls Get the Blues” and “Skinny Legs and All.”`\
 https://nytimes.com/2025/02/09/obituaries/tom-robins-dead.html

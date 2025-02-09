@@ -1,3 +1,7 @@
+**No. 4 Texas ends No. 2 South Carolina's 57-game winning streak in SEC play**\
+`The Longhorns' win shifts the picture at the top of women’s college basketball with only a handful of regular-season games to play.`\
+https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carolina-winning-streak-sec/
+
 **Tom Robbins, Whose Comic Novels Drew a Cult Following, Dies at 92**\
 `He blended pop philosophy and absurdist comedy in best-selling books like “Even Cowgirls Get the Blues” and “Skinny Legs and All.”`\
 https://nytimes.com/2025/02/09/obituaries/tom-robins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-o
 **Jimmy Butler’s Warriors debut made it feel real: This is the dynasty’s last push**\
 `Their contracts are all aligned. The goal is clear. And on Saturday, the Warriors and Jimmy Butler began the honeymoon. `\
 https://nytimes.com/athletic/6124499/2025/02/09/jimmy-butler-warriors-debut-stephen-curry-title-push/
-
-**The Briefing: Aston Villa 2 Tottenham 1 - Rashford debut, passive Spurs, Villa injury worries**\
-`Aston Villa impress with a comfortable victory in the FA Cup against a poor Tottenham`\
-https://nytimes.com/athletic/6112485/2025/02/09/aston-villa-2-tottenham-1-fa-cup/
 
