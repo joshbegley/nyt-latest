@@ -1,3 +1,7 @@
+**At the Super Bowl Ladies Lounge, N.F.L. Wives Stick Together**\
+`A party hosted by the National Football Wives Association gave the partners of players, both active and retired, a chance to connect and unwind.`\
+https://nytimes.com/2025/02/09/style/super-bowl-nfl-wives-party.html
+
 **Lowetide: Why Matt Savoie's rookie AHL season proves worthy of an NHL audition**\
 `For Savoie, more success in the AHL is the best route to that NHL opportunity with Edmonton.`\
 https://nytimes.com/athletic/6123177/2025/02/09/matt-savoie-ahl-stats-oilers/

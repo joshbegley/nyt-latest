@@ -1,3 +1,7 @@
+**At the Super Bowl Ladies Lounge, N.F.L. Wives Stick Together**\
+`A party hosted by the National Football Wives Association gave the partners of players, both active and retired, a chance to connect and unwind.`\
+https://nytimes.com/2025/02/09/style/super-bowl-nfl-wives-party.html
+
 **Lowetide: Why Matt Savoie's rookie AHL season proves worthy of an NHL audition**\
 `For Savoie, more success in the AHL is the best route to that NHL opportunity with Edmonton.`\
 https://nytimes.com/athletic/6123177/2025/02/09/matt-savoie-ahl-stats-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
 **From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
 `On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
 https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
-
-**The Pulse: Last-minute Super Bowl props and recipes**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/
 
