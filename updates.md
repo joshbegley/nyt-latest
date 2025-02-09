@@ -1,3 +1,11 @@
+**Tracking a Potential Tsunami in the Caribbean**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html
+
+**Dick Vitale returns to booth for Duke-Clemson game: 'This is my Super Bowl'**\
+`The ACC matchup marked the first time Vitale has announced a men's college basketball matchup since April 3, 2023. `\
+https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
+
 **Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
 `Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
 https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
