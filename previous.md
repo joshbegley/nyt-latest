@@ -1,3 +1,7 @@
+**'Opposite' players Jimmy Butler and Steph Curry dominate in debut together**\
+`Butler's debut signified the Warriors' most hopeful moment in months, an introduction of a superstar who blends well into their system.`\
+https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
+
 **Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
 `Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9.`\
 https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123287/2025/02/09/everton-bournemouth-fa-cup-analy
 **City's win over Orient showed they are still more vulnerable than injury-hit Real Madrid**\
 `Manchester City and Real Madrid are both weakened - but despite a win against Leyton Orient, Guardiola's side are more vulnerable... `\
 https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-real-madrid/
-
-**Plymouth owner Simon Hallett on 'unfinished business' with Liverpool and taking a risk on Rooney**\
-`Plymouth's chairman on picking managers, fighting relegation and why 'knowing a league' doesn't matter as they face Liverpool FA Cup tie`\
-https://nytimes.com/athletic/6071845/2025/02/09/plymouth-owner-simon-hallett-rooney-liverpool-fa-cup/
 
