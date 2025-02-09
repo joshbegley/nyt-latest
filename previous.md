@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Toronto left searching for more offence in Vancouver**\
+`Although the Leafs were not badly beaten, they did nothing to distinguish themselves in their attempt to complete a perfect road trip.`\
+https://nytimes.com/athletic/6123515/2025/02/08/maple-leafs-canucks-analysis-grades/
+
 **Anthony Davis' debut, Max Christie's big game and a Mavs win quell Luka protesting**\
 `"It’s our job as players to continue to play basketball, win basketball games. The rest of it will take care of itself," Davis said.`\
 https://nytimes.com/athletic/6123613/2025/02/08/anthony-davis-mavericks-max-christie-luka-doncic/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swa
 **K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
 `The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
 https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
-
-**Tracking a Potential Tsunami in the Caribbean**\
-`Monitor warnings and predicted arrival times for the ocean wave.`\
-https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html
 
