@@ -1,3 +1,7 @@
+**Canada defeats USA, wins third consecutive Rivalry Series title**\
+`Team Canada won the 2024-25 Rivalry Series with a 3-1 win over Team USA in Game 5 on Saturday night.`\
+https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey/
+
 **Canadiens continue to play meaningful games, but the meaning has changed drastically**\
 `The Canadiens learned a lot about their team's present over the past three weeks, and now they need to learn more about their future.`\
 https://nytimes.com/athletic/6123562/2025/02/08/canadiens-devils-owen-beck-lane-hutson/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunam
 **Is Florida a No. 1 seed? Gators make their case with win over No. 1 Auburn**\
 `The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
 https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
-
-**Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
-`In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
-https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
 
