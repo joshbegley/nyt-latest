@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
 `In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
 https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
 
-**Trump to impose metal tariffs on Monday, followed by broader levies.**\
+**Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
 `The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
 

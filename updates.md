@@ -1,3 +1,7 @@
+**Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
+`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
+
 **Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
 `The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
 https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
