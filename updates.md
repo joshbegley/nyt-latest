@@ -1,3 +1,20 @@
+**Who are the Premier League's most versatile teams and players?**\
+`The numbers that show why Nuno Espirito Santo is the master of mid-game tweaks to a system during this Premier League season`\
+https://nytimes.com/athletic/6120937/2025/02/09/premier-league-team-player-versatility/
+
+**Flyers enter break after 'really weird' and 'bizarre' week**\
+`The trade that sent Morgan Frost and Joel Farabee to the Flames took a toll on the Flyers, both on and off the ice.`\
+https://nytimes.com/athletic/6123845/2025/02/09/flyers-4-nations-face-off-trade/
+
+**Joao Felix has become football's Rorschach test - everyone sees something different**\
+`Despite the false dawns, clubs continue to invest in Joao Felix. His Milan move offers hope that he can reignite his career in Italy`\
+https://nytimes.com/athletic/6121573/2025/02/09/joao-felix-has-become-footballs-rorschach-test-everyone-sees-something-different/
+
+**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\
