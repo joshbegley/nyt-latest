@@ -1,3 +1,11 @@
+**Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
+`Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
+https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
+
+**Eagles' Brandon Graham active for Super Bowl LIX matchup vs. Chiefs**\
+`Veteran defensive end will dress for Sunday's game after being sidelined by a torn tricep in Week 12. `\
+https://nytimes.com/athletic/6122496/2025/02/09/chiefs-eagles-final-injury-reports-super-bowl/
+
 **Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
 `Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
 https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-emb
 **Democrats Hint at Government Shutdown to Stop Trump’s Axing at Federal Agencies**\
 `Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
 https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
-
-**Russell Vought Orders Consumer Protection Bureau’s Headquarters Closed for a Week**\
-`The order to shutter the agency’s headquarters follows another order issued Saturday by Mr. Vought, who also leads the Office of Management and Budget, telling agency employees to halt nearly all their work.`\
-https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-close.html
-
-**Jets expected to move on from QB Aaron Rodgers: Sources**\
-`It has felt like the Jets and Rodgers were headed for a divorce since long before they hired a new coach and GM this winter.`\
-https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-on/
 

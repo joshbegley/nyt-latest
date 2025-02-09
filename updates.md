@@ -1,3 +1,7 @@
+**Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
+`Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
+https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
+
 **No. 4 Texas ends No. 2 South Carolina's 57-game winning streak in SEC play**\
 `The Longhorns' win shifts the picture at the top of women’s college basketball with only a handful of regular-season games to play.`\
 https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carolina-winning-streak-sec/

@@ -1,3 +1,7 @@
+**Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
+`Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
+https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
+
 **No. 4 Texas ends No. 2 South Carolina's 57-game winning streak in SEC play**\
 `The Longhorns' win shifts the picture at the top of women’s college basketball with only a handful of regular-season games to play.`\
 https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carolina-winning-streak-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-clos
 **Jets expected to move on from QB Aaron Rodgers: Sources**\
 `It has felt like the Jets and Rodgers were headed for a divorce since long before they hired a new coach and GM this winter.`\
 https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-on/
-
-**Jimmy Butler’s Warriors debut made it feel real: This is the dynasty’s last push**\
-`Their contracts are all aligned. The goal is clear. And on Saturday, the Warriors and Jimmy Butler began the honeymoon. `\
-https://nytimes.com/athletic/6124499/2025/02/09/jimmy-butler-warriors-debut-stephen-curry-title-push/
 
