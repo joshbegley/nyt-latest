@@ -1,40 +1,40 @@
-**Mbappe scores but Madrid still can't win a big game. Will their four stars line up against City?**\
-`Madrid's front four of Mbappe, Vinicius Jr, Rodrygo and Bellingham all started against Atletico but it still wasn't enough`\
-https://nytimes.com/athletic/6123645/2025/02/09/real-madrid-mbappe-atletico-man-city/
+**A Quick Guide to the Lawsuits Against the Trump Orders**\
+`Dozens of suits have been filed that seek to stop some of President Trump’s executive orders. Here’s a brief rundown.`\
+https://nytimes.com/2025/02/09/us/trump-lawsuits-executive-orders.html
 
-**Burning tactical plans, Hurzeler's one-to-one chats: How Brighton bounced back**\
-`Brighton were humbled by Nottingham Forest only a week ago — so how did they bounce back to beat Chelsea?`\
-https://nytimes.com/athletic/6119011/2025/02/09/brighton-chelsea-fa-cup-bounce-back/
+**Ramaswamy’s Celebrity and Trump Ties Give Him a Jump in Ohio Governor’s Race**\
+`Vivek Ramaswamy’s short and rocky tenure in Washington isn’t turning off Republican voters in his home state.`\
+https://nytimes.com/2025/02/09/us/politics/vivek-ramaswamy-trump-ohio-governor.html
 
-**‘I Had Decided I Wanted to Spend Some Time Outside After Work’**\
-`Just the right spot in Prospect Park, mesmerized by Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/02/09/nyregion/metropolitan-diary.html
+**Why Federal Courts May Be the Last Bulwark Against Trump**\
+`With a compliant Congress and mostly quiet streets, the president’s opponents are turning to the judicial branch with a flurry of legal actions. But can the courts keep up?`\
+https://nytimes.com/2025/02/09/us/trump-federal-courts-lawsuits.html
 
-**Can a Golden Retriever Win at Westminster? History Says No.**\
-`They are among the most popular dogs in the United States, but at the biggest dog show in the world, they are never (never!) best in show.`\
-https://nytimes.com/2025/02/09/style/westminster-preview-golden-retrievers.html
+**What to Know About Ecuador’s Presidential Election**\
+`As voters head to the polls on Sunday, violence, unemployment and the country’s ongoing energy crisis will be top of mind.`\
+https://nytimes.com/2025/02/09/world/americas/ecuador-election-2025.html
 
-**Can $400 Million Rescue New York’s Run-Down Capital City?**\
-`Gov. Kathy Hochul has proposed to earmark $400 million to revitalize the capital of New York, where poverty rates are high and the downtown is moribund.`\
-https://nytimes.com/2025/02/09/nyregion/albany-revitalization-downtown.html
+**Super Bowl 2025 halftime show set list: Will Kendrick Lamar perform 'Not Like Us'?**\
+`Could Kendrick Lamar's halftime show Sunday be more of a storytelling display than a traditional concert?`\
+https://nytimes.com/athletic/6122876/2025/02/09/kendrick-lamar-super-bowl-halftime-show-not-like-us-grammy-awards/
 
-**Behind a Mass Shooting Trial in Texas, a Lawyer’s Own Grief**\
-`Lori Laird was defending a couple whose son shot 23 people at his school, while engaged in a desperate struggle with her own son’s mental illness. When are parents to blame?`\
-https://nytimes.com/2025/02/09/us/lawyer-schizophrenia-santa-fe-school-shooting.html
+**South Carolina at Texas women's basketball: How to watch defending champs in Austin**\
+`It's No. 2 vs. No. 4 on Sunday afternoon. The Gamecocks have won 17 straight games. The Longhorns are 16-1 in their last 17.`\
+https://nytimes.com/athletic/6122477/2025/02/09/south-carolina-texas-how-to-watch-womens-basketball/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/09/crosswords/spelling-bee-forum.html
+**Super Bowl 2025 pregame show: How to watch, broadcast info for warmup programming**\
+`FOX has five hours of pregame programming ahead of Sunday's Super Bowl 59.`\
+https://nytimes.com/athletic/6122016/2025/02/09/super-bowl-lix-59-pregame-fox-how-to-watch/
 
-**Love and Money: Why Sharing Accounts Is Good for Your Relationship**\
-`Fewer couples are combining their bank accounts. But that trend may not promote partners’ overall financial health, experts say.`\
-https://nytimes.com/2025/02/09/business/couples-finances-bank-accounts.html
+**How GoFundMe Became a $250 Million Lifeline After the L.A. Fires**\
+`Donations on the crowdfunding site to people and fire relief efforts have exceeded those for all natural disasters worldwide last year.`\
+https://nytimes.com/2025/02/09/business/media/la-fires-gofundme.html
 
-**Happy Tears as 5 Thai Hostages Return Home From Gaza**\
-`Thais were, after Israelis, the nationality most affected by Hamas’s Oct. 7, 2023, attack, with nearly 40 farm workers killed and almost as many captured.`\
-https://nytimes.com/2025/02/09/world/asia/thai-hostages-gaza-home.html
+**Trump and the N.F.L.: A Fraught Relationship Stretching Back Decades**\
+`The president’s expected attendance at Sunday’s Super Bowl highlights how his connection to the league has veered from aspirational to openly antagonistic.`\
+https://nytimes.com/2025/02/09/business/trump-super-bowl-nfl.html
 
-**'Opposite' players Jimmy Butler and Steph Curry dominate in debut together**\
-`Butler's debut signified the Warriors' most hopeful moment in months, an introduction of a superstar who blends well into their system.`\
-https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
+**Court Ruling Gives Hope for Cleanup in Italy’s ‘Land of Fires’**\
+`The European Court of Human Rights took Italy to task for not protecting citizens in an area where illegal dumping and burning of toxic waste has long been linked to cancers. Residents say it’s about time.`\
+https://nytimes.com/2025/02/09/world/europe/italy-toxic-waste-echr-pollution.html
 
