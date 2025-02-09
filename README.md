@@ -1,3 +1,7 @@
+**Happy Tears as 5 Thai Hostages Return Home From Gaza**\
+`Thais were, after Israelis, the nationality most affected by Hamas’s Oct. 7, 2023, attack, with nearly 40 farm workers killed and almost as many captured.`\
+https://nytimes.com/2025/02/09/world/asia/thai-hostages-gaza-home.html
+
 **'Opposite' players Jimmy Butler and Steph Curry dominate in debut together**\
 `Butler's debut signified the Warriors' most hopeful moment in months, an introduction of a superstar who blends well into their system.`\
 https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123833/2025/02/09/matt-boldy-yakov-trenin-wild-tak
 **Everton 0 Bournemouth 2: Bogey side pounce on sloppy errors - but Alcaraz shines**\
 `The last ever FA Cup tie at Goodison Park threw up some familiar failings as Everton crashed out of the competition`\
 https://nytimes.com/athletic/6123287/2025/02/09/everton-bournemouth-fa-cup-analysis/
-
-**City's win over Orient showed they are still more vulnerable than injury-hit Real Madrid**\
-`Manchester City and Real Madrid are both weakened - but despite a win against Leyton Orient, Guardiola's side are more vulnerable... `\
-https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-real-madrid/
 
