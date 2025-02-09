@@ -1,3 +1,7 @@
+**An Esteemed Biographer Puts Her Own Life in the Spotlight**\
+`The standout essays in Megan Marshall’s “After Lives” recall her troubled father and the fate of a high school classmate.`\
+https://nytimes.com/2025/02/09/books/review/megan-marshall-after-lives-biography.html
+
 **The Democrats Are in Disarray. Now What?**\
 `Readers differ about whom to blame for the party’s situation and how to fix it. Also: Asheville’s challenges; caring for mental health.`\
 https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-co
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
-
-**Eagles Super Bowl player props: Will Saquon Barkley go off? Will Hurts reach 10 carries?**\
-`Scott Phillips breaks down the player props for the big names on Philadelphia's offense and how the matchup with Kansas City could play out.`\
-https://nytimes.com/athletic/6109504/2025/02/09/eagles-prop-bets-super-bowl-59/
 

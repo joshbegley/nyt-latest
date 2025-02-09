@@ -1,3 +1,7 @@
+**An Esteemed Biographer Puts Her Own Life in the Spotlight**\
+`The standout essays in Megan Marshall’s “After Lives” recall her troubled father and the fate of a high school classmate.`\
+https://nytimes.com/2025/02/09/books/review/megan-marshall-after-lives-biography.html
+
 **The Democrats Are in Disarray. Now What?**\
 `Readers differ about whom to blame for the party’s situation and how to fix it. Also: Asheville’s challenges; caring for mental health.`\
 https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
