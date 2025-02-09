@@ -1,3 +1,11 @@
+**City's win over Orient showed they are still more vulnerable than injury-hit Real Madrid**\
+`Manchester City and Real Madrid are both weakened - but despite a win against Leyton Orient, Guardiola's side are more vulnerable... `\
+https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-real-madrid/
+
+**Plymouth owner Simon Hallett on 'unfinished business' with Liverpool and taking a risk on Rooney**\
+`Plymouth's chairman on picking managers, fighting relegation and why 'knowing a league' doesn't matter as they face Liverpool FA Cup tie`\
+https://nytimes.com/athletic/6071845/2025/02/09/plymouth-owner-simon-hallett-rooney-liverpool-fa-cup/
+
 **Who are the Premier League's most versatile teams and players?**\
 `The numbers that show why Nuno Espirito Santo is the master of mid-game tweaks to a system during this Premier League season`\
 https://nytimes.com/athletic/6120937/2025/02/09/premier-league-team-player-versatility/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6120337/2025/02/08/submit-a-question-for-chris-vann
 **Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
 `An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
 https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
-
-**Sam Nujoma, Founding President of Namibia, Dies at 95**\
-`As the self-exiled leader of the South-West Africa People’s Organization, he directed a guerrilla army in a 24-year war for independence from South African rule.`\
-https://nytimes.com/2025/02/08/obituaries/sam-nujoma-dead.html
-
-**How Canucks outdueled Leafs to enter 4 Nations break on high note: 3 takeaways**\
-`Vancouver has won three straight games heading into the NHL's extended multi-week break for the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/6123699/2025/02/08/canucks-maple-leafs-4-nations-takeaways/
 
