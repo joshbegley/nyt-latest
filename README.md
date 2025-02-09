@@ -1,3 +1,7 @@
+**Canadiens continue to play meaningful games, but the meaning has changed drastically**\
+`The Canadiens learned a lot about their team's present over the past three weeks, and now they need to learn more about their future.`\
+https://nytimes.com/athletic/6123562/2025/02/08/canadiens-devils-owen-beck-lane-hutson/
+
 **Map: 7.6-Magnitude Earthquake Strikes the Caribbean Sea**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-sea-nyt93gtj.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-u
 **Springfield, Ohio, Sues Neo-Nazi Group, Saying It Intimidated Haitians**\
 `In the lawsuit, the city states that people associated with the group made death threats last year against those who expressed support for Haitian residents.`\
 https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.html
-
-**Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
-`Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
-https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
 
