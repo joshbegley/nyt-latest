@@ -1,3 +1,17 @@
+**Federal Financial Watchdog Ordered to Cease Activity**\
+`In an email to staff of the Consumer Financial Protection Bureau, the agency’s acting director ordered workers to cease “all supervision and examination activity.”`\
+https://nytimes.com/2025/02/08/us/politics/cfpb-vought-staff-finance-watchdog.html
+
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
 `The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
 `\
