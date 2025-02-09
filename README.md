@@ -1,3 +1,7 @@
+**Super Bowl party foods ranked ... and drafted**\
+`What's the No. 1 draft pick for Super Bowl party food?`\
+https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-and-fantasy-draft/
+
 **Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
 `Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
 https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124394/2025/02/09/carlos-alcaraz-alex-de-minaur-ro
 **Winter Storm Coats Northeast in Snow**\
 `A winter storm brought snow to the northeastern U.S. on Saturday, covering parts of New York and New Jersey.`\
 https://nytimes.com/video/nyregion/100000009979822/new-york-new-jersey-northeast-snow-storm.html
-
-**Plymouth 1 Liverpool 0: Hardie penalty knocks Premier League leaders out of FA Cup**\
-`Championship Plymouth Argyle pulled off the biggest shock of the FA Cup fourth round with a 1-0 victory over Premier League leaders Liverpool at Home Park on Sunday.`\
-https://nytimes.com/athletic/6124383/2025/02/09/plymouth-argyle-liverpool-fa-cup-result/
 
