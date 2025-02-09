@@ -1,3 +1,7 @@
+**Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
+`An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
+https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
+
 **Sam Nujoma, Founding President of Namibia, Dies at 95**\
 `As the self-exiled leader of the South-West Africa People’s Organization, he directed a guerrilla army in a 24-year war for independence from South African rule.`\
 https://nytimes.com/2025/02/08/obituaries/sam-nujoma-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charl
 **Canada defeats USA, wins third consecutive Rivalry Series title**\
 `Team Canada won the 2024-25 Rivalry Series with a 3-1 win over Team USA in Game 5 on Saturday night.`\
 https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey/
-
-**Canadiens continue to play meaningful games, but the meaning has changed drastically**\
-`The Canadiens learned a lot about their team's present over the past three weeks, and now they need to learn more about their future.`\
-https://nytimes.com/athletic/6123562/2025/02/08/canadiens-devils-owen-beck-lane-hutson/
 
