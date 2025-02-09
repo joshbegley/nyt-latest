@@ -1,5 +1,9 @@
-**Randy Moss returning to ESPN for Super Bowl after cancer diagnosis**\
-`Moss returns after a two-month hiatus from "NFL Countdown" following his cancer diagnosis.`\
+**Lowetide: Why Matt Savoie's rookie AHL season proves worthy of an NHL audition**\
+`For Savoie, more success in the AHL is the best route to that NHL opportunity with Edmonton.`\
+https://nytimes.com/athletic/6123177/2025/02/09/matt-savoie-ahl-stats-oilers/
+
+**Randy Moss returns to ESPN for Super Bowl after cancer diagnosis**\
+`"It's been hard, but I got a lot of love and a lot of people believing in me," an emotional Moss said on "NFL Countdown" on Sunday morning.`\
 https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
 
 **Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trad
 **The Pulse: Last-minute Super Bowl props and recipes**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/
-
-**Ready for the Super Bowl?**\
-`Here’s a guide to tonight’s game.`\
-https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html
 
