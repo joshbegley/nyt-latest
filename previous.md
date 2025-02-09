@@ -1,4 +1,9 @@
-**Clemson snaps No. 2 Duke’s 16-game winning streak: What it means for Tigers**\
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
+**Clemson snaps No. 2 Duke’s 16-game winning streak: How Blue Devils finally fell**\
 `The Blue Devils haven’t experienced a loss yet this calendar year, last registering a defeat to Kansas on Nov. 12.`\
 https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
 
@@ -34,8 +39,4 @@ https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.htm
 **Dick Vitale returns to booth for Duke-Clemson game: 'This is my Super Bowl'**\
 `The ACC matchup marked the first time Vitale has announced a men's college basketball matchup since April 3, 2023. `\
 https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
-
-**Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
-`Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
-https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
 
