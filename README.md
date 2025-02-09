@@ -1,3 +1,7 @@
+**Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
+`The veteran Los Angeles Kings defenseman was added to the roster late Saturday as an injury replacement for Alex Pietrangelo.`\
+https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-face-off/
+
 **‘Anora’ Wins Big at Producers and Directors Guild Awards**\
 `The film that takes those two major industry prizes almost always goes on to win the best-picture Oscar.`\
 https://nytimes.com/2025/02/09/movies/anora-wins-producers-and-directors-guild-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html
 **Israeli Troops Withdraw From Key Zone Bisecting Gaza**\
 `Israel’s military withdrew from the Netzarim Corridor under the cease-fire with Hamas. During the war, troops patrolled the zone that splits the territory, preventing evacuated Palestinians from returning north.`\
 https://nytimes.com/2025/02/09/world/europe/israel-gaza-netzarim.html
-
-**Russini’s What I’m Hearing: How Browns are handling Myles Garrett trade talks, Purdy contract coming**\
-`Plus, why the Rams are moving Cooper Kupp, Derrick Henry’s future, and just what Kirk Cousins was dealing with.`\
-https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-cooper-kupp-trade-talks/
 
