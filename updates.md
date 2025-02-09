@@ -1,3 +1,7 @@
+**Vance Accuses Judges Who Block Trump’s Executive Orders of Acting Illegally**\
+`“Judges aren’t allowed to control the executive’s legitimate power,” Vice President JD Vance wrote on social media, raising questions about whether the Trump administration would abide by federal rulings curtailing its agenda.`\
+https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
+
 **One Big Super Bowl Tailgate: Celebrities Embrace New Orleans**\
 `Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
 https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
