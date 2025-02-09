@@ -1,3 +1,7 @@
+**Anthony Davis' debut, Max Christie's big game and a Mavs win quell Luka protesting**\
+`"It’s our job as players to continue to play basketball, win basketball games. The rest of it will take care of itself," Davis said.`\
+https://nytimes.com/athletic/6123613/2025/02/08/anthony-davis-mavericks-max-christie-luka-doncic/
+
 **Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
 `The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-r
 **Tracking a Potential Tsunami in the Caribbean**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html
-
-**Dick Vitale returns to booth for Duke-Clemson game: 'This is my Super Bowl'**\
-`The ACC matchup marked the first time Vitale has announced a men's college basketball matchup since April 3, 2023. `\
-https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
 
