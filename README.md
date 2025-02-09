@@ -1,3 +1,7 @@
+**Alcaraz wins first indoor title with three-set victory over De Minaur in Rotterdam**\
+`The Spaniard won his first title of 2025 after getting past the Australian.`\
+https://nytimes.com/athletic/6124394/2025/02/09/carlos-alcaraz-alex-de-minaur-rotterdam-final-result/
+
 **Winter Storm Coats Northeast in Snow**\
 `A winter storm brought snow to the northeastern U.S. on Saturday, covering parts of New York and New Jersey.`\
 https://nytimes.com/video/nyregion/100000009979822/new-york-new-jersey-northeast-snow-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/style/super-bowl-nfl-wives-party.html
 **Lowetide: Why Matt Savoie's rookie AHL season proves worthy of an NHL audition**\
 `For Savoie, more success in the AHL is the best route to that NHL opportunity with Edmonton.`\
 https://nytimes.com/athletic/6123177/2025/02/09/matt-savoie-ahl-stats-oilers/
-
-**Randy Moss returns to ESPN for Super Bowl after cancer diagnosis**\
-`"It's been hard, but I got a lot of love and a lot of people believing in me," an emotional Moss said on "NFL Countdown" on Sunday morning.`\
-https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
 
