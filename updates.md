@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swa
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Canadiens continue to play meaningful games, but the meaning has changed drastically**\
 `The Canadiens learned a lot about their team's present over the past three weeks, and now they need to learn more about their future.`\
 https://nytimes.com/athletic/6123562/2025/02/08/canadiens-devils-owen-beck-lane-hutson/
