@@ -1,3 +1,8 @@
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
 `The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
 https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
 **Democratic Lawmakers Denied Entry to the Department of Education**\
 `It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
 https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
-
-**House Democrats Denied Entry to the U.S. Department of Education**\
-`Several Democratic lawmakers attempted to access the department’s headquarters on Friday, after a request to meet with the acting education secretary went unanswered.`\
-https://nytimes.com/video/us/politics/100000009979233/congressional-democrats-education-dept.html
 
