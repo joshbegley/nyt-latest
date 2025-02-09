@@ -35,6 +35,6 @@ https://nytimes.com/2025/02/09/world/asia/thai-hostages-gaza-home.html
 https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
 
 **Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
-`Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9.`\
+`Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9`\
 https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
 
