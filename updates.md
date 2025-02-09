@@ -1,3 +1,11 @@
+**36 Hours After Russell Vought Took Over Consumer Bureau, He Shut Its Operations**\
+`The agency had been one of Wall Street’s most feared regulators, with the power to issue rules on mortgages, credit cards, student loans and other areas affecting Americans’ financial lives.`\
+https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
+
+**Trump Says He Might Use U.S. Transit Agency to ‘Kill’ Congestion Pricing**\
+`In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
+https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
+
 **Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
 `The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals

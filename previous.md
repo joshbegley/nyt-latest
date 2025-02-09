@@ -1,3 +1,11 @@
+**36 Hours After Russell Vought Took Over Consumer Bureau, He Shut Its Operations**\
+`The agency had been one of Wall Street’s most feared regulators, with the power to issue rules on mortgages, credit cards, student loans and other areas affecting Americans’ financial lives.`\
+https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
+
+**Trump Says He Might Use U.S. Transit Agency to ‘Kill’ Congestion Pricing**\
+`In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
+https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
+
 **Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
 `The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carol
 **Tom Robbins, Whose Comic Novels Drew a Cult Following, Dies at 92**\
 `He blended pop philosophy and absurdist comedy in best-selling books like “Even Cowgirls Get the Blues” and “Skinny Legs and All.”`\
 https://nytimes.com/2025/02/09/obituaries/tom-robins-dead.html
-
-**Monday Briefing: The Last Guard Against Trump’s Orders?**\
-`Plus, a study in swearing.`\
-https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-india-maoists.html
-
-**Bills part ways with special teams coordinator Matthew Smiley**\
-`Before arriving in Buffalo, Smiley coached in college and with the Jacksonville Jaguars from 2013-16.`\
-https://nytimes.com/athletic/6124651/2025/02/09/bills-fire-special-teams-coordinator/
 
