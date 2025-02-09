@@ -1,3 +1,7 @@
+**Happy Tears as 5 Thai Hostages Return Home From Gaza**\
+`Thais were, after Israelis, the nationality most affected by Hamas’s Oct. 7, 2023, attack, with nearly 40 farm workers killed and almost as many captured.`\
+https://nytimes.com/2025/02/09/world/asia/thai-hostages-gaza-home.html
+
 **'Opposite' players Jimmy Butler and Steph Curry dominate in debut together**\
 `Butler's debut signified the Warriors' most hopeful moment in months, an introduction of a superstar who blends well into their system.`\
 https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
