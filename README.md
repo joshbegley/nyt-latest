@@ -1,3 +1,7 @@
+**Map: 7.6-Magnitude Earthquake Strikes the Caribbean Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-sea-nyt93gtj.html
+
 **Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
 `The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
 `\
@@ -23,7 +27,7 @@ https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
 `The 7.6-magnitude tremor struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
 https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
 
-**Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
+**Is Florida a No. 1 seed? Gators make their case with win over No. 1 Auburn**\
 `The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
 https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/08/us/springfield-ohio-lawsuit-haitians-neo-nazis.ht
 **Amid Concern Over Trump Order, New Yorkers Rally to Support Trans Youth**\
 `Thousands of protesters in Union Square called for action against an executive order that threatens to withhold federal funding from hospitals that provide gender-affirming care.`\
 https://nytimes.com/2025/02/08/nyregion/nyc-trans-health-care-youth-protest.html
-
-**Democratic Lawmakers Denied Entry to the Department of Education**\
-`It was the fourth agency this week that federal employees blocked congressional Democrats from entering amid a push to shutter government agencies and dramatically cut the federal work force.`\
-https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.html
 
