@@ -1,3 +1,11 @@
+**Monday Briefing: The Last Guard Against Trump’s Orders?**\
+`Plus, a study in swearing.`\
+https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-india-maoists.html
+
+**Bills part ways with special teams coordinator Matthew Smiley**\
+`Before arriving in Buffalo, Smiley coached in college and with the Jacksonville Jaguars from 2013-16.`\
+https://nytimes.com/athletic/6124651/2025/02/09/bills-fire-special-teams-coordinator/
+
 **Vance Accuses Judges Who Block Trump’s Executive Orders of Acting Illegally**\
 `“Judges aren’t allowed to control the executive’s legitimate power,” Vice President JD Vance wrote on social media, raising questions about whether the Trump administration would abide by federal rulings curtailing its agenda.`\
 https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6112485/2025/02/09/aston-villa-2-tottenham-1-fa-cup
 **Rutherford Chang, Who Turned Collections Into Art, Dies at 45**\
 `He was best known for amassing more than 3,400 copies of the Beatles’ “White Album” and using them to demonstrate the aging of a cultural artifact.`\
 https://nytimes.com/2025/02/09/arts/rutherford-chang-dead.html
-
-**For Stunned Federal Workers, Sleeplessness, Anger and Tears**\
-`One thing lost in the Trump administration’s war on the federal bureaucracy is the collective voice of the employees. But some have begun to speak out.`\
-https://nytimes.com/2025/02/09/us/politics/federal-workers-trump.html
-
-**Best 2025 Super Bowl commercials: Ranking the ads**\
-`Award-winning ranker of all things, Jake Ciely, ranks the best (and worst) Super Bowl commercials. `\
-https://nytimes.com/athletic/6097969/2025/02/09/best-2025-super-bowl-commercials-ranking-the-ads-worst-commercials-david-beckham-seal/
 

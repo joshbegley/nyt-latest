@@ -1,3 +1,11 @@
+**Monday Briefing: The Last Guard Against Trump’s Orders?**\
+`Plus, a study in swearing.`\
+https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-india-maoists.html
+
+**Bills part ways with special teams coordinator Matthew Smiley**\
+`Before arriving in Buffalo, Smiley coached in college and with the Jacksonville Jaguars from 2013-16.`\
+https://nytimes.com/athletic/6124651/2025/02/09/bills-fire-special-teams-coordinator/
+
 **Vance Accuses Judges Who Block Trump’s Executive Orders of Acting Illegally**\
 `“Judges aren’t allowed to control the executive’s legitimate power,” Vice President JD Vance wrote on social media, raising questions about whether the Trump administration would abide by federal rulings curtailing its agenda.`\
 https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
