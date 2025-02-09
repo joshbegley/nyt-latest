@@ -1,3 +1,8 @@
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Map: 7.6-Magnitude Earthquake Strikes the Caribbean Sea**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-sea-nyt93gtj.html
