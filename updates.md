@@ -1,3 +1,11 @@
+**Trump to impose metal tariffs on Monday, followed by broader levies.**\
+`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
+
+**The Most Memorable Looks From the Super Bowl Tunnel Walk**\
+`From Travis Kelce’s Ron Burgundy-like suit to Saquon Barkley’s Canadian tuxedo, players from both teams embraced the fact that all eyes would be on them.`\
+https://nytimes.com/2025/02/09/style/super-bowl-tunnel-walk-travis-kelce-saquon-barkley.html
+
 **36 Hours After Russell Vought Took Over Consumer Bureau, He Shut Its Operations**\
 `The agency had been one of Wall Street’s most feared regulators, with the power to issue rules on mortgages, credit cards, student loans and other areas affecting Americans’ financial lives.`\
 https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
