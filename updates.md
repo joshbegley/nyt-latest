@@ -1,3 +1,7 @@
+**Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
+`The veteran Los Angeles Kings defenseman was added to the roster late Saturday as an injury replacement for Alex Pietrangelo.`\
+https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-face-off/
+
 **‘Anora’ Wins Big at Producers and Directors Guild Awards**\
 `The film that takes those two major industry prizes almost always goes on to win the best-picture Oscar.`\
 https://nytimes.com/2025/02/09/movies/anora-wins-producers-and-directors-guild-awards.html
