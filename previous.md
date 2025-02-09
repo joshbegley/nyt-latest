@@ -1,3 +1,7 @@
+**Israeli Troops Withdraw From Key Zone Bisecting Gaza**\
+`Israel’s military withdrew from the Netzarim Corridor under the cease-fire with Hamas. During the war, troops patrolled the zone that splits the territory, preventing evacuated Palestinians from returning north.`\
+https://nytimes.com/2025/02/09/world/europe/israel-gaza-netzarim.html
+
 **Russini’s What I’m Hearing: How Browns are handling Myles Garrett trade talks, Purdy contract coming**\
 `Plus, why the Rams are moving Cooper Kupp, Derrick Henry’s future, and just what Kirk Cousins was dealing with.`\
 https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-cooper-kupp-trade-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/podcasts/the-daily/raw-milk-rfk-jr-medical-freedo
 **The Populist Cure Is Worse Than the Elite Disease**\
 `The push-me-pull-you relationship between Trump and his movement has a long history.`\
 https://nytimes.com/2025/02/09/opinion/trump-populism-bannon.html
-
-**I Do Not Want Revenge for My Father’s Death**\
-`My father’s killer is being released to save hostages.`\
-https://nytimes.com/2025/02/09/opinion/israel-hostages-killer-father.html
 
