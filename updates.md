@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swa
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
 `The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
 https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
