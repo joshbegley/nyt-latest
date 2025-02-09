@@ -2,8 +2,8 @@
 `In an email to staff of the Consumer Financial Protection Bureau, the agency’s acting director ordered workers to cease “all supervision and examination activity.”`\
 https://nytimes.com/2025/02/08/us/politics/cfpb-vought-staff-finance-watchdog.html
 
-**Maple Leafs report cards: Toronto left searching for more offence in Vancouver**\
-`Although the Leafs were not badly beaten, they did nothing to distinguish themselves in their attempt to complete a perfect road trip.`\
+**Toronto left searching for more offence in Vancouver: Maple Leafs report cards**\
+`Although the Leafs were not badly beaten, they did nothing to distinguish themselves in their attempt to complete a perfect trip.`\
 https://nytimes.com/athletic/6123515/2025/02/08/maple-leafs-canucks-analysis-grades/
 
 **Anthony Davis' debut, Max Christie's big game and a Mavs win quell Luka protesting**\
