@@ -1,3 +1,7 @@
+**What do you think of Fox’s Super Bowl score bug? Share your opinion**\
+`Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
+https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion/
+
 **Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
 `The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals

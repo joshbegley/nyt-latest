@@ -1,3 +1,7 @@
+**What do you think of Fox’s Super Bowl score bug? Share your opinion**\
+`Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
+https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion/
+
 **Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
 `The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
 https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
 **Eagles' Brandon Graham active for Super Bowl LIX matchup vs. Chiefs**\
 `Veteran defensive end will dress for Sunday's game after being sidelined by a torn tricep in Week 12. `\
 https://nytimes.com/athletic/6122496/2025/02/09/chiefs-eagles-final-injury-reports-super-bowl/
-
-**Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
-`Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
-https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
 
