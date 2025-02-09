@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-of
 `\
 https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
 
+**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **City's win over Orient showed they are still more vulnerable than injury-hit Real Madrid**\
 `Manchester City and Real Madrid are both weakened - but despite a win against Leyton Orient, Guardiola's side are more vulnerable... `\
 https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-real-madrid/
