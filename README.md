@@ -1,3 +1,7 @@
+**Burning tactical plans, Hurzeler's one-to-one chats: How Brighton bounced back**\
+`Brighton were humbled by Nottingham Forest only a week ago — so how did they bounce back to beat Chelsea?`\
+https://nytimes.com/athletic/6119011/2025/02/09/brighton-chelsea-fa-cup-bounce-back/
+
 **‘I Had Decided I Wanted to Spend Some Time Outside After Work’**\
 `Just the right spot in Prospect Park, mesmerized by Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/02/09/nyregion/metropolitan-diary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-t
 **Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
 `Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9.`\
 https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
-
-**Down goes Duke for the first time in 2 months. Is that the worst thing?**\
-`Duke's loss to Clemson could be just the opportunity to learn that the Blue Devils need heading into March.`\
-https://nytimes.com/athletic/6123935/2025/02/09/duke-loses-to-clemson-cooper-flagg/
 
