@@ -1,3 +1,11 @@
+**Tracking a Potential Tsunami in the Caribbean**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html
+
+**Dick Vitale returns to booth for Duke-Clemson game: 'This is my Super Bowl'**\
+`The ACC matchup marked the first time Vitale has announced a men's college basketball matchup since April 3, 2023. `\
+https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
+
 **Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
 `Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
 https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009979233/congressional-democrats-ed
 **PlayStation Network Is Working After 24-Hour Outage, Sony Says**\
 `Users on social media had complained that they could not access their games after the unexplained outage began on Friday night.`\
 https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
-
-**Musk attacks judge who temporarily blocked access to Treasury data.**\
-`It was not clear if Elon Musk and his team would take steps to comply with the order.`\
-https://nytimes.com/live/2025/02/08/us/trump-administration-news/elon-musk-federal-judge-treasury-data
-
-**What’s It All About?**\
-`Rich Katz and Jeff Chen, constructors of great regard, team up on a Sunday challenge with twists and turns.`\
-https://nytimes.com/2025/02/08/crosswords/daily-puzzle-2025-02-09.html
 
