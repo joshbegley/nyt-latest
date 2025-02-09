@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Joe Coscarelli`\
+https://nytimes.com/2025/02/09/us/heres-the-latest.html
+
 **What do you think of Fox’s Super Bowl score bug? Share your opinion**\
 `Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
 https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/crosswords/daily-puzzle-2025-02-10.html
 **Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
 `Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
 https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
-
-**Eagles' Brandon Graham active for Super Bowl LIX matchup vs. Chiefs**\
-`Veteran defensive end will dress for Sunday's game after being sidelined by a torn tricep in Week 12. `\
-https://nytimes.com/athletic/6122496/2025/02/09/chiefs-eagles-final-injury-reports-super-bowl/
 

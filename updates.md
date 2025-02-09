@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Joe Coscarelli`\
+https://nytimes.com/2025/02/09/us/heres-the-latest.html
+
 **What do you think of Fox’s Super Bowl score bug? Share your opinion**\
 `Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
 https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion/
