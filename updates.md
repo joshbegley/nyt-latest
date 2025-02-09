@@ -1,3 +1,7 @@
+**2 Million Baked Goods Are Recalled Over Listeria Risk**\
+`The recall, which was initiated on Jan. 7 and upgraded on Wednesday, includes several Dunkin’ products, federal safety officials said.`\
+https://nytimes.com/2025/02/09/health/fda-donuts-recall-listeria.html
+
 **Super Bowl party foods ranked ... and drafted**\
 `What's the No. 1 draft pick for Super Bowl party food?`\
 https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-and-fantasy-draft/

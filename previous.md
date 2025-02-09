@@ -1,3 +1,7 @@
+**2 Million Baked Goods Are Recalled Over Listeria Risk**\
+`The recall, which was initiated on Jan. 7 and upgraded on Wednesday, includes several Dunkin’ products, federal safety officials said.`\
+https://nytimes.com/2025/02/09/health/fda-donuts-recall-listeria.html
+
 **Super Bowl party foods ranked ... and drafted**\
 `What's the No. 1 draft pick for Super Bowl party food?`\
 https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-and-fantasy-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6100448/2025/02/09/super-bowl-2025-betting-eagles-c
 **Alcaraz wins first indoor title with three-set victory over De Minaur in Rotterdam**\
 `The Spaniard won his first title of 2025 after getting past the Australian.`\
 https://nytimes.com/athletic/6124394/2025/02/09/carlos-alcaraz-alex-de-minaur-rotterdam-final-result/
-
-**Winter Storm Coats Northeast in Snow**\
-`A winter storm brought snow to the northeastern U.S. on Saturday, covering parts of New York and New Jersey.`\
-https://nytimes.com/video/nyregion/100000009979822/new-york-new-jersey-northeast-snow-storm.html
 
