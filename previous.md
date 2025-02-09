@@ -1,3 +1,7 @@
+**Jalapeño-Corn Dip, a Super Bowl**\
+`Follow it up with ham and cheese sliders and frosted sugar cookies. Winners all.`\
+https://nytimes.com/2025/02/09/dining/jalapeno-corn-dip-super-bowl.html
+
 **At the Super Bowl Ladies Lounge, N.F.L. Wives Stick Together**\
 `A party hosted by the National Football Wives Association gave the partners of players, both active and retired, a chance to connect and unwind.`\
 https://nytimes.com/2025/02/09/style/super-bowl-nfl-wives-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/opinion/climate-change-parenting.html
 **Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
 `Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
 https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
-
-**From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
-`On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
-https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
 

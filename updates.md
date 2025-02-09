@@ -1,3 +1,7 @@
+**Jalapeño-Corn Dip, a Super Bowl**\
+`Follow it up with ham and cheese sliders and frosted sugar cookies. Winners all.`\
+https://nytimes.com/2025/02/09/dining/jalapeno-corn-dip-super-bowl.html
+
 **At the Super Bowl Ladies Lounge, N.F.L. Wives Stick Together**\
 `A party hosted by the National Football Wives Association gave the partners of players, both active and retired, a chance to connect and unwind.`\
 https://nytimes.com/2025/02/09/style/super-bowl-nfl-wives-party.html
