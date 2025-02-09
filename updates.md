@@ -1,3 +1,7 @@
+**Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
+`Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9.`\
+https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
+
 **Down goes Duke for the first time in 2 months. Is that the worst thing?**\
 `Duke's loss to Clemson could be just the opportunity to learn that the Blue Devils need heading into March.`\
 https://nytimes.com/athletic/6123935/2025/02/09/duke-loses-to-clemson-cooper-flagg/
