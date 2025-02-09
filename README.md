@@ -1,3 +1,7 @@
+**Jets expected to move on from QB Aaron Rodgers: Sources**\
+`It has felt like the Jets and Rodgers were headed for a divorce since long before they hired a new coach and GM this winter.`\
+https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-on/
+
 **Jimmy Butler’s Warriors debut made it feel real: This is the dynasty’s last push**\
 `Their contracts are all aligned. The goal is clear. And on Saturday, the Warriors and Jimmy Butler began the honeymoon. `\
 https://nytimes.com/athletic/6124499/2025/02/09/jimmy-butler-warriors-debut-stephen-curry-title-push/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-a
 **Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
 `Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
 https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
-
-**Cyberattack Disrupts Publication of Lee Newspapers Across the U.S.**\
-`The media company Lee Enterprises said a “cybersecurity event” had created havoc at dozens of its newspapers, prompting some to publish shorter editions or not print at all.`\
-https://nytimes.com/2025/02/09/business/media/newspaper-cyberattack-lee-enterprises.html
 
