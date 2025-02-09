@@ -1,3 +1,16 @@
+**This Isn’t the Donald Trump America Elected**\
+`He is making us a corrupted, brittle superpower.`\
+https://nytimes.com/2025/02/09/opinion/donald-trump-foreign-policy.html
+
+**Kendrick Lamar Can’t Save the World. Why Do We Expect Him To?**\
+`Now that he’s performing at the Super Bowl, it seems like he’s inherited a no-win situation for all the conflicted expectations that await him.`\
+https://nytimes.com/2025/02/09/opinion/kendrick-lamar-super-bowl.html
+
+**10 thoughts on the Blackhawks heading into the break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **10 thoughts on the Blackhawks heading into the break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\

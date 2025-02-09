@@ -1,3 +1,11 @@
+**This Isn’t the Donald Trump America Elected**\
+`He is making us a corrupted, brittle superpower.`\
+https://nytimes.com/2025/02/09/opinion/donald-trump-foreign-policy.html
+
+**Kendrick Lamar Can’t Save the World. Why Do We Expect Him To?**\
+`Now that he’s performing at the Super Bowl, it seems like he’s inherited a no-win situation for all the conflicted expectations that await him.`\
+https://nytimes.com/2025/02/09/opinion/kendrick-lamar-super-bowl.html
+
 **Matt Boldy's big game, Yakov Trenin's response and Wild go strong into break: 3 takeaways**\
 `Minnesota didn't fold after New York took a 3-1 lead, scoring five unanswered goals for a 6-3 victory.`\
 https://nytimes.com/athletic/6123833/2025/02/09/matt-boldy-yakov-trenin-wild-takeaways/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6121573/2025/02/09/joao-felix-has-become-footballs-
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\
 https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
-
-**Late turnover sends Blue Jackets into break after tough loss to Rangers**\
-`Denton Mateychuk's late turnover in his own end set up Will Cuylle's winning goal in the Rangers' 4-3 come-from-behind victory.`\
-https://nytimes.com/athletic/6123765/2025/02/08/blue-jackets-rangers-4-nations-face-off/
-
-**How Cuylle's simplicity, Laviolette's line blender paid off: Rangers takeaways**\
-`Thanks to Cuylle's late goal, New York beat the Blue Jackets 4-3 for its third third-period comeback in four games.`\
-https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviolette-takeaways/
 
