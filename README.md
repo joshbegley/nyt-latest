@@ -1,3 +1,7 @@
+**Federal Financial Watchdog Ordered to Cease Activity**\
+`In an email to staff of the Consumer Financial Protection Bureau, the agency’s acting director ordered workers to cease “all supervision and examination activity.”`\
+https://nytimes.com/2025/02/08/us/politics/cfpb-vought-staff-finance-watchdog.html
+
 **Maple Leafs report cards: Toronto left searching for more offence in Vancouver**\
 `Although the Leafs were not badly beaten, they did nothing to distinguish themselves in their attempt to complete a perfect road trip.`\
 https://nytimes.com/athletic/6123515/2025/02/08/maple-leafs-canucks-analysis-grades/
@@ -35,8 +39,4 @@ https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-s
 `The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
-
-**K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
-`The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
-https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
 
