@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
 **Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
 `An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
 https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
