@@ -1,3 +1,7 @@
+**Jets expected to move on from QB Aaron Rodgers: Sources**\
+`It has felt like the Jets and Rodgers were headed for a divorce since long before they hired a new coach and GM this winter.`\
+https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-on/
+
 **The Briefing: Aston Villa 2 Tottenham 1 - Rashford debut, passive Spurs, Villa injury worries**\
 `Aston Villa impress with a comfortable victory in the FA Cup against a poor Tottenham`\
 https://nytimes.com/athletic/6112485/2025/02/09/aston-villa-2-tottenham-1-fa-cup/
