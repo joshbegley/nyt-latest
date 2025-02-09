@@ -1,3 +1,11 @@
+**Jimmy Butler’s Warriors debut made it feel real: This is the dynasty’s last push**\
+`Their contracts are all aligned. The goal is clear. And on Saturday, the Warriors and Jimmy Butler began the honeymoon. `\
+https://nytimes.com/athletic/6124499/2025/02/09/jimmy-butler-warriors-debut-stephen-curry-title-push/
+
+**The Briefing: Aston Villa 2 Tottenham 1 - Rashford debut, passive Spurs, Villa injury worries**\
+`Aston Villa impress with a comfortable victory in the FA Cup against a poor Tottenham. `\
+https://nytimes.com/athletic/6112485/2025/02/09/aston-villa-2-tottenham-1-fa-cup/
+
 **Rutherford Chang, Who Turned Collections Into Art, Dies at 45**\
 `He was best known for amassing more than 3,400 copies of the Beatles’ “White Album” and using them to demonstrate the aging of a cultural artifact.`\
 https://nytimes.com/2025/02/09/arts/rutherford-chang-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-
 **Cyberattack Disrupts Publication of Lee Newspapers Across the U.S.**\
 `The media company Lee Enterprises said a “cybersecurity event” had created havoc at dozens of its newspapers, prompting some to publish shorter editions or not print at all.`\
 https://nytimes.com/2025/02/09/business/media/newspaper-cyberattack-lee-enterprises.html
-
-**Notre Dame hiring Penn State assistant Ja'Juan Seider as RBs coach**\
-`Seider heads to the Irish after serving as Penn State’s running backs coach, assistant head coach and co-offensive coordinator.`\
-https://nytimes.com/athletic/6124396/2025/02/09/jajuan-seider-hired-notre-dame-penn-state/
-
-**Trump to Revoke Security Clearances for Prosecutors and Biden Officials**\
-`Former Secretary of State Antony Blinken, Attorney General Letitia James of New York and the Manhattan district attorney, Alvin Bragg, were among those the president singled out.`\
-https://nytimes.com/2025/02/09/us/politics/trump-blinken-james-bragg-security-clearances.html
 
