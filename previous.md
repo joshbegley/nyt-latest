@@ -1,3 +1,11 @@
+**The Democrats Are in Disarray. Now What?**\
+`Readers differ about whom to blame for the party’s situation and how to fix it. Also: Asheville’s challenges; caring for mental health.`\
+https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
+
+**Trading Hope for Reality Helps Me Parent Through the Climate Crisis**\
+`In the hospital, I learned the first lesson of parenting: You are not in control of what is going to happen, nor can you predict it.`\
+https://nytimes.com/2025/02/09/opinion/climate-change-parenting.html
+
 **Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
 `Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
 https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
 **Eagles Super Bowl player props: Will Saquon Barkley go off? Will Hurts reach 10 carries?**\
 `Scott Phillips breaks down the player props for the big names on Philadelphia's offense and how the matchup with Kansas City could play out.`\
 https://nytimes.com/athletic/6109504/2025/02/09/eagles-prop-bets-super-bowl-59/
-
-**Super Bowl national anthem betting: How long will Jon Batiste sing?**\
-`The New Orleans native should bring rich musicality and innovation to the anthem. The over-under is set at 120.5 seconds.`\
-https://nytimes.com/athletic/6103181/2025/02/09/super-bowl-national-anthem-betting-jon-batiste/
-
-**Super Bowl 2025 props, picks: Best bets for Saquon Barkley and five other props**\
-`Austin Mock picks his best bets for Super Bowl 59, including a surprising prop pick on Saquon Barkley.`\
-https://nytimes.com/athletic/6115336/2025/02/09/super-bowl-59-prop-bets-saquon-barkley/
 

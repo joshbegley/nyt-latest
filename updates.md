@@ -1,3 +1,11 @@
+**The Democrats Are in Disarray. Now What?**\
+`Readers differ about whom to blame for the party’s situation and how to fix it. Also: Asheville’s challenges; caring for mental health.`\
+https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
+
+**Trading Hope for Reality Helps Me Parent Through the Climate Crisis**\
+`In the hospital, I learned the first lesson of parenting: You are not in control of what is going to happen, nor can you predict it.`\
+https://nytimes.com/2025/02/09/opinion/climate-change-parenting.html
+
 **Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
 `Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
 https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
