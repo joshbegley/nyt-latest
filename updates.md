@@ -1,3 +1,12 @@
+**10 thoughts on the Blackhawks heading into the break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
+**How Cuylle's simplicity, Laviolette's line blender paid off: Rangers takeaways**\
+`Thanks to Cuylle's late goal, New York beat the Blue Jackets 4-3 for its third third-period comeback in four games.`\
+https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviolette-takeaways/
+
 **Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\

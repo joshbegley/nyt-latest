@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6123845/2025/02/09/flyers-4-nations-face-off-trade/
 `Despite the false dawns, clubs continue to invest in Joao Felix. His Milan move offers hope that he can reignite his career in Italy`\
 https://nytimes.com/athletic/6121573/2025/02/09/joao-felix-has-become-footballs-rorschach-test-everyone-sees-something-different/
 
-**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+**10 thoughts on the Blackhawks heading into the break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\
 https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
@@ -36,6 +36,6 @@ https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-of
 https://nytimes.com/athletic/6123765/2025/02/08/blue-jackets-rangers-4-nations-face-off/
 
 **How Cuylle's simplicity, Laviolette's line blender paid off: Rangers takeaways**\
-`Thanks to a pair of late Cuylle goals, New York beat the Blue Jackets 4-3 for its third third-period comeback in four games.`\
+`Thanks to Cuylle's late goal, New York beat the Blue Jackets 4-3 for its third third-period comeback in four games.`\
 https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviolette-takeaways/
 
