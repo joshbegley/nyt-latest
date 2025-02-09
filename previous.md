@@ -1,3 +1,7 @@
+**Clemson snaps No. 2 Duke’s 16-game winning streak: What it means for Tigers**\
+`The Blue Devils haven’t experienced a loss yet this calendar year, last registering a defeat to Kansas on Nov. 12.`\
+https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
+
 **Lakers-Hornets Mark Williams deal falls through after center fails physical**\
 `The Lakers had agreed to trade Dalton Knecht, Cam Reddish, a 2031 first-round pick and a 2030 pick swap in exchange for Williams on Feb. 5.`\
 https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charlotte-rescinded/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
 **Bird Flu Suspected in Deaths of Ducks and Wild Birds at N.Y.C. Zoos**\
 `Three ducks died of the disease at the Queens Zoo, while three more ducks and nine wild birds that died at the Bronx Zoo were being tested for the virus, according to the parks’ operator.`\
 https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
-
-**Large Earthquake Strikes Caribbean Near Cayman Islands**\
-`The 7.6-magnitude tremor struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
-https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
 
