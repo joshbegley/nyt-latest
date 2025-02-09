@@ -1,3 +1,7 @@
+**Late scratch leads Celtics to double-big lineups and dominance over Knicks in MSG**\
+`Luke Kornet and Al Horford paired up because Kristaps Porziņģis became ill and Jayson Tatum put on a 40-point show for Denzel Washington.`\
+https://nytimes.com/athletic/6123923/2025/02/09/celtics-defeat-knicks-msg/
+
 **Arizona's takedown of No. 14 TTU sets up big week for No. 20 Wildcats**\
 `The victory improved Arizona’s Quad 1 record to 7-6, and gives the Wildcats lots of momentum heading into two crucial Big 12 matchups.`\
 https://nytimes.com/athletic/6123924/2025/02/09/arizona-texas-tech-basketball-score-result/
