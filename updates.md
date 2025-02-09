@@ -1,3 +1,7 @@
+**One Big Super Bowl Tailgate: Celebrities Embrace New Orleans.**\
+`Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
+https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
+
 **Monday Briefing: The Last Guard Against Trump’s Orders?**\
 `Plus, a study in swearing.`\
 https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-india-maoists.html
