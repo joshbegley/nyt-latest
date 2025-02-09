@@ -1,3 +1,7 @@
+**Burning tactical plans, Hurzeler's one-to-one chats: How Brighton bounced back**\
+`Brighton were humbled by Nottingham Forest only a week ago — so how did they bounce back to beat Chelsea?`\
+https://nytimes.com/athletic/6119011/2025/02/09/brighton-chelsea-fa-cup-bounce-back/
+
 **‘I Had Decided I Wanted to Spend Some Time Outside After Work’**\
 `Just the right spot in Prospect Park, mesmerized by Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/02/09/nyregion/metropolitan-diary.html
