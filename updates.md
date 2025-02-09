@@ -1,3 +1,7 @@
+**Rutherford Chang, Who Turned Collections Into Art, Dies at 45**\
+`He was best known for amassing more than 3,400 copies of the Beatles’ “White Album” and using them to demonstrate the aging of a cultural artifact.`\
+https://nytimes.com/2025/02/09/arts/rutherford-chang-dead.html
+
 **For Stunned Federal Workers, Sleeplessness, Anger and Tears**\
 `One thing lost in the Trump administration’s war on the federal bureaucracy is the collective voice of the employees. But some have begun to speak out.`\
 https://nytimes.com/2025/02/09/us/politics/federal-workers-trump.html
