@@ -1,3 +1,11 @@
+**Democrats Hint at Government Shutdown to Stop Trump’s Axing at Federal Agencies**\
+`Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
+https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
+
+**Russell Vought, as Consumer Bureau’s Acting Director, Orders Its Headquarters Closed for a Week**\
+`The order to shutter the agency’s headquarters follows another order issued Saturday by Mr. Vought, who also leads the Office of Management and Budget, telling agency employees to halt nearly all their work.`\
+https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-close.html
+
 **Jets expected to move on from QB Aaron Rodgers: Sources**\
 `It has felt like the Jets and Rodgers were headed for a divorce since long before they hired a new coach and GM this winter.`\
 https://nytimes.com/athletic/6124546/2025/02/09/aaron-rodgers-future-jets-move-on/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6124418/2025/02/09/deebo-samuel-trade-request-49ers
 **2 Million Baked Goods Are Recalled Over Listeria Risk**\
 `The recall, which was initiated on Jan. 7 and upgraded on Wednesday, includes several Dunkin’ products, federal safety officials said.`\
 https://nytimes.com/2025/02/09/health/fda-donuts-recall-listeria.html
-
-**Super Bowl party foods ranked ... and drafted**\
-`What's the No. 1 draft pick for Super Bowl party food?`\
-https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-and-fantasy-draft/
-
-**Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
-`Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
-https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
 
