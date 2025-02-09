@@ -1,3 +1,20 @@
+**Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
+`An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
+https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
+
+**Sam Nujoma, Founding President of Namibia, Dies at 95**\
+`As the self-exiled leader of the South-West Africa People’s Organization, he directed a guerrilla army in a 24-year war for independence from South African rule.`\
+https://nytimes.com/2025/02/08/obituaries/sam-nujoma-dead.html
+
+**How Canucks outdueled Leafs to enter 4 Nations break on high note: 3 takeaways**\
+`Vancouver has won three straight games heading into the NHL's extended multi-week break for the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6123699/2025/02/08/canucks-maple-leafs-4-nations-takeaways/
+
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
 **Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
 `The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
 `\
