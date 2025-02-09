@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-emb
 `Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
 https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
 
-**Russell Vought, as Consumer Bureau’s Acting Director, Orders Its Headquarters Closed for a Week**\
+**Russell Vought Orders Consumer Protection Bureau’s Headquarters Closed for a Week**\
 `The order to shutter the agency’s headquarters follows another order issued Saturday by Mr. Vought, who also leads the Office of Management and Budget, telling agency employees to halt nearly all their work.`\
 https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-close.html
 
