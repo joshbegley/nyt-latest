@@ -1,3 +1,15 @@
+**Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
+`Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
+https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
+
+**Eagles' Brandon Graham active for Super Bowl LIX matchup vs. Chiefs**\
+`Veteran defensive end will dress for Sunday's game after being sidelined by a torn tricep in Week 12. `\
+https://nytimes.com/athletic/6122496/2025/02/09/chiefs-eagles-final-injury-reports-super-bowl/
+
+**Vance Says ‘Judges Aren’t Allowed to Control’ Trump’s ‘Legitimate Power’**\
+`The declaration by the vice president came as court orders have temporarily blocked parts of the Trump administration’s agenda.`\
+https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
+
 **Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
 `Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
 https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
