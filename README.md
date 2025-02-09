@@ -1,3 +1,11 @@
+**Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
+`The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
+https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
+
+**Georgia Man Sentenced to 475 Years for Dogfighting**\
+`Vincent Lemark Burrell was found guilty last month of more than 100 counts of dogfighting and animal cruelty after dozens of dogs were found in poor condition at his home.`\
+https://nytimes.com/2025/02/09/us/dogfight-sentence-georgia.html
+
 **36 Hours After Russell Vought Took Over Consumer Bureau, He Shut Its Operations**\
 `The agency had been one of Wall Street’s most feared regulators, with the power to issue rules on mortgages, credit cards, student loans and other areas affecting Americans’ financial lives.`\
 https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6122496/2025/02/09/chiefs-eagles-final-injury-repor
 **Donald Trump picks Chiefs in Super Bowl interview clip, NFL tensions not mentioned**\
 `Trump will be the first sitting U.S. president to attend a Super Bowl at Sunday night's event in New Orleans.`\
 https://nytimes.com/athletic/6124820/2025/02/09/donald-trump-fox-super-bowl-interview-chiefs-eagles/
-
-**No. 4 Texas ends No. 2 South Carolina's 57-game winning streak in SEC play**\
-`The Longhorns' win shifts the picture at the top of women’s college basketball with only a handful of regular-season games to play.`\
-https://nytimes.com/athletic/6124838/2025/02/09/no-4-texas-ends-no-2-south-carolina-winning-streak-sec/
-
-**Tom Robbins, Whose Comic Novels Drew a Cult Following, Dies at 92**\
-`He blended pop philosophy and absurdist comedy in best-selling books like “Even Cowgirls Get the Blues” and “Skinny Legs and All.”`\
-https://nytimes.com/2025/02/09/obituaries/tom-robins-dead.html
 
