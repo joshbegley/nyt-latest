@@ -1,3 +1,7 @@
+**From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
+`On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
+https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
+
 **The Pulse: Last-minute Super Bowl props and recipes**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/

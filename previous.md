@@ -1,3 +1,7 @@
+**From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
+`On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
+https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
+
 **The Pulse: Last-minute Super Bowl props and recipes**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115336/2025/02/09/super-bowl-59-prop-bets-saquon-b
 **No, the Super Bowl isn't rigged — just enjoy this Chiefs-Eagles showdown**\
 `The Super Bowl will come down to which team plays better. Sorry to spoil the storyline, but it should make your Super Sunday more enjoyable.`\
 https://nytimes.com/athletic/6122065/2025/02/09/super-bowl-referees-2025-conspiracy-chiefs-eagles/
-
-**The 4 Nations Face-Off can't have any trades, obviously ... but what if it did?**\
-`Four of our hockey writers have been assigned a 4 Nations team and told to make trades to improve the roster. Here are the results.`\
-https://nytimes.com/athletic/6119455/2025/02/09/4-nations-face-off-nhl-trades/
 
