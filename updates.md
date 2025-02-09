@@ -1,3 +1,7 @@
+**Russini’s What I’m Hearing: How Browns are handling Myles Garrett trade talks, Purdy contract coming**\
+`Plus, why the Rams are moving Cooper Kupp, Derrick Henry’s future, and just what Kirk Cousins was dealing with.`\
+https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-cooper-kupp-trade-talks/
+
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
