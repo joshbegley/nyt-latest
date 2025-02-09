@@ -1,3 +1,7 @@
+**Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
+`Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
+https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
+
 **From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
 `On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
 https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6103181/2025/02/09/super-bowl-national-anthem-betti
 **Super Bowl 2025 props, picks: Best bets for Saquon Barkley and five other props**\
 `Austin Mock picks his best bets for Super Bowl 59, including a surprising prop pick on Saquon Barkley.`\
 https://nytimes.com/athletic/6115336/2025/02/09/super-bowl-59-prop-bets-saquon-barkley/
-
-**No, the Super Bowl isn't rigged — just enjoy this Chiefs-Eagles showdown**\
-`The Super Bowl will come down to which team plays better. Sorry to spoil the storyline, but it should make your Super Sunday more enjoyable.`\
-https://nytimes.com/athletic/6122065/2025/02/09/super-bowl-referees-2025-conspiracy-chiefs-eagles/
 

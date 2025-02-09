@@ -1,3 +1,7 @@
+**Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
+`Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
+https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
+
 **From trading Khris Middleton for Kyle Kuzma to adding Kevin Porter Jr.: 5 takeaways**\
 `On Friday in Atlanta, Rivers fielded questions about the Bucks' moves at the NBA trade deadline. `\
 https://nytimes.com/athletic/6123168/2025/02/09/kyle-kuzma-doc-rivers-bucks-trades/
