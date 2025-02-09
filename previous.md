@@ -1,40 +1,40 @@
-**‘Dad, I Came Back Alive!’ Israeli Hostages Start to Give Glimpses of Ordeal.**\
-`Hostages freed before Saturday’s exchange have expressed relief and joy, while descriptions of the torment they endured are trickling out.`\
-https://nytimes.com/2025/02/09/world/middleeast/israeli-hostages-ordeal.html
+**No, the Super Bowl isn't rigged — just enjoy this Chiefs-Eagles showdown**\
+`The Super Bowl will come down to which team plays better. Sorry to spoil the storyline, but it should make your Super Sunday more enjoyable.`\
+https://nytimes.com/athletic/6122065/2025/02/09/super-bowl-referees-2025-conspiracy-chiefs-eagles/
 
-**A Quick Guide to the Lawsuits Against the Trump Orders**\
-`Dozens of suits have been filed that seek to stop some of President Trump’s executive orders. Here’s a brief rundown.`\
-https://nytimes.com/2025/02/09/us/trump-lawsuits-executive-orders.html
+**The 4 Nations Face-Off can't have any trades, obviously ... but what if it did?**\
+`Four of our hockey writers have been assigned a 4 Nations team and told to make trades to improve the roster. Here are the results.`\
+https://nytimes.com/athletic/6119455/2025/02/09/4-nations-face-off-nhl-trades/
 
-**Ramaswamy’s Celebrity and Trump Ties Give Him a Jump in Ohio Governor’s Race**\
-`Vivek Ramaswamy’s short and rocky tenure in Washington isn’t turning off Republican voters in his home state.`\
-https://nytimes.com/2025/02/09/us/politics/vivek-ramaswamy-trump-ohio-governor.html
+**The Sunday Read: ‘Some Raw Truths About Raw Milk’**\
+`Despite the serious risks of drinking it, a growing movement — including the potential health secretary Robert F. Kennedy Jr. — claims it has benefits. Should we take them more seriously?`\
+https://nytimes.com/2025/02/09/podcasts/the-daily/raw-milk-rfk-jr-medical-freedom.html
 
-**Why Federal Courts May Be the Last Bulwark Against Trump**\
-`With a compliant Congress and mostly quiet streets, the president’s opponents are turning to the judicial branch with a flurry of legal actions. But can the courts keep up?`\
-https://nytimes.com/2025/02/09/us/trump-federal-courts-lawsuits.html
+**The Populist Cure Is Worse Than the Elite Disease**\
+`The push-me-pull-you relationship between Trump and his movement has a long history.`\
+https://nytimes.com/2025/02/09/opinion/trump-populism-bannon.html
 
-**What to Know About Ecuador’s Presidential Election**\
-`As voters head to the polls on Sunday, violence, unemployment and the country’s ongoing energy crisis will be top of mind.`\
-https://nytimes.com/2025/02/09/world/americas/ecuador-election-2025.html
+**I Do Not Want Revenge for My Father’s Death**\
+`My father’s killer is being released to save hostages.`\
+https://nytimes.com/2025/02/09/opinion/israel-hostages-killer-father.html
 
-**Super Bowl 2025 halftime show set list: Will Kendrick Lamar perform 'Not Like Us'?**\
-`Could Kendrick Lamar's halftime show Sunday be more of a storytelling display than a traditional concert?`\
-https://nytimes.com/athletic/6122876/2025/02/09/kendrick-lamar-super-bowl-halftime-show-not-like-us-grammy-awards/
+**Wordle Review No. 1,332**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 10, 2025.`\
+https://nytimes.com/2025/02/09/crosswords/wordle-review-1332.html
 
-**South Carolina at Texas women's basketball: How to watch defending champs in Austin**\
-`It's No. 2 vs. No. 4 on Sunday afternoon. The Gamecocks have won 17 straight games. The Longhorns are 16-1 in their last 17.`\
-https://nytimes.com/athletic/6122477/2025/02/09/south-carolina-texas-how-to-watch-womens-basketball/
+**Looking back at the longest plays in Super Bowl history**\
+`As we inch closer to Super Bowl kickoff, here's a look back at the big game's record-setting plays both teams will have an eye on.`\
+https://nytimes.com/athletic/6119818/2025/02/09/longest-plays-super-bowl-history/
 
-**Super Bowl 2025 pregame show: How to watch, broadcast info for warmup programming**\
-`FOX has five hours of pregame programming ahead of Sunday's Super Bowl 59.`\
-https://nytimes.com/athletic/6122016/2025/02/09/super-bowl-lix-59-pregame-fox-how-to-watch/
+**Trump’s Shameful Campaign Against Transgender Americans**\
+`Trump’s attacks on trans people are on the wrong side of history and humanity.`\
+https://nytimes.com/2025/02/09/opinion/transgender-trump-orders.html
 
-**How GoFundMe Became a $250 Million Lifeline After the L.A. Fires**\
-`Donations on the crowdfunding site to people and fire relief efforts have exceeded those for all natural disasters worldwide last year.`\
-https://nytimes.com/2025/02/09/business/media/la-fires-gofundme.html
+**The End of the Blurb. Thank God.**\
+`On the higher slopes of Mount Olympus, blurbs are a way by which the gods speak to each other in code, with the whole world watching.`\
+https://nytimes.com/2025/02/09/opinion/books-authors-blurb.html
 
-**Trump and the N.F.L.: A Fraught Relationship Stretching Back Decades**\
-`The president’s expected attendance at Sunday’s Super Bowl highlights how his connection to the league has veered from aspirational to openly antagonistic.`\
-https://nytimes.com/2025/02/09/business/trump-super-bowl-nfl.html
+**Connections Companion No. 610**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 10, 2025.`\
+https://nytimes.com/2025/02/09/crosswords/connections-companion-610.html
 
