@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
 **How Cuylle's simplicity, Laviolette's line blender paid off: Rangers takeaways**\
 `Thanks to a pair of late Cuylle goals, New York beat the Blue Jackets 4-3 for their third third-period comeback in four games.`\
 https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviolette-takeaways/
