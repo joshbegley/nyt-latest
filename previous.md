@@ -1,3 +1,8 @@
+**Here are 10 thoughts on the Blackhawks heading into the 4 Nations break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **Late turnover sends Blue Jackets into break after tough loss to Rangers**\
 `Denton Mateychuk's late turnover in his own end set up Will Cuylle's winning goal in the Rangers' 4-3 come-from-behind victory.`\
 https://nytimes.com/athletic/6123765/2025/02/08/blue-jackets-rangers-4-nations-face-off/
@@ -33,9 +38,4 @@ https://nytimes.com/athletic/6123515/2025/02/08/maple-leafs-canucks-analysis-gra
 **Anthony Davis' debut, Max Christie's big game and a Mavs win quell Luka protesting**\
 `"It’s our job as players to continue to play basketball, win basketball games. The rest of it will take care of itself," Davis said.`\
 https://nytimes.com/athletic/6123613/2025/02/08/anthony-davis-mavericks-max-christie-luka-doncic/
-
-**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
-`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
-`\
-https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
