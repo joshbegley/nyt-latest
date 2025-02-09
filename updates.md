@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swa
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Canada defeats USA, wins third consecutive Rivalry Series title**\
 `Team Canada won the 2024-25 Rivalry Series with a 3-1 win over Team USA in Game 5 on Saturday night.`\
 https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey/
