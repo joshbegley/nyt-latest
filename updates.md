@@ -1,3 +1,7 @@
+**Arizona's takedown of No. 14 TTU sets up big week for No. 20 Wildcats**\
+`The victory improved Arizona’s Quad 1 record to 7-6, and gives the Wildcats lots of momentum heading into two crucial Big 12 matchups.`\
+https://nytimes.com/athletic/6123924/2025/02/09/arizona-texas-tech-basketball-score-result/
+
 **10 thoughts on the Blackhawks heading into the break**\
 `From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
 `\
