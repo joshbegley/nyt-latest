@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
 **Late turnover sends Blue Jackets into break after tough loss to Rangers**\
 `Denton Mateychuk's late turnover in his own end set up Will Cuylle's winning goal in the Rangers' 4-3 come-from-behind victory.`\
 https://nytimes.com/athletic/6123765/2025/02/08/blue-jackets-rangers-4-nations-face-off/
