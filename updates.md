@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Lakers-Hornets Mark Williams deal falls through after center fails physical**\
 `The Lakers had agreed to trade Dalton Knecht, Cam Reddish, a 2031 first-round pick and a 2030 pick swap in exchange for Williams on Feb. 5.`\
 https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charlotte-rescinded/
