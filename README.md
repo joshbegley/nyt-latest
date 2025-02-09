@@ -26,8 +26,8 @@ https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-ind
 `Before arriving in Buffalo, Smiley coached in college and with the Jacksonville Jaguars from 2013-16.`\
 https://nytimes.com/athletic/6124651/2025/02/09/bills-fire-special-teams-coordinator/
 
-**Vance Accuses Judges Who Block Trump’s Executive Orders of Acting Illegally**\
-`“Judges aren’t allowed to control the executive’s legitimate power,” Vice President JD Vance wrote on social media, raising questions about whether the Trump administration would abide by federal rulings curtailing its agenda.`\
+**Vance Says ‘Judges Aren’t Allowed to Control’ Trump’s ‘Legitimate Power’**\
+`The declaration by the vice president came as court orders have temporarily blocked parts of the Trump administration’s agenda.`\
 https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
 
 **One Big Super Bowl Tailgate: Celebrities Embrace New Orleans.**\
