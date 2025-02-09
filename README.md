@@ -1,3 +1,7 @@
+**‘Anora’ Wins Big at Producers and Directors Guild Awards**\
+`The film that takes those two major industry prizes almost always goes on to win the best-picture Oscar.`\
+https://nytimes.com/2025/02/09/movies/anora-wins-producers-and-directors-guild-awards.html
+
 **An Esteemed Biographer Puts Her Own Life in the Spotlight**\
 `The standout essays in Megan Marshall’s “After Lives” recall her troubled father and the fate of a high school classmate.`\
 https://nytimes.com/2025/02/09/books/review/megan-marshall-after-lives-biography.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/world/europe/israel-gaza-netzarim.html
 **Russini’s What I’m Hearing: How Browns are handling Myles Garrett trade talks, Purdy contract coming**\
 `Plus, why the Rams are moving Cooper Kupp, Derrick Henry’s future, and just what Kirk Cousins was dealing with.`\
 https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-cooper-kupp-trade-talks/
-
-**Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
-`The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
-https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
 
