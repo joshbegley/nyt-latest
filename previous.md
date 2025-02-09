@@ -1,3 +1,7 @@
+**Lakers-Hornets Mark Williams deal falls through after center fails physical**\
+`The Lakers had agreed to trade Dalton Knecht, Cam Reddish, a 2031 first-round pick and a 2030 pick swap in exchange for Williams on Feb. 5.`\
+https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charlotte-rescinded/
+
 **Canada defeats USA, wins third consecutive Rivalry Series title**\
 `Team Canada won the 2024-25 Rivalry Series with a 3-1 win over Team USA in Game 5 on Saturday night.`\
 https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
 **Large Earthquake Strikes Caribbean Near Cayman Islands**\
 `The 7.6-magnitude tremor struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
 https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
-
-**Is Florida a No. 1 seed? Gators make their case with win over No. 1 Auburn**\
-`The only team to beat No. 1 Auburn previously was the other elite team in the sport, No. 2 Duke, at home on Dec. 4`\
-https://nytimes.com/athletic/6123504/2025/02/08/florida-auburn-mens-basketball-upset/
 
