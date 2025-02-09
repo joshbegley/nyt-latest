@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
+`Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
+https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
+
+**Cyberattack Disrupts Publication of Lee Newspapers Across the U.S.**\
+`The media company Lee Enterprises said a “cybersecurity event” had created havoc at dozens of its newspapers, prompting some to publish shorter editions or not print at all.`\
+https://nytimes.com/2025/02/09/business/media/newspaper-cyberattack-lee-enterprises.html
+
 **Notre Dame hiring Penn State assistant Ja'Juan Seider as RBs coach**\
 `Seider heads to the Irish after serving as Penn State’s running backs coach, assistant head coach and co-offensive coordinator.`\
 https://nytimes.com/athletic/6124396/2025/02/09/jajuan-seider-hired-notre-dame-penn-state/
@@ -29,12 +37,4 @@ https://nytimes.com/video/nyregion/100000009979822/new-york-new-jersey-northeast
 **Plymouth 1 Liverpool 0: Hardie penalty knocks Premier League leaders out of FA Cup**\
 `Championship Plymouth Argyle pulled off the biggest shock of the FA Cup fourth round with a 1-0 victory over Premier League leaders Liverpool at Home Park on Sunday.`\
 https://nytimes.com/athletic/6124383/2025/02/09/plymouth-argyle-liverpool-fa-cup-result/
-
-**The Secret Service is set to air a recruitment video at the Super Bowl.**\
-`The agency is charged with protecting the president and other dignitaries. It is one of a few not affected by a widespread federal hiring freeze.`\
-https://nytimes.com/live/2025/02/09/us/trump-administration-updates/the-secret-service-is-set-to-air-a-recruitment-video-at-the-super-bowl
-
-**Gyalo Thondup, Political Operator and Brother of the Dalai Lama, Dies at 97**\
-`Mr. Thondup’s influence in Tibet has been seen as second only to his younger brother, Tenzin Gyatso, the exiled head of Tibetan Buddhism, whom he spent decades trying to help return to their homeland.`\
-https://nytimes.com/2025/02/09/obituaries/gyalo-thondup-dead-dalai-lama-brother.html
 
