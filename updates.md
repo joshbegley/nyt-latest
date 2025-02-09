@@ -1,3 +1,7 @@
+**When Clothing Is Also a Bullhorn**\
+`For some designers, sustainability, gender and inclusion are still in style.`\
+https://nytimes.com/2025/02/09/style/fashion-trump.html
+
 **Real Madrid defensive injury list grows as Vazquez out of Man City match**\
 `The defender underwent assessments on Sunday which revealed a hamstring injury in his left leg.`\
 https://nytimes.com/athletic/6124333/2025/02/09/lucas-vazquez-real-madrid-injury/
