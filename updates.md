@@ -1,3 +1,7 @@
+**The Pulse: Last-minute Super Bowl props and recipes**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/
+
 **Ready for the Super Bowl?**\
 `Here’s a guide to tonight’s game.`\
 https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html

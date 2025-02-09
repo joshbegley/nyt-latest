@@ -1,3 +1,7 @@
+**The Pulse: Last-minute Super Bowl props and recipes**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the-pulse/
+
 **Ready for the Super Bowl?**\
 `Here’s a guide to tonight’s game.`\
 https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122065/2025/02/09/super-bowl-referees-2025-conspir
 **The 4 Nations Face-Off can't have any trades, obviously ... but what if it did?**\
 `Four of our hockey writers have been assigned a 4 Nations team and told to make trades to improve the roster. Here are the results.`\
 https://nytimes.com/athletic/6119455/2025/02/09/4-nations-face-off-nhl-trades/
-
-**The Sunday Read: ‘Some Raw Truths About Raw Milk’**\
-`Despite the serious risks of drinking it, a growing movement — including the potential health secretary Robert F. Kennedy Jr. — claims it has benefits. Should we take them more seriously?`\
-https://nytimes.com/2025/02/09/podcasts/the-daily/raw-milk-rfk-jr-medical-freedom.html
 
