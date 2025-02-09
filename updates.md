@@ -1,3 +1,11 @@
+**Lowetide: Why Matt Savoie's rookie AHL season proves worthy of an NHL audition**\
+`For Savoie, more success in the AHL is the best route to that NHL opportunity with Edmonton.`\
+https://nytimes.com/athletic/6123177/2025/02/09/matt-savoie-ahl-stats-oilers/
+
+**Randy Moss returns to ESPN for Super Bowl after cancer diagnosis**\
+`"It's been hard, but I got a lot of love and a lot of people believing in me," an emotional Moss said on "NFL Countdown" on Sunday morning.`\
+https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
+
 **Randy Moss returning to ESPN for Super Bowl after cancer diagnosis**\
 `Moss returns after a two-month hiatus from "NFL Countdown" following his cancer diagnosis.`\
 https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
