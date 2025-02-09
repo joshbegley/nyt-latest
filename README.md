@@ -1,7 +1,3 @@
-**Everton 0 Bournemouth 2: Bogey side pounce on sloppy errors - but Alcaraz shines**\
-`The last ever FA Cup tie at Goodison Park threw up some familiar failings as Everton crashed out of the competition`\
-https://nytimes.com/athletic/6123287/2025/02/09/everton-bournemouth-fa-cup-analysis/
-
 **City's win over Orient showed they are still more vulnerable than injury-hit Real Madrid**\
 `Manchester City and Real Madrid are both weakened - but despite a win against Leyton Orient, Guardiola's side are more vulnerable... `\
 https://nytimes.com/athletic/6123189/2025/02/09/manchester-city-leyton-orient-real-madrid/
@@ -38,4 +34,8 @@ https://nytimes.com/athletic/6123762/2025/02/08/rangers-will-cuylle-peter-laviol
 **Submit a question for Chris Vannini's Group of 5 college football mailbag**\
 `What's on your mind with signing day in the rearview mirror and spring practice coming up fast?`\
 https://nytimes.com/athletic/6120337/2025/02/08/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-18/
+
+**Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
+`An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
+https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
 
