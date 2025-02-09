@@ -3,7 +3,7 @@
 `\
 https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
 
-**Clemson snaps No. 2 Duke’s 16-game winning streak: What it means for Tigers**\
+**Clemson snaps No. 2 Duke’s 16-game winning streak: How Blue Devils finally fell**\
 `The Blue Devils haven’t experienced a loss yet this calendar year, last registering a defeat to Kansas on Nov. 12.`\
 https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
 
