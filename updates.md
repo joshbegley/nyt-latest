@@ -1,3 +1,7 @@
+**Ready for the Super Bowl?**\
+`Here’s a guide to tonight’s game.`\
+https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html
+
 **Israeli Troops Withdraw From Key Zone Bisecting Gaza**\
 `Israel’s military withdrew from the Netzarim Corridor under the cease-fire with Hamas. During the war, troops patrolled the zone that splits the territory, preventing evacuated Palestinians from returning north.`\
 https://nytimes.com/2025/02/09/world/europe/israel-gaza-netzarim.html
