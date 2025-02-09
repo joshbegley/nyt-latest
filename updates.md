@@ -1,3 +1,7 @@
+**Tom Robbins, Whose Comic Novels Drew a Cult Following, Dies at 92**\
+`He blended pop philosophy and absurdist comedy in best-selling books like “Even Cowgirls Get the Blues” and “Skinny Legs and All.”`\
+https://nytimes.com/2025/02/09/obituaries/tom-robins-dead.html
+
 **Russell Vought Orders Consumer Protection Bureau’s Headquarters Closed for a Week**\
 `The order to shutter the agency’s headquarters follows another order issued Saturday by Mr. Vought, who also leads the Office of Management and Budget, telling agency employees to halt nearly all their work.`\
 https://nytimes.com/2025/02/09/us/russell-vought-consumer-bureau-protect-hq-close.html
