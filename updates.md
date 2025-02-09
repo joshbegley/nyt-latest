@@ -1,3 +1,7 @@
+**Winter Storm Coats Northeast in Snow**\
+`A winter storm brought snow to the northeastern U.S. on Saturday, covering parts of New York and New Jersey.`\
+https://nytimes.com/video/nyregion/100000009979822/new-york-new-jersey-northeast-snow-storm.html
+
 **Plymouth 1 Liverpool 0: Hardie penalty knocks Premier League leaders out of FA Cup**\
 `Championship Plymouth Argyle pulled off the biggest shock of the FA Cup fourth round with a 1-0 victory over Premier League leaders Liverpool at Home Park on Sunday.`\
 https://nytimes.com/athletic/6124383/2025/02/09/plymouth-argyle-liverpool-fa-cup-result/
