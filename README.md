@@ -1,3 +1,7 @@
+**Russini’s What I’m Hearing: How Browns are handling Myles Garrett trade talks, Purdy contract coming**\
+`Plus, why the Rams are moving Cooper Kupp, Derrick Henry’s future, and just what Kirk Cousins was dealing with.`\
+https://nytimes.com/athletic/6123653/2025/02/09/nfl-news-rumors-myles-garrett-cooper-kupp-trade-talks/
+
 **Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
 `The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
 https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/opinion/trump-populism-bannon.html
 **I Do Not Want Revenge for My Father’s Death**\
 `My father’s killer is being released to save hostages.`\
 https://nytimes.com/2025/02/09/opinion/israel-hostages-killer-father.html
-
-**Wordle Review No. 1,332**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 10, 2025.`\
-https://nytimes.com/2025/02/09/crosswords/wordle-review-1332.html
 
