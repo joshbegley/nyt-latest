@@ -1,3 +1,15 @@
+**Trump says he will impose metal tariffs on Monday, followed by broader levies.**\
+`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
+
+**Super Bowl Tunnel Walk: N.F.L. Goes All In on Fashion**\
+`From Travis Kelce’s Ron Burgundy-like suit to Saquon Barkley’s Canadian tuxedo, players from both teams embraced the fact that all eyes would be on them.`\
+https://nytimes.com/2025/02/09/style/super-bowl-tunnel-walk-travis-kelce-saquon-barkley.html
+
+**Seal the Deal**\
+`We’ve got a play date with Emily Rourke’s crossword.`\
+https://nytimes.com/2025/02/09/crosswords/daily-puzzle-2025-02-10.html
+
 **Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
 `Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
 https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/09/briefing/trump-court-orders-israel-withdrawal-ind
 **Bills part ways with special teams coordinator Matthew Smiley**\
 `Before arriving in Buffalo, Smiley coached in college and with the Jacksonville Jaguars from 2013-16.`\
 https://nytimes.com/athletic/6124651/2025/02/09/bills-fire-special-teams-coordinator/
-
-**Vance Says ‘Judges Aren’t Allowed to Control’ Trump’s ‘Legitimate Power’**\
-`The declaration by the vice president came as court orders have temporarily blocked parts of the Trump administration’s agenda.`\
-https://nytimes.com/2025/02/09/us/politics/vance-trump-federal-courts-executive-order.html
-
-**One Big Super Bowl Tailgate: Celebrities Embrace New Orleans.**\
-`Events around the city featured Travis Scott, Post Malone, Snoop Dogg and more, while Taylor Swift caused a stir everywhere she went.`\
-https://nytimes.com/2025/02/09/style/one-big-super-bowl-tailgate-celebrities-embrace-new-orleans.html
-
-**Democrats Hint at Government Shutdown to Stop Trump’s Axing at Federal Agencies**\
-`Two Democratic senators from New Jersey, Cory Booker and Andy Kim, said Democrats should not vote for a spending package that would affirm President Trump’s agenda in gutting federal agencies.`\
-https://nytimes.com/2025/02/09/us/politics/democrats-trump-government-shutdown.html
 

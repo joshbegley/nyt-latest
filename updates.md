@@ -1,3 +1,15 @@
+**Trump says he will impose metal tariffs on Monday, followed by broader levies.**\
+`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
+
+**Super Bowl Tunnel Walk: N.F.L. Goes All In on Fashion**\
+`From Travis Kelce’s Ron Burgundy-like suit to Saquon Barkley’s Canadian tuxedo, players from both teams embraced the fact that all eyes would be on them.`\
+https://nytimes.com/2025/02/09/style/super-bowl-tunnel-walk-travis-kelce-saquon-barkley.html
+
+**Seal the Deal**\
+`We’ve got a play date with Emily Rourke’s crossword.`\
+https://nytimes.com/2025/02/09/crosswords/daily-puzzle-2025-02-10.html
+
 **Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
 `Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
 https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
