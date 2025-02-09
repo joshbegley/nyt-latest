@@ -1,3 +1,7 @@
+**Randy Moss returning to ESPN for Super Bowl after cancer diagnosis**\
+`Moss returns after a two-month hiatus from "NFL Countdown" following his cancer diagnosis.`\
+https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
+
 **Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
 `The veteran Los Angeles Kings defenseman was added to the roster late Saturday as an injury replacement for Alex Pietrangelo.`\
 https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-face-off/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6123813/2025/02/09/super-bowl-prop-bets-recipes-the
 **Ready for the Super Bowl?**\
 `Here’s a guide to tonight’s game.`\
 https://nytimes.com/2025/02/09/briefing/super-bowl-guide.html
-
-**Israeli Troops Withdraw From Key Zone Bisecting Gaza**\
-`Israel’s military withdrew from the Netzarim Corridor under the cease-fire with Hamas. During the war, troops patrolled the zone that splits the territory, preventing evacuated Palestinians from returning north.`\
-https://nytimes.com/2025/02/09/world/europe/israel-gaza-netzarim.html
 

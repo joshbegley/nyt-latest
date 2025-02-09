@@ -1,3 +1,7 @@
+**Randy Moss returning to ESPN for Super Bowl after cancer diagnosis**\
+`Moss returns after a two-month hiatus from "NFL Countdown" following his cancer diagnosis.`\
+https://nytimes.com/athletic/6124244/2025/02/09/randy-moss-return-espn-nfl-countdown-super-bowl/
+
 **Drew Doughty added to Team Canada 4 Nations roster: Where and why he fits**\
 `The veteran Los Angeles Kings defenseman was added to the roster late Saturday as an injury replacement for Alex Pietrangelo.`\
 https://nytimes.com/athletic/6114233/2025/02/09/canada-drew-doughty-4-nations-face-off/
