@@ -1,3 +1,7 @@
+**Arizona's takedown of No. 14 TTU sets up big week for No. 20 Wildcats**\
+`The victory improved Arizona’s Quad 1 record to 7-6, and gives the Wildcats lots of momentum heading into two crucial Big 12 matchups.`\
+https://nytimes.com/athletic/6123924/2025/02/09/arizona-texas-tech-basketball-score-result/
+
 **This Isn’t the Donald Trump America Elected**\
 `He is making us a corrupted, brittle superpower.`\
 https://nytimes.com/2025/02/09/opinion/donald-trump-foreign-policy.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6123845/2025/02/09/flyers-4-nations-face-off-trade/
 **Joao Felix has become football's Rorschach test - everyone sees something different**\
 `Despite the false dawns, clubs continue to invest in Joao Felix. His Milan move offers hope that he can reignite his career in Italy`\
 https://nytimes.com/athletic/6121573/2025/02/09/joao-felix-has-become-footballs-rorschach-test-everyone-sees-something-different/
-
-**10 thoughts on the Blackhawks heading into the break**\
-`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
-`\
-https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
 
