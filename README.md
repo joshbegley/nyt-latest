@@ -1,3 +1,11 @@
+**Sam Nujoma, Founding President of Namibia, Dies at 95**\
+`As the self-exiled leader of the South-West Africa People’s Organization, he directed a guerrilla army in a 24-year war for independence from South African rule.`\
+https://nytimes.com/2025/02/08/obituaries/sam-nujoma-dead.html
+
+**How Canucks outdueled Leafs to enter 4 Nations break on high note: 3 takeaways**\
+`Vancouver has won three straight games heading into the NHL's extended multi-week break for the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6123699/2025/02/08/canucks-maple-leafs-4-nations-takeaways/
+
 **Federal Financial Watchdog Ordered to Cease Activity**\
 `In an email to staff of the Consumer Financial Protection Bureau, the agency’s acting director ordered workers to cease “all supervision and examination activity.”`\
 https://nytimes.com/2025/02/08/us/politics/cfpb-vought-staff-finance-watchdog.html
@@ -30,13 +38,4 @@ https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey
 **Canadiens continue to play meaningful games, but the meaning has changed drastically**\
 `The Canadiens learned a lot about their team's present over the past three weeks, and now they need to learn more about their future.`\
 https://nytimes.com/athletic/6123562/2025/02/08/canadiens-devils-owen-beck-lane-hutson/
-
-**Map: 7.6-Magnitude Earthquake Strikes the Caribbean Sea**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/02/08/world/08wea-quake-tracker-caribbean-sea-nyt93gtj.html
-
-**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
-`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
-`\
-https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 

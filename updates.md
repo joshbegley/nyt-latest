@@ -18,6 +18,16 @@ https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Crosby 4 Nations decision will be 'in his best interest,' Dubas says**\
+`The Team Canada captain's status for the tournament has not been determined as he works through an upper-body injury. 
+`\
+https://nytimes.com/athletic/6123569/2025/02/08/sidney-crosby-4-nations-face-off-injury/
+
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Toronto left searching for more offence in Vancouver: Maple Leafs report cards**\
 `Although the Leafs were not badly beaten, they did nothing to distinguish themselves in their attempt to complete a perfect trip.`\
 https://nytimes.com/athletic/6123515/2025/02/08/maple-leafs-canucks-analysis-grades/
