@@ -1,3 +1,7 @@
+**Submit a question for Chris Vannini's Group of 5 college football mailbag**\
+`What's on your mind with signing day in the rearview mirror and spring practice coming up fast?`\
+https://nytimes.com/athletic/6120337/2025/02/08/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-18/
+
 **Some Afrikaners Cheer as Trump Amplifies Claims of Persecution**\
 `An executive order from President Trump on Friday put the weight of U.S. influence behind a hotly disputed claim in South Africa that Afrikaners were the “victims of unjust racial discrimination.”`\
 https://nytimes.com/2025/02/08/world/africa/afrikaners-trump-south-africa.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
 **Lakers-Hornets Mark Williams deal falls through after center fails physical**\
 `The Lakers had agreed to trade Dalton Knecht, Cam Reddish, a 2031 first-round pick and a 2030 pick swap in exchange for Williams on Feb. 5.`\
 https://nytimes.com/athletic/6123685/2025/02/08/lakers-mark-williams-trade-charlotte-rescinded/
-
-**Canada defeats USA, wins third consecutive Rivalry Series title**\
-`Team Canada won the 2024-25 Rivalry Series with a 3-1 win over Team USA in Game 5 on Saturday night.`\
-https://nytimes.com/athletic/6123597/2025/02/08/canada-usa-rivalry-series-hockey/
 
