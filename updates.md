@@ -1,3 +1,11 @@
+**K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
+`The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
+https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
+
+**Large Earthquake Strikes Caribbean Near Cayman Islands**\
+`The 7.6-magnitude tremor struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
+https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
+
 **Tracking a Potential Tsunami in the Caribbean**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html

@@ -1,3 +1,7 @@
+**K-State's run that came out of nowhere, and why Kansas is still searching for consistency**\
+`The Wildcats, who were in second-to-last place in the Big 12, have won five straight and defeated ranked teams on two straight Saturdays. `\
+https://nytimes.com/athletic/6123503/2025/02/08/kansas-state-basketball-kansas-result/
+
 **Tracking a Potential Tsunami in the Caribbean**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/02/08/weather/caribbean-tsunami-tracker.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6123542/2025/02/08/dick-vitale-return-duke-clemson/
 https://nytimes.com/2025/02/08/nyregion/bird-flu-bronx-queens-zoo.html
 
 **Large Earthquake Strikes Caribbean Near Cayman Islands**\
-`The 7.6-magnitude struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
+`The 7.6-magnitude tremor struck south of the Cayman Islands on Saturday. There were no immediate reports of injuries or damage.`\
 https://nytimes.com/2025/02/08/world/americas/earthquake-caribbean-cayman-tsunami.html
 
 **Walter Clayton Jr. returns from injury, helps Florida upset top-ranked Auburn**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/08/us/politics/trump-department-education-democrats.
 **House Democrats Denied Entry to the U.S. Department of Education**\
 `Several Democratic lawmakers attempted to access the department’s headquarters on Friday, after a request to meet with the acting education secretary went unanswered.`\
 https://nytimes.com/video/us/politics/100000009979233/congressional-democrats-education-dept.html
-
-**PlayStation Network Is Working After 24-Hour Outage, Sony Says**\
-`Users on social media had complained that they could not access their games after the unexplained outage began on Friday night.`\
-https://nytimes.com/2025/02/08/us/playstation-network-status-outage.html
 
