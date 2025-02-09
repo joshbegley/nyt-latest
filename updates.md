@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swa
 `\
 https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
 
+**Bruins are asking Jeremy Swayman to be perfect, which is too big of an ask**\
+`The Bruins are at a point in their season where they cannot afford Swayman to make any mistakes.
+`\
+https://nytimes.com/athletic/6123563/2025/02/08/bruins-golden-knights-jeremy-swayman/
+
 **Clemson snaps No. 2 Duke’s 16-game winning streak: What it means for Tigers**\
 `The Blue Devils haven’t experienced a loss yet this calendar year, last registering a defeat to Kansas on Nov. 12.`\
 https://nytimes.com/athletic/6123689/2025/02/08/clemson-duke-winning-streak/
