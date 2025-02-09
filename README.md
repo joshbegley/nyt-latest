@@ -1,3 +1,11 @@
+**Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
+
+**One more stop on a busy presidential day: the Super Bowl.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
+
 **Super Bowl Halftime Show Live Updates: Kendrick Lamar Getting Ready to Perform**\
 `The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
 **Trump Says He Might Use U.S. Transit Agency to ‘Kill’ Congestion Pricing**\
 `In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
 https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
-
-**Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
-`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
-https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
-
-**The Most Memorable Looks From the Super Bowl Tunnel Walk**\
-`From Travis Kelce’s Ron Burgundy-like suit to Saquon Barkley’s Canadian tuxedo, players from both teams embraced the fact that all eyes would be on them.`\
-https://nytimes.com/2025/02/09/style/super-bowl-tunnel-walk-travis-kelce-saquon-barkley.html
 
