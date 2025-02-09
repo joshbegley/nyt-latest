@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-of
 `\
 https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
 
+**10 thoughts on the Blackhawks heading into the break**\
+`From injuries to the trade deadline to prospects, here are observations on the Blackhawks so far and what to expect when they return.
+`\
+https://nytimes.com/athletic/6123783/2025/02/08/blackhawks-nhl-4-nations-face-off/
+
 **This Isn’t the Donald Trump America Elected**\
 `He is making us a corrupted, brittle superpower.`\
 https://nytimes.com/2025/02/09/opinion/donald-trump-foreign-policy.html
