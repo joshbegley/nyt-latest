@@ -1,3 +1,7 @@
+**Super Bowl party foods ranked ... and drafted**\
+`What's the No. 1 draft pick for Super Bowl party food?`\
+https://nytimes.com/athletic/6116825/2025/02/09/super-bowl-party-food-rankings-and-fantasy-draft/
+
 **Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
 `Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
 https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
