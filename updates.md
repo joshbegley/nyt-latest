@@ -1,3 +1,7 @@
+**Real Madrid defensive injury list grows as Vazquez out of Man City match**\
+`The defender underwent assessments on Sunday which revealed a hamstring injury in his left leg.`\
+https://nytimes.com/athletic/6124333/2025/02/09/lucas-vazquez-real-madrid-injury/
+
 **Jalapeño-Corn Dip, a Super Bowl**\
 `Follow it up with ham and cheese sliders and frosted sugar cookies. Winners all.`\
 https://nytimes.com/2025/02/09/dining/jalapeno-corn-dip-super-bowl.html

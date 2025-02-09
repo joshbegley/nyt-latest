@@ -1,3 +1,7 @@
+**Real Madrid defensive injury list grows as Vazquez out of Man City match**\
+`The defender underwent assessments on Sunday which revealed a hamstring injury in his left leg.`\
+https://nytimes.com/athletic/6124333/2025/02/09/lucas-vazquez-real-madrid-injury/
+
 **Jalapeño-Corn Dip, a Super Bowl**\
 `Follow it up with ham and cheese sliders and frosted sugar cookies. Winners all.`\
 https://nytimes.com/2025/02/09/dining/jalapeno-corn-dip-super-bowl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/opinion/democrats-disarray.html
 **Trading Hope for Reality Helps Me Parent Through the Climate Crisis**\
 `In the hospital, I learned the first lesson of parenting: You are not in control of what is going to happen, nor can you predict it.`\
 https://nytimes.com/2025/02/09/opinion/climate-change-parenting.html
-
-**Dozens of Maoist Guerrillas Killed in Central India, Officials Say**\
-`Rebels known as Naxalites have waged an insurgency that has ebbed and flowed over decades, but government operations have given them less space to maneuver.`\
-https://nytimes.com/2025/02/09/world/asia/india-maoist-guerrillas-naxalite.html
 
