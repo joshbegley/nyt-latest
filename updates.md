@@ -1,3 +1,7 @@
+**Down goes Duke for the first time in 2 months. Is that the worst thing?**\
+`Duke's loss to Clemson could be just the opportunity to learn that the Blue Devils need heading into March.`\
+https://nytimes.com/athletic/6123935/2025/02/09/duke-loses-to-clemson-cooper-flagg/
+
 **Late scratch leads Celtics to double-big lineups and dominance over Knicks in MSG**\
 `Luke Kornet and Al Horford paired up because Kristaps Porziņģis became ill and Jayson Tatum put on a 40-point show for Denzel Washington.`\
 https://nytimes.com/athletic/6123923/2025/02/09/celtics-defeat-knicks-msg/
