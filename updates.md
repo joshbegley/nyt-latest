@@ -1,3 +1,7 @@
+**‘Dad, I Came Back Alive!’ Israeli Hostages Start to Give Glimpses of Ordeal.**\
+`Hostages freed before Saturday’s exchange have expressed relief and joy, while descriptions of the torment they endured are trickling out.`\
+https://nytimes.com/2025/02/09/world/middleeast/israeli-hostages-ordeal.html
+
 **A Quick Guide to the Lawsuits Against the Trump Orders**\
 `Dozens of suits have been filed that seek to stop some of President Trump’s executive orders. Here’s a brief rundown.`\
 https://nytimes.com/2025/02/09/us/trump-lawsuits-executive-orders.html

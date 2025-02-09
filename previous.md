@@ -1,3 +1,7 @@
+**‘Dad, I Came Back Alive!’ Israeli Hostages Start to Give Glimpses of Ordeal.**\
+`Hostages freed before Saturday’s exchange have expressed relief and joy, while descriptions of the torment they endured are trickling out.`\
+https://nytimes.com/2025/02/09/world/middleeast/israeli-hostages-ordeal.html
+
 **A Quick Guide to the Lawsuits Against the Trump Orders**\
 `Dozens of suits have been filed that seek to stop some of President Trump’s executive orders. Here’s a brief rundown.`\
 https://nytimes.com/2025/02/09/us/trump-lawsuits-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/business/media/la-fires-gofundme.html
 **Trump and the N.F.L.: A Fraught Relationship Stretching Back Decades**\
 `The president’s expected attendance at Sunday’s Super Bowl highlights how his connection to the league has veered from aspirational to openly antagonistic.`\
 https://nytimes.com/2025/02/09/business/trump-super-bowl-nfl.html
-
-**Court Ruling Gives Hope for Cleanup in Italy’s ‘Land of Fires’**\
-`The European Court of Human Rights took Italy to task for not protecting citizens in an area where illegal dumping and burning of toxic waste has long been linked to cancers. Residents say it’s about time.`\
-https://nytimes.com/2025/02/09/world/europe/italy-toxic-waste-echr-pollution.html
 
