@@ -1,3 +1,7 @@
+**Rutherford Chang, Who Turned Collections Into Art, Dies at 45**\
+`He was best known for amassing more than 3,400 copies of the Beatles’ “White Album” and using them to demonstrate the aging of a cultural artifact.`\
+https://nytimes.com/2025/02/09/arts/rutherford-chang-dead.html
+
 **For Stunned Federal Workers, Sleeplessness, Anger and Tears**\
 `One thing lost in the Trump administration’s war on the federal bureaucracy is the collective voice of the employees. But some have begun to speak out.`\
 https://nytimes.com/2025/02/09/us/politics/federal-workers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124396/2025/02/09/jajuan-seider-hired-notre-dame-p
 **Trump to Revoke Security Clearances for Prosecutors and Biden Officials**\
 `Former Secretary of State Antony Blinken, Attorney General Letitia James of New York and the Manhattan district attorney, Alvin Bragg, were among those the president singled out.`\
 https://nytimes.com/2025/02/09/us/politics/trump-blinken-james-bragg-security-clearances.html
-
-**Giannis to miss final 3 games before All-Star break because of calf strain**\
-`Coach Doc Rivers said he hopes Antetokounmpo can return for the Bucks' first game after the break on Feb. 20 against the Clippers.`\
-https://nytimes.com/athletic/6124430/2025/02/09/giannis-antetokounmpo-bucks-calf-injury/
 
