@@ -1,3 +1,19 @@
+**Kansas City Chiefs Super Bowl player props for Mahomes, Kelce, Worthy and more**\
+`The top player prop markets for the Kansas City Chiefs and what we think of the numbers. `\
+https://nytimes.com/athletic/6109370/2025/02/09/chiefs-prop-bets-super-bowl-59/
+
+**Eagles Super Bowl player props: Will Saquon Barkley go off? Will Hurts reach 10 carries?**\
+`Scott Phillips breaks down the player props for the big names on Philadelphia's offense and how the matchup with Kansas City could play out.`\
+https://nytimes.com/athletic/6109504/2025/02/09/eagles-prop-bets-super-bowl-59/
+
+**Super Bowl national anthem betting: How long will Jon Batiste sing?**\
+`The New Orleans native should bring rich musicality and innovation to the anthem. The over-under is set at 120.5 seconds.`\
+https://nytimes.com/athletic/6103181/2025/02/09/super-bowl-national-anthem-betting-jon-batiste/
+
+**Super Bowl 2025 props, picks: Best bets for Saquon Barkley and five other props**\
+`Austin Mock picks his best bets for Super Bowl 59, including a surprising prop pick on Saquon Barkley.`\
+https://nytimes.com/athletic/6115336/2025/02/09/super-bowl-59-prop-bets-saquon-barkley/
+
 **No, the Super Bowl isn't rigged — just enjoy this Chiefs-Eagles showdown**\
 `The Super Bowl will come down to which team plays better. Sorry to spoil the storyline, but it should make your Super Sunday more enjoyable.`\
 https://nytimes.com/athletic/6122065/2025/02/09/super-bowl-referees-2025-conspiracy-chiefs-eagles/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/09/opinion/israel-hostages-killer-father.html
 **Wordle Review No. 1,332**\
 `Scroll down for hints and conversation about the puzzle for Monday, Feb. 10, 2025.`\
 https://nytimes.com/2025/02/09/crosswords/wordle-review-1332.html
-
-**Looking back at the longest plays in Super Bowl history**\
-`As we inch closer to Super Bowl kickoff, here's a look back at the big game's record-setting plays both teams will have an eye on.`\
-https://nytimes.com/athletic/6119818/2025/02/09/longest-plays-super-bowl-history/
-
-**Trump’s Shameful Campaign Against Transgender Americans**\
-`Trump’s attacks on trans people are on the wrong side of history and humanity.`\
-https://nytimes.com/2025/02/09/opinion/transgender-trump-orders.html
-
-**The End of the Blurb. Thank God.**\
-`On the higher slopes of Mount Olympus, blurbs are a way by which the gods speak to each other in code, with the whole world watching.`\
-https://nytimes.com/2025/02/09/opinion/books-authors-blurb.html
-
-**Connections Companion No. 610**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 10, 2025.`\
-https://nytimes.com/2025/02/09/crosswords/connections-companion-610.html
 
