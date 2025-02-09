@@ -1,3 +1,7 @@
+**Mbappe scores but Madrid still can't win a big game. Will their four stars line up against City?**\
+`Madrid's front four of Mbappe, Vinicius Jr, Rodrygo and Bellingham all started against Atletico but it still wasn't enough`\
+https://nytimes.com/athletic/6123645/2025/02/09/real-madrid-mbappe-atletico-man-city/
+
 **Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
 `Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9`\
 https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/

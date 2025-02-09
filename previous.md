@@ -1,3 +1,7 @@
+**Mbappe scores but Madrid still can't win a big game. Will their four stars line up against City?**\
+`Madrid's front four of Mbappe, Vinicius Jr, Rodrygo and Bellingham all started against Atletico but it still wasn't enough`\
+https://nytimes.com/athletic/6123645/2025/02/09/real-madrid-mbappe-atletico-man-city/
+
 **Burning tactical plans, Hurzeler's one-to-one chats: How Brighton bounced back**\
 `Brighton were humbled by Nottingham Forest only a week ago — so how did they bounce back to beat Chelsea?`\
 https://nytimes.com/athletic/6119011/2025/02/09/brighton-chelsea-fa-cup-bounce-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/world/asia/thai-hostages-gaza-home.html
 **'Opposite' players Jimmy Butler and Steph Curry dominate in debut together**\
 `Butler's debut signified the Warriors' most hopeful moment in months, an introduction of a superstar who blends well into their system.`\
 https://nytimes.com/athletic/6123602/2025/02/09/jimmy-butler-steph-curry-debut-together/
-
-**Toothless Chelsea display shows how crucial Nicolas Jackson has become**\
-`Chelsea's limp defeat to Brighton in the FA Cup showed how reliant they are on Nicolas Jackson as their No 9`\
-https://nytimes.com/athletic/6123500/2025/02/09/chelsea-brighton-fa-cup-nicolas-jackson/
 
