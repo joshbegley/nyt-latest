@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: GM Don Waddell shopping for a top-six forward**\
+`Waddell was aggressive last week in his search for a top-six forward. "We had some irons in the fire," he said. "But no action yet."`\
+https://nytimes.com/athletic/6124175/2025/02/09/blue-jackets-nhl-trade-deadline-forward/
+
+**Cyberattack Disrupts Publication of Lee Newspapers Across the U.S.**\
+`The media company Lee Enterprises said a “cybersecurity event” had created havoc at dozens of its newspapers, prompting some to publish shorter editions or not print at all.`\
+https://nytimes.com/2025/02/09/business/media/newspaper-cyberattack-lee-enterprises.html
+
 **Notre Dame hiring Penn State assistant Ja'Juan Seider as RBs coach**\
 `Seider heads to the Irish after serving as Penn State’s running backs coach, assistant head coach and co-offensive coordinator.`\
 https://nytimes.com/athletic/6124396/2025/02/09/jajuan-seider-hired-notre-dame-penn-state/
