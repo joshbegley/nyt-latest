@@ -1,3 +1,11 @@
+**Leeds' Wober to undergo surgery, set to miss around six weeks**\
+`The Austria international has been managing a knee injury throughout the season but will now have to go under the knife again.`\
+https://nytimes.com/athletic/6126126/2025/02/10/max-wober-leeds-surgery/
+
+**Europe is bracing for further U.S. tariffs.**\
+`Ursula Von Der Leyen, pr`\
+https://nytimes.com/live/2025/02/10/us/trump-news/europe-is-bracing-for-further-us-tariffs
+
 **Are Markets Taking the Latest Trump Trade Fight in Stride?**\
 `Global markets are in a wait-and-see mode as President Trump vows to slap steel and aluminum tariffs, among other levies, on trading partners.`\
 https://nytimes.com/2025/02/10/business/dealbook/trump-trade-tariffs-markets.html
