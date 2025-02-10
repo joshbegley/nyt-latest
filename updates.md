@@ -1,3 +1,7 @@
+**One Very Real Problem Lost in the Politics of Aid Cuts: Child Malnutrition**\
+`Every year it’s a factor in the deaths of two million children worldwide.`\
+https://nytimes.com/2025/02/10/opinion/malnutrition-foreign-aid-trump.html
+
 **Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
 `The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
 https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
