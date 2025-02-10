@@ -1,3 +1,11 @@
+**Fox Acquires Firm Behind Conservative and True Crime Podcasts**\
+`Tucker Carlson, Nancy Grace, Megyn Kelly and Piers Morgan are among the clients of Red Seat Ventures, which now joins Rupert Murdoch’s empire.`\
+https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html
+
+**7 Years After Losing My House in a Wildfire, I Still Have My Moments**\
+`A cartoonist reflects on loss and recovery after the Woolsey wildfire in 2018.`\
+https://nytimes.com/2025/02/10/opinion/los-angeles-wildifres-loss.html
+
 **Leeds' Wober to undergo surgery, set to miss around six weeks**\
 `The Austria international has been managing a knee injury throughout the season but will now have to go under the knife again.`\
 https://nytimes.com/athletic/6126126/2025/02/10/max-wober-leeds-surgery/

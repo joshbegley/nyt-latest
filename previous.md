@@ -1,3 +1,11 @@
+**Fox Acquires Firm Behind Conservative and True Crime Podcasts**\
+`Tucker Carlson, Nancy Grace, Megyn Kelly and Piers Morgan are among the clients of Red Seat Ventures, which now joins Rupert Murdoch’s empire.`\
+https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html
+
+**7 Years After Losing My House in a Wildfire, I Still Have My Moments**\
+`A cartoonist reflects on loss and recovery after the Woolsey wildfire in 2018.`\
+https://nytimes.com/2025/02/10/opinion/los-angeles-wildifres-loss.html
+
 **Leeds' Wober to undergo surgery, set to miss around six weeks**\
 `The Austria international has been managing a knee injury throughout the season but will now have to go under the knife again.`\
 https://nytimes.com/athletic/6126126/2025/02/10/max-wober-leeds-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6122578/2025/02/10/nba-rewind-lebron-james-steph-cu
 **Myles Garrett wants out. Should we take that at face value? And what does he have left?**\
 `Unless Garrett follows Reggie White's career arc, there's a good chance we've already seen his peak performance.`\
 https://nytimes.com/athletic/6125702/2025/02/10/myles-garrett-browns-trade-request-future/
-
-**The Hall of Fame's rule changes did not fix the problem. Here's how to do so**\
-`The Pro Football Hall of Fame selected its smallest class in 20 years without raising the bar for enshrinement. Here's why.`\
-https://nytimes.com/athletic/6125655/2025/02/10/nfl-hall-of-fame-rule-changes/
-
-**Guardians fan survey: How do you feel about the state of the franchise?**\
-`There’s plenty to discuss about the Cleveland Guardians.`\
-https://nytimes.com/athletic/6115660/2025/02/10/guardians-fan-survey-how-do-you-feel-about-the-state-of-the-franchise/
 
