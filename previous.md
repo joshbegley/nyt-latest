@@ -1,40 +1,40 @@
-**China Is at the Heart of Trump Tariffs on Steel and Aluminum**\
-`Existing American tariffs already restrict steel and aluminum shipments from China, which is now flooding other markets with its exports instead.`\
-https://nytimes.com/2025/02/10/business/china-trump-tariffs-steel-aluminum.html
+**Trump 2.0 Heralds an Aggressive Flexing of Power**\
+`President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
+https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html
 
-**What we learned from Big Ten athletic departments' 2024 finances**\
-`The athletic departments of the Big Ten’s 16 public universities spent nearly $3 billion during fiscal year 2024. How much did they make?`\
-https://nytimes.com/athletic/6123382/2025/02/10/big-ten-athletic-department-financial-statements/
+**When It Rains, It Pours**\
+`Trump is on the move.`\
+https://nytimes.com/2025/02/10/opinion/trump-musk-cabinet-education.html
 
-**'It's going to hurt': Misery, not history for Chiefs after worst performance of season**\
-`The Eagles dominated the Chiefs, who blew their chance to become the first team to win three consecutive Super Bowls.`\
-https://nytimes.com/athletic/6125534/2025/02/10/chiefs-patrick-mahomes-super-bowl-misery/
+**Supreme Court Signals That Landmark Libel Ruling Is Secure**\
+`Attacked by two justices, lower-court judges and litigants, the 1964 ruling in New York Times v. Sullivan keeps getting cited approvingly in the Supreme Court’s decisions.`\
+https://nytimes.com/2025/02/10/us/politics/supreme-court-libel-precedent.html
 
-**Sevilla 1 Barcelona 4 – Flick's side win again, Lopez's rollercoaster 16 mins, and De Jong over Casado?**\
-`Laia Cervello Herrero analyses the talking points as Barcelona kept the pressure on the Madrid teams with a strong win against Sevilla`\
-https://nytimes.com/athletic/6125477/2025/02/10/barcelona-sevilla-lopez-de-jong-casado/
+**Five Former Treasury Secretaries: Our Democracy Is Under Siege**\
+`Former Secretaries Rubin, Summers, Geithner, Lew and Yellen argue that DOGE is a threat to America.`\
+https://nytimes.com/2025/02/10/opinion/treasure-secretaries-doge-musk.html
 
-**Man Accused of Stabbing Salman Rushdie Goes on Trial**\
-`Hadi Matar is charged with attempted murder in the attack, which took place in 2022 as Mr. Rushdie was about to speak at an arts conference in western New York.`\
-https://nytimes.com/2025/02/10/nyregion/salman-rushdie-stabbing-trial.html
+**Why the Traffic Lights Have Slowed Down on 3rd Avenue**\
+`The city has reset traffic signals on a two-mile stretch to make it safer for cyclists.`\
+https://nytimes.com/2025/02/10/nyregion/traffic-lights-third-avenue-cyclists.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/10/crosswords/spelling-bee-forum.html
+**Tenderness as an Act of Resistance**\
+`They are trying to overwhelm us and force us to look away. But we must not.`\
+https://nytimes.com/2025/02/10/opinion/trump-resistance-compassion.html
 
-**Word of the Day: logjam**\
-`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/10/learning/word-of-the-day-logjam.html
+**What Can I Wear to a Job Interview Besides a Boring Suit?**\
+`A reader seeking to make a good impression with a potential employer asks for advice on interview attire. Our fashion critic offers her thoughts on how to dress for success while still standing out.`\
+https://nytimes.com/2025/02/10/style/job-interview-outfit.html
 
-**Marchand: Tom Brady brought star power to Super Bowl, but failed to say much**\
-`Brady's presence might have made Fox's Super Bowl LIX broadcast feel bigger, but it wasn't by anything he said.`\
-https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-review-patrick-mahomes/
+**Have You Ever Experienced Heartbreak?**\
+`A breakup? The end of a friendship? The death of a pet? Tell us about one such loss and what it meant to you.`\
+https://nytimes.com/2025/02/10/learning/have-you-ever-experienced-heartbreak.html
 
-**‘The White Lotus,’ Plus 9 Things to Watch on TV this Week**\
-`The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
-https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html
+**This Supreme Court Philosophy Could Constrain Trump**\
+`A federal judge on the legal theory that is often at odds with an authoritarian view of governmental power.`\
+https://nytimes.com/2025/02/10/opinion/supreme-court-philosophy-trump.html
 
-**Trump Has Given Netanyahu the Ultimate Gift**\
-`Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
-https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html
+**This Man Won Birthright Citizenship for All**\
+`When officials denied that he was a citizen, Wong Kim Ark took his case to the Supreme Court and won. Today, that decision is the focus of debate over who can be an American.`\
+https://nytimes.com/2025/02/10/us/this-man-won-birthright-citizenship-for-all.html
 
