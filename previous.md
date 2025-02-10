@@ -1,40 +1,40 @@
+**England's football wilderness where Liverpool came unstuck**\
+`The county of Devon is better known for scones than soccer but its professional teams are trying to use that to their advantage`\
+https://nytimes.com/athletic/6123026/2025/02/10/exeter-plymouth-liverpool-fa-cup/
+
+**Liverpool's rotation luck ran out against Plymouth - will Slot's changes pay off?**\
+`Talk of the quadruple was premature, but the manager may have made the treble much more likely`\
+https://nytimes.com/athletic/6124693/2025/02/10/liverpool-fa-cup-plymouth-argyle/
+
+**Rashford needs to find form. How Villa plan to help achieve that is now clear**\
+`Aston Villa's plan on how to rejuvenate Marcus Rashford's career began to form on Sunday`\
+https://nytimes.com/athletic/6104858/2025/02/10/marcus-rashford-aston-villa-debut-tottenham/
+
+**Fabio Silva interview: 'I didn’t have space to make mistakes. Now I don't put pressure on myself'**\
+`The on-loan Wolverhampton Wanderers striker is rekindling his career at Las Palmas in La Liga and generating rave reviews once again`\
+https://nytimes.com/athletic/6118941/2025/02/10/fabio-silva-wolves-palmas-rangers-interview/
+
+**Tottenham Hotspur need to rediscover who they are**\
+`Against Villa, there was no conviction in what Tottenham were trying to do and that stems from a lack of confidence.`\
+https://nytimes.com/athletic/6124856/2025/02/10/tottenham-ange-postecoglou-identity/
+
+**Leicester fans: We are taking requests – what would you like to read about?**\
+`Let us know what you would be interested in knowing about`\
+https://nytimes.com/athletic/6124232/2025/02/10/leicester-fans-we-are-taking-requests-what-would-you-like-to-read-about/
+
+**Arsenal fans: We are taking requests – what would you like to read about?**\
+`Let us know what you would be interested in knowing about`\
+https://nytimes.com/athletic/6124186/2025/02/10/arsenal-fans-we-are-taking-requests-what-would-you-like-to-read-about/
+
+**Gisèle Pelicot May Not Be Her Husband’s First Victim, Police Say**\
+`Dominique Pelicot became notorious after being convicted of drugging his wife and inviting strangers to rape her. Police say his crimes may have started long before.`\
+https://nytimes.com/2025/02/10/world/europe/gisele-pelicot-husband-rape-murder-victims.html
+
+**What DeepSeek’s Success Says About China’s Ability to Nurture Talent**\
+`China produces a vast number of STEM graduates, but it hasn’t been known for innovation. Cultural and political factors may help explain why.`\
+https://nytimes.com/2025/02/10/world/asia/china-deepseek-education.html
+
 **Quote of the Day: A Barred Yankees Fan Wants Nothing More Than His Anonymity Back**\
 `Quotation of the Day for Monday, February 10, 2025.`\
 https://nytimes.com/2025/02/09/pageoneplus/quote-of-the-day-a-barred-yankees-fan-wants-nothing-more-than-his-anonymity-back.html
-
-**The Eagles Fly, All Night Long: Images From the Super Bowl**\
-`Jalen Hurts and Philadelphia stunned Kansas City, winning in a rout and ending the Chiefs’ dreams of three straight championships. Photographers followed the action.`\
-https://nytimes.com/2025/02/09/sports/super-bowl-photos.html
-
-**Super Bowl halftime shows: Where does Kendrick Lamar rank with Prince and the greats?**\
-`Kendrick Lamar entertained the Caesars Superdome crowd with his Super Bowl halftime show. Where does it rank with the shows before it?`\
-https://nytimes.com/athletic/6125173/2025/02/09/super-bowl-halftime-show-kendrick-lamar-prince/
-
-**Results and outcomes for Super Bowl 2025 prop bets**\
-`Here is a list of the results for the major Super Bowl prop bets to help you answer your party prop sheets and other big game pools.`\
-https://nytimes.com/athletic/6125175/2025/02/09/super-bowl-2025-prop-bets-results-outcomes/
-
-**Breaking down the Eagles' blowout Super Bowl LIX victory by the numbers**\
-`The Philadelphia Eagles have ended the Kansas City Chiefs' three-peat quest in dominant fashion. Here are the numbers behind the win.`\
-https://nytimes.com/athletic/6125109/2025/02/09/eagles-chiefs-super-bowl-lix-by-numbers/
-
-**Kendrick Lamar Uses His Super Bowl Halftime Show to Settle a Vendetta**\
-`The first rapper to headline the N.F.L.’s biggest stage solo made his Drake diss “Not Like Us” the centerpiece of his set at the expense of a larger statement.`\
-https://nytimes.com/2025/02/09/arts/music/kendrick-lamar-super-bowl-halftime-review.html
-
-**Everything you need to know about future host cities for next 2 Super Bowls**\
-`As the league closes its chapter on the 2024 season, a look ahead to Super Bowl LX and beyond.`\
-https://nytimes.com/athletic/6116225/2025/02/09/super-bowl-60-location-logo-host-city/
-
-**Travis Kelce passes Jerry Rice for most career Super Bowl receptions**\
-`Kelce moved past Lynn Swann and Rob Gronkowski into second place on the career Super Bowl receiving yards list, now sitting at 389.`\
-https://nytimes.com/athletic/6125177/2025/02/09/travis-kelce-super-bowl-receptions-record-chiefs/
-
-**Super Bowl 2026 betting odds: Can Eagles repeat? Early favorites, long-shot odds**\
-`Early odds for Super Bowl 2026 are out! Which teams are at the top, and which have moved the most since last year. Can you guess last place?`\
-https://nytimes.com/athletic/6122481/2025/02/09/super-bowl-2026-eagles-chiefs-betting-favorites-odds/
-
-**Eagles QB Jalen Hurts named Super Bowl MVP after dominant win over Chiefs**\
-`Hurts, in his second Super Bowl appearance, helped the Eagles avenge their Super Bowl LVII loss to Kansas City in a big way Sunday night.`\
-https://nytimes.com/athletic/6125078/2025/02/09/eagles-qb-jalen-hurts-named-super-bowl-lix-mvp-after-dominant-win-over-chiefs/
 
