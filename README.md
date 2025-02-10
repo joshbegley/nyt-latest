@@ -1,3 +1,19 @@
+**Here Are the Charges Against Eric Adams**\
+`The indictment on corruption and fraud charges was the first against a sitting mayor in modern New York City history.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-charges.html
+
+**Read the Justice Department memo about Eric Adams’s corruption case**\
+`The Justice Department on Monday told federal prosecutors in Manhattan to drop the corruption charges against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
+
+**Here’s the latest.**\
+`By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld, Jonah E. Bromwich, Glenn Thrush, Benjamin Weiser and Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/heres-the-latest
+
+**Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
+`The president turned up the pressure on the two nations to agree to his plan for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
+https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
+
 **Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
 `He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
@@ -23,20 +39,4 @@ https://nytimes.com/athletic/6127681/2025/02/10/submit-a-question-for-stewart-ma
 **Drone Operator Locates Lost Puppy in Deep Snow**\
 `Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
 https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html
-
-**Are You Worried That Our System of Checks and Balances Might Fail?**\
-`In the opening weeks of his second term, President Trump and his administration have been grabbing powers that presidents have never had before. Is this a constitutional crisis?`\
-https://nytimes.com/2025/02/10/learning/are-you-worried-that-our-system-of-checks-and-balances-might-fail.html
-
-**Confusion Reigns as ‘a Wrecking Ball’ Hits the Consumer Bureau**\
-`Since the acting director of the Consumer Financial Protection Bureau issued stop-work orders, employees have been trying to decipher exactly what they mean.`\
-https://nytimes.com/2025/02/10/business/cfpb-shutdown-confusion.html
-
-**Trump’s New Tariffs Target Foreign Metals**\
-`Also, Elon Musk led a bid to buy OpenAI. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/02/10/briefing/trumps-new-tariffs-target-foreign-metals.html
-
-**Cubs have discussed signing Justin Turner if Alex Bregman goes elsewhere: Sources**\
-`At the age of 40, Turner is a highly accomplished right-handed hitter (.821 career OPS) with tons of postseason experience. `\
-https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-interest/
 
