@@ -1,3 +1,11 @@
+**Trump Argues That Courts Cannot Block Musk’s Team From Treasury Systems**\
+`The president’s lawyers argued that the distinction between civil servants and political appointees was unworkable and unconstitutional. A hearing is set for Friday.`\
+https://nytimes.com/2025/02/10/nyregion/trump-doge-treasury-elon-musk.html
+
+**Mikaela Shiffrin, citing 'mental obstacles', won't defend giant slalom title at worlds**\
+`Mikaela Shiffrin said she will still race the slalom and team combined at worlds but said she's "not there yet" with giant slalom.`\
+https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle-world-championships/
+
 **Eagles Fans Took Over New Orleans After Dominant Super Bowl Win**\
 `Philadelphia’s loyal supporters made themselves at home, with joyous fans partying outside the Superdome and others making their way to Bourbon Street.`\
 https://nytimes.com/2025/02/10/style/eagles-fans-super-bowl-party.html

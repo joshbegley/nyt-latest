@@ -1,3 +1,7 @@
+**Trump Argues That Courts Cannot Block Musk’s Team From Treasury Systems**\
+`The president’s lawyers argued that the distinction between civil servants and political appointees was unworkable and unconstitutional. A hearing is set for Friday.`\
+https://nytimes.com/2025/02/10/nyregion/trump-doge-treasury-elon-musk.html
+
 **Eagles Fans Took Over New Orleans After Dominant Super Bowl Win**\
 `Philadelphia’s loyal supporters made themselves at home, with joyous fans partying outside the Superdome and others making their way to Bourbon Street.`\
 https://nytimes.com/2025/02/10/style/eagles-fans-super-bowl-party.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/02/10/books/review/callan-wink-beartooth.html
 `The Lakers’ unwinding of their trade for Mark Williams is the latest, rare example of a team exiting a trade because of a failed physical.`\
 https://nytimes.com/athletic/6125067/2025/02/10/nba-trades-undo-lakers-spurs/
 
-**Mikaela Shiffrin, citing mental struggle, won't defend giant slalom title at worlds**\
+**Mikaela Shiffrin, citing 'mental obstacles', won't defend giant slalom title at worlds**\
 `Mikaela Shiffrin said she will still race the slalom and team combined at worlds but said she's "not there yet" with giant slalom.`\
 https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle-world-championships/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126234/2025/02/10/submit-your-cowboys-mailbag-ques
 **The Bounce: Lakers got Luka Dončić by the NBA trade deadline, but what about the deal they undid?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6126061/2025/02/10/luka-doncic-lakers-mark-williams-hornets-nba-trade-deadline-the-bounce/
-
-**Canucks trade deadline targets: Could these 5 top-six centres make sense for Vancouver?**\
-`Could these centres be available leading up to the deadline, and could they fit the bill for Vancouver?`\
-https://nytimes.com/athletic/6125554/2025/02/10/canucks-nhl-trade-deadline-2025-targets/
 
