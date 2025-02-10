@@ -15,7 +15,7 @@ https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
 https://nytimes.com/athletic/6119361/2025/02/09/nfl-draft-2025-order-rounds-1-2/
 
 **How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
-`In a rematch of Super Bowl LVII, Jalen Hurts left no doubt.`\
+`Jalen Hurts and Philadelphia led no doubt, completing a two-year climb back to the top of the NFL.`\
 https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
 
 **Trump Orders Treasury Secretary to Stop Minting Pennies**\
