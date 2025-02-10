@@ -1,3 +1,7 @@
+**Crypto’s Connections**\
+`Three ways that President Trump is deepening crypto’s relationship with mainstream finance.`\
+https://nytimes.com/2025/02/10/briefing/cryptos-connections.html
+
 **Chiefs' shoddy O-line, WR corps prove too much for Patrick Mahomes to overcome**\
 `The Eagles' defense dominated the Chiefs up front, leaving little chance for Kansas City's playmakers to prove they could meet the moment.`\
 https://nytimes.com/athletic/6125424/2025/02/10/chiefs-offensive-line-super-bowl-lix/
