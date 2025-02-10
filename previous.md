@@ -1,3 +1,7 @@
+**3 Convicted of Murder for Luring Men From Gay Bars to Their Deaths**\
+`Two men were fatally drugged as their bank accounts were being drained. The killers lurked outside Manhattan clubs near closing time.`\
+https://nytimes.com/2025/02/10/nyregion/gay-bay-murder-charges.html
+
 **Groups Sue Over Trump’s Pause on Refugee Admissions**\
 `The lawsuit by advocacy organizations aims to bring back the resettlement of refugees in the United States after President Trump halted the program.`\
 https://nytimes.com/2025/02/10/us/politics/refugee-lawsuit-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-
 **Nonstop Quakes Leave a Tourist Island Empty and Its Residents on Edge**\
 `Thousands of tremors, sometimes every few minutes, have shaken Santorini, Greece. More than 13,000 of its 15,500 inhabitants have left.`\
 https://nytimes.com/2025/02/10/world/europe/greece-santorini-earthquakes.html
-
-**100 Years of How Black Painters See Themselves**\
-`Koyo Kouoh, who will curate the 2026 Venice Biennale, has assembled a huge survey at the Bozar Centre for Fine Arts in Brussels presenting Black life on its own, frequently gorgeous, terms.`\
-https://nytimes.com/2025/02/10/arts/design/how-we-see-us-koyo-kouoh-bozar-brussels.html
 
