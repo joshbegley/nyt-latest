@@ -1,3 +1,7 @@
+**2 People Are Charged in Soldier’s Murder in Tennessee**\
+`Pfc. Katia Dueñas Aguilar, 23, was found dead after being stabbed 68 times last year. Now, her husband and a woman have been charged in the fatal attack.`\
+https://nytimes.com/2025/02/10/us/fort-campbell-soldier-stabbing-charges.html
+
 **Bus Crash in Guatemala City Kills Dozens of People**\
 `The vehicle fell off a bridge and plunged into a ravine early Monday morning, according to government officials.`\
 https://nytimes.com/video/world/americas/100000009982065/guatemala-bus-crash.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6127160/2025/02/10/jazz-lakers-how-to-watch-luka-do
 **Trump’s Declaration Allows Musk’s Efficiency Team to Skirt Open Records Laws**\
 `Government watchdog groups say they will challenge the Trump administration’s decision to put the initiative under the Presidential Records Act, which shields its work from public disclosure.`\
 https://nytimes.com/2025/02/10/us/politics/trump-musk-doge-foia-public-records.html
-
-**Brooklyn Man Admits to Smuggling Precious Egyptian Relics**\
-`The artifacts, which included amulets and a sculpture, smelled like earth when they spilled out of his suitcases, according to court papers.`\
-https://nytimes.com/2025/02/10/nyregion/egyptian-relic-smuggling-plea.html
 
