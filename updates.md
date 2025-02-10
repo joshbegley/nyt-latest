@@ -1,3 +1,7 @@
+**Marchand: Tom Brady brought star power to Super Bowl, but failed to say much**\
+`Brady's presence might have made Fox's Super Bowl LIX broadcast feel bigger, but it wasn't by anything he said.`\
+https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-review-patrick-mahomes/
+
 **‘The White Lotus,’ Plus 9 Things to Watch on TV this Week**\
 `The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
 https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html

@@ -1,3 +1,7 @@
+**Marchand: Tom Brady brought star power to Super Bowl, but failed to say much**\
+`Brady's presence might have made Fox's Super Bowl LIX broadcast feel bigger, but it wasn't by anything he said.`\
+https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-review-patrick-mahomes/
+
 **‘The White Lotus,’ Plus 9 Things to Watch on TV this Week**\
 `The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
 https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6114801/2025/02/10/whats-the-best-date-for-a-footba
 **England's football wilderness where Liverpool came unstuck**\
 `The county of Devon is better known for scones than soccer but its professional teams are trying to use that to their advantage`\
 https://nytimes.com/athletic/6123026/2025/02/10/exeter-plymouth-liverpool-fa-cup/
-
-**Liverpool's rotation luck ran out against Plymouth - will Slot's changes pay off?**\
-`Talk of the quadruple was premature, but the manager may have made the treble much more likely`\
-https://nytimes.com/athletic/6124693/2025/02/10/liverpool-fa-cup-plymouth-argyle/
 
