@@ -1,3 +1,15 @@
+**A Spa Day for Louis Before the Westminster Dog Show**\
+`A look at how a champion Afghan hound prepared for what would be his final chance at best in show.`\
+https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-hound
+
+**Nonstop Quakes Leave a Tourist Island Empty and Its Residents on Edge**\
+`Thousands of tremors, sometimes every few minutes, have shaken Santorini, Greece. More than 13,000 of its 15,500 inhabitants have left.`\
+https://nytimes.com/2025/02/10/world/europe/greece-santorini-earthquakes.html
+
+**100 Years of How Black Painters See Themselves**\
+`Koyo Kouoh, who will curate the 2026 Venice Biennale, has assembled a huge survey at the Bozar Centre for Fine Arts in Brussels presenting Black life on its own, frequently gorgeous, terms.`\
+https://nytimes.com/2025/02/10/arts/design/how-we-see-us-koyo-kouoh-bozar-brussels.html
+
 **Trump Strengthens Grip on Kennedy Center as 18 Trustees and Chairman Are Removed**\
 `Board members appointed by former President Joseph R. Biden Jr. were scrubbed from an official roster on the center’s website, along with the chairman, David M. Rubenstein.`\
 https://nytimes.com/2025/02/10/arts/music/trump-kennedy-center-board-removed.html
