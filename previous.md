@@ -1,3 +1,15 @@
+**Mikaela Shiffrin, citing mental struggle, won't defend giant slalom title at worlds**\
+`Mikaela Shiffrin said she will still race the slalom and team combined at worlds but said she's "not there yet" with giant slalom.`\
+https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle-world-championships/
+
+**Corrections: Feb. 9, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 9, 2025.`\
+https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-9-2025.html
+
+**Submit your Cowboys mailbag questions to Jon Machota**\
+`The offseason is officially underway for every team and the Cowboys have a big to-do list. What questions do you have?`\
+https://nytimes.com/athletic/6126234/2025/02/10/submit-your-cowboys-mailbag-questions-to-jon-machota-2/
+
 **The Bounce: Lakers got Luka Dončić by the NBA trade deadline, but what about the deal they undid?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6126061/2025/02/10/luka-doncic-lakers-mark-williams-hornets-nba-trade-deadline-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html
 **7 Years After Losing My House in a Wildfire, I Still Have My Moments**\
 `A cartoonist reflects on loss and recovery after the Woolsey wildfire in 2018.`\
 https://nytimes.com/2025/02/10/opinion/los-angeles-wildifres-loss.html
-
-**Leeds' Wober to undergo surgery, set to miss around six weeks**\
-`The Austria international has been managing a knee injury throughout the season but will now have to go under the knife again.`\
-https://nytimes.com/athletic/6126126/2025/02/10/max-wober-leeds-surgery/
-
-**Europe is bracing for further U.S. tariffs.**\
-`Ursula Von Der Leyen, pr`\
-https://nytimes.com/live/2025/02/10/us/trump-news/europe-is-bracing-for-further-us-tariffs
-
-**Are Markets Taking the Latest Trump Trade Fight in Stride?**\
-`Global markets are in a wait-and-see mode as President Trump vows to slap steel and aluminum tariffs, among other levies, on trading partners.`\
-https://nytimes.com/2025/02/10/business/dealbook/trump-trade-tariffs-markets.html
 
