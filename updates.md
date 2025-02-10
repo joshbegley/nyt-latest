@@ -1,3 +1,11 @@
+**A 10-step path to Super Bowl 60: How the Bengals can get back to the big game**\
+`Many pieces are in place to get back into the championship mix, but a successful offseason is imperative.`\
+https://nytimes.com/athletic/6124463/2025/02/10/bengals-super-bowl-60-plan/
+
+**Jalen Hurts earned his Super Bowl MVP moment — and the quiet that comes in its wake**\
+`The oft-criticized QB had a historic night, earning Super Bowl MVP honors.`\
+https://nytimes.com/athletic/6125527/2025/02/10/jalen-hurts-super-bowl-mvp/
+
 **The Eagles defense couldn't stop Mahomes in 2022. In Super Bowl 59 they got their revenge**\
 `The defense punished Patrick Mahomes the whole game.`\
 https://nytimes.com/athletic/6124647/2025/02/10/eagles-defense-mahomes-super-bowl-revenge/
