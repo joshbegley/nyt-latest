@@ -1,3 +1,7 @@
+**Mavericks' Anthony Davis to miss multiple weeks with left adductor strain**\
+`He won’t play Monday against the Sacramento Kings, and it’s expected he will miss multiple weeks`\
+https://nytimes.com/athletic/6125157/2025/02/09/anthony-davis-injury-out-dallas-mavericks/
+
 **Kendrick Lamar’s Bell Bottoms Steal the Halftime Show**\
 `A varsity jacket referenced his own career, and a chain inspired some questions. But the cut of his jeans was the biggest surprise of the night.`\
 https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
