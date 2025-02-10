@@ -1,7 +1,3 @@
-**Jazz at Lakers: How to watch, storylines for Luka Dončić's debut in Los Angeles**\
-`Luka Dončić debuts Monday as Los Angeles hosts Utah. The game has been flexed onto ESPN to match the hype.`\
-https://nytimes.com/athletic/6127160/2025/02/10/jazz-lakers-how-to-watch-luka-doncic/
-
 **Trump’s Declaration Allows Musk’s Efficiency Team to Skirt Open Records Laws**\
 `Government watchdog groups say they will challenge the Trump administration’s decision to put the initiative under the Presidential Records Act, which shields its work from public disclosure.`\
 https://nytimes.com/2025/02/10/us/politics/trump-musk-doge-foia-public-records.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/10/us/politics/refugee-lawsuit-trump.html
 **Heat Today: How Andrew Wiggins, Davion Mitchell and Kyle Anderson will help the Heat maintain identity**\
 `Now that the Jimmy Butler era in Miami has ended, here is what the Heat's new additions could bring to the court. `\
 https://nytimes.com/athletic/6126853/2025/02/10/andrew-wiggins-davion-mitchell-kyle-anderson-jimmy-butler-heat-nba/
+
+**5 Notes From the Big A.I. Summit in Paris**\
+`At times, Kevin Roose writes, it feels like he is watching policymakers on horseback trying to install seatbelts on a passing Lamborghini.`\
+https://nytimes.com/2025/02/10/technology/ai-summit-paris-technology.html
 
