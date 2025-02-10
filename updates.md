@@ -1,3 +1,15 @@
+**Kendrick Lamar’s Bell Bottoms Steal the Halftime Show**\
+`A varsity jacket referenced his own career, and a chain inspired some questions. But the cut of his jeans was the biggest surprise of the night.`\
+https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
+
+**2025 NFL Draft order: Rounds 1 and 2 set after Eagles' Super Bowl LIX win**\
+`The order for the first two rounds of the 2025 NFL Draft is now set, following the Eagles' win over the Chiefs in Super Bowl LIX.`\
+https://nytimes.com/athletic/6119361/2025/02/09/nfl-draft-2025-order-rounds-1-2/
+
+**How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
+`In a rematch of Super Bowl LVII, Jalen Hurts left no doubt.`\
+https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
+
 **Trump Orders Treasury Secretary to Stop Minting Pennies**\
 `President Trump said that the coins cost more to produce than their face value.`\
 https://nytimes.com/2025/02/09/us/politics/trump-stop-minting-pennies.html

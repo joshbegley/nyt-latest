@@ -1,3 +1,15 @@
+**Kendrick Lamar’s Bell Bottoms Steal the Halftime Show**\
+`A varsity jacket referenced his own career, and a chain inspired some questions. But the cut of his jeans was the biggest surprise of the night.`\
+https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
+
+**2025 NFL Draft order: Rounds 1 and 2 set after Eagles' Super Bowl LIX win**\
+`The order for the first two rounds of the 2025 NFL Draft is now set, following the Eagles' win over the Chiefs in Super Bowl LIX.`\
+https://nytimes.com/athletic/6119361/2025/02/09/nfl-draft-2025-order-rounds-1-2/
+
+**How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
+`In a rematch of Super Bowl LVII, Jalen Hurts left no doubt.`\
+https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
+
 **Trump Orders Treasury Secretary to Stop Minting Pennies**\
 `President Trump said that the coins cost more to produce than their face value.`\
 https://nytimes.com/2025/02/09/us/politics/trump-stop-minting-pennies.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not
 **Break-Up**\
 `Stories from the heart of heartbreak.`\
 https://nytimes.com/2025/02/09/podcasts/break-up-this-american-life-nyt-audio.html
-
-**At the Super Bowl, Taylor Swift Was Dressing to Win**\
-`Sometimes game-day strategy extends to style.`\
-https://nytimes.com/2025/02/09/style/taylor-swift-super-bowl-fashion.html
-
-**Drake sued Universal Music Group for defamation for releasing ‘Not Like Us.’**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/drake-sued-universal-music-group-for-defamation-for-releasing-not-like-us
-
-**‘Not Like Us’ won five Grammys last week, including for record and song of the year.**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/not-like-us-won-five-grammys-last-week-including-for-record-and-song-of-the-year
 
