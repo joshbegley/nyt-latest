@@ -1,3 +1,7 @@
+**Mahomes throws 2 first-half INTs as Chiefs trail big in Super Bowl first half**\
+`The first interception of Cooper DeJean's NFL career also came on his 22nd birthday.`\
+https://nytimes.com/athletic/6125071/2025/02/09/patrick-mahomes-cooper-dejean-super-bowl-chiefs-eagles-birthday/
+
 **Eagles' Saquon Barkley sets combined rushing yards record for single season**\
 `In his first year with Eagles, Barkley has topped Terrell Davis to set the record for most rushing yards in the regular season and playoffs.`\
 https://nytimes.com/athletic/6089695/2025/02/09/saquon-barkley-rushing-yards-single-season-mark-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-
 **One more stop on a busy presidential day: the Super Bowl.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
-
-**Super Bowl Halftime Show Live Updates: Kendrick Lamar Takes the Stage**\
-`The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
 
