@@ -1,3 +1,7 @@
+**Breaking down the Eagles' blowout Super Bowl LIX victory by the numbers**\
+`The Philadelphia Eagles have ended the Kansas City Chiefs' three-peat quest in dominant fashion. Here are the numbers behind the win.`\
+https://nytimes.com/athletic/6125109/2025/02/09/eagles-chiefs-super-bowl-lix-by-numbers/
+
 **Kendrick Lamar Uses His Super Bowl Halftime Show to Settle a Vendetta**\
 `The first rapper to headline the N.F.L.’s biggest stage solo made his Drake diss “Not Like Us” the centerpiece of his set at the expense of a larger statement.`\
 https://nytimes.com/2025/02/09/arts/music/kendrick-lamar-super-bowl-halftime-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119361/2025/02/09/nfl-draft-2025-order-rounds-1-2/
 **How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
 `Jalen Hurts and Philadelphia led no doubt, completing a two-year climb back to the top of the NFL.`\
 https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
-
-**Trump Orders Treasury Secretary to Stop Minting Pennies**\
-`President Trump said that the coins cost more to produce than their face value.`\
-https://nytimes.com/2025/02/09/us/politics/trump-stop-minting-pennies.html
 
