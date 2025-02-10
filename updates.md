@@ -1,3 +1,11 @@
+**Submit your questions for the college basketball mailbag**\
+`<p>Coming off an eventful weekend in college hoops, and as March nears, we&#8217;re going to make the national college basketball mailbag a weekly staple.`\
+https://nytimes.com/athletic/6126335/2025/02/10/submit-your-questions-for-the-college-basketball-mailbag-2/
+
+**Ozcan signs for Villa on pre-contract agreement**\
+`The 18-year-old will remain at Kasimpasa for the remainder of the season and join up with his new Villa teammates in the summer.`\
+https://nytimes.com/athletic/6126232/2025/02/10/aston-villa-yasin-ozcan-transfer/
+
 **Skip ‘Yellowstone’ for This Rawer Version of the West**\
 `In Callan Wink’s new novel, two brothers struggling to make ends meet are forced to turn to shady ventures.`\
 https://nytimes.com/2025/02/10/books/review/callan-wink-beartooth.html
