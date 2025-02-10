@@ -1,3 +1,23 @@
+**China Seems Unstoppable. Trump Thinks Otherwise.**\
+`What’s behind the trade war that the president didn’t back away from.`\
+https://nytimes.com/2025/02/10/podcasts/the-daily/china-trump-trade.html
+
+**Vance Challenges Courts’ Power, and Trump Targets the Penny**\
+`Plus, why golden retrievers keep losing.`\
+https://nytimes.com/2025/02/10/podcasts/the-headlines/trump-superbowl-vance-penny.html
+
+**Wordle Review No. 1,333**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
+https://nytimes.com/2025/02/10/crosswords/wordle-review-1333.html
+
+**Connections Companion No. 611**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
+https://nytimes.com/2025/02/10/crosswords/connections-companion-611.html
+
+**Arsenal fans: How should Mikel Arteta deal with the loss of Gabriel Martinelli?**\
+`What are the best options for Arteta's depleted forward line?`\
+https://nytimes.com/athletic/6124176/2025/02/10/arsenal-gabriel-martinelli-discussion/
+
 **A 10-step path to Super Bowl 60: How the Bengals can get back to the big game**\
 `Many pieces are in place to get back into the championship mix, but a successful offseason is imperative.`\
 https://nytimes.com/athletic/6124463/2025/02/10/bengals-super-bowl-60-plan/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/10/briefing/trump-tariffs-super-bowl.html
 **Ranking Ravens' top 10 unrestricted free agents this offseason**\
 `Taking a look at the Baltimore free agents who could generate the most interest on the open market.  `\
 https://nytimes.com/athletic/6122859/2025/02/10/ravens-2025-unrestricted-free-agents/
-
-**Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
-`The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
-https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
-
-**When It Rains, It Pours**\
-`Trump is on the move.`\
-https://nytimes.com/2025/02/10/opinion/trump-musk-cabinet-education.html
-
-**Trump 2.0 Heralds an Aggressive Flexing of Power**\
-`President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
-https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html
-
-**Supreme Court Signals That Landmark Libel Ruling Is Secure**\
-`Attacked by two justices, lower-court judges and litigants, the 1964 ruling in New York Times v. Sullivan keeps getting cited approvingly in the Supreme Court’s decisions.`\
-https://nytimes.com/2025/02/10/us/politics/supreme-court-libel-precedent.html
-
-**Five Former Treasury Secretaries: Our Democracy Is Under Siege**\
-`Former Secretaries Rubin, Summers, Geithner, Lew and Yellen argue that DOGE is a threat to America.`\
-https://nytimes.com/2025/02/10/opinion/treasure-secretaries-doge-musk.html
 
