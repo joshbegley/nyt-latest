@@ -1,3 +1,7 @@
+**Are Markets Taking the Latest Trump Trade Fight in Stride?**\
+`Global markets are in a wait-and-see mode as President Trump vows to slap steel and aluminum tariffs, among other levies, on trading partners.`\
+https://nytimes.com/2025/02/10/business/dealbook/trump-trade-tariffs-markets.html
+
 **At 83, Anne Tyler Has a New Novel. She’d Rather Talk About Anything Else.**\
 `While many of her contemporaries are playing canasta, she’s releasing her 25th book. There’s no mystery to it, Tyler says: Start on Page 1, then keep writing.`\
 https://nytimes.com/2025/02/10/books/three-days-in-june-anne-tyler.html

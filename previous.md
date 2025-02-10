@@ -1,3 +1,7 @@
+**Are Markets Taking the Latest Trump Trade Fight in Stride?**\
+`Global markets are in a wait-and-see mode as President Trump vows to slap steel and aluminum tariffs, among other levies, on trading partners.`\
+https://nytimes.com/2025/02/10/business/dealbook/trump-trade-tariffs-markets.html
+
 **At 83, Anne Tyler Has a New Novel. She’d Rather Talk About Anything Else.**\
 `While many of her contemporaries are playing canasta, she’s releasing her 25th book. There’s no mystery to it, Tyler says: Start on Page 1, then keep writing.`\
 https://nytimes.com/2025/02/10/books/three-days-in-june-anne-tyler.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6120617/2025/02/10/patrick-mahomes-chiefs-super-bow
 **Padres 2025 spring training preview: Thoughts on every pitcher headed to camp**\
 `The Padres need an arm or two this season. They'll have plenty to look at in spring training. Let's break them down.`\
 https://nytimes.com/athletic/6097599/2025/02/10/padres-2025-spring-training-preview-pitchers/
-
-**Do You Know These Literary Power Couples and Their Work?**\
-`With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
-https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
 
