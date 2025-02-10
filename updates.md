@@ -1,3 +1,19 @@
+**Durant is moving past trade speculation: 'I’m not entitled to anything'**\
+`Suns star understands the NBA is a business, but admits he has never experienced anything quite like this trade deadline.`\
+https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadline-suns/
+
+**Judge Orders F.B.I. to Disclose Some Trump Classified Documents Case Materials**\
+`In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
+https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
+
+**What I'm seeing from Team USA: Replacing Quinn Hughes, splitting up the Tkachuks, practice lines, more**\
+`Quinn Hughes was "completely devastated" after being forced by injury to withdraw from the international best-on-best event.`\
+https://nytimes.com/athletic/6126376/2025/02/10/usa-4-nations-quinn-hughes-lines-pairings/
+
+**Joy Rider Who Damaged Rare Plants in Death Valley Dunes Remains at Large**\
+`National Park Service officials have yet to identify the person or people who drove onto Eureka Dunes, a protected area with endemic plant species,  more than a month ago.`\
+https://nytimes.com/2025/02/10/us/eureka-dunes-driver-damaged-plants.html
+
 **Behind the Scenes at the Westminster Dog Show**\
 `With the event returning to Midtown Manhattan for the first time since 2020, thousands of dogs flooded the city with a single goal in mind: best in show.`\
 https://nytimes.com/2025/02/10/style/westminster-dog-show-photos.html
