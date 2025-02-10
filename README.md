@@ -1,3 +1,7 @@
+**Europe is bracing for further U.S. tariffs.**\
+`Ursula Von Der Leyen, pr`\
+https://nytimes.com/live/2025/02/10/us/trump-news/europe-is-bracing-for-further-us-tariffs
+
 **Are Markets Taking the Latest Trump Trade Fight in Stride?**\
 `Global markets are in a wait-and-see mode as President Trump vows to slap steel and aluminum tariffs, among other levies, on trading partners.`\
 https://nytimes.com/2025/02/10/business/dealbook/trump-trade-tariffs-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6115660/2025/02/10/guardians-fan-survey-how-do-you-
 **Patrick Mahomes’ legacy, a shaken Chiefs dynasty and what comes next: Sando’s Pick Six**\
 `The Chiefs' three-peat dreams are dead, leaving Mahomes right where Tom Brady once was. What can Kansas City learn from this?`\
 https://nytimes.com/athletic/6120617/2025/02/10/patrick-mahomes-chiefs-super-bowl-loss/
-
-**Padres 2025 spring training preview: Thoughts on every pitcher headed to camp**\
-`The Padres need an arm or two this season. They'll have plenty to look at in spring training. Let's break them down.`\
-https://nytimes.com/athletic/6097599/2025/02/10/padres-2025-spring-training-preview-pitchers/
 
