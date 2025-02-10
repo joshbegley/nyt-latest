@@ -1,3 +1,35 @@
+**The Chiefs wouldn't let Saquon Barkley beat them. The Eagles made sure it didn't matter**\
+`Barkley averaged just 2.3 yards per carry, but Jalen Hurts, the defense and the Eagles' coaching staff more than made up for it.`\
+https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl-jalen-hurts/
+
+**To understand the Josh Allen-Lamar Jackson MVP vote, look to ... Nikola Jokić?**\
+`Until Lamar Jackson wins in the playoffs, he might struggle to win a third MVP, no matter how well he plays. Just ask the Nuggets' star.`\
+https://nytimes.com/athletic/6125668/2025/02/10/josh-allen-mvp-lamar-jackson-vote/
+
+**NBA Rewind: As LeBron and Steph team up again, will the All-Star Game be better?**\
+`The NBA tweaked its All-Star game format. Will it return to glory? Plus, the latest stock report.`\
+https://nytimes.com/athletic/6122578/2025/02/10/nba-rewind-lebron-james-steph-curry-lakers-warriors-nba-all-star/
+
+**Myles Garrett wants out. Should we take that at face value? And what does he have left?**\
+`Unless Garrett follows Reggie White's career arc, there's a good chance we've already seen his peak performance.`\
+https://nytimes.com/athletic/6125702/2025/02/10/myles-garrett-browns-trade-request-future/
+
+**The Hall of Fame's rule changes did not fix the problem. Here's how to do so**\
+`The Pro Football Hall of Fame selected its smallest class in 20 years without raising the bar for enshrinement. Here's why.`\
+https://nytimes.com/athletic/6125655/2025/02/10/nfl-hall-of-fame-rule-changes/
+
+**Guardians fan survey: How do you feel about the state of the franchise?**\
+`There’s plenty to discuss about the Cleveland Guardians.`\
+https://nytimes.com/athletic/6115660/2025/02/10/guardians-fan-survey-how-do-you-feel-about-the-state-of-the-franchise/
+
+**Patrick Mahomes’ legacy, a shaken Chiefs dynasty and what comes next: Sando’s Pick Six**\
+`The Chiefs' three-peat dreams are dead, leaving Mahomes right where Tom Brady once was. What can Kansas City learn from this?`\
+https://nytimes.com/athletic/6120617/2025/02/10/patrick-mahomes-chiefs-super-bowl-loss/
+
+**Padres 2025 spring training preview: Thoughts on every pitcher headed to camp**\
+`The Padres need an arm or two this season. They'll have plenty to look at in spring training. Let's break them down.`\
+https://nytimes.com/athletic/6097599/2025/02/10/padres-2025-spring-training-preview-pitchers/
+
 **Do You Know These Literary Power Couples and Their Work?**\
 `With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
 https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
