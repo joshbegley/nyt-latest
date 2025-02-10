@@ -1,3 +1,7 @@
+**Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
+`Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
+https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
+
 **Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
 `It is unclear if the request to drop the indictment against the New York City mayor will sway enough disaffected voters to his side.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-charg
 **Senate Advances Gabbard, Signaling Quick Confirmation**\
 `The test vote indicated that despite early reservations even among some Republicans, the former Democratic congresswoman had the necessary support to be confirmed in a vote expected by Wednesday.`\
 https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
-
-**What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
-`Finland has a secret plan, or two, to handle its broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
-https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
 

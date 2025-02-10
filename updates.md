@@ -1,3 +1,7 @@
+**Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
+`Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
+https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
+
 **Justice Dept. Seeks Dismissal of Federal Corruption Case Against Adams**\
 `The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
 https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-charges-doj-trump
