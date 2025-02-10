@@ -1,3 +1,7 @@
+**Drone Operator Locates Lost Puppy in Deep Snow**\
+`Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
+https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html
+
 **Are You Worried That Our System of Checks and Balances Might Fail?**\
 `In the opening weeks of his second term, President Trump and his administration have been grabbing powers that presidents have never had before. Is this a constitutional crisis?`\
 https://nytimes.com/2025/02/10/learning/are-you-worried-that-our-system-of-checks-and-balances-might-fail.html
