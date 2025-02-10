@@ -1,3 +1,11 @@
+**Submit your questions for the college basketball mailbag**\
+`<p>Coming off an eventful weekend in college hoops, and as March nears, we&#8217;re going to make the national college basketball mailbag a weekly staple.`\
+https://nytimes.com/athletic/6126335/2025/02/10/submit-your-questions-for-the-college-basketball-mailbag-2/
+
+**Ozcan signs for Villa on pre-contract agreement**\
+`The 18-year-old will remain at Kasimpasa for the remainder of the season and join up with his new Villa teammates in the summer.`\
+https://nytimes.com/athletic/6126232/2025/02/10/aston-villa-yasin-ozcan-transfer/
+
 **Skip ‘Yellowstone’ for This Rawer Version of the West**\
 `In Callan Wink’s new novel, two brothers struggling to make ends meet are forced to turn to shady ventures.`\
 https://nytimes.com/2025/02/10/books/review/callan-wink-beartooth.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6125554/2025/02/10/canucks-nhl-trade-deadline-2025-
 **Buyout market? Australia? Where Lakers could go for size after failed Mark Williams trade**\
 `A failed physical torpedoed the Williams trade, which could be a blessing long-term. But it puts LA in a bind for this year's playoffs.`\
 https://nytimes.com/athletic/6125425/2025/02/10/lakers-mark-williams-trade-centers-buyout-doncic/
-
-**Nick Sirianni was a 'hothead-in-a-headset.' Now he's a Super Bowl champion**\
-`"I think people have an opinion of the way they think a head coach should be," Sirianni said. “But you’ve got to be who you are."`\
-https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-sirianni/
-
-**Trump Muses About a Third Term, Over and Over Again**\
-`The president’s suggestion that he would seek to stay in office beyond the constitutional limit comes as he has pushed to expand executive authority.`\
-https://nytimes.com/2025/02/10/us/politics/trump-third-term.html
 

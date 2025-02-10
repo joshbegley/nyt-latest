@@ -1,3 +1,7 @@
+**Skip ‘Yellowstone’ for This Rawer Version of the West**\
+`In Callan Wink’s new novel, two brothers struggling to make ends meet are forced to turn to shady ventures.`\
+https://nytimes.com/2025/02/10/books/review/callan-wink-beartooth.html
+
 **Hollinger: Lakers remind us teams can rescind trades; scouting Spurs' Stephon Castle**\
 `The Lakers’ unwinding of their trade for Mark Williams is the latest, rare example of a team exiting a trade because of a failed physical.`\
 https://nytimes.com/athletic/6125067/2025/02/10/nba-trades-undo-lakers-spurs/
