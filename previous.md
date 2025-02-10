@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6125010/2025/02/09/alex-bregman-free-agency-cubs-in
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
 
-**One more stop on a busy presidential day: the Super Bowl.**\
-`By Erica L. Green`\
+**Busy Presidential Day Ends at the Super Bowl**\
+`Before becoming the first sitting president to attend a Super Bowl, Mr. Trump played a round of golf with Tiger Woods and announced he’d impose tariffs on metals.`\
 https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
 

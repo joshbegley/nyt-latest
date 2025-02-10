@@ -1,3 +1,7 @@
+**Busy Presidential Day Ends at the Super Bowl**\
+`Before becoming the first sitting president to attend a Super Bowl, Mr. Trump played a round of golf with Tiger Woods and announced he’d impose tariffs on metals.`\
+https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
+
 **One more stop on a busy presidential day: the Super Bowl.**\
 `By Erica L. Green`\
 https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
