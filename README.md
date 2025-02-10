@@ -1,3 +1,11 @@
+**Justice Dept. to Seek Dismissal of Federal Corruption Case Against Adams**\
+`The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
+https://nytimes.com/2025/02/10/nyregion/trump-pardons-nyc-mayor-eric-adams.html
+
+**Senate Advances Gabbard, Signaling Quick Confirmation**\
+`The test vote indicated that despite early reservations even among some Republicans, the former Democratic congresswoman had the necessary support to be confirmed in a vote expected by Wednesday.`\
+https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
+
 **What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
 `Finland has a secret plan, or two, to handle their broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
 https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-inter
 **What I'm seeing from Team Sweden: 'Phenomenal' goaltending, do-it-all D and lines from first practice**\
 `Sweden coach Sam Hallam: “We’re confident that any of the three (goalie) can start Wednesday night. Good to have the Vezina Trophy winner."`\
 https://nytimes.com/athletic/6127501/2025/02/10/sweden-4-nations-goaltending-lines-pairings/
-
-**How Companies Are Navigating the D.E.I. Backlash**\
-`Three main responses are emerging in corporate America on diversity, equity and inclusion: retreating, quietly sticking with it and standing up for it.`\
-https://nytimes.com/2025/02/10/us/politics/dei-corporate-america.html
-
-**Durant is moving past trade speculation: 'I’m not entitled to anything'**\
-`Suns star understands the NBA is a business, but admits he has never experienced anything quite like this trade deadline.`\
-https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadline-suns/
 
