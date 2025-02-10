@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline
 `\
 https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
 
+**Jets trade targets: 10 new options emerge as the deadline nears**\
+`Breaking down trade candidates for the Jets, how the team could use them, the realism factor — or lack thereof — and more.
+`\
+https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
+
 **The Jets' 20 options to replace Aaron Rodgers at quarterback: Cousins, Fields among them**\
 `A look at potential free-agent, trade and draft targets, as well as the in-house options.`\
 https://nytimes.com/athletic/6124828/2025/02/10/new-york-jets-next-qb-aaron-rodgers/
