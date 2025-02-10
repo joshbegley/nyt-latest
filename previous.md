@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-rev
 `The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
 https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html
 
-**Trump Has Given Netanyahu the Ultimate Gift: A Lifeline**\
+**Trump Has Given Netanyahu the Ultimate Gift**\
 `Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
 https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html
 

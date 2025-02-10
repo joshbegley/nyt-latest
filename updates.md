@@ -1,3 +1,7 @@
+**Trump Has Given Netanyahu the Ultimate Gift**\
+`Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
+https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html
+
 **Word of the Day: logjam**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/10/learning/word-of-the-day-logjam.html
