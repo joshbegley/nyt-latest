@@ -1,3 +1,11 @@
+**Trump Calls Gaza a ‘Big Real Estate Site,’ Reiterating Plan for U.S. Takeover**\
+`President Trump, speaking on his way to the Super Bowl, also mentioned building “beautiful sites for the people, the Palestinians, to live in.”`\
+https://nytimes.com/2025/02/10/world/middleeast/trump-gaza-us-takeover.html
+
+**The Athletic FC: Plymouth stun Liverpool, FA Cup wonderstrikes, Ancelotti's four-star problem**\
+`Today in TAFC: Plymouth end Liverpool's quadruple hopes, Barca close gap in La Liga, and some FA Cup long-range bangers...`\
+https://nytimes.com/athletic/6125605/2025/02/10/plymouth-liverpool-fa-cup-real-madrid/
+
 **Israeli Police Raid Palestinian Bookshops in East Jerusalem**\
 `The police said the stores were selling books that supported terrorism, and that two of their owners had been arrested. A brother of the owners decried the raid as “political persecution.”`\
 https://nytimes.com/2025/02/10/world/middleeast/israel-east-jerusalem-bookstore.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6124743/2025/02/10/nhl-weekend-rankings-fan-predict
 **Browns QB tracker: How other teams could dictate Cleveland's choices at the position**\
 `The Browns are moving closer to understanding their QB options, both in the veteran market and with the No. 2 pick in April’s draft. `\
 https://nytimes.com/athletic/6124599/2025/02/10/browns-quarterback-tracker-titans-steelers-commanders/
-
-**Crypto’s Connections**\
-`Three ways that President Trump is deepening crypto’s relationship with mainstream finance.`\
-https://nytimes.com/2025/02/10/briefing/cryptos-connections.html
-
-**Chiefs' shoddy O-line, WR corps prove too much for Patrick Mahomes to overcome**\
-`The Eagles' defense dominated the Chiefs up front, leaving little chance for Kansas City's playmakers to prove they could meet the moment.`\
-https://nytimes.com/athletic/6125424/2025/02/10/chiefs-offensive-line-super-bowl-lix/
 
