@@ -1,3 +1,7 @@
+**One more stop on a busy presidential day: the Super Bowl.**\
+`By Erica L. Green`\
+https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
+
 **Mahomes throws 2 first-half INTs as Chiefs trail big in Super Bowl first half**\
 `The first interception of Cooper DeJean's NFL career also came on his 22nd birthday.`\
 https://nytimes.com/athletic/6125071/2025/02/09/patrick-mahomes-cooper-dejean-super-bowl-chiefs-eagles-birthday/
