@@ -1,3 +1,7 @@
+**Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
+`The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
+https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html
+
 **Venezuelan Planes Fly Deported Migrants from U.S. to Venezuela**\
 `The flights, which left Fort Bliss in Texas, represent a significant victory for President Trump, who has vowed to carry out sweeping deportations.`\
 https://nytimes.com/2025/02/10/world/americas/venezuela-deportation-flights-migrants.html
