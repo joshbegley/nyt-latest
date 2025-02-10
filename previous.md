@@ -1,3 +1,11 @@
+**Tuesday Briefing: Trump’s New Tariff Fight**\
+`Plus, Kendrick Lamar’s Super Bowl show.`\
+https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech-summit.html
+
+**22 States Sue to Block Trump Cuts to Medical Research Funding**\
+`A coalition of attorneys general sued the federal government Monday, claiming that the $4 billion in cuts would “grind to a halt” studies on cancer, heart disease and other conditions.`\
+https://nytimes.com/2025/02/10/us/politics/nih-trump-lawsuit-medical-research.html
+
 **Farhan Zaidi returning to Dodgers as a special advisor: Source**\
 `Zaidi was the Dodgers' general manager for four years before becoming the president of baseball operations for the Giants.`\
 https://nytimes.com/athletic/6127367/2025/02/10/dodgers-farhan-zaidi-advisor/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
 **Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
 `The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
 https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html
-
-**Venezuelan Planes Fly Deported Migrants from U.S. to Venezuela**\
-`The flights, which left Fort Bliss in Texas, represent a significant victory for President Trump, who has vowed to carry out sweeping deportations.`\
-https://nytimes.com/2025/02/10/world/americas/venezuela-deportation-flights-migrants.html
-
-**3 Convicted of Murder for Luring Men From Gay Bars to Their Deaths**\
-`Two men were fatally drugged as their bank accounts were being drained. The killers lurked outside Manhattan clubs near closing time.`\
-https://nytimes.com/2025/02/10/nyregion/gay-bay-murder-charges.html
 

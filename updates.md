@@ -1,3 +1,11 @@
+**Tuesday Briefing: Trump’s New Tariff Fight**\
+`Plus, Kendrick Lamar’s Super Bowl show.`\
+https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech-summit.html
+
+**22 States Sue to Block Trump Cuts to Medical Research Funding**\
+`A coalition of attorneys general sued the federal government Monday, claiming that the $4 billion in cuts would “grind to a halt” studies on cancer, heart disease and other conditions.`\
+https://nytimes.com/2025/02/10/us/politics/nih-trump-lawsuit-medical-research.html
+
 **Farhan Zaidi returning to Dodgers as a special advisor: Source**\
 `Zaidi was the Dodgers' general manager for four years before becoming the president of baseball operations for the Giants.`\
 https://nytimes.com/athletic/6127367/2025/02/10/dodgers-farhan-zaidi-advisor/
