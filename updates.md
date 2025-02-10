@@ -1,3 +1,11 @@
+**Bus Crash in Guatemala City Kills Dozens of People**\
+`The vehicle fell off a bridge and plunged into a ravine early Monday morning, according to government officials.`\
+https://nytimes.com/video/world/americas/100000009982065/guatemala-bus-crash.html
+
+**Elon Musk Leads Bid to Buy OpenAI for $97.4 Billion**\
+`The billionaire is leading a group of investors in the unsolicited offer, which complicates the start-up’s plan to change its nonprofit status.`\
+https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
+
 **Tuesday Briefing: Trump’s New Tariff Fight**\
 `Plus, Kendrick Lamar’s Super Bowl show.`\
 https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech-summit.html
