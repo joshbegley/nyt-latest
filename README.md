@@ -1,3 +1,11 @@
+**Why Musk and Vance Went to Bat for a Self-Described Racist**\
+`Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
+https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
+
+**N.Y.P.D. Apologizes for Falsely Accusing Teen in Fatal Parade Shooting**\
+`The police posted photos of Camden Lee, 16, on social media and said he was wanted for the shooting. Only after five months did they admit they were wrong.`\
+https://nytimes.com/2025/02/10/nyregion/nypd-camden-lee-brooklyn-parade-shooting.html
+
 **Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
 `Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
 https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.h
 **Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
 `He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
-
-**Justice Dept. Seeks Dismissal of Federal Corruption Case Against Adams**\
-`The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
-https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-charges-doj-trump
-
-**Senate Advances Gabbard, Signaling Quick Confirmation**\
-`The test vote indicated that despite early reservations even among some Republicans, the former Democratic congresswoman had the necessary support to be confirmed in a vote expected by Wednesday.`\
-https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
 
