@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline
 `\
 https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
 
+**Jets trade targets: 10 new options emerge as the deadline nears**\
+`Breaking down trade candidates for the Jets, how the team could use them, the realism factor — or lack thereof — and more.
+`\
+https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
+
 **Israeli Police Raid Palestinian Bookshops in East Jerusalem**\
 `The police said the stores were selling books that supported terrorism, and that two of their owners had been arrested. A brother of the owners decried the raid as “political persecution.”`\
 https://nytimes.com/2025/02/10/world/middleeast/israel-east-jerusalem-bookstore.html
