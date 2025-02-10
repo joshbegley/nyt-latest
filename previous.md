@@ -22,13 +22,13 @@ https://nytimes.com/athletic/6122859/2025/02/10/ravens-2025-unrestricted-free-ag
 `The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
 https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
 
-**Trump 2.0 Heralds an Aggressive Flexing of Power**\
-`President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
-https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html
-
 **When It Rains, It Pours**\
 `Trump is on the move.`\
 https://nytimes.com/2025/02/10/opinion/trump-musk-cabinet-education.html
+
+**Trump 2.0 Heralds an Aggressive Flexing of Power**\
+`President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
+https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html
 
 **Supreme Court Signals That Landmark Libel Ruling Is Secure**\
 `Attacked by two justices, lower-court judges and litigants, the 1964 ruling in New York Times v. Sullivan keeps getting cited approvingly in the Supreme Court’s decisions.`\
