@@ -1,3 +1,11 @@
+**Farhan Zaidi returning to Dodgers as a special advisor: Source**\
+`Zaidi was the Dodgers' general manager for four years before becoming the president of baseball operations for the Giants.`\
+https://nytimes.com/athletic/6127367/2025/02/10/dodgers-farhan-zaidi-advisor/
+
+**Adams Urges N.Y.C. Officials to Avoid Criticizing Trump Administration**\
+`In response to concerns about his cooperation with the Trump administration, Mayor Eric Adams on Monday told top aides that being confrontational could hurt New York City.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-trump-nyc-officials-cooperation.html
+
 **Jazz at Lakers: How to watch, storylines for Luka Dončić's debut in Los Angeles**\
 `Luka Dončić debuts Monday as Los Angeles hosts Utah. The game has been flexed onto ESPN to match the hype.`\
 https://nytimes.com/athletic/6127160/2025/02/10/jazz-lakers-how-to-watch-luka-doncic/
