@@ -1,3 +1,7 @@
+**Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
+`The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
+https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html
+
 **Venezuelan Planes Fly Deported Migrants from U.S. to Venezuela**\
 `The flights, which left Fort Bliss in Texas, represent a significant victory for President Trump, who has vowed to carry out sweeping deportations.`\
 https://nytimes.com/2025/02/10/world/americas/venezuela-deportation-flights-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.h
 **Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
 `Two waves of winter weather are marching east. Not all of it will be pretty.`\
 https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
-
-**A Spa Day for Louis Before the Westminster Dog Show**\
-`A look at how a champion Afghan hound prepared for what would be his final chance at best in show.`\
-https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-hound
 
