@@ -1,3 +1,7 @@
+**Sportsbooks win big on Super Bowl: 'One of the best single-game results in company history'**\
+`Ben Fawkes recaps Super Bowl 59 from a betting perspective. Read why this year's big game was one of the best ever for the sportsbooks.`\
+https://nytimes.com/athletic/6126754/2025/02/10/super-bowl-59-betting-recap-sportsbooks-win-big-eagles-barkley/
+
 **Team Canada's 4 Nations nuclear option: Could they channel 1987, put MacKinnon, McDavid together?**\
 `Midway through the 1987 Canada Cup, Mike Keenan paired Wayne Gretzky and Mario Lemieux. Could Jon Cooper use the same tactic in 4 Nations?`\
 https://nytimes.com/athletic/6127370/2025/02/10/canada-mackinnon-mcdavid-4-nations/
