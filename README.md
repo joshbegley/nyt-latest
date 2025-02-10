@@ -15,7 +15,7 @@ https://nytimes.com/2025/02/10/t-magazine/how-to-do-bun-hairstyle.html
 https://nytimes.com/2025/02/10/us/politics/a-third-federal-judge-blocks-trumps-birthright-citizenship-order.html
 
 **Famous Palestinian Bookshop in Jerusalem Reopens After Israeli Raid**\
-`Murad Muna, a brother of the two owners detained in an Israeli police raid on the famous Educational Bookshop store in Jerusalem, said he was surprised by the crowd that showed up in solidarity after he reopened the store.`\
+`Murad Muna, a brother of one of the bookshop owners detained in an Israeli police raid on the famous Educational Bookshop store in Jerusalem, said he was surprised by the crowd that showed up in solidarity after he reopened the store.`\
 https://nytimes.com/video/world/middleeast/100000009980985/palestinian-educational-bookshop-jerusalem-reopens-israeli-raid.html
 
 **Need an Excellent Meatless Meal? Hetty Has You.**\
