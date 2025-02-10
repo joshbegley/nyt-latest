@@ -1,3 +1,7 @@
+**A Third Federal Judge Blocks Trump’s Birthright Citizenship Order**\
+`The judge in New Hampshire said an injunction would be issued immediately, with an explanation of his reasoning to follow on Tuesday.`\
+https://nytimes.com/2025/02/10/us/politics/judge-new-hampshire-trump-birthright-citizenship-injunction.html
+
 **Watch Demi Moore Transform in ‘The Substance’**\
 `The writer and director Coralie Fargeat narrates a sequence from her film, which is nominated for best picture.`\
 https://nytimes.com/2025/02/10/movies/demi-moore-the-substance-clip.html
