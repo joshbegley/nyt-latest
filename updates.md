@@ -1,3 +1,7 @@
+**Resisting Trump: What Can Be Done?**\
+`Readers respond to the “don’t tune out” editorial. Also: The ethics of trans care; Guantánamo questions; President Trump and the Kennedy Center.`\
+https://nytimes.com/2025/02/10/opinion/trump-resistance.html
+
 **One Very Real Problem Lost in the Politics of Aid Cuts: Child Malnutrition**\
 `Every year it’s a factor in the deaths of two million children worldwide.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/malnutrition-foreign-aid-trump
