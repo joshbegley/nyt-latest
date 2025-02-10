@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`An announcement on tariffs by President Trump.`\
+https://nytimes.com/2025/02/10/briefing/trump-tariffs-super-bowl.html
+
 **Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
 `The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
 https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
