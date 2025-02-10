@@ -1,3 +1,7 @@
+**I.R.S. Agents Are Asked to Help With Immigration Crackdown**\
+`The request by the Department of Homeland Security could suck resources away from tax enforcement efforts.`\
+https://nytimes.com/2025/02/10/us/politics/irs-dhs-immigration.html
+
 **AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
 `After a wild weekend of college basketball in which the No. 1 and No. 2 teams both lost, No. 2 dropped but No. 1 held steady.`\
 https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126714/2025/02/10/jim-tressel-ohio-lieutenant-gove
 **Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
 `The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
 https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
-
-**Mets spring guide: 31 thoughts for 31 hitters, from Acuña to Lindor to Young**\
-`Francisco Lindor is among the obvious choices on a Mets roster that looks just about set. Which players will be competing for jobs?`\
-https://nytimes.com/athletic/6122347/2025/02/10/mets-spring-guide/
 

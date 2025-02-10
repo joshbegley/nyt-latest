@@ -1,4 +1,8 @@
 **AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
+`After a wild weekend of college basketball in which the No. 1 and No. 2 teams both lost, No. 2 dropped but No. 1 held steady.`\
+https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
+
+**AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
 `After a wild weekend of college basketball in which the No.`\
 https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
 
