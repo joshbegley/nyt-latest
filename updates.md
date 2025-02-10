@@ -1,3 +1,7 @@
+**Sevilla 1 Barcelona 4 – Flick's side win again, Lopez's rollercoaster 16 mins, and De Jong over Casado?**\
+`Laia Cervello Herrero analyses the talking points as Barcelona kept the pressure on the Madrid teams with a strong win against Sevilla`\
+https://nytimes.com/athletic/6125477/2025/02/10/barcelona-sevilla-lopez-de-jong-casado/
+
 **Man Accused of Stabbing Salman Rushdie Goes on Trial**\
 `Hadi Matar is charged with attempted murder in the attack, which took place in 2022 as Mr. Rushdie was about to speak at an arts conference in western New York.`\
 https://nytimes.com/2025/02/10/nyregion/salman-rushdie-stabbing-trial.html
