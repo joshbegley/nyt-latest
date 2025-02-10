@@ -1,3 +1,7 @@
+**10 Writing Prompts on Love, Dating and Relationships**\
+`These questions invite you to reflect on the role that love — in all its forms — plays in your life.`\
+https://nytimes.com/2025/02/10/learning/10-writing-prompts-on-love-dating-and-relationships.html
+
 **Sportsbooks win big on Super Bowl: 'One of the best single-game results in company history'**\
 `Ben Fawkes recaps Super Bowl 59 from a betting perspective. Read why this year's big game was one of the best ever for the sportsbooks.`\
 https://nytimes.com/athletic/6126754/2025/02/10/super-bowl-59-betting-recap-sportsbooks-win-big-eagles-barkley/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
 **Tuesday Briefing: Trump’s New Tariff Fight**\
 `Plus, Kendrick Lamar’s Super Bowl show.`\
 https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech-summit.html
-
-**22 States Sue to Block Trump Cuts to Medical Research Funding**\
-`A coalition of attorneys general sued the federal government Monday, claiming that the $4 billion in cuts would “grind to a halt” studies on cancer, heart disease and other conditions.`\
-https://nytimes.com/2025/02/10/us/politics/nih-trump-lawsuit-medical-research.html
 
