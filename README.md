@@ -36,5 +36,5 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-
 
 **One more stop on a busy presidential day: the Super Bowl.**\
 `By Erica L. Green`\
-https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
+https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
 
