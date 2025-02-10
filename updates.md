@@ -1,3 +1,11 @@
+**What I'm seeing from Team Canada: Latest on Sidney Crosby and lines from a 'super intense' first practice**\
+`Canada opened practice Monday ahead of 4 Nations with a relieving injury return and a first look at its plan for lines and pairings.`\
+https://nytimes.com/athletic/6127376/2025/02/10/canada-4-nations-crosby-lines-pairings/
+
+**Warriors at Bucks: How to watch, odds as Jimmy Butler tries to rally Golden State**\
+`Jimmy Butler and the Golden State Warriors are a fascinating if awkward coupling. They're on NBA TV Monday night.`\
+https://nytimes.com/athletic/6127382/2025/02/10/warriors-bucks-how-to-watch-odds-preview-jimmy-butler-stephen-curry/
+
 **10 Writing Prompts on Love, Dating and Relationships**\
 `These questions invite you to reflect on the role that love — in all its forms — plays in your life.`\
 https://nytimes.com/2025/02/10/learning/10-writing-prompts-on-love-dating-and-relationships.html
