@@ -1,3 +1,7 @@
+**Venezuelan Planes Fly Deported Migrants from U.S. to Venezuela**\
+`The flights, which left Fort Bliss in Texas, represent a significant victory for President Trump, who has vowed to carry out sweeping deportations.`\
+https://nytimes.com/2025/02/10/world/americas/venezuela-deportation-flights-migrants.html
+
 **3 Convicted of Murder for Luring Men From Gay Bars to Their Deaths**\
 `Two men were fatally drugged as their bank accounts were being drained. The killers lurked outside Manhattan clubs near closing time.`\
 https://nytimes.com/2025/02/10/nyregion/gay-bay-murder-charges.html
