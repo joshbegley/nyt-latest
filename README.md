@@ -1,3 +1,7 @@
+**Buyout market? Australia? Where Lakers could go for size after failed Mark Williams trade**\
+`A failed physical torpedoed the Williams trade, which could be a blessing long-term. But it puts LA in a bind for this year's playoffs.`\
+https://nytimes.com/athletic/6125425/2025/02/10/lakers-mark-williams-trade-centers-buyout-doncic/
+
 **Nick Sirianni was a 'hothead-in-a-headset.' Now he's a Super Bowl champion**\
 `"I think people have an opinion of the way they think a head coach should be," Sirianni said. “But you’ve got to be who you are."`\
 https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-sirianni/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/books/three-days-in-june-anne-tyler.html
 **The Chiefs wouldn't let Saquon Barkley beat them. The Eagles made sure it didn't matter**\
 `Barkley averaged just 2.3 yards per carry, but Jalen Hurts, the defense and the Eagles' coaching staff more than made up for it.`\
 https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl-jalen-hurts/
-
-**To understand the Josh Allen-Lamar Jackson MVP vote, look to ... Nikola Jokić?**\
-`Until Lamar Jackson wins in the playoffs, he might struggle to win a third MVP, no matter how well he plays. Just ask the Nuggets' star.`\
-https://nytimes.com/athletic/6125668/2025/02/10/josh-allen-mvp-lamar-jackson-vote/
 
