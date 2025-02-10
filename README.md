@@ -1,3 +1,15 @@
+**Judge Orders F.B.I. to Disclose Some Trump Classified Documents Case Materials**\
+`In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
+https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
+
+**What I'm seeing from Team USA: Replacing Quinn Hughes, splitting up the Tkachuks, practice lines, more**\
+`Quinn Hughes was "completely devastated" after being forced by injury to withdraw from the international best-on-best event.`\
+https://nytimes.com/athletic/6126376/2025/02/10/usa-4-nations-quinn-hughes-lines-pairings/
+
+**Joy Rider Who Damaged Rare Plants in Death Valley Dunes Remains at Large**\
+`National Park Service officials have yet to identify the person or people who drove onto Eureka Dunes, a protected area with endemic plant species,  more than a month ago.`\
+https://nytimes.com/2025/02/10/us/eureka-dunes-driver-damaged-plants.html
+
 **Behind the Scenes at the Westminster Dog Show**\
 `With the event returning to Midtown Manhattan for the first time since 2020, thousands of dogs flooded the city with a single goal in mind: best in show.`\
 https://nytimes.com/2025/02/10/style/westminster-dog-show-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/10/learning/10-writing-prompts-on-love-dating-and-re
 **Sportsbooks win big on Super Bowl: 'One of the best single-game results in company history'**\
 `Ben Fawkes recaps Super Bowl 59 from a betting perspective. Read why this year's big game was one of the best ever for the sportsbooks.`\
 https://nytimes.com/athletic/6126754/2025/02/10/super-bowl-59-betting-recap-sportsbooks-win-big-eagles-barkley/
-
-**Team Canada's 4 Nations nuclear option: Could they channel 1987, put MacKinnon, McDavid together?**\
-`Midway through the 1987 Canada Cup, Mike Keenan paired Wayne Gretzky and Mario Lemieux. Could Jon Cooper use the same tactic in 4 Nations?`\
-https://nytimes.com/athletic/6127370/2025/02/10/canada-mackinnon-mcdavid-4-nations/
-
-**Judge Keeps Pause on Program Offering Federal Workers Incentives to Quit**\
-`A federal judge in Massachusetts said the program would continue to be on hold until he issued a ruling. The government had set a new deadline of Monday night for workers to sign up.`\
-https://nytimes.com/2025/02/10/us/politics/trump-judge-deferred-resignation-program.html
-
-**Israeli Hostages’ Accounts of Abuse Raise Alarms for Remaining Captives**\
-`Freed hostages have told of starvation, and relatives of others held in Gaza say officials have relayed accounts of torture.`\
-https://nytimes.com/2025/02/10/world/middleeast/israel-hostages-abuse-hamas.html
 
