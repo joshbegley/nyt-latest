@@ -16,7 +16,7 @@ https://nytimes.com/2025/02/10/t-magazine/how-to-do-bun-hairstyle.html
 
 **A Third Federal Judge Blocks Trump’s Birthright Citizenship Order**\
 `The judge in New Hampshire said an injunction would be issued immediately, with an explanation of his reasoning to follow on Tuesday.`\
-https://nytimes.com/2025/02/10/us/politics/a-third-federal-judge-blocks-trumps-birthright-citizenship-order.html
+https://nytimes.com/2025/02/10/us/politics/judge-new-hampshire-trump-birthright-citizenship-injunction.html
 
 **Famous Palestinian Bookshop in Jerusalem Reopens After Israeli Raid**\
 `Murad Muna, a brother of one of the bookshop owners detained in an Israeli police raid on the famous Educational Bookshop store in Jerusalem, said he was surprised by the crowd that showed up in solidarity after he reopened the store.`\
