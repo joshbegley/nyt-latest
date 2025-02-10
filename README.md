@@ -1,3 +1,7 @@
+**Leeds' Wober to undergo surgery, set to miss around six weeks**\
+`The Austria international has been managing a knee injury throughout the season but will now have to go under the knife again.`\
+https://nytimes.com/athletic/6126126/2025/02/10/max-wober-leeds-surgery/
+
 **Europe is bracing for further U.S. tariffs.**\
 `Ursula Von Der Leyen, pr`\
 https://nytimes.com/live/2025/02/10/us/trump-news/europe-is-bracing-for-further-us-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125655/2025/02/10/nfl-hall-of-fame-rule-changes/
 **Guardians fan survey: How do you feel about the state of the franchise?**\
 `There’s plenty to discuss about the Cleveland Guardians.`\
 https://nytimes.com/athletic/6115660/2025/02/10/guardians-fan-survey-how-do-you-feel-about-the-state-of-the-franchise/
-
-**Patrick Mahomes’ legacy, a shaken Chiefs dynasty and what comes next: Sando’s Pick Six**\
-`The Chiefs' three-peat dreams are dead, leaving Mahomes right where Tom Brady once was. What can Kansas City learn from this?`\
-https://nytimes.com/athletic/6120617/2025/02/10/patrick-mahomes-chiefs-super-bowl-loss/
 
