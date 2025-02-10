@@ -1,3 +1,15 @@
+**Judge Keeps Pause on Program Offering Federal Workers Incentives to Quit**\
+`A federal judge in Massachusetts said the program would continue to be on hold until he issued a ruling. The government had set a new deadline of Monday night for workers to sign up.`\
+https://nytimes.com/2025/02/10/us/politics/trump-judge-deferred-resignation-program.html
+
+**Israeli Hostages’ Accounts of Abuse Raise Alarms for Remaining Captives**\
+`Freed hostages have told of starvation, and relatives of others held in Gaza say officials have relayed accounts of torture.`\
+https://nytimes.com/2025/02/10/world/middleeast/israel-hostages-abuse-hamas.html
+
+**2 People Are Charged in Soldier’s Murder in Tennessee**\
+`Pfc. Katia Dueñas Aguilar, 23, was found dead after being stabbed 68 times last year. Now, her husband and a woman have been charged in the fatal attack.`\
+https://nytimes.com/2025/02/10/us/fort-campbell-soldier-stabbing-charges.html
+
 **Bus Crash in Guatemala City Kills Dozens of People**\
 `The vehicle fell off a bridge and plunged into a ravine early Monday morning, according to government officials.`\
 https://nytimes.com/video/world/americas/100000009982065/guatemala-bus-crash.html
