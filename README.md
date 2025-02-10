@@ -1,3 +1,23 @@
+**Champions League knockout round betting preview: Will Man City's woes worsen?**\
+`Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
+https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
+
+**Nesta rehired by Monza seven weeks after being fired**\
+`The 48-year-old former centre-back was sacked on December 23 after winning just one of his 17 league matches in charge.`\
+https://nytimes.com/athletic/6126011/2025/02/10/monza-manager-nesta/
+
+**FA Cup round four betting review: Could this be the year of the giant killers?**\
+`We review the weekend's FA Cup results and the betting permutations for the weeks ahead. `\
+https://nytimes.com/athletic/6125891/2025/02/10/fa-cup-round-four-betting-review-could-this-be-the-year-of-the-giant-killers/
+
+**Was this Travis Kelce's last Super Bowl? He has tough decision after Chiefs' loss**\
+`Kelce, the future Hall of Fame tight end, has much to ponder as retirement questions swirl following Kansas City's loss to Philadelphia.`\
+https://nytimes.com/athletic/6125513/2025/02/10/travis-kelce-chiefs-super-bowl-retirement-question/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions below and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6125600/2025/02/10/inside-newcastle-live-qa-arsenal-birmingham-cup/
+
 **Trump Calls Gaza a ‘Big Real Estate Site,’ Reiterating Plan for U.S. Takeover**\
 `President Trump, speaking on his way to the Super Bowl, also mentioned building “beautiful sites for the people, the Palestinians, to live in.”`\
 https://nytimes.com/2025/02/10/world/middleeast/trump-gaza-us-takeover.html
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6124828/2025/02/10/new-york-jets-next-qb-aaron-rodg
 **Inside Oilers' roster decisions to elevate Stanley Cup pursuit: Stan Bowman Q&A**\
 `Bowman spoke to The Athletic ahead of the Oilers’ final game before the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6122877/2025/02/10/oilers-roster-stan-bowman-decisions/
-
-**Keira Walsh is the final piece of the jigsaw, bringing balance to Chelsea's midfield**\
-`For many years, it seemed as if there were square pegs in round holes in Chelsea's midfield. Now with Walsh, that’s ancient history`\
-https://nytimes.com/athletic/6125548/2025/02/10/keira-walsh-chelsea-women-midfield-fa-cup-everton/
-
-**In Super Bowl triumph, Nick Sirianni proves he was right coach for Eagles all along**\
-`There is value in losing a Super Bowl. You store away every little thing you did wrong.`\
-https://nytimes.com/athletic/6125508/2025/02/10/nick-sirianni-eagles-super-bowl/
-
-**Jets trade targets: 10 new options emerge as the deadline nears**\
-`Breaking down trade candidates for the Jets, how the team could use them, the realism factor — or lack thereof — and more.
-`\
-https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
-
-**Weekend NHL rankings: No, your predictions are wrong**\
-`The results of the fan league predictions are in, and how the tables have turned.`\
-https://nytimes.com/athletic/6124743/2025/02/10/nhl-weekend-rankings-fan-predictions-red-wings-sabres/
-
-**Browns QB tracker: How other teams could dictate Cleveland's choices at the position**\
-`The Browns are moving closer to understanding their QB options, both in the veteran market and with the No. 2 pick in April’s draft. `\
-https://nytimes.com/athletic/6124599/2025/02/10/browns-quarterback-tracker-titans-steelers-commanders/
 
