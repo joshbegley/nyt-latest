@@ -1,3 +1,7 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6126652/2025/02/10/st-louis-blues-jeremy-rutherford-mailbag-february-2025/
+
 **At A.I. Summit in Paris, a Push for Innovation Before Regulation**\
 `Europe wants to be a top contender in the race to become a world leader in artificial intelligence, but investors are concerned that it has too much red tape and that its taxes are too high.`\
 https://nytimes.com/2025/02/10/business/ai-summit-paris.html
