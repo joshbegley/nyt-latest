@@ -1,3 +1,7 @@
+**The Pulse: A shocking Super Bowl blowout**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6124315/2025/02/10/eagles-chiefs-super-bowl-the-pulse/
+
 **In ‘Festen,’ a Nightmare Birthday Becomes an Opera**\
 `The composer who put Anna Nicole Smith’s life onstage has a new piece: an adaptation of a cult movie about child abuse.`\
 https://nytimes.com/2025/02/10/arts/music/festen-opera-mark-anthony-turnage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/crosswords/wordle-review-1333.html
 **Connections Companion No. 611**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
 https://nytimes.com/2025/02/10/crosswords/connections-companion-611.html
-
-**Arsenal fans: How should Mikel Arteta deal with the loss of Gabriel Martinelli?**\
-`What are the best options for Arteta's depleted forward line?`\
-https://nytimes.com/athletic/6124176/2025/02/10/arsenal-gabriel-martinelli-discussion/
 
