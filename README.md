@@ -1,3 +1,11 @@
+**‘Not Like Us’ won five Grammys last week, including for record and song of the year.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/not-like-us-won-five-grammys-last-week-including-for-record-and-song-of-the-year
+
+**Alex Bregman could represent a legacy-shaping deal for Cubs president Jed Hoyer**\
+`Adding Bregman would confirm the Cubs as the overwhelming favorite to win the National League Central.`\
+https://nytimes.com/athletic/6125010/2025/02/09/alex-bregman-free-agency-cubs-interest/
+
 **Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanam
 **Georgia Man Sentenced to 475 Years for Dogfighting**\
 `Vincent Lemark Burrell was found guilty last month of more than 100 counts of dogfighting and animal cruelty after dozens of dogs were found in poor condition at his home.`\
 https://nytimes.com/2025/02/09/us/dogfight-sentence-georgia.html
-
-**36 Hours After Russell Vought Took Over Consumer Bureau, He Shut Its Operations**\
-`The agency had been one of Wall Street’s most feared regulators, with the power to issue rules on mortgages, credit cards, student loans and other areas affecting Americans’ financial lives.`\
-https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
-
-**Trump Says He Might Use U.S. Transit Agency to ‘Kill’ Congestion Pricing**\
-`In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
-https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
 
