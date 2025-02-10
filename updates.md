@@ -1,3 +1,11 @@
+**Trump Wants to Clear Bombs From Gaza. He’s Sidelined Groups That Would Do It.**\
+`Shortly before the president said he would have to clear unexploded bombs to redevelop Gaza, he ordered all U.S.-funded demining groups globally to stop their work.`\
+https://nytimes.com/2025/02/10/us/politics/trump-gaza-bombs.html
+
+**Watch: What did we learn from Anthony Davis' Mavericks debut?**\
+`The Athletic NBA Daily discuss Anthony Davis’ first game with the Mavericks and his current injury status. `\
+https://nytimes.com/athletic/6126338/2025/02/10/anthony-davis-dallas-mavericks-debut-nba/
+
 **Giants farm system heat check: What’s the immediate and future outlook?**\
 `The Giants' system is in the bottom third of baseball. But there are still prospect who could impact the team this season and in 2027.`\
 https://nytimes.com/athletic/6114206/2025/02/10/sf-giants-farm-system-status/
