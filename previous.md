@@ -1,3 +1,7 @@
+**Results and outcomes for Super Bowl 2025 prop bets**\
+`Here is a list of the results for the major Super Bowl prop bets to help you answer your party prop sheets and other big game pools.`\
+https://nytimes.com/athletic/6125175/2025/02/09/super-bowl-2025-prop-bets-results-outcomes/
+
 **Breaking down the Eagles' blowout Super Bowl LIX victory by the numbers**\
 `The Philadelphia Eagles have ended the Kansas City Chiefs' three-peat quest in dominant fashion. Here are the numbers behind the win.`\
 https://nytimes.com/athletic/6125109/2025/02/09/eagles-chiefs-super-bowl-lix-by-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
 **2025 NFL Draft order: Rounds 1 and 2 set after Eagles' Super Bowl LIX win**\
 `The order for the first two rounds of the 2025 NFL Draft is now set, following the Eagles' win over the Chiefs in Super Bowl LIX.`\
 https://nytimes.com/athletic/6119361/2025/02/09/nfl-draft-2025-order-rounds-1-2/
-
-**How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
-`Jalen Hurts and Philadelphia led no doubt, completing a two-year climb back to the top of the NFL.`\
-https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
 

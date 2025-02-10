@@ -1,3 +1,7 @@
+**Results and outcomes for Super Bowl 2025 prop bets**\
+`Here is a list of the results for the major Super Bowl prop bets to help you answer your party prop sheets and other big game pools.`\
+https://nytimes.com/athletic/6125175/2025/02/09/super-bowl-2025-prop-bets-results-outcomes/
+
 **Breaking down the Eagles' blowout Super Bowl LIX victory by the numbers**\
 `The Philadelphia Eagles have ended the Kansas City Chiefs' three-peat quest in dominant fashion. Here are the numbers behind the win.`\
 https://nytimes.com/athletic/6125109/2025/02/09/eagles-chiefs-super-bowl-lix-by-numbers/
