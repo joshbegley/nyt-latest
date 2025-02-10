@@ -1,3 +1,7 @@
+**At 83, Anne Tyler Has a New Novel. She’d Rather Talk About Anything Else.**\
+`While many of her contemporaries are playing canasta, she’s releasing her 25th book. There’s no mystery to it, Tyler says: Start on Page 1, then keep writing.`\
+https://nytimes.com/2025/02/10/books/three-days-in-june-anne-tyler.html
+
 **The Chiefs wouldn't let Saquon Barkley beat them. The Eagles made sure it didn't matter**\
 `Barkley averaged just 2.3 yards per carry, but Jalen Hurts, the defense and the Eagles' coaching staff more than made up for it.`\
 https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl-jalen-hurts/
