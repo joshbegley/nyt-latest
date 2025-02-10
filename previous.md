@@ -1,3 +1,7 @@
+**Browns QB tracker: How other teams could dictate Cleveland's choices at the position**\
+`The Browns are moving closer to understanding their QB options, both in the veteran market and with the No. 2 pick in April’s draft. `\
+https://nytimes.com/athletic/6124599/2025/02/10/browns-quarterback-tracker-titans-steelers-commanders/
+
 **Crypto’s Connections**\
 `Three ways that President Trump is deepening crypto’s relationship with mainstream finance.`\
 https://nytimes.com/2025/02/10/briefing/cryptos-connections.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125375/2025/02/10/super-bowl-recap-quiz-how-closel
 **Where will Ryan Donato be after the trade deadline and next season? Examining 3 scenarios**\
 `Donato has played well heading into the 4 Nations break. Will he be traded? Will he stay with Chicago this season? Will he walk this summer?`\
 https://nytimes.com/athletic/6123506/2025/02/10/blackhawks-ryan-donato-nhl-trade-deadline/
-
-**China Seems Unstoppable. Trump Thinks Otherwise.**\
-`What’s behind the trade war that the president didn’t back away from.`\
-https://nytimes.com/2025/02/10/podcasts/the-daily/china-trump-trade.html
 
