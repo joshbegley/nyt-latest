@@ -1,3 +1,7 @@
+**Do You Know These Literary Power Couples and Their Work?**\
+`With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
+https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
+
 **Champions League knockout round betting preview: Will Man City's woes worsen?**\
 `Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
 https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/world/middleeast/israel-east-jerusalem-bookstore.
 **The Jets' 20 options to replace Aaron Rodgers at quarterback: Cousins, Fields among them**\
 `A look at potential free-agent, trade and draft targets, as well as the in-house options.`\
 https://nytimes.com/athletic/6124828/2025/02/10/new-york-jets-next-qb-aaron-rodgers/
-
-**Inside Oilers' roster decisions to elevate Stanley Cup pursuit: Stan Bowman Q&A**\
-`Bowman spoke to The Athletic ahead of the Oilers’ final game before the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/6122877/2025/02/10/oilers-roster-stan-bowman-decisions/
 
