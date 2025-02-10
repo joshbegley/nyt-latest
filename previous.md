@@ -1,3 +1,7 @@
+**Fiery Directives Under Trump’s Justice Dept. Signals a Significant Shift**\
+`The new tone of the department, current and former officials say, appears to promise a campaign of intimidation against career employees viewed as insufficiently loyal.`\
+https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
+
 **Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
 `The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
 https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125699/2025/02/10/fa-cup-fifth-round-draw/
 **Judge Rules the White House Failed to Comply With Court Order**\
 `The federal judge in Rhode Island said the Trump administration had failed to comply with his order unfreezing billions of dollars in federal grants.`\
 https://nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.html
-
-**Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
-`Two waves of winter weather are marching east. Not all of it will be pretty.`\
-https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
 

@@ -1,3 +1,7 @@
+**Fiery Directives Under Trump’s Justice Dept. Signals a Significant Shift**\
+`The new tone of the department, current and former officials say, appears to promise a campaign of intimidation against career employees viewed as insufficiently loyal.`\
+https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
+
 **Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
 `The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
 https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html

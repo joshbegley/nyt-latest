@@ -1,3 +1,15 @@
+**Trump’s Declaration Allows Musk’s Efficiency Team to Skirt Open Records Laws**\
+`Government watchdog groups say they will challenge the Trump administration’s decision to put the initiative under the Presidential Records Act, which shields its work from public disclosure.`\
+https://nytimes.com/2025/02/10/us/politics/trump-musk-doge-foia-public-records.html
+
+**Brooklyn Man Admits to Smuggling Precious Egyptian Relics**\
+`The artifacts, which included amulets and a sculpture, smelled like earth when they spilled out of his suitcases, according to court papers.`\
+https://nytimes.com/2025/02/10/nyregion/egyptian-relic-smuggling-plea.html
+
+**Luis Rubiales trial: Spain women's coach Montse Tome did not know sexual violence protocol existed**\
+`Tome was assistant coach at the 2023 Women's World Cup, where Rubiales kissed the Spain striker Hermoso after they won the final`\
+https://nytimes.com/athletic/6127181/2025/02/10/rubiales-trial-hermoso-montse-tome-rfef-protocol/
+
 **Fiery Directives Under Trump’s Justice Dept. Signals a Significant Shift**\
 `The new tone of the department, current and former officials say, appears to promise a campaign of intimidation against career employees viewed as insufficiently loyal.`\
 https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6126853/2025/02/10/andrew-wiggins-davion-mitchell-k
 **5 Notes From the Big A.I. Summit in Paris**\
 `At times, Kevin Roose writes, it feels like he is watching policymakers on horseback trying to install seatbelts on a passing Lamborghini.`\
 https://nytimes.com/2025/02/10/technology/ai-summit-paris-technology.html
-
-**U.S. Woman Sues Tate Brothers, Saying They Lured Her to Romania for Sex Work**\
-`A woman who gave testimony to Romanian prosecutors accused Andrew and Tristan Tate in a lawsuit of conspiring to traffic her for sex work. The brothers have sued her for defamation.`\
-https://nytimes.com/2025/02/10/world/europe/andrew-tate-tristan-lawsuit-us.html
-
-**FA Cup fifth-round draw: Man Utd vs Fulham, Man City vs Plymouth**\
-`Elsewhere, Carabao Cup finalists Newcastle United will host Brighton & Hove Albion.`\
-https://nytimes.com/athletic/6125699/2025/02/10/fa-cup-fifth-round-draw/
-
-**Judge Rules the White House Failed to Comply With Court Order**\
-`The federal judge in Rhode Island said the Trump administration had failed to comply with his order unfreezing billions of dollars in federal grants.`\
-https://nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.html
 
