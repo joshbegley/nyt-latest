@@ -1,3 +1,19 @@
+**Everything you need to know about future host cities for next 2 Super Bowls**\
+`As the league closes its chapter on the 2024 season, a look ahead to Super Bowl LX and beyond.`\
+https://nytimes.com/athletic/6116225/2025/02/09/super-bowl-60-location-logo-host-city/
+
+**Travis Kelce passes Jerry Rice for most career Super Bowl receptions**\
+`Kelce moved past Lynn Swann and Rob Gronkowski into second place on the career Super Bowl receiving yards list, now sitting at 389.`\
+https://nytimes.com/athletic/6125177/2025/02/09/travis-kelce-super-bowl-receptions-record-chiefs/
+
+**Super Bowl 2026 betting odds: Can Eagles repeat? Early favorites, long-shot odds**\
+`Early odds for Super Bowl 2026 are out! Which teams are at the top, and which have moved the most since last year. Can you guess last place?`\
+https://nytimes.com/athletic/6122481/2025/02/09/super-bowl-2026-eagles-chiefs-betting-favorites-odds/
+
+**How the Eagles thwarted the Chiefs' pursuit of history in a dominant Super Bowl win**\
+`Jalen Hurts and Philadelphia led no doubt, completing a two-year climb back to the top of the NFL.`\
+https://nytimes.com/athletic/6125021/2025/02/09/super-bowl-2025-score-eagles-win-chiefs/
+
 **Eagles QB Jalen Hurts named Super Bowl MVP after dominant win over Chiefs**\
 `Hurts, in his second Super Bowl appearance, helped the Eagles avenge their Super Bowl LVII loss to Kansas City in a big way Sunday night.`\
 https://nytimes.com/athletic/6125078/2025/02/09/eagles-qb-jalen-hurts-named-super-bowl-lix-mvp-after-dominant-win-over-chiefs/
