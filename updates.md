@@ -1,3 +1,11 @@
+**The Eagles defense couldn't stop Mahomes in 2022. In Super Bowl 59 they got their revenge**\
+`The defense punished Patrick Mahomes the whole game.`\
+https://nytimes.com/athletic/6124647/2025/02/10/eagles-defense-mahomes-super-bowl-revenge/
+
+**Ranking Ravens' top 10 unrestricted free agents this offseason**\
+`Taking a look at the Baltimore free agents who could generate the most interest on the open market.  `\
+https://nytimes.com/athletic/6122859/2025/02/10/ravens-2025-unrestricted-free-agents/
+
 **Monday Briefing**\
 `An announcement on tariffs by President Trump.`\
 https://nytimes.com/2025/02/10/briefing/trump-tariffs-super-bowl.html

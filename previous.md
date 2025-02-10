@@ -1,6 +1,14 @@
+**The Eagles defense couldn't stop Mahomes in 2022. In Super Bowl 59 they got their revenge**\
+`The defense punished Patrick Mahomes the whole game.`\
+https://nytimes.com/athletic/6124647/2025/02/10/eagles-defense-mahomes-super-bowl-revenge/
+
 **Monday Briefing**\
 `An announcement on tariffs by President Trump.`\
 https://nytimes.com/2025/02/10/briefing/trump-tariffs-super-bowl.html
+
+**Ranking Ravens' top 10 unrestricted free agents this offseason**\
+`Taking a look at the Baltimore free agents who could generate the most interest on the open market.  `\
+https://nytimes.com/athletic/6122859/2025/02/10/ravens-2025-unrestricted-free-agents/
 
 **Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
 `The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/traffic-lights-third-avenue-cyclists.htm
 **Tenderness as an Act of Resistance**\
 `They are trying to overwhelm us and force us to look away. But we must not.`\
 https://nytimes.com/2025/02/10/opinion/trump-resistance-compassion.html
-
-**What Can I Wear to a Job Interview Besides a Boring Suit?**\
-`A reader seeking to make a good impression with a potential employer asks for advice on interview attire. Our fashion critic offers her thoughts on how to dress for success while still standing out.`\
-https://nytimes.com/2025/02/10/style/job-interview-outfit.html
-
-**Have You Ever Experienced Heartbreak?**\
-`A breakup? The end of a friendship? The death of a pet? Tell us about one such loss and what it meant to you.`\
-https://nytimes.com/2025/02/10/learning/have-you-ever-experienced-heartbreak.html
 
