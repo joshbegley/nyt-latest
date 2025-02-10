@@ -1,3 +1,7 @@
+**Eagles QB Jalen Hurts named Super Bowl MVP after dominant win over Chiefs**\
+`Hurts, in his second Super Bowl appearance, helped the Eagles avenge their Super Bowl LVII loss to Kansas City in a big way Sunday night.`\
+https://nytimes.com/athletic/6125078/2025/02/09/eagles-qb-jalen-hurts-named-super-bowl-lix-mvp-after-dominant-win-over-chiefs/
+
 **Mavericks' Anthony Davis to miss multiple weeks with left adductor strain**\
 `He won’t play Monday against the Sacramento Kings, and it’s expected he will miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/09/anthony-davis-injury-out-dallas-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125071/2025/02/09/patrick-mahomes-cooper-dejean-su
 **Eagles' Saquon Barkley sets combined rushing yards record for single season**\
 `In his first year with Eagles, Barkley has topped Terrell Davis to set the record for most rushing yards in the regular season and playoffs.`\
 https://nytimes.com/athletic/6089695/2025/02/09/saquon-barkley-rushing-yards-single-season-mark-eagles/
-
-**Is ‘Not Like Us,’ the searing diss track in which Lamar takes on Drake, too controversial for the Super Bowl?**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not-like-us-the-searing-diss-track-in-which-lamar-takes-on-drake-too-controversial-for-the-super-bowl
 
