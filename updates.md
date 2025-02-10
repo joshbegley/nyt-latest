@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Kelman ruffles City, Adams' target and a new challenge for Pulisic?**\
+`Our roundup of the U.S. contingent's contributions in Europe also takes in Gio Reyna's latest cameo and a penalty shootout hero`\
+https://nytimes.com/athletic/6124962/2025/02/10/usmnt-pulisic-adams-kelman-tracker/
+
 **Hamas Postpones Release of Hostages ‘Until Further Notice’**\
 `Stalling the next release of hostages from the Gaza Strip, scheduled for the coming weekend, raises new challenges for the already tenuous six-week truce and chances for a lasting end to the war.`\
 https://nytimes.com/2025/02/10/world/middleeast/hamas-hostages-israel-ceasefire.html
