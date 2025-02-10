@@ -1,3 +1,7 @@
+**Farm system heat check: What’s the immediate and future outlook for Cardinals?**\
+`JJ Wetherholt is the top prospect in a minor-league system undergoing a massive transition.`\
+https://nytimes.com/athletic/6122425/2025/02/10/cardinals-farm-system-heat-check/
+
 **The Pulse: A shocking Super Bowl blowout**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6124315/2025/02/10/eagles-chiefs-super-bowl-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/podcasts/the-headlines/trump-superbowl-vance-penn
 **Wordle Review No. 1,333**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
 https://nytimes.com/2025/02/10/crosswords/wordle-review-1333.html
-
-**Connections Companion No. 611**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
-https://nytimes.com/2025/02/10/crosswords/connections-companion-611.html
 
