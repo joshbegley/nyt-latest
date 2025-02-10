@@ -1,3 +1,7 @@
+**Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
+`Two waves of winter weather are marching east. Not all of it will be pretty.`\
+https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
+
 **A Spa Day for Louis Before the Westminster Dog Show**\
 `A look at how a champion Afghan hound prepared for what would be his final chance at best in show.`\
 https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-hound

@@ -1,3 +1,7 @@
+**Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
+`Two waves of winter weather are marching east. Not all of it will be pretty.`\
+https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
+
 **A Spa Day for Louis Before the Westminster Dog Show**\
 `A look at how a champion Afghan hound prepared for what would be his final chance at best in show.`\
 https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-hound
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/dining/potlikker.html
 **Trump Wants to Clear Bombs From Gaza. He’s Sidelined Groups That Would Do It.**\
 `Shortly before the president said he would have to clear unexploded bombs to redevelop Gaza, he ordered all U.S.-funded demining groups globally to stop their work.`\
 https://nytimes.com/2025/02/10/us/politics/trump-gaza-bombs.html
-
-**Watch: What did we learn from Anthony Davis' Mavericks debut?**\
-`The Athletic NBA Daily discuss Anthony Davis’ first game with the Mavericks and his current injury status. `\
-https://nytimes.com/athletic/6126338/2025/02/10/anthony-davis-dallas-mavericks-debut-nba/
 
