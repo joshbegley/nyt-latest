@@ -1,3 +1,11 @@
+**Judge Orders F.B.I. to Disclose Some Materials in Trump Classified Documents Case**\
+`In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
+https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
+
+**Mikaela Shiffrin's superpower isn't skiing. It's telling the world what it's really like**\
+`Most athletes in dangerous sports experience fear and doubt. It's just that many of them don't talk about it. Mikaela Shiffrin does.`\
+https://nytimes.com/athletic/6127374/2025/02/10/mikaela-shiffrin-injury-recovery-world-championships/
+
 **Durant is moving past trade speculation: 'I’m not entitled to anything'**\
 `Suns star understands the NBA is a business, but admits he has never experienced anything quite like this trade deadline.`\
 https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadline-suns/
