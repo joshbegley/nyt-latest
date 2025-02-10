@@ -1,3 +1,7 @@
+**Drake sued Universal Music Group for defamation for releasing ‘Not Like Us.’**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/drake-sued-universal-music-group-for-defamation-for-releasing-not-like-us
+
 **‘Not Like Us’ won five Grammys last week, including for record and song of the year.**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/not-like-us-won-five-grammys-last-week-including-for-record-and-song-of-the-year
