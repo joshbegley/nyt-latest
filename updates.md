@@ -1,3 +1,7 @@
+**Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
+`He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
+https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
+
 **What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
 `Finland has a secret plan, or two, to handle its broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
 https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
