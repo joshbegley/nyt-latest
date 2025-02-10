@@ -1,3 +1,7 @@
+**Word of the Day: logjam**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/10/learning/word-of-the-day-logjam.html
+
 **Marchand: Tom Brady brought star power to Super Bowl, but failed to say much**\
 `Brady's presence might have made Fox's Super Bowl LIX broadcast feel bigger, but it wasn't by anything he said.`\
 https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-review-patrick-mahomes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124765/2025/02/10/liverpool-slot-plymouth-var/
 **What's the best date for a footballer to be born on - and is it February 5?**\
 `A data-based journey through footballers' birthdays, for no real reason`\
 https://nytimes.com/athletic/6114801/2025/02/10/whats-the-best-date-for-a-footballer-to-be-born-on-and-is-it-february-5/
-
-**England's football wilderness where Liverpool came unstuck**\
-`The county of Devon is better known for scones than soccer but its professional teams are trying to use that to their advantage`\
-https://nytimes.com/athletic/6123026/2025/02/10/exeter-plymouth-liverpool-fa-cup/
 
