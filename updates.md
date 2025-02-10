@@ -1,3 +1,11 @@
+**Team Canada's 4 Nations nuclear option: Could they channel 1987, put MacKinnon, McDavid together?**\
+`Midway through the 1987 Canada Cup, Mike Keenan paired Wayne Gretzky and Mario Lemieux. Could Jon Cooper use the same tactic in 4 Nations?`\
+https://nytimes.com/athletic/6127370/2025/02/10/canada-mackinnon-mcdavid-4-nations/
+
+**Elon Musk Leads Bid to Buy OpenAI for $97.4 Billion**\
+`The billionaire is leading a group of investors in the unsolicited offer, which complicates the start-up’s plan to raise more money.`\
+https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
+
 **Judge Keeps Pause on Program Offering Federal Workers Incentives to Quit**\
 `A federal judge in Massachusetts said the program would continue to be on hold until he issued a ruling. The government had set a new deadline of Monday night for workers to sign up.`\
 https://nytimes.com/2025/02/10/us/politics/trump-judge-deferred-resignation-program.html
