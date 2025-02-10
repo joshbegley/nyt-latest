@@ -1,3 +1,11 @@
+**Justice Dept. to Seek Dismissal of Federal Corruption Case Against Adams**\
+`The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
+https://nytimes.com/2025/02/10/nyregion/trump-pardons-nyc-mayor-eric-adams.html
+
+**Senate Advances Gabbard, Signaling Quick Confirmation**\
+`The test vote indicated that despite early reservations even among some Republicans, the former Democratic congresswoman had the necessary support to be confirmed in a vote expected by Wednesday.`\
+https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
+
 **What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
 `Finland has a secret plan, or two, to handle their broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
 https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
