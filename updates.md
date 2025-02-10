@@ -1,3 +1,7 @@
+**Trump Strengthens Grip on Kennedy Center as 18 Trustees and Chairman Are Removed**\
+`Board members appointed by former President Joseph R. Biden Jr. were scrubbed from an official roster on the center’s website, along with the chairman, David M. Rubenstein.`\
+https://nytimes.com/2025/02/10/arts/music/trump-kennedy-center-board-removed.html
+
 **Tiger Woods delays PGA Tour season debut after death of his mother**\
 `It would've been Woods' first tournament since July 2024, but the emotions following his mother's death led to his change of heart.`\
 https://nytimes.com/athletic/6127034/2025/02/10/tiger-woods-pga-tour-debut-delay-mother-death/
