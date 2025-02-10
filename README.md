@@ -1,7 +1,3 @@
-**Drone Operator Locates Lost Puppy in Deep Snow**\
-`Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
-https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html
-
 **Are You Worried That Our System of Checks and Balances Might Fail?**\
 `In the opening weeks of his second term, President Trump and his administration have been grabbing powers that presidents have never had before. Is this a constitutional crisis?`\
 https://nytimes.com/2025/02/10/learning/are-you-worried-that-our-system-of-checks-and-balances-might-fail.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
 **What I'm seeing from Team USA: Replacing Quinn Hughes, splitting up the Tkachuks, practice lines, more**\
 `Quinn Hughes was "completely devastated" after being forced by injury to withdraw from the international best-on-best event.`\
 https://nytimes.com/athletic/6126376/2025/02/10/usa-4-nations-quinn-hughes-lines-pairings/
+
+**Joy Rider Who Damaged Rare Plants in Death Valley Dunes Remains at Large**\
+`National Park Service officials have yet to identify the person or people who drove onto Eureka Dunes, a protected area with endemic plant species,  more than a month ago.`\
+https://nytimes.com/2025/02/10/us/eureka-dunes-driver-damaged-plants.html
 
