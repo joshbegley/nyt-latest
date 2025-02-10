@@ -1,3 +1,7 @@
+**Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
+`He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
+https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
+
 **Justice Dept. Seeks Dismissal of Federal Corruption Case Against Adams**\
 `The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-charges-doj-trump.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/10/briefing/trumps-new-tariffs-target-foreign-metals
 **Cubs have discussed signing Justin Turner if Alex Bregman goes elsewhere: Sources**\
 `At the age of 40, Turner is a highly accomplished right-handed hitter (.821 career OPS) with tons of postseason experience. `\
 https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-interest/
-
-**What I'm seeing from Team Sweden: 'Phenomenal' goaltending, do-it-all D and lines from first practice**\
-`Sweden coach Sam Hallam: “We’re confident that any of the three (goalie) can start Wednesday night. Good to have the Vezina Trophy winner."`\
-https://nytimes.com/athletic/6127501/2025/02/10/sweden-4-nations-goaltending-lines-pairings/
 
