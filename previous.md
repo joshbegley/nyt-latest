@@ -1,3 +1,7 @@
+**Fresh Wave of Violence as Bangladesh’s Ousted Ex-Leader Addresses Nation**\
+`Students who led a revolution resulting in former Prime Minister Sheikh Hasina fleeing the country in August sparred anew with supporters of her political party.`\
+https://nytimes.com/2025/02/10/world/asia/bangladesh-protest-students-sheikh-hasina.html
+
 **Halftime performer banned from NFL stadiums after holding Sudanese-Palestinian flag**\
 `The league said the individual was part of the 400-member field cast and "hid the item on his person and unveiled it late in the show."`\
 https://nytimes.com/athletic/6126136/2025/02/10/super-bowl-halftime-performer-protest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle
 **Corrections: Feb. 9, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 9, 2025.`\
 https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-9-2025.html
-
-**Submit your Cowboys mailbag questions to Jon Machota**\
-`The offseason is officially underway for every team and the Cowboys have a big to-do list. What questions do you have?`\
-https://nytimes.com/athletic/6126234/2025/02/10/submit-your-cowboys-mailbag-questions-to-jon-machota-2/
 

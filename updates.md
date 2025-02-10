@@ -1,3 +1,7 @@
+**Fresh Wave of Violence as Bangladesh’s Ousted Ex-Leader Addresses Nation**\
+`Students who led a revolution resulting in former Prime Minister Sheikh Hasina fleeing the country in August sparred anew with supporters of her political party.`\
+https://nytimes.com/2025/02/10/world/asia/bangladesh-protest-students-sheikh-hasina.html
+
 **Halftime performer banned from NFL stadiums after holding Sudanese-Palestinian flag**\
 `The league said the individual was part of the 400-member field cast and "hid the item on his person and unveiled it late in the show."`\
 https://nytimes.com/athletic/6126136/2025/02/10/super-bowl-halftime-performer-protest/
