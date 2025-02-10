@@ -34,7 +34,7 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-
 `By Erica L. Green`\
 https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
 
-**Super Bowl Halftime Show Live Updates: Kendrick Lamar Getting Ready to Perform**\
+**Super Bowl Halftime Show Live Updates: Kendrick Lamar Takes the Stage**\
 `The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
 
