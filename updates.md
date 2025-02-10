@@ -1,3 +1,7 @@
+**Farm system heat check: What’s the immediate and future outlook for Cardinals?**\
+`JJ Wetherholt is the top prospect in a minor-league system undergoing a massive transition.`\
+https://nytimes.com/athletic/6122425/2025/02/10/cardinals-farm-system-heat-check/
+
 **The Pulse: A shocking Super Bowl blowout**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6124315/2025/02/10/eagles-chiefs-super-bowl-the-pulse/

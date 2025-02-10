@@ -1,3 +1,7 @@
+**Chiefs' shoddy O-line, WR corps prove too much for Patrick Mahomes to overcome**\
+`The Eagles' defense dominated the Chiefs up front, leaving little chance for Kansas City's playmakers to prove they could meet the moment.`\
+https://nytimes.com/athletic/6125424/2025/02/10/chiefs-offensive-line-super-bowl-lix/
+
 **Farm system heat check: What’s the immediate and future outlook for Cardinals?**\
 `JJ Wetherholt is the top prospect in a minor-league system undergoing a massive transition.`\
 https://nytimes.com/athletic/6122425/2025/02/10/cardinals-farm-system-heat-check/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/podcasts/the-daily/china-trump-trade.html
 **Vance Challenges Courts’ Power, and Trump Targets the Penny**\
 `Plus, why golden retrievers keep losing.`\
 https://nytimes.com/2025/02/10/podcasts/the-headlines/trump-superbowl-vance-penny.html
-
-**Wordle Review No. 1,333**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 11, 2025.`\
-https://nytimes.com/2025/02/10/crosswords/wordle-review-1333.html
 
