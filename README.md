@@ -1,3 +1,7 @@
+**What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
+`Finland has a secret plan, or two, to handle their broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
+https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>With the Super Bowl behind us, everyone can turn their attention back to offseason college football.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/10/us/politics/dei-corporate-america.html
 **Durant is moving past trade speculation: 'I’m not entitled to anything'**\
 `Suns star understands the NBA is a business, but admits he has never experienced anything quite like this trade deadline.`\
 https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadline-suns/
-
-**Judge Orders F.B.I. to Disclose Some Materials in Trump Classified Documents Case**\
-`In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
-https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
 
