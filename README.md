@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`An announcement on tariffs by President Trump.`\
+https://nytimes.com/2025/02/10/briefing/trump-tariffs-super-bowl.html
+
 **Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
 `The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
 https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/style/job-interview-outfit.html
 **Have You Ever Experienced Heartbreak?**\
 `A breakup? The end of a friendship? The death of a pet? Tell us about one such loss and what it meant to you.`\
 https://nytimes.com/2025/02/10/learning/have-you-ever-experienced-heartbreak.html
-
-**This Supreme Court Philosophy Could Constrain Trump**\
-`A federal judge on the legal theory that is often at odds with an authoritarian view of governmental power.`\
-https://nytimes.com/2025/02/10/opinion/supreme-court-philosophy-trump.html
 

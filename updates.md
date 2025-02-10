@@ -1,3 +1,7 @@
+**Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
+`The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
+https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
+
 **Trump 2.0 Heralds an Aggressive Flexing of Power**\
 `President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
 https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html

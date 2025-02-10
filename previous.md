@@ -1,3 +1,7 @@
+**Jamison Battle has earned a spot on the Toronto Raptors one ladder rung at a time**\
+`The 23-year-old has gone from Portsmouth to Las Vegas to Spain and beyond in earning a main roster contract.`\
+https://nytimes.com/athletic/6124890/2025/02/10/jamison-battle-raptors-rockets/
+
 **Trump 2.0 Heralds an Aggressive Flexing of Power**\
 `President Trump’s early moves to slash the federal government and expand American territory represent significant ideological swings from his first term.`\
 https://nytimes.com/2025/02/10/us/politics/trump-ideology-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/learning/have-you-ever-experienced-heartbreak.htm
 **This Supreme Court Philosophy Could Constrain Trump**\
 `A federal judge on the legal theory that is often at odds with an authoritarian view of governmental power.`\
 https://nytimes.com/2025/02/10/opinion/supreme-court-philosophy-trump.html
-
-**This Man Won Birthright Citizenship for All**\
-`When officials denied that he was a citizen, Wong Kim Ark took his case to the Supreme Court and won. Today, that decision is the focus of debate over who can be an American.`\
-https://nytimes.com/2025/02/10/us/this-man-won-birthright-citizenship-for-all.html
 
