@@ -1,3 +1,11 @@
+**‘The White Lotus,’ Plus 9 Things to Watch on TV this Week**\
+`The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
+https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html
+
+**Trump Has Given Netanyahu the Ultimate Gift: A Lifeline**\
+`Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
+https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html
+
 **Wolves and their goalkeeper conundrum**\
 `It seems inconceivable that both Johnstone and Sa can stay, but it is not certain who could stay and who could leave`\
 https://nytimes.com/athletic/6124360/2025/02/10/wolves-goalkeeper-johnstone-sa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6123026/2025/02/10/exeter-plymouth-liverpool-fa-cup
 **Liverpool's rotation luck ran out against Plymouth - will Slot's changes pay off?**\
 `Talk of the quadruple was premature, but the manager may have made the treble much more likely`\
 https://nytimes.com/athletic/6124693/2025/02/10/liverpool-fa-cup-plymouth-argyle/
-
-**Rashford needs to find form. How Villa plan to help achieve that is now clear**\
-`Aston Villa's plan on how to rejuvenate Marcus Rashford's career began to form on Sunday`\
-https://nytimes.com/athletic/6104858/2025/02/10/marcus-rashford-aston-villa-debut-tottenham/
-
-**Fabio Silva interview: 'I didn’t have space to make mistakes. Now I don't put pressure on myself'**\
-`The on-loan Wolverhampton Wanderers striker is rekindling his career at Las Palmas in La Liga and generating rave reviews once again`\
-https://nytimes.com/athletic/6118941/2025/02/10/fabio-silva-wolves-palmas-rangers-interview/
 

@@ -1,3 +1,11 @@
+**‘The White Lotus,’ Plus 9 Things to Watch on TV this Week**\
+`The HBO satire of the rich and well-traveled comes back for a third season. And “Saturday Night Live” hosts its 50th anniversary special.`\
+https://nytimes.com/2025/02/10/arts/television/the-white-lotus-watch-on-tv-this-week.html
+
+**Trump Has Given Netanyahu the Ultimate Gift: A Lifeline**\
+`Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
+https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html
+
 **Wolves and their goalkeeper conundrum**\
 `It seems inconceivable that both Johnstone and Sa can stay, but it is not certain who could stay and who could leave`\
 https://nytimes.com/athletic/6124360/2025/02/10/wolves-goalkeeper-johnstone-sa/
