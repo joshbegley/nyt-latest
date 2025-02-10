@@ -1,6 +1,22 @@
+**Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
+
+**One more stop on a busy presidential day: the Super Bowl.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
+
+**Super Bowl Halftime Show Live Updates: Kendrick Lamar Getting Ready to Perform**\
+`The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
+
+**Lamar’s stagings have grown more elaborate, and ambitious.**\
+`By Niela Orr`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/lamars-stagings-have-grown-more-elaborate-and-ambitious
+
 **Here’s the latest.**\
 `By Joe Coscarelli`\
-https://nytimes.com/2025/02/09/us/heres-the-latest.html
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/heres-the-latest
 
 **What do you think of Fox’s Super Bowl score bug? Share your opinion**\
 `Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/09/business/vought-cfpb-musk-trump.html
 **Trump Says He Might Use U.S. Transit Agency to ‘Kill’ Congestion Pricing**\
 `In an interview with The New York Post, President Trump said that congestion pricing hurt New York City but indicated that he was still talking with Gov. Kathy Hochul.`\
 https://nytimes.com/2025/02/09/nyregion/trump-congestion-pricing-bike-lanes.html
-
-**Trump to Impose Metal Tariffs on Monday, Followed by Broader Levies**\
-`The president said he planned sweeping tariffs on all steel and aluminum imports on Monday and would take other action to even out tariff rates with the rest of the world later this week.`\
-https://nytimes.com/live/2025/02/09/us/trump-administration-updates/trump-tariff-foreign-metals
-
-**The Most Memorable Looks From the Super Bowl Tunnel Walk**\
-`From Travis Kelce’s Ron Burgundy-like suit to Saquon Barkley’s Canadian tuxedo, players from both teams embraced the fact that all eyes would be on them.`\
-https://nytimes.com/2025/02/09/style/super-bowl-tunnel-walk-travis-kelce-saquon-barkley.html
-
-**Seal the Deal**\
-`We’ve got a play date with Emily Rourke’s crossword.`\
-https://nytimes.com/2025/02/09/crosswords/daily-puzzle-2025-02-10.html
-
-**Dodgers, Kiké Hernández agree to new deal: 'Walking through the open door'**\
-`Hernández embodied the club and was embraced by its fan base, but his fit on the 2025 Dodgers was more complicated.`\
-https://nytimes.com/athletic/6124835/2025/02/09/dodgers-kike-hernandez-contract/
 

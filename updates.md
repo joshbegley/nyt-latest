@@ -1,3 +1,23 @@
+**Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
+
+**One more stop on a busy presidential day: the Super Bowl.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-stop-on-a-busy-presidential-day-the-super-bowl
+
+**Super Bowl Halftime Show Live Updates: Kendrick Lamar Getting Ready to Perform**\
+`The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
+
+**Lamar’s stagings have grown more elaborate, and ambitious.**\
+`By Niela Orr`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/lamars-stagings-have-grown-more-elaborate-and-ambitious
+
+**Here’s the latest.**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/heres-the-latest
+
 **Here’s the latest.**\
 `By Joe Coscarelli`\
 https://nytimes.com/2025/02/09/us/heres-the-latest.html
