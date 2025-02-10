@@ -1,3 +1,7 @@
+**Resisting Trump: What Can Be Done?**\
+`Readers respond to the “don’t tune out” editorial. Also: The ethics of trans care; Guantánamo questions; President Trump and the Kennedy Center.`\
+https://nytimes.com/2025/02/10/opinion/trump-resistance.html
+
 **One Very Real Problem Lost in the Politics of Aid Cuts: Child Malnutrition**\
 `Every year it’s a factor in the deaths of two million children worldwide.`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/malnutrition-foreign-aid-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/arts/music/kendrick-lamar-super-bowl-popcast.html
 **Trump’s Actions Have Created a Constitutional Crisis, Scholars Say**\
 `Law professors have long debated what the term means. But now many have concluded that the nation faces a reckoning as President Trump tests the boundaries of executive power.`\
 https://nytimes.com/2025/02/10/us/politics/trump-constitutional-crisis.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6126652/2025/02/10/st-louis-blues-jeremy-rutherford-mailbag-february-2025/
 
