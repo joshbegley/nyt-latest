@@ -1,3 +1,7 @@
+**Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
+`A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
+https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html
+
 **Mahomes throws 2 first-half INTs as Chiefs trail big in Super Bowl first half**\
 `The first interception of Cooper DeJean's NFL career also came on his 22nd birthday.`\
 https://nytimes.com/athletic/6125071/2025/02/09/patrick-mahomes-cooper-dejean-super-bowl-chiefs-eagles-birthday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125010/2025/02/09/alex-bregman-free-agency-cubs-in
 **Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
-
-**Busy Presidential Day Ends at the Super Bowl**\
-`Before becoming the first sitting president to attend a Super Bowl, Mr. Trump played a round of golf with Tiger Woods and announced he’d impose tariffs on metals.`\
-https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
 
