@@ -1,3 +1,15 @@
+**Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
+`A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
+https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html
+
+**Mahomes throws 2 first-half INTs as Chiefs trail big in Super Bowl first half**\
+`The first interception of Cooper DeJean's NFL career also came on his 22nd birthday.`\
+https://nytimes.com/athletic/6125071/2025/02/09/patrick-mahomes-cooper-dejean-super-bowl-chiefs-eagles-birthday/
+
+**Eagles' Saquon Barkley sets combined rushing yards record for single season**\
+`In his first year with Eagles, Barkley has topped Terrell Davis to set the record for most rushing yards in the regular season and playoffs.`\
+https://nytimes.com/athletic/6089695/2025/02/09/saquon-barkley-rushing-yards-single-season-mark-eagles/
+
 **Everything you need to know about future host cities for next 2 Super Bowls**\
 `As the league closes its chapter on the 2024 season, a look ahead to Super Bowl LX and beyond.`\
 https://nytimes.com/athletic/6116225/2025/02/09/super-bowl-60-location-logo-host-city/
