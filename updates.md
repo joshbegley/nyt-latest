@@ -1,3 +1,7 @@
+**Do You Know These Literary Power Couples and Their Work?**\
+`With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
+https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
+
 **Champions League knockout round betting preview: Will Man City's woes worsen?**\
 `Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
 https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
