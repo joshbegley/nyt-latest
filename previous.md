@@ -1,3 +1,15 @@
+**U.S. Woman Sues Tate Brothers, Saying They Lured Her to Romania for Sex Work**\
+`A woman who gave testimony to Romanian prosecutors accused Andrew and Tristan Tate in a lawsuit of conspiring to traffic her for sex work. The brothers have sued her for defamation.`\
+https://nytimes.com/2025/02/10/world/europe/andrew-tate-tristan-lawsuit-us.html
+
+**FA Cup fifth-round draw: Man Utd vs Fulham, Man City vs Plymouth**\
+`Elsewhere, Carabao Cup finalists Newcastle United will host Brighton & Hove Albion.`\
+https://nytimes.com/athletic/6125699/2025/02/10/fa-cup-fifth-round-draw/
+
+**Judge Rules the White House Failed to Comply With Court Order**\
+`The federal judge in Rhode Island said the Trump administration had failed to comply with his order unfreezing billions of dollars in federal grants.`\
+https://nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.html
+
 **Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
 `Two waves of winter weather are marching east. Not all of it will be pretty.`\
 https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6127034/2025/02/10/tiger-woods-pga-tour-debut-delay
 **I.R.S. Agents Are Asked to Help With Immigration Crackdown**\
 `The request by the Department of Homeland Security could suck resources away from tax enforcement efforts.`\
 https://nytimes.com/2025/02/10/us/politics/irs-dhs-immigration.html
-
-**AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
-`After a wild weekend of college basketball in which the No. 1 and No. 2 teams both lost, No. 2 dropped but No. 1 held steady.`\
-https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
-
-**A Ramen That Merges Japan and the South**\
-`Once thought of as a byproduct of collard greens, brothy, complex potlikker takes on new life as a wonderful base for a Japanese staple.`\
-https://nytimes.com/2025/02/10/dining/potlikker.html
-
-**Trump Wants to Clear Bombs From Gaza. He’s Sidelined Groups That Would Do It.**\
-`Shortly before the president said he would have to clear unexploded bombs to redevelop Gaza, he ordered all U.S.-funded demining groups globally to stop their work.`\
-https://nytimes.com/2025/02/10/us/politics/trump-gaza-bombs.html
 

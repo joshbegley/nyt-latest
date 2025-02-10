@@ -1,3 +1,15 @@
+**U.S. Woman Sues Tate Brothers, Saying They Lured Her to Romania for Sex Work**\
+`A woman who gave testimony to Romanian prosecutors accused Andrew and Tristan Tate in a lawsuit of conspiring to traffic her for sex work. The brothers have sued her for defamation.`\
+https://nytimes.com/2025/02/10/world/europe/andrew-tate-tristan-lawsuit-us.html
+
+**FA Cup fifth-round draw: Man Utd vs Fulham, Man City vs Plymouth**\
+`Elsewhere, Carabao Cup finalists Newcastle United will host Brighton & Hove Albion.`\
+https://nytimes.com/athletic/6125699/2025/02/10/fa-cup-fifth-round-draw/
+
+**Judge Rules the White House Failed to Comply With Court Order**\
+`The federal judge in Rhode Island said the Trump administration had failed to comply with his order unfreezing billions of dollars in federal grants.`\
+https://nytimes.com/2025/02/10/us/trump-unfreezing-federal-grants-judge-ruling.html
+
 **Multiple Winter Storms Will Bring More Icy, Snowy Weather This Week**\
 `Two waves of winter weather are marching east. Not all of it will be pretty.`\
 https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.html
