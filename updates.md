@@ -1,3 +1,11 @@
+**Top Judge Favors a Second Chance for Those Languishing in Prison**\
+`Rowan Wilson, the chief judge of New York State’s highest court, used his State of the Judiciary address to push back against prolonged incarceration.`\
+https://nytimes.com/2025/02/10/nyregion/second-look-prison-ny-judge-wilson.html
+
+**Scoop City: How the Eagles dominated the Chiefs**\
+`Inside: Why it looked so easy for Philly, what's next for both teams and your NFL offseason schedule. Let's dive in.`\
+https://nytimes.com/athletic/6126446/2025/02/10/eagles-chiefs-super-bowl-59-dominant-how-fangio-scoop-city/
+
 **USMNT Player Tracker: Kelman ruffles City, Adams' target and a new challenge for Pulisic?**\
 `Our roundup of the U.S. contingent's contributions in Europe also takes in Gio Reyna's latest cameo and a penalty shootout hero`\
 https://nytimes.com/athletic/6124962/2025/02/10/usmnt-pulisic-adams-kelman-tracker/
