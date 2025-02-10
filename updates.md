@@ -1,3 +1,19 @@
+**Kendrick Lamar Uses His Super Bowl Halftime Show to Settle a Vendetta**\
+`The first rapper to headline the N.F.L.’s biggest stage solo made his Drake diss “Not Like Us” the centerpiece of his set at the expense of a larger statement.`\
+https://nytimes.com/2025/02/09/arts/music/kendrick-lamar-super-bowl-halftime-review.html
+
+**Everything you need to know about future host cities for next 2 Super Bowls**\
+`As the league closes its chapter on the 2024 season, a look ahead to Super Bowl LX and beyond.`\
+https://nytimes.com/athletic/6116225/2025/02/09/super-bowl-60-location-logo-host-city/
+
+**Travis Kelce passes Jerry Rice for most career Super Bowl receptions**\
+`Kelce moved past Lynn Swann and Rob Gronkowski into second place on the career Super Bowl receiving yards list, now sitting at 389.`\
+https://nytimes.com/athletic/6125177/2025/02/09/travis-kelce-super-bowl-receptions-record-chiefs/
+
+**Super Bowl 2026 betting odds: Can Eagles repeat? Early favorites, long-shot odds**\
+`Early odds for Super Bowl 2026 are out! Which teams are at the top, and which have moved the most since last year. Can you guess last place?`\
+https://nytimes.com/athletic/6122481/2025/02/09/super-bowl-2026-eagles-chiefs-betting-favorites-odds/
+
 **Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
 `A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
 https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html
