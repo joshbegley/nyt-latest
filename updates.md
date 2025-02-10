@@ -1,3 +1,11 @@
+**Nick Sirianni was a 'hothead-in-a-headset.' Now he's a Super Bowl champion**\
+`"I think people have an opinion of the way they think a head coach should be," Sirianni said. “But you’ve got to be who you are."`\
+https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-sirianni/
+
+**Trump Muses About a Third Term, Over and Over Again**\
+`The president’s suggestion that he would seek to stay in office beyond the constitutional limit comes as he has pushed to expand executive authority.`\
+https://nytimes.com/2025/02/10/us/politics/trump-third-term.html
+
 **Fox Acquires Firm Behind Conservative and True Crime Podcasts**\
 `Tucker Carlson, Nancy Grace, Megyn Kelly and Piers Morgan are among the clients of Red Seat Ventures, which now joins Rupert Murdoch’s empire.`\
 https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html

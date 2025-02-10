@@ -1,3 +1,11 @@
+**Nick Sirianni was a 'hothead-in-a-headset.' Now he's a Super Bowl champion**\
+`"I think people have an opinion of the way they think a head coach should be," Sirianni said. “But you’ve got to be who you are."`\
+https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-sirianni/
+
+**Trump Muses About a Third Term, Over and Over Again**\
+`The president’s suggestion that he would seek to stay in office beyond the constitutional limit comes as he has pushed to expand executive authority.`\
+https://nytimes.com/2025/02/10/us/politics/trump-third-term.html
+
 **Fox Acquires Firm Behind Conservative and True Crime Podcasts**\
 `Tucker Carlson, Nancy Grace, Megyn Kelly and Piers Morgan are among the clients of Red Seat Ventures, which now joins Rupert Murdoch’s empire.`\
 https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl
 **To understand the Josh Allen-Lamar Jackson MVP vote, look to ... Nikola Jokić?**\
 `Until Lamar Jackson wins in the playoffs, he might struggle to win a third MVP, no matter how well he plays. Just ask the Nuggets' star.`\
 https://nytimes.com/athletic/6125668/2025/02/10/josh-allen-mvp-lamar-jackson-vote/
-
-**NBA Rewind: As LeBron and Steph team up again, will the All-Star Game be better?**\
-`The NBA tweaked its All-Star game format. Will it return to glory? Plus, the latest stock report.`\
-https://nytimes.com/athletic/6122578/2025/02/10/nba-rewind-lebron-james-steph-curry-lakers-warriors-nba-all-star/
-
-**Myles Garrett wants out. Should we take that at face value? And what does he have left?**\
-`Unless Garrett follows Reggie White's career arc, there's a good chance we've already seen his peak performance.`\
-https://nytimes.com/athletic/6125702/2025/02/10/myles-garrett-browns-trade-request-future/
 
