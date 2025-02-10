@@ -1,3 +1,7 @@
+**Breaking Down Kendrick Lamar’s Drake-centric Super Bowl Halftime Show**\
+`On a postgame episode of Popcast, we react to Lamar’s performance, including the tactical deployment of “Not Like Us” and a Serena Williams cameo.`\
+https://nytimes.com/2025/02/10/arts/music/kendrick-lamar-super-bowl-popcast.html
+
 **Trump’s Actions Have Created a Constitutional Crisis, Scholars Say**\
 `Law professors have long debated what the term means. But now many have concluded that the nation faces a reckoning as President Trump tests the boundaries of executive power.`\
 https://nytimes.com/2025/02/10/us/politics/trump-constitutional-crisis.html
