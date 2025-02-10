@@ -1,3 +1,7 @@
+**In ‘Festen,’ a Nightmare Birthday Becomes an Opera**\
+`The composer who put Anna Nicole Smith’s life onstage has a new piece: an adaptation of a cult movie about child abuse.`\
+https://nytimes.com/2025/02/10/arts/music/festen-opera-mark-anthony-turnage.html
+
 **Bears salary-cap analysis: How GM Ryan Poles can take advantage of resources this offseason**\
 `The Bears are flush with cap space once again with only one player who is in line for an extension. Here's our annual breakdown.`\
 https://nytimes.com/athletic/6115626/2025/02/10/bears-salary-cap-analysis-ryan-poles/
