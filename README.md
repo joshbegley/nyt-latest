@@ -1,3 +1,7 @@
+**Eagles' Saquon Barkley sets combined rushing yards record for single season**\
+`In his first year with Eagles, Barkley has topped Terrell Davis to set the record for most rushing yards in the regular season and playoffs.`\
+https://nytimes.com/athletic/6089695/2025/02/09/saquon-barkley-rushing-yards-single-season-mark-eagles/
+
 **Is ‘Not Like Us,’ the searing diss track in which Lamar takes on Drake, too controversial for the Super Bowl?**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not-like-us-the-searing-diss-track-in-which-lamar-takes-on-drake-too-controversial-for-the-super-bowl
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/09/us/trump-administration-updates/one-more-sto
 **Super Bowl Halftime Show Live Updates: Kendrick Lamar Getting Ready to Perform**\
 `The rapper is headlining the show a week after “Not Like Us,” his diss track taking aim at Drake, won five Grammys.`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
-
-**Lamar’s stagings have grown more elaborate, and ambitious.**\
-`By Niela Orr`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/lamars-stagings-have-grown-more-elaborate-and-ambitious
 
