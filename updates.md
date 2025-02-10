@@ -1,3 +1,19 @@
+**Here Are the Charges Against Eric Adams**\
+`The indictment on corruption and fraud charges was the first against a sitting mayor in modern New York City history.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-charges.html
+
+**Read the Justice Department memo about Eric Adams’s corruption case**\
+`The Justice Department on Monday told federal prosecutors in Manhattan to drop the corruption charges against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
+
+**Here’s the latest.**\
+`By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld, Jonah E. Bromwich, Glenn Thrush, Benjamin Weiser and Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/heres-the-latest
+
+**Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
+`The president turned up the pressure on the two nations to agree to his plan for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
+https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
+
 **Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
 `He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
