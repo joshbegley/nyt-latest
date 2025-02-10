@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>With the Super Bowl behind us, everyone can turn their attention back to offseason college football.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6127681/2025/02/10/submit-a-question-for-stewart-mandels-college-football-mailbag-292/
+
 **Drone Operator Locates Lost Puppy in Deep Snow**\
 `Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
 https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html

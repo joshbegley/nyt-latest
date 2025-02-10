@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>With the Super Bowl behind us, everyone can turn their attention back to offseason college football.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6127681/2025/02/10/submit-a-question-for-stewart-mandels-college-football-mailbag-292/
+
 **Drone Operator Locates Lost Puppy in Deep Snow**\
 `Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
 https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadlin
 **Judge Orders F.B.I. to Disclose Some Materials in Trump Classified Documents Case**\
 `In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
 https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
-
-**What I'm seeing from Team USA: Replacing Quinn Hughes, splitting up the Tkachuks, practice lines, more**\
-`Quinn Hughes was "completely devastated" after being forced by injury to withdraw from the international best-on-best event.`\
-https://nytimes.com/athletic/6126376/2025/02/10/usa-4-nations-quinn-hughes-lines-pairings/
 
