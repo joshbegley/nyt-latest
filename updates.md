@@ -63,6 +63,11 @@ https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline
 `\
 https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
 
+**Jets trade targets: 10 new options emerge as the deadline nears**\
+`Breaking down trade candidates for the Jets, how the team could use them, the realism factor — or lack thereof — and more.
+`\
+https://nytimes.com/athletic/6122030/2025/02/10/winnipeg-jets-nhl-trade-deadline-targets/
+
 **Trump Calls Gaza a ‘Big Real Estate Site,’ Reiterating Plan for U.S. Takeover**\
 `President Trump, speaking on his way to the Super Bowl, also mentioned building “beautiful sites for the people, the Palestinians, to live in.”`\
 https://nytimes.com/2025/02/10/world/middleeast/trump-gaza-us-takeover.html
