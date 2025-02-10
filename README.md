@@ -1,3 +1,35 @@
+**The Chiefs wouldn't let Saquon Barkley beat them. The Eagles made sure it didn't matter**\
+`Barkley averaged just 2.3 yards per carry, but Jalen Hurts, the defense and the Eagles' coaching staff more than made up for it.`\
+https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl-jalen-hurts/
+
+**To understand the Josh Allen-Lamar Jackson MVP vote, look to ... Nikola Jokić?**\
+`Until Lamar Jackson wins in the playoffs, he might struggle to win a third MVP, no matter how well he plays. Just ask the Nuggets' star.`\
+https://nytimes.com/athletic/6125668/2025/02/10/josh-allen-mvp-lamar-jackson-vote/
+
+**NBA Rewind: As LeBron and Steph team up again, will the All-Star Game be better?**\
+`The NBA tweaked its All-Star game format. Will it return to glory? Plus, the latest stock report.`\
+https://nytimes.com/athletic/6122578/2025/02/10/nba-rewind-lebron-james-steph-curry-lakers-warriors-nba-all-star/
+
+**Myles Garrett wants out. Should we take that at face value? And what does he have left?**\
+`Unless Garrett follows Reggie White's career arc, there's a good chance we've already seen his peak performance.`\
+https://nytimes.com/athletic/6125702/2025/02/10/myles-garrett-browns-trade-request-future/
+
+**The Hall of Fame's rule changes did not fix the problem. Here's how to do so**\
+`The Pro Football Hall of Fame selected its smallest class in 20 years without raising the bar for enshrinement. Here's why.`\
+https://nytimes.com/athletic/6125655/2025/02/10/nfl-hall-of-fame-rule-changes/
+
+**Guardians fan survey: How do you feel about the state of the franchise?**\
+`There’s plenty to discuss about the Cleveland Guardians.`\
+https://nytimes.com/athletic/6115660/2025/02/10/guardians-fan-survey-how-do-you-feel-about-the-state-of-the-franchise/
+
+**Patrick Mahomes’ legacy, a shaken Chiefs dynasty and what comes next: Sando’s Pick Six**\
+`The Chiefs' three-peat dreams are dead, leaving Mahomes right where Tom Brady once was. What can Kansas City learn from this?`\
+https://nytimes.com/athletic/6120617/2025/02/10/patrick-mahomes-chiefs-super-bowl-loss/
+
+**Padres 2025 spring training preview: Thoughts on every pitcher headed to camp**\
+`The Padres need an arm or two this season. They'll have plenty to look at in spring training. Let's break them down.`\
+https://nytimes.com/athletic/6097599/2025/02/10/padres-2025-spring-training-preview-pitchers/
+
 **Do You Know These Literary Power Couples and Their Work?**\
 `With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
 https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
@@ -5,36 +37,4 @@ https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
 **Champions League knockout round betting preview: Will Man City's woes worsen?**\
 `Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
 https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
-
-**Nesta rehired by Monza seven weeks after being fired**\
-`The 48-year-old former centre-back was sacked on December 23 after winning just one of his 17 league matches in charge.`\
-https://nytimes.com/athletic/6126011/2025/02/10/monza-manager-nesta/
-
-**FA Cup round four betting review: Could this be the year of the giant killers?**\
-`We review the weekend's FA Cup results and the betting permutations for the weeks ahead. `\
-https://nytimes.com/athletic/6125891/2025/02/10/fa-cup-round-four-betting-review-could-this-be-the-year-of-the-giant-killers/
-
-**Was this Travis Kelce's last Super Bowl? He has tough decision after Chiefs' loss**\
-`Kelce, the future Hall of Fame tight end, has much to ponder as retirement questions swirl following Kansas City's loss to Philadelphia.`\
-https://nytimes.com/athletic/6125513/2025/02/10/travis-kelce-chiefs-super-bowl-retirement-question/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Post your questions below and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6125600/2025/02/10/inside-newcastle-live-qa-arsenal-birmingham-cup/
-
-**Trump Calls Gaza a ‘Big Real Estate Site,’ Reiterating Plan for U.S. Takeover**\
-`President Trump, speaking on his way to the Super Bowl, also mentioned building “beautiful sites for the people, the Palestinians, to live in.”`\
-https://nytimes.com/2025/02/10/world/middleeast/trump-gaza-us-takeover.html
-
-**The Athletic FC: Plymouth stun Liverpool, FA Cup wonderstrikes, Ancelotti's four-star problem**\
-`Today in TAFC: Plymouth end Liverpool's quadruple hopes, Barca close gap in La Liga, and some FA Cup long-range bangers...`\
-https://nytimes.com/athletic/6125605/2025/02/10/plymouth-liverpool-fa-cup-real-madrid/
-
-**Israeli Police Raid Palestinian Bookshops in East Jerusalem**\
-`The police said the stores were selling books that supported terrorism, and that two of their owners had been arrested. A brother of the owners decried the raid as “political persecution.”`\
-https://nytimes.com/2025/02/10/world/middleeast/israel-east-jerusalem-bookstore.html
-
-**The Jets' 20 options to replace Aaron Rodgers at quarterback: Cousins, Fields among them**\
-`A look at potential free-agent, trade and draft targets, as well as the in-house options.`\
-https://nytimes.com/athletic/6124828/2025/02/10/new-york-jets-next-qb-aaron-rodgers/
 
