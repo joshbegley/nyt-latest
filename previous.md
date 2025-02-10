@@ -1,3 +1,23 @@
+**Confusion Reigns as ‘a Wrecking Ball’ Hits the Consumer Bureau**\
+`Since the acting director of the Consumer Financial Protection Bureau issued stop-work orders, employees have been trying to decipher exactly what they mean.`\
+https://nytimes.com/2025/02/10/business/cfpb-shutdown-confusion.html
+
+**Trump’s New Tariffs Target Foreign Metals**\
+`Also, Elon Musk led a bid to buy OpenAI. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/02/10/briefing/trumps-new-tariffs-target-foreign-metals.html
+
+**Cubs have discussed signing Justin Turner if Alex Bregman goes elsewhere: Sources**\
+`At the age of 40, Turner is a highly accomplished right-handed hitter (.821 career OPS) with tons of postseason experience. `\
+https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-interest/
+
+**What I'm seeing from Team Sweden: 'Phenomenal' goaltending, do-it-all D and lines from first practice**\
+`Sweden coach Sam Hallam: “We’re confident that any of the three (goalie) can start Wednesday night. Good to have the Vezina Trophy winner."`\
+https://nytimes.com/athletic/6127501/2025/02/10/sweden-4-nations-goaltending-lines-pairings/
+
+**How Companies Are Navigating the D.E.I. Backlash**\
+`Three main responses are emerging in corporate America on diversity, equity and inclusion: retreating, quietly sticking with it and standing up for it.`\
+https://nytimes.com/2025/02/10/us/politics/dei-corporate-america.html
+
 **Durant is moving past trade speculation: 'I’m not entitled to anything'**\
 `Suns star understands the NBA is a business, but admits he has never experienced anything quite like this trade deadline.`\
 https://nytimes.com/athletic/6127324/2025/02/10/kevin-durant-talks-trade-deadline-suns/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/10/us/eureka-dunes-driver-damaged-plants.html
 **Behind the Scenes at the Westminster Dog Show**\
 `With the event returning to Midtown Manhattan for the first time since 2020, thousands of dogs flooded the city with a single goal in mind: best in show.`\
 https://nytimes.com/2025/02/10/style/westminster-dog-show-photos.html
-
-**U.N. Suspends Humanitarian Work in Yemeni Area After Houthis Detain More Staff**\
-`The total employees arrested since 2021 has risen to 24, a U.N. spokesman said. The Iran-backed Houthis have held them on murky charges of espionage and foreign intervention.`\
-https://nytimes.com/2025/02/10/world/middleeast/united-nations-yemen.html
-
-**Mikaela Shiffrin's superpower isn't skiing. It's telling the world what it's really like**\
-`Most athletes in dangerous sports experience fear and doubt. It's just that many of them don't talk about it. Mikaela Shiffrin does.`\
-https://nytimes.com/athletic/6127374/2025/02/10/mikaela-shiffrin-injury-recovery-world-championships/
-
-**What I'm seeing from Team Canada: Latest on Sidney Crosby and lines from a 'super intense' first practice**\
-`Canada opened practice Monday ahead of 4 Nations with a relieving injury return and a first look at its plan for lines and pairings.`\
-https://nytimes.com/athletic/6127376/2025/02/10/canada-4-nations-crosby-lines-pairings/
-
-**Warriors at Bucks: How to watch, odds as Jimmy Butler tries to rally Golden State**\
-`Jimmy Butler and the Golden State Warriors are a fascinating if awkward coupling. They're on NBA TV Monday night.`\
-https://nytimes.com/athletic/6127382/2025/02/10/warriors-bucks-how-to-watch-odds-preview-jimmy-butler-stephen-curry/
-
-**10 Writing Prompts on Love, Dating and Relationships**\
-`These questions invite you to reflect on the role that love — in all its forms — plays in your life.`\
-https://nytimes.com/2025/02/10/learning/10-writing-prompts-on-love-dating-and-relationships.html
 

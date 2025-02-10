@@ -1,3 +1,23 @@
+**Confusion Reigns as ‘a Wrecking Ball’ Hits the Consumer Bureau**\
+`Since the acting director of the Consumer Financial Protection Bureau issued stop-work orders, employees have been trying to decipher exactly what they mean.`\
+https://nytimes.com/2025/02/10/business/cfpb-shutdown-confusion.html
+
+**Trump’s New Tariffs Target Foreign Metals**\
+`Also, Elon Musk led a bid to buy OpenAI. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/02/10/briefing/trumps-new-tariffs-target-foreign-metals.html
+
+**Cubs have discussed signing Justin Turner if Alex Bregman goes elsewhere: Sources**\
+`At the age of 40, Turner is a highly accomplished right-handed hitter (.821 career OPS) with tons of postseason experience. `\
+https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-interest/
+
+**What I'm seeing from Team Sweden: 'Phenomenal' goaltending, do-it-all D and lines from first practice**\
+`Sweden coach Sam Hallam: “We’re confident that any of the three (goalie) can start Wednesday night. Good to have the Vezina Trophy winner."`\
+https://nytimes.com/athletic/6127501/2025/02/10/sweden-4-nations-goaltending-lines-pairings/
+
+**How Companies Are Navigating the D.E.I. Backlash**\
+`Three main responses are emerging in corporate America on diversity, equity and inclusion: retreating, quietly sticking with it and standing up for it.`\
+https://nytimes.com/2025/02/10/us/politics/dei-corporate-america.html
+
 **Judge Orders F.B.I. to Disclose Some Materials in Trump Classified Documents Case**\
 `In her order, Judge Beryl Howell cited the fact that the case against Donald J. Trump no longer exists as a reason to force the F.B.I. to disclose some of its still secret investigative records.`\
 https://nytimes.com/2025/02/10/us/politics/trump-classified-documents.html
