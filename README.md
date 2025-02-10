@@ -1,3 +1,7 @@
+**Elon Musk Leads Bid to Buy OpenAI for $97.4 Billion**\
+`The billionaire is leading a group of investors in the unsolicited offer, which complicates the start-up’s plan to change its nonprofit status.`\
+https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
+
 **Tuesday Briefing: Trump’s New Tariff Fight**\
 `Plus, Kendrick Lamar’s Super Bowl show.`\
 https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech-summit.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/02/10/nyregion/egyptian-relic-smuggling-plea.html
 **Luis Rubiales trial: Spain women's coach Montse Tome did not know sexual violence protocol existed**\
 `Tome was assistant coach at the 2023 Women's World Cup, where Rubiales kissed the Spain striker Hermoso after they won the final`\
 https://nytimes.com/athletic/6127181/2025/02/10/rubiales-trial-hermoso-montse-tome-rfef-protocol/
-
-**Fiery Directives Under Trump’s Justice Dept. Signals a Significant Shift**\
-`The new tone of the department, current and former officials say, appears to promise a campaign of intimidation against career employees viewed as insufficiently loyal.`\
-https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
-
-**Bus Plunges off Bridge in Guatemala City, Killing at Least 53**\
-`The bus collided with other vehicles on a main bridge in Guatemala’s capital before falling into a ravine early Monday morning.`\
-https://nytimes.com/2025/02/10/world/americas/guatemala-bus-crash-bridge.html
 
