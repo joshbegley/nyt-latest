@@ -1,3 +1,11 @@
+**China Is at the Heart of Trump Tariffs on Steel and Aluminum**\
+`Existing American tariffs already restrict steel and aluminum shipments from China, which is now flooding other markets with its exports instead.`\
+https://nytimes.com/2025/02/10/business/china-trump-tariffs-steel-aluminum.html
+
+**What we learned from Big Ten athletic departments' 2024 finances**\
+`The athletic departments of the Big Ten’s 16 public universities spent nearly $3 billion during fiscal year 2024. How much did they make?`\
+https://nytimes.com/athletic/6123382/2025/02/10/big-ten-athletic-department-financial-statements/
+
 **'It's going to hurt': Misery, not history for Chiefs after worst performance of season**\
 `The Eagles dominated the Chiefs, who blew their chance to become the first team to win three consecutive Super Bowls.`\
 https://nytimes.com/athletic/6125534/2025/02/10/chiefs-patrick-mahomes-super-bowl-misery/
