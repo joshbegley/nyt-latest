@@ -1,3 +1,7 @@
+**Scientists Detect Shape-Shifting Along Earth’s Solid Inner Core**\
+`The new research adds to the mysteries of the planet’s deepest interior region.`\
+https://nytimes.com/2025/02/10/science/inner-core-earth-shape-change.html
+
 **What I'm hearing about the Penguins: Rakell trade value, Crosby's health**\
 `What are the chances of a Rickard Rakell trade? How healthy Sidney Crosby? What's the latest on the Penguins' prospects? Josh Yohe answers.`\
 https://nytimes.com/athletic/6126420/2025/02/10/penguins-sidney-crosby-4-nations/

@@ -1,3 +1,7 @@
+**Scientists Detect Shape-Shifting Along Earth’s Solid Inner Core**\
+`The new research adds to the mysteries of the planet’s deepest interior region.`\
+https://nytimes.com/2025/02/10/science/inner-core-earth-shape-change.html
+
 **What I'm hearing about the Penguins: Rakell trade value, Crosby's health**\
 `What are the chances of a Rickard Rakell trade? How healthy Sidney Crosby? What's the latest on the Penguins' prospects? Josh Yohe answers.`\
 https://nytimes.com/athletic/6126420/2025/02/10/penguins-sidney-crosby-4-nations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126686/2025/02/10/joao-felix-milan-chelsea-future/
 **Top Judge Favors a Second Chance for Those Languishing in Prison**\
 `Rowan Wilson, the chief judge of New York State’s highest court, used his State of the Judiciary address to push back against prolonged incarceration.`\
 https://nytimes.com/2025/02/10/nyregion/second-look-prison-ny-judge-wilson.html
-
-**Scoop City: How the Eagles dominated the Chiefs**\
-`Inside: Why it looked so easy for Philly, what's next for both teams and your NFL offseason schedule. Let's dive in.`\
-https://nytimes.com/athletic/6126446/2025/02/10/eagles-chiefs-super-bowl-59-dominant-how-fangio-scoop-city/
 
