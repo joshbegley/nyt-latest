@@ -1,3 +1,7 @@
+**A Super Bowl Halftime Performer Surprised Organizers With a Sudan-Gaza Flag**\
+`“No one involved with the production was aware of the individual’s intent,” the N.F.L. said in a statement about the protest during Kendrick Lamar’s show.`\
+https://nytimes.com/2025/02/09/us/sudan-gaza-flag-protest.html
+
 **Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
 `A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
 https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html

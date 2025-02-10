@@ -1,3 +1,7 @@
+**A Super Bowl Halftime Performer Surprised Organizers With a Sudan-Gaza Flag**\
+`“No one involved with the production was aware of the individual’s intent,” the N.F.L. said in a statement about the protest during Kendrick Lamar’s show.`\
+https://nytimes.com/2025/02/09/us/sudan-gaza-flag-protest.html
+
 **Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
 `A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
 https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/not-li
 **Alex Bregman could represent a legacy-shaping deal for Cubs president Jed Hoyer**\
 `Adding Bregman would confirm the Cubs as the overwhelming favorite to win the National League Central.`\
 https://nytimes.com/athletic/6125010/2025/02/09/alex-bregman-free-agency-cubs-interest/
-
-**Since the N.F.L. teamed up with Roc Nation in 2019, halftime shows have featured hip-hop and R&B.**\
-`By Emmanuel Morgan`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/since-the-nfl-teamed-up-with-roc-nation-in-2019-halftime-shows-have-featured-hip-hop-and-rb
 
