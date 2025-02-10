@@ -1,3 +1,7 @@
+**Giants farm system heat check: What’s the immediate and future outlook?**\
+`The Giants' system is in the bottom third of baseball. But there are still prospect who could impact the team this season and in 2027.`\
+https://nytimes.com/athletic/6114206/2025/02/10/sf-giants-farm-system-status/
+
 **Scientists Detect Shape-Shifting Along Earth’s Solid Inner Core**\
 `The new research adds to the mysteries of the planet’s deepest interior region.`\
 https://nytimes.com/2025/02/10/science/inner-core-earth-shape-change.html

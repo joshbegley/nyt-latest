@@ -1,3 +1,7 @@
+**Giants farm system heat check: What’s the immediate and future outlook?**\
+`The Giants' system is in the bottom third of baseball. But there are still prospect who could impact the team this season and in 2027.`\
+https://nytimes.com/athletic/6114206/2025/02/10/sf-giants-farm-system-status/
+
 **Scientists Detect Shape-Shifting Along Earth’s Solid Inner Core**\
 `The new research adds to the mysteries of the planet’s deepest interior region.`\
 https://nytimes.com/2025/02/10/science/inner-core-earth-shape-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/opinion/malnutrition-foreign-aid-trump.html
 **Chelsea's Joao Felix says he would be open to staying at Milan beyond loan spell**\
 `The 25-year-old joined Milan from Chelsea on deadline day on a temporary deal until the end of 2024-25.`\
 https://nytimes.com/athletic/6126686/2025/02/10/joao-felix-milan-chelsea-future/
-
-**Top Judge Favors a Second Chance for Those Languishing in Prison**\
-`Rowan Wilson, the chief judge of New York State’s highest court, used his State of the Judiciary address to push back against prolonged incarceration.`\
-https://nytimes.com/2025/02/10/nyregion/second-look-prison-ny-judge-wilson.html
 
