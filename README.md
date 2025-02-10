@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld, Jonah E. Bromwich, Glenn Thrush, Benjamin Weiser and Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/heres-the-latest
+
+**Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
+`The president turned up the pressure on the two nations to agree to his plan for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
+https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
+
 **Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
 `He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/02/10/learning/are-you-worried-that-our-system-of-check
 **Confusion Reigns as ‘a Wrecking Ball’ Hits the Consumer Bureau**\
 `Since the acting director of the Consumer Financial Protection Bureau issued stop-work orders, employees have been trying to decipher exactly what they mean.`\
 https://nytimes.com/2025/02/10/business/cfpb-shutdown-confusion.html
-
-**Trump’s New Tariffs Target Foreign Metals**\
-`Also, Elon Musk led a bid to buy OpenAI. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/02/10/briefing/trumps-new-tariffs-target-foreign-metals.html
-
-**Cubs have discussed signing Justin Turner if Alex Bregman goes elsewhere: Sources**\
-`At the age of 40, Turner is a highly accomplished right-handed hitter (.821 career OPS) with tons of postseason experience. `\
-https://nytimes.com/athletic/6127585/2025/02/10/chicago-cubs-justin-turner-interest/
 
