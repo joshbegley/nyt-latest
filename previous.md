@@ -1,3 +1,11 @@
+**Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
+`It is unclear if the request to drop the indictment against the New York City mayor will sway enough disaffected voters to his side.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
+
+**DNA and a Thumbprint Help Authorities Solve 2003 Long Island Murder**\
+`A former neighbor of Edna Schubert, 88, who was beaten to death in her Suffolk County home, was arrested after a retired detective urged the use of new technology in the case.`\
+https://nytimes.com/2025/02/10/us/long-island-murder-cold-case-thumbprint.html
+
 **Here Are the Charges Against Eric Adams**\
 `The indictment on corruption and fraud charges was the first against a sitting mayor in modern New York City history.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-charges.html
@@ -29,14 +37,4 @@ https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
 **What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
 `Finland has a secret plan, or two, to handle its broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
 https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>With the Super Bowl behind us, everyone can turn their attention back to offseason college football.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6127681/2025/02/10/submit-a-question-for-stewart-mandels-college-football-mailbag-292/
-
-**Drone Operator Locates Lost Puppy in Deep Snow**\
-`Chad Tavernia, who specializes in finding lost pets with his thermal drone, saved a lost puppy in upstate New York when he spotted her heat signature in a snow-covered cornfield.`\
-https://nytimes.com/video/us/100000009982196/drone-operator-locates-lost-puppy.html
 
