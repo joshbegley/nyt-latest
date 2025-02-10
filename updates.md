@@ -1,3 +1,7 @@
+**Halftime performer banned from NFL stadiums after holding Sudanese-Palestinian flag**\
+`The league said the individual was part of the 400-member field cast and "hid the item on his person and unveiled it late in the show."`\
+https://nytimes.com/athletic/6126136/2025/02/10/super-bowl-halftime-performer-protest/
+
 **Trump Argues That Courts Cannot Block Musk’s Team From Treasury Systems**\
 `The president’s lawyers argued that the distinction between civil servants and political appointees was unworkable and unconstitutional. A hearing is set for Friday.`\
 https://nytimes.com/2025/02/10/nyregion/trump-doge-treasury-elon-musk.html
