@@ -1,3 +1,11 @@
+**Hamas Postpones Release of Hostages ‘Until Further Notice’**\
+`Stalling the next release of hostages from the Gaza Strip, scheduled for the coming weekend, raises new challenges for the already tenuous six-week truce and chances for a lasting end to the war.`\
+https://nytimes.com/2025/02/10/world/middleeast/hamas-hostages-israel-ceasefire.html
+
+**With Steel and Aluminum Tariffs, Trump Relaunches Familiar Fight**\
+`The 25 percent tariff the president is proposing is almost identical to a move in his first term. Economists and foreign governments know what will come next.`\
+https://nytimes.com/2025/02/10/us/politics/trump-tariffs-steel-aluminum.html
+
 **Breaking Down Kendrick Lamar’s Drake-centric Super Bowl Halftime Show**\
 `On a postgame episode of Popcast, we react to Lamar’s performance, including the tactical deployment of “Not Like Us” and a Serena Williams cameo.`\
 https://nytimes.com/2025/02/10/arts/music/kendrick-lamar-super-bowl-popcast.html
