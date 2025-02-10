@@ -1,3 +1,7 @@
+**Bus Crash in Guatemala City Kills Dozens of People**\
+`The vehicle fell off a bridge and plunged into a ravine early Monday morning, according to government officials.`\
+https://nytimes.com/video/world/americas/100000009982065/guatemala-bus-crash.html
+
 **Elon Musk Leads Bid to Buy OpenAI for $97.4 Billion**\
 `The billionaire is leading a group of investors in the unsolicited offer, which complicates the start-up’s plan to change its nonprofit status.`\
 https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/10/us/politics/trump-musk-doge-foia-public-records.h
 **Brooklyn Man Admits to Smuggling Precious Egyptian Relics**\
 `The artifacts, which included amulets and a sculpture, smelled like earth when they spilled out of his suitcases, according to court papers.`\
 https://nytimes.com/2025/02/10/nyregion/egyptian-relic-smuggling-plea.html
-
-**Luis Rubiales trial: Spain women's coach Montse Tome did not know sexual violence protocol existed**\
-`Tome was assistant coach at the 2023 Women's World Cup, where Rubiales kissed the Spain striker Hermoso after they won the final`\
-https://nytimes.com/athletic/6127181/2025/02/10/rubiales-trial-hermoso-montse-tome-rfef-protocol/
 
