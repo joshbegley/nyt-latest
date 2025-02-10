@@ -1,3 +1,23 @@
+**Champions League knockout round betting preview: Will Man City's woes worsen?**\
+`Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
+https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
+
+**Nesta rehired by Monza seven weeks after being fired**\
+`The 48-year-old former centre-back was sacked on December 23 after winning just one of his 17 league matches in charge.`\
+https://nytimes.com/athletic/6126011/2025/02/10/monza-manager-nesta/
+
+**FA Cup round four betting review: Could this be the year of the giant killers?**\
+`We review the weekend's FA Cup results and the betting permutations for the weeks ahead. `\
+https://nytimes.com/athletic/6125891/2025/02/10/fa-cup-round-four-betting-review-could-this-be-the-year-of-the-giant-killers/
+
+**Was this Travis Kelce's last Super Bowl? He has tough decision after Chiefs' loss**\
+`Kelce, the future Hall of Fame tight end, has much to ponder as retirement questions swirl following Kansas City's loss to Philadelphia.`\
+https://nytimes.com/athletic/6125513/2025/02/10/travis-kelce-chiefs-super-bowl-retirement-question/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions below and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6125600/2025/02/10/inside-newcastle-live-qa-arsenal-birmingham-cup/
+
 **Jets trade targets: 10 new options emerge as the deadline nears**\
 `Breaking down trade candidates for the Jets, how the team could use them, the realism factor — or lack thereof — and more.
 `\
