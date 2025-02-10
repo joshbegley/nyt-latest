@@ -1,3 +1,7 @@
+**5 Notes From the Big A.I. Summit in Paris**\
+`At times, Kevin Roose writes, it feels like he is watching policymakers on horseback trying to install seatbelts on a passing Lamborghini.`\
+https://nytimes.com/2025/02/10/technology/ai-summit-paris-technology.html
+
 **U.S. Woman Sues Tate Brothers, Saying They Lured Her to Romania for Sex Work**\
 `A woman who gave testimony to Romanian prosecutors accused Andrew and Tristan Tate in a lawsuit of conspiring to traffic her for sex work. The brothers have sued her for defamation.`\
 https://nytimes.com/2025/02/10/world/europe/andrew-tate-tristan-lawsuit-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/arts/music/trump-kennedy-center-board-removed.htm
 **Tiger Woods delays PGA Tour season debut after death of his mother**\
 `It would've been Woods' first tournament since July 2024, but the emotions following his mother's death led to his change of heart.`\
 https://nytimes.com/athletic/6127034/2025/02/10/tiger-woods-pga-tour-debut-delay-mother-death/
-
-**I.R.S. Agents Are Asked to Help With Immigration Crackdown**\
-`The request by the Department of Homeland Security could suck resources away from tax enforcement efforts.`\
-https://nytimes.com/2025/02/10/us/politics/irs-dhs-immigration.html
 
