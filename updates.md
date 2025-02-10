@@ -1,3 +1,7 @@
+**Are You Worried That Our System of Checks and Balances Might Fail?**\
+`In the opening weeks of his second term, President Trump and his administration have been grabbing powers that presidents have never had before. Is this a constitutional crisis?`\
+https://nytimes.com/2025/02/10/learning/are-you-worried-that-our-system-of-checks-and-balances-might-fail.html
+
 **Confusion Reigns as ‘a Wrecking Ball’ Hits the Consumer Bureau**\
 `Since the acting director of the Consumer Financial Protection Bureau issued stop-work orders, employees have been trying to decipher exactly what they mean.`\
 https://nytimes.com/2025/02/10/business/cfpb-shutdown-confusion.html
