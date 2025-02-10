@@ -1,3 +1,7 @@
+**Spoiler Alert: Kendrick Lamar’s Set Leaked Online Before Super Bowl**\
+`A 13-minute audio track featuring new vocals that sounded like Lamar spread online on Thursday.`\
+https://nytimes.com/2025/02/09/us/kendrick-lamar-super-bowl-leak.html
+
 **Busy Presidential Day Ends at the Super Bowl**\
 `Before becoming the first sitting president to attend a Super Bowl, Mr. Trump played a round of golf with Tiger Woods and announced he’d impose tariffs on metals.`\
 https://nytimes.com/2025/02/09/us/politics/one-more-stop-on-a-busy-presidential-day-the-super-bowl.html
