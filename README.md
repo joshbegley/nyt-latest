@@ -1,3 +1,7 @@
+**Skip ‘Yellowstone’ for This Rawer Version of the West**\
+`In Callan Wink’s new novel, two brothers struggling to make ends meet are forced to turn to shady ventures.`\
+https://nytimes.com/2025/02/10/books/review/callan-wink-beartooth.html
+
 **Hollinger: Lakers remind us teams can rescind trades; scouting Spurs' Stephon Castle**\
 `The Lakers’ unwinding of their trade for Mark Williams is the latest, rare example of a team exiting a trade because of a failed physical.`\
 https://nytimes.com/athletic/6125067/2025/02/10/nba-trades-undo-lakers-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-siri
 **Trump Muses About a Third Term, Over and Over Again**\
 `The president’s suggestion that he would seek to stay in office beyond the constitutional limit comes as he has pushed to expand executive authority.`\
 https://nytimes.com/2025/02/10/us/politics/trump-third-term.html
-
-**Fox Acquires Firm Behind Conservative and True Crime Podcasts**\
-`Tucker Carlson, Nancy Grace, Megyn Kelly and Piers Morgan are among the clients of Red Seat Ventures, which now joins Rupert Murdoch’s empire.`\
-https://nytimes.com/2025/02/10/business/media/fox-red-seat-ventures.html
 
