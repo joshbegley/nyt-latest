@@ -1,3 +1,7 @@
+**Sportsbooks win big on Super Bowl: 'One of the best single-game results in company history'**\
+`Ben Fawkes recaps Super Bowl 59 from a betting perspective. Read why this year's big game was one of the best ever for the sportsbooks.`\
+https://nytimes.com/athletic/6126754/2025/02/10/super-bowl-59-betting-recap-sportsbooks-win-big-eagles-barkley/
+
 **Team Canada's 4 Nations nuclear option: Could they channel 1987, put MacKinnon, McDavid together?**\
 `Midway through the 1987 Canada Cup, Mike Keenan paired Wayne Gretzky and Mario Lemieux. Could Jon Cooper use the same tactic in 4 Nations?`\
 https://nytimes.com/athletic/6127370/2025/02/10/canada-mackinnon-mcdavid-4-nations/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/10/briefing/trump-tariffs-hamas-hostages-france-tech
 **22 States Sue to Block Trump Cuts to Medical Research Funding**\
 `A coalition of attorneys general sued the federal government Monday, claiming that the $4 billion in cuts would “grind to a halt” studies on cancer, heart disease and other conditions.`\
 https://nytimes.com/2025/02/10/us/politics/nih-trump-lawsuit-medical-research.html
-
-**Farhan Zaidi returning to Dodgers as a special advisor: Source**\
-`Zaidi was the Dodgers' general manager for four years before becoming the president of baseball operations for the Giants.`\
-https://nytimes.com/athletic/6127367/2025/02/10/dodgers-farhan-zaidi-advisor/
 
