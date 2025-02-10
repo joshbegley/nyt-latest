@@ -1,3 +1,7 @@
+**Venezuelan Planes Fly Deported Migrants from U.S. to Venezuela**\
+`The flights, which left Fort Bliss in Texas, represent a significant victory for President Trump, who has vowed to carry out sweeping deportations.`\
+https://nytimes.com/2025/02/10/world/americas/venezuela-deportation-flights-migrants.html
+
 **3 Convicted of Murder for Luring Men From Gay Bars to Their Deaths**\
 `Two men were fatally drugged as their bank accounts were being drained. The killers lurked outside Manhattan clubs near closing time.`\
 https://nytimes.com/2025/02/10/nyregion/gay-bay-murder-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/weather/snow-winter-storm-nyc-dc-philadelphia.htm
 **A Spa Day for Louis Before the Westminster Dog Show**\
 `A look at how a champion Afghan hound prepared for what would be his final chance at best in show.`\
 https://nytimes.com/card/2025/02/10/style/westminister-dog-show-grooming-afghan-hound
-
-**Nonstop Quakes Leave a Tourist Island Empty and Its Residents on Edge**\
-`Thousands of tremors, sometimes every few minutes, have shaken Santorini, Greece. More than 13,000 of its 15,500 inhabitants have left.`\
-https://nytimes.com/2025/02/10/world/europe/greece-santorini-earthquakes.html
 
