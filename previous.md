@@ -1,3 +1,15 @@
+**Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
+`The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
+https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
+
+**Mets spring guide: 31 thoughts for 31 hitters, from Acuña to Lindor to Young**\
+`Francisco Lindor is among the obvious choices on a Mets roster that looks just about set. Which players will be competing for jobs?`\
+https://nytimes.com/athletic/6122347/2025/02/10/mets-spring-guide/
+
+**Netflix Scurries to Stem Oscar Fallout From ‘Emilia Pérez’ Scandal**\
+`Netflix had thought the movie could deliver the company its first best picture award. But comments from its star have put it on the defense.`\
+https://nytimes.com/2025/02/10/business/media/netflix-oscars-emilia-perez.html
+
 **Resisting Trump: What Can Be Done?**\
 `Readers respond to the “don’t tune out” editorial. Also: The ethics of trans care; Guantánamo questions; President Trump and the Kennedy Center.`\
 https://nytimes.com/2025/02/10/opinion/trump-resistance.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6124962/2025/02/10/usmnt-pulisic-adams-kelman-track
 **Hamas Postpones Release of Hostages ‘Until Further Notice’**\
 `Stalling the next release of hostages from the Gaza Strip, scheduled for the coming weekend, raises new challenges for the already tenuous six-week truce and chances for a lasting end to the war.`\
 https://nytimes.com/2025/02/10/world/middleeast/hamas-hostages-israel-ceasefire.html
-
-**With Steel and Aluminum Tariffs, Trump Relaunches Familiar Fight**\
-`The 25 percent tariff the president is proposing is almost identical to a move in his first term. Economists and foreign governments know what will come next.`\
-https://nytimes.com/2025/02/10/us/politics/trump-tariffs-steel-aluminum.html
-
-**Breaking Down Kendrick Lamar’s Drake-centric Super Bowl Halftime Show**\
-`On a postgame episode of Popcast, we react to Lamar’s performance, including the tactical deployment of “Not Like Us” and a Serena Williams cameo.`\
-https://nytimes.com/2025/02/10/arts/music/kendrick-lamar-super-bowl-popcast.html
-
-**Trump’s Actions Have Created a Constitutional Crisis, Scholars Say**\
-`Law professors have long debated what the term means. But now many have concluded that the nation faces a reckoning as President Trump tests the boundaries of executive power.`\
-https://nytimes.com/2025/02/10/us/politics/trump-constitutional-crisis.html
 

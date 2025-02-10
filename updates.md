@@ -1,3 +1,15 @@
+**Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
+`The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
+https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
+
+**Mets spring guide: 31 thoughts for 31 hitters, from Acuña to Lindor to Young**\
+`Francisco Lindor is among the obvious choices on a Mets roster that looks just about set. Which players will be competing for jobs?`\
+https://nytimes.com/athletic/6122347/2025/02/10/mets-spring-guide/
+
+**Netflix Scurries to Stem Oscar Fallout From ‘Emilia Pérez’ Scandal**\
+`Netflix had thought the movie could deliver the company its first best picture award. But comments from its star have put it on the defense.`\
+https://nytimes.com/2025/02/10/business/media/netflix-oscars-emilia-perez.html
+
 **Resisting Trump: What Can Be Done?**\
 `Readers respond to the “don’t tune out” editorial. Also: The ethics of trans care; Guantánamo questions; President Trump and the Kennedy Center.`\
 https://nytimes.com/2025/02/10/opinion/trump-resistance.html
