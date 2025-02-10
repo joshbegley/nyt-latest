@@ -1,3 +1,11 @@
+**Why Musk and Vance Went to Bat for a Self-Described Racist**\
+`Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
+https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
+
+**N.Y.P.D. Apologizes for Falsely Accusing Teen in Fatal Parade Shooting**\
+`The police posted photos of Camden Lee, 16, on social media and said he was wanted for the shooting. Only after five months did they admit they were wrong.`\
+https://nytimes.com/2025/02/10/nyregion/nypd-camden-lee-brooklyn-parade-shooting.html
+
 **Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
 `Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
 https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
