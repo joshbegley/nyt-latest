@@ -1,3 +1,7 @@
+**Word of the Day: logjam**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/10/learning/word-of-the-day-logjam.html
+
 **Marchand: Tom Brady brought star power to Super Bowl, but failed to say much**\
 `Brady's presence might have made Fox's Super Bowl LIX broadcast feel bigger, but it wasn't by anything he said.`\
 https://nytimes.com/athletic/6125346/2025/02/10/tom-brady-super-bowl-lix-fox-review-patrick-mahomes/
