@@ -1,7 +1,3 @@
-**Drake sued Universal Music Group for defamation for releasing ‘Not Like Us.’**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/drake-sued-universal-music-group-for-defamation-for-releasing-not-like-us
-
 **‘Not Like Us’ won five Grammys last week, including for record and song of the year.**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/not-like-us-won-five-grammys-last-week-including-for-record-and-song-of-the-year
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion
 **Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
 `The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
 https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
+
+**Georgia Man Sentenced to 475 Years for Dogfighting**\
+`Vincent Lemark Burrell was found guilty last month of more than 100 counts of dogfighting and animal cruelty after dozens of dogs were found in poor condition at his home.`\
+https://nytimes.com/2025/02/09/us/dogfight-sentence-georgia.html
 
