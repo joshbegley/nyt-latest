@@ -1,3 +1,7 @@
+**'It's going to hurt': Misery, not history for Chiefs after worst performance of season**\
+`The Eagles dominated the Chiefs, who blew their chance to become the first team to win three consecutive Super Bowls.`\
+https://nytimes.com/athletic/6125534/2025/02/10/chiefs-patrick-mahomes-super-bowl-misery/
+
 **Sevilla 1 Barcelona 4 – Flick's side win again, Lopez's rollercoaster 16 mins, and De Jong over Casado?**\
 `Laia Cervello Herrero analyses the talking points as Barcelona kept the pressure on the Madrid teams with a strong win against Sevilla`\
 https://nytimes.com/athletic/6125477/2025/02/10/barcelona-sevilla-lopez-de-jong-casado/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6124360/2025/02/10/wolves-goalkeeper-johnstone-sa/
 **It was not a good day for Josuha Guilavogui - but don't overlook his impact off the pitch**\
 `Guilavogui may have limited playing opportunities but he is an important figure behind the scenes at Leeds`\
 https://nytimes.com/athletic/6123209/2025/02/10/josuha-guilavogui-leeds-millwall-fa-cup/
-
-**Newcastle squad on the brink of history... and being stretched too far**\
-`Newcastle are entering a crucial phase of the season after finding a way to beat Birmingham in the FA Cup. But can they last the distance?`\
-https://nytimes.com/athletic/6123059/2025/02/10/newcastle-birmingham-fa-cup-history/
 
