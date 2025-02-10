@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6122481/2025/02/09/super-bowl-2026-eagles-chiefs-be
 https://nytimes.com/athletic/6125078/2025/02/09/eagles-qb-jalen-hurts-named-super-bowl-lix-mvp-after-dominant-win-over-chiefs/
 
 **Mavericks' Anthony Davis to miss multiple weeks with left adductor strain**\
-`He won’t play Monday against the Sacramento Kings, and it’s expected he will miss multiple weeks`\
+`He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
 https://nytimes.com/athletic/6125157/2025/02/09/anthony-davis-injury-out-dallas-mavericks/
 
 **Kendrick Lamar’s Bell Bottoms Steal the Halftime Show**\
