@@ -1,3 +1,11 @@
+**AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
+`After a wild weekend of college basketball in which the No.`\
+https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
+
+**A Ramen That Merges Japan and the South**\
+`Once thought of as a byproduct of collard greens, brothy, complex potlikker takes on new life as a wonderful base for a Japanese staple.`\
+https://nytimes.com/2025/02/10/dining/potlikker.html
+
 **Trump Wants to Clear Bombs From Gaza. He’s Sidelined Groups That Would Do It.**\
 `Shortly before the president said he would have to clear unexploded bombs to redevelop Gaza, he ordered all U.S.-funded demining groups globally to stop their work.`\
 https://nytimes.com/2025/02/10/us/politics/trump-gaza-bombs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-
 **Mets spring guide: 31 thoughts for 31 hitters, from Acuña to Lindor to Young**\
 `Francisco Lindor is among the obvious choices on a Mets roster that looks just about set. Which players will be competing for jobs?`\
 https://nytimes.com/athletic/6122347/2025/02/10/mets-spring-guide/
-
-**Netflix Scurries to Stem Oscar Fallout From ‘Emilia Pérez’ Scandal**\
-`Netflix had thought the movie could deliver the company its first best picture award. But comments from its star have put it on the defense.`\
-https://nytimes.com/2025/02/10/business/media/netflix-oscars-emilia-perez.html
-
-**Resisting Trump: What Can Be Done?**\
-`Readers respond to the “don’t tune out” editorial. Also: The ethics of trans care; Guantánamo questions; President Trump and the Kennedy Center.`\
-https://nytimes.com/2025/02/10/opinion/trump-resistance.html
 

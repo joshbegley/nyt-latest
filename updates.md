@@ -1,3 +1,11 @@
+**AP men’s basketball Top 25: Duke loss sets up No. 1 Auburn vs. No. 2 Alabama**\
+`After a wild weekend of college basketball in which the No.`\
+https://nytimes.com/athletic/6126876/2025/02/10/ap-top-25-mens-basketball-rankings-auburn/
+
+**A Ramen That Merges Japan and the South**\
+`Once thought of as a byproduct of collard greens, brothy, complex potlikker takes on new life as a wonderful base for a Japanese staple.`\
+https://nytimes.com/2025/02/10/dining/potlikker.html
+
 **Trump Wants to Clear Bombs From Gaza. He’s Sidelined Groups That Would Do It.**\
 `Shortly before the president said he would have to clear unexploded bombs to redevelop Gaza, he ordered all U.S.-funded demining groups globally to stop their work.`\
 https://nytimes.com/2025/02/10/us/politics/trump-gaza-bombs.html
