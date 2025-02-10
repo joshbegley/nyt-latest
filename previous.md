@@ -1,3 +1,15 @@
+**Is ‘Not Like Us,’ the searing diss track in which Lamar takes on Drake, too controversial for the Super Bowl?**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not-like-us-the-searing-diss-track-in-which-lamar-takes-on-drake-too-controversial-for-the-super-bowl
+
+**Break-Up**\
+`Stories from the heart of heartbreak.`\
+https://nytimes.com/2025/02/09/podcasts/break-up-this-american-life-nyt-audio.html
+
+**At the Super Bowl, Taylor Swift Was Dressing to Win**\
+`Sometimes game-day strategy extends to style.`\
+https://nytimes.com/2025/02/09/style/taylor-swift-super-bowl-fashion.html
+
 **Drake sued Universal Music Group for defamation for releasing ‘Not Like Us.’**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/drake-sued-universal-music-group-for-defamation-for-releasing-not-like-us
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar
 **Lamar’s stagings have grown more elaborate, and ambitious.**\
 `By Niela Orr`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/lamars-stagings-have-grown-more-elaborate-and-ambitious
-
-**Here’s the latest.**\
-`By Joe Coscarelli`\
-https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/heres-the-latest
-
-**What do you think of Fox’s Super Bowl score bug? Share your opinion**\
-`Fox debuted a new score bug for Super Bowl LIX that can be described by one word: Boxy.`\
-https://nytimes.com/athletic/6125014/2025/02/09/fox-super-bowl-score-bug-opinion/
-
-**Venezuelan Migrants Ask Court to Block U.S. from Sending Them to Guantánamo**\
-`The three men, who are detained in New Mexico, say they “fit the profile” of the type of migrants the Trump administration has started sending to the Navy base.`\
-https://nytimes.com/2025/02/09/us/politics/venezuelan-migrants-lawsuit-guantanamo.html
 

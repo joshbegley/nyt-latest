@@ -1,3 +1,15 @@
+**Is ‘Not Like Us,’ the searing diss track in which Lamar takes on Drake, too controversial for the Super Bowl?**\
+`By Joe Coscarelli`\
+https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not-like-us-the-searing-diss-track-in-which-lamar-takes-on-drake-too-controversial-for-the-super-bowl
+
+**Break-Up**\
+`Stories from the heart of heartbreak.`\
+https://nytimes.com/2025/02/09/podcasts/break-up-this-american-life-nyt-audio.html
+
+**At the Super Bowl, Taylor Swift Was Dressing to Win**\
+`Sometimes game-day strategy extends to style.`\
+https://nytimes.com/2025/02/09/style/taylor-swift-super-bowl-fashion.html
+
 **Drake sued Universal Music Group for defamation for releasing ‘Not Like Us.’**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/drake-sued-universal-music-group-for-defamation-for-releasing-not-like-us
