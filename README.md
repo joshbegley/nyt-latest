@@ -1,3 +1,7 @@
+**At 83, Anne Tyler Has a New Novel. She’d Rather Talk About Anything Else.**\
+`While many of her contemporaries are playing canasta, she’s releasing her 25th book. There’s no mystery to it, Tyler says: Start on Page 1, then keep writing.`\
+https://nytimes.com/2025/02/10/books/three-days-in-june-anne-tyler.html
+
 **The Chiefs wouldn't let Saquon Barkley beat them. The Eagles made sure it didn't matter**\
 `Barkley averaged just 2.3 yards per carry, but Jalen Hurts, the defense and the Eagles' coaching staff more than made up for it.`\
 https://nytimes.com/athletic/6125621/2025/02/10/eagles-saquon-barkley-super-bowl-jalen-hurts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6097599/2025/02/10/padres-2025-spring-training-prev
 **Do You Know These Literary Power Couples and Their Work?**\
 `With Valentine’s Day coming up, try this short quiz on authors who found love with other authors.`\
 https://nytimes.com/interactive/2025/02/10/books/review/author-couples-quiz.html
-
-**Champions League knockout round betting preview: Will Man City's woes worsen?**\
-`Sam and Julia preview the first eight Champions League knockout fixtures through a betting lens`\
-https://nytimes.com/athletic/6125899/2025/02/10/champions-league-knockout-round-betting-preview-will-man-city-succumb-to-real-madrid/
 
