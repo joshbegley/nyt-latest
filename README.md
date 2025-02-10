@@ -1,3 +1,7 @@
+**In ‘Festen,’ a Nightmare Birthday Becomes an Opera**\
+`The composer who put Anna Nicole Smith’s life onstage has a new piece: an adaptation of a cult movie about child abuse.`\
+https://nytimes.com/2025/02/10/arts/music/festen-opera-mark-anthony-turnage.html
+
 **Bears salary-cap analysis: How GM Ryan Poles can take advantage of resources this offseason**\
 `The Bears are flush with cap space once again with only one player who is in line for an extension. Here's our annual breakdown.`\
 https://nytimes.com/athletic/6115626/2025/02/10/bears-salary-cap-analysis-ryan-poles/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/crosswords/connections-companion-611.html
 **Arsenal fans: How should Mikel Arteta deal with the loss of Gabriel Martinelli?**\
 `What are the best options for Arteta's depleted forward line?`\
 https://nytimes.com/athletic/6124176/2025/02/10/arsenal-gabriel-martinelli-discussion/
-
-**A 10-step path to Super Bowl 60: How the Bengals can get back to the big game**\
-`Many pieces are in place to get back into the championship mix, but a successful offseason is imperative.`\
-https://nytimes.com/athletic/6124463/2025/02/10/bengals-super-bowl-60-plan/
 
