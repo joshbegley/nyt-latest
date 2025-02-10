@@ -1,3 +1,7 @@
+**Breaking down the Eagles' blowout Super Bowl LIX victory by the numbers**\
+`The Philadelphia Eagles have ended the Kansas City Chiefs' three-peat quest in dominant fashion. Here are the numbers behind the win.`\
+https://nytimes.com/athletic/6125109/2025/02/09/eagles-chiefs-super-bowl-lix-by-numbers/
+
 **Kendrick Lamar Uses His Super Bowl Halftime Show to Settle a Vendetta**\
 `The first rapper to headline the N.F.L.’s biggest stage solo made his Drake diss “Not Like Us” the centerpiece of his set at the expense of a larger statement.`\
 https://nytimes.com/2025/02/09/arts/music/kendrick-lamar-super-bowl-halftime-review.html
