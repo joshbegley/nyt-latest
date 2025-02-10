@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/10/nyregion/eric-adams-charges-doj-trump.html
 https://nytimes.com/2025/02/10/us/politics/tulsi-gabbard-senate-test-vote.html
 
 **What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
-`Finland has a secret plan, or two, to handle their broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
+`Finland has a secret plan, or two, to handle its broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
 https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
 
 **Submit a question for Stewart Mandel's College Football Mailbag**\

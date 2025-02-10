@@ -1,3 +1,7 @@
+**What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
+`Finland has a secret plan, or two, to handle its broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
+https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
+
 **Justice Dept. Seeks Dismissal of Federal Corruption Case Against Adams**\
 `The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-charges-doj-trump.html
