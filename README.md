@@ -1,3 +1,15 @@
+**Wolves and their goalkeeper conundrum**\
+`It seems inconceivable that both Johnstone and Sa can stay, but it is not certain who could stay and who could leave`\
+https://nytimes.com/athletic/6124360/2025/02/10/wolves-goalkeeper-johnstone-sa/
+
+**It was not a good day for Josuha Guilavogui - but don't overlook his impact off the pitch**\
+`Guilavogui may have limited playing opportunities but he is an important figure behind the scenes at Leeds`\
+https://nytimes.com/athletic/6123209/2025/02/10/josuha-guilavogui-leeds-millwall-fa-cup/
+
+**Newcastle squad on the brink of history... and being stretched too far**\
+`Newcastle are entering a crucial phase of the season after finding a way to beat Birmingham in the FA Cup. But can they last the distance?`\
+https://nytimes.com/athletic/6123059/2025/02/10/newcastle-birmingham-fa-cup-history/
+
 **Why Jude Bellingham is Real Madrid's ready-made plan B**\
 `The Englishman is scoring proper No 9 goals but Real Madrid need support in midfield at the moment, too`\
 https://nytimes.com/athletic/6124009/2025/02/10/jude-bellingham-real-madrid-plan-b/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6104858/2025/02/10/marcus-rashford-aston-villa-debu
 **Fabio Silva interview: 'I didn’t have space to make mistakes. Now I don't put pressure on myself'**\
 `The on-loan Wolverhampton Wanderers striker is rekindling his career at Las Palmas in La Liga and generating rave reviews once again`\
 https://nytimes.com/athletic/6118941/2025/02/10/fabio-silva-wolves-palmas-rangers-interview/
-
-**Tottenham Hotspur need to rediscover who they are**\
-`Against Villa, there was no conviction in what Tottenham were trying to do and that stems from a lack of confidence.`\
-https://nytimes.com/athletic/6124856/2025/02/10/tottenham-ange-postecoglou-identity/
-
-**Leicester fans: We are taking requests – what would you like to read about?**\
-`Let us know what you would be interested in knowing about`\
-https://nytimes.com/athletic/6124232/2025/02/10/leicester-fans-we-are-taking-requests-what-would-you-like-to-read-about/
-
-**Arsenal fans: We are taking requests – what would you like to read about?**\
-`Let us know what you would be interested in knowing about`\
-https://nytimes.com/athletic/6124186/2025/02/10/arsenal-fans-we-are-taking-requests-what-would-you-like-to-read-about/
 
