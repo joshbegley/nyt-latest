@@ -1,3 +1,15 @@
+**Trump’s Declaration Allows Musk’s Efficiency Team to Skirt Open Records Laws**\
+`Government watchdog groups say they will challenge the Trump administration’s decision to put the initiative under the Presidential Records Act, which shields its work from public disclosure.`\
+https://nytimes.com/2025/02/10/us/politics/trump-musk-doge-foia-public-records.html
+
+**Brooklyn Man Admits to Smuggling Precious Egyptian Relics**\
+`The artifacts, which included amulets and a sculpture, smelled like earth when they spilled out of his suitcases, according to court papers.`\
+https://nytimes.com/2025/02/10/nyregion/egyptian-relic-smuggling-plea.html
+
+**Luis Rubiales trial: Spain women's coach Montse Tome did not know sexual violence protocol existed**\
+`Tome was assistant coach at the 2023 Women's World Cup, where Rubiales kissed the Spain striker Hermoso after they won the final`\
+https://nytimes.com/athletic/6127181/2025/02/10/rubiales-trial-hermoso-montse-tome-rfef-protocol/
+
 **Fiery Directives Under Trump’s Justice Dept. Signals a Significant Shift**\
 `The new tone of the department, current and former officials say, appears to promise a campaign of intimidation against career employees viewed as insufficiently loyal.`\
 https://nytimes.com/2025/02/10/us/politics/justice-dept-trump-bondi.html
