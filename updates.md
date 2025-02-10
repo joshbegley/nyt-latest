@@ -1,3 +1,7 @@
+**What I’m seeing from Team Finland: Mikko Rantanen good to go, following their own path**\
+`Finland has a secret plan, or two, to handle their broken-down blue line, and an inside look on the Rantanen trade from Sebastian Aho.`\
+https://nytimes.com/athletic/6127643/2025/02/10/4-nations-face-off-finland-mikko-rantanen-sebastian-aho/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>With the Super Bowl behind us, everyone can turn their attention back to offseason college football.</p>
 <p>Leave your questions here. Please include your city.</p>
