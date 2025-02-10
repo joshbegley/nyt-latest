@@ -1,3 +1,7 @@
+**Mavericks' Anthony Davis to miss multiple weeks with left adductor strain**\
+`He won’t play Monday against the Sacramento Kings, and it’s expected he will miss multiple weeks`\
+https://nytimes.com/athletic/6125157/2025/02/09/anthony-davis-injury-out-dallas-mavericks/
+
 **Kendrick Lamar’s Bell Bottoms Steal the Halftime Show**\
 `A varsity jacket referenced his own career, and a chain inspired some questions. But the cut of his jeans was the biggest surprise of the night.`\
 https://nytimes.com/2025/02/09/style/kendrick-lamar-super-bowl-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6089695/2025/02/09/saquon-barkley-rushing-yards-sin
 **Is ‘Not Like Us,’ the searing diss track in which Lamar takes on Drake, too controversial for the Super Bowl?**\
 `By Joe Coscarelli`\
 https://nytimes.com/live/2025/02/09/us/super-bowl-halftime-kendrick-lamar/is-not-like-us-the-searing-diss-track-in-which-lamar-takes-on-drake-too-controversial-for-the-super-bowl
-
-**Break-Up**\
-`Stories from the heart of heartbreak.`\
-https://nytimes.com/2025/02/09/podcasts/break-up-this-american-life-nyt-audio.html
 
