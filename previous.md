@@ -1,3 +1,7 @@
+**The Weeknd Hits No. 1 for a Fifth Time With ‘Hurry Up Tomorrow’**\
+`Boosted by physical sales and a Grammy performance, the album had the biggest week since Taylor Swift’s huge opening last year.`\
+https://nytimes.com/2025/02/10/arts/music/the-weeknd-hurry-up-tomorrow-no-1.html
+
 **Fresh Wave of Violence as Bangladesh’s Ousted Ex-Leader Addresses Nation**\
 `Students who led a revolution resulting in former Prime Minister Sheikh Hasina fleeing the country in August sparred anew with supporters of her political party.`\
 https://nytimes.com/2025/02/10/world/asia/bangladesh-protest-students-sheikh-hasina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125067/2025/02/10/nba-trades-undo-lakers-spurs/
 **Mikaela Shiffrin, citing 'mental obstacles', won't defend giant slalom title at worlds**\
 `Mikaela Shiffrin said she will still race the slalom and team combined at worlds but said she's "not there yet" with giant slalom.`\
 https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle-world-championships/
-
-**Corrections: Feb. 9, 2025**\
-`Corrections that appeared in print on Sunday, Feb. 9, 2025.`\
-https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-9-2025.html
 
