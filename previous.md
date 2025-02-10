@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins: Rakell trade value, Crosby's health**\
+`What are the chances of a Rickard Rakell trade? How healthy Sidney Crosby? What's the latest on the Penguins' prospects? Josh Yohe answers.`\
+https://nytimes.com/athletic/6126420/2025/02/10/penguins-sidney-crosby-4-nations/
+
+**Ex-OSU coach Jim Tressel nominated to be Ohio's lieutenant governor**\
+`Tressel won four Division I-AA national championships at Youngstown State and the 2002 BCS national championship at Ohio State.`\
+https://nytimes.com/athletic/6126714/2025/02/10/jim-tressel-ohio-lieutenant-governor/
+
 **Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
 `The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
 https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/second-look-prison-ny-judge-wilson.html
 **Scoop City: How the Eagles dominated the Chiefs**\
 `Inside: Why it looked so easy for Philly, what's next for both teams and your NFL offseason schedule. Let's dive in.`\
 https://nytimes.com/athletic/6126446/2025/02/10/eagles-chiefs-super-bowl-59-dominant-how-fangio-scoop-city/
-
-**USMNT Player Tracker: Kelman ruffles City, Adams' target and a new challenge for Pulisic?**\
-`Our roundup of the U.S. contingent's contributions in Europe also takes in Gio Reyna's latest cameo and a penalty shootout hero`\
-https://nytimes.com/athletic/6124962/2025/02/10/usmnt-pulisic-adams-kelman-tracker/
-
-**Hamas Postpones Release of Hostages ‘Until Further Notice’**\
-`Stalling the next release of hostages from the Gaza Strip, scheduled for the coming weekend, raises new challenges for the already tenuous six-week truce and chances for a lasting end to the war.`\
-https://nytimes.com/2025/02/10/world/middleeast/hamas-hostages-israel-ceasefire.html
 

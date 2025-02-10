@@ -1,3 +1,11 @@
+**What I'm hearing about the Penguins: Rakell trade value, Crosby's health**\
+`What are the chances of a Rickard Rakell trade? How healthy Sidney Crosby? What's the latest on the Penguins' prospects? Josh Yohe answers.`\
+https://nytimes.com/athletic/6126420/2025/02/10/penguins-sidney-crosby-4-nations/
+
+**Ex-OSU coach Jim Tressel nominated to be Ohio's lieutenant governor**\
+`Tressel won four Division I-AA national championships at Youngstown State and the 2002 BCS national championship at Ohio State.`\
+https://nytimes.com/athletic/6126714/2025/02/10/jim-tressel-ohio-lieutenant-governor/
+
 **One Very Real Problem Lost in the Politics of Aid Cuts: Child Malnutrition**\
 `Every year it’s a factor in the deaths of two million children worldwide.`\
 https://nytimes.com/2025/02/10/opinion/malnutrition-foreign-aid-trump.html
