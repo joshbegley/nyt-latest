@@ -1,3 +1,11 @@
+**Why Jude Bellingham is Real Madrid's ready-made plan B**\
+`The Englishman is scoring proper No 9 goals but Real Madrid need support in midfield at the moment, too`\
+https://nytimes.com/athletic/6124009/2025/02/10/jude-bellingham-real-madrid-plan-b/
+
+**The Briefing: Slot's first slip, Plymouth's magic, missing VAR and the great nearly-goals**\
+`Welcome to The Briefing, where every Monday we will discuss three of the biggest questions to arise from the weekend’s football`\
+https://nytimes.com/athletic/6124765/2025/02/10/liverpool-slot-plymouth-var/
+
 **What's the best date for a footballer to be born on - and is it February 5?**\
 `A data-based journey through footballers' birthdays, for no real reason`\
 https://nytimes.com/athletic/6114801/2025/02/10/whats-the-best-date-for-a-footballer-to-be-born-on-and-is-it-february-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6124232/2025/02/10/leicester-fans-we-are-taking-req
 **Arsenal fans: We are taking requests – what would you like to read about?**\
 `Let us know what you would be interested in knowing about`\
 https://nytimes.com/athletic/6124186/2025/02/10/arsenal-fans-we-are-taking-requests-what-would-you-like-to-read-about/
-
-**Gisèle Pelicot May Not Be Her Husband’s First Victim, Police Say**\
-`Dominique Pelicot became notorious after being convicted of drugging his wife and inviting strangers to rape her. Police say his crimes may have started long before.`\
-https://nytimes.com/2025/02/10/world/europe/gisele-pelicot-husband-rape-murder-victims.html
-
-**What DeepSeek’s Success Says About China’s Ability to Nurture Talent**\
-`China produces a vast number of STEM graduates, but it hasn’t been known for innovation. Cultural and political factors may help explain why.`\
-https://nytimes.com/2025/02/10/world/asia/china-deepseek-education.html
 
