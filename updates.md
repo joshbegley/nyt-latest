@@ -1,3 +1,7 @@
+**Hollinger: Lakers remind us teams can rescind trades; scouting Spurs' Stephon Castle**\
+`The Lakers’ unwinding of their trade for Mark Williams is the latest, rare example of a team exiting a trade because of a failed physical.`\
+https://nytimes.com/athletic/6125067/2025/02/10/nba-trades-undo-lakers-spurs/
+
 **Mikaela Shiffrin, citing mental struggle, won't defend giant slalom title at worlds**\
 `Mikaela Shiffrin said she will still race the slalom and team combined at worlds but said she's "not there yet" with giant slalom.`\
 https://nytimes.com/athletic/6126120/2025/02/10/mikaela-shiffrin-mental-struggle-world-championships/
