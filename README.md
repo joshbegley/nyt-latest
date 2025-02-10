@@ -1,3 +1,7 @@
+**What's the best date for a footballer to be born on - and is it February 5?**\
+`A data-based journey through footballers' birthdays, for no real reason`\
+https://nytimes.com/athletic/6114801/2025/02/10/whats-the-best-date-for-a-footballer-to-be-born-on-and-is-it-february-5/
+
 **England's football wilderness where Liverpool came unstuck**\
 `The county of Devon is better known for scones than soccer but its professional teams are trying to use that to their advantage`\
 https://nytimes.com/athletic/6123026/2025/02/10/exeter-plymouth-liverpool-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/world/europe/gisele-pelicot-husband-rape-murder-v
 **What DeepSeek’s Success Says About China’s Ability to Nurture Talent**\
 `China produces a vast number of STEM graduates, but it hasn’t been known for innovation. Cultural and political factors may help explain why.`\
 https://nytimes.com/2025/02/10/world/asia/china-deepseek-education.html
-
-**Quote of the Day: A Barred Yankees Fan Wants Nothing More Than His Anonymity Back**\
-`Quotation of the Day for Monday, February 10, 2025.`\
-https://nytimes.com/2025/02/09/pageoneplus/quote-of-the-day-a-barred-yankees-fan-wants-nothing-more-than-his-anonymity-back.html
 
