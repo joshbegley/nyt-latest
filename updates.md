@@ -1,3 +1,11 @@
+**One Very Real Problem Lost in the Politics of Aid Cuts: Child Malnutrition**\
+`Every year it’s a factor in the deaths of two million children worldwide.`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/malnutrition-foreign-aid-trump
+
+**Chelsea's Joao Felix says he would be open to staying at Milan beyond loan spell**\
+`The 25-year-old joined Milan from Chelsea on deadline day on a temporary deal until the end of 2024-25.`\
+https://nytimes.com/athletic/6126686/2025/02/10/joao-felix-milan-chelsea-future/
+
 **Top Judge Favors a Second Chance for Those Languishing in Prison**\
 `Rowan Wilson, the chief judge of New York State’s highest court, used his State of the Judiciary address to push back against prolonged incarceration.`\
 https://nytimes.com/2025/02/10/nyregion/second-look-prison-ny-judge-wilson.html
