@@ -1,7 +1,3 @@
-**Halftime performer banned from NFL stadiums after holding Sudanese-Palestinian flag**\
-`The league said the individual was part of the 400-member field cast and "hid the item on his person and unveiled it late in the show."`\
-https://nytimes.com/athletic/6126136/2025/02/10/super-bowl-halftime-performer-protest/
-
 **Trump Argues That Courts Cannot Block Musk’s Team From Treasury Systems**\
 `The president’s lawyers argued that the distinction between civil servants and political appointees was unworkable and unconstitutional. A hearing is set for Friday.`\
 https://nytimes.com/2025/02/10/nyregion/trump-doge-treasury-elon-musk.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-9-2025.html
 **Submit your Cowboys mailbag questions to Jon Machota**\
 `The offseason is officially underway for every team and the Cowboys have a big to-do list. What questions do you have?`\
 https://nytimes.com/athletic/6126234/2025/02/10/submit-your-cowboys-mailbag-questions-to-jon-machota-2/
+
+**The Bounce: Lakers got Luka Dončić by the NBA trade deadline, but what about the deal they undid?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6126061/2025/02/10/luka-doncic-lakers-mark-williams-hornets-nba-trade-deadline-the-bounce/
 
