@@ -1,3 +1,11 @@
+**Groups Sue Over Trump’s Pause on Refugee Admissions**\
+`The lawsuit by advocacy organizations aims to bring back the resettlement of refugees in the United States after President Trump halted the program.`\
+https://nytimes.com/2025/02/10/us/politics/refugee-lawsuit-trump.html
+
+**Heat Today: How Andrew Wiggins, Davion Mitchell and Kyle Anderson will help the Heat maintain identity**\
+`Now that the Jimmy Butler era in Miami has ended, here is what the Heat's new additions could bring to the court. `\
+https://nytimes.com/athletic/6126853/2025/02/10/andrew-wiggins-davion-mitchell-kyle-anderson-jimmy-butler-heat-nba/
+
 **5 Notes From the Big A.I. Summit in Paris**\
 `At times, Kevin Roose writes, it feels like he is watching policymakers on horseback trying to install seatbelts on a passing Lamborghini.`\
 https://nytimes.com/2025/02/10/technology/ai-summit-paris-technology.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/world/europe/greece-santorini-earthquakes.html
 **100 Years of How Black Painters See Themselves**\
 `Koyo Kouoh, who will curate the 2026 Venice Biennale, has assembled a huge survey at the Bozar Centre for Fine Arts in Brussels presenting Black life on its own, frequently gorgeous, terms.`\
 https://nytimes.com/2025/02/10/arts/design/how-we-see-us-koyo-kouoh-bozar-brussels.html
-
-**Trump Strengthens Grip on Kennedy Center as 18 Trustees and Chairman Are Removed**\
-`Board members appointed by former President Joseph R. Biden Jr. were scrubbed from an official roster on the center’s website, along with the chairman, David M. Rubenstein.`\
-https://nytimes.com/2025/02/10/arts/music/trump-kennedy-center-board-removed.html
-
-**Tiger Woods delays PGA Tour season debut after death of his mother**\
-`It would've been Woods' first tournament since July 2024, but the emotions following his mother's death led to his change of heart.`\
-https://nytimes.com/athletic/6127034/2025/02/10/tiger-woods-pga-tour-debut-delay-mother-death/
 
