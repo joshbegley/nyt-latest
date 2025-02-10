@@ -1,6 +1,6 @@
-**Justice Dept. to Seek Dismissal of Federal Corruption Case Against Adams**\
+**Justice Dept. Seeks Dismissal of Federal Corruption Case Against Adams**\
 `The New York City mayor cultivated a close relationship with President Trump, who said they had both been persecuted.`\
-https://nytimes.com/2025/02/10/nyregion/trump-pardons-nyc-mayor-eric-adams.html
+https://nytimes.com/2025/02/10/nyregion/eric-adams-charges-doj-trump.html
 
 **Senate Advances Gabbard, Signaling Quick Confirmation**\
 `The test vote indicated that despite early reservations even among some Republicans, the former Democratic congresswoman had the necessary support to be confirmed in a vote expected by Wednesday.`\
