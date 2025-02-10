@@ -1,3 +1,7 @@
+**Tiger Woods delays PGA Tour season debut after death of his mother**\
+`It would've been Woods' first tournament since July 2024, but the emotions following his mother's death led to his change of heart.`\
+https://nytimes.com/athletic/6127034/2025/02/10/tiger-woods-pga-tour-debut-delay-mother-death/
+
 **I.R.S. Agents Are Asked to Help With Immigration Crackdown**\
 `The request by the Department of Homeland Security could suck resources away from tax enforcement efforts.`\
 https://nytimes.com/2025/02/10/us/politics/irs-dhs-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126420/2025/02/10/penguins-sidney-crosby-4-nations
 **Ex-OSU coach Jim Tressel nominated to be Ohio's lieutenant governor**\
 `Tressel won four Division I-AA national championships at Youngstown State and the 2002 BCS national championship at Ohio State.`\
 https://nytimes.com/athletic/6126714/2025/02/10/jim-tressel-ohio-lieutenant-governor/
-
-**Sirianni breaks down Eagles' lopsided Super Bowl win, says it's not 'complicated'**\
-`The Eagles coach preached a mindset of simplicity and toughness coming of the franchise's second Super Bowl victory. `\
-https://nytimes.com/athletic/6126475/2025/02/10/nick-sirianni-super-bowl-eagles-victory-comments/
 
