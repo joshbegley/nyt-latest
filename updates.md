@@ -1,3 +1,11 @@
+**Man Accused of Stabbing Salman Rushdie Goes on Trial**\
+`Hadi Matar is charged with attempted murder in the attack, which took place in 2022 as Mr. Rushdie was about to speak at an arts conference in western New York.`\
+https://nytimes.com/2025/02/10/nyregion/salman-rushdie-stabbing-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/10/crosswords/spelling-bee-forum.html
+
 **Trump Has Given Netanyahu the Ultimate Gift**\
 `Turning Gaza into a Riviera is not a serious plan, but it does solve a few big problems for Israel’s leader.`\
 https://nytimes.com/2025/02/10/opinion/trump-netanyahu-gaza-israel.html

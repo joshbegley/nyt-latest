@@ -1,3 +1,11 @@
+**Man Accused of Stabbing Salman Rushdie Goes on Trial**\
+`Hadi Matar is charged with attempted murder in the attack, which took place in 2022 as Mr. Rushdie was about to speak at an arts conference in western New York.`\
+https://nytimes.com/2025/02/10/nyregion/salman-rushdie-stabbing-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/10/crosswords/spelling-bee-forum.html
+
 **Word of the Day: logjam**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/10/learning/word-of-the-day-logjam.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6123059/2025/02/10/newcastle-birmingham-fa-cup-hist
 **Why Jude Bellingham is Real Madrid's ready-made plan B**\
 `The Englishman is scoring proper No 9 goals but Real Madrid need support in midfield at the moment, too`\
 https://nytimes.com/athletic/6124009/2025/02/10/jude-bellingham-real-madrid-plan-b/
-
-**The Briefing: Slot's first slip, Plymouth's magic, missing VAR and the great nearly-goals**\
-`Welcome to The Briefing, where every Monday we will discuss three of the biggest questions to arise from the weekend’s football`\
-https://nytimes.com/athletic/6124765/2025/02/10/liverpool-slot-plymouth-var/
-
-**What's the best date for a footballer to be born on - and is it February 5?**\
-`A data-based journey through footballers' birthdays, for no real reason`\
-https://nytimes.com/athletic/6114801/2025/02/10/whats-the-best-date-for-a-footballer-to-be-born-on-and-is-it-february-5/
 
