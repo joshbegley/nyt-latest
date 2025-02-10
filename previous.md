@@ -1,3 +1,7 @@
+**Eagles Fans Took Over New Orleans After Dominant Super Bowl Win**\
+`Philadelphia’s loyal supporters made themselves at home, with joyous fans partying outside the Superdome and others making their way to Bourbon Street.`\
+https://nytimes.com/2025/02/10/style/eagles-fans-super-bowl-party.html
+
 **Submit your questions for the college basketball mailbag**\
 `<p>Coming off an eventful weekend in college hoops, and as March nears, we&#8217;re going to make the national college basketball mailbag a weekly staple.`\
 https://nytimes.com/athletic/6126335/2025/02/10/submit-your-questions-for-the-college-basketball-mailbag-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126061/2025/02/10/luka-doncic-lakers-mark-williams
 **Canucks trade deadline targets: Could these 5 top-six centres make sense for Vancouver?**\
 `Could these centres be available leading up to the deadline, and could they fit the bill for Vancouver?`\
 https://nytimes.com/athletic/6125554/2025/02/10/canucks-nhl-trade-deadline-2025-targets/
-
-**Buyout market? Australia? Where Lakers could go for size after failed Mark Williams trade**\
-`A failed physical torpedoed the Williams trade, which could be a blessing long-term. But it puts LA in a bind for this year's playoffs.`\
-https://nytimes.com/athletic/6125425/2025/02/10/lakers-mark-williams-trade-centers-buyout-doncic/
 

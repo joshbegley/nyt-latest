@@ -1,3 +1,7 @@
+**Eagles Fans Took Over New Orleans After Dominant Super Bowl Win**\
+`Philadelphia’s loyal supporters made themselves at home, with joyous fans partying outside the Superdome and others making their way to Bourbon Street.`\
+https://nytimes.com/2025/02/10/style/eagles-fans-super-bowl-party.html
+
 **Submit your questions for the college basketball mailbag**\
 `<p>Coming off an eventful weekend in college hoops, and as March nears, we&#8217;re going to make the national college basketball mailbag a weekly staple.`\
 https://nytimes.com/athletic/6126335/2025/02/10/submit-your-questions-for-the-college-basketball-mailbag-2/
