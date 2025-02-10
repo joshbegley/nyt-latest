@@ -1,3 +1,7 @@
+**Buyout market? Australia? Where Lakers could go for size after failed Mark Williams trade**\
+`A failed physical torpedoed the Williams trade, which could be a blessing long-term. But it puts LA in a bind for this year's playoffs.`\
+https://nytimes.com/athletic/6125425/2025/02/10/lakers-mark-williams-trade-centers-buyout-doncic/
+
 **Nick Sirianni was a 'hothead-in-a-headset.' Now he's a Super Bowl champion**\
 `"I think people have an opinion of the way they think a head coach should be," Sirianni said. “But you’ve got to be who you are."`\
 https://nytimes.com/athletic/6126093/2025/02/10/super-bowl-champions-eagles-sirianni/
