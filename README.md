@@ -1,3 +1,15 @@
+**Behind the Scenes at the Westminster Dog Show**\
+`With the event returning to Midtown Manhattan for the first time since 2020, thousands of dogs flooded the city with a single goal in mind: best in show.`\
+https://nytimes.com/2025/02/10/style/westminster-dog-show-photos.html
+
+**U.N. Suspends Humanitarian Work in Yemeni Area After Houthis Detain More Staff**\
+`The total employees arrested since 2021 has risen to 24, a U.N. spokesman said. The Iran-backed Houthis have held them on murky charges of espionage and foreign intervention.`\
+https://nytimes.com/2025/02/10/world/middleeast/united-nations-yemen.html
+
+**Mikaela Shiffrin's superpower isn't skiing, it's telling the world what it's really like**\
+`Most athletes in dangerous sports experience fear and doubt. It's just that many of them don't talk about it. Mikaela Shiffrin does.`\
+https://nytimes.com/athletic/6127374/2025/02/10/mikaela-shiffrin-injury-recovery-world-championships/
+
 **What I'm seeing from Team Canada: Latest on Sidney Crosby and lines from a 'super intense' first practice**\
 `Canada opened practice Monday ahead of 4 Nations with a relieving injury return and a first look at its plan for lines and pairings.`\
 https://nytimes.com/athletic/6127376/2025/02/10/canada-4-nations-crosby-lines-pairings/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/10/us/politics/trump-judge-deferred-resignation-prog
 **Israeli Hostages’ Accounts of Abuse Raise Alarms for Remaining Captives**\
 `Freed hostages have told of starvation, and relatives of others held in Gaza say officials have relayed accounts of torture.`\
 https://nytimes.com/2025/02/10/world/middleeast/israel-hostages-abuse-hamas.html
-
-**2 People Are Charged in Soldier’s Murder in Tennessee**\
-`Pfc. Katia Dueñas Aguilar, 23, was found dead after being stabbed 68 times last year. Now, her husband and a woman have been charged in the fatal attack.`\
-https://nytimes.com/2025/02/10/us/fort-campbell-soldier-stabbing-charges.html
-
-**Bus Crash in Guatemala City Kills Dozens of People**\
-`The vehicle fell off a bridge and plunged into a ravine early Monday morning, according to government officials.`\
-https://nytimes.com/video/world/americas/100000009982065/guatemala-bus-crash.html
-
-**Elon Musk Leads Bid to Buy OpenAI for $97.4 Billion**\
-`The billionaire is leading a group of investors in the unsolicited offer, which complicates the start-up’s plan to raise more money.`\
-https://nytimes.com/2025/02/10/technology/elon-musk-openai-bid.html
 
