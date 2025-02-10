@@ -1,3 +1,7 @@
+**Trump Orders Treasury Secretary to Stop Minting Pennies**\
+`President Trump said that the coins cost more to produce than their face value.`\
+https://nytimes.com/2025/02/09/us/politics/trump-stop-minting-pennies.html
+
 **A Super Bowl Halftime Performer Surprised Organizers With a Sudan-Gaza Flag**\
 `“No one involved with the production was aware of the individual’s intent,” the N.F.L. said in a statement about the protest during Kendrick Lamar’s show.`\
 https://nytimes.com/2025/02/09/us/sudan-gaza-flag-protest.html
