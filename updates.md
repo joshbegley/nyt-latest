@@ -1,3 +1,7 @@
+**A Dark Tale for a Dark Time, Told Through Indian Classical Dance**\
+`The choreographer Akram Khan’s “Gigenis,” based loosely on a character in the Mahabharata, represents a kind of homecoming for him.`\
+https://nytimes.com/2025/02/11/arts/dance/akram-khan-gigenis-indian-classical-dance.html
+
 **Spain’s Former Top Soccer Official Testifies About Kissing Star Player**\
 `Luis Rubiales said that when he kissed Jennifer Hermoso on the lips, it was just a sign of affection after the country’s national team had won the 2023 Women’s World Cup.`\
 https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-hermoso-kiss.html
