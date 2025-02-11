@@ -1,3 +1,15 @@
+**If Adams Is Cleared, Other Inquiries in His Orbit Would Face Uncertainty**\
+`The dropping of federal corruption charges against Mayor Eric Adams could affect criminal investigations involving his associates in different ways, or not at all.`\
+https://nytimes.com/2025/02/10/nyregion/nyc-city-hall-investigations-future.html
+
+**Twins streaming broadcasts will feature new camera angles: 'Literally closer to the game'**\
+`Beyond increased availability, the biggest changes to the team's TV experience will involve the game production itself.`\
+https://nytimes.com/athletic/6127839/2025/02/10/minnesota-twins-streaming-broadcasts/
+
+**Eric Trump Said Adams Treated the Trump Family Company Well**\
+`Eric Trump, in a radio interview last week, said Mayor Eric Adams had always been supportive of everything the Trump Organization did.`\
+https://nytimes.com/2025/02/10/nyregion/eric-trump-eric-adams.html
+
 **Fox Sports projects record audience of 126 million for Super Bowl**\
 `Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
 https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6126622/2025/02/10/minnesota-timberwolves-ownership
 **Why Musk and Vance Went to Bat for a Self-Described Racist**\
 `Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
 https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
-
-**N.Y.P.D. Apologizes for Falsely Accusing Teen in Fatal Parade Shooting**\
-`The police posted photos of Camden Lee, 16, on social media and said he was wanted for the shooting. Only after five months did they admit they were wrong.`\
-https://nytimes.com/2025/02/10/nyregion/nypd-camden-lee-brooklyn-parade-shooting.html
-
-**Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
-`The left main gear of one of the jets failed during its landing, causing it to veer and crash into a larger jet, airport officials said.`\
-https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
-
-**Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
-`It is unclear if the request to drop the indictment against the New York City mayor will sway enough disaffected voters to his side.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
 
