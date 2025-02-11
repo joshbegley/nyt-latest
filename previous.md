@@ -1,3 +1,11 @@
+**How Trump’s Canadian Oil Tariff Would Hit America’s Heartland**\
+`The 10 percent tariff the president said he might impose in March could cause U.S. refineries to cut production and lead to higher prices.`\
+https://nytimes.com/2025/02/11/business/energy-environment/trump-tariffs-canada-oil.html
+
+**Astros camp preview: Key dates, position battles and 3 questions to answer**\
+`The Astros face questions in the outfield and the bullpen as they prepare for spring training in Florida.`\
+https://nytimes.com/athletic/6124637/2025/02/11/astros-spring-training-preview-jose-altuve-outfield/
+
 **Twins spring training guide: 31 thoughts on all 31 pitchers in major-league camp**\
 `Stars like Pablo López and Jhoan Duran are joined by top prospects and Triple-A journeymen fighting for their major-league futures.`\
 https://nytimes.com/athletic/6103280/2025/02/11/twins-spring-training-2025-pitchers/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6114391/2025/02/11/senators-trade-proposals-cozens-
 **What we know and what we think about the Rangers at the 4 Nations break**\
 `With the trade deadline less than a month away, GM Chris Drury likely still has his eyes on other moves.`\
 https://nytimes.com/athletic/6127686/2025/02/11/new-york-rangers-drury-trade-deadline-lindgren-miller/
-
-**The Demise of U.S.A.I.D. and American Soft Power**\
-`In demolishing the government’s biggest provider of foreign aid, President Trump is ending a 60-year bipartisan consensus on the best way to keep America safe.`\
-https://nytimes.com/2025/02/11/podcasts/the-daily/usaid-trump-america.html
-
-**What's different about Red Wings' playoff chase this year: Mailbag**\
-`Red Wings beat writer Max Bultman answers subscriber questions on the Red Wings' season, their prospects and more.`\
-https://nytimes.com/athletic/6120136/2025/02/11/red-wings-playoff-standings-mailbag/
 
