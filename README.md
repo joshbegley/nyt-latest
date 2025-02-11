@@ -1,3 +1,7 @@
+**Kendrick Lamar’s Halftime Show**\
+`Were you watching on Sunday? Are you a fan? What did you think?`\
+https://nytimes.com/2025/02/11/learning/kendrick-lamars-halftime-show.html
+
 **Op-ed: Lindsey Vonn on the comeback she 'never imagined' and her Olympic hopes**\
 `Lindsey Vonn writes about the second act of her career and her goals and hopes for the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
 https://nytimes.com/athletic/6126739/2025/02/11/lindsey-vonn-olympic-return-italy-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128169/2025/02/11/celtics-heat-joe-mazzulla-jayson
 **Mavericks fan ejected after mouthing 'Fire Nico' during loss to Kings**\
 `The Mavericks said the fans were ejected for violating the NBA Fan Code of Conduct.`\
 https://nytimes.com/athletic/6128162/2025/02/11/luka-doncic-trade-nico-harrison-fans-ejected/
-
-**Warriors go 2-0 in Jimmy Butler era: 'Every possession doesn’t feel as hard,' Curry says**\
-`Steph Curry credits Butler's arrival for his 2-game mini-breakout — 72 points in 68 minutes on 22-of-43 shooting, with 14 3-pointers.`\
-https://nytimes.com/athletic/6128121/2025/02/11/warriors-2-0-in-jimmy-butler-era/
 
