@@ -1,8 +1,12 @@
+**What to Know About the Anti-Bribery Law Trump Is Targeting**\
+`Federal prosecutors and securities regulators have gone after large companies for violations of the Foreign Corrupt Practices Act, which prohibits them from bribing foreign officials.`\
+https://nytimes.com/2025/02/11/business/trump-fcpa-explained.html
+
 **Red Sox spring training notes: Alex Cora 'won't be surprised' if team adds another bat**\
 `The Red Sox began spring training still looking to add to their offense, but a move could be on the horizon.`\
 https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
 
-**Twins to sign Ty France to a 1-year-deal: Source**\
+**Twins to sign Ty France to 1-year-deal: Source**\
 `The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
 https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/11/weather/zelia-map-path-tracker.html
 **Family of Venezuelan Migrant Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
 `Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
 https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
-
-**My Obsessive Quest for a Thrilling Beef Noodle Soup**\
-`As Lanzhou beef noodle soup goes from regional specialty to global attraction, I set out to find the best bowls in New York City.`\
-https://nytimes.com/2025/02/11/dining/lanzhou-beef-noodle-soup.html
 
