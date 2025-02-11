@@ -1,3 +1,7 @@
+**New Zealand Rugby launch legal action against Man United owner INEOS**\
+`The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
+https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
+
 **Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
 `President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a Southern border barrier.`\
 https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
