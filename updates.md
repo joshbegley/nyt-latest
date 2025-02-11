@@ -1,3 +1,11 @@
+**Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
+`Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
+https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/
+
+**Mark Cuban was shouting in Dallas, but Dirk Nowitzki's actions spoke loudest in L.A.**\
+`Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to see Dončić make his debut.`\
+https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
+
 **In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
 `The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
 https://nytimes.com/2025/02/11/world/middleeast/abbas-prisoner-payments-trump.html

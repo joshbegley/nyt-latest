@@ -1,3 +1,11 @@
+**Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
+`Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
+https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/
+
+**Mark Cuban was shouting in Dallas, but Dirk Nowitzki's actions spoke loudest in L.A.**\
+`Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to see Dončić make his debut.`\
+https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
+
 **In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
 `The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
 https://nytimes.com/2025/02/11/world/middleeast/abbas-prisoner-payments-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128936/2025/02/11/terry-rozier-shooting-struggles-
 **‘I Was Dying’: Salman Rushdie Testifies About Terrifying Stabbing Attack**\
 `The author recounted in vivid testimony the moment when an attacker stabbed him about 15 times as he was about to give a lecture in western New York.`\
 https://nytimes.com/2025/02/11/nyregion/salman-rushdie-testimony-assault-trial.html
-
-**Maria Teresa Horta, the Last of Portugal’s ‘Three Marias,’ Dies at 87**\
-`The book on which she collaborated with two fellow feminists drew global attention to the repression of women under their country’s dictatorship.`\
-https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
-
-**Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
-`The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
-https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
 
