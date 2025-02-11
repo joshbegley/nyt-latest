@@ -1,3 +1,7 @@
+**Spain’s Former Top Soccer Official Testifies About Kissing Star Player**\
+`Luis Rubiales said that when he kissed Jennifer Hermoso on the lips, it was just a sign of affection after the country’s national team had won the 2023 Women’s World Cup.`\
+https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-hermoso-kiss.html
+
 **Chelsea's Boehly buys 49% stake in cricket franchise Trent Rockets**\
 `Boehly was previously in the bidding process for the London Spirit franchise.`\
 https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundred/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/business/trump-tariffs-steel-european-union.html
 **49ers 7-round mock draft: Why rebuilding the trenches is likely and necessary**\
 `Trent Williams turns 37 in July and the 49ers options are thin beyond him. Ohio State's Josh Simmons offers a future at offensive tackle.`\
 https://nytimes.com/athletic/6127208/2025/02/11/49ers-2025-mock-nfl-draft-josh-simmons/
-
-**Angels camp preview: Key dates, position battles and 3 questions to answer**\
-`So much around the Angels hinges on Mike Trout, and what the club can count on from him. `\
-https://nytimes.com/athletic/6127696/2025/02/11/angels-camp-preview/
 
