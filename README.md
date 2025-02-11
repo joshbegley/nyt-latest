@@ -1,3 +1,7 @@
+**Gaza’s Cease-Fire Is Imperiled**\
+`Also, Russia released an American prisoner in a deal with Trump. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/02/11/briefing/gaza-cease-fire-snow-storms-westminster-dogs.html
+
 **2025-26 NFL MVP odds, picks: Jackson opens as favorite, Burrow and Mahomes in tight race**\
 `The odds for next year's NFL MVP, plus way-too-early picks by our staff on who might hoist the award in 2026. `\
 https://nytimes.com/athletic/6128782/2025/02/11/2025-26-nfl-mvp-odds-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/style/white-lotus-season-3-hbo.html
 **Trump’s Gaza Plan Is a Crazy Answer to a Valid Question**\
 `There is a case to make for fresh thinking about Gaza. But Trump’s plan is not fresh thinking, it’s fresh riffing.`\
 https://nytimes.com/2025/02/11/opinion/trump-israel-gaza.html
-
-**The Briefing: Man City 2 Real Madrid 3 - Bellingham's late, late winner and another City collapse**\
-`City were stunned at the Etihad by Madrid in an instant Champions League classic`\
-https://nytimes.com/athletic/6126057/2025/02/11/man-city-2-real-madrid-3-bellingham/
 
