@@ -1,3 +1,19 @@
+**Corrections: Feb. 11, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
+https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
+
+**Dropping Charges Against Adams Wouldn’t Affect Case Against Close Ally**\
+`Ingrid Lewis-Martin, Mayor Eric Adams’s former top adviser, and her son, Glenn Martin II, are charged in state court with taking $100,000 in bribes.`\
+https://nytimes.com/2025/02/10/nyregion/ingrid-lewis-martin-investigation.html
+
+**Eric Adams, Trump’s Mayor**\
+`For New Yorkers, the concern is if there’s a quid for the quo. Will Eric Adams’s decisions be based on their interests or his?`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/eric-adams-trump-mayor-charges-drop
+
+**Adams’s Lawyer Claims Vindication. The Reality Is More Complicated.**\
+`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent. His assertions conflicted with evidence described by federal prosecutors.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
+
 **Mayor Adams’s lawyer celebrates push to drop charges.**\
 `Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent.`\
 https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-alex-spiro-lawyer

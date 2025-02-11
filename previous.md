@@ -1,6 +1,18 @@
-**Mayor Adams’s lawyer celebrates push to drop charges.**\
-`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent.`\
-https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-alex-spiro-lawyer
+**Corrections: Feb. 11, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
+https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
+
+**Dropping Charges Against Adams Wouldn’t Affect Case Against Close Ally**\
+`Ingrid Lewis-Martin, Mayor Eric Adams’s former top adviser, and her son, Glenn Martin II, are charged in state court with taking $100,000 in bribes.`\
+https://nytimes.com/2025/02/10/nyregion/ingrid-lewis-martin-investigation.html
+
+**Eric Adams, Trump’s Mayor**\
+`For New Yorkers, the concern is if there’s a quid for the quo. Will Eric Adams’s decisions be based on their interests or his?`\
+https://nytimes.com/live/2025/01/27/opinion/thepoint/eric-adams-trump-mayor-charges-drop
+
+**Adams’s Lawyer Claims Vindication. The Reality Is More Complicated.**\
+`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent. His assertions conflicted with evidence described by federal prosecutors.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
 
 **Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
 `Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6127839/2025/02/10/minnesota-twins-streaming-broadc
 **Eric Trump Said Adams Treated the Trump Family Company Well**\
 `Eric Trump, in a radio interview last week, said Mayor Eric Adams had always been supportive of everything the Trump Organization did.`\
 https://nytimes.com/2025/02/10/nyregion/eric-trump-eric-adams.html
-
-**Fox Sports projects record audience of 126 million for Super Bowl**\
-`Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
-https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/
-
-**For 2 corruption cases connected to Adams, an uncertain future.**\
-`A former City Hall aide`\
-https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/for-2-corruption-cases-connected-to-adams-an-uncertain-future
-
-**Hochul Halts Bill Aimed at Weakening Republican Control of House**\
-`Lawmakers were ready to pass a bill to delay a special election in New York State, but Gov. Kathy Hochul, who is in discussions with President Trump on congestion pricing, sidelined it.`\
-https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
 
