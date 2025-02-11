@@ -1,3 +1,12 @@
+**Twins spring training guide: 31 thoughts on all 31 pitchers in major-league camp**\
+`Stars like Pablo López and Jhoan Duran are joined by top prospects and Triple-A journeymen fighting for their major-league futures.`\
+https://nytimes.com/athletic/6103280/2025/02/11/twins-spring-training-2025-pitchers/
+
+**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
+`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
+`\
+https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
+
 **4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
 `The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
 `\
