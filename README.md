@@ -1,3 +1,15 @@
+**Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
+`President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a Southern border barrier.`\
+https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
+
+**Super Bowl 59 film review: How Vic Fangio's Eagles defense broke the Chiefs offense**\
+`Philadelphia's defensive coordinator created a blueprint to stop Patrick Mahomes and had the roster advantage on Sunday to make it work.`\
+https://nytimes.com/athletic/6127777/2025/02/11/eagles-defense-chiefs-super-bowl-film-review/
+
+**Wall Street Talked Endlessly About Diversity. Trump Ended That.**\
+`Goldman Sachs will drop a demand that corporate boards of directors include women and members of minority groups as financial firms backpedal from D.E.I. promises.`\
+https://nytimes.com/2025/02/11/business/trump-dei-wall-street.html
+
 **Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
 `Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
 https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targe
 **Jason Kelce reflects on Eagles winning Super Bowl, defends Travis Kelce**\
 `The retired Eagles center reflected on the "mixed emotions" he felt watching his brother, Travis, lose to Philadelphia in the Super Bowl.`\
 https://nytimes.com/athletic/6128637/2025/02/11/jason-kelce-eagles-super-bowl-travis/
-
-**Vance, in First Foreign Speech, Tells Europe That U.S. Will Dominate A.I.**\
-`Speaking in Paris at an artificial intelligence summit, the vice president gave an America First vision of the technology — with the U.S. dominating the chips, the software and the rules.`\
-https://nytimes.com/2025/02/11/world/europe/vance-speech-paris-ai-summit.html
-
-**Sam Kerr found not guilty of racially aggravated harassment of police officer**\
-`Kerr had been accused of intentionally causing “racially aggravated harassment, alarm or distress” to PC Stephen Lovell during the incident.`\
-https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
-
-**Deb Haaland, Ex-Interior Secretary, Is Running for Governor of New Mexico**\
-`Ms. Haaland, one of the first former cabinet officials in the Biden administration to announce a run for office, would be the first Native American woman to serve as governor of a state.`\
-https://nytimes.com/2025/02/11/us/politics/deb-haaland-new-mexico-governor-campaign.html
 
