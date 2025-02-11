@@ -1,3 +1,7 @@
+**Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
+`The left main gear of one of the jets failed during its landing, causing it to veer and crash into a larger jet, airport officials said.`\
+https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
+
 **Fox Sports projects record audience of 126 million for Super Bowl**\
 `Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
 https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/

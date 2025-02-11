@@ -31,7 +31,7 @@ https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
 https://nytimes.com/2025/02/10/nyregion/nypd-camden-lee-brooklyn-parade-shooting.html
 
 **Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
-`Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
+`The left main gear of one of the jets failed during its landing, causing it to veer and crash into a larger jet, airport officials said.`\
 https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
 
 **Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
