@@ -1,3 +1,19 @@
+**A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s orders.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
+
+**In Trump’s Washington, a War of Wordplay Takes Hold**\
+`The previous administration’s progressive lexicon has been swept away, replaced by a new official language of a bureaucracy under fire from its own president.`\
+https://nytimes.com/2025/02/11/us/politics/trump-wordplay.html
+
+**Husband of Prominent Gallerist Is Charged With Hiring His Killer**\
+`Federal officials said that Daniel Sikkema was part of a murder-for-hire conspiracy that resulted in the stabbing death of the art dealer Brent Sikkema in Brazil.`\
+https://nytimes.com/2025/02/11/arts/design/daniel-sikkema-murder-brent-sikkema.html
+
+**10 Songs That Celebrate the Sound of Philadelphia**\
+`Explore the city’s rich musical history with songs from Patti LaBelle, Alex G, the Roots and more.`\
+https://nytimes.com/2025/02/11/arts/music/amplifier-newsletter-philadelphia.html
+
 **Trump Claims the U.S. Has Authority to ‘Take’ Gaza**\
 `His remarks came in a meeting with King Abdullah II of Jordan, who demurred when asked by reporters about the idea and said the two nations should consult with other Arab nations, including Egypt.`\
 https://nytimes.com/2025/02/11/us/politics/trump-jordan-gaza.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-updat
 **Until Saturday: 2025's biggest recruiting surges**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6129283/2025/02/11/college-football-recruiting-2025-georgia-state-until-saturday/
-
-**How the January transfer market affected betting odds for EPL, European trophies**\
-`The transfer window is closed and most of the favourites across various competition remain the same. Who is in position to win trophies?`\
-https://nytimes.com/athletic/6129298/2025/02/11/transfer-market-premier-league-champions-europa/
-
-**Russia Releases U.S. Prisoner After Talks With Trump Envoy**\
-`The Kremlin freed Marc Fogel, a teacher held for more than three years on drug charges, in a deal negotiated by Steve Witkoff, President Trump’s Middle East envoy.`\
-https://nytimes.com/2025/02/11/us/politics/marc-fogel-teacher-released-russia.html
-
-**What International Law Says About Trump’s Proposal to Remove Palestinians From Gaza**\
-`Taking over the enclave, forcing Palestinians to leave and preventing them from returning would be clear violations of international law, experts say.`\
-https://nytimes.com/2025/02/11/world/middleeast/international-law-trump-gaza.html
-
-**Submit your questions for Peter Baugh and Arthur Staple’s New York Rangers mailbag**\
-`Have a question about the Rangers? Submit it here and The Athletic’s Peter Baugh and Arthur Staple will address a selection in their upcomin`\
-https://nytimes.com/athletic/6129342/2025/02/11/new-york-rangers-mailbag-february-2025/
 
