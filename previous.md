@@ -1,3 +1,11 @@
+**What you need to know about the Eagles’ Super Bowl parade**\
+`Learn everything from the parade's start time and route to Philadelphia's specialized public transportation schedule on Friday.`\
+https://nytimes.com/athletic/6126973/2025/02/11/eagles-super-bowl-championship-parade-route-schedule-updates/
+
+**‘I Have Nothing’ Is a Wacky and Moving Docu-Comedy**\
+`In this six-part Peacock series, the comedian Carolyn Taylor tries to choreograph a figure-skating routine, despite being barely able to skate.`\
+https://nytimes.com/2025/02/11/arts/television/i-have-nothing-peacock.html
+
 **Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
 `Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
 https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/trump-wordplay.html
 **Husband of Prominent Gallerist Is Charged With Hiring His Killer**\
 `Federal officials said that Daniel Sikkema was part of a murder-for-hire conspiracy that resulted in the stabbing death of the art dealer Brent Sikkema in Brazil.`\
 https://nytimes.com/2025/02/11/arts/design/daniel-sikkema-murder-brent-sikkema.html
-
-**10 Songs That Celebrate the Sound of Philadelphia**\
-`Explore the city’s rich musical history with songs from Patti LaBelle, Alex G, the Roots and more.`\
-https://nytimes.com/2025/02/11/arts/music/amplifier-newsletter-philadelphia.html
-
-**Trump Claims the U.S. Has Authority to ‘Take’ Gaza**\
-`His remarks came in a meeting with King Abdullah II of Jordan, who demurred when asked by reporters about the idea and said the two nations should consult with other Arab nations, including Egypt.`\
-https://nytimes.com/2025/02/11/us/politics/trump-jordan-gaza.html
 

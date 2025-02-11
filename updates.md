@@ -1,3 +1,11 @@
+**What you need to know about the Eagles’ Super Bowl parade**\
+`Learn everything from the parade's start time and route to Philadelphia's specialized public transportation schedule on Friday.`\
+https://nytimes.com/athletic/6126973/2025/02/11/eagles-super-bowl-championship-parade-route-schedule-updates/
+
+**‘I Have Nothing’ Is a Wacky and Moving Docu-Comedy**\
+`In this six-part Peacock series, the comedian Carolyn Taylor tries to choreograph a figure-skating routine, despite being barely able to skate.`\
+https://nytimes.com/2025/02/11/arts/television/i-have-nothing-peacock.html
+
 **Luka Dončić sees familiar face in L.A. in former Mavericks teammate Dirk Nowitzki**\
 `Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to watch Dončić make his debut with the Lakers.`\
 https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
