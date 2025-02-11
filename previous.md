@@ -1,3 +1,7 @@
+**In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
+`The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
+https://nytimes.com/2025/02/11/world/middleeast/palestinian-authority-prisoner-payments-trump-israel.html
+
 **A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s orders.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
 **Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
 `The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
 https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
-
-**Until Saturday: 2025's biggest recruiting surges**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6129283/2025/02/11/college-football-recruiting-2025-georgia-state-until-saturday/
 
