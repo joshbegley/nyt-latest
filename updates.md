@@ -1,3 +1,7 @@
+**Luka Dončić gets superstar treatment in Lakers debut as L.A. downs Jazz**\
+`Dončić finished with 14 points (5-of-14 shooting), five rebounds and four assists in 23 minutes.`\
+https://nytimes.com/athletic/6128110/2025/02/11/luka-doncic-lakers-debut-jazz/
+
 **France Is in a Deep, Deep Hole**\
 `Malaise is all around.`\
 https://nytimes.com/2025/02/11/opinion/france-budget-macron.html
