@@ -1,3 +1,11 @@
+**In an upset, the top-ranked golden retriever was eliminated.**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-upset-the-top-ranked-golden-retriever-was-eliminated
+
+**Knicks' Mitchell Robinson discusses absence, hopes to return at '100 percent'**\
+`Knicks expect a defensive boost when big man returns, which they view as akin to a trade deadline acquisition.`\
+https://nytimes.com/athletic/6130224/2025/02/11/mitchell-robinson-injury-update-knicks/
+
 **Do the Cubs want Alex Bregman in their clubhouse? '1000 percent' **\
 `Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
 https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/heres-the
 **Four dogs have already advanced to best in show judging.**\
 `By Benjamin Hoffman`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/four-dogs-have-already-advanced-to-best-in-show-judging
-
-**A peek behind the scenes.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/a-peek-behind-the-scenes
-
-**Gaza’s Cease-Fire Is Imperiled**\
-`Also, Russia released an American prisoner in a deal with Trump. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/02/11/briefing/gaza-cease-fire-snow-storms-westminster-dogs.html
 
