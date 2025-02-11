@@ -1,3 +1,7 @@
+**New Zealand Rugby launch legal action against Man United owner INEOS**\
+`The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
+https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
+
 **Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
 `President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a Southern border barrier.`\
 https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6117221/2025/02/11/joey-logano-champion-titles-uber
 **Canucks trade deadline targets: Why these 10 depth centres could fit**\
 `Players who could bolster the Canucks' depth down the middle and might be more realistic to acquire at the deadline for a reasonable cost.`\
 https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targets-2025/
-
-**Jason Kelce reflects on Eagles winning Super Bowl, defends Travis Kelce**\
-`The retired Eagles center reflected on the "mixed emotions" he felt watching his brother, Travis, lose to Philadelphia in the Super Bowl.`\
-https://nytimes.com/athletic/6128637/2025/02/11/jason-kelce-eagles-super-bowl-travis/
 
