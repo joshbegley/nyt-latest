@@ -1,3 +1,19 @@
+**Trump Insists the U.S. Will Take Control of Gaza**\
+`During a meeting with King Abdullah II of Jordan in the Oval Office, President Trump said that the United States had the authority to take Gaza.`\
+https://nytimes.com/video/us/politics/100000009984382/trump-jordan-gaza.html
+
+**Bucks GM Jon Horst talks Kyle Kuzma's role, team versatility and more**\
+`Horst spoke to reporters for 25 minutes to discuss a variety of topics about the Bucks' moves around the trade deadline.`\
+https://nytimes.com/athletic/6128410/2025/02/11/jon-horst-bucks-kyle-kuzma-trade-deadline/
+
+**Havertz to be assessed after suffering muscular injury in Dubai**\
+`Mikel Arteta is already dealing with injuries to forwards Gabriel Martinelli, Bukayo Saka and Gabriel Jesus.`\
+https://nytimes.com/athletic/6129547/2025/02/11/kai-havertz-injury-arsenal/
+
+**Top FEMA Official Is Fired Over Payments for N.Y.C. Migrant Shelters**\
+`The Trump administration fired the Federal Emergency Management Agency’s chief financial officer and three others after Elon Musk misleadingly claimed the agency had used disaster-relief funds for migrant services.`\
+https://nytimes.com/2025/02/11/nyregion/fema-fired-nyc-migrant-hotels.html
+
 **What you need to know about the Eagles’ Super Bowl parade**\
 `Learn everything from the parade's start time and route to Philadelphia's specialized public transportation schedule on Friday.`\
 https://nytimes.com/athletic/6126973/2025/02/11/eagles-super-bowl-championship-parade-route-schedule-updates/

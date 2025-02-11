@@ -1,3 +1,19 @@
+**Trump Insists the U.S. Will Take Control of Gaza**\
+`During a meeting with King Abdullah II of Jordan in the Oval Office, President Trump said that the United States had the authority to take Gaza.`\
+https://nytimes.com/video/us/politics/100000009984382/trump-jordan-gaza.html
+
+**Bucks GM Jon Horst talks Kyle Kuzma's role, team versatility and more**\
+`Horst spoke to reporters for 25 minutes to discuss a variety of topics about the Bucks' moves around the trade deadline.`\
+https://nytimes.com/athletic/6128410/2025/02/11/jon-horst-bucks-kyle-kuzma-trade-deadline/
+
+**Havertz to be assessed after suffering muscular injury in Dubai**\
+`Mikel Arteta is already dealing with injuries to forwards Gabriel Martinelli, Bukayo Saka and Gabriel Jesus.`\
+https://nytimes.com/athletic/6129547/2025/02/11/kai-havertz-injury-arsenal/
+
+**Top FEMA Official Is Fired Over Payments for N.Y.C. Migrant Shelters**\
+`The Trump administration fired the Federal Emergency Management Agency’s chief financial officer and three others after Elon Musk misleadingly claimed the agency had used disaster-relief funds for migrant services.`\
+https://nytimes.com/2025/02/11/nyregion/fema-fired-nyc-migrant-hotels.html
+
 **What you need to know about the Eagles’ Super Bowl parade**\
 `Learn everything from the parade's start time and route to Philadelphia's specialized public transportation schedule on Friday.`\
 https://nytimes.com/athletic/6126973/2025/02/11/eagles-super-bowl-championship-parade-route-schedule-updates/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-
 **Luka Dončić sees familiar face in L.A. in former Mavericks teammate Dirk Nowitzki**\
 `Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to watch Dončić make his debut with the Lakers.`\
 https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
-
-**In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
-`The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
-https://nytimes.com/2025/02/11/world/middleeast/abbas-prisoner-payments-trump.html
-
-**A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s edict.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
-
-**In Trump’s Washington, a War of Wordplay Takes Hold**\
-`The previous administration’s progressive lexicon has been swept away, replaced by a new official language of a bureaucracy under fire from its own president.`\
-https://nytimes.com/2025/02/11/us/politics/trump-wordplay.html
-
-**Husband of Prominent Gallerist Is Charged With Hiring His Killer**\
-`Federal officials said that Daniel Sikkema was part of a murder-for-hire conspiracy that resulted in the stabbing death of the art dealer Brent Sikkema in Brazil.`\
-https://nytimes.com/2025/02/11/arts/design/daniel-sikkema-murder-brent-sikkema.html
 
