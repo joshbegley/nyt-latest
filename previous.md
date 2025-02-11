@@ -1,3 +1,15 @@
+**Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
+`Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
+https://nytimes.com/athletic/6127236/2025/02/10/ken-dorsey-dallas-cowboys-staff/
+
+**Democrats Don’t Need a Perfect Message, They Need to Show Some Fight**\
+`What Chuck Schumer and Hakeem Jeffries can do is convey the enormous danger of this moment, immediately and continuously. Schumer’s changing course already.`\
+https://nytimes.com/2025/02/10/opinion/chuck-schumer-hakeem-jeffries-trump-protest.html
+
+**Two nonprofits sue over Trump’s freeze on foreign aid.**\
+`By Stephanie Nolen`\
+https://nytimes.com/live/2025/02/10/us/trump-news/two-nonprofits-sue-over-trumps-freeze-on-foreign-aid
+
 **If Adams Is Cleared, Other Inquiries in His Orbit Would Face Uncertainty**\
 `The dropping of federal corruption charges against Mayor Eric Adams could affect criminal investigations involving his associates in different ways, or not at all.`\
 https://nytimes.com/2025/02/10/nyregion/nyc-city-hall-investigations-future.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
 **Trump Pardons Rod Blagojevich, the Former Illinois Governor**\
 `The pardon was the latest overture between the president and the former governor, who is still known in Chicago simply as “Blago.”`\
 https://nytimes.com/2025/02/10/us/politics/rod-blagojevich-trump-pardon.html
-
-**Eric Adams Curried Favor With Trump for Months**\
-`Mr. Adams has refrained from criticizing President Trump or his policies, even urging top aides not to do so, and has signaled a desire to work with the new administration.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-donald-trump.html
-
-**Marc Lore, Alex Rodriguez win Timberwolves, Lynx arbitration case**\
-`A three-person panel ruled in favor of Lore and Rodriguez, setting them up to take full control of Minnesota's NBA and WNBA teams.`\
-https://nytimes.com/athletic/6126622/2025/02/10/minnesota-timberwolves-ownership-dispute-nba-lore-rodriguez/
-
-**Why Musk and Vance Went to Bat for a Self-Described Racist**\
-`Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
-https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
 
