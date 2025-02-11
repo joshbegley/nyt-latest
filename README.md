@@ -1,3 +1,7 @@
+**A Dark Tale for a Dark Time, Told Through Indian Classical Dance**\
+`The choreographer Akram Khan’s “Gigenis,” based loosely on a character in the Mahabharata, represents a kind of homecoming for him.`\
+https://nytimes.com/2025/02/11/arts/dance/akram-khan-gigenis-indian-classical-dance.html
+
 **Spain’s Former Top Soccer Official Testifies About Kissing Star Player**\
 `Luis Rubiales said that when he kissed Jennifer Hermoso on the lips, it was just a sign of affection after the country’s national team had won the 2023 Women’s World Cup.`\
 https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-hermoso-kiss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6127778/2025/02/11/us-open-tennis-grand-slam-schedu
 **Europe Vows to Respond to Trump’s Tariffs, but Holds Back on Details**\
 `European leaders have said that they will respond firmly to higher levies on steel and aluminum, but they have yet to say what that retaliation will look like.`\
 https://nytimes.com/2025/02/11/business/trump-tariffs-steel-european-union.html
-
-**49ers 7-round mock draft: Why rebuilding the trenches is likely and necessary**\
-`Trent Williams turns 37 in July and the 49ers options are thin beyond him. Ohio State's Josh Simmons offers a future at offensive tackle.`\
-https://nytimes.com/athletic/6127208/2025/02/11/49ers-2025-mock-nfl-draft-josh-simmons/
 
