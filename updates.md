@@ -1,3 +1,7 @@
+**Fox Sports projects record audience of 126 million for Super Bowl**\
+`Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
+https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/
+
 **For 2 corruption cases connected to Adams, an uncertain future.**\
 `A former City Hall aide`\
 https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/for-2-corruption-cases-connected-to-adams-an-uncertain-future

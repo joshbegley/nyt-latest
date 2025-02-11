@@ -1,3 +1,7 @@
+**Fox Sports projects record audience of 126 million for Super Bowl**\
+`Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
+https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/
+
 **For 2 corruption cases connected to Adams, an uncertain future.**\
 `A former City Hall aide`\
 https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/for-2-corruption-cases-connected-to-adams-an-uncertain-future
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
 **Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
 `It is unclear if the request to drop the indictment against the New York City mayor will sway enough disaffected voters to his side.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
-
-**DNA and a Thumbprint Help Authorities Solve 2003 Long Island Murder**\
-`A former neighbor of Edna Schubert, 88, who was beaten to death in her Suffolk County home, was arrested after a retired detective urged the use of new technology in the case.`\
-https://nytimes.com/2025/02/10/us/long-island-murder-cold-case-thumbprint.html
 
