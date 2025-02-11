@@ -1,3 +1,27 @@
+**Vance Outlines America First Approach to A.I. at Paris Summit**\
+`During his first foreign trip since taking office, Vice President JD Vance urged European nations to dismantle regulations that could hinder U.S. domination over the building blocks of A.I. technology.`\
+https://nytimes.com/video/us/politics/100000009983399/vance-america-first-ai-paris-summit.html
+
+**Hayes names USWNT squad for SheBelieves Cup**\
+`Chelsea's Cat Macario has returned, though, having not played for the U.S. since June 2024.`\
+https://nytimes.com/athletic/6128769/2025/02/11/uswnt-squad-shebelieves-cup/
+
+**Five Easy Pastas That Are Very Romantic**\
+`You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
+https://nytimes.com/2025/02/11/dining/five-easy-pastas-that-are-very-romantic.html
+
+**Demi Moore, Naked and Liberated**\
+`As she prepares for her first Oscars as a nominee, the star of “The Substance” talks about the daring role that revitalized her career.`\
+https://nytimes.com/2025/02/11/movies/demi-moore-substance-oscars.html
+
+**Hilton Als Is a Critic Who Curates, or Is It the Other Way Around?**\
+`The Pulitzer-prize winning writer and essayist talks about his love of art and how he reconciles two challenging roles.`\
+https://nytimes.com/2025/02/11/arts/design/hilton-als-new-yorker-curator-art-hill.html
+
+**Luis Rubiales says, 'I've kissed many footballers' and is 'completely sure' Jenni Hermoso gave consent**\
+`The former president of Spain's football federation gave evidence in court, where he stands trial for alleged sexual assault and coercion`\
+https://nytimes.com/athletic/6128792/2025/02/11/luis-rubiales-trial-hermoso-kiss-consent/
+
 **Scoop City: NFL's eight big offseason questions**\
 `Inside: Eight storylines that will help shape 2025, including Myles Garrett, Cooper Kupp and Matthew Stafford, the 49ers, Aaron Rodgers, Sam Darnold, the Steelers, Titans and Tee Higgins.`\
 https://nytimes.com/athletic/6128951/2025/02/11/nfl-eight-offseason-questions-to-watch-scoop-city/
@@ -14,28 +38,4 @@ https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
 `Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
 `\
 https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
-
-**Natalie Spooner returns to Sceptres lineup, will make season debut vs. Frost**\
-`The reigning PWHL MVP's return comes almost nine months after she tore her ACL in Game 3 of the semifinals against Minnesota.`\
-https://nytimes.com/athletic/6127811/2025/02/11/pwhl-natalie-spooner-toronto-sceptres/
-
-**The Bounce: Luka Dončić debuts with Lakers as Mavericks fans stay angry in Dallas**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6128590/2025/02/11/luka-doncic-lebron-james-lakers-mavericks-nico-harrison-nba-the-bounce/
-
-**A Simple Salmon to Tell Someone You Love Them**\
-`This 30-minute recipe for “Marry Me Salmon” feels special but is easy enough for a weeknight.`\
-https://nytimes.com/2025/02/11/dining/simple-salmon-recipe.html
-
-**Super Bowl halftime show: Kendrick Lamar used 13 minutes to make unsubtle statements**\
-`Sunday’s Super Bowl halftime show featured Kendrick Lamar mixing thinking points with entertainment.`\
-https://nytimes.com/athletic/6125334/2025/02/11/super-bowl-halftime-show-kendrick-lamar-america-samuel-l-jackson/
-
-**New Zealand Rugby launches legal action against Man United owner INEOS**\
-`The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
-https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
-
-**Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
-`President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a southern border barrier.`\
-https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
 
