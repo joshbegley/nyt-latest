@@ -1,3 +1,7 @@
+**‘The White Lotus’ Is Back, With Wellness and Angst Included**\
+`Parker Posey, Patrick Schwarzenegger and Blackpink’s Lisa celebrated the third season of the HBO show, this time set at a luxury resort in Thailand.`\
+https://nytimes.com/2025/02/11/style/white-lotus-season-3-hbo.html
+
 **Trump’s Gaza Plan Is a Crazy Answer to a Valid Question**\
 `There is a case to make for fresh thinking about Gaza. But Trump’s plan is not fresh thinking, it’s fresh riffing.`\
 https://nytimes.com/2025/02/11/opinion/trump-israel-gaza.html
