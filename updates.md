@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada
 `\
 https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
 
+**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
+`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
+`\
+https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
+
 **Twins spring preview: Key dates, position battles and 3 questions to answer**\
 `Spring training is here, finally providing the Twins with an opportunity to eliminate the bad taste of last season's disappointing ending. `\
 https://nytimes.com/athletic/6127227/2025/02/11/twins-spring-training-preview-2025/
