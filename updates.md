@@ -1,3 +1,7 @@
+**Canucks trade deadline targets: Why these 10 depth centremen could fit in Vancouver**\
+`Players who could bolster the Canucks' depth down the middle and might be more realistic to acquire at the deadline for a reasonable cost.`\
+https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targets-2025/
+
 **Jason Kelce reflects on Eagles winning Super Bowl, defends Travis Kelce**\
 `The retired Eagles center reflected on the "mixed emotions" he felt watching his brother, Travis, lose to Philadelphia in the Super Bowl.`\
 https://nytimes.com/athletic/6128637/2025/02/11/jason-kelce-eagles-super-bowl-travis/
