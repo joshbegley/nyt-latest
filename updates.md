@@ -1,3 +1,11 @@
+**NOAA Is Told to Make List of Climate-Related Grants, Setting Off Fears**\
+`Staff members search for spending on “climate science,” “climate crisis” and “pollution” as one of the world’s premier climate research agencies girds for cuts.`\
+https://nytimes.com/2025/02/10/climate/noaa-trump-executive-orders.html
+
+**Full Time: An overdue win for NWSL players**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6127857/2025/02/10/nwsl-settlement-kerr-trial-full-time/
+
 **A judge blocked Trump’s firing of a government watchdog.**\
 `Hampton Dellinger, the head of the Office of Special Counsel, had sued the Trump administration, arguing that the president went beyond his legal authority.`\
 https://nytimes.com/live/2025/02/10/us/trump-news/a-judge-blocked-trumps-firing-of-a-government-watchdog
