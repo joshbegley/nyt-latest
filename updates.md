@@ -1,3 +1,11 @@
+**Do the Cubs want Alex Bregman in their clubhouse? '1000 percent' **\
+`Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
+https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
+
+**Breed winners arrived on a champions-only shuttle bus.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/breed-winners-arrived-on-a-champions-only-shuttle-bus
+
 **Man City vs Real Madrid: Guardiola's troops throw Los Blancos a life line**\
 `Julia Ranney, Sam Tighe and Brett Koremenos dissect Tuesday's clash between Manchester City and Real Madrid through a betting lens.`\
 https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-betting-review/

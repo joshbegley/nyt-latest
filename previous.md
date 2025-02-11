@@ -1,3 +1,11 @@
+**Do the Cubs want Alex Bregman in their clubhouse? '1000 percent' **\
+`Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
+https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
+
+**Breed winners arrived on a champions-only shuttle bus.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/breed-winners-arrived-on-a-champions-only-shuttle-bus
+
 **Man City vs Real Madrid: Guardiola's troops throw Los Blancos a life line**\
 `Julia Ranney, Sam Tighe and Brett Koremenos dissect Tuesday's clash between Manchester City and Real Madrid through a betting lens.`\
 https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-betting-review/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/a-peek-be
 **Gaza’s Cease-Fire Is Imperiled**\
 `Also, Russia released an American prisoner in a deal with Trump. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/02/11/briefing/gaza-cease-fire-snow-storms-westminster-dogs.html
-
-**2025-26 NFL MVP odds, picks: Jackson opens as favorite, Burrow and Mahomes in tight race**\
-`The odds for next year's NFL MVP, plus way-too-early picks by our staff on who might hoist the award in 2026. `\
-https://nytimes.com/athletic/6128782/2025/02/11/2025-26-nfl-mvp-odds-picks/
-
-**White House Bars Reporter From Event Over A.P.’s Use of ‘Gulf of Mexico’**\
-`The Associated Press has said it would refer to the Gulf of Mexico “by its original name while acknowledging” President Trump’s choice to rename the body of water.`\
-https://nytimes.com/2025/02/11/us/politics/trump-ap-gulf-mexico-america.html
 
