@@ -1,3 +1,8 @@
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **Vance Outlines America First Approach to A.I. at Paris Summit**\
 `During his first foreign trip since taking office, Vice President JD Vance urged European nations to dismantle regulations that could hinder U.S. domination over the building blocks of A.I. technology.`\
 https://nytimes.com/video/us/politics/100000009983399/vance-america-first-ai-paris-summit.html
