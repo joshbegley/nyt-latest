@@ -1,3 +1,11 @@
+**Can this matchless midweek help change Tottenham's fortunes?**\
+`Has the arrival of reinforcements, from the transfer window and out of the treatment room, come too late to save Spurs’ season?`\
+https://nytimes.com/athletic/6126766/2025/02/11/tottenham-fixtures-injuries-postecoglou/
+
+**Mauricio Pochettino vs Enzo Maresca: How Chelsea's most recent head coaches compare**\
+`Only twice this century have Chelsea fared worse in domestic cup competitions than they have this season, leaving little margin for error`\
+https://nytimes.com/athletic/6126247/2025/02/11/chelsea-maresca-pochettino-fa-carabao-cups/
+
 **Ruben Dias: The making of Manchester City's 'leader'**\
 `The Portuguese defender has cajoled team-mates since his early days at Benfica and his image is as finely curated as his competitive spirit`\
 https://nytimes.com/athletic/5900462/2025/02/11/ruben-dias-profile-manchester-city-leader/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6126559/2025/02/11/turkey-galatasaray-adana-demirsp
 **Liverpool fans: We are taking requests - what would you like to read about?**\
 `Let us know what you would be interested in reading about`\
 https://nytimes.com/athletic/6124211/2025/02/11/liverpool-fans-we-are-taking-requests-what-would-you-like-to-read-about/
-
-**Manchester United fans: We are taking requests – what would you like to read about?**\
-`Let us know what you would be interested in knowing about`\
-https://nytimes.com/athletic/6125887/2025/02/11/man-united-requests-ideas/
-
-**Spurs fans: We are taking requests - what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6126216/2025/02/11/tottenham-fans-we-are-taking-requests-what-would-you-like-to-read-about-2/
 
