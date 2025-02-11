@@ -1,7 +1,3 @@
-**An Emboldened Trump Seeks to Bend New York City to His Will**\
-`The Trump administration’s order to drop the charges against Mayor Eric Adams was the most pronounced example of the president using his power to determine the city’s future.`\
-https://nytimes.com/2025/02/11/nyregion/trump-nyc.html
-
 **‘Serial Swatter’ Who Made Nearly 400 Threatening Calls Gets 4 Years in Prison**\
 `Alan W. Filion, 18, of Lancaster, Calif., pleaded guilty to making false threats of mass violence, which prosecutors said prompted large police deployments and, in some cases, unnecessary detentions.`\
 https://nytimes.com/2025/02/11/us/california-swatting-calls-sentence-teen.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-fre
 **Brandon Ingram, Raptors agree to 3-year, $120 million extension: Source**\
 `The Raptors acquired Ingram, who hasn't played since Dec. 7 due to a sprained ankle, in a deal with the Pelicans last week.`\
 https://nytimes.com/athletic/6129708/2025/02/11/brandon-ingram-contract-extension-raptors/
+
+**Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
+`The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
+https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
 
