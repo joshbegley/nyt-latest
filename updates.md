@@ -1,3 +1,32 @@
+**Vance Outlines America First Approach to A.I. at Paris Summit**\
+`During his first foreign trip since taking office, Vice President JD Vance urged European nations to dismantle regulations that could hinder U.S. domination over the building blocks of A.I. technology.`\
+https://nytimes.com/video/us/politics/100000009983399/vance-america-first-ai-paris-summit.html
+
+**Hayes names USWNT squad for SheBelieves Cup**\
+`Chelsea's Cat Macario has returned, though, having not played for the U.S. since June 2024.`\
+https://nytimes.com/athletic/6128769/2025/02/11/uswnt-squad-shebelieves-cup/
+
+**Five Easy Pastas That Are Very Romantic**\
+`You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
+https://nytimes.com/2025/02/11/dining/five-easy-pastas-that-are-very-romantic.html
+
+**Demi Moore, Naked and Liberated**\
+`As she prepares for her first Oscars as a nominee, the star of “The Substance” talks about the daring role that revitalized her career.`\
+https://nytimes.com/2025/02/11/movies/demi-moore-substance-oscars.html
+
+**Hilton Als Is a Critic Who Curates, or Is It the Other Way Around?**\
+`The Pulitzer-prize winning writer and essayist talks about his love of art and how he reconciles two challenging roles.`\
+https://nytimes.com/2025/02/11/arts/design/hilton-als-new-yorker-curator-art-hill.html
+
+**Luis Rubiales says, 'I've kissed many footballers' and is 'completely sure' Jenni Hermoso gave consent**\
+`The former president of Spain's football federation gave evidence in court, where he stands trial for alleged sexual assault and coercion`\
+https://nytimes.com/athletic/6128792/2025/02/11/luis-rubiales-trial-hermoso-kiss-consent/
+
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
 `Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
 `\
