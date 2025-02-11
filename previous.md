@@ -1,3 +1,7 @@
+**Joey Logano on the elite company he's in, his fear of Ubers and more: 12 Questions**\
+`Joey Logano kicks off our 2025 12 Questions season, talking Ubers, how he feels about his place in racing history and more.`\
+https://nytimes.com/athletic/6117221/2025/02/11/joey-logano-champion-titles-uber-12-questions/
+
 **Canucks trade deadline targets: Why these 10 depth centremen could fit in Vancouver**\
 `Players who could bolster the Canucks' depth down the middle and might be more realistic to acquire at the deadline for a reasonable cost.`\
 https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targets-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6127088/2025/02/11/super-bowl-lix-collectibles-jale
 **Who’s Running for Mayor of New York City?**\
 `The Democratic incumbent, Eric Adams, faces an unusually large field of challengers seeking to seize on his low poll numbers and legal problems.`\
 https://nytimes.com/interactive/2025/nyregion/nyc-mayor-candidates-2025.html
-
-**De'Andre Hunter's 'really good debut' has Cavs dreaming big things**\
-`Cleveland didn't seem to need any help, but Hunter gives it a 3-and-D wing whose skills were on display against the Timberwolves.  `\
-https://nytimes.com/athletic/6128097/2025/02/11/deandre-hunter-cavaliers-debut-trade/
 
