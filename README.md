@@ -1,3 +1,7 @@
+**Eric Trump Said Adams Treated the Trump Family Company Well**\
+`Eric Trump, in a radio interview last week, said Mayor Eric Adams had always been supportive of everything the Trump Organization did.`\
+https://nytimes.com/2025/02/10/nyregion/eric-trump-eric-adams.html
+
 **Fox Sports projects record audience of 126 million for Super Bowl**\
 `Network says it's audience across broadcast and digital properties beat last year's mark of 123.7 million for game on CBS.`\
 https://nytimes.com/athletic/6127768/2025/02/10/super-bowl-eagles-chiefs-viewership-record-2025/
@@ -31,10 +35,6 @@ https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
 https://nytimes.com/2025/02/10/nyregion/nypd-camden-lee-brooklyn-parade-shooting.html
 
 **Two Planes Collide at Arizona Airport, Killing 1 and Injuring 3, Officials Say**\
-`Emergency crews at Scottsdale Airport were still working to extract one person from the crash site hours after the fact.`\
+`The left main gear of one of the jets failed during its landing, causing it to veer and crash into a larger jet, airport officials said.`\
 https://nytimes.com/2025/02/10/us/scottsdale-airport-plane-crash.html
-
-**Adams May Get His Charges Dropped, but His Re-election Fight Remains**\
-`It is unclear if the request to drop the indictment against the New York City mayor will sway enough disaffected voters to his side.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
 
