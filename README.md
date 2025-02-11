@@ -18,7 +18,7 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-ups
 `Knicks expect a defensive boost when big man returns, which they view as akin to a trade deadline acquisition.`\
 https://nytimes.com/athletic/6130224/2025/02/11/mitchell-robinson-injury-update-knicks/
 
-**Do the Cubs want Alex Bregman in their clubhouse? '1000 percent' **\
+**Do the Cubs want Alex Bregman in their clubhouse? '1,000 percent' **\
 `Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
 https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
 
