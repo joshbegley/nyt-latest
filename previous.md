@@ -1,3 +1,15 @@
+**Word of the Day: juggernaut**\
+`This word has appeared in 438 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/11/learning/word-of-the-day-juggernaut.html
+
+**'We got away with it': Joe Mazzulla frustrated with how Celtics closed out second quarter**\
+`After a comfortable win over Miami, Mazzulla's sharp comments provided a window into the way he evaluates the game.`\
+https://nytimes.com/athletic/6128169/2025/02/11/celtics-heat-joe-mazzulla-jayson-tatum/
+
+**Mavericks fan ejected after mouthing 'Fire Nico' during loss to Kings**\
+`The Mavericks said the fans were ejected for violating the NBA Fan Code of Conduct.`\
+https://nytimes.com/athletic/6128162/2025/02/11/luka-doncic-trade-nico-harrison-fans-ejected/
+
 **Warriors go 2-0 in Jimmy Butler era: 'Every possession doesn’t feel as hard,' Curry says**\
 `Steph Curry credits Butler's arrival for his 2-game mini-breakout — 72 points in 68 minutes on 22-of-43 shooting, with 14 3-pointers.`\
 https://nytimes.com/athletic/6128121/2025/02/11/warriors-2-0-in-jimmy-butler-era/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5900462/2025/02/11/ruben-dias-profile-manchester-ci
 **Manchester United's Cult Heroes: Louis Saha**\
 `In the first of a new series, Saha tells The Athletic about playing with Rooney and Ronaldo, and why you have to do 'extra' at United`\
 https://nytimes.com/athletic/6117949/2025/02/11/manchester-united-cult-heroes-louis-saha/
-
-**Newcastle Q&A: Expiring contracts, injury improvements and managing cup excitement**\
-`Chris Waugh answers readers' questions after Newcastle progress to the fifth round of the FA Cup`\
-https://nytimes.com/athletic/6125580/2025/02/11/newcastle-contracts-injuries-cup-final/
-
-**With Martinelli and Saka out, are Arsenal's best wing options Trossard and Nwaneri?**\
-`With a packed fixture list and key players out, Arsenal manager Mikel Arteta is going to need to be creative in the coming weeks`\
-https://nytimes.com/athletic/6126207/2025/02/11/with-martinelli-and-saka-out-are-arsenals-best-wing-options-trossard-and-nwaneri/
-
-**Pep Guardiola, Carlo Ancelotti and two very different notions of what a manager should be**\
-`The Man City and Real Madrid managers appear similar, but a closer look tells us otherwise`\
-https://nytimes.com/athletic/6126125/2025/02/11/pep-guardiola-carlo-ancelotti-and-two-very-different-notions-of-what-a-manager-should-be/
 
