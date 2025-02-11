@@ -1,3 +1,7 @@
+**Her Discovery Wasn’t Alien Life, but Science Has Never Been the Same**\
+`The internet erupted in controversy over Felisa Wolfe-Simon and colleagues’ claim of a microbe thriving on arsenic. Nearly 15 years later, she’s pursuing new research on the boundaries of life.`\
+https://nytimes.com/2025/02/11/science/arseniclife-felisa-wolfe-simon-retraction.html
+
 **John Oliver Interrupts Jon Stewart’s Monologue on ‘The Daily Show’**\
 `The British host of “Last Week Tonight” said he wanted to be “the first to welcome America to its monarchy era.”`\
 https://nytimes.com/2025/02/11/arts/television/john-oliver-jon-stewart-daily-show.html

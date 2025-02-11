@@ -1,3 +1,7 @@
+**Her Discovery Wasn’t Alien Life, but Science Has Never Been the Same**\
+`The internet erupted in controversy over Felisa Wolfe-Simon and colleagues’ claim of a microbe thriving on arsenic. Nearly 15 years later, she’s pursuing new research on the boundaries of life.`\
+https://nytimes.com/2025/02/11/science/arseniclife-felisa-wolfe-simon-retraction.html
+
 **John Oliver Interrupts Jon Stewart’s Monologue on ‘The Daily Show’**\
 `The British host of “Last Week Tonight” said he wanted to be “the first to welcome America to its monarchy era.”`\
 https://nytimes.com/2025/02/11/arts/television/john-oliver-jon-stewart-daily-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/opinion/france-budget-macron.html
 **Can this matchless midweek help change Tottenham's fortunes?**\
 `Has the arrival of reinforcements, from the transfer window and out of the treatment room, come too late to save Spurs’ season?`\
 https://nytimes.com/athletic/6126766/2025/02/11/tottenham-fixtures-injuries-postecoglou/
-
-**Mauricio Pochettino vs Enzo Maresca: How Chelsea's most recent head coaches compare**\
-`Only twice this century have Chelsea fared worse in domestic cup competitions than they have this season, leaving little margin for error`\
-https://nytimes.com/athletic/6126247/2025/02/11/chelsea-maresca-pochettino-fa-carabao-cups/
 
