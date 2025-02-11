@@ -1,3 +1,7 @@
+**U.S. U-17 men's national team notches historic 22-0 win over Virgin Islands**\
+`The result is the largest margin of victory ever recorded by a U.S. team in a World Cup qualifier at any level, men’s or women’s.`\
+https://nytimes.com/athletic/6128049/2025/02/10/us-soccer-u17-chase-adams-virgin-islands/
+
 **NOAA Is Told to Make List of Climate-Related Grants, Setting Off Fears**\
 `Staff members search for spending on “climate science,” “climate crisis” and “pollution” as one of the world’s premier climate research agencies girds for cuts.`\
 https://nytimes.com/2025/02/10/climate/noaa-trump-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
 **Dropping Charges Against Adams Wouldn’t Affect Case Against Close Ally**\
 `Ingrid Lewis-Martin, Mayor Eric Adams’s former top adviser, and her son, Glenn Martin II, are charged in state court with taking $100,000 in bribes.`\
 https://nytimes.com/2025/02/10/nyregion/ingrid-lewis-martin-investigation.html
-
-**Eric Adams, Trump’s Mayor**\
-`For New Yorkers, the concern is if there’s a quid for the quo. Will Eric Adams’s decisions be based on their interests or his?`\
-https://nytimes.com/live/2025/01/27/opinion/thepoint/eric-adams-trump-mayor-charges-drop
 
