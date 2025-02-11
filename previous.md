@@ -1,3 +1,11 @@
+**Real Madrid player Raul Asencio has appeal dismissed in sex tape investigation involving a minor**\
+`The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
+https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
+
+**Kenley Jansen signs 1-year, $10 million deal with Angels: Sources**\
+`It's unclear whether Jansen will be the Angels' closer, as the team already has fireballer Ben Joyce in that role.`\
+https://nytimes.com/athletic/6129055/2025/02/11/kenley-jansen-signs-angels/
+
 **Pope Criticizes Trump’s Deportation of Migrants as a Violation of Dignity**\
 `In a letter to American bishops, Francis leveled unusually direct criticism at the administration on an issue he has made central to his papacy.`\
 https://nytimes.com/2025/02/11/world/europe/pope-trump-immigration-deportations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/arts/design/hilton-als-new-yorker-curator-art-hil
 **Luis Rubiales says, 'I've kissed many footballers' and is 'completely sure' Jenni Hermoso gave consent**\
 `The former president of Spain's football federation gave evidence in court, where he stands trial for alleged sexual assault and coercion`\
 https://nytimes.com/athletic/6128792/2025/02/11/luis-rubiales-trial-hermoso-kiss-consent/
-
-**Scoop City: NFL's eight big offseason questions**\
-`Inside: Eight storylines that will help shape 2025, including Myles Garrett, Cooper Kupp and Matthew Stafford, the 49ers, Aaron Rodgers, Sam Darnold, the Steelers, Titans and Tee Higgins.`\
-https://nytimes.com/athletic/6128951/2025/02/11/nfl-eight-offseason-questions-to-watch-scoop-city/
-
-**Chinese Companies’ New Tactic to Stop Damaging Research: Legal Threats**\
-`Think tanks and universities have helped expose problematic Chinese business practices. Now, those businesses are accusing them of defamation.`\
-https://nytimes.com/2025/02/11/technology/chinese-company-legal-threats-researchers.html
 

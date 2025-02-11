@@ -1,3 +1,11 @@
+**Real Madrid player Raul Asencio has appeal dismissed in sex tape investigation involving a minor**\
+`The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
+https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
+
+**Kenley Jansen signs 1-year, $10 million deal with Angels: Sources**\
+`It's unclear whether Jansen will be the Angels' closer, as the team already has fireballer Ben Joyce in that role.`\
+https://nytimes.com/athletic/6129055/2025/02/11/kenley-jansen-signs-angels/
+
 **Pope Criticizes Trump’s Deportation of Migrants as a Violation of Dignity**\
 `In a letter to American bishops, Francis leveled unusually direct criticism at the administration on an issue he has made central to his papacy.`\
 https://nytimes.com/2025/02/11/world/europe/pope-trump-immigration-deportations.html
