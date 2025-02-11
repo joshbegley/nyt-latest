@@ -1,3 +1,7 @@
+**Read the Justice Department Memo About Eric Adams’s Corruption Case**\
+`The Justice Department on Monday told federal prosecutors in Manhattan to drop the corruption charges against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
+
 **Marc Lore, Alex Rodriguez win Timberwolves, Lynx arbitration case**\
 `A three-person panel ruled in favor of Lore and Rodriguez, setting them up to take full control of Minnesota's NBA and WNBA teams.`\
 https://nytimes.com/athletic/6126622/2025/02/10/minnesota-timberwolves-ownership-dispute-nba-lore-rodriguez/
