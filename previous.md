@@ -1,3 +1,11 @@
+**Ye Advertised Website Selling T-Shirts With Swastikas in Super Bowl Commercial**\
+`The commercial aired in some local markets several days after the rapper and designer called himself a Nazi in a series of social media posts.`\
+https://nytimes.com/2025/02/11/arts/music/kanye-west-yeezy-website-swastika-shirts.html
+
+**Amick: Can Luka Dončić learn from Kobe and LeBron? Lakers are counting on it**\
+`Dončić made his LA debut on Monday night, but what he does in between the games will determine his legacy in purple and gold.`\
+https://nytimes.com/athletic/6128323/2025/02/11/luka-doncic-debut-lakers-lebron-kobe/
+
 **A Dark Tale for a Dark Time, Told Through Indian Classical Dance**\
 `The choreographer Akram Khan’s “Gigenis,” based loosely on a character in the Mahabharata, represents a kind of homecoming for him.`\
 https://nytimes.com/2025/02/11/arts/dance/akram-khan-gigenis-indian-classical-dance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-ou
 **Weekly Student News Quiz: Super Bowl, Trump's Actions, Eggs**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/11/learning/11StudentNewsQuiz.html
-
-**The U.S. Open takes the Grand Slams past the point of no return**\
-`Moving a Grand Slam event into its qualifying week takes the biggest tournaments in tennis into unexplored territory.`\
-https://nytimes.com/athletic/6127778/2025/02/11/us-open-tennis-grand-slam-schedule-finances/
-
-**Europe Vows to Respond to Trump’s Tariffs, but Holds Back on Details**\
-`European leaders have said that they will respond firmly to higher levies on steel and aluminum, but they have yet to say what that retaliation will look like.`\
-https://nytimes.com/2025/02/11/business/trump-tariffs-steel-european-union.html
 

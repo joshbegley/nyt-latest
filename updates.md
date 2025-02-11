@@ -1,3 +1,11 @@
+**Ye Advertised Website Selling T-Shirts With Swastikas in Super Bowl Commercial**\
+`The commercial aired in some local markets several days after the rapper and designer called himself a Nazi in a series of social media posts.`\
+https://nytimes.com/2025/02/11/arts/music/kanye-west-yeezy-website-swastika-shirts.html
+
+**Amick: Can Luka Dončić learn from Kobe and LeBron? Lakers are counting on it**\
+`Dončić made his LA debut on Monday night, but what he does in between the games will determine his legacy in purple and gold.`\
+https://nytimes.com/athletic/6128323/2025/02/11/luka-doncic-debut-lakers-lebron-kobe/
+
 **A Dark Tale for a Dark Time, Told Through Indian Classical Dance**\
 `The choreographer Akram Khan’s “Gigenis,” based loosely on a character in the Mahabharata, represents a kind of homecoming for him.`\
 https://nytimes.com/2025/02/11/arts/dance/akram-khan-gigenis-indian-classical-dance.html
