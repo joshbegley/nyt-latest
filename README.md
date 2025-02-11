@@ -1,3 +1,19 @@
+**Ruben Dias: The making of Manchester City's 'leader'**\
+`The Portuguese defender has cajoled team-mates since his early days at Benfica and his image is as finely curated as his competitive spirit`\
+https://nytimes.com/athletic/5900462/2025/02/11/ruben-dias-profile-manchester-city-leader/
+
+**Manchester United's Cult Heroes: Louis Saha**\
+`In the first of a new series, Saha tells The Athletic about playing with Rooney and Ronaldo, and why you have to do 'extra' at United`\
+https://nytimes.com/athletic/6117949/2025/02/11/manchester-united-cult-heroes-louis-saha/
+
+**Newcastle Q&A: Expiring contracts, injury improvements and managing cup excitement**\
+`Chris Waugh answers readers' questions after Newcastle progress to the fifth round of the FA Cup`\
+https://nytimes.com/athletic/6125580/2025/02/11/newcastle-contracts-injuries-cup-final/
+
+**With Martinelli and Saka out, are Arsenal's best wing options Trossard and Nwaneri?**\
+`With a packed fixture list and key players out, Arsenal manager Mikel Arteta is going to need to be creative in the coming weeks`\
+https://nytimes.com/athletic/6126207/2025/02/11/with-martinelli-and-saka-out-are-arsenals-best-wing-options-trossard-and-nwaneri/
+
 **Pep Guardiola, Carlo Ancelotti and two very different notions of what a manager should be**\
 `The Man City and Real Madrid managers appear similar, but a closer look tells us otherwise`\
 https://nytimes.com/athletic/6126125/2025/02/11/pep-guardiola-carlo-ancelotti-and-two-very-different-notions-of-what-a-manager-should-be/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6125887/2025/02/11/man-united-requests-ideas/
 **Spurs fans: We are taking requests - what would you like to read about?**\
 `Let us know what you would be interested in reading about`\
 https://nytimes.com/athletic/6126216/2025/02/11/tottenham-fans-we-are-taking-requests-what-would-you-like-to-read-about-2/
-
-**Man City fans: We are taking requests - what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6124247/2025/02/11/man-city-fans-requests/
-
-**Everton fans: We are taking requests – what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6124215/2025/02/11/everton-fans-we-are-taking-requests-what-would-you-like-to-read-about/
-
-**Chelsea fans: We are taking requests - what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6124214/2025/02/11/chelsea-fans-we-are-taking-requests-what-would-you-like-to-read-about/
-
-**Newcastle fans: We are taking requests - what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6124303/2025/02/11/newcastle-fans-ideas-requests/
 
