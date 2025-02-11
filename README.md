@@ -1,3 +1,15 @@
+**2025-26 NFL MVP odds, picks: Jackson opens as favorite, Burrow and Mahomes in tight race**\
+`The odds for next year's NFL MVP, plus way-too-early picks by our staff on who might hoist the award in 2026. `\
+https://nytimes.com/athletic/6128782/2025/02/11/2025-26-nfl-mvp-odds-picks/
+
+**White House Bars Reporter From Event Over A.P.’s Use of ‘Gulf of Mexico’**\
+`The Associated Press has said it would refer to the Gulf of Mexico “by its original name while acknowledging” President Trump’s choice to rename the body of water.`\
+https://nytimes.com/2025/02/11/us/politics/trump-ap-gulf-mexico-america.html
+
+**Lakers sign Alex Len, waive Christian Wood in wake of Mark Williams fallout**\
+`Len joins Jaxson Hayes as the only two centers on the Lakers’ 15-man roster. The Lakers have leaned into center-less lineups recently.`\
+https://nytimes.com/athletic/6130147/2025/02/11/lakers-alex-len-signing-christian-wood/
+
 **Musk makes sweeping claims about federal corruption, without evidence.**\
 `The billionaire, whose federal cost-cutting team has been operating in secrecy, asserted that he had uncovered waste and fraud across the bureaucracy, without providing evidence.`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-musk-oval-office
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/11/opinion/trump-israel-gaza.html
 **The Briefing: Man City 2 Real Madrid 3 - Bellingham's late, late winner and another City collapse**\
 `City were stunned at the Etihad by Madrid in an instant Champions League classic`\
 https://nytimes.com/athletic/6126057/2025/02/11/man-city-2-real-madrid-3-bellingham/
-
-**F.B.I. Gathers List of 3,600 Probationary Employees for the Trump Administration**\
-`The administration’s directives have been unclear about why it wants the names of probationary employees, but they appear to pave the way for possible dismissals.`\
-https://nytimes.com/2025/02/11/us/politics/trump-fbi-employees.html
-
-**Who Is Marc Fogel? The American Teacher Caught in a Global Power Struggle.**\
-`Mr. Fogel, who had lived and taught in many countries, including Russia for nine years, spent 3 ½ years in Russian custody for having cannabis for medical use, and is in poor health.`\
-https://nytimes.com/2025/02/11/world/europe/who-is-marc-fogel.html
-
-**The Imperative Remains: End Hamas’s Control of Gaza**\
-`The region needs to be put to a choice about Gaza’s future.`\
-https://nytimes.com/2025/02/11/opinion/trump-hamas-gaza-israel.html
 
