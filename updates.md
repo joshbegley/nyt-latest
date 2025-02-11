@@ -1,3 +1,7 @@
+**Hochul Halts Bill Aimed at Weakening Republican Control of House**\
+`Lawmakers were ready to pass a bill to delay a special election in New York State, but Gov. Kathy Hochul, who is in discussions with President Trump on congestion pricing, sidelined it.`\
+https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
+
 **Hochul Pulls Bill Aimed at Weakening Republican Control of House**\
 `Lawmakers were ready to pass a bill to delay a special election in New York State, but Gov. Kathy Hochul, who is in discussions with President Trump on congestion pricing, sidelined it.`\
 https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
