@@ -1,3 +1,11 @@
+**John Oliver Interrupts Jon Stewart’s Monologue on ‘The Daily Show’**\
+`The British host of “Last Week Tonight” said he wanted to be “the first to welcome America to its monarchy era.”`\
+https://nytimes.com/2025/02/11/arts/television/john-oliver-jon-stewart-daily-show.html
+
+**Ben Chilwell's Crystal Palace debut shows how he can help on and off the pitch**\
+`The fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed his new manager`\
+https://nytimes.com/athletic/6122145/2025/02/11/ben-chilwell-crystal-palace-doncaster/
+
 **Oliver Glasner wants Ben Chilwell to help Crystal Palace on and off the pitch**\
 `The on-loan fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed Glasner`\
 https://nytimes.com/athletic/6122145/2025/02/11/ben-chilwell-crystal-palace-doncaster/
