@@ -1,3 +1,7 @@
+**Tagging along as a champion dog got ready.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready
+
 **Federal employee unions sue Musk and the Office of Personnel Management over access to personal data.**\
 `By Kate Conger`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/federal-employee-unions-sue-musk-and-the-office-of-personnel-management-over-access-to-personal-data
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/trump-ap-gulf-mexico-america.html
 **Lakers sign Alex Len, waive Christian Wood in wake of Mark Williams fallout**\
 `Len joins Jaxson Hayes as the only two centers on the Lakers’ 15-man roster. The Lakers have leaned into center-less lineups recently.`\
 https://nytimes.com/athletic/6130147/2025/02/11/lakers-alex-len-signing-christian-wood/
-
-**Musk makes sweeping claims about federal corruption, without evidence.**\
-`The billionaire, whose federal cost-cutting team has been operating in secrecy, asserted that he had uncovered waste and fraud across the bureaucracy, without providing evidence.`\
-https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-musk-oval-office
 

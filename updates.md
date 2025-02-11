@@ -1,3 +1,7 @@
+**Tagging along as a champion dog got ready.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready
+
 **California’s High-Risk Insurer Gets $1 Billion Bailout After L.A. Fires**\
 `The move will likely lead to higher costs for households across the state, and may push more insurers to leave, intensifying a home insurance crisis.`\
 https://nytimes.com/2025/02/11/climate/california-fairplan-insurance-bailout.html
