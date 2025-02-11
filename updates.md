@@ -1,3 +1,15 @@
+**Can European ‘Boots on the Ground’ Help Protect Ukraine’s Security?**\
+`Deterring Russia from re-invading Ukraine, once this war ends, could require 150,000 troops and American help with air cover, intelligence and missile defense, experts say.`\
+https://nytimes.com/2025/02/11/world/europe/ukraine-russia-trump.html
+
+**Liverpool to make late call on Alexander-Arnold fitness for Everton game**\
+`The right-back has missed two matches after sustaining the injury against Bournemouth earlier this month.`\
+https://nytimes.com/athletic/6128294/2025/02/11/alexander-arnold-liverpool-everton/
+
+**Mets camp preview: Key dates, position battles and 3 questions to answer**\
+`If the Mets make another move from an otherwise stable roster, Starling Marte remains their best most logical trade chip.`\
+https://nytimes.com/athletic/6126723/2025/02/11/mets-camp-preview-2025/
+
 **Braves camp preview: Key dates, position battles and 3 questions to answer**\
 `The Braves' fortunes hinge mightily on the return of Ronald Acuña Jr., baseball’s most dangerous leadoff man when healthy.`\
 https://nytimes.com/athletic/6127125/2025/02/11/braves-camp-preview-2025/
