@@ -1,3 +1,7 @@
+**A judge blocked Trump’s firing of a government watchdog.**\
+`Hampton Dellinger, the head of the Office of Special Counsel, had sued the Trump administration, arguing that the president went beyond his legal authority.`\
+https://nytimes.com/live/2025/02/10/us/trump-news/a-judge-blocked-trumps-firing-of-a-government-watchdog
+
 **Bring to Bear**\
 `Paul Coulter conducts an experiment.`\
 https://nytimes.com/2025/02/10/crosswords/daily-puzzle-2025-02-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
 **Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
 `Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
 https://nytimes.com/athletic/6127236/2025/02/10/ken-dorsey-dallas-cowboys-staff/
-
-**Democrats Don’t Need a Perfect Message, They Need to Show Some Fight**\
-`What Chuck Schumer and Hakeem Jeffries can do is convey the enormous danger of this moment, immediately. Schumer is changing course already.`\
-https://nytimes.com/2025/02/10/opinion/chuck-schumer-hakeem-jeffries-trump.html
 
