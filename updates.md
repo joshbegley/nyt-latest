@@ -1,3 +1,19 @@
+**The Bounce: Luka Dončić debuts with Lakers as Mavericks fans stay angry in Dallas**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6128590/2025/02/11/luka-doncic-lebron-james-lakers-mavericks-nico-harrison-nba-the-bounce/
+
+**A Simple Salmon to Tell Someone You Love Them**\
+`This 30-minute recipe for “Marry Me Salmon” feels special but is easy enough for a weeknight.`\
+https://nytimes.com/2025/02/11/dining/simple-salmon-recipe.html
+
+**Super Bowl halftime show: Kendrick Lamar used 13 minutes to make unsubtle statements**\
+`Sunday’s Super Bowl halftime show featured Kendrick Lamar mixing thinking points with entertainment.`\
+https://nytimes.com/athletic/6125334/2025/02/11/super-bowl-halftime-show-kendrick-lamar-america-samuel-l-jackson/
+
+**Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
+`President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a southern border barrier.`\
+https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
+
 **New Zealand Rugby launch legal action against Man United owner INEOS**\
 `The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
 https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
