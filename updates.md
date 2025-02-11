@@ -1,3 +1,11 @@
+**Mikaela Shiffrin wins eighth world title, a team combined gold with Breezy Johnson**\
+`Mikaela Shiffrin and Breezy Johnson took gold in the new event after the top leaders faltered in the slalom.`\
+https://nytimes.com/athletic/6128527/2025/02/11/mikaela-shiffrin-breezy-johnson-team-combined-gold-world-championships/
+
+**David Lynch Is an Unexpected Fashion Week Influencer**\
+`At Coach and Khaite, the director, who died last month, shaped the vibe.`\
+https://nytimes.com/2025/02/11/style/coach-khaite-david-lynch-fashion-week.html
+
 **Who’s Running for Mayor of New York City?**\
 `The Democratic incumbent, Eric Adams, faces an unusually large field of challengers seeking to seize on his low poll numbers and legal problems.`\
 https://nytimes.com/interactive/2025/nyregion/nyc-mayor-candidates-2025.html
