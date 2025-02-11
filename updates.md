@@ -1,3 +1,15 @@
+**Share Your Experiences at Los Alamos National Laboratory**\
+`The New York Times would like to hear from you about workplace protocols and safety measures at LANL.`\
+https://nytimes.com/2025/02/11/us/share-your-experiences-at-los-alamos-national-laboratory.html
+
+**Judge Loosens Order Barring Treasury Officials From Payment System**\
+`Senate-confirmed officials, including Secretary Scott Bessent, may now see the system. The judge continued to bar Elon Musk’s aides.`\
+https://nytimes.com/2025/02/11/us/politics/treasury-payments-musk-doge.html
+
+**Family of Venezuelan Migrant Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
+`Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
+https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
+
 **Judge loosens order barring Treasury officials from payment system.**\
 `By Benjamin Weiser`\
 https://nytimes.com/2025/02/11/us/politics/judge-loosens-order-barring-treasury-officials-from-payment-system.html

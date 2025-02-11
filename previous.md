@@ -1,6 +1,10 @@
-**Judge loosens order barring Treasury officials from payment system.**\
-`By Benjamin Weiser`\
-https://nytimes.com/2025/02/11/us/politics/judge-loosens-order-barring-treasury-officials-from-payment-system.html
+**Share Your Experiences at Los Alamos National Laboratory**\
+`The New York Times would like to hear from you about workplace protocols and safety measures at LANL.`\
+https://nytimes.com/2025/02/11/us/share-your-experiences-at-los-alamos-national-laboratory.html
+
+**Judge Loosens Order Barring Treasury Officials From Payment System**\
+`Senate-confirmed officials, including Secretary Scott Bessent, may now see the system. The judge continued to bar Elon Musk’s aides.`\
+https://nytimes.com/2025/02/11/us/politics/treasury-payments-musk-doge.html
 
 **Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
 `The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
@@ -10,7 +14,7 @@ https://nytimes.com/2025/02/11/business/ford-trump-tariffs-electric-vehicles.htm
 `See the likely path and wind arrival times for Zelia.`\
 https://nytimes.com/interactive/2025/02/11/weather/zelia-map-path-tracker.html
 
-**Family of Venezuelan Man Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
+**Family of Venezuelan Migrant Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
 `Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
 https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128410/2025/02/11/jon-horst-bucks-kyle-kuzma-trade
 **Havertz to be assessed after suffering muscular injury in Dubai**\
 `Mikel Arteta is already dealing with injuries to forwards Gabriel Martinelli, Bukayo Saka and Gabriel Jesus.`\
 https://nytimes.com/athletic/6129547/2025/02/11/kai-havertz-injury-arsenal/
-
-**Top FEMA Official Is Fired Over Payments for N.Y.C. Migrant Shelters**\
-`The Trump administration fired the Federal Emergency Management Agency’s chief financial officer and three others after Elon Musk misleadingly claimed the agency had used disaster-relief funds for migrant services.`\
-https://nytimes.com/2025/02/11/nyregion/fema-fired-nyc-migrant-hotels.html
 
