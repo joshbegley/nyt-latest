@@ -1,3 +1,23 @@
+**Raiders GM John Spytek is bringing Tampa Bay's 'no BS' philosophy to Las Vegas**\
+`Former colleagues speak highly of the 44-year-old Spytek, who will try to build a winning team alongside coach Pete Carroll.`\
+https://nytimes.com/athletic/6117809/2025/02/11/raiders-gm-john-spytek/
+
+**New Jersey First Lady, former Bucks exec join NY/NJ host committee for 2026 World Cup**\
+`Tammy Murphy, an investor in the NWSL team NY/JY Gotham FC, is joined on the committee by former Bucks executive Alex Lasry.`\
+https://nytimes.com/athletic/6128235/2025/02/11/new-york-jersey-2026-world-cup-murphy-lasry/
+
+**Ranking the Jets’ top 10 trade assets: Which ones could be in play?**\
+`The Jets are very well-positioned to make a move ahead of the trade deadline. But what — or who — is going in the other direction?`\
+https://nytimes.com/athletic/6123297/2025/02/11/winnipeg-jets-nhl-trade-deadline-assets/
+
+**Breakfast with Zeev Buium: Getting to know Wild's prized defense prospect**\
+`Will Buium be ready to make the jump to the NHL this spring? For now, his focus is on one thing: another national championship with Denver.`\
+https://nytimes.com/athletic/6119956/2025/02/11/wild-prospect-zeev-buium-denver/
+
+**Croatian footballer Vuskovic loses final appeal against four-year doping ban**\
+`The 23-year-old tested positive for erythropoietin (EPO) in September 2022.`\
+https://nytimes.com/athletic/6128425/2025/02/11/mario-vuskovic-doping-ban-appeal/
+
 **The case for and against each Eastern Conference wild-card playoff hopeful**\
 `The top three teams in the Atlantic and Metro look fairly set. The six teams clamoring for two spots behind them are far more volatile.`\
 https://nytimes.com/athletic/6127756/2025/02/11/nhl-playoffs-eastern-conference-wild-card-probabilities/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6124637/2025/02/11/astros-spring-training-preview-j
 **Twins spring training guide: 31 thoughts on all 31 pitchers in major-league camp**\
 `Stars like Pablo López and Jhoan Duran are joined by top prospects and Triple-A journeymen fighting for their major-league futures.`\
 https://nytimes.com/athletic/6103280/2025/02/11/twins-spring-training-2025-pitchers/
-
-**Twins spring preview: Key dates, position battles and 3 questions to answer**\
-`Spring training is here, finally providing the Twins with an opportunity to eliminate the bad taste of last season's disappointing ending. `\
-https://nytimes.com/athletic/6127227/2025/02/11/twins-spring-training-preview-2025/
-
-**What the Vikings can learn from how the Eagles built their Super Bowl team**\
-`How does the Eagles' approach to team building compare to that of the Vikings? And can Minnesota become more like Philly this offseason?`\
-https://nytimes.com/athletic/6127194/2025/02/11/vikings-eagles-super-bowl-roster-nfl-draft/
-
-**Cardinals camp preview: Key dates, position battles and 3 questions to answer**\
-`Ryan Helsley anchored one of baseball's best bullpen's last season but not every roster decision will be so obvious. `\
-https://nytimes.com/athletic/6125003/2025/02/11/cardinals-camp-preview/
-
-**Cubs farm system heat check: What’s the immediate and future outlook for Cubs?**\
-`Right now, the Cubs have both a major-league roster projected to win close to 90 games, as well as a robust farm system.`\
-https://nytimes.com/athletic/6127900/2025/02/11/chicago-cubs-farm-system-heat-watch/
-
-**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
-`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
-`\
-https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
 

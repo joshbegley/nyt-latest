@@ -1,3 +1,23 @@
+**Raiders GM John Spytek is bringing Tampa Bay's 'no BS' philosophy to Las Vegas**\
+`Former colleagues speak highly of the 44-year-old Spytek, who will try to build a winning team alongside coach Pete Carroll.`\
+https://nytimes.com/athletic/6117809/2025/02/11/raiders-gm-john-spytek/
+
+**New Jersey First Lady, former Bucks exec join NY/NJ host committee for 2026 World Cup**\
+`Tammy Murphy, an investor in the NWSL team NY/JY Gotham FC, is joined on the committee by former Bucks executive Alex Lasry.`\
+https://nytimes.com/athletic/6128235/2025/02/11/new-york-jersey-2026-world-cup-murphy-lasry/
+
+**Ranking the Jets’ top 10 trade assets: Which ones could be in play?**\
+`The Jets are very well-positioned to make a move ahead of the trade deadline. But what — or who — is going in the other direction?`\
+https://nytimes.com/athletic/6123297/2025/02/11/winnipeg-jets-nhl-trade-deadline-assets/
+
+**Breakfast with Zeev Buium: Getting to know Wild's prized defense prospect**\
+`Will Buium be ready to make the jump to the NHL this spring? For now, his focus is on one thing: another national championship with Denver.`\
+https://nytimes.com/athletic/6119956/2025/02/11/wild-prospect-zeev-buium-denver/
+
+**Croatian footballer Vuskovic loses final appeal against four-year doping ban**\
+`The 23-year-old tested positive for erythropoietin (EPO) in September 2022.`\
+https://nytimes.com/athletic/6128425/2025/02/11/mario-vuskovic-doping-ban-appeal/
+
 **4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
 `The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
 `\
