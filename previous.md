@@ -1,3 +1,7 @@
+**Elon Musk’s Business Empire Scores Benefits Under Trump Shake-Up**\
+`Government investigations into Mr. Musk’s companies are stalling from President Trump’s firings and Biden administration resignations.`\
+https://nytimes.com/2025/02/11/us/politics/elon-musk-companies-conflicts.html
+
 **What I think and what I know about the Sabres at the 4 Nations break**\
 `The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
 https://nytimes.com/athletic/6128801/2025/02/11/buffalo-sabres-4-nations-face-off/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/theater/doomers-review-ai-gasda.html
 **Elon Musk’s Financial Disclosure Will Not Be Made Public**\
 `The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
-
-**Real Madrid player Raul Asencio has his appeal dismissed in sex-tape investigation involving a minor**\
-`The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
-https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
 
