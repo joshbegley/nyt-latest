@@ -1,3 +1,7 @@
+**Twins spring preview: Key dates, position battles and 3 questions to answer**\
+`Spring training is here, finally providing the Twins with an opportunity to eliminate the bad taste of last season's disappointing ending. `\
+https://nytimes.com/athletic/6127227/2025/02/11/twins-spring-training-preview-2025/
+
 **What the Vikings can learn from how the Eagles built their Super Bowl team**\
 `How does the Eagles' approach to team building compare to that of the Vikings? And can Minnesota become more like Philly this offseason?`\
 https://nytimes.com/athletic/6127194/2025/02/11/vikings-eagles-super-bowl-roster-nfl-draft/
@@ -23,19 +27,15 @@ https://nytimes.com/athletic/6114391/2025/02/11/senators-trade-proposals-cozens-
 `With the trade deadline less than a month away, GM Chris Drury likely still has his eyes on other moves.`\
 https://nytimes.com/athletic/6127686/2025/02/11/new-york-rangers-drury-trade-deadline-lindgren-miller/
 
-**What's different about Red Wings' playoff chase this year: Mailbag**\
-`Red Wings beat writer Max Bultman answers subscriber questions on the Red Wings' season, their prospects and more.`\
-https://nytimes.com/athletic/6120136/2025/02/11/red-wings-playoff-standings-mailbag/
-
 **The Demise of U.S.A.I.D. and American Soft Power**\
 `In demolishing the government’s biggest provider of foreign aid, President Trump is ending a 60-year bipartisan consensus on the best way to keep America safe.`\
 https://nytimes.com/2025/02/11/podcasts/the-daily/usaid-trump-america.html
 
+**What's different about Red Wings' playoff chase this year: Mailbag**\
+`Red Wings beat writer Max Bultman answers subscriber questions on the Red Wings' season, their prospects and more.`\
+https://nytimes.com/athletic/6120136/2025/02/11/red-wings-playoff-standings-mailbag/
+
 **Trump’s Ultimatum to Hamas, and Showdown Looms Between White House and the Courts**\
 `Plus, a surprise blockbuster.`\
 https://nytimes.com/2025/02/11/podcasts/the-headlines/trump-hamas-israel.html
-
-**Packers must improve in trenches to sniff Super Bowl: 'Everything starts up front'**\
-`The Eagles beat the Packers, Chiefs and plenty others by building dominant offensive and defensive lines.`\
-https://nytimes.com/athletic/6126804/2025/02/11/packers-line-improvements-draft-free-agency/
 
