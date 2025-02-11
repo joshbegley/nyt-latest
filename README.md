@@ -2,7 +2,7 @@
 `The Red Sox began spring training still looking to add to their offense, but a move could be on the horizon.`\
 https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
 
-**Twins agree to sign Ty France to a 1-year-deal**\
+**Twins to sign Ty France to a 1-year-deal: Source**\
 `The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
 https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
 
