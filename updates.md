@@ -1,3 +1,7 @@
+**Spain’s Former Top Soccer Official Testifies About Kissing Star Player**\
+`Luis Rubiales said that when he kissed Jennifer Hermoso on the lips, it was just a sign of affection after the country’s national team had won the 2023 Women’s World Cup.`\
+https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-hermoso-kiss.html
+
 **Chelsea's Boehly buys 49% stake in cricket franchise Trent Rockets**\
 `Boehly was previously in the bidding process for the London Spirit franchise.`\
 https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundred/
