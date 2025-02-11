@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/11/opinion/trump-musk-press-media.html
 
 **S.E.C. Moves to Kill Climate Disclosure Rule**\
-`The acting chair, Mark Uyeda, is directing the Securities and Exchange Commission to drop its legal defense of a rule requiring companies to make climate disclosures.`\
+`The acting chair, Mark Uyeda, is directing the Securities and Exchange Commission to pause its legal defense of a rule requiring companies to make climate disclosures.`\
 https://nytimes.com/2025/02/11/us/politics/sec-climate-disclosure-rule.html
 
 **Under Trump, Billionaire Climate Champions Have Gone Quiet**\
