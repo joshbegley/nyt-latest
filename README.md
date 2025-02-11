@@ -1,3 +1,7 @@
+**Consumer bureau heads of supervision and enforcement resign.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/consumer-bureau-heads-of-supervision-and-enforcement-resign
+
 **Vance Outlines America First Approach to A.I. at Paris Summit**\
 `During his first foreign trip since taking office, Vice President JD Vance urged European nations to dismantle regulations that could hinder U.S. domination over the building blocks of A.I. technology.`\
 https://nytimes.com/video/us/politics/100000009983399/vance-america-first-ai-paris-summit.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6128769/2025/02/11/uswnt-squad-shebelieves-cup/
 
 **Five Easy Pastas That Are Very Romantic**\
 `You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
-https://nytimes.com/2025/02/11/dining/five-easy-pastas-that-are-very-romantic.html
+https://nytimes.com/2025/02/11/dining/romantic-pasta-recipes.html
 
 **Demi Moore, Naked and Liberated**\
 `As she prepares for her first Oscars as a nominee, the star of “The Substance” talks about the daring role that revitalized her career.`\
@@ -33,9 +37,4 @@ https://nytimes.com/2025/02/11/technology/chinese-company-legal-threats-research
 **Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
 `While there has not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
 https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
-
-**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
-`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
-`\
-https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
 
