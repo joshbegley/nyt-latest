@@ -1,3 +1,11 @@
+**Federal employee unions sue Musk and the Office of Personnel Management over access to personal data.**\
+`By Kate Conger`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/federal-employee-unions-sue-musk-and-the-office-of-personnel-management-over-access-to-personal-data
+
+**California’s High-Risk Insurer Gets $1 Billion Bailout After L.A. Fires**\
+`The move will likely to lead to higher costs for households across the state, and may push more insurers to leave, intensifying a home insurance crisis.`\
+https://nytimes.com/2025/02/11/climate/california-fairplan-insurance-bailout.html
+
 **Here’s the latest.**\
 `By Daniel Victor`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/heres-the-latest
