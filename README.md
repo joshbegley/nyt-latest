@@ -19,7 +19,7 @@ https://nytimes.com/2025/02/11/dining/simple-salmon-recipe.html
 `Sunday’s Super Bowl halftime show featured Kendrick Lamar mixing thinking points with entertainment.`\
 https://nytimes.com/athletic/6125334/2025/02/11/super-bowl-halftime-show-kendrick-lamar-america-samuel-l-jackson/
 
-**New Zealand Rugby launch legal action against Man United owner INEOS**\
+**New Zealand Rugby launches legal action against Man United owner INEOS**\
 `The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
 https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
 

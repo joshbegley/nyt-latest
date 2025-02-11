@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-c
 `\
 https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
 
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **Natalie Spooner returns to Sceptres lineup, will make season debut vs. Frost**\
 `The reigning PWHL MVP's return comes almost nine months after she tore her ACL in Game 3 of the semifinals against Minnesota.`\
 https://nytimes.com/athletic/6127811/2025/02/11/pwhl-natalie-spooner-toronto-sceptres/
