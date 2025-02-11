@@ -58,6 +58,11 @@ https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada
 `\
 https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
 
+**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
+`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
+`\
+https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
+
 **What the Vikings can learn from how the Eagles built their Super Bowl team**\
 `How does the Eagles' approach to team building compare to that of the Vikings? And can Minnesota become more like Philly this offseason?`\
 https://nytimes.com/athletic/6127194/2025/02/11/vikings-eagles-super-bowl-roster-nfl-draft/
