@@ -1,3 +1,11 @@
+**Jason Kelce reflects on Eagles winning Super Bowl, defends Travis Kelce**\
+`The retired Eagles center reflected on the "mixed emotions" he felt watching his brother, Travis, lose to Philadelphia in the Super Bowl.`\
+https://nytimes.com/athletic/6128637/2025/02/11/jason-kelce-eagles-super-bowl-travis/
+
+**Vance, in First Foreign Speech, Tells Europe That U.S. Will Dominate A.I.**\
+`Speaking in Paris at an artificial intelligence summit, the vice president gave an America First vision of the technology — with the U.S. dominating the chips, the software and the rules.`\
+https://nytimes.com/2025/02/11/world/europe/vance-speech-paris-ai-summit.html
+
 **Sam Kerr found not guilty of racially aggravated harassment of police officer**\
 `Kerr had been accused of intentionally causing “racially aggravated harassment, alarm or distress” to PC Stephen Lovell during the incident.`\
 https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128097/2025/02/11/deandre-hunter-cavaliers-debut-t
 **The Pulse: Three big storylines for the NFL offseason**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6127016/2025/02/11/nfl-offseason-garrett-cooper-flagg-the-pulse/
-
-**Ye Advertised Website Selling T-Shirts With Swastikas in Super Bowl Commercial**\
-`The commercial aired in some local markets several days after the rapper and designer called himself a Nazi in a series of social media posts.`\
-https://nytimes.com/2025/02/11/arts/music/kanye-west-yeezy-website-swastika-shirts.html
-
-**Amick: Can Luka Dončić learn from Kobe and LeBron? Lakers are counting on it**\
-`Dončić made his LA debut on Monday night, but what he does in between the games will determine his legacy in purple and gold.`\
-https://nytimes.com/athletic/6128323/2025/02/11/luka-doncic-debut-lakers-lebron-kobe/
 

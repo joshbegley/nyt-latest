@@ -1,3 +1,11 @@
+**Jason Kelce reflects on Eagles winning Super Bowl, defends Travis Kelce**\
+`The retired Eagles center reflected on the "mixed emotions" he felt watching his brother, Travis, lose to Philadelphia in the Super Bowl.`\
+https://nytimes.com/athletic/6128637/2025/02/11/jason-kelce-eagles-super-bowl-travis/
+
+**Vance, in First Foreign Speech, Tells Europe That U.S. Will Dominate A.I.**\
+`Speaking in Paris at an artificial intelligence summit, the vice president gave an America First vision of the technology — with the U.S. dominating the chips, the software and the rules.`\
+https://nytimes.com/2025/02/11/world/europe/vance-speech-paris-ai-summit.html
+
 **Sam Kerr found not guilty of racially aggravated harassment of police officer**\
 `Kerr had been accused of intentionally causing “racially aggravated harassment, alarm or distress” to PC Stephen Lovell during the incident.`\
 https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
