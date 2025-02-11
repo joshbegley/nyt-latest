@@ -1,3 +1,11 @@
+**Sam Kerr found not guilty of racially aggravated harassment of police officer**\
+`Kerr had been accused of intentionally causing “racially aggravated harassment, alarm or distress” to PC Stephen Lovell during the incident.`\
+https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
+
+**Deb Haaland, Ex-Interior Secretary, Is Running for Governor of New Mexico**\
+`Ms. Haaland, one of the first former cabinet officials in the Biden administration to announce a run for office, would be the first Native American woman to serve as governor of a state.`\
+https://nytimes.com/2025/02/11/us/politics/deb-haaland-new-mexico-governor-campaign.html
+
 **Mikaela Shiffrin wins eighth world title, a team combined gold with Breezy Johnson**\
 `Mikaela Shiffrin and Breezy Johnson took gold in the new event after the top leaders faltered in the slalom.`\
 https://nytimes.com/athletic/6128527/2025/02/11/mikaela-shiffrin-breezy-johnson-team-combined-gold-world-championships/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/arts/music/kanye-west-yeezy-website-swastika-shir
 **Amick: Can Luka Dončić learn from Kobe and LeBron? Lakers are counting on it**\
 `Dončić made his LA debut on Monday night, but what he does in between the games will determine his legacy in purple and gold.`\
 https://nytimes.com/athletic/6128323/2025/02/11/luka-doncic-debut-lakers-lebron-kobe/
-
-**A Dark Tale for a Dark Time, Told Through Indian Classical Dance**\
-`The choreographer Akram Khan’s “Gigenis,” based loosely on a character in the Mahabharata, represents a kind of homecoming for him.`\
-https://nytimes.com/2025/02/11/arts/dance/akram-khan-gigenis-indian-classical-dance.html
-
-**Spain’s Former Top Soccer Official Testifies About Kissing Star Player**\
-`Luis Rubiales said that when he kissed Jennifer Hermoso on the lips, it was just a sign of affection after the country’s national team had won the 2023 Women’s World Cup.`\
-https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-hermoso-kiss.html
 

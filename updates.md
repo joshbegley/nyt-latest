@@ -1,3 +1,11 @@
+**Sam Kerr found not guilty of racially aggravated harassment of police officer**\
+`Kerr had been accused of intentionally causing “racially aggravated harassment, alarm or distress” to PC Stephen Lovell during the incident.`\
+https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
+
+**Deb Haaland, Ex-Interior Secretary, Is Running for Governor of New Mexico**\
+`Ms. Haaland, one of the first former cabinet officials in the Biden administration to announce a run for office, would be the first Native American woman to serve as governor of a state.`\
+https://nytimes.com/2025/02/11/us/politics/deb-haaland-new-mexico-governor-campaign.html
+
 **Mikaela Shiffrin wins eighth world title, a team combined gold with Breezy Johnson**\
 `Mikaela Shiffrin and Breezy Johnson took gold in the new event after the top leaders faltered in the slalom.`\
 https://nytimes.com/athletic/6128527/2025/02/11/mikaela-shiffrin-breezy-johnson-team-combined-gold-world-championships/
