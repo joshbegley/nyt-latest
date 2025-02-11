@@ -1,3 +1,7 @@
+**Deep-Sea Anglerfish Surprises Researchers Near Ocean’s Surface**\
+`While on a shark research expedition off the coast of Tenerife, marine biologists said they captured the first images of an adult black seadevil anglerfish alive near the ocean’s surface.`\
+https://nytimes.com/video/science/earth/100000009983695/deep-sea-anglerfish-found-near-ocean-surface.html
+
 **Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
 `Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
 https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/

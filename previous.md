@@ -1,3 +1,7 @@
+**Deep-Sea Anglerfish Surprises Researchers Near Ocean’s Surface**\
+`While on a shark research expedition off the coast of Tenerife, marine biologists said they captured the first images of an adult black seadevil anglerfish alive near the ocean’s surface.`\
+https://nytimes.com/video/science/earth/100000009983695/deep-sea-anglerfish-found-near-ocean-surface.html
+
 **Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
 `Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
 https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/trump-jordan-gaza.html
 **Heat Today: Terry Rozier's poor shooting is contributing to the Heat's flailing offense**\
 `To help Miami's struggles on offense, Terry Rozier must turn around challenging season`\
 https://nytimes.com/athletic/6128936/2025/02/11/terry-rozier-shooting-struggles-heat-nba/
-
-**‘I Was Dying’: Salman Rushdie Testifies About Terrifying Stabbing Attack**\
-`The author recounted in vivid testimony the moment when an attacker stabbed him about 15 times as he was about to give a lecture in western New York.`\
-https://nytimes.com/2025/02/11/nyregion/salman-rushdie-testimony-assault-trial.html
 
