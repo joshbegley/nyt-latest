@@ -1,3 +1,7 @@
+**Why did Bucks trade Khris Middleton? 'We want to win this year'**\
+`GM Jon Horst explained why his deadline moves, especially parting with a franchise staple, give Milwaukee a better chance to win a title.`\
+https://nytimes.com/athletic/6127953/2025/02/10/why-did-bucks-trade-khris-middleton-we-want-to-win-this-year/
+
 **More Than 150 World War II Bombs Found Under Playground in England**\
 `The devices found during construction work were practice bombs, which can be harmful. Officials said there could be more.`\
 https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/opinion/chuck-schumer-hakeem-jeffries-trump.html
 **Two nonprofits sue over Trump’s freeze on foreign aid.**\
 `By Stephanie Nolen`\
 https://nytimes.com/live/2025/02/10/us/trump-news/two-nonprofits-sue-over-trumps-freeze-on-foreign-aid
-
-**If Adams Is Cleared, Other Inquiries in His Orbit Would Face Uncertainty**\
-`The dropping of federal corruption charges against Mayor Eric Adams could affect criminal investigations involving his associates in different ways, or not at all.`\
-https://nytimes.com/2025/02/10/nyregion/nyc-city-hall-investigations-future.html
 
