@@ -1,3 +1,11 @@
+**NBA Power Rankings: How good are the Lakers? And a roster reset for all 30 teams**\
+`The wildest trade deadline ever has passed, so it's time to reassess — though everyone is still chasing the Thunder and Cavaliers.`\
+https://nytimes.com/athletic/6128429/2025/02/11/nba-power-rankings-lakers-mavericks-thunder-celtics/
+
+**Senator Accuses F.B.I. Nominee of Covertly Directing Dismissals**\
+`A top Democrat demanded an investigation and suggested that the nominee, Kash Patel, may have lied under oath, citing what he described as multiple sources.`\
+https://nytimes.com/2025/02/11/us/politics/kash-patel-fbi-durbin.html
+
 **Joey Logano on the elite company he's in, his fear of Ubers and more: 12 Questions**\
 `Joey Logano kicks off our 2025 12 Questions season, talking Ubers, how he feels about his place in racing history and more.`\
 https://nytimes.com/athletic/6117221/2025/02/11/joey-logano-champion-titles-uber-12-questions/
