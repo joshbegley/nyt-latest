@@ -1,3 +1,7 @@
+**Elon Musk’s Financial Disclosure Will Not Be Made Public**\
+`The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
+https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
+
 **Real Madrid player Raul Asencio has appeal dismissed in sex tape investigation involving a minor**\
 `The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
 https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/movies/demi-moore-substance-oscars.html
 **Hilton Als Is a Critic Who Curates, or Is It the Other Way Around?**\
 `The Pulitzer-prize winning writer and essayist talks about his love of art and how he reconciles two challenging roles.`\
 https://nytimes.com/2025/02/11/arts/design/hilton-als-new-yorker-curator-art-hill.html
-
-**Luis Rubiales says, 'I've kissed many footballers' and is 'completely sure' Jenni Hermoso gave consent**\
-`The former president of Spain's football federation gave evidence in court, where he stands trial for alleged sexual assault and coercion`\
-https://nytimes.com/athletic/6128792/2025/02/11/luis-rubiales-trial-hermoso-kiss-consent/
 
