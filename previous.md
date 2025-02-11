@@ -1,3 +1,7 @@
+**Maria Teresa Horta, the Last of Portugal’s ‘Three Marias,’ Dies at 87**\
+`The book on which she collaborated with two fellow feminists drew global attention to the repression of women under their country’s dictatorship.`\
+https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
+
 **Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
 `The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
 https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009983905/eric-adams-charges.html
 **19 Very Doable Valentine’s Day Dishes**\
 `Honey-glazed chicken and shallots, French onion grilled cheese and an easy chocolate layer cake all feel special without being super fussy.`\
 https://nytimes.com/2025/02/11/dining/valentines-day-dishes.html
-
-**Eric Adams Asks for New Yorkers’ Trust, Saying He ‘Never Broke the Law’**\
-`Mayor Eric Adams of New York gave a speech on Tuesday professing his innocence and arguing that he would not put his personal interests above the city’s.`\
-https://nytimes.com/2025/02/11/nyregion/eric-adams-charges-trump.html
 

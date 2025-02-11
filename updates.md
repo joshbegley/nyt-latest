@@ -1,3 +1,7 @@
+**Maria Teresa Horta, the Last of Portugal’s ‘Three Marias,’ Dies at 87**\
+`The book on which she collaborated with two fellow feminists drew global attention to the repression of women under their country’s dictatorship.`\
+https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
+
 **Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
 `The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
 https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
