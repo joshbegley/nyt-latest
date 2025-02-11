@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada
 `\
 https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
 
+**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
+`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
+`\
+https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
+
 **How Trump’s Canadian Oil Tariff Would Hit America’s Heartland**\
 `The 10 percent tariff the president said he might impose in March could cause U.S. refineries to cut production and lead to higher prices.`\
 https://nytimes.com/2025/02/11/business/energy-environment/trump-tariffs-canada-oil.html

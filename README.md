@@ -1,3 +1,7 @@
+**Covid Learning Losses**\
+`We explain the ways students haven’t recovered.`\
+https://nytimes.com/2025/02/11/briefing/covid-learning-losses.html
+
 **How Trump’s Canadian Oil Tariff Would Hit America’s Heartland**\
 `The 10 percent tariff the president said he might impose in March could cause U.S. refineries to cut production and lead to higher prices.`\
 https://nytimes.com/2025/02/11/business/energy-environment/trump-tariffs-canada-oil.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada
 **Karlsson back to Ottawa? Dylan Cozens? Ryan Donato? Who says no?**\
 `We've fielded the best and most interesting trade proposals from our Senators readers one month ahead of the NHL trade deadline.`\
 https://nytimes.com/athletic/6114391/2025/02/11/senators-trade-proposals-cozens-karlsson/
-
-**What we know and what we think about the Rangers at the 4 Nations break**\
-`With the trade deadline less than a month away, GM Chris Drury likely still has his eyes on other moves.`\
-https://nytimes.com/athletic/6127686/2025/02/11/new-york-rangers-drury-trade-deadline-lindgren-miller/
 
