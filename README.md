@@ -1,3 +1,7 @@
+**The Bounce: Luka Dončić debuts with Lakers as Mavericks fans stay angry in Dallas**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6128590/2025/02/11/luka-doncic-lebron-james-lakers-mavericks-nico-harrison-nba-the-bounce/
+
 **A Simple Salmon to Tell Someone You Love Them**\
 `This 30-minute recipe for “Marry Me Salmon” feels special but is easy enough for a weeknight.`\
 https://nytimes.com/2025/02/11/dining/simple-salmon-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/business/bp-earnings-4q-2024.html
 **NBA Power Rankings: How good are the Lakers? And a roster reset for all 30 teams**\
 `The wildest trade deadline ever has passed, so it's time to reassess — though everyone is still chasing the Thunder and Cavaliers.`\
 https://nytimes.com/athletic/6128429/2025/02/11/nba-power-rankings-lakers-mavericks-thunder-celtics/
-
-**Senator Accuses F.B.I. Nominee of Covertly Directing Dismissals**\
-`A top Democrat demanded an investigation and suggested that the nominee, Kash Patel, may have lied under oath, citing what he described as multiple sources.`\
-https://nytimes.com/2025/02/11/us/politics/kash-patel-fbi-durbin.html
 
