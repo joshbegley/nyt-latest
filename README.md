@@ -1,3 +1,7 @@
+**Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
+`Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
+https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
+
 **Deep-Sea Anglerfish Surprises Researchers Near Ocean’s Surface**\
 `While on a shark research expedition off the coast of Tenerife, marine biologists said they captured the first images of an adult black seadevil anglerfish alive near the ocean’s surface.`\
 https://nytimes.com/video/science/earth/100000009983695/deep-sea-anglerfish-found-near-ocean-surface.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/arts/music/amplifier-newsletter-philadelphia.html
 **Trump Claims the U.S. Has Authority to ‘Take’ Gaza**\
 `His remarks came in a meeting with King Abdullah II of Jordan, who demurred when asked by reporters about the idea and said the two nations should consult with other Arab nations, including Egypt.`\
 https://nytimes.com/2025/02/11/us/politics/trump-jordan-gaza.html
-
-**Heat Today: Terry Rozier's poor shooting is contributing to the Heat's flailing offense**\
-`To help Miami's struggles on offense, Terry Rozier must turn around challenging season`\
-https://nytimes.com/athletic/6128936/2025/02/11/terry-rozier-shooting-struggles-heat-nba/
 
