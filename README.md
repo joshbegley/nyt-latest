@@ -1,3 +1,7 @@
+**Musk makes sweeping claims about corruption in the federal bureaucracy, without evidence.**\
+`The billionaire, whose federal cost-cutting team has been operating in secrecy, asserted that he had uncovered waste and fraud across the bureaucracy, without providing evidence.`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-musk-oval-office
+
 **McKennie hands Juventus Champions League edge with spectacular strike**\
 `A memorable moment for the USMNT midfielder put Juventus on top in its playoff first leg`\
 https://nytimes.com/athletic/6130012/2025/02/11/weston-mckennie-juventus-usmnt-psv/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/world/europe/who-is-marc-fogel.html
 **The Imperative Remains: End Hamas’s Control of Gaza**\
 `The region needs to be put to a choice about Gaza’s future.`\
 https://nytimes.com/2025/02/11/opinion/trump-hamas-gaza-israel.html
-
-**Bubble watch, Mets edition: Projecting the 2025 Opening Day roster**\
-`An examination of the possible Opening Day roster at the start of spring training reveals a team that should compete with the league’s best.`\
-https://nytimes.com/athletic/6129690/2025/02/11/bubble-watch-mets-2025-opening-day-roster-projection/
 
