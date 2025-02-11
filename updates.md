@@ -1,3 +1,7 @@
+**Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
+`The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
+https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
+
 **An Emboldened Trump Seeks to Bend New York City to His Will**\
 `The Trump administration’s order to drop the charges against Mayor Eric Adams was the most pronounced example of the president using his power to determine the city’s future.`\
 https://nytimes.com/2025/02/11/nyregion/trump-nyc.html
