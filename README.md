@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/10/nyregion/nyc-city-hall-investigations-future.html
 
 **Twins streaming broadcasts will feature new camera angles: 'Literally closer to the game'**\
-`Beyond increased availability, the biggest changes with the introduction of Twins.TV will involve the game production itself.`\
+`Beyond increased availability, the biggest changes to the team's TV experience will involve the game production itself.`\
 https://nytimes.com/athletic/6127839/2025/02/10/minnesota-twins-streaming-broadcasts/
 
 **Eric Trump Said Adams Treated the Trump Family Company Well**\
