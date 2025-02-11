@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-c
 `\
 https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
 
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
 `While there has not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
 https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html

@@ -1,3 +1,11 @@
+**Scoop City: NFL's eight big offseason questions**\
+`Inside: Eight storylines that will help shape 2025, including Myles Garrett, Cooper Kupp and Matthew Stafford, the 49ers, Aaron Rodgers, Sam Darnold, the Steelers, Titans and Tee Higgins.`\
+https://nytimes.com/athletic/6128951/2025/02/11/nfl-eight-offseason-questions-to-watch-scoop-city/
+
+**Chinese Companies’ New Tactic to Stop Damaging Research: Legal Threats**\
+`Think tanks and universities have helped expose problematic Chinese business practices. Now, those businesses are accusing them of defamation.`\
+https://nytimes.com/2025/02/11/technology/chinese-company-legal-threats-researchers.html
+
 **Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
 `While there has not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
 https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
 **Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
 `President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a southern border barrier.`\
 https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
-
-**Super Bowl 59 film review: How Vic Fangio's Eagles defense broke the Chiefs offense**\
-`Philadelphia's defensive coordinator created a blueprint to stop Patrick Mahomes and had the roster advantage on Sunday to make it work.`\
-https://nytimes.com/athletic/6127777/2025/02/11/eagles-defense-chiefs-super-bowl-film-review/
-
-**Wall Street Talked Endlessly About Diversity. Trump Ended That.**\
-`Goldman Sachs will drop a demand that corporate boards of directors include women and members of minority groups as financial firms backpedal from D.E.I. promises.`\
-https://nytimes.com/2025/02/11/business/trump-dei-wall-street.html
 
