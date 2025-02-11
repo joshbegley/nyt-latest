@@ -1,3 +1,15 @@
+**McKennie hands Juventus Champions League edge with spectacular strike**\
+`A memorable moment for the USMNT midfielder put Juventus on top in its playoff first leg`\
+https://nytimes.com/athletic/6130012/2025/02/11/weston-mckennie-juventus-usmnt-psv/
+
+**Powell Hesitant to Cut Interest Rates With Inflation Above Target**\
+`Jerome H. Powell, chair of the Federal Reserve, testified before the Senate Banking Committee in the face of continuing inflation risks, shifting regulatory changes and questions over the Federal Reserve’s independence.`\
+https://nytimes.com/video/us/politics/100000009983517/fed-interest-rates-powell.html
+
+**Dodgers open camp with familiar faces and a new challenge: repeating as champs**\
+`The talented Dodgers are not without question marks as their entire rotation faces injury or workload questions.`\
+https://nytimes.com/athletic/6129967/2025/02/11/dodgers-spring-training-repeat/
+
 **‘The White Lotus’ Is Back, With Wellness and Angst Included**\
 `Parker Posey, Patrick Schwarzenegger and Blackpink’s Lisa celebrated the third season of the HBO show, this time set at a luxury resort in Thailand.`\
 https://nytimes.com/2025/02/11/style/white-lotus-season-3-hbo.html
@@ -26,12 +38,3 @@ https://nytimes.com/2025/02/11/opinion/trump-hamas-gaza-israel.html
 `An examination of the possible Opening Day roster at the start of spring training reveals a team that should compete with the league’s best.`\
 https://nytimes.com/athletic/6129690/2025/02/11/bubble-watch-mets-2025-opening-day-roster-projection/
 
-**'I'd take his …': Team Sweden players on one skill they'd steal from a 4 Nations teammate**\
-`The Athletic polled the Swedes on teammates' most-enviable skills: William Nylander’s skating, Jesper Bratt’s agility and more.`\
-https://nytimes.com/athletic/6129717/2025/02/11/team-sweden-player-poll-4-nations/
-
-**Helen Hays, Who Helped Bring Terns Back to Long Island Sound, Dies at 94**\
-`Beginning in 1969, she spent five months a year on Great Gull Island, leading teams of young volunteers devoted to preserving the seabirds.`\
-https://nytimes.com/2025/02/11/science/helen-hays-dead.html
-
-**gws-marianne-faithfull-a-life-in-pictures**\
