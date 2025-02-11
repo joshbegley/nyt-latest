@@ -1,3 +1,7 @@
+**Democrats Don’t Need a Perfect Message, They Need to Show Some Fight**\
+`What Chuck Schumer and Hakeem Jeffries can do is convey the enormous danger of this moment, immediately. Schumer is changing course already.`\
+https://nytimes.com/2025/02/10/opinion/chuck-schumer-hakeem-jeffries-trump.html
+
 **Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
 `Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
 https://nytimes.com/athletic/6127236/2025/02/10/ken-dorsey-dallas-cowboys-staff/
