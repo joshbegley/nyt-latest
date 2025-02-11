@@ -1,11 +1,3 @@
-**Man United owners to continue cost-cutting with more than 100 further redundancies**\
-`This latest round of cuts comes after 250 employees were made redundant last summer.`\
-https://nytimes.com/athletic/6128266/2025/02/11/manchester-united-jobs-ratcliffe-ineos/
-
-**UEFA talks with Relevent could increase likelihood of Champions League games in U.S.**\
-`Talks cement a relationship between UEFA, Europe’s leading clubs and an agency that wants to stage European club football in the U.S.`\
-https://nytimes.com/athletic/6129285/2025/02/11/champions-league-media-rights-relevant/
-
 **The View Rotates Above Manhattan Once Again**\
 `The restaurant on the 47th floor of the Marriott Marquis in Times Square is reopening under the management of Danny Meyer’s Union Square Hospitality Group.`\
 https://nytimes.com/2025/02/11/dining/nyc-restaurant-news.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/02/11/us/politics/trump-immigration-lawsuit-religious-g
 **Elon Musk’s Business Empire Scores Benefits Under Trump Shake-Up**\
 `Government investigations into Mr. Musk’s companies are stalling from President Trump’s firings and Biden administration resignations.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-companies-conflicts.html
+
+**Saints hiring Eagles OC Kellen Moore as next head coach: Source**\
+`Moore would replace Dennis Allen, who the Saints fired on Nov. 3.`\
+https://nytimes.com/athletic/6070299/2025/02/11/kellen-moore-saints-head-coach-eagles/
+
+**What I think and what I know about the Sabres at the 4 Nations break**\
+`The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
+https://nytimes.com/athletic/6128801/2025/02/11/buffalo-sabres-4-nations-face-off/
 
