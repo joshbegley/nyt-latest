@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2025/02/11/learning/11StudentNewsQuiz.html
 `European leaders have said that they will respond firmly to higher levies on steel and aluminum, but they have yet to say what that retaliation will look like.`\
 https://nytimes.com/2025/02/11/business/trump-tariffs-steel-european-union.html
 
-**49ers' 7-round mock draft: Why rebuilding the trenches is likely and necessary**\
+**49ers 7-round mock draft: Why rebuilding the trenches is likely and necessary**\
 `Trent Williams turns 37 in July and the 49ers options are thin beyond him. Ohio State's Josh Simmons offers a future at offensive tackle.`\
 https://nytimes.com/athletic/6127208/2025/02/11/49ers-2025-mock-nfl-draft-josh-simmons/
 
