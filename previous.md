@@ -1,3 +1,15 @@
+**LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
+`How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
+https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
+
+**Birds of Paradise Glow on Mating Parade**\
+`The always colorful males light up with biofluorescence, sending off signals.`\
+https://nytimes.com/2025/02/11/science/birds-of-paradise-luminescence.html
+
+**Nuno says Awoniyi suffered broken nose and concussion in incident against Exeter**\
+`The 27-year-old forward was taken off on a stretcher in the FA Cup tie after suffering a head injury.`\
+https://nytimes.com/athletic/6130137/2025/02/11/nottingham-forest-taiwo-awoniyi-injury/
+
 **In an upset, the top-ranked golden retriever was eliminated.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-upset-the-top-ranked-golden-retriever-was-eliminated
@@ -6,7 +18,7 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-ups
 `Knicks expect a defensive boost when big man returns, which they view as akin to a trade deadline acquisition.`\
 https://nytimes.com/athletic/6130224/2025/02/11/mitchell-robinson-injury-update-knicks/
 
-**Do the Cubs want Alex Bregman in their clubhouse? '1000 percent' **\
+**Do the Cubs want Alex Bregman in their clubhouse? '1,000 percent' **\
 `Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
 https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
 
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-a
 **Federal employee unions sue Musk and the Office of Personnel Management over access to personal data.**\
 `By Kate Conger`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/federal-employee-unions-sue-musk-and-the-office-of-personnel-management-over-access-to-personal-data
-
-**California’s High-Risk Insurer Gets $1 Billion Bailout After L.A. Fires**\
-`The move will likely lead to higher costs for households across the state, and may push more insurers to leave, intensifying a home insurance crisis.`\
-https://nytimes.com/2025/02/11/climate/california-fairplan-insurance-bailout.html
-
-**Here’s the latest.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/heres-the-latest
-
-**Four dogs have already advanced to best in show judging.**\
-`By Benjamin Hoffman`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/four-dogs-have-already-advanced-to-best-in-show-judging
 

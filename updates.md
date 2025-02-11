@@ -1,3 +1,19 @@
+**LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
+`How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
+https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
+
+**Birds of Paradise Glow on Mating Parade**\
+`The always colorful males light up with biofluorescence, sending off signals.`\
+https://nytimes.com/2025/02/11/science/birds-of-paradise-luminescence.html
+
+**Nuno says Awoniyi suffered broken nose and concussion in incident against Exeter**\
+`The 27-year-old forward was taken off on a stretcher in the FA Cup tie after suffering a head injury.`\
+https://nytimes.com/athletic/6130137/2025/02/11/nottingham-forest-taiwo-awoniyi-injury/
+
+**Do the Cubs want Alex Bregman in their clubhouse? '1,000 percent' **\
+`Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
+https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
+
 **In an upset, the top-ranked golden retriever was eliminated.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-upset-the-top-ranked-golden-retriever-was-eliminated
