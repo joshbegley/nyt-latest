@@ -1,3 +1,23 @@
+**Chelsea's Boehly buys 49% stake in cricket franchise Trent Rockets**\
+`Boehly was previously in the bidding process for the London Spirit franchise.`\
+https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundred/
+
+**Padres camp preview: Key dates, position battles and 3 questions to answer**\
+`The Padres, after a winter marred by a legal dispute and a lack of significant roster additions, will open camp in Arizona this week.`\
+https://nytimes.com/athletic/6111323/2025/02/11/padres-camp-preview-key-dates/
+
+**Angels fan survey results: Frustration, apathy and confusion about team's plan to compete**\
+`We conducted our Angels fan survey for the fourth consecutive year. Questions range from thoughts on Arte Moreno to the team name.`\
+https://nytimes.com/athletic/6127386/2025/02/11/angels-fan-survey-results-2025/
+
+**Padres 2025 spring training preview: Thoughts on every hitter headed to camp**\
+`Let’s break down the current group of position players headed to spring training in Peoria, Ariz.`\
+https://nytimes.com/athletic/6110705/2025/02/11/padres-2025-spring-training-preview-hitters/
+
+**The U.S. Open takes the Grand Slams past the point of no return**\
+`Moving a Grand Slam event into its qualifying week takes the biggest tournaments in tennis into unexplored territory.`\
+https://nytimes.com/athletic/6127778/2025/02/11/us-open-tennis-grand-slam-schedule-finances/
+
 **Padres farm system heat check: What’s the immediate and future outlook?**\
 `Here’s an overview of where the San Diego system stands and how it might impact the big-league club.`\
 https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-outlook/

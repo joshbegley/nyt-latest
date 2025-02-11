@@ -1,3 +1,19 @@
+**Chelsea's Boehly buys 49% stake in cricket franchise Trent Rockets**\
+`Boehly was previously in the bidding process for the London Spirit franchise.`\
+https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundred/
+
+**Padres camp preview: Key dates, position battles and 3 questions to answer**\
+`The Padres, after a winter marred by a legal dispute and a lack of significant roster additions, will open camp in Arizona this week.`\
+https://nytimes.com/athletic/6111323/2025/02/11/padres-camp-preview-key-dates/
+
+**Angels fan survey results: Frustration, apathy and confusion about team's plan to compete**\
+`We conducted our Angels fan survey for the fourth consecutive year. Questions range from thoughts on Arte Moreno to the team name.`\
+https://nytimes.com/athletic/6127386/2025/02/11/angels-fan-survey-results-2025/
+
+**Padres 2025 spring training preview: Thoughts on every hitter headed to camp**\
+`Let’s break down the current group of position players headed to spring training in Peoria, Ariz.`\
+https://nytimes.com/athletic/6110705/2025/02/11/padres-2025-spring-training-preview-hitters/
+
 **Padres farm system heat check: What’s the immediate and future outlook?**\
 `Here’s an overview of where the San Diego system stands and how it might impact the big-league club.`\
 https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-outlook/
@@ -5,6 +21,10 @@ https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-ou
 **Weekly Student News Quiz: Super Bowl, Trump's Actions, Eggs**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/11/learning/11StudentNewsQuiz.html
+
+**The U.S. Open takes the Grand Slams past the point of no return**\
+`Moving a Grand Slam event into its qualifying week takes the biggest tournaments in tennis into unexplored territory.`\
+https://nytimes.com/athletic/6127778/2025/02/11/us-open-tennis-grand-slam-schedule-finances/
 
 **Europe Vows to Respond to Trump’s Tariffs, but Holds Back on Details**\
 `European leaders have said that they will respond firmly to higher levies on steel and aluminum, but they have yet to say what that retaliation will look like.`\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6127208/2025/02/11/49ers-2025-mock-nfl-draft-josh-s
 **Angels camp preview: Key dates, position battles and 3 questions to answer**\
 `So much around the Angels hinges on Mike Trout, and what the club can count on from him. `\
 https://nytimes.com/athletic/6127696/2025/02/11/angels-camp-preview/
-
-**Chargers 7-round mock draft, 1.0: Alabama's Tyler Booker could be plug-and-play guard**\
-`The Chargers' wild-card playoff loss to the Texans laid bare their need to upgrade the interior offensive line.`\
-https://nytimes.com/athletic/6127734/2025/02/11/chargers-nfl-mock-draft-tyler-booker/
-
-**Listen: Was this a good or bad weekend for VAR?**\
-`The Totally Football Show discuss how not having VAR impacted the FA Cup fourth round.`\
-https://nytimes.com/athletic/6127009/2025/02/11/totally-football-show-var-fa-cup/
-
-**What’s Behind Elon Musk’s Hostile Bid for Control of OpenAI**\
-`The tech mogul is unlikely to win. But his goal may be more about making life difficult for the A.I. start-up and its leader, Sam Altman.`\
-https://nytimes.com/2025/02/11/business/dealbook/elon-musk-hostile-bid-openai.html
-
-**James Harden's road back to All-Star status began with a team trip to Arizona**\
-`Thrust into LA's leadership role this offseason, Harden responded by organizing a minicamp: "He’s all about the team."`\
-https://nytimes.com/athletic/6108534/2025/02/11/james-hardens-clippers-all-star-leadership/
-
-**Kelly dropped from England squad despite Arsenal move**\
-`England face a trip to Portugal and a home game against Spain in this month's UEFA Nations League fixtures.`\
-https://nytimes.com/athletic/6128357/2025/02/11/england-women-squad-nations-league-kelly/
 
