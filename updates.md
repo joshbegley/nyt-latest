@@ -1,3 +1,7 @@
+**Luka Dončić sees familiar face in L.A. in former Mavericks teammate Dirk Nowitzki**\
+`Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to watch Dončić make his debut with the Lakers.`\
+https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
+
 **A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s edict.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
