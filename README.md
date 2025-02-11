@@ -1,3 +1,11 @@
+**The Briefing: Man City 2 Real Madrid 3 - Bellingham's late, late winner and another City collapse**\
+`City were stunned at the Etihad by Madrid in an instant Champions League classic`\
+https://nytimes.com/athletic/6126057/2025/02/11/man-city-2-real-madrid-3-bellingham/
+
+**F.B.I. Gathers List of 3,600 Probationary Employees for the Trump Administration**\
+`The administration’s directives have been unclear about why it wants the names of probationary employees, but they appear to pave the way for possible dismissals.`\
+https://nytimes.com/2025/02/11/us/politics/trump-fbi-employees.html
+
 **Who Is Marc Fogel? The American Teacher Caught in a Global Power Struggle.**\
 `Mr. Fogel, who had lived and taught in many countries, including Russia for nine years, spent 3 ½ years in Russian custody for having cannabis for medical use, and is in poor health.`\
 https://nytimes.com/2025/02/11/world/europe/who-is-marc-fogel.html
