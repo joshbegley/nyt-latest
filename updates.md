@@ -1,3 +1,7 @@
+**Who’s Running for Mayor of New York City?**\
+`The Democratic incumbent, Eric Adams, faces an unusually large field of challengers seeking to seize on his low poll numbers and legal problems.`\
+https://nytimes.com/interactive/2025/nyregion/nyc-mayor-candidates-2025.html
+
 **Super Bowl LIX biggest winners in collectibles**\
 `The biggest collectibles takeaways from the Super Bowl `\
 https://nytimes.com/athletic/6127088/2025/02/11/super-bowl-lix-collectibles-jalen-hurts-tom-brady/
