@@ -1,3 +1,11 @@
+**The mystery health scare that shifted SLU coach Josh Schertz's outlook**\
+`Before Schertz began his climb through D-I, a health scare he couldn't get answers on pushed him toward walking away from basketball.`\
+https://nytimes.com/athletic/6127473/2025/02/11/josh-schertz-saint-louis-career-health/
+
+**Israel’s Security Cabinet to Meet as Pressure on Cease-Fire Rises**\
+`After Hamas said it would postpone the next release of Israeli hostages, President Trump demanded that all hostages be released Saturday or “all hell is going to break out.”`\
+https://nytimes.com/2025/02/11/world/middleeast/israel-hamas-hostages-cease-fire.html
+
 **Kendrick Lamar’s Halftime Show**\
 `Were you watching on Sunday? Are you a fan? What did you think?`\
 https://nytimes.com/2025/02/11/learning/kendrick-lamars-halftime-show.html
