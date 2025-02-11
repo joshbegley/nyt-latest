@@ -1,6 +1,14 @@
+**Why Canada is giving Jordan Binnington the 4 Nations net with 'full confidence': 'Binner's a winner'**\
+`"He seems really dialed in right now," Team Canada forward Nathan MacKinnon said of his Central Division rival. "Full confidence in him."`\
+https://nytimes.com/athletic/6130257/2025/02/11/jordan-binnington-canada-4-nations-goalie/
+
+**Champions League Briefing: Man City have a Madrid mountain to climb**\
+`All the big talking points from Tuesday's Champions League playoff matches, including Mbappe scoring with his shin and McKennie's magic`\
+https://nytimes.com/athletic/6129715/2025/02/11/champions-league-man-city-real-madrid-psg-mbappe/
+
 **A Musk ally was accidentally given broad access to sensitive Treasury data.**\
 `In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
-https://nytimes.com/2025/02/11/us/a-musk-ally-was-accidentally-given-broad-access-to-sensitive-treasury-data.html
+https://nytimes.com/2025/02/11/us/elon-musk-treasury-data-x-employee.html
 
 **LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
 `How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
 **Breed winners arrived on a champions-only shuttle bus.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/breed-winners-arrived-on-a-champions-only-shuttle-bus
-
-**Man City vs Real Madrid: Guardiola's troops throw Los Blancos a life line**\
-`Julia Ranney, Sam Tighe and Brett Koremenos dissect Tuesday's clash between Manchester City and Real Madrid through a betting lens.`\
-https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-betting-review/
-
-**Tagging along as a champion dog got ready.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready
 

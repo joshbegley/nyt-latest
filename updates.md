@@ -1,3 +1,15 @@
+**Why Canada is giving Jordan Binnington the 4 Nations net with 'full confidence': 'Binner's a winner'**\
+`"He seems really dialed in right now," Team Canada forward Nathan MacKinnon said of his Central Division rival. "Full confidence in him."`\
+https://nytimes.com/athletic/6130257/2025/02/11/jordan-binnington-canada-4-nations-goalie/
+
+**Champions League Briefing: Man City have a Madrid mountain to climb**\
+`All the big talking points from Tuesday's Champions League playoff matches, including Mbappe scoring with his shin and McKennie's magic`\
+https://nytimes.com/athletic/6129715/2025/02/11/champions-league-man-city-real-madrid-psg-mbappe/
+
+**A Musk ally was accidentally given broad access to sensitive Treasury data.**\
+`In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
+https://nytimes.com/2025/02/11/us/elon-musk-treasury-data-x-employee.html
+
 **A Musk ally was accidentally given broad access to sensitive Treasury data.**\
 `In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
 https://nytimes.com/2025/02/11/us/a-musk-ally-was-accidentally-given-broad-access-to-sensitive-treasury-data.html
