@@ -1,3 +1,7 @@
+**Canucks trade deadline targets: Why these 10 depth centres could fit**\
+`Players who could bolster the Canucks' depth down the middle and might be more realistic to acquire at the deadline for a reasonable cost.`\
+https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targets-2025/
+
 **Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
 `Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
 https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
