@@ -1,3 +1,15 @@
+**Super Bowl LIX biggest winners in collectibles**\
+`The biggest collectibles takeaways from the Super Bowl `\
+https://nytimes.com/athletic/6127088/2025/02/11/super-bowl-lix-collectibles-jalen-hurts-tom-brady/
+
+**Who Is Running for Mayor of New York City?**\
+`The Democratic incumbent, Eric Adams, faces an unusually large field of challengers seeking to seize on his low poll numbers and legal problems.`\
+https://nytimes.com/interactive/2025/nyregion/nyc-mayor-candidates-2025.html
+
+**De'Andre Hunter's 'really good debut' has Cavs dreaming big things**\
+`Cleveland didn't seem to need any help, but Hunter gives it a 3-and-D wing whose skills were on display against the Timberwolves.  `\
+https://nytimes.com/athletic/6128097/2025/02/11/deandre-hunter-cavaliers-debut-trade/
+
 **The Pulse: Three big storylines for the NFL offseason**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6127016/2025/02/11/nfl-offseason-garrett-cooper-flagg-the-pulse/
