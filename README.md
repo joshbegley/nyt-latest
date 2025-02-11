@@ -35,6 +35,6 @@ https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
 https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/heres-the-latest
 
 **Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
-`The president turned up the pressure on the two nations to agree to his plan for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
+`The president turned up the pressure on the two nations to agree to his proposal for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
 https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
 
