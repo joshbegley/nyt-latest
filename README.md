@@ -1,3 +1,7 @@
+**Mayor Adams’s lawyer celebrates push to drop charges.**\
+`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent.`\
+https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
+
 **Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
 `Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
 https://nytimes.com/athletic/6127236/2025/02/10/ken-dorsey-dallas-cowboys-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/for-2-corruption
 **Hochul Halts Bill Aimed at Weakening Republican Control of House**\
 `Lawmakers were ready to pass a bill to delay a special election in New York State, but Gov. Kathy Hochul, who is in discussions with President Trump on congestion pricing, sidelined it.`\
 https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
-
-**Trump Pardons Rod Blagojevich, the Former Illinois Governor**\
-`The pardon was the latest overture between the president and the former governor, who is still known in Chicago simply as “Blago.”`\
-https://nytimes.com/2025/02/10/us/politics/rod-blagojevich-trump-pardon.html
 
