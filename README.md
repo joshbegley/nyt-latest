@@ -1,6 +1,6 @@
 **Mayor Adams’s lawyer celebrates push to drop charges.**\
 `Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-alex-spiro-lawyer
 
 **Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
 `Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
