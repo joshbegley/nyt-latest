@@ -1,3 +1,7 @@
+**The Athletic FC: The changing face of football and social media, U.S. U17s win 22-0**\
+`Today in TAFC: How 'Football Twitter' has changed, why Ancelotti and Guardiola are treated differently, and an astonishing U17 scoreline.`\
+https://nytimes.com/athletic/6128359/2025/02/11/us-17s-record-win-guardiola-ancelotti-tafc/
+
 **Raiders GM John Spytek is bringing Tampa Bay's 'no BS' philosophy to Las Vegas**\
 `Former colleagues speak highly of the 44-year-old Spytek, who will try to build a winning team alongside coach Pete Carroll.`\
 https://nytimes.com/athletic/6117809/2025/02/11/raiders-gm-john-spytek/
