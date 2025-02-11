@@ -1,3 +1,12 @@
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
+**Natalie Spooner returns to Sceptres lineup, will make season debut vs. Frost**\
+`The reigning PWHL MVP's return comes almost nine months after she tore her ACL in Game 3 of the semifinals against Minnesota.`\
+https://nytimes.com/athletic/6127811/2025/02/11/pwhl-natalie-spooner-toronto-sceptres/
+
 **The Bounce: Luka Dončić debuts with Lakers as Mavericks fans stay angry in Dallas**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6128590/2025/02/11/luka-doncic-lebron-james-lakers-mavericks-nico-harrison-nba-the-bounce/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/02/11/business/trump-dei-wall-street.html
 **Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
 `Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
 https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
-
-**BP to ‘Reset’ Strategy After Pressure From Investors, C.E.O. Says**\
-`The energy giant was vague on details, but analysts say the changes will likely include less spending on renewable sources and a bigger investment in oil and natural gas production.`\
-https://nytimes.com/2025/02/11/business/bp-earnings-4q-2024.html
-
-**NBA Power Rankings: How good are the Lakers? And a roster reset for all 30 teams**\
-`The wildest trade deadline ever has passed, so it's time to reassess — though everyone is still chasing the Thunder and Cavaliers.`\
-https://nytimes.com/athletic/6128429/2025/02/11/nba-power-rankings-lakers-mavericks-thunder-celtics/
 
