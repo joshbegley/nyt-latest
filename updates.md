@@ -1,4 +1,8 @@
 **More Than 150 World War II Bombs Found Under Playground in England**\
+`The devices found during construction work were practice bombs, which can be harmful. Officials said there could be more.`\
+https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
+
+**More Than 150 World War II Bombs Found Under Playground in England**\
 `The discovery came as a construction project was underway at the playground in Northumberland.`\
 https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
 
