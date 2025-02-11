@@ -1,3 +1,15 @@
+**Family of Venezuelan Man Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
+`Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
+https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
+
+**My Obsessive Quest for a Thrilling Beef Noodle Soup**\
+`As Lanzhou beef noodle soup goes from regional specialty to global attraction, I set out to find the best bowls in New York City.`\
+https://nytimes.com/2025/02/11/dining/lanzhou-beef-noodle-soup.html
+
+**Brock Faber's 4 Nations diary: Inside the Wild defenseman's first days in Montreal with Team USA**\
+`From the team's Super Bowl party to its breakfast meetings to the first practices, Faber chronicles his time with Team USA for The Athletic.`\
+https://nytimes.com/athletic/6129540/2025/02/11/brock-faber-4-nations-diary-team-usa/
+
 **Trump Insists the U.S. Will Take Control of Gaza**\
 `During a meeting with King Abdullah II of Jordan in the Oval Office, President Trump said that the United States had the authority to take Gaza.`\
 https://nytimes.com/video/us/politics/100000009984382/trump-jordan-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/11/arts/television/i-have-nothing-peacock.html
 **Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
 `Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
 https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
-
-**Deep-Sea Anglerfish Surprises Researchers Near Ocean’s Surface**\
-`While on a shark research expedition off the coast of Tenerife, marine biologists said they captured the first images of an adult black seadevil anglerfish alive near the ocean’s surface.`\
-https://nytimes.com/video/science/earth/100000009983695/deep-sea-anglerfish-found-near-ocean-surface.html
-
-**Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
-`Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
-https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/
-
-**Luka Dončić sees familiar face in L.A. in former Mavericks teammate Dirk Nowitzki**\
-`Nowitzki, the most beloved player in Mavericks franchise history, traveled to Los Angeles to watch Dončić make his debut with the Lakers.`\
-https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-mavericks-nba/
 
