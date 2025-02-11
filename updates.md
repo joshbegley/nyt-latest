@@ -1,3 +1,7 @@
+**Mayor Adams’s lawyer celebrates push to drop charges.**\
+`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent.`\
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/eric-adams-alex-spiro-lawyer
+
 **Democrats Don’t Need a Perfect Message, They Need to Show Some Fight**\
 `What Chuck Schumer and Hakeem Jeffries can do is convey the enormous danger of this moment, immediately. Schumer is changing course already.`\
 https://nytimes.com/2025/02/10/opinion/chuck-schumer-hakeem-jeffries-trump.html
