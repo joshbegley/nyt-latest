@@ -1,3 +1,11 @@
+**Jets’ plan for Rodgers: No outside media including McAfee, attendance at mandatory practices**\
+`The quarterback met with the team last week.`\
+https://nytimes.com/athletic/6129722/2025/02/11/aaron-rodgers-new-york-jets-pat-mcafee/
+
+**Johnson ‘Wholeheartedly’ Agrees With Trump’s Spending Cuts, Undermining Congress**\
+`The comments by the speaker were his latest move to diminish the role of the legislative branch, and in keeping with his move to define himself as a junior partner to President Trump.`\
+https://nytimes.com/2025/02/11/us/politics/johnson-congress-power-trump.html
+
 **What to Know About the Anti-Bribery Law Trump Is Targeting**\
 `Federal prosecutors and securities regulators have gone after large companies for violations of the Foreign Corrupt Practices Act, which prohibits them from bribing foreign officials.`\
 https://nytimes.com/2025/02/11/business/trump-fcpa-explained.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/02/11/business/trump-fcpa-explained.html
 https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
 
 **Twins to sign Ty France to 1-year-deal: Source**\
-`The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
+`The Twins agreed to sign France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
 https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
 
 **Brandon Ingram, Raptors agree to 3-year, $120 million extension: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/treasury-payments-musk-doge.html
 **Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
 `The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
 https://nytimes.com/2025/02/11/business/ford-trump-tariffs-electric-vehicles.html
-
-**Tracking Tropical Cyclone Zelia**\
-`See the likely path and wind arrival times for Zelia.`\
-https://nytimes.com/interactive/2025/02/11/weather/zelia-map-path-tracker.html
-
-**Family of Venezuelan Migrant Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
-`Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
-https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
 
