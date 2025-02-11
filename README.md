@@ -1,3 +1,7 @@
+**James Harden's road back to All-Star status began with a team trip to Arizona**\
+`Thrust into LA's leadership role this offseason, Harden responded by organizing a minicamp: "He’s all about the team."`\
+https://nytimes.com/athletic/6108534/2025/02/11/james-hardens-clippers-all-star-leadership/
+
 **Kelly dropped from England squad despite Arsenal move**\
 `England face a trip to Portugal and a home game against Spain in this month's UEFA Nations League fixtures.`\
 https://nytimes.com/athletic/6128357/2025/02/11/england-women-squad-nations-league-kelly/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128425/2025/02/11/mario-vuskovic-doping-ban-appeal
 **The case for and against each Eastern Conference wild-card playoff hopeful**\
 `The top three teams in the Atlantic and Metro look fairly set. The six teams clamoring for two spots behind them are far more volatile.`\
 https://nytimes.com/athletic/6127756/2025/02/11/nhl-playoffs-eastern-conference-wild-card-probabilities/
-
-**Covid Learning Losses**\
-`We explain the ways students haven’t recovered.`\
-https://nytimes.com/2025/02/11/briefing/covid-learning-losses.html
 
