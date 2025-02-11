@@ -1,3 +1,15 @@
+**McKennie hands Juventus Champions League edge with spectacular strike**\
+`A memorable moment for the USMNT midfielder put Juventus on top in its playoff first leg`\
+https://nytimes.com/athletic/6130012/2025/02/11/weston-mckennie-juventus-usmnt-psv/
+
+**Powell Hesitant to Cut Interest Rates With Inflation Above Target**\
+`Jerome H. Powell, chair of the Federal Reserve, testified before the Senate Banking Committee in the face of continuing inflation risks, shifting regulatory changes and questions over the Federal Reserve’s independence.`\
+https://nytimes.com/video/us/politics/100000009983517/fed-interest-rates-powell.html
+
+**Dodgers open camp with familiar faces and a new challenge: repeating as champs**\
+`The talented Dodgers are not without question marks as their entire rotation faces injury or workload questions.`\
+https://nytimes.com/athletic/6129967/2025/02/11/dodgers-spring-training-repeat/
+
 **‘The White Lotus’ Is Back, With Wellness and Angst Included**\
 `Parker Posey, Patrick Schwarzenegger and Blackpink’s Lisa celebrated the third season of the HBO show, this time set at a luxury resort in Thailand.`\
 https://nytimes.com/2025/02/11/style/white-lotus-season-3-hbo.html
