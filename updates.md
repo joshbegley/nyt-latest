@@ -1,3 +1,11 @@
+**Man United owners to continue cost-cutting with more than 100 further redundancies**\
+`This latest round of cuts comes after 250 employees were made redundant last summer.`\
+https://nytimes.com/athletic/6128266/2025/02/11/manchester-united-jobs-ratcliffe-ineos/
+
+**UEFA talks with Relevent could increase likelihood of Champions League games in U.S.**\
+`Talks cement a relationship between UEFA, Europe’s leading clubs and an agency that wants to stage European club football in the U.S.`\
+https://nytimes.com/athletic/6129285/2025/02/11/champions-league-media-rights-relevant/
+
 **The View Rotates Above Manhattan Once Again**\
 `The restaurant on the 47th floor of the Marriott Marquis in Times Square is reopening under the management of Danny Meyer’s Union Square Hospitality Group.`\
 https://nytimes.com/2025/02/11/dining/nyc-restaurant-news.html
