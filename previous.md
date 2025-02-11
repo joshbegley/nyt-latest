@@ -1,3 +1,11 @@
+**When Trump and Musk Attack the Press**\
+`Readers discuss the administration and the media. Also: Acts of resistance; Joan Didion’s diary; cuts in arts funding; competition in tech.`\
+https://nytimes.com/2025/02/11/opinion/trump-musk-press-media.html
+
+**S.E.C. Moves to Kill Climate Disclosure Rule**\
+`The acting chair, Mark Uyeda, is directing the Securities and Exchange Commission to drop its legal defense of a rule requiring companies to make climate disclosures.`\
+https://nytimes.com/2025/02/11/us/politics/sec-climate-disclosure-rule.html
+
 **Under Trump, Billionaire Climate Champions Have Gone Quiet**\
 `Since the inauguration, billionaires who funded climate action over the last decade have avoided criticizing Trump’s climate policies.`\
 https://nytimes.com/2025/02/11/climate/trump-climate-change-billionaires.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128227/2025/02/11/4-nations-face-off-finland-odds/
 **Skilled Legal Workers Find They, Too, Are Targets of Trump Citizenship Order**\
 `The executive order would ban citizenship for children born in the United States to foreign workers on visas that often lead to permanent residency.`\
 https://nytimes.com/2025/02/11/us/trump-birthright-citizenship-legal-immigrant-workers.html
-
-**Leagues Cup schedule: Format changes, first-round matchups for Rodríguez**\
-`This is the second consecutive year in which notable logistical changes have been made to better accommodate Liga MX participants.`\
-https://nytimes.com/athletic/6128715/2025/02/11/leagues-cup-schedule-mls-liga-mx/
-
-**How to Watch the 2025 Westminster Dog Show**\
-`The event returns to Madison Square Garden with seven group winners facing off in prime time for a chance at best in show.`\
-https://nytimes.com/2025/02/11/style/westminster-dog-show-how-to-watch.html
 

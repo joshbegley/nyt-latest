@@ -1,3 +1,11 @@
+**When Trump and Musk Attack the Press**\
+`Readers discuss the administration and the media. Also: Acts of resistance; Joan Didion’s diary; cuts in arts funding; competition in tech.`\
+https://nytimes.com/2025/02/11/opinion/trump-musk-press-media.html
+
+**S.E.C. Moves to Kill Climate Disclosure Rule**\
+`The acting chair, Mark Uyeda, is directing the Securities and Exchange Commission to drop its legal defense of a rule requiring companies to make climate disclosures.`\
+https://nytimes.com/2025/02/11/us/politics/sec-climate-disclosure-rule.html
+
 **Under Trump, Billionaire Climate Champions Have Gone Quiet**\
 `Since the inauguration, billionaires who funded climate action over the last decade have avoided criticizing Trump’s climate policies.`\
 https://nytimes.com/2025/02/11/climate/trump-climate-change-billionaires.html
