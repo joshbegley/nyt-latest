@@ -1,6 +1,6 @@
 **Religious Groups Sue Homeland Security Over Immigration Arrests**\
 `After taking office, President Trump rescinded a policy that instructed immigration agents to steer clear of sensitive locations like churches, schools and hospitals.`\
-https://nytimes.com/2025/02/11/us/politics/religious-groups-sue-homeland-security-over-immigration-arrests.html
+https://nytimes.com/2025/02/11/us/politics/trump-immigration-lawsuit-religious-groups.html
 
 **Elon Musk’s Business Empire Scores Benefits Under Trump Shake-Up**\
 `Government investigations into Mr. Musk’s companies are stalling from President Trump’s firings and Biden administration resignations.`\
