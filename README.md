@@ -1,7 +1,3 @@
-**David Lynch Is an Unexpected Fashion Week Influencer**\
-`At Coach and Khaite, the director, who died last month, shaped the vibe.`\
-https://nytimes.com/2025/02/11/style/coach-khaite-david-lynch-fashion-week.html
-
 **Super Bowl LIX biggest winners in collectibles**\
 `The biggest collectibles takeaways from the Super Bowl `\
 https://nytimes.com/athletic/6127088/2025/02/11/super-bowl-lix-collectibles-jalen-hurts-tom-brady/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/11/world/europe/luis-rubiales-trial-spain-soccer-her
 **Chelsea's Boehly buys 49% stake in cricket franchise Trent Rockets**\
 `Boehly was previously in the bidding process for the London Spirit franchise.`\
 https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundred/
+
+**Padres camp preview: Key dates, position battles and 3 questions to answer**\
+`The Padres, after a winter marred by a legal dispute and a lack of significant roster additions, will open camp in Arizona this week.`\
+https://nytimes.com/athletic/6111323/2025/02/11/padres-camp-preview-key-dates/
 
