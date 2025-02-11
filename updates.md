@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/heres-the-latest
+
+**Four dogs have already advanced to best in show judging.**\
+`By Benjamin Hoffman`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/four-dogs-have-already-advanced-to-best-in-show-judging
+
+**A peek behind the scenes.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/a-peek-behind-the-scenes
+
 **Gaza’s Cease-Fire Is Imperiled**\
 `Also, Russia released an American prisoner in a deal with Trump. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/02/11/briefing/gaza-cease-fire-snow-storms-westminster-dogs.html
