@@ -1,3 +1,7 @@
+**Marc Lore, Alex Rodriguez win Timberwolves, Lynx arbitration case**\
+`A three-person panel ruled in favor of Lore and Rodriguez, setting them up to take full control of Minnesota's NBA and WNBA teams.`\
+https://nytimes.com/athletic/6126622/2025/02/10/minnesota-timberwolves-ownership-dispute-nba-lore-rodriguez/
+
 **Why Musk and Vance Went to Bat for a Self-Described Racist**\
 `Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
 https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
