@@ -1,3 +1,7 @@
+**Luka Dončić gets superstar treatment in Lakers debut as L.A. downs Jazz**\
+`Dončić finished with 14 points (5-of-14 shooting), five rebounds and four assists in 23 minutes.`\
+https://nytimes.com/athletic/6128110/2025/02/11/luka-doncic-lakers-debut-jazz/
+
 **France Is in a Deep, Deep Hole**\
 `Malaise is all around.`\
 https://nytimes.com/2025/02/11/opinion/france-budget-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126125/2025/02/11/pep-guardiola-carlo-ancelotti-an
 **Football and social media: What next for players and clubs in a changing landscape?**\
 `Twitter, now X, was once a priority platform for players who wanted to have a public voice, but it has a growing number of competitiors`\
 https://nytimes.com/athletic/6095450/2025/02/11/football-social-media-twitter-x-facebook-instagram/
-
-**Penalty fury, board demand, walk-offs, anti-referee sentiment - and just another day in Turkey**\
-`Sunday 's game between Galatasaray and Adana Demirspor was called off after the latter's board ordered their players to leave the pitch`\
-https://nytimes.com/athletic/6126559/2025/02/11/turkey-galatasaray-adana-demirspor-protest-analysis/
 
