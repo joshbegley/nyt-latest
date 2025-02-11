@@ -1,3 +1,7 @@
+**Pope Criticizes Trump’s Deportation of Migrants as a Violation of Dignity**\
+`In a letter to American bishops, Francis leveled unusually direct criticism at the administration on an issue he has made central to his papacy.`\
+https://nytimes.com/2025/02/11/world/europe/pope-trump-immigration-deportations.html
+
 **Consumer bureau heads of supervision and enforcement resign.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/consumer-bureau-heads-of-supervision-and-enforcement-resign
