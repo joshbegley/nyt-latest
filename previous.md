@@ -1,3 +1,7 @@
+**For 2 corruption cases connected to Adams, an uncertain future.**\
+`A former City Hall aide`\
+https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/for-2-corruption-cases-connected-to-adams-an-uncertain-future
+
 **Hochul Halts Bill Aimed at Weakening Republican Control of House**\
 `Lawmakers were ready to pass a bill to delay a special election in New York State, but Gov. Kathy Hochul, who is in discussions with President Trump on congestion pricing, sidelined it.`\
 https://nytimes.com/2025/02/10/nyregion/congestion-pricing-hochul-stefanik.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/eric-adams-mayor-primary.html
 **DNA and a Thumbprint Help Authorities Solve 2003 Long Island Murder**\
 `A former neighbor of Edna Schubert, 88, who was beaten to death in her Suffolk County home, was arrested after a retired detective urged the use of new technology in the case.`\
 https://nytimes.com/2025/02/10/us/long-island-murder-cold-case-thumbprint.html
-
-**Here Are the Charges Against Eric Adams**\
-`The indictment on corruption and fraud charges was the first against a sitting mayor in modern New York City history.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-charges.html
 
