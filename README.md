@@ -1,3 +1,7 @@
+**Oliver Glasner wants Ben Chilwell to help Crystal Palace on and off the pitch**\
+`The on-loan fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed Glasner`\
+https://nytimes.com/athletic/6122145/2025/02/11/ben-chilwell-crystal-palace-doncaster/
+
 **Word of the Day: juggernaut**\
 `This word has appeared in 438 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/11/learning/word-of-the-day-juggernaut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126247/2025/02/11/chelsea-maresca-pochettino-fa-ca
 **Ruben Dias: The making of Manchester City's 'leader'**\
 `The Portuguese defender has cajoled team-mates since his early days at Benfica and his image is as finely curated as his competitive spirit`\
 https://nytimes.com/athletic/5900462/2025/02/11/ruben-dias-profile-manchester-city-leader/
-
-**Manchester United's Cult Heroes: Louis Saha**\
-`In the first of a new series, Saha tells The Athletic about playing with Rooney and Ronaldo, and why you have to do 'extra' at United`\
-https://nytimes.com/athletic/6117949/2025/02/11/manchester-united-cult-heroes-louis-saha/
 
