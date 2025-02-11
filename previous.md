@@ -1,3 +1,11 @@
+**Bubble watch, Mets edition: Projecting the 2025 Opening Day roster**\
+`An examination of the possible Opening Day roster at the start of spring training reveals a team that should compete with the league’s best.`\
+https://nytimes.com/athletic/6129690/2025/02/11/bubble-watch-mets-2025-opening-day-roster-projection/
+
+**'I'd take his …': Team Sweden players on one skill they'd steal from a 4 Nations teammate**\
+`The Athletic polled the Swedes on teammates' most-enviable skills: William Nylander’s skating, Jesper Bratt’s agility and more.`\
+https://nytimes.com/athletic/6129717/2025/02/11/team-sweden-player-poll-4-nations/
+
 **Helen Hays, Who Helped Bring Terns Back to Long Island Sound, Dies at 94**\
 `Beginning in 1969, she spent five months a year on Great Gull Island, leading teams of young volunteers devoted to preserving the seabirds.`\
 https://nytimes.com/2025/02/11/science/helen-hays-dead.html
