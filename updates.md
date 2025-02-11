@@ -1,3 +1,7 @@
+**Why did Bucks trade Khris Middleton? 'We want to win this year'**\
+`GM Jon Horst explained why his deadline moves, especially parting with a franchise staple, give Milwaukee a better chance to win a title.`\
+https://nytimes.com/athletic/6127953/2025/02/10/why-did-bucks-trade-khris-middleton-we-want-to-win-this-year/
+
 **More Than 150 World War II Bombs Found Under Playground in England**\
 `The devices found during construction work were practice bombs, which can be harmful. Officials said there could be more.`\
 https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
