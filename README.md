@@ -1,3 +1,7 @@
+**Pope Criticizes Trump’s Deportation of Migrants as a Violation of Dignity**\
+`In a letter to American bishops, Francis leveled unusually direct criticism at the administration on an issue he has made central to his papacy.`\
+https://nytimes.com/2025/02/11/world/europe/pope-trump-immigration-deportations.html
+
 **Consumer bureau heads of supervision and enforcement resign.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/consumer-bureau-heads-of-supervision-and-enforcement-resign
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128951/2025/02/11/nfl-eight-offseason-questions-to
 **Chinese Companies’ New Tactic to Stop Damaging Research: Legal Threats**\
 `Think tanks and universities have helped expose problematic Chinese business practices. Now, those businesses are accusing them of defamation.`\
 https://nytimes.com/2025/02/11/technology/chinese-company-legal-threats-researchers.html
-
-**Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
-`While there have not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
-https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
 
