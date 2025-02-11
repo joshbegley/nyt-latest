@@ -1,3 +1,23 @@
+**WTA bans Stefano Vukov for TK after investigating Elena Rybakina's former coach**\
+`Vukov had been provisionally suspended from coaching while under investigation; Rybakina maintains that he “never mistreated” her.`\
+https://nytimes.com/athletic/6035283/2025/02/11/stefano-vukov-wta-ban-report-elena-rybakina-coach/
+
+**Yankees spring notes: Key reliever Jake Cousins injured; Marcus Stroman's ‘awkward’ situation**\
+`Plus notes on DJ LeMahieu's health status and the possibility of an Aaron Boone extension.`\
+https://nytimes.com/athletic/6129741/2025/02/11/yankees-jake-cousins-injury-marcus-stroman/
+
+**Gaza Cease-Fire Imperiled as Netanyahu Threatens to Resume ‘Intense Fighting’**\
+`The Israeli leader’s warning came after Hamas said it would indefinitely postpone the next round of hostage releases.`\
+https://nytimes.com/2025/02/11/world/middleeast/israel-hamas-ceasefire-hostages.html
+
+**'He wants to be relevant still': Former Panthers respond to Cam Newton's 'losers' comment**\
+`Newton's comments about his former teammates didn't sit well with some Carolina players.`\
+https://nytimes.com/athletic/6129559/2025/02/11/cam-newton-panthers-losers-comment-steve-smith/
+
+**An Emboldened Trump Seeks to Bend New York City to His Will**\
+`The Trump administration’s order to drop the charges against Mayor Eric Adams was the most pronounced example of the president using his power to determine the city’s future.`\
+https://nytimes.com/2025/02/11/nyregion/trump-nyc.html
+
 **Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
 `The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
 https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
