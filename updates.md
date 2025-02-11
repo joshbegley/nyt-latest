@@ -1,3 +1,11 @@
+**Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
+`The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
+https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
+
+**Until Saturday: 2025's biggest recruiting surges**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6129283/2025/02/11/college-football-recruiting-2025-georgia-state-until-saturday/
+
 **How the January transfer market affected betting odds for EPL, European trophies**\
 `The transfer window is closed and most of the favourites across various competition remain the same. Who is in position to win trophies?`\
 https://nytimes.com/athletic/6129298/2025/02/11/transfer-market-premier-league-champions-europa/
