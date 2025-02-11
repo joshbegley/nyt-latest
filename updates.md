@@ -1,3 +1,8 @@
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **Scoop City: NFL's eight big offseason questions**\
 `Inside: Eight storylines that will help shape 2025, including Myles Garrett, Cooper Kupp and Matthew Stafford, the 49ers, Aaron Rodgers, Sam Darnold, the Steelers, Titans and Tee Higgins.`\
 https://nytimes.com/athletic/6128951/2025/02/11/nfl-eight-offseason-questions-to-watch-scoop-city/
