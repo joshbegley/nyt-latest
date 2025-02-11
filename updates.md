@@ -1,3 +1,7 @@
+**Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
+`Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
+https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
+
 **Deep-Sea Anglerfish Surprises Researchers Near Ocean’s Surface**\
 `While on a shark research expedition off the coast of Tenerife, marine biologists said they captured the first images of an adult black seadevil anglerfish alive near the ocean’s surface.`\
 https://nytimes.com/video/science/earth/100000009983695/deep-sea-anglerfish-found-near-ocean-surface.html
