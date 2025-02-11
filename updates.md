@@ -1,3 +1,15 @@
+**Bannon Pleads Guilty to Fraud in Border Wall Case but Will Serve No Time**\
+`President Trump had already pardoned his adviser in a similar federal case, which accused him of skimming money from donations to build a Southern border barrier.`\
+https://nytimes.com/2025/02/11/nyregion/steve-bannon-guilty-plea.html
+
+**Super Bowl 59 film review: How Vic Fangio's Eagles defense broke the Chiefs offense**\
+`Philadelphia's defensive coordinator created a blueprint to stop Patrick Mahomes and had the roster advantage on Sunday to make it work.`\
+https://nytimes.com/athletic/6127777/2025/02/11/eagles-defense-chiefs-super-bowl-film-review/
+
+**Wall Street Talked Endlessly About Diversity. Trump Ended That.**\
+`Goldman Sachs will drop a demand that corporate boards of directors include women and members of minority groups as financial firms backpedal from D.E.I. promises.`\
+https://nytimes.com/2025/02/11/business/trump-dei-wall-street.html
+
 **Canucks trade deadline targets: Why these 10 depth centres could fit**\
 `Players who could bolster the Canucks' depth down the middle and might be more realistic to acquire at the deadline for a reasonable cost.`\
 https://nytimes.com/athletic/6128245/2025/02/11/canucks-nhl-trade-deadline-targets-2025/
