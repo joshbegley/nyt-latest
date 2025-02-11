@@ -1,3 +1,15 @@
+**Super Bowl LIX biggest winners in collectibles**\
+`The biggest collectibles takeaways from the Super Bowl `\
+https://nytimes.com/athletic/6127088/2025/02/11/super-bowl-lix-collectibles-jalen-hurts-tom-brady/
+
+**Who Is Running for Mayor of New York City?**\
+`The Democratic incumbent, Eric Adams, faces an unusually large field of challengers seeking to seize on his low poll numbers and legal problems.`\
+https://nytimes.com/interactive/2025/nyregion/nyc-mayor-candidates-2025.html
+
+**De'Andre Hunter's 'really good debut' has Cavs dreaming big things**\
+`Cleveland didn't seem to need any help, but Hunter gives it a 3-and-D wing whose skills were on display against the Timberwolves.  `\
+https://nytimes.com/athletic/6128097/2025/02/11/deandre-hunter-cavaliers-debut-trade/
+
 **The Pulse: Three big storylines for the NFL offseason**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6127016/2025/02/11/nfl-offseason-garrett-cooper-flagg-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6104700/2025/02/11/todd-boehly-trent-rockets-hundre
 **Padres camp preview: Key dates, position battles and 3 questions to answer**\
 `The Padres, after a winter marred by a legal dispute and a lack of significant roster additions, will open camp in Arizona this week.`\
 https://nytimes.com/athletic/6111323/2025/02/11/padres-camp-preview-key-dates/
-
-**Angels fan survey results: Frustration, apathy and confusion about team's plan to compete**\
-`We conducted our Angels fan survey for the fourth consecutive year. Questions range from thoughts on Arte Moreno to the team name.`\
-https://nytimes.com/athletic/6127386/2025/02/11/angels-fan-survey-results-2025/
-
-**Padres 2025 spring training preview: Thoughts on every hitter headed to camp**\
-`Let’s break down the current group of position players headed to spring training in Peoria, Ariz.`\
-https://nytimes.com/athletic/6110705/2025/02/11/padres-2025-spring-training-preview-hitters/
-
-**Padres farm system heat check: What’s the immediate and future outlook?**\
-`Here’s an overview of where the San Diego system stands and how it might impact the big-league club.`\
-https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-outlook/
 
