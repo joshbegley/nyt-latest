@@ -1,3 +1,7 @@
+**Quote of the Day: TV Industry Debates Counting Couch Potatoes**\
+`Quotation of the Day for Tuesday, February 11, 2025`\
+https://nytimes.com/2025/02/10/pageoneplus/quote-of-the-day-tv-industry-debates-counting-couch-potatoes.html
+
 **Google Maps Now Shows Gulf of America for U.S. Users**\
 `People located in Mexico will still see the name Gulf of Mexico, while international users will see both names, the company said. The change follows an executive order from President Trump.`\
 https://nytimes.com/2025/02/10/us/google-maps-gulf-of-america.html

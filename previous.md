@@ -1,3 +1,7 @@
+**Quote of the Day: TV Industry Debates Counting Couch Potatoes**\
+`Quotation of the Day for Tuesday, February 11, 2025`\
+https://nytimes.com/2025/02/10/pageoneplus/quote-of-the-day-tv-industry-debates-counting-couch-potatoes.html
+
 **Google Maps Now Shows Gulf of America for U.S. Users**\
 `People located in Mexico will still see the name Gulf of Mexico, while international users will see both names, the company said. The change follows an executive order from President Trump.`\
 https://nytimes.com/2025/02/10/us/google-maps-gulf-of-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/10/us/trump-news/a-judge-blocked-trumps-firing-
 **Bring to Bear**\
 `Paul Coulter conducts an experiment.`\
 https://nytimes.com/2025/02/10/crosswords/daily-puzzle-2025-02-11.html
-
-**Why did Bucks trade Khris Middleton? 'We want to win this year'**\
-`GM Jon Horst explained why his deadline moves, especially parting with a franchise staple, give Milwaukee a better chance to win a title.`\
-https://nytimes.com/athletic/6127953/2025/02/10/why-did-bucks-trade-khris-middleton-we-want-to-win-this-year/
 
