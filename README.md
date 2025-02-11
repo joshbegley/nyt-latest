@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
 
 **Twins agree to sign Ty France to a 1-year-deal**\
-`The Minnesota Twins signed free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
+`The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
 https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
 
 **Brandon Ingram, Raptors agree to 3-year, $120 million extension: Sources**\
