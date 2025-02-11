@@ -1,3 +1,7 @@
+**What I think and what I know about the Sabres at the 4 Nations break**\
+`The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
+https://nytimes.com/athletic/6128801/2025/02/11/buffalo-sabres-4-nations-face-off/
+
 **How Finland's 'sandpaper hockey' could defy the odds at 4 Nations Face-Off**\
 `Finland is a perennial underdog in international hockey, but it doesn't care.`\
 https://nytimes.com/athletic/6128227/2025/02/11/4-nations-face-off-finland-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
 **Real Madrid player Raul Asencio has his appeal dismissed in sex-tape investigation involving a minor**\
 `The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
 https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
-
-**Kenley Jansen signs 1-year, $10 million deal with Angels: Sources**\
-`It's unclear whether Jansen will be the Angels' closer, as the team already has fireballer Ben Joyce in that role.`\
-https://nytimes.com/athletic/6129055/2025/02/11/kenley-jansen-signs-angels/
 

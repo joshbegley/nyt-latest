@@ -1,3 +1,7 @@
+**What I think and what I know about the Sabres at the 4 Nations break**\
+`The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
+https://nytimes.com/athletic/6128801/2025/02/11/buffalo-sabres-4-nations-face-off/
+
 **How Finland's 'sandpaper hockey' could defy the odds at 4 Nations Face-Off**\
 `Finland is a perennial underdog in international hockey, but it doesn't care.`\
 https://nytimes.com/athletic/6128227/2025/02/11/4-nations-face-off-finland-odds/
