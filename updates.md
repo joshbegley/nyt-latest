@@ -1,3 +1,15 @@
+**Google Maps Now Shows Gulf of America for U.S. Users**\
+`People located in Mexico will still see the name Gulf of Mexico, while international users will see both names, the company said. The change follows an executive order from President Trump.`\
+https://nytimes.com/2025/02/10/us/google-maps-gulf-of-america.html
+
+**Who Needs Hollywood? Chinese Animated Film Shatters Box Office Records.**\
+`The runaway success of “Ne Zha 2” is another sign that Chinese audiences are choosing domestic movies over Hollywood blockbusters.`\
+https://nytimes.com/2025/02/10/business/china-box-office-ne-zha-2.html
+
+**Hegseth Renames Fort Liberty to Fort Bragg**\
+`The army base was earlier named after Braxton Bragg, a Confederate general. The Pentagon said the name will now honor Roland L. Bragg, a soldier who was decorated for his service during World War II.`\
+https://nytimes.com/2025/02/10/us/politics/hegseth-fort-liberty-bragg.html
+
 **LAFC co-owner Ruben Gnanalingam apologizes for anti-Israel posts**\
 `Major League Soccer and Los Angeles FC released a joint statement condemning the posts.`\
 https://nytimes.com/athletic/6127795/2025/02/10/mls-lafc-anti-israel-posts-ruben-gnanalingam/
