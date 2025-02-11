@@ -1,3 +1,7 @@
+**Will Liverpool's strange fixture schedule in February and March be helpful - or disruptive?**\
+`Liverpool's season will not be defined by an FA Cup defeat by Plymouth, but their title challenge might well be shaped by what comes next`\
+https://nytimes.com/athletic/6127141/2025/02/11/liverpool-fixture-schedule-february-march/
+
 **Luka Dončić gets superstar treatment in Lakers debut as L.A. downs Jazz**\
 `Dončić finished with 14 points (5-of-14 shooting), five rebounds and four assists in 23 minutes.`\
 https://nytimes.com/athletic/6128110/2025/02/11/luka-doncic-lakers-debut-jazz/
