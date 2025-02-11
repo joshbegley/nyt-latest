@@ -1,3 +1,11 @@
+**Nations Denounce Trump Tariff on Metals and Warn of Retaliation**\
+`Canada, Mexico and European countries criticized President Trump’s levies on steel and aluminum with fears that they could ignite a global trade war.`\
+https://nytimes.com/2025/02/11/world/canada/trump-metals-tariff-canada-mexico.html
+
+**‘Doomers’ Review: Hunkered Down, Debating the Peril and Promise of A.I.**\
+`Matthew Gasda directs his new play, which was inspired by Sam Altman’s 2023 ouster from OpenAI.`\
+https://nytimes.com/2025/02/11/theater/doomers-review-ai-gasda.html
+
 **Elon Musk’s Financial Disclosure Will Not Be Made Public**\
 `The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128769/2025/02/11/uswnt-squad-shebelieves-cup/
 **Five Easy Pastas That Are Very Romantic**\
 `You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
 https://nytimes.com/2025/02/11/dining/romantic-pasta-recipes.html
-
-**Demi Moore, Naked and Liberated**\
-`As she prepares for her first Oscars as a nominee, the star of “The Substance” talks about the daring role that revitalized her career.`\
-https://nytimes.com/2025/02/11/movies/demi-moore-substance-oscars.html
-
-**Hilton Als Is a Critic Who Curates, or Is It the Other Way Around?**\
-`The Pulitzer-prize winning writer and essayist talks about his love of art and how he reconciles two challenging roles.`\
-https://nytimes.com/2025/02/11/arts/design/hilton-als-new-yorker-curator-art-hill.html
 

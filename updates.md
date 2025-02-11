@@ -1,3 +1,11 @@
+**Nations Denounce Trump Tariff on Metals and Warn of Retaliation**\
+`Canada, Mexico and European countries criticized President Trump’s levies on steel and aluminum with fears that they could ignite a global trade war.`\
+https://nytimes.com/2025/02/11/world/canada/trump-metals-tariff-canada-mexico.html
+
+**‘Doomers’ Review: Hunkered Down, Debating the Peril and Promise of A.I.**\
+`Matthew Gasda directs his new play, which was inspired by Sam Altman’s 2023 ouster from OpenAI.`\
+https://nytimes.com/2025/02/11/theater/doomers-review-ai-gasda.html
+
 **Elon Musk’s Financial Disclosure Will Not Be Made Public**\
 `The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
