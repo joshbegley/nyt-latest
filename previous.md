@@ -1,6 +1,14 @@
+**Religious Groups Sue Homeland Security Over Immigration Arrests**\
+`After taking office, President Trump rescinded a policy that instructed immigration agents to steer clear of sensitive locations like churches, schools and hospitals.`\
+https://nytimes.com/2025/02/11/us/politics/trump-immigration-lawsuit-religious-groups.html
+
 **Elon Musk’s Business Empire Scores Benefits Under Trump Shake-Up**\
 `Government investigations into Mr. Musk’s companies are stalling from President Trump’s firings and Biden administration resignations.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-companies-conflicts.html
+
+**Saints hiring Eagles OC Kellen Moore as next head coach: Source**\
+`Moore would replace Dennis Allen, who the Saints fired on Nov. 3.`\
+https://nytimes.com/athletic/6070299/2025/02/11/kellen-moore-saints-head-coach-eagles/
 
 **What I think and what I know about the Sabres at the 4 Nations break**\
 `The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/health/nih-research-funding-lawsuit-injunction.ht
 **Nations Denounce Trump Tariff on Metals and Warn of Retaliation**\
 `Canada, Mexico and European countries criticized President Trump’s levies on steel and aluminum with fears that they could ignite a global trade war.`\
 https://nytimes.com/2025/02/11/world/canada/trump-metals-tariff-canada-mexico.html
-
-**‘Doomers’ Review: Hunkered Down, Debating the Peril and Promise of A.I.**\
-`Matthew Gasda directs his new play, which was inspired by Sam Altman’s 2023 ouster from OpenAI.`\
-https://nytimes.com/2025/02/11/theater/doomers-review-ai-gasda.html
-
-**Elon Musk’s Financial Disclosure Will Not Be Made Public**\
-`The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
-https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
 
