@@ -1,7 +1,3 @@
-**A Musk ally was accidentally given broad access to sensitive Treasury data.**\
-`In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
-https://nytimes.com/2025/02/11/us/a-musk-ally-was-accidentally-given-broad-access-to-sensitive-treasury-data.html
-
 **LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
 `How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
 https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-b
 **Tagging along as a champion dog got ready.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready
+
+**Federal employee unions sue Musk and the Office of Personnel Management over access to personal data.**\
+`By Kate Conger`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/federal-employee-unions-sue-musk-and-the-office-of-personnel-management-over-access-to-personal-data
 
