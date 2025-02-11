@@ -1,3 +1,11 @@
+**Immigration Deal in Florida Ends DeSantis Feud With Fellow Republicans**\
+`The governor and legislators had jockeyed to prove that their respective plans for immigration enforcement aligned with President Trump’s.`\
+https://nytimes.com/2025/02/11/us/immigration-florida-desantis-feud-republicans.html
+
+**Love or Hate Valentine’s Day?**\
+`Great movies to watch no matter how you feel about the holiday.`\
+https://nytimes.com/interactive/2025/02/11/movies/valentines-day-movies-love-hate.html
+
 **WTA bans Stefano Vukov for TK after investigating Elena Rybakina's former coach**\
 `Vukov had been provisionally suspended from coaching while under investigation; Rybakina maintains that he “never mistreated” her.`\
 https://nytimes.com/athletic/6035283/2025/02/11/stefano-vukov-wta-ban-report-elena-rybakina-coach/
