@@ -1,3 +1,11 @@
+**Strong Storm Expected to Soak Southern California, Raising Fears of Mudslides**\
+`It could be the biggest storm the area has seen so far this winter.`\
+https://nytimes.com/2025/02/11/weather/la-southern-california-rain-mudslides.html
+
+**Trump Pauses Enforcement of an Antibribery Law for Businesses**\
+`The Foreign Corrupt Practices Act makes it illegal for companies that operate in the United States to pay foreign government officials to secure or keep business deals.`\
+https://nytimes.com/2025/02/11/us/politics/trump-fcpa-bribery-law-corruption.html
+
 **Can European ‘Boots on the Ground’ Help Protect Ukraine’s Security?**\
 `Deterring Russia from re-invading Ukraine, once this war ends, could require 150,000 troops and American help with air cover, intelligence and missile defense, experts say.`\
 https://nytimes.com/2025/02/11/world/europe/ukraine-russia-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6127018/2025/02/11/brandon-ingram-raptors-offence-d
 **Panthers mock draft 1.0: All defense as in 2020? Tempting, but not quite**\
 `When in doubt, draft defense — especially after Carolina allowed the most points in NFL history last season.`\
 https://nytimes.com/athletic/6127617/2025/02/11/panthers-mock-draft-jalon-walker-georgia/
-
-**Patriots mock draft 1.0: Rebuilding the team through the trenches**\
-`The Patriots are hoping to dramatically improve their offensive and defensive lines under coach Mike Vrabel. Can they do it in the draft?`\
-https://nytimes.com/athletic/6126712/2025/02/11/patriots-mock-draft-nfl/
-
-**What if Trump Just Ignores the Courts?**\
-`Quinta Jurecic discusses the potential “constitutional crisis” that the Trump administration could trigger.`\
-https://nytimes.com/2025/02/11/opinion/ezra-klein-podcast-quinta-jurecic.html
 
