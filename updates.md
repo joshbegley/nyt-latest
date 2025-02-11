@@ -1,3 +1,7 @@
+**Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
+`The president turned up the pressure on the two nations to agree to his proposal for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
+https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
+
 **Read the Justice Department Memo About Eric Adams’s Corruption Case**\
 `The Justice Department on Monday told federal prosecutors in Manhattan to drop the corruption charges against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
