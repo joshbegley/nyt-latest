@@ -1,3 +1,7 @@
+**A Musk ally was accidentally given broad access to sensitive Treasury data.**\
+`In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
+https://nytimes.com/2025/02/11/us/a-musk-ally-was-accidentally-given-broad-access-to-sensitive-treasury-data.html
+
 **LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
 `How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
 https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
