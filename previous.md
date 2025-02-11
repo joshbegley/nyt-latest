@@ -1,3 +1,7 @@
+**France Is in a Deep, Deep Hole**\
+`Malaise is all around.`\
+https://nytimes.com/2025/02/11/opinion/france-budget-macron.html
+
 **Can this matchless midweek help change Tottenham's fortunes?**\
 `Has the arrival of reinforcements, from the transfer window and out of the treatment room, come too late to save Spurs’ season?`\
 https://nytimes.com/athletic/6126766/2025/02/11/tottenham-fixtures-injuries-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6095450/2025/02/11/football-social-media-twitter-x-
 **Penalty fury, board demand, walk-offs, anti-referee sentiment - and just another day in Turkey**\
 `Sunday 's game between Galatasaray and Adana Demirspor was called off after the latter's board ordered their players to leave the pitch`\
 https://nytimes.com/athletic/6126559/2025/02/11/turkey-galatasaray-adana-demirspor-protest-analysis/
-
-**Liverpool fans: We are taking requests - what would you like to read about?**\
-`Let us know what you would be interested in reading about`\
-https://nytimes.com/athletic/6124211/2025/02/11/liverpool-fans-we-are-taking-requests-what-would-you-like-to-read-about/
 

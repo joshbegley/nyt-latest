@@ -1,3 +1,7 @@
+**France Is in a Deep, Deep Hole**\
+`Malaise is all around.`\
+https://nytimes.com/2025/02/11/opinion/france-budget-macron.html
+
 **Can this matchless midweek help change Tottenham's fortunes?**\
 `Has the arrival of reinforcements, from the transfer window and out of the treatment room, come too late to save Spurs’ season?`\
 https://nytimes.com/athletic/6126766/2025/02/11/tottenham-fixtures-injuries-postecoglou/
