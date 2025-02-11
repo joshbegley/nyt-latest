@@ -26,7 +26,7 @@ https://nytimes.com/2025/02/10/us/long-island-murder-cold-case-thumbprint.html
 `The indictment on corruption and fraud charges was the first against a sitting mayor in modern New York City history.`\
 https://nytimes.com/2025/02/10/nyregion/eric-adams-charges.html
 
-**Read the Justice Department memo about Eric Adams’s corruption case**\
+**Read the Justice Department Memo About Eric Adams’s Corruption Case**\
 `The Justice Department on Monday told federal prosecutors in Manhattan to drop the corruption charges against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/10/nyregion/adams-case-dismiss-memo.html
 
