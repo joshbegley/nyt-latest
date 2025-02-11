@@ -1,3 +1,11 @@
+**Pelicans' Herb Jones 'likely' done for season with shoulder injury**\
+`The loss of Jones has played a big role in New Orleans plummeting from No. 6 in defensive efficiency to 30th this season.`\
+https://nytimes.com/athletic/6129356/2025/02/11/pelicans-herb-jones-injury-update/
+
+**Until Saturday: 2025's biggest recruiting surges**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6129283/2025/02/11/college-football-recruiting-2025-georgia-state-until-saturday/
+
 **How the January transfer market affected betting odds for EPL, European trophies**\
 `The transfer window is closed and most of the favourites across various competition remain the same. Who is in position to win trophies?`\
 https://nytimes.com/athletic/6129298/2025/02/11/transfer-market-premier-league-champions-europa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/dining/valentines-day-dishes.html
 **Eric Adams Asks for New Yorkers’ Trust, Saying He ‘Never Broke the Law’**\
 `Mayor Eric Adams of New York gave a speech on Tuesday professing his innocence and arguing that he would not put his personal interests above the city’s.`\
 https://nytimes.com/2025/02/11/nyregion/eric-adams-charges-trump.html
-
-**Man United owners to continue cost-cutting with more than 100 further redundancies**\
-`This latest round of cuts comes after 250 employees were made redundant last summer.`\
-https://nytimes.com/athletic/6128266/2025/02/11/manchester-united-jobs-ratcliffe-ineos/
-
-**UEFA talks with Relevent could increase likelihood of Champions League games in U.S.**\
-`Talks cement a relationship between UEFA, Europe’s leading clubs and an agency that wants to stage European club football in the U.S.`\
-https://nytimes.com/athletic/6129285/2025/02/11/champions-league-media-rights-relevant/
 
