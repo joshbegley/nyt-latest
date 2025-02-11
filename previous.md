@@ -1,3 +1,11 @@
+**Kelly dropped from England squad despite Arsenal move**\
+`England face a trip to Portugal and a home game against Spain in this month's UEFA Nations League fixtures.`\
+https://nytimes.com/athletic/6128357/2025/02/11/england-women-squad-nations-league-kelly/
+
+**Dissecting the Merseyside derby: A (polite) chat between our Everton and Liverpool experts**\
+`Analysing the mood and big tactical talking points ahead of the final Everton-Liverpool match at Goodison Park`\
+https://nytimes.com/athletic/6125875/2025/02/11/the-merseyside-derby-dissected-a-polite-chat-between-our-everton-and-liverpool-experts/
+
 **The Athletic FC: The changing face of football and social media, U.S. U17s win 22-0**\
 `Today in TAFC: How 'Football Twitter' has changed, why Ancelotti and Guardiola are treated differently, and an astonishing U17 scoreline.`\
 https://nytimes.com/athletic/6128359/2025/02/11/us-17s-record-win-guardiola-ancelotti-tafc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6127756/2025/02/11/nhl-playoffs-eastern-conference-
 **Covid Learning Losses**\
 `We explain the ways students haven’t recovered.`\
 https://nytimes.com/2025/02/11/briefing/covid-learning-losses.html
-
-**How Trump’s Canadian Oil Tariff Would Hit America’s Heartland**\
-`The 10 percent tariff the president said he might impose in March could cause U.S. refineries to cut production and lead to higher prices.`\
-https://nytimes.com/2025/02/11/business/energy-environment/trump-tariffs-canada-oil.html
-
-**Astros camp preview: Key dates, position battles and 3 questions to answer**\
-`The Astros face questions in the outfield and the bullpen as they prepare for spring training in Florida.`\
-https://nytimes.com/athletic/6124637/2025/02/11/astros-spring-training-preview-jose-altuve-outfield/
 

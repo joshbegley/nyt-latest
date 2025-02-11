@@ -1,3 +1,11 @@
+**Kelly dropped from England squad despite Arsenal move**\
+`England face a trip to Portugal and a home game against Spain in this month's UEFA Nations League fixtures.`\
+https://nytimes.com/athletic/6128357/2025/02/11/england-women-squad-nations-league-kelly/
+
+**Dissecting the Merseyside derby: A (polite) chat between our Everton and Liverpool experts**\
+`Analysing the mood and big tactical talking points ahead of the final Everton-Liverpool match at Goodison Park`\
+https://nytimes.com/athletic/6125875/2025/02/11/the-merseyside-derby-dissected-a-polite-chat-between-our-everton-and-liverpool-experts/
+
 **The Athletic FC: The changing face of football and social media, U.S. U17s win 22-0**\
 `Today in TAFC: How 'Football Twitter' has changed, why Ancelotti and Guardiola are treated differently, and an astonishing U17 scoreline.`\
 https://nytimes.com/athletic/6128359/2025/02/11/us-17s-record-win-guardiola-ancelotti-tafc/
