@@ -1,3 +1,15 @@
+**Judge loosens order barring Treasury officials from payment system.**\
+`By Benjamin Weiser`\
+https://nytimes.com/2025/02/11/us/politics/judge-loosens-order-barring-treasury-officials-from-payment-system.html
+
+**Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
+`The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
+https://nytimes.com/2025/02/11/business/ford-trump-tariffs-electric-vehicles.html
+
+**Tracking Tropical Cyclone Zelia**\
+`See the likely path and wind arrival times for Zelia.`\
+https://nytimes.com/interactive/2025/02/11/weather/zelia-map-path-tracker.html
+
 **Family of Venezuelan Man Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
 `Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
 https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html

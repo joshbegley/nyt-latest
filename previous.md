@@ -1,3 +1,15 @@
+**Judge loosens order barring Treasury officials from payment system.**\
+`By Benjamin Weiser`\
+https://nytimes.com/2025/02/11/us/politics/judge-loosens-order-barring-treasury-officials-from-payment-system.html
+
+**Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
+`The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
+https://nytimes.com/2025/02/11/business/ford-trump-tariffs-electric-vehicles.html
+
+**Tracking Tropical Cyclone Zelia**\
+`See the likely path and wind arrival times for Zelia.`\
+https://nytimes.com/interactive/2025/02/11/weather/zelia-map-path-tracker.html
+
 **Family of Venezuelan Man Sent to Guantánamo: ‘My Brother Is Not a Criminal.’**\
 `Luis Alberto Castillo arrived in the United States so that he could “give everything to his son,” said his sister. Then, while scrolling on TikTok, she found out he was headed to Guantánamo.`\
 https://nytimes.com/2025/02/11/world/americas/luis-castillo-venezuela-migrant-guantanamo-bay-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6129547/2025/02/11/kai-havertz-injury-arsenal/
 **Top FEMA Official Is Fired Over Payments for N.Y.C. Migrant Shelters**\
 `The Trump administration fired the Federal Emergency Management Agency’s chief financial officer and three others after Elon Musk misleadingly claimed the agency had used disaster-relief funds for migrant services.`\
 https://nytimes.com/2025/02/11/nyregion/fema-fired-nyc-migrant-hotels.html
-
-**What you need to know about the Eagles’ Super Bowl parade**\
-`Learn everything from the parade's start time and route to Philadelphia's specialized public transportation schedule on Friday.`\
-https://nytimes.com/athletic/6126973/2025/02/11/eagles-super-bowl-championship-parade-route-schedule-updates/
-
-**‘I Have Nothing’ Is a Wacky and Moving Docu-Comedy**\
-`In this six-part Peacock series, the comedian Carolyn Taylor tries to choreograph a figure-skating routine, despite being barely able to skate.`\
-https://nytimes.com/2025/02/11/arts/television/i-have-nothing-peacock.html
-
-**Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
-`Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
-https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
 

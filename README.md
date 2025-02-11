@@ -1,6 +1,6 @@
-**Judge loosens order barring Treasury officials from payment system.**\
-`By Benjamin Weiser`\
-https://nytimes.com/2025/02/11/us/politics/judge-loosens-order-barring-treasury-officials-from-payment-system.html
+**Judge Loosens Order Barring Treasury Officials From Payment System**\
+`Senate-confirmed officials, including Secretary Scott Bessent, may now see the system. The judge continued to bar Elon Musk’s aides.`\
+https://nytimes.com/2025/02/11/us/politics/treasury-payments-musk-doge.html
 
 **Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
 `The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
