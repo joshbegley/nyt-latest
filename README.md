@@ -1,3 +1,11 @@
+**Federal employee unions sue Musk and the Office of Personnel Management over access to personal data.**\
+`By Kate Conger`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/federal-employee-unions-sue-musk-and-the-office-of-personnel-management-over-access-to-personal-data
+
+**California’s High-Risk Insurer Gets $1 Billion Bailout After L.A. Fires**\
+`The move will likely to lead to higher costs for households across the state, and may push more insurers to leave, intensifying a home insurance crisis.`\
+https://nytimes.com/2025/02/11/climate/california-fairplan-insurance-bailout.html
+
 **Here’s the latest.**\
 `By Daniel Victor`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6130147/2025/02/11/lakers-alex-len-signing-christia
 **Musk makes sweeping claims about federal corruption, without evidence.**\
 `The billionaire, whose federal cost-cutting team has been operating in secrecy, asserted that he had uncovered waste and fraud across the bureaucracy, without providing evidence.`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-musk-oval-office
-
-**McKennie hands Juventus Champions League edge with spectacular strike**\
-`A memorable moment for the USMNT midfielder put Juventus on top in its playoff first leg`\
-https://nytimes.com/athletic/6130012/2025/02/11/weston-mckennie-juventus-usmnt-psv/
-
-**Powell Hesitant to Cut Interest Rates With Inflation Above Target**\
-`Jerome H. Powell, chair of the Federal Reserve, testified before the Senate Banking Committee in the face of continuing inflation risks, shifting regulatory changes and questions over the Federal Reserve’s independence.`\
-https://nytimes.com/video/us/politics/100000009983517/fed-interest-rates-powell.html
 
