@@ -1,3 +1,11 @@
+**Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
+`Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
+https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
+
+**BP to ‘Reset’ Strategy After Pressure From Investors, C.E.O. Says**\
+`The energy giant was vague on details, but analysts say the changes will likely include less spending on renewable sources and a bigger investment in oil and natural gas production.`\
+https://nytimes.com/2025/02/11/business/bp-earnings-4q-2024.html
+
 **NBA Power Rankings: How good are the Lakers? And a roster reset for all 30 teams**\
 `The wildest trade deadline ever has passed, so it's time to reassess — though everyone is still chasing the Thunder and Cavaliers.`\
 https://nytimes.com/athletic/6128429/2025/02/11/nba-power-rankings-lakers-mavericks-thunder-celtics/
