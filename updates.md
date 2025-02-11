@@ -1,5 +1,9 @@
 **In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
 `The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
+https://nytimes.com/2025/02/11/world/middleeast/abbas-prisoner-payments-trump.html
+
+**In Overture to Trump, Palestinian Leader Ends Payments for Prisoners**\
+`The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
 https://nytimes.com/2025/02/11/world/middleeast/palestinian-authority-prisoner-payments-trump-israel.html
 
 **A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s orders.**\
