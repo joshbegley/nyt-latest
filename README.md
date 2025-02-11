@@ -1,3 +1,7 @@
+**Trump’s Gaza Plan Is a Crazy Answer to a Valid Question**\
+`There is a case to make for fresh thinking about Gaza. But Trump’s plan is not fresh thinking, it’s fresh riffing.`\
+https://nytimes.com/2025/02/11/opinion/trump-israel-gaza.html
+
 **The Briefing: Man City 2 Real Madrid 3 - Bellingham's late, late winner and another City collapse**\
 `City were stunned at the Etihad by Madrid in an instant Champions League classic`\
 https://nytimes.com/athletic/6126057/2025/02/11/man-city-2-real-madrid-3-bellingham/
