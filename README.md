@@ -1,3 +1,15 @@
+**‘Serial Swatter’ Who Made Nearly 400 Threatening Calls Gets 4 Years in Prison**\
+`Alan W. Filion, 18, of Lancaster, Calif., pleaded guilty to making false threats of mass violence, which prosecutors said prompted large police deployments and, in some cases, unnecessary detentions.`\
+https://nytimes.com/2025/02/11/us/california-swatting-calls-sentence-teen.html
+
+**Aaron Boone shades Dodgers' post-World Series trash talk: 'I don't like hearing that'**\
+`'Hopefully, we're in that position next year and handle things with a little more class,' the Yankees manager said on Tuesday.`\
+https://nytimes.com/athletic/6129462/2025/02/11/aaron-boone-yankees-dodgers-trash-talk/
+
+**Wednesday Briefing: Israel Threatens to End the Cease-Fire**\
+`Plus, New York Fashion Week.`\
+https://nytimes.com/2025/02/11/briefing/israel-cease-fire-us-tariffs-ukraine-security.html
+
 **Jets’ plan for Rodgers: No outside media including McAfee, attendance at mandatory practices**\
 `The quarterback met with the team last week.`\
 https://nytimes.com/athletic/6129722/2025/02/11/aaron-rodgers-new-york-jets-pat-mcafee/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6129708/2025/02/11/brandon-ingram-contract-extensio
 **Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
 `The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
 https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
-
-**Share Your Experiences at Los Alamos National Laboratory**\
-`The New York Times would like to hear from you about workplace protocols and safety measures at LANL.`\
-https://nytimes.com/2025/02/11/us/share-your-experiences-at-los-alamos-national-laboratory.html
-
-**Judge Loosens Order Barring Treasury Officials From Payment System**\
-`Senate-confirmed officials, including Secretary Scott Bessent, may now see the system. The judge continued to bar Elon Musk’s aides.`\
-https://nytimes.com/2025/02/11/us/politics/treasury-payments-musk-doge.html
-
-**Ford Chief Executive Says Trump Policies May Lead to Layoffs**\
-`The executive, Jim Farley, said President Trump’s tariff and auto policies would raise costs and could force the automaker to cut jobs.`\
-https://nytimes.com/2025/02/11/business/ford-trump-tariffs-electric-vehicles.html
 
