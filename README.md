@@ -1,3 +1,11 @@
+**NOAA Is Told to Make List of Climate-Related Grants, Setting Off Fears**\
+`Staff members search for spending on “climate science,” “climate crisis” and “pollution” as one of the world’s premier climate research agencies girds for cuts.`\
+https://nytimes.com/2025/02/10/climate/noaa-trump-executive-orders.html
+
+**Full Time: An overdue win for NWSL players**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6127857/2025/02/10/nwsl-settlement-kerr-trial-full-time/
+
 **A judge blocked Trump’s firing of a government watchdog.**\
 `Hampton Dellinger, the head of the Office of Special Counsel, had sued the Trump administration, arguing that the president went beyond his legal authority.`\
 https://nytimes.com/live/2025/02/10/us/trump-news/a-judge-blocked-trumps-firing-of-a-government-watchdog
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/10/nyregion/ingrid-lewis-martin-investigation.html
 **Eric Adams, Trump’s Mayor**\
 `For New Yorkers, the concern is if there’s a quid for the quo. Will Eric Adams’s decisions be based on their interests or his?`\
 https://nytimes.com/live/2025/01/27/opinion/thepoint/eric-adams-trump-mayor-charges-drop
-
-**Adams’s Lawyer Claims Vindication. The Reality Is More Complicated.**\
-`Mayor Eric Adams’s defense lawyer Alex Spiro welcomed the move to drop his federal corruption case and insisted that the mayor was innocent. His assertions conflicted with evidence described by federal prosecutors.`\
-https://nytimes.com/2025/02/10/nyregion/eric-adams-alex-spiro-lawyer.html
-
-**Ken Dorsey expected to join Dallas Cowboys staff: Reports**\
-`Veteran assistant has previously worked with the Carolina Panthers, Buffalo Bills and Cleveland Browns. `\
-https://nytimes.com/athletic/6127236/2025/02/10/ken-dorsey-dallas-cowboys-staff/
 
