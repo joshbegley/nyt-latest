@@ -1,3 +1,7 @@
+**James Harden's road back to All-Star status began with a team trip to Arizona**\
+`Thrust into LA's leadership role this offseason, Harden responded by organizing a minicamp: "He’s all about the team."`\
+https://nytimes.com/athletic/6108534/2025/02/11/james-hardens-clippers-all-star-leadership/
+
 **Kelly dropped from England squad despite Arsenal move**\
 `England face a trip to Portugal and a home game against Spain in this month's UEFA Nations League fixtures.`\
 https://nytimes.com/athletic/6128357/2025/02/11/england-women-squad-nations-league-kelly/
