@@ -1,3 +1,11 @@
+**Heat Today: Terry Rozier's poor shooting is contributing to the Heat's flailing offense**\
+`To help Miami's struggles on offense, Terry Rozier must turn around challenging season`\
+https://nytimes.com/athletic/6128936/2025/02/11/terry-rozier-shooting-struggles-heat-nba/
+
+**‘I Was Dying’: Salman Rushdie Testifies About Terrifying Stabbing Attack**\
+`The author recounted in vivid testimony the moment when an attacker stabbed him about 15 times as he was about to give a lecture in western New York.`\
+https://nytimes.com/2025/02/11/nyregion/salman-rushdie-testimony-assault-trial.html
+
 **Maria Teresa Horta, the Last of Portugal’s ‘Three Marias,’ Dies at 87**\
 `The book on which she collaborated with two fellow feminists drew global attention to the repression of women under their country’s dictatorship.`\
 https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129342/2025/02/11/new-york-rangers-mailbag-februar
 **Submit your questions for Arthur Staple’s New York Islanders mailbag**\
 `Have a question about the Islanders? Submit it here and The Athletic’s Arthur Staple will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6129350/2025/02/11/new-york-islanders-mailbag-february-2025/
-
-**Eric Adams Delivers Remarks After D.O.J. Moves to Drop Charges**\
-`The mayor of New York City said that he “never broke the law” during a six-minute speech at City Hall.`\
-https://nytimes.com/video/nyregion/100000009983905/eric-adams-charges.html
-
-**19 Very Doable Valentine’s Day Dishes**\
-`Honey-glazed chicken and shallots, French onion grilled cheese and an easy chocolate layer cake all feel special without being super fussy.`\
-https://nytimes.com/2025/02/11/dining/valentines-day-dishes.html
 

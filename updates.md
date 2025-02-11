@@ -1,3 +1,11 @@
+**Heat Today: Terry Rozier's poor shooting is contributing to the Heat's flailing offense**\
+`To help Miami's struggles on offense, Terry Rozier must turn around challenging season`\
+https://nytimes.com/athletic/6128936/2025/02/11/terry-rozier-shooting-struggles-heat-nba/
+
+**‘I Was Dying’: Salman Rushdie Testifies About Terrifying Stabbing Attack**\
+`The author recounted in vivid testimony the moment when an attacker stabbed him about 15 times as he was about to give a lecture in western New York.`\
+https://nytimes.com/2025/02/11/nyregion/salman-rushdie-testimony-assault-trial.html
+
 **Maria Teresa Horta, the Last of Portugal’s ‘Three Marias,’ Dies at 87**\
 `The book on which she collaborated with two fellow feminists drew global attention to the repression of women under their country’s dictatorship.`\
 https://nytimes.com/2025/02/11/world/europe/maria-teresa-horta-dead.html
