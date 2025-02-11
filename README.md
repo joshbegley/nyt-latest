@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potentia
 `The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
 https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
 
-**Brandon Ingram, Raptors agree to 3-year, $120 million extension: Sources**\
+**Brandon Ingram, Raptors agree to 3-year, $120 million extension: Source**\
 `The Raptors acquired Ingram, who hasn't played since Dec. 7 due to a sprained ankle, in a deal with the Pelicans last week.`\
 https://nytimes.com/athletic/6129708/2025/02/11/brandon-ingram-contract-extension-raptors/
 

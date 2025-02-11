@@ -1,3 +1,19 @@
+**Red Sox spring training notes: Alex Cora 'won't be surprised' if team adds another bat**\
+`The Red Sox began spring training still looking to add to their offense, but a move could be on the horizon.`\
+https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
+
+**Twins to sign Ty France to a 1-year-deal: Source**\
+`The Twins agreed to sign free agent Ty France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
+https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
+
+**Brandon Ingram, Raptors agree to 3-year, $120 million extension: Sources**\
+`The Raptors acquired Ingram, who hasn't played since Dec. 7 due to a sprained ankle, in a deal with the Pelicans last week.`\
+https://nytimes.com/athletic/6129708/2025/02/11/brandon-ingram-contract-extension-raptors/
+
+**Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
+`The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
+https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
+
 **Share Your Experiences at Los Alamos National Laboratory**\
 `The New York Times would like to hear from you about workplace protocols and safety measures at LANL.`\
 https://nytimes.com/2025/02/11/us/share-your-experiences-at-los-alamos-national-laboratory.html
