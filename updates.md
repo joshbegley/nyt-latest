@@ -1,3 +1,11 @@
+**How the January transfer market affected betting odds for EPL, European trophies**\
+`The transfer window is closed and most of the favourites across various competition remain the same. Who is in position to win trophies?`\
+https://nytimes.com/athletic/6129298/2025/02/11/transfer-market-premier-league-champions-europa/
+
+**Russia Releases U.S. Prisoner After Talks With Trump Envoy**\
+`The Kremlin freed Marc Fogel, a teacher held for more than three years on drug charges, in a deal negotiated by Steve Witkoff, President Trump’s Middle East envoy.`\
+https://nytimes.com/2025/02/11/us/politics/russia-releases-us-prisoner-after-talks-with-trump-envoy.html
+
 **What International Law Says About Trump’s Proposal to Remove Palestinians From Gaza**\
 `Taking over the enclave, forcing Palestinians to leave and preventing them from returning would be clear violations of international law, experts say.`\
 https://nytimes.com/2025/02/11/world/middleeast/international-law-trump-gaza.html

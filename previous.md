@@ -1,3 +1,11 @@
+**How the January transfer market affected betting odds for EPL, European trophies**\
+`The transfer window is closed and most of the favourites across various competition remain the same. Who is in position to win trophies?`\
+https://nytimes.com/athletic/6129298/2025/02/11/transfer-market-premier-league-champions-europa/
+
+**Russia Releases U.S. Prisoner After Talks With Trump Envoy**\
+`The Kremlin freed Marc Fogel, a teacher held for more than three years on drug charges, in a deal negotiated by Steve Witkoff, President Trump’s Middle East envoy.`\
+https://nytimes.com/2025/02/11/us/politics/russia-releases-us-prisoner-after-talks-with-trump-envoy.html
+
 **What International Law Says About Trump’s Proposal to Remove Palestinians From Gaza**\
 `Taking over the enclave, forcing Palestinians to leave and preventing them from returning would be clear violations of international law, experts say.`\
 https://nytimes.com/2025/02/11/world/middleeast/international-law-trump-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128266/2025/02/11/manchester-united-jobs-ratcliffe
 **UEFA talks with Relevent could increase likelihood of Champions League games in U.S.**\
 `Talks cement a relationship between UEFA, Europe’s leading clubs and an agency that wants to stage European club football in the U.S.`\
 https://nytimes.com/athletic/6129285/2025/02/11/champions-league-media-rights-relevant/
-
-**The View Rotates Above Manhattan Once Again**\
-`The restaurant on the 47th floor of the Marriott Marquis in Times Square is reopening under the management of Danny Meyer’s Union Square Hospitality Group.`\
-https://nytimes.com/2025/02/11/dining/nyc-restaurant-news.html
-
-**Ukrainian Lawmakers Approve Contentious Purchase of Nuclear Reactors**\
-`Opponents of the project say it is costly, will take far too long to strengthen Ukraine’s battered power supply and opens the door to corruption.`\
-https://nytimes.com/2025/02/11/world/europe/ukraine-nuclear-reactor-purchase.html
 
