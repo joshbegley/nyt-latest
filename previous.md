@@ -1,3 +1,11 @@
+**More Than 150 World War II Bombs Found Under Playground in England**\
+`The discovery came as a construction project was underway at the playground in Northumberland.`\
+https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
+
+**Mace Takes to House Floor With Charges of Rape and Sexual Predation**\
+`The South Carolina Republican used her floor privileges to lodge shocking accusations against her former fiancé and three other men.`\
+https://nytimes.com/2025/02/10/us/politics/nancy-mace-rape-accusation.html
+
 **Corrections: Feb. 11, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
 https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/10/us/trump-news/two-nonprofits-sue-over-trumps
 **If Adams Is Cleared, Other Inquiries in His Orbit Would Face Uncertainty**\
 `The dropping of federal corruption charges against Mayor Eric Adams could affect criminal investigations involving his associates in different ways, or not at all.`\
 https://nytimes.com/2025/02/10/nyregion/nyc-city-hall-investigations-future.html
-
-**Twins streaming broadcasts will feature new camera angles: 'Literally closer to the game'**\
-`Beyond increased availability, the biggest changes to the team's TV experience will involve the game production itself.`\
-https://nytimes.com/athletic/6127839/2025/02/10/minnesota-twins-streaming-broadcasts/
-
-**Eric Trump Said Adams Treated the Trump Family Company Well**\
-`Eric Trump, in a radio interview last week, said Mayor Eric Adams had always been supportive of everything the Trump Organization did.`\
-https://nytimes.com/2025/02/10/nyregion/eric-trump-eric-adams.html
 

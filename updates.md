@@ -1,3 +1,11 @@
+**More Than 150 World War II Bombs Found Under Playground in England**\
+`The discovery came as a construction project was underway at the playground in Northumberland.`\
+https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
+
+**Mace Takes to House Floor With Charges of Rape and Sexual Predation**\
+`The South Carolina Republican used her floor privileges to lodge shocking accusations against her former fiancé and three other men.`\
+https://nytimes.com/2025/02/10/us/politics/nancy-mace-rape-accusation.html
+
 **Corrections: Feb. 11, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
 https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
