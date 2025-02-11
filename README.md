@@ -1,3 +1,7 @@
+**Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
+`While there has not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
+https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
+
 **Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
 `Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6127777/2025/02/11/eagles-defense-chiefs-super-bowl
 **Wall Street Talked Endlessly About Diversity. Trump Ended That.**\
 `Goldman Sachs will drop a demand that corporate boards of directors include women and members of minority groups as financial firms backpedal from D.E.I. promises.`\
 https://nytimes.com/2025/02/11/business/trump-dei-wall-street.html
-
-**Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
-`Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
-https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
 

@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-c
 `\
 https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
 
+**Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
+`Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
+`\
+https://nytimes.com/athletic/6128452/2025/02/11/chelsea-podcast-straight-outta-cobham-maresca-fa-cup/
+
 **New Zealand Rugby launches legal action against Man United owner INEOS**\
 `The petrochemical company, which owns a minority stake in Manchester United, allegedly cut short a long-term sponsorship deal.`\
 https://nytimes.com/athletic/6128291/2025/02/11/new-zealand-rugby-ineos-legal/
