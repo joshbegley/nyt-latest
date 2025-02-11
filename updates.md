@@ -1,3 +1,7 @@
+**Bring to Bear**\
+`Paul Coulter conducts an experiment.`\
+https://nytimes.com/2025/02/10/crosswords/daily-puzzle-2025-02-11.html
+
 **Why did Bucks trade Khris Middleton? 'We want to win this year'**\
 `GM Jon Horst explained why his deadline moves, especially parting with a franchise staple, give Milwaukee a better chance to win a title.`\
 https://nytimes.com/athletic/6127953/2025/02/10/why-did-bucks-trade-khris-middleton-we-want-to-win-this-year/
