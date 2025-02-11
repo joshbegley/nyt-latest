@@ -1,3 +1,11 @@
+**Padres farm system heat check: What’s the immediate and future outlook?**\
+`Here’s an overview of where the San Diego system stands and how it might impact the big-league club.`\
+https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-outlook/
+
+**49ers 7-round mock draft: Why rebuilding the trenches is likely and necessary**\
+`Trent Williams turns 37 in July and the 49ers options are thin beyond him. Ohio State's Josh Simmons offers a future at offensive tackle.`\
+https://nytimes.com/athletic/6127208/2025/02/11/49ers-2025-mock-nfl-draft-josh-simmons/
+
 **Weekly Student News Quiz: Super Bowl, Trump's Actions, Eggs**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/11/learning/11StudentNewsQuiz.html
