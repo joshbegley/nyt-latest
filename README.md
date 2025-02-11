@@ -1,3 +1,7 @@
+**Court Pause on Trump Cuts to Medical Research Funds Is Expanded Nationwide**\
+`The federal order temporarily halts the Trump administration’s plans to slash $4 billion in overhead costs for research at universities and medical centers into diseases like cancer.`\
+https://nytimes.com/2025/02/11/health/nih-research-funding-lawsuit-injunction.html
+
 **Nations Denounce Trump Tariff on Metals and Warn of Retaliation**\
 `Canada, Mexico and European countries criticized President Trump’s levies on steel and aluminum with fears that they could ignite a global trade war.`\
 https://nytimes.com/2025/02/11/world/canada/trump-metals-tariff-canada-mexico.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/02/11/theater/doomers-review-ai-gasda.html
 `The billionaire, who is serving President Trump as an unpaid “special government employee,” will file a confidential report on his financial interests, according to a White House official.`\
 https://nytimes.com/2025/02/11/us/politics/elon-musk-finances.html
 
-**Real Madrid player Raul Asencio has appeal dismissed in sex tape investigation involving a minor**\
+**Real Madrid player Raul Asencio has his appeal dismissed in sex-tape investigation involving a minor**\
 `The 21-year-old defender remains under investigation for allegedly sharing a sex tape involving two women, one of whom was a minor`\
 https://nytimes.com/athletic/6128520/2025/02/11/raul-asencio-real-madrid-appeal-sex-tape-investigation/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009983399/vance-america-first-ai-par
 **Hayes names USWNT squad for SheBelieves Cup**\
 `Chelsea's Cat Macario has returned, though, having not played for the U.S. since June 2024.`\
 https://nytimes.com/athletic/6128769/2025/02/11/uswnt-squad-shebelieves-cup/
-
-**Five Easy Pastas That Are Very Romantic**\
-`You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
-https://nytimes.com/2025/02/11/dining/romantic-pasta-recipes.html
 
