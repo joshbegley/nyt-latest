@@ -1,3 +1,7 @@
+**Kendrick Lamar’s Halftime Show**\
+`Were you watching on Sunday? Are you a fan? What did you think?`\
+https://nytimes.com/2025/02/11/learning/kendrick-lamars-halftime-show.html
+
 **Op-ed: Lindsey Vonn on the comeback she 'never imagined' and her Olympic hopes**\
 `Lindsey Vonn writes about the second act of her career and her goals and hopes for the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
 https://nytimes.com/athletic/6126739/2025/02/11/lindsey-vonn-olympic-return-italy-2026/
