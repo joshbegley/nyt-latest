@@ -1,3 +1,7 @@
+**College baseball coaches forum: Biggest recruiting finds, ones who got away and more**\
+`What stat matters most to college coaches when evaluating hitters and pitchers? Are conference tournaments good for the game?`\
+https://nytimes.com/athletic/6119095/2025/02/11/college-baseball-2025-coaches-recruiting/
+
 **Fitting Brandon Ingram into Raptors' offence will be Darko Rajaković's defining task**\
 `The Raptors coach will have to organize an attack that features three wings who thrive in the paint.`\
 https://nytimes.com/athletic/6127018/2025/02/11/brandon-ingram-raptors-offence-darko-rajakovic/

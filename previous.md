@@ -1,3 +1,7 @@
+**College baseball coaches forum: Biggest recruiting finds, ones who got away and more**\
+`What stat matters most to college coaches when evaluating hitters and pitchers? Are conference tournaments good for the game?`\
+https://nytimes.com/athletic/6119095/2025/02/11/college-baseball-2025-coaches-recruiting/
+
 **Fitting Brandon Ingram into Raptors' offence will be Darko Rajaković's defining task**\
 `The Raptors coach will have to organize an attack that features three wings who thrive in the paint.`\
 https://nytimes.com/athletic/6127018/2025/02/11/brandon-ingram-raptors-offence-darko-rajakovic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/books/review/is-bob-dylan-still-a-complete-unknow
 **Fed Chair Faces Lawmakers at a Critical Juncture**\
 `Jerome H. Powell is set to testify as inflation risks are resurfacing, regulatory changes are in flux and the Federal Reserve’s policy independence is in the spotlight.`\
 https://nytimes.com/2025/02/11/business/jerome-powell-fed-congress.html
-
-**America Is Full of People Trump Doesn’t Like**\
-`If, according to the president, so many people in the United States are the wrong kind, who makes up the right kind?`\
-https://nytimes.com/2025/02/11/opinion/trump-real-americans-diversity.html
 
