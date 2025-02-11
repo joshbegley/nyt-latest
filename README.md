@@ -1,3 +1,7 @@
+**Marc Lore, Alex Rodriguez win Timberwolves, Lynx arbitration case**\
+`A three-person panel ruled in favor of Lore and Rodriguez, setting them up to take full control of Minnesota's NBA and WNBA teams.`\
+https://nytimes.com/athletic/6126622/2025/02/10/minnesota-timberwolves-ownership-dispute-nba-lore-rodriguez/
+
 **Why Musk and Vance Went to Bat for a Self-Described Racist**\
 `Trump’s acolytes place qualified civil servants on leave and reinstate a far-right troll.`\
 https://nytimes.com/2025/02/10/opinion/musk-vance-racist-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/10/nyregion/eric-adams-charges/heres-the-latest
 **Trump Says He Could Cut Aid to Jordan and Egypt Over Gaza Development Plan**\
 `The president turned up the pressure on the two nations to agree to his plan for them to house the Palestinian population of Gaza and said the Palestinians would not have the right to return to the territory.`\
 https://nytimes.com/2025/02/10/us/politics/trump-jordan-egypt-gaza-development.html
-
-**Mavs' Anthony Davis to miss multiple weeks; Kyrie Irving takes All-Star spot**\
-`He won’t play Monday against the Sacramento Kings, and is expected to miss multiple weeks`\
-https://nytimes.com/athletic/6125157/2025/02/10/anthony-davis-injury-out-dallas-mavericks/
 
