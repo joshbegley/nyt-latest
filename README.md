@@ -1,3 +1,7 @@
+**Twins spring training guide: 31 thoughts on all 31 pitchers in major-league camp**\
+`Stars like Pablo López and Jhoan Duran are joined by top prospects and Triple-A journeymen fighting for their major-league futures.`\
+https://nytimes.com/athletic/6103280/2025/02/11/twins-spring-training-2025-pitchers/
+
 **Twins spring preview: Key dates, position battles and 3 questions to answer**\
 `Spring training is here, finally providing the Twins with an opportunity to eliminate the bad taste of last season's disappointing ending. `\
 https://nytimes.com/athletic/6127227/2025/02/11/twins-spring-training-preview-2025/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/11/podcasts/the-daily/usaid-trump-america.html
 **What's different about Red Wings' playoff chase this year: Mailbag**\
 `Red Wings beat writer Max Bultman answers subscriber questions on the Red Wings' season, their prospects and more.`\
 https://nytimes.com/athletic/6120136/2025/02/11/red-wings-playoff-standings-mailbag/
-
-**Trump’s Ultimatum to Hamas, and Showdown Looms Between White House and the Courts**\
-`Plus, a surprise blockbuster.`\
-https://nytimes.com/2025/02/11/podcasts/the-headlines/trump-hamas-israel.html
 
