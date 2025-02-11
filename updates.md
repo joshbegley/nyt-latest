@@ -1,3 +1,15 @@
+**Consumer bureau heads of supervision and enforcement resign.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/consumer-bureau-heads-of-supervision-and-enforcement-resign
+
+**Five Easy Pastas That Are Very Romantic**\
+`You don’t have to “Lady and the Tramp” them, but I won’t stop you.`\
+https://nytimes.com/2025/02/11/dining/romantic-pasta-recipes.html
+
+**Pardoned by Trump, Jan. 6 Defendants Assail Those Who Worked on Their Cases**\
+`While there have not yet been physical attacks, experts have raised concerns that the frequency of the incidents could increase the risk of eventual violence against agents and prosecutors.`\
+https://nytimes.com/2025/02/11/us/politics/jan-6-rioters-trump-fbi.html
+
 **Listen: Did Enzo Maresca underestimate Chelsea's relationship with the FA Cup?**\
 `Straight Outta Cobham discuss Enzo Maresca’s post-match comments after Chelsea's FA Cup defeat to Brighton
 `\
