@@ -1,3 +1,7 @@
+**A judge blocked Trump’s firing of a government watchdog.**\
+`Hampton Dellinger, the head of the Office of Special Counsel, had sued the Trump administration, arguing that the president went beyond his legal authority.`\
+https://nytimes.com/live/2025/02/10/us/trump-news/a-judge-blocked-trumps-firing-of-a-government-watchdog
+
 **Bring to Bear**\
 `Paul Coulter conducts an experiment.`\
 https://nytimes.com/2025/02/10/crosswords/daily-puzzle-2025-02-11.html
