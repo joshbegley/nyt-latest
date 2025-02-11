@@ -1,3 +1,11 @@
+**The View Rotates Above Manhattan Once Again**\
+`The restaurant on the 47th floor of the Marriott Marquis in Times Square is reopening under the management of Danny Meyer’s Union Square Hospitality Group.`\
+https://nytimes.com/2025/02/11/dining/nyc-restaurant-news.html
+
+**Ukrainian Lawmakers Approve Contentious Purchase of Nuclear Reactors**\
+`Opponents of the project say it is costly, will take far too long to strengthen Ukraine’s battered power supply and opens the door to corruption.`\
+https://nytimes.com/2025/02/11/world/europe/ukraine-nuclear-reactor-purchase.html
+
 **S.E.C. Moves to Kill Climate Disclosure Rule**\
 `The acting chair, Mark Uyeda, is directing the Securities and Exchange Commission to pause its legal defense of a rule requiring companies to make climate disclosures.`\
 https://nytimes.com/2025/02/11/us/politics/sec-climate-disclosure-rule.html
