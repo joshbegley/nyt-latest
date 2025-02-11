@@ -1,3 +1,7 @@
+**John Oliver Interrupts Jon Stewart’s Monologue on ‘The Daily Show’**\
+`The British host of “Last Week Tonight” said he wanted to be “the first to welcome America to its monarchy era.”`\
+https://nytimes.com/2025/02/11/arts/television/john-oliver-jon-stewart-daily-show.html
+
 **Ben Chilwell's Crystal Palace debut shows how he can help on and off the pitch**\
 `The fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed his new manager`\
 https://nytimes.com/athletic/6122145/2025/02/11/ben-chilwell-crystal-palace-doncaster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126766/2025/02/11/tottenham-fixtures-injuries-post
 **Mauricio Pochettino vs Enzo Maresca: How Chelsea's most recent head coaches compare**\
 `Only twice this century have Chelsea fared worse in domestic cup competitions than they have this season, leaving little margin for error`\
 https://nytimes.com/athletic/6126247/2025/02/11/chelsea-maresca-pochettino-fa-carabao-cups/
-
-**Ruben Dias: The making of Manchester City's 'leader'**\
-`The Portuguese defender has cajoled team-mates since his early days at Benfica and his image is as finely curated as his competitive spirit`\
-https://nytimes.com/athletic/5900462/2025/02/11/ruben-dias-profile-manchester-city-leader/
 
