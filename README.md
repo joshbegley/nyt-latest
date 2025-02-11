@@ -1,3 +1,11 @@
+**The View Rotates Above Manhattan Once Again**\
+`The restaurant on the 47th floor of the Marriott Marquis in Times Square is reopening under the management of Danny Meyer’s Union Square Hospitality Group.`\
+https://nytimes.com/2025/02/11/dining/nyc-restaurant-news.html
+
+**Ukrainian Lawmakers Approve Contentious Purchase of Nuclear Reactors**\
+`Opponents of the project say it is costly, will take far too long to strengthen Ukraine’s battered power supply and opens the door to corruption.`\
+https://nytimes.com/2025/02/11/world/europe/ukraine-nuclear-reactor-purchase.html
+
 **When Trump and Musk Attack the Press**\
 `Readers discuss the administration and the media. Also: Acts of resistance; Joan Didion’s diary; cuts in arts funding; competition in tech.`\
 https://nytimes.com/2025/02/11/opinion/trump-musk-press-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6070299/2025/02/11/kellen-moore-saints-head-coach-e
 **What I think and what I know about the Sabres at the 4 Nations break**\
 `The next few weeks and months will be a critical time for the Sabres as they decide which direction to take this roster.`\
 https://nytimes.com/athletic/6128801/2025/02/11/buffalo-sabres-4-nations-face-off/
-
-**How Finland's 'sandpaper hockey' could defy the odds at 4 Nations Face-Off**\
-`Finland is a perennial underdog in international hockey, but it doesn't care.`\
-https://nytimes.com/athletic/6128227/2025/02/11/4-nations-face-off-finland-odds/
-
-**Skilled Legal Workers Find They, Too, Are Targets of Trump Citizenship Order**\
-`The executive order would ban citizenship for children born in the United States to foreign workers on visas that often lead to permanent residency.`\
-https://nytimes.com/2025/02/11/us/trump-birthright-citizenship-legal-immigrant-workers.html
 
