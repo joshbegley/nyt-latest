@@ -1,3 +1,11 @@
+**Judge to Consider Restricting Musk Team’s Access to Education Dept. Data**\
+`Elon Musk’s cost-cutting team announced on Monday that it had “terminated” 89 of the department’s contracts and 29 grants associated with diversity and equity training.`\
+https://nytimes.com/2025/02/11/us/politics/musk-doge-education-data.html
+
+**BP to ‘Reset’ Strategy After Pressure From Investors, C.E.O. Says**\
+`The energy giant was vague on details, but analysts say the changes will likely include less spending on renewable sources and a bigger investment in oil and natural gas production.`\
+https://nytimes.com/2025/02/11/business/bp-earnings-4q-2024.html
+
 **NBA Power Rankings: How good are the Lakers? And a roster reset for all 30 teams**\
 `The wildest trade deadline ever has passed, so it's time to reassess — though everyone is still chasing the Thunder and Cavaliers.`\
 https://nytimes.com/athletic/6128429/2025/02/11/nba-power-rankings-lakers-mavericks-thunder-celtics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6126685/2025/02/11/sam-kerr-verdict-trial/
 **Deb Haaland, Ex-Interior Secretary, Is Running for Governor of New Mexico**\
 `Ms. Haaland, one of the first former cabinet officials in the Biden administration to announce a run for office, would be the first Native American woman to serve as governor of a state.`\
 https://nytimes.com/2025/02/11/us/politics/deb-haaland-new-mexico-governor-campaign.html
-
-**Mikaela Shiffrin wins eighth world title, a team combined gold with Breezy Johnson**\
-`Mikaela Shiffrin and Breezy Johnson took gold in the new event after the top leaders faltered in the slalom.`\
-https://nytimes.com/athletic/6128527/2025/02/11/mikaela-shiffrin-breezy-johnson-team-combined-gold-world-championships/
-
-**David Lynch Is an Unexpected Fashion Week Influencer**\
-`At Coach and Khaite, the director, who died last month, shaped the vibe.`\
-https://nytimes.com/2025/02/11/style/coach-khaite-david-lynch-fashion-week.html
 
