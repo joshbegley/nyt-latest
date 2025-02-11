@@ -1,4 +1,4 @@
-**Clayton Kershaw officially returns for 18th season with Dodgers: Sources (PRE-WRITE)**\
+**Clayton Kershaw officially returns for 18th season with Dodgers: Sources**\
 `Kershaw is just 32 strikeouts away from being the 20th pitcher in baseball history to record 3,000.`\
 https://nytimes.com/athletic/6124694/2025/02/11/dodgers-clayton-kershaw-returns-2/
 
