@@ -1,3 +1,7 @@
+**Man City vs Real Madrid: Guardiola's troops throw Los Blancos a life line**\
+`Julia Ranney, Sam Tighe and Brett Koremenos dissect Tuesday's clash between Manchester City and Real Madrid through a betting lens.`\
+https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-betting-review/
+
 **Tagging along as a champion dog got ready.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready

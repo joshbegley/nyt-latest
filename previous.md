@@ -1,3 +1,7 @@
+**Man City vs Real Madrid: Guardiola's troops throw Los Blancos a life line**\
+`Julia Ranney, Sam Tighe and Brett Koremenos dissect Tuesday's clash between Manchester City and Real Madrid through a betting lens.`\
+https://nytimes.com/athletic/6129949/2025/02/11/manchester-city-vs-real-madrid-betting-review/
+
 **Tagging along as a champion dog got ready.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/tagging-along-as-a-champion-dog-got-ready
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128782/2025/02/11/2025-26-nfl-mvp-odds-picks/
 **White House Bars Reporter From Event Over A.P.’s Use of ‘Gulf of Mexico’**\
 `The Associated Press has said it would refer to the Gulf of Mexico “by its original name while acknowledging” President Trump’s choice to rename the body of water.`\
 https://nytimes.com/2025/02/11/us/politics/trump-ap-gulf-mexico-america.html
-
-**Lakers sign Alex Len, waive Christian Wood in wake of Mark Williams fallout**\
-`Len joins Jaxson Hayes as the only two centers on the Lakers’ 15-man roster. The Lakers have leaned into center-less lineups recently.`\
-https://nytimes.com/athletic/6130147/2025/02/11/lakers-alex-len-signing-christian-wood/
 
