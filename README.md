@@ -1,3 +1,11 @@
+**Under Trump, Billionaire Climate Champions Have Gone Quiet**\
+`Since the inauguration, billionaires who funded climate action over the last decade have avoided criticizing Trump’s climate policies.`\
+https://nytimes.com/2025/02/11/climate/trump-climate-change-billionaires.html
+
+**Reds adding veteran reliever Scott Barlow on 1-year deal**\
+`Barlow, 32, was 3-3 with a 4.25 ERA and two saves in 63 appearances with the Cleveland Guardians last season.`\
+https://nytimes.com/athletic/6129263/2025/02/11/reds-deal-reliever-scott-barlow/
+
 **Religious Groups Sue Homeland Security Over Immigration Arrests**\
 `After taking office, President Trump rescinded a policy that instructed immigration agents to steer clear of sensitive locations like churches, schools and hospitals.`\
 https://nytimes.com/2025/02/11/us/politics/trump-immigration-lawsuit-religious-groups.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128715/2025/02/11/leagues-cup-schedule-mls-liga-mx
 **How to Watch the 2025 Westminster Dog Show**\
 `The event returns to Madison Square Garden with seven group winners facing off in prime time for a chance at best in show.`\
 https://nytimes.com/2025/02/11/style/westminster-dog-show-how-to-watch.html
-
-**Court Pause on Trump Cuts to Medical Research Funds Is Expanded Nationwide**\
-`The federal order temporarily halts the Trump administration’s plans to slash $4 billion in overhead costs for research at universities and medical centers into diseases like cancer.`\
-https://nytimes.com/2025/02/11/health/nih-research-funding-lawsuit-injunction.html
-
-**Nations Denounce Trump Tariff on Metals and Warn of Retaliation**\
-`Canada, Mexico and European countries criticized President Trump’s levies on steel and aluminum with fears that they could ignite a global trade war.`\
-https://nytimes.com/2025/02/11/world/canada/trump-metals-tariff-canada-mexico.html
 
