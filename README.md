@@ -1,3 +1,15 @@
+**Google Maps Now Shows Gulf of America for U.S. Users**\
+`People located in Mexico will still see the name Gulf of Mexico, while international users will see both names, the company said. The change follows an executive order from President Trump.`\
+https://nytimes.com/2025/02/10/us/google-maps-gulf-of-america.html
+
+**Who Needs Hollywood? Chinese Animated Film Shatters Box Office Records.**\
+`The runaway success of “Ne Zha 2” is another sign that Chinese audiences are choosing domestic movies over Hollywood blockbusters.`\
+https://nytimes.com/2025/02/10/business/china-box-office-ne-zha-2.html
+
+**Hegseth Renames Fort Liberty to Fort Bragg**\
+`The army base was earlier named after Braxton Bragg, a Confederate general. The Pentagon said the name will now honor Roland L. Bragg, a soldier who was decorated for his service during World War II.`\
+https://nytimes.com/2025/02/10/us/politics/hegseth-fort-liberty-bragg.html
+
 **LAFC co-owner Ruben Gnanalingam apologizes for anti-Israel posts**\
 `Major League Soccer and Los Angeles FC released a joint statement condemning the posts.`\
 https://nytimes.com/athletic/6127795/2025/02/10/mls-lafc-anti-israel-posts-ruben-gnanalingam/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/10/crosswords/daily-puzzle-2025-02-11.html
 **Why did Bucks trade Khris Middleton? 'We want to win this year'**\
 `GM Jon Horst explained why his deadline moves, especially parting with a franchise staple, give Milwaukee a better chance to win a title.`\
 https://nytimes.com/athletic/6127953/2025/02/10/why-did-bucks-trade-khris-middleton-we-want-to-win-this-year/
-
-**More Than 150 World War II Bombs Found Under Playground in England**\
-`The devices found during construction work were practice bombs, which can be harmful. Officials said there could be more.`\
-https://nytimes.com/2025/02/10/world/europe/wwii-bombs-playground-england.html
-
-**Mace Takes to House Floor With Charges of Rape and Sexual Predation**\
-`The South Carolina Republican used her floor privileges to lodge shocking accusations against her former fiancé and three other men.`\
-https://nytimes.com/2025/02/10/us/politics/nancy-mace-rape-accusation.html
-
-**Corrections: Feb. 11, 2025**\
-`Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
-https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
 
