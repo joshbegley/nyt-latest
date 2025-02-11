@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6129138/2025/02/11/dirk-nowitzki-mark-cuban-lakers-
 `The United States and Israel have long condemned the payment of stipends to families of Palestinian prisoners involved in attacks on Israel.`\
 https://nytimes.com/2025/02/11/world/middleeast/abbas-prisoner-payments-trump.html
 
-**A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s orders.**\
+**A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s edict.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
 

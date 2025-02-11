@@ -1,3 +1,7 @@
+**A federal judge orders the C.D.C. to temporarily restore pages it removed to comply with Trump’s edict.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/02/11/us/president-trump-news/a-federal-judge-orders-the-cdc-to-temporarily-restore-pages-it-removed-to-comply-with-trumps-orders
+
 **Italian Police Arrest 181 in ‘Important Blow’ to Cosa Nostra**\
 `Scores of people suspected of being affiliated with the resurgent mob were arrested Tuesday during overnight raids in Palermo and the surrounding area.`\
 https://nytimes.com/2025/02/11/world/europe/italy-cosa-nostra-arrests.html
