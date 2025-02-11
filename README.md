@@ -1,3 +1,23 @@
+**WTA bans Stefano Vukov for TK after investigating Elena Rybakina's former coach**\
+`Vukov had been provisionally suspended from coaching while under investigation; Rybakina maintains that he “never mistreated” her.`\
+https://nytimes.com/athletic/6035283/2025/02/11/stefano-vukov-wta-ban-report-elena-rybakina-coach/
+
+**Yankees spring notes: Key reliever Jake Cousins injured; Marcus Stroman's ‘awkward’ situation**\
+`Plus notes on DJ LeMahieu's health status and the possibility of an Aaron Boone extension.`\
+https://nytimes.com/athletic/6129741/2025/02/11/yankees-jake-cousins-injury-marcus-stroman/
+
+**Gaza Cease-Fire Imperiled as Netanyahu Threatens to Resume ‘Intense Fighting’**\
+`The Israeli leader’s warning came after Hamas said it would indefinitely postpone the next round of hostage releases.`\
+https://nytimes.com/2025/02/11/world/middleeast/israel-hamas-ceasefire-hostages.html
+
+**'He wants to be relevant still': Former Panthers respond to Cam Newton's 'losers' comment**\
+`Newton's comments about his former teammates didn't sit well with some Carolina players.`\
+https://nytimes.com/athletic/6129559/2025/02/11/cam-newton-panthers-losers-comment-steve-smith/
+
+**An Emboldened Trump Seeks to Bend New York City to His Will**\
+`The Trump administration’s order to drop the charges against Mayor Eric Adams was the most pronounced example of the president using his power to determine the city’s future.`\
+https://nytimes.com/2025/02/11/nyregion/trump-nyc.html
+
 **‘Serial Swatter’ Who Made Nearly 400 Threatening Calls Gets 4 Years in Prison**\
 `Alan W. Filion, 18, of Lancaster, Calif., pleaded guilty to making false threats of mass violence, which prosecutors said prompted large police deployments and, in some cases, unnecessary detentions.`\
 https://nytimes.com/2025/02/11/us/california-swatting-calls-sentence-teen.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6129722/2025/02/11/aaron-rodgers-new-york-jets-pat-
 **Johnson ‘Wholeheartedly’ Agrees With Trump’s Spending Cuts, Undermining Congress**\
 `The comments by the speaker were his latest move to diminish the role of the legislative branch, and in keeping with his move to define himself as a junior partner to President Trump.`\
 https://nytimes.com/2025/02/11/us/politics/johnson-congress-power-trump.html
-
-**What to Know About the Anti-Bribery Law Trump Is Targeting**\
-`Federal prosecutors and securities regulators have gone after large companies for violations of the Foreign Corrupt Practices Act, which prohibits them from bribing foreign officials.`\
-https://nytimes.com/2025/02/11/business/trump-fcpa-explained.html
-
-**Red Sox spring training notes: Alex Cora 'won't be surprised' if team adds another bat**\
-`The Red Sox began spring training still looking to add to their offense, but a move could be on the horizon.`\
-https://nytimes.com/athletic/6129674/2025/02/11/red-sox-spring-training-potential-additions/
-
-**Twins to sign Ty France to 1-year-deal: Source**\
-`The Twins agreed to sign France to a 1-year deal on Tuesday, giving themselves an experienced option at first base.`\
-https://nytimes.com/athletic/6129753/2025/02/11/ty-france-contract-twins-mlb-free-agency/
-
-**Brandon Ingram, Raptors agree to 3-year, $120 million extension: Source**\
-`The Raptors acquired Ingram, who hasn't played since Dec. 7 due to a sprained ankle, in a deal with the Pelicans last week.`\
-https://nytimes.com/athletic/6129708/2025/02/11/brandon-ingram-contract-extension-raptors/
-
-**Foreign Aid Contractors Sue to Overturn Trump Administration’s U.S.A.I.D Order**\
-`The filing from a group of nonprofits, contractors and consultants is the latest lawsuit against the Trump administration’s efforts to freeze and reduce federal spending.`\
-https://nytimes.com/2025/02/11/us/politics/trump-usaid-lawsuit-foreign-aid.html
 
