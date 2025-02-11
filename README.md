@@ -1,5 +1,5 @@
-**Oliver Glasner wants Ben Chilwell to help Crystal Palace on and off the pitch**\
-`The on-loan fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed Glasner`\
+**Ben Chilwell's Crystal Palace debut shows how he can help on and off the pitch**\
+`The fullback made his Palace debut in an FA Cup win at Doncaster, but it was what he did before kick-off that most impressed his new manager`\
 https://nytimes.com/athletic/6122145/2025/02/11/ben-chilwell-crystal-palace-doncaster/
 
 **Word of the Day: juggernaut**\
