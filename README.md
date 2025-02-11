@@ -1,4 +1,4 @@
-**Musk makes sweeping claims about corruption in the federal bureaucracy, without evidence.**\
+**Musk makes sweeping claims about federal corruption, without evidence.**\
 `The billionaire, whose federal cost-cutting team has been operating in secrecy, asserted that he had uncovered waste and fraud across the bureaucracy, without providing evidence.`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-musk-oval-office
 
