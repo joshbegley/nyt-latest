@@ -1,3 +1,7 @@
+**The case for and against each Eastern Conference wild-card playoff hopeful**\
+`The top three teams in the Atlantic and Metro look fairly set. The six teams clamoring for two spots behind them are far more volatile.`\
+https://nytimes.com/athletic/6127756/2025/02/11/nhl-playoffs-eastern-conference-wild-card-probabilities/
+
 **Covid Learning Losses**\
 `We explain the ways students haven’t recovered.`\
 https://nytimes.com/2025/02/11/briefing/covid-learning-losses.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6127900/2025/02/11/chicago-cubs-farm-system-heat-wa
 `The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
 `\
 https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
-
-**Karlsson back to Ottawa? Dylan Cozens? Ryan Donato? Who says no?**\
-`We've fielded the best and most interesting trade proposals from our Senators readers one month ahead of the NHL trade deadline.`\
-https://nytimes.com/athletic/6114391/2025/02/11/senators-trade-proposals-cozens-karlsson/
 

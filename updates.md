@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada
 `\
 https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
 
+**4 Nations Face-Off predictions: Picks for champ, USA vs. CAN, MVP and more**\
+`The Athletic surveyed its NHL staff for predictions on the matchups, leading scorers and more heading into the best-on-best tournament.
+`\
+https://nytimes.com/athletic/6122388/2025/02/11/four-nations-face-off-usa-canada-predictions/
+
 **Covid Learning Losses**\
 `We explain the ways students haven’t recovered.`\
 https://nytimes.com/2025/02/11/briefing/covid-learning-losses.html
