@@ -1,3 +1,7 @@
+**LAFC co-owner Ruben Gnanalingam apologizes for anti-Israel posts**\
+`Major League Soccer and Los Angeles FC released a joint statement condemning the posts.`\
+https://nytimes.com/athletic/6127795/2025/02/10/mls-lafc-anti-israel-posts-ruben-gnanalingam/
+
 **U.S. U-17 men's national team notches historic 22-0 win over Virgin Islands**\
 `The result is the largest margin of victory ever recorded by a U.S. team in a World Cup qualifier at any level, men’s or women’s.`\
 https://nytimes.com/athletic/6128049/2025/02/10/us-soccer-u17-chase-adams-virgin-islands/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/10/us/politics/nancy-mace-rape-accusation.html
 **Corrections: Feb. 11, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 11, 2025.`\
 https://nytimes.com/2025/02/10/pageoneplus/corrections-feb-11-2025.html
-
-**Dropping Charges Against Adams Wouldn’t Affect Case Against Close Ally**\
-`Ingrid Lewis-Martin, Mayor Eric Adams’s former top adviser, and her son, Glenn Martin II, are charged in state court with taking $100,000 in bribes.`\
-https://nytimes.com/2025/02/10/nyregion/ingrid-lewis-martin-investigation.html
 
