@@ -1,3 +1,7 @@
+**The Pulse: Three big storylines for the NFL offseason**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6127016/2025/02/11/nfl-offseason-garrett-cooper-flagg-the-pulse/
+
 **Ye Advertised Website Selling T-Shirts With Swastikas in Super Bowl Commercial**\
 `The commercial aired in some local markets several days after the rapper and designer called himself a Nazi in a series of social media posts.`\
 https://nytimes.com/2025/02/11/arts/music/kanye-west-yeezy-website-swastika-shirts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6110705/2025/02/11/padres-2025-spring-training-prev
 **Padres farm system heat check: What’s the immediate and future outlook?**\
 `Here’s an overview of where the San Diego system stands and how it might impact the big-league club.`\
 https://nytimes.com/athletic/6113550/2025/02/11/padres-farm-system-heat-check-outlook/
-
-**Weekly Student News Quiz: Super Bowl, Trump's Actions, Eggs**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/02/11/learning/11StudentNewsQuiz.html
 
