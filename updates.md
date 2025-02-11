@@ -1,3 +1,7 @@
+**Warriors go 2-0 in Jimmy Butler era: 'Every possession doesn’t feel as hard,' Curry says**\
+`Steph Curry credits Butler's arrival for his 2-game mini-breakout — 72 points in 68 minutes on 22-of-43 shooting, with 14 3-pointers.`\
+https://nytimes.com/athletic/6128121/2025/02/11/warriors-2-0-in-jimmy-butler-era/
+
 **Will Liverpool's strange fixture schedule in February and March be helpful - or disruptive?**\
 `Liverpool's season will not be defined by an FA Cup defeat by Plymouth, but their title challenge might well be shaped by what comes next`\
 https://nytimes.com/athletic/6127141/2025/02/11/liverpool-fixture-schedule-february-march/
