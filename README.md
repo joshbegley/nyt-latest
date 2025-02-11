@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6126207/2025/02/11/with-martinelli-and-saka-out-are
 `The Man City and Real Madrid managers appear similar, but a closer look tells us otherwise`\
 https://nytimes.com/athletic/6126125/2025/02/11/pep-guardiola-carlo-ancelotti-and-two-very-different-notions-of-what-a-manager-should-be/
 
-**Football and social media: What next for players and clubs in a changing landscape?**\
-`Twitter, now X, was once a priority platform for players who wanted to have a public voice, but it has a growing number of competitiors`\
-https://nytimes.com/athletic/6095450/2025/02/11/football-social-media-twitter-x-facebook-instagram/
+**Will Liverpool's strange fixture schedule in February and March be helpful - or disruptive?**\
+`Liverpool's season will not be defined by an FA Cup defeat by Plymouth, but their title challenge might well be shaped by what comes next`\
+https://nytimes.com/athletic/6127141/2025/02/11/liverpool-fixture-schedule-february-march/
 
