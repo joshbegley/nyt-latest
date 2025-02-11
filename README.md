@@ -1,3 +1,11 @@
+**Immigration Deal in Florida Ends DeSantis Feud With Fellow Republicans**\
+`The governor and legislators had jockeyed to prove that their respective plans for immigration enforcement aligned with President Trump’s.`\
+https://nytimes.com/2025/02/11/us/immigration-florida-desantis-feud-republicans.html
+
+**Love or Hate Valentine’s Day?**\
+`Great movies to watch no matter how you feel about the holiday.`\
+https://nytimes.com/interactive/2025/02/11/movies/valentines-day-movies-love-hate.html
+
 **WTA bans Stefano Vukov for TK after investigating Elena Rybakina's former coach**\
 `Vukov had been provisionally suspended from coaching while under investigation; Rybakina maintains that he “never mistreated” her.`\
 https://nytimes.com/athletic/6035283/2025/02/11/stefano-vukov-wta-ban-report-elena-rybakina-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129462/2025/02/11/aaron-boone-yankees-dodgers-tras
 **Wednesday Briefing: Israel Threatens to End the Cease-Fire**\
 `Plus, New York Fashion Week.`\
 https://nytimes.com/2025/02/11/briefing/israel-cease-fire-us-tariffs-ukraine-security.html
-
-**Jets’ plan for Rodgers: No outside media including McAfee, attendance at mandatory practices**\
-`The quarterback met with the team last week.`\
-https://nytimes.com/athletic/6129722/2025/02/11/aaron-rodgers-new-york-jets-pat-mcafee/
-
-**Johnson ‘Wholeheartedly’ Agrees With Trump’s Spending Cuts, Undermining Congress**\
-`The comments by the speaker were his latest move to diminish the role of the legislative branch, and in keeping with his move to define himself as a junior partner to President Trump.`\
-https://nytimes.com/2025/02/11/us/politics/johnson-congress-power-trump.html
 
