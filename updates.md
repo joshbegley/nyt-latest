@@ -1,3 +1,7 @@
+**Trump Names 2 New Top Financial Regulators**\
+`Jonathan McKernan has been nominated to lead the Consumer Financial Protection Bureau, which has been in turmoil for days.`\
+https://nytimes.com/2025/02/11/us/politics/trump-names-2-new-top-financial-regulators.html
+
 **Sotomayor Says Presidents Are Not Monarchs and Must Obey Rulings**\
 `Speaking in general terms at a Florida college and not naming President Trump, the Supreme Court justice’s remarks took on potency in the current climate.`\
 https://nytimes.com/2025/02/11/us/sotomayor-says-presidents-are-not-monarchs-and-must-obey-rulings.html

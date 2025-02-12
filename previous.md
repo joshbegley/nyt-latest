@@ -1,3 +1,7 @@
+**Trump Names 2 New Top Financial Regulators**\
+`Jonathan McKernan has been nominated to lead the Consumer Financial Protection Bureau, which has been in turmoil for days.`\
+https://nytimes.com/2025/02/11/us/politics/trump-names-2-new-top-financial-regulators.html
+
 **Sotomayor Says Presidents Are Not Monarchs and Must Obey Rulings**\
 `Speaking in general terms at a Florida college and not naming President Trump, the Supreme Court justice’s remarks took on potency in the current climate.`\
 https://nytimes.com/2025/02/11/us/sotomayor-says-presidents-are-not-monarchs-and-must-obey-rulings.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/monty-a-g
 **Musk and Trump Appear Together in the Oval Office**\
 `Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
 https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html
-
-**A code name, ACC ‘in financial decline': Documents reveal UNC’s conference realignment approach**\
-`UNC’s behind-closed-doors exploration of conference realignment and its future in the ACC was known by only a code name. `\
-https://nytimes.com/athletic/6130428/2025/02/11/north-carolina-conference-realignment-documents-acc/
 
