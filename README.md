@@ -1,3 +1,7 @@
+**Everton warned over Stake sponsorship**\
+`The UK Gambling Commission confirmed it will be writing to Everton to warn them of the risks of the promotion of unlawful gambling sites.`\
+https://nytimes.com/athletic/6131433/2025/02/12/everton-stake-sponsorship-shirt/
+
 **Carnegie Hall’s New Season: What We’re Excited to Hear**\
 `Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
 https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/12/us/politics/trump-spending-republicans-agricultur
 **A 40-point Bulls loss brought out the boos in Chicago: 'We probably deserved it'**\
 `“We didn’t give them anything to cheer for. We were down 40 in the first half, and that’s not acceptable,” Bulls Josh Giddey said.`\
 https://nytimes.com/athletic/6131406/2025/02/12/bulls-pistons-nba-loss-boos-fans/
-
-**Trump’s Education Plans and America’s Most Vulnerable Students**\
-`Hobbling the Department of Education means parents can’t hold states accountable for services.`\
-https://nytimes.com/2025/02/12/opinion/trump-education-disability.html
 

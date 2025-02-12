@@ -3,6 +3,11 @@
 .`\
 https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
 
+**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
+`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
+.`\
+https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
+
 **Carnegie Hall’s New Season: What We’re Excited to Hear**\
 `Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
 https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
