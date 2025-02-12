@@ -1,3 +1,7 @@
+**Leicester probably won't need 40 points for Premier League survival - but they have work to do**\
+`The average points total needed to avoid relegation is falling but Leicester's fixture list makes for daunting reading`\
+https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-league-relegation/
+
 **How Andy Irving rose from obscurity to gain cult status at West Ham**\
 `The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
 https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-greets-marc-fo
 **Cole Palmer's goals and assists have dried up - but is Chelsea star doing anything wrong?**\
 `Cole Palmer has not scored in four games or assisted since December 4 — but do the underlying numbers tell us anything?`\
 https://nytimes.com/athletic/6128728/2025/02/12/cole-palmer-chelsea-goals-assists-analysis/
-
-**Kevin Durant and the march toward 30,000 points: 'Consistency of greatness'**\
-`Durant does not set out to pursue a specific award or accolade. He instead follows a simple mindset: Just do more.`\
-https://nytimes.com/athletic/6104651/2025/02/12/kevin-durant-30000-points-nba-suns/
 
