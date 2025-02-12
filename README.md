@@ -1,3 +1,7 @@
+**Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
+`The celebrations that followed told you this was a big moment for a young Madrid team`\
+https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
+
 **Guardiola's harsh reality? His great City side is coming to an end**\
 `For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
 https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129400/2025/02/12/manchester-united-data-departmen
 **Sam Kerr, a nightmare two years and now the chance to look to the future**\
 `More than two years after the incident that led to her trial, Chelsea and Australia striker Kerr is free to resume her career`\
 https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
-
-**FM25 was cancelled - why? What will financial impact be? 'It will probably cost me £25k'**\
-`Football Manager 25 was cancelled last week — this is what it means for the company behind it, fans and content creators`\
-https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-cancellation-explained/
 
