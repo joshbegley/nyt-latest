@@ -1,3 +1,7 @@
+**Hegseth Says Return to Ukraine’s Pre-War Borders Is ‘Unrealistic’**\
+`In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
+https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
+
 **Tom Brady buys stake in sports card and memorabilia retailer**\
 `The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
 https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/technology/personaltech/social-media-accounts-dea
 **Why Doesn’t My Son’s Adviser Understand That Boys Will Be Boys?**\
 `A father objects to his son’s punishment after a rowdy “tickle fight” in a darkened room, but an adviser isn’t budging on the decision to bar the boy from a future activity.`\
 https://nytimes.com/2025/02/12/style/boys-will-be-boys-excuse.html
-
-**Munich City Council in row over where Nations League semi-finals will be held**\
-`A row is developing between UEFA, European football’s governing body, the German Football Association, and the city of Munich, over where this summer’s Nations League semi-finals and final will be staged and who will pay for it.`\
-https://nytimes.com/athletic/6131192/2025/02/12/nations-league-uefa-germany-munich/
 

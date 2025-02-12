@@ -1,3 +1,7 @@
+**Hegseth Says Return to Ukraine’s Pre-War Borders Is ‘Unrealistic’**\
+`In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
+https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
+
 **Tom Brady buys stake in sports card and memorabilia retailer**\
 `The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
 https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
