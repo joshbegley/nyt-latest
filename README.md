@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/archer-a-
 
 **Finland’s underdog blue line ready for 4 Nations challenge, lines revealed and questions in net**\
 `Is there a defense development crisis in Finland similar to the goaltending development crisis in Canada?`\
-https://nytimes.com/athletic/6130603/2025/02/11/finland-4-nations-face-off-defense-starting-goalie-laine/
+https://nytimes.com/athletic/6130603/2025/02/11/finland-4-nations-defense-starting-goalie-laine/
 
 **No. 20 Michigan avenges blowout loss to No. 7 Purdue, moves atop Big Ten**\
 `Wolverines bolster NCAA Tournament résumé with victory over last season's national runner-up.`\
