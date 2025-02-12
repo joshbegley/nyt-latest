@@ -1,3 +1,7 @@
+**Carnegie Hall’s New Season: What We’re Excited to Hear**\
+`Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
+https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
+
 **The N.E.A.’s New Gender and Diversity Edicts Worry Arts Groups**\
 `As the National Endowment for the Arts adjusts to comply with President Trump’s executive orders, “gender ideology” is out and works that “honor the nation’s rich artistic heritage” are in.`\
 https://nytimes.com/2025/02/12/arts/nea-dei-gender.html

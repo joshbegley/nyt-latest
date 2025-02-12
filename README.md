@@ -1,3 +1,15 @@
+**Leather Hoodies and Flared Pants, Anyone?**\
+`During a mostly ho-hum New York Fashion Week, designers lobbed a few good ideas at their male shoppers.`\
+https://nytimes.com/2025/02/12/style/mens-fashion-new-york-fashion-week-calvin-klein.html
+
+**Why Amy Tan Decided Not to Shred Her Archive**\
+`The author of “The Joy Luck Club” once vowed to have her papers destroyed after her death. Now they are going to the University of California, Berkeley.`\
+https://nytimes.com/2025/02/12/arts/amy-tan-archive-berkeley.html
+
+**The N.E.A.’s New Gender and Diversity Edicts Worry Arts Groups**\
+`As the National Endowment for the Arts adjusts to comply with President Trump’s executive orders, “gender ideology” is out and works that “honor the nation’s rich artistic heritage” are in.`\
+https://nytimes.com/2025/02/12/arts/nea-dei-gender.html
+
 **My Partner Cheated and Said It ‘Didn’t Mean Anything.’ How Should I Feel?**\
 `The magazine’s Ethicist columnist on how to handle emotional manipulation from an unfaithful lover.`\
 https://nytimes.com/2025/02/12/magazine/partner-cheated-means-nothing-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6131706/2025/02/12/patriots-offseason-mailbag-chad-
 **Department of Education rescinds Title IX guidance relating to NIL payments**\
 `How Title IX would factor into schools' revenue-sharing decisions has been a lingering question.`\
 https://nytimes.com/athletic/6131665/2025/02/12/title-ix-nil-college-sports-department-of-education/
-
-**How does Jimmy Butler's arrival impact Jonathan Kuminga's future with the Warriors?**\
-`The Warriors already have $139.6 million committed to Steph Curry, Draymond Green and Jimmy Butler. Can they commit to pay Kuminga? `\
-https://nytimes.com/athletic/6129623/2025/02/12/jimmy-butler-jonathan-kuminga-warriors-nba/
-
-**Everton warned over Stake sponsorship**\
-`The UK Gambling Commission confirmed it will be writing to Everton to warn them of the risks of the promotion of unlawful gambling sites.`\
-https://nytimes.com/athletic/6131433/2025/02/12/everton-stake-sponsorship-shirt/
-
-**Carnegie Hall’s New Season: What We’re Excited to Hear**\
-`Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
-https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
 
