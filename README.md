@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/12/arts/nea-dei-gender.html
 `The magazine’s Ethicist columnist on how to handle emotional manipulation from an unfaithful lover.`\
 https://nytimes.com/2025/02/12/magazine/partner-cheated-means-nothing-ethics.html
 
-**Fool's gold? How to bet on Doncic and LA after the blockbuster trade**\
+**Fool's gold? How to bet on Luka Dončić and LA after the blockbuster trade**\
 `Breaking down the best — and worst — props and futures to bet on with Luka on the Lakers. `\
 https://nytimes.com/athletic/6131399/2025/02/12/luka-doncic-trade-lakers-betting-props/
 
