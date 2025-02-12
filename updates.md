@@ -1,3 +1,7 @@
+**Trump Greets Freed American Teacher at White House**\
+`President Trump welcomed Marc Fogel hours after the United States secured his release from Russia.`\
+https://nytimes.com/2025/02/11/us/politics/trump-white-house-fogel-russia.html
+
 **Trump greets Marc Fogel at the White House after securing his release from Russia.**\
 `By Maggie Haberman`\
 https://nytimes.com/2025/02/11/us/politics/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia.html

@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
 `Football Manager 25 was cancelled last week — this is what it means for the company behind it, fans and content creators`\
 https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-cancellation-explained/
 
-**Trump greets Marc Fogel at the White House after securing his release from Russia.**\
-`By Maggie Haberman`\
-https://nytimes.com/2025/02/11/us/politics/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia.html
+**Trump Greets Freed American Teacher at White House**\
+`President Trump welcomed Marc Fogel hours after the United States secured his release from Russia.`\
+https://nytimes.com/2025/02/11/us/politics/trump-white-house-fogel-russia.html
 
