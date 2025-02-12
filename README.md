@@ -1,6 +1,6 @@
 **Swiss sweep men's team combined at world championships as Americans just miss medal**\
 `Ryan Cochran-Siegle and Ben Ritchie nearly won a surprise medal Wednesday at the world championships, finishing fourth in the team combined.`\
-https://nytimes.com/athletic/6131280/2025/02/12/swiss-sweep-mens-team-combined-at-worlds-as-american-duo-just-misses-medal/
+https://nytimes.com/athletic/6131280/2025/02/12/switzerland-team-combined-skiing-world-championships-ryan-cochran-siegle/
 
 **Hegseth Says Return to Ukraine’s Pre-War Borders Is ‘Unrealistic’**\
 `In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
