@@ -1,3 +1,11 @@
+**David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
+`His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
+https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
+
+**The Briefing - Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
+`Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
+https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
+
 **Nominee for No. 2 Official at Justice Dept., Todd Blanche, Denounces Treatment of Trump**\
 `Mr. Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
 https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html

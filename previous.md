@@ -1,4 +1,8 @@
-**The Briefing — Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
+**David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
+`His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
+https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
+
+**The Briefing - Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
 `Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
 https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
 **FC Dallas acquires Luciano Acosta from Cincinnati for record $5 million**\
 `Acosta won the Landon Donovan MLS MVP award in 2023, scoring 17 goals and adding 14 assists in the regular season.`\
 https://nytimes.com/athletic/6132342/2025/02/12/fc-dallas-acquires-luciano-acosta-cincinnati/
-
-**Tracking the Lawsuits Against Trump’s Agenda**\
-`Follow the lawsuits and rulings that are challenging President Trump's executive orders.`\
-https://nytimes.com/interactive/2025/us/trump-administration-lawsuits.html
 
