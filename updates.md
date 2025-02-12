@@ -1,3 +1,7 @@
+**Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
+`The celebrations that followed told you this was a big moment for a young Madrid team`\
+https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
+
 **Guardiola's harsh reality? His great City side is coming to an end**\
 `For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
 https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
