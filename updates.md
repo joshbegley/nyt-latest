@@ -1,3 +1,11 @@
+**Google Calendar Deletes Women’s History Month and Other Cultural Events**\
+`The Silicon Valley giant said it made the change last year because it was difficult to keep up with every occasion, but some users questioned the decision.`\
+https://nytimes.com/2025/02/12/technology/google-black-history-womens-history.html
+
+**Rich Rodriguez hires WVU legend Pat White as assistant QBs coach**\
+`White, a former two-time Big East Offensive Player of the Year, went 35-8 as the Mountaineers’ quarterback from 2005 to '08.`\
+https://nytimes.com/athletic/6132645/2025/02/12/pat-white-west-virginia-rich-rodriguez-staff/
+
 **Dodgers' Shohei Ohtani expected to throw his first bullpen this weekend**\
 `Ohtani won't overdo his intensity as he ramps up for a return to pitching: “It’s gonna be more about touching the slope."`\
 https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
