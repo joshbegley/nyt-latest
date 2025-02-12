@@ -1,3 +1,7 @@
+**Pistons set franchise record in 40-point win over Bulls**\
+`By halftime, Detroit held a 71-29 lead over the Bulls — the biggest halftime lead in franchise history.`\
+https://nytimes.com/athletic/6130744/2025/02/12/pistons-franchise-record-win-bulls/
+
 **New Hampshire High School Trans Athletes Take Their Fight to Trump**\
 `A lawsuit appears to be the first challenge to the constitutionality of an executive order barring trans athletes from girls’ and women’s sports teams.`\
 https://nytimes.com/2025/02/12/us/trump-trans-girls-women-sports.html
