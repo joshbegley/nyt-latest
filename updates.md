@@ -1,3 +1,11 @@
+**Mets' longest-tenured pitcher agrees to new deal**\
+`Drew Smith, coming off hybrid Tommy John surgery in July, will likely be back to full strength in 2026.`\
+https://nytimes.com/athletic/6132125/2025/02/12/mets-drew-smith-contract/
+
+**Answer 4 Questions. Leave With a Romance Novel You’ll Love.**\
+`Tell us a few things about what you like, and we’ll give you a spot-on recommendation.`\
+https://nytimes.com/interactive/2025/02/12/books/romance-novel-quiz.html
+
 **After 3 Die in Fires, Officials Urge Drivers Not to Block Hydrants**\
 `Firefighters had to navigate cars that blocked hydrants in two fires in the Bronx and in Brooklyn. “Seconds count when we’re fighting fire,” said a Fire Department chief.`\
 https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
