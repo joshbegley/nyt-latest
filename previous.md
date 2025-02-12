@@ -1,3 +1,7 @@
+**FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
+`The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
+https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
+
 **McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
 `McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
 https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6132645/2025/02/12/pat-white-west-virginia-rich-rod
 **FIFA suspends employee after arrest on charge of meeting a minor for sex**\
 `Jack Edward Coles was arrested on two counts relating to sexual activity with a minor, per a court filing.`\
 https://nytimes.com/athletic/6131089/2025/02/12/fifa-employee-arrest-florida/
-
-**Mr. President, Foreign Aid Does Put America First**\
-`U.S.A.I.D. keeps children alive and us safe.`\
-https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
 
