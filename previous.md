@@ -1,3 +1,11 @@
+**Eno Sarris’ 2025 starting pitcher fantasy rankings with Stuff+ powered projections**\
+`The Stuff+ projections are back with more information than ever to help steer you toward the starting pitchers who can help win your league.`\
+https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher-fantasy-rankings-stuff-plus-projections/
+
+**Ranking Browns' top unrestricted free agents: Will Nick Chubb return?**\
+`We take a look at Cleveland's top free agents and make predictions on whether they'll return or sign elsewhere this offseason.`\
+https://nytimes.com/athletic/6128736/2025/02/12/browns-free-agents-nick-chubb/
+
 **'Getting back to my roots': Inside Iga Swiatek's time machine**\
 `In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
 https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128993/2025/02/12/bill-belichick-unc-football-recr
 **Who Pays for Tariffs**\
 `Understanding who will end up paying for the higher costs means understanding how manufacturing, trade and supply chains function — and how costs build along each step of the complex process. Take shoes, for example.`\
 https://nytimes.com/interactive/2025/02/12/business/economy/who-pays-for-tariffs.html
-
-**With High Prices Persisting, Trump Tempers Tone on Slaying Inflation**\
-`President Trump pledged to lower costs on “Day 1” as a candidate. His administration now acknowledges it will take more time.`\
-https://nytimes.com/2025/02/12/business/trump-inflation-prices.html
-
-**Trump’s W.H.O. Exit Throws Smallpox Defenses Into Upheaval**\
-`Health experts see his retreat from international cooperation as disrupting the safe-keepers of one of the world’s deadliest pathogens.`\
-https://nytimes.com/2025/02/12/health/smallpox-who-cdc-bioweapons.html
 

@@ -1,3 +1,11 @@
+**Eno Sarris’ 2025 starting pitcher fantasy rankings with Stuff+ powered projections**\
+`The Stuff+ projections are back with more information than ever to help steer you toward the starting pitchers who can help win your league.`\
+https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher-fantasy-rankings-stuff-plus-projections/
+
+**Ranking Browns' top unrestricted free agents: Will Nick Chubb return?**\
+`We take a look at Cleveland's top free agents and make predictions on whether they'll return or sign elsewhere this offseason.`\
+https://nytimes.com/athletic/6128736/2025/02/12/browns-free-agents-nick-chubb/
+
 **'Getting back to my roots': Inside Iga Swiatek's time machine**\
 `In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
 https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
