@@ -1,5 +1,9 @@
 **In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
 `The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
+https://nytimes.com/2025/02/12/world/middleeast/trump-gaza-egypt-jordan.html
+
+**In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
+`The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
 https://nytimes.com/2025/02/12/world/middleeast/in-trumps-cross-hairs-over-taking-gazans-egypt-and-jordan-try-diversion.html
 
 **Villa's MacPhee appointed Portugal assistant coach**\
