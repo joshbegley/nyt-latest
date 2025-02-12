@@ -2,10 +2,6 @@
 `Whoever progresses from this tie next will need to improve their performance off the ball if they want to reach the latter stages `\
 https://nytimes.com/athletic/6130846/2025/02/12/manchester-city-real-madrid-problems-off-ball/
 
-**'Profound injustice': Defending U.S. Open mixed doubles champions slam new event**\
-`The Italians have criticized the revamped tournament, which will allow players to enter based on singles ranking.`\
-https://nytimes.com/athletic/6131255/2025/02/12/us-open-mixed-doubles-new-format-errani-vavassori/
-
 **How to Prepare for Your Digital Afterlife**\
 `When planning your estate, leave instructions for handling your online accounts, data and other electronic affairs.`\
 https://nytimes.com/2025/02/12/technology/personaltech/social-media-accounts-death.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.htm
 **Canucks trade deadline targets: How these 7 wingers could aid Vancouver's attack**\
 `The Canucks are still short on talent, speed and skill up front. Here are seven potential wing options on the trade market.`\
 https://nytimes.com/athletic/6130808/2025/02/12/canucks-trade-deadline-targets-2025-wingers/
+
+**How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
+`The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
+https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
 

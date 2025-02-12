@@ -1,3 +1,7 @@
+**How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
+`The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
+https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
+
 **What unites Man City and Real Madrid? Problems out of possession**\
 `Whoever progresses from this tie next will need to improve their performance off the ball if they want to reach the latter stages `\
 https://nytimes.com/athletic/6130846/2025/02/12/manchester-city-real-madrid-problems-off-ball/
