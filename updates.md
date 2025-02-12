@@ -1,3 +1,7 @@
+**A Major Storm Is About to Soak California**\
+`In Southern California, the flooding could be life-threatening in areas burned by wildfires.`\
+https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
+
 **Is This a Constitutional Crisis?**\
 `Readers discuss the showdown with President Trump. Also: A report on nature; Hank Azaria’s voice; A.I. jobs; attacks on diversity.`\
 https://nytimes.com/2025/02/12/opinion/trump-constitutional-crisis.html

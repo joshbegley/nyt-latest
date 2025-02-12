@@ -1,3 +1,7 @@
+**A Major Storm Is About to Soak California**\
+`In Southern California, the flooding could be life-threatening in areas burned by wildfires.`\
+https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
+
 **Is This a Constitutional Crisis?**\
 `Readers discuss the showdown with President Trump. Also: A report on nature; Hank Azaria’s voice; A.I. jobs; attacks on diversity.`\
 https://nytimes.com/2025/02/12/opinion/trump-constitutional-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.ht
 **A New Kind of Defense Secretary Saves His Ammunition for Domestic Enemies**\
 `Pete Hegseth has spent much of his first weeks in office focused on culture wars while saying little about America’s adversaries.`\
 https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
-
-**Ex-Hochul Aide Accused of Working for China Faces New Bribery Allegation**\
-`Linda Sun, a former deputy chief of staff to the New York governor, is also accused of violating the Foreign Agents Registration Act, according to a superseding indictment.`\
-https://nytimes.com/2025/02/12/business/linda-sun-hochul-aide-china.html
 
