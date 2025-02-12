@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6132183/2025/02/12/unlv-football-ben-christman-deat
 
 **A.P. Accuses White House of Violating First Amendment**\
 `The Associated Press said the White House had blocked its journalists from attending two press events because the news agency had not started using the term Gulf of America.`\
-https://nytimes.com/2025/02/12/business/media/ap-accuses-white-house-of-violating-first-amendment.html
+https://nytimes.com/2025/02/12/business/media/associated-press-gulf-of-america.html
 
 **Behind Kennedy’s Vow to ‘Follow the Science’ on Vaccines**\
 `Robert F. Kennedy Jr. cited a disputed study from a close network of fellow vaccine skeptics during his confirmation hearings. His critics say it is part of a pattern that raises concerns about whose research he would elevate as health secretary.`\
