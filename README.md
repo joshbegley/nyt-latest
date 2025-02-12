@@ -1,3 +1,7 @@
+**What’s the Difference Between an Outfit and a ’Fit?**\
+`Photos from New York Fashion Week parties document the chaos and confidence that comes out at night.`\
+https://nytimes.com/2025/02/12/style/nyfw-party-outfits.html
+
 **Trump Elected Chair of Kennedy Center as Its President Steps Down**\
 `The president solidified his grip on the performing arts complex as the center’s longtime president, Deborah F. Rutter, announced she was stepping down.`\
 https://nytimes.com/2025/02/12/us/politics/trump-kennedy-center-chairman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/movies/captain-america-brave-new-world-review.htm
 **For the F.A.A., Three Deadly Crashes and a Reckoning**\
 `The agency in charge of air travel safety is facing criticism and demands for change after a yearslong streak of no major commercial jet accidents ended in catastrophe.`\
 https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
-
-**‘Henry IV’ Review: Two Plays Become One**\
-`The relationship between Prince Hal and John Falstaff, a favorite of Shakespeare scholars, is the focus of this condensed adaptation.`\
-https://nytimes.com/2025/02/12/theater/henry-iv-review.html
 
