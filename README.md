@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6132515/2025/02/12/detroit-tigers-spring-training-d
 `The decision was a win for the Trump administration, which has been stymied by a series of other court rulings in recent days. The judge said the plaintiffs lacked standing.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
 
-**World Cup of Hockey will return in 2028 as in-season tournament, NHL and NHLPA announce**\
+**World Cup of Hockey will return as in-season tournament in 2028**\
 `The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
 https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
 
