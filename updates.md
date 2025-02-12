@@ -1,3 +1,11 @@
+**Corrections: Feb. 12, 2025**\
+`Corrections that appeared in print on Wednesday, Feb. 12, 2025.`\
+https://nytimes.com/2025/02/11/pageoneplus/corrections-feb-12-2025.html
+
+**Monty, a giant schnauzer, wins the working group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/monty-a-giant-schnauzer-wins-the-working-group
+
 **Musk and Trump Appear Together in the Oval Office**\
 `Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
 https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html

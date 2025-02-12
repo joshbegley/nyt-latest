@@ -1,3 +1,11 @@
+**Corrections: Feb. 12, 2025**\
+`Corrections that appeared in print on Wednesday, Feb. 12, 2025.`\
+https://nytimes.com/2025/02/11/pageoneplus/corrections-feb-12-2025.html
+
+**Monty, a giant schnauzer, wins the working group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/monty-a-giant-schnauzer-wins-the-working-group
+
 **Musk and Trump Appear Together in the Oval Office**\
 `Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
 https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
 **The New NIMBY Battle Over the Waste From the L.A. Fires**\
 `Federal and state officials say the temporary sites for processing hazardous waste pose no threat, but residents are worried about their air and water.`\
 https://nytimes.com/2025/02/11/us/wildfires-toxic-waste-sites.html
-
-**Trump Curtails Anti-Corruption Efforts, Suggesting Charging Bribery Is Unfair**\
-`The Trump administration is telling prosecutors and agents to care less on efforts to investigate foreign corruption, including a case against New York’s mayor.`\
-https://nytimes.com/2025/02/11/us/politics/trump-orders-bribery-corruption.html
-
-**Reds spring training notes: Rhett Lowder held back; Spencer Steer limited to DH early**\
-`Lowder's delayed progression for the upcoming season is more of a precaution than anything.`\
-https://nytimes.com/athletic/6130384/2025/02/11/reds-rhett-lowder-spring-training/
 
