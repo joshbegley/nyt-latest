@@ -1,4 +1,8 @@
 **Guardiola's harsh reality? His great City side is coming to an end**\
+`For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
+https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
+
+**Guardiola's harsh reality? His great City side is coming to an end**\
 `For all their achievements and bursts of quality, age, recurring mistakes and fragility are simply what City are these days`\
 https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
 
