@@ -1,3 +1,7 @@
+**House Republicans Release a Roughly $3 Trillion Budget Outline**\
+`The initial plan calls for $4.5 trillion in tax cuts and at least $1.5 trillion in spending reductions, along with an increase in the debt limit and funds for immigration enforcement.`\
+https://nytimes.com/2025/02/12/us/politics/house-republicans-budget.html
+
 **Leather Hoodies and Flared Pants, Anyone?**\
 `During a mostly ho-hum New York Fashion Week, designers lobbed a few good ideas at their male shoppers.`\
 https://nytimes.com/2025/02/12/style/mens-fashion-new-york-fashion-week-calvin-klein.html
