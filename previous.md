@@ -1,3 +1,11 @@
+**Bondi Announces Lawsuit Against New York Over Immigration**\
+`The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing “illegal aliens over American citizens.”`\
+https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
+
+**Mets' David Stearns speaks on Pete Alonso contract, stiff NL competition: Takeaways**\
+`With Pete Alosno back in the fold, the Mets enter 2025 as one of several teams vying for the World Series in a tough National League. `\
+https://nytimes.com/athletic/6132952/2025/02/12/new-york-mets-david-stearns-presser/
+
 **Champions League briefing: Bayern drown out the noise, and was this the worst penalty award of all time?**\
 `All the big talking points from Wednesday's Champions League playoff matches, including Feyenoord shutting out Milan's Fab Four`\
 https://nytimes.com/athletic/6131300/2025/02/12/champions-league-bayern-penalty-atalanta-pulisic-milan-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bur
 **Can the Tigers build on last year's magic? Inside Day 1 of spring training**\
 `Optimism abounds in Lakeland, but Alex Bregman's decision looms large over the Tigers' chances of returning to the playoffs.`\
 https://nytimes.com/athletic/6132515/2025/02/12/detroit-tigers-spring-training-day-1/
-
-**Trump’s Resignation Program for Federal Workers Can Proceed, Judge Rules**\
-`The decision was a win for the Trump administration, which has been stymied by a series of other court rulings in recent days. The judge said the plaintiffs lacked standing.`\
-https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
-
-**World Cup of Hockey will return as in-season tournament in 2028**\
-`The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
-https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
 
