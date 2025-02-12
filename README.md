@@ -1,3 +1,11 @@
+**When Musk’s Team Comes to Your Door**\
+`The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
+https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
+
+**Handshakes and selfies: Giants pitchers are Justin Verlander fans, too**\
+`Verlander is already a well-known commodity to his new Giants teammates, who are eager to learn from him this season.`\
+https://nytimes.com/athletic/6132918/2025/02/12/sf-giants-justin-verlander-introductions/
+
 **Bondi Announces Lawsuit Against New York Over Immigration**\
 `The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing “illegal aliens over American citizens.”`\
 https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132625/2025/02/12/anthony-rendon-angels-contract-e
 **Eric Adams Discussed Possible Republican Primary Run With G.O.P. Leader**\
 `The mayor discussed options to run for re-election in the Republican contest as recently as Monday. Asked for comment, he said he was running as a Democrat.`\
 https://nytimes.com/2025/02/12/nyregion/eric-adams-republican-primary.html
-
-**Czech Dam Project Was Stalled by Bureaucracy. Beavers Built Their Own.**\
-`The dam project, drafted in 2018 and based on a former military training site south of Prague, had been delayed by land negotiations. Local beavers built several dams, saving the government more than one million euros.`\
-https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bureaucracy-beavers-built-their-own.html
-
-**Can the Tigers build on last year's magic? Inside Day 1 of spring training**\
-`Optimism abounds in Lakeland, but Alex Bregman's decision looms large over the Tigers' chances of returning to the playoffs.`\
-https://nytimes.com/athletic/6132515/2025/02/12/detroit-tigers-spring-training-day-1/
 
