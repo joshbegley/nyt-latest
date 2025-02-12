@@ -1,3 +1,7 @@
+**Free agent WR Kadarius Toney arrested, accused of strangling a woman**\
+`Toney, 26, is also accused of taking the woman's phone to prevent her from calling police.`\
+https://nytimes.com/athletic/6132588/2025/02/12/kadarius-toney-arrested/
+
 **OpenAI Questions Rationale of Elon Musk’s Bid to Control the Company**\
 `The company answered the billionaire’s offer in a legal filing, accusing him of hypocrisy.`\
 https://nytimes.com/2025/02/12/technology/elon-musk-openai-response.html
