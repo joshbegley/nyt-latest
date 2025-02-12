@@ -1,3 +1,11 @@
+**Sam Kerr, a nightmare two years and now the chance to look to the future**\
+`More than two years after the incident that led to her trial, Chelsea and Australia striker Kerr is free to resume her career`\
+https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
+
+**FM25 was cancelled - why? What will financial impact be? 'It will probably cost me £25k'**\
+`Football Manager 25 was cancelled last week — this is what it means for the company behind it, fans and content creators`\
+https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-cancellation-explained/
+
 **Trump greets Marc Fogel at the White House after securing his release from Russia.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/world/asia/modi-trump-white-house-visit.html
 **Quote of the Day: ‘I Was Dying’: Rushdie Testifies About Stabbing**\
 `Quotation of the Day for Wednesday, February 12, 2025`\
 https://nytimes.com/2025/02/11/pageoneplus/quote-of-the-day-i-was-dying-rushdie-testifies-about-stabbing.html
-
-**Trump Names 2 New Top Financial Regulators**\
-`Jonathan McKernan has been nominated to lead the Consumer Financial Protection Bureau, which has been in turmoil for days.`\
-https://nytimes.com/2025/02/11/us/politics/trump-names-2-new-top-financial-regulators.html
-
-**Sotomayor Says Presidents Are Not Monarchs and Must Obey Rulings**\
-`Speaking in general terms at a Florida college and not naming President Trump, the Supreme Court justice’s remarks took on potency in the current climate.`\
-https://nytimes.com/2025/02/11/us/sotomayor-says-presidents-are-not-monarchs-and-must-obey-rulings.html
 

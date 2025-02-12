@@ -1,3 +1,11 @@
+**Sam Kerr, a nightmare two years and now the chance to look to the future**\
+`More than two years after the incident that led to her trial, Chelsea and Australia striker Kerr is free to resume her career`\
+https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
+
+**FM25 was cancelled - why? What will financial impact be? 'It will probably cost me £25k'**\
+`Football Manager 25 was cancelled last week — this is what it means for the company behind it, fans and content creators`\
+https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-cancellation-explained/
+
 **Trump greets Marc Fogel at the White House after securing his release from Russia.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia
