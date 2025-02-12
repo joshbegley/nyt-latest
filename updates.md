@@ -1,3 +1,7 @@
+**Trump Nominates Oil and Gas Advocate to Run Bureau of Land Management**\
+`The nominee, Kathleen Sgamma, has worked for nearly two decades on behalf of oil and gas companies in Western states.`\
+https://nytimes.com/2025/02/12/us/kathleen-sgamma-blm-trump.html
+
 **F.C.C. Chair Orders Investigation Into Comcast’s D.E.I. Practices**\
 `The investigation follows inquiries by the agency into NPR, PBS and CBS News.`\
 https://nytimes.com/2025/02/12/business/media/fcc-comcast-nbc-dei-discrimination.html
