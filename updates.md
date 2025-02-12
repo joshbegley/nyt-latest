@@ -1,3 +1,19 @@
+**Kennedy One Step Closer to Confirmation as Health Secretary After Senate Vote**\
+`The Senate voted along party lines to advance the nomination of Robert F. Kennedy Jr. for health secretary to the floor for a final vote, likely Thursday.`\
+https://nytimes.com/2025/02/12/us/rfk-jr-senate-vote-hhs.html
+
+**Scoop City: Understand Vic Fangio's defense in one play**\
+`Inside: A film breakdown of the Eagles defense, grades for every coaching hire (now that the Saints have officially landed Kellen Moore) and Cam Newton calling out his former Panthers teammates, among other notable quotes.`\
+https://nytimes.com/athletic/6131825/2025/02/12/vic-fangio-defense-explained-nfl-eagles-super-bowl-scoop-city/
+
+**Sean Combs Sues NBC Over Documentary That He Says Defamed Him**\
+`The documentary, “Diddy: Making of a Bad Boy,” began streaming on NBCUniversal’s Peacock platform last month.`\
+https://nytimes.com/2025/02/12/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
+**In Daytona Beach, NASCAR's influence goes far beyond Sunday's iconic race**\
+`DAYTONA BEACH, Fla.`\
+https://nytimes.com/athletic/6130470/2025/02/12/daytona-500-beach-nascar-city-ties/
+
 **U.N. Calls Bangladesh Protest Crackdown a Possible Crime Against Humanity**\
 `As many as 1,400 people were killed in former Prime Minister Sheikh Hasina’s violent response to a student-led revolt, according to a U.N. inquiry.`\
 https://nytimes.com/2025/02/12/world/asia/bangladesh-hasina-un-report.html
