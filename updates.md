@@ -1,3 +1,15 @@
+**Elon Musk in the Oval Office**\
+`Dispelling doubts, the billionaire showed off his unprecedented power to disrupt and remake the government — with President Trump’s blessing.`\
+https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.html
+
+**Canucks trade deadline targets: How these 7 wingers could aid Vancouver's attack**\
+`The Canucks are still short on talent, speed and skill up front. Here are seven potential wing options on the trade market.`\
+https://nytimes.com/athletic/6130808/2025/02/12/canucks-trade-deadline-targets-2025-wingers/
+
+**Dak Prescott: Cowboys 'very close' to Super Bowl champion Eagles**\
+`Prescott is 9-4 all-time against the Eagles, but Philadelphia swept the Cowboys this season for the first time in his nine-year career.`\
+https://nytimes.com/athletic/6130306/2025/02/12/dak-prescott-cowboys-injury-update-eagles/
+
 **How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
 `The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
 https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/

@@ -1,3 +1,11 @@
+**Elon Musk in the Oval Office**\
+`Dispelling doubts, the billionaire showed off his unprecedented power to disrupt and remake the government — with President Trump’s blessing.`\
+https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.html
+
+**Canucks trade deadline targets: How these 7 wingers could aid Vancouver's attack**\
+`The Canucks are still short on talent, speed and skill up front. Here are seven potential wing options on the trade market.`\
+https://nytimes.com/athletic/6130808/2025/02/12/canucks-trade-deadline-targets-2025-wingers/
+
 **How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
 `The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
 https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6127026/2025/02/12/sf-giants-out-of-options-players
 `The Athletic FC Podcast discuss whether Tottenham's low wage bill is holding them back.`\
 https://nytimes.com/athletic/6128894/2025/02/12/tottenham-wage-bill-ambition-tafc/
 
-**Dak Prescott gives health update, thoughts on new coach and Cowboys vs. Eagles**\
+**Dak Prescott: Cowboys 'very close' to Super Bowl champion Eagles**\
 `Prescott is 9-4 all-time against the Eagles, but Philadelphia swept the Cowboys this season for the first time in his nine-year career.`\
 https://nytimes.com/athletic/6130306/2025/02/12/dak-prescott-cowboys-injury-update-eagles/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103479/2025/02/12/usmnt-kevin-paredes-injury-inter
 **Eriksson Ek wasn't missing the 4 Nations, McDavid and Hedman praise Brodin**\
 `Team USA captain Auston Matthews also surprised John Hynes at the Americans' team dinner.`\
 https://nytimes.com/athletic/6129688/2025/02/12/wild-joel-eriksson-ek-4-nations-face-off-jonas-brodin/
-
-**Broncos 7-round mock draft: Can Sean Payton land 2 Jokers with Denver's 7 picks?**\
-`The Broncos haven't had consistent tight end production since trading Noah Fant, but this draft could end that drought for Denver.`\
-https://nytimes.com/athletic/6129259/2025/02/12/broncos-mock-draft-sean-payton-joker/
-
-**'Stop crying your heart out': How Vinicius Junior silenced City's taunts**\
-`The Brazilian underlined his star quality on a night when City fans' jibes fell flat`\
-https://nytimes.com/athletic/6130501/2025/02/12/vinicius-junior-manchester-city-ballon-dor/
 
