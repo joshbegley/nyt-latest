@@ -1,3 +1,7 @@
+**'Getting back to my roots': Inside Iga Swiatek's tennis time machine**\
+`In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
+https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
+
 **Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
 `This year’s deadline was a lot of information in a short amount of time. Let's evaluate everyone's work.`\
 https://nytimes.com/athletic/6128022/2025/02/12/best-nba-trade-deadline-moves-lakers-mavericks/
