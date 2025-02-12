@@ -1,3 +1,7 @@
+**Canned Tuna Sold at Trader Joe’s and Costco Is Recalled Over Botulism Risks**\
+`Tuna sold in 26 states and in Washington, D.C., was recalled over concerns that it may have been contaminated. The stores affected include Trader Joe’s, Genova, Van Camp’s and H-E-B.`\
+https://nytimes.com/2025/02/12/business/canned-tuna-recall-botulism.html
+
 **Best in Show**\
 `Would you want to enter your pet in a contest?`\
 https://nytimes.com/2025/02/12/learning/best-in-show.html
