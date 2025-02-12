@@ -1,3 +1,7 @@
+**No. 20 Michigan avenges blowout loss to No. 7 Purdue, moves atop Big Ten**\
+`Wolverines bolster NCAA Tournament résumé with victory over last season's national runner-up.`\
+https://nytimes.com/athletic/6130508/2025/02/11/michigan-beats-purdue-top-of-big-ten/
+
 **Some Looks Into Space**\
 `Extra, extra fun awaits you in Philip Koski’s crossword.`\
 https://nytimes.com/2025/02/11/crosswords/daily-puzzle-2025-02-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/things-go
 **Freddie, an English springer spaniel, wins the sporting group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/freddie-an-english-springer-spaniel-wins-the-sporting-group
-
-**Where Trump, Musk and DOGE Have Cut Federal Workers So Far**\
-`President Trump and Elon Musk have spent three weeks slashing federal jobs — often in defiance of legal limits — and there are more to come. These are the reported cuts to date.`\
-https://nytimes.com/interactive/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
 
