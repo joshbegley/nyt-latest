@@ -1,3 +1,7 @@
+**College basketball mailbag: Mid-major leagues getting multiple bids? Hubert Davis' fate at UNC?**\
+`What can be done about all the disruptions at the end of games? Why are some of the former Pac-12 teams struggling in the Big 12?`\
+https://nytimes.com/athletic/6131100/2025/02/12/mens-college-basketball-ncaa-tournament-bids-unc/
+
 **Elon Musk in the Oval Office**\
 `Dispelling doubts, the billionaire showed off his unprecedented power to disrupt and remake the government — with President Trump’s blessing.`\
 https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-
 **Kevin Paredes: How Marvel marathons and copycat Chipotle helped USMNT man find 'joy' away from football**\
 `After impressing at the Olympics, the 21-year-old's momentum has been halted by injury - coping with that has been a test of character`\
 https://nytimes.com/athletic/6103479/2025/02/12/usmnt-kevin-paredes-injury-interview-wolfsburg/
-
-**Eriksson Ek wasn't missing the 4 Nations, McDavid and Hedman praise Brodin**\
-`Team USA captain Auston Matthews also surprised John Hynes at the Americans' team dinner.`\
-https://nytimes.com/athletic/6129688/2025/02/12/wild-joel-eriksson-ek-4-nations-face-off-jonas-brodin/
 

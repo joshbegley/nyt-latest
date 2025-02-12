@@ -1,3 +1,7 @@
+**College basketball mailbag: Mid-major leagues getting multiple bids? Hubert Davis' fate at UNC?**\
+`What can be done about all the disruptions at the end of games? Why are some of the former Pac-12 teams struggling in the Big 12?`\
+https://nytimes.com/athletic/6131100/2025/02/12/mens-college-basketball-ncaa-tournament-bids-unc/
+
 **Elon Musk in the Oval Office**\
 `Dispelling doubts, the billionaire showed off his unprecedented power to disrupt and remake the government — with President Trump’s blessing.`\
 https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.html
