@@ -1,3 +1,11 @@
+**Best in Show**\
+`Would you want to enter your pet in a contest?`\
+https://nytimes.com/2025/02/12/learning/best-in-show.html
+
+**Inflation Rises Unexpectedly, Complicating Picture for the Fed**\
+`The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
+https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
+
 **How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
 `The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
 https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
