@@ -1,3 +1,7 @@
+**How Andy Irving rose from obscurity to gain cult status at West Ham**\
+`The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
+https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
+
 **How Big Is the Tariff on That Harley? Trump and Modi Are Set to Talk Trade.**\
 `As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
 https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
