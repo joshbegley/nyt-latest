@@ -1,3 +1,7 @@
+**Vinicius says Man City fans' Ballon d'Or banner 'gave me more strength'**\
+`Ahead of the game, a banner in the Man City end read "Stop crying your heart out" alongside an image of the Ballon d'Or trophy`\
+https://nytimes.com/athletic/6130881/2025/02/12/vinicius-ballon-dor-banner-manchester-city/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/12/crosswords/spelling-bee-forum.html

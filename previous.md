@@ -1,3 +1,7 @@
+**Vinicius says Man City fans' Ballon d'Or banner 'gave me more strength'**\
+`Ahead of the game, a banner in the Man City end read "Stop crying your heart out" alongside an image of the Ballon d'Or trophy`\
+https://nytimes.com/athletic/6130881/2025/02/12/vinicius-ballon-dor-banner-manchester-city/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/12/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-
 **Guardiola's harsh reality? His great City side is coming to an end**\
 `For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
 https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
-
-**Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
-`Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
-https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
 
