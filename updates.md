@@ -1,3 +1,15 @@
+**Playing Chelsea again presents a 'different challenge' - Hurzeler**\
+`Brighton host Chelsea again in the Premier League on Friday night, having knocked them out of the FA Cup with a 2-1 win on Saturday.`\
+https://nytimes.com/athletic/6129361/2025/02/12/fabian-hurzeler-chelsea-brighton/
+
+**Word of the Day: obliquely**\
+`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
+
+**Nottingham Forest are the highest-ranked team left in the FA Cup - it's there to be won**\
+`In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
+https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
+
 **What Modi and India Can Offer Trump on Tariffs and Trade**\
 `As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
 https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
