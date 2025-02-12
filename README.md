@@ -1,3 +1,7 @@
+**Free agent WR Kadarius Toney arrested, accused of strangling a woman**\
+`Toney, 26, is also accused of taking the woman's phone to prevent her from calling police.`\
+https://nytimes.com/athletic/6132588/2025/02/12/kadarius-toney-arrested/
+
 **OpenAI Questions Rationale of Elon Musk’s Bid to Control the Company**\
 `The company answered the billionaire’s offer in a legal filing, accusing him of hypocrisy.`\
 https://nytimes.com/2025/02/12/technology/elon-musk-openai-response.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-
 **Van Dijk accuses Doucoure of 'provoking' fans as Merseyside derby ends in fracas**\
 `Red cards were issued to Abdoulaye Doucoure and Curtis Jones as well as Liverpool manager Arne Slot and his assistant Sipke Hulshoff.`\
 https://nytimes.com/athletic/6132651/2025/02/12/liverpool-everton-merseyside-derby-altercation/
-
-**Brayan Bello admits feeling pressure from contract extension, ready now to handle high expectations**\
-`Bello admits expectations after his extension got to him, but he’s better prepared to meet them in 2025.`\
-https://nytimes.com/athletic/6132728/2025/02/12/brayan-bello-red-sox-expectations/
 
