@@ -1,3 +1,7 @@
+**Spurs at Celtics: How to watch Wembanyama and Fox take on the defending champions**\
+`Victor Wembanyama and De'Aaron Fox visit formidable Boston ahead of the NBA's All-Star break.`\
+https://nytimes.com/athletic/6129879/2025/02/12/spurs-celtics-how-to-watch-preview-wembanyama-fox-tatum/
+
 **Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
 `Plus, Thailand braces for the “White Lotus” effect.`\
 https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/climate/california-chemical-warning-labels.html
 **Four Takeaways From Tulsi Gabbard’s Road to Confirmation**\
 `It turns out it is very difficult to vote down a president’s choice for a top post.`\
 https://nytimes.com/2025/02/12/us/politics/tulsi-gabbard-confirmation-takeaways.html
-
-**The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
-`By David McCabe`\
-https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power
 

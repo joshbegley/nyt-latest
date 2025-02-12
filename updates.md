@@ -1,3 +1,7 @@
+**Spurs at Celtics: How to watch Wembanyama and Fox take on the defending champions**\
+`Victor Wembanyama and De'Aaron Fox visit formidable Boston ahead of the NBA's All-Star break.`\
+https://nytimes.com/athletic/6129879/2025/02/12/spurs-celtics-how-to-watch-preview-wembanyama-fox-tatum/
+
 **Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
 `Plus, Thailand braces for the “White Lotus” effect.`\
 https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
