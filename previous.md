@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-ca
 
 **Trump greets Marc Fogel at the White House after securing his release from Russia.**\
 `By Maggie Haberman`\
-https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia
+https://nytimes.com/2025/02/11/us/politics/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia.html
 

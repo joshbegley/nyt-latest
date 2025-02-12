@@ -1,3 +1,7 @@
+**Trump greets Marc Fogel at the White House after securing his release from Russia.**\
+`By Maggie Haberman`\
+https://nytimes.com/2025/02/11/us/politics/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia.html
+
 **Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
 `Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
 https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
