@@ -1,3 +1,23 @@
+**Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
+`Plus, Thailand braces for the “White Lotus” effect.`\
+https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
+
+**New Mystics GM and head coach hope to lead franchise back into WNBA's forefront**\
+`The Mystics introduced new general manager Jamila Wideman and new coach Sydney Johnson on Wednesday.`\
+https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-jamila-wideman-sydney-johnson-wnba/
+
+**Trump and Musk Pull Focus. But Vance Is the One to Watch.**\
+`The vice president is the millennial Republican we should have seen coming.`\
+https://nytimes.com/2025/02/12/opinion/jd-vance-donald-trump.html
+
+**Phillies camp opens with a new clubhouse, familiar faces and a glimpse of the future**\
+`The Phillies are trying to win now with a club-record payroll while bridging a gap with one-year deals until their prospects arrive.`\
+https://nytimes.com/athletic/6132263/2025/02/12/phillies-spring-training-prospects/
+
+**Israeli scholars dangle a Nobel Peace Prize nomination for Trump, if he helps free the hostages in Gaza.**\
+`Four of Israel’s top scholars, including three Nobel laureates, have offered to nominate the president, tying the move to efforts to free the remaining Israeli hostages held by Hamas in Gaza.`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/trump-nobel-peace-prize
+
 **Eric Adams Case Tests an Ambitious Prosecutor’s Independence**\
 `Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor is her greatest challenge yet.`\
 https://nytimes.com/2025/02/12/nyregion/adams-prosecutor-danielle-sassoon-profile.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/tulsi-gabbard-confirmation-takeaways.
 **The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power
-
-**Q&A with Braves' Chris Sale: On winning Cy Young, team's offseason and more**\
-`The Cy Young winner knows the Mets and Dodgers spent boatloads in the offseason but said: "I like our chances as much as anybody."`\
-https://nytimes.com/athletic/6132179/2025/02/12/braves-chris-sale-interview/
-
-**New York Got $80 Million for Migrants. The White House Took It Back.**\
-`The New York City comptroller’s office, which first noticed the missing money, said that the Federal Emergency Management Agency had unilaterally taken the funds from the city’s accounts.`\
-https://nytimes.com/2025/02/12/nyregion/doge-migrant-hotel-shelters.html
-
-**Flu Cases Are Surging**\
-`At least 24 million cases have been reported so far this season — and the virus is still spreading widely.`\
-https://nytimes.com/2025/02/12/well/flu-season-risk.html
-
-**Christopher Jencks, a Shaper of Views on Economic Inequality, Dies at 88**\
-`His clear prose, illuminating data and novel arguments helped transform debates around issues like public education and welfare reform.`\
-https://nytimes.com/2025/02/12/books/christopher-jencks-dead.html
-
-**UNLV football player Ben Christman dies at 21**\
-`Christman transferred to UNLV this offseason after spending the last two years at Kentucky.`\
-https://nytimes.com/athletic/6132183/2025/02/12/unlv-football-ben-christman-death/
 
