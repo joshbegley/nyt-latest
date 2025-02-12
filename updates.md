@@ -1,3 +1,7 @@
+**Live Senate Tally: Tulsi Gabbard Confirmation Vote**\
+`Follow the count live.`\
+https://nytimes.com/interactive/2025/02/12/us/politics/gabbard-senate-confirmation-vote.html
+
 **Pistons set franchise record in 40-point win over Bulls**\
 `By halftime, Detroit held a 71-29 lead over the Bulls — the biggest halftime lead in franchise history.`\
 https://nytimes.com/athletic/6130744/2025/02/12/pistons-franchise-record-win-bulls/
