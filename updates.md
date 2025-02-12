@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-p
 .`\
 https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
 
+**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
+`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
+.`\
+https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
+
 **Everton warned over Stake sponsorship**\
 `The UK Gambling Commission confirmed it will be writing to Everton to warn them of the risks of the promotion of unlawful gambling sites.`\
 https://nytimes.com/athletic/6131433/2025/02/12/everton-stake-sponsorship-shirt/
