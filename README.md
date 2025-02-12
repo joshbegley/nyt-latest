@@ -1,3 +1,12 @@
+**Shedeur Sanders says his first top-30 visit is with Browns, then Giants**\
+`Sanders already met with the Titans, Giants and Browns at the Shrine Bowl — the teams that hold the top three picks in the draft.`\
+https://nytimes.com/athletic/6131486/2025/02/12/shedeur-sanders-browns-giants-visit/
+
+**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
+`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
+.`\
+https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
+
 **Blue Jackets' Cayden Lindstrom could miss season, but his path to the NHL could be fascinating**\
 `While some aspects of Lindstrom's recovery and future are coming into focus, others, like his return to the WHL, are no longer set in stone.`\
 https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-prospect-future-nhl/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/02/12/dining/chocolate.html
 **One Wordless, Animated Cat Movie. Two Oscar Nominations.**\
 `Gints Zilbalodis’s “Flow” is the first Latvian film to get Academy Award nods, for animated feature and international feature. The director talks about the film’s journey.`\
 https://nytimes.com/2025/02/12/movies/gints-zilbalodis-interview-flow.html
-
-**7 Unforgettable Dogs at Westminster**\
-`Monty the giant schnauzer took home best in show, but each of the group winners left a lasting impression.`\
-https://nytimes.com/2025/02/12/style/westminster-dog-show-best-in-show.html
-
-**A Lost Silent Film About Lincoln Was Unearthed by an Intern**\
-`“The Heart of Lincoln,” a 1922 movie directed by the pioneering filmmaker Francis Ford, was found at a stock-footage library on Long Island.`\
-https://nytimes.com/2025/02/12/movies/abraham-lincoln-silent-film-long-island.html
 
