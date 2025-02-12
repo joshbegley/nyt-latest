@@ -1,3 +1,7 @@
+**Inflation Stayed Sticky in January, Keeping Fed Rate Cuts at Bay**\
+`The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
+https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
+
 **College basketball mailbag: Mid-major leagues getting multiple bids? Hubert Davis' fate at UNC?**\
 `What can be done about all the disruptions at the end of games? Why are some of the former Pac-12 teams struggling in the Big 12?`\
 https://nytimes.com/athletic/6131100/2025/02/12/mens-college-basketball-ncaa-tournament-bids-unc/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html
 **Philadelphia Will Close Schools for Super Bowl Parade**\
 `Nearly 200,000 students in Philadelphia’s schools will be free to attend the public celebration on Friday of the Eagles’ Super Bowl victory.`\
 https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-parade.html
-
-**Kevin Paredes: How Marvel marathons and copycat Chipotle helped USMNT man find 'joy' away from football**\
-`After impressing at the Olympics, the 21-year-old's momentum has been halted by injury - coping with that has been a test of character`\
-https://nytimes.com/athletic/6103479/2025/02/12/usmnt-kevin-paredes-injury-interview-wolfsburg/
 
