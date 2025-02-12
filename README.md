@@ -1,3 +1,19 @@
+**A New Kind of Defense Secretary Saves His Ammunition for Domestic Enemies**\
+`Pete Hegseth has spent much of his first weeks in office focused on culture wars while saying little about America’s adversaries.`\
+https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
+
+**Ex-Hochul Aide Accused of Working for China Faces New Bribery Allegation**\
+`Linda Sun, a former deputy chief of staff to the New York governor, is also accused of violating the Foreign Agents Registration Act, according to a superseding indictment.`\
+https://nytimes.com/2025/02/12/business/linda-sun-hochul-aide-china.html
+
+**Denny Hamlin, NASCAR's best driver to never win a title, faces a season of changes**\
+`At age 44, with time running out in his career, Denny Hamlin will have a new logo on the suit and a new voice in his ear in 2025.`\
+https://nytimes.com/athletic/6124257/2025/02/12/denny-hamlin-nascar-daytona-500-sponsor-crew-chief/
+
+**Chevron to Lay Off Up to 20% of Staff**\
+`The second largest U.S. oil company may cut as many as 9,000 workers worldwide in an effort to cut costs.`\
+https://nytimes.com/2025/02/12/business/energy-environment/chevron-layoffs-oil.html
+
 **Natural Gas Could Get Priority Over Renewable Energy in Largest U.S. Grid**\
 `Federal regulators approved a proposal from the nation’s largest grid operator that will give primacy to 50 new power plants, a decision to help meet the country’s growing electricity demand.`\
 https://nytimes.com/2025/02/12/business/energy-environment/gas-power-plants-electric-grid.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6130470/2025/02/12/daytona-500-beach-nascar-city-ti
 **U.N. Calls Bangladesh Protest Crackdown a Possible Crime Against Humanity**\
 `As many as 1,400 people were killed in former Prime Minister Sheikh Hasina’s violent response to a student-led revolt, according to a U.N. inquiry.`\
 https://nytimes.com/2025/02/12/world/asia/bangladesh-hasina-un-report.html
-
-**Frankfurt want Leeds defender Kristensen in permanent transfer**\
-`Eintracht Frankfurt want to make their loan move for Rasmus Kristensen from Leeds United permanent.`\
-https://nytimes.com/athletic/6131359/2025/02/12/rasmus-kristensen-leeds-frankfurt-transfer/
-
-**Trump Says Call With Putin Is Beginning of Ukraine Peace Negotiations**\
-`Among the topics the leaders discussed in their first confirmed conversation of President Trump’s second term was ending the war in Ukraine, he said.`\
-https://nytimes.com/2025/02/12/us/politics/trump-putin-call-russia-ukraine-war.html
-
-**House Republicans Release a Roughly $3 Trillion Budget Outline**\
-`The initial plan calls for $4.5 trillion in tax cuts and at least $1.5 trillion in spending reductions, along with an increase in the debt limit and funds for immigration enforcement.`\
-https://nytimes.com/2025/02/12/us/politics/house-republicans-budget.html
-
-**Leather Hoodies and Flared Pants, Anyone?**\
-`During a mostly ho-hum New York Fashion Week, designers lobbed a few good ideas at their male shoppers.`\
-https://nytimes.com/2025/02/12/style/mens-fashion-new-york-fashion-week-calvin-klein.html
 
