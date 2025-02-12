@@ -1,3 +1,11 @@
+**McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
+`McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
+https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
+
+**Todd Blanche Spends Confirmation Hearing Defending Trump’s Record**\
+`President Trump’s former criminal defense lawyer and pick for deputy attorney general, frequently called out what he considered to be politically motivated legal retaliation against his former client orchestrated by the Department of Justice.`\
+https://nytimes.com/video/us/politics/100000009986177/todd-blanch-confirmation-hearing.html
+
 **'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
 `Wednesday’s first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
 https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/

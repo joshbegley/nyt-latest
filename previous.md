@@ -1,3 +1,11 @@
+**McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
+`McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
+https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
+
+**Todd Blanche Spends Confirmation Hearing Defending Trump’s Record**\
+`President Trump’s former criminal defense lawyer and pick for deputy attorney general, frequently called out what he considered to be politically motivated legal retaliation against his former client orchestrated by the Department of Justice.`\
+https://nytimes.com/video/us/politics/100000009986177/todd-blanch-confirmation-hearing.html
+
 **'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
 `Wednesday’s first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
 https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6131089/2025/02/12/fifa-employee-arrest-florida/
 **Mr. President, Foreign Aid Does Put America First**\
 `U.S.A.I.D. keeps children alive and us safe.`\
 https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
-
-**David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
-`His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
-https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
-
-**The Briefing - Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
-`Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
-https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
 
