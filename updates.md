@@ -1,3 +1,11 @@
+**'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
+`Wednesday’s first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
+https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/
+
+**Gerrit Cole weighs in on Juan Soto's megadeal: 'It's good for the game'**\
+`While Cole praised his fellow Boras Corp. client, he also spoke highly of the Yankees' offseason moves following Soto's departure.`\
+https://nytimes.com/athletic/6132209/2025/02/12/gerrit-cole-yankees-juan-soto/
+
 **Google Calendar Deletes Women’s History Month and Other Cultural Events**\
 `The Silicon Valley giant said it made the change last year because it was difficult to keep up with every occasion, but some users questioned the decision.`\
 https://nytimes.com/2025/02/12/technology/google-black-history-womens-history.html
