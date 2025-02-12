@@ -1,3 +1,7 @@
+**The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power
+
 **Q&A with Braves' Chris Sale: On winning Cy Young, team's offseason and more**\
 `The Cy Young winner knows the Mets and Dodgers spent boatloads in the offseason but said: "I like our chances as much as anybody."`\
 https://nytimes.com/athletic/6132179/2025/02/12/braves-chris-sale-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/style/dressing-in-the-manosphere-new-york-fashion
 **Brock Nelson on 'break' from trade talk, Auston Matthews kicked off the team, more: U.S. 4 Nations notes**\
 `Also can Connor Hellebuyck rise to the moment, Chris Kreider on the outside looking in and Charlie McAvoy shocked by fans' comments.`\
 https://nytimes.com/athletic/6132153/2025/02/12/brock-nelson-auston-matthews-team-usa-4-nations/
-
-**N.Y.P.D. Officer Who Fatally Shot Driver Should Be Fired, Judge Says**\
-`Lt. Jonathan Rivera was a sergeant in October 2019 when he shot Allan Feliz during a struggle in the Bronx. An administrative judge found him guilty of first-degree assault.`\
-https://nytimes.com/2025/02/12/nyregion/jonathan-rivera-allan-feliz-police-discipline.html
 

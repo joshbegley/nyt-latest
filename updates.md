@@ -1,3 +1,7 @@
+**The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power
+
 **Q&A with Braves' Chris Sale: On winning Cy Young, team's offseason and more**\
 `The Cy Young winner knows the Mets and Dodgers spent boatloads in the offseason but said: "I like our chances as much as anybody."`\
 https://nytimes.com/athletic/6132179/2025/02/12/braves-chris-sale-interview/
