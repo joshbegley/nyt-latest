@@ -1,3 +1,7 @@
+**Carnegie Hall’s New Season: What We’re Excited to Hear**\
+`Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
+https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
+
 **‘Night Sings Its Songs’ Review: Scenes From a Miserable Marriage**\
 `A play by the Nobel winner Jon Fosse gets a rare staging, but New Yorkers will have to wait a little longer to see a production that captures the Norwegian writer’s haunting universe.`\
 https://nytimes.com/2025/02/12/theater/night-sings-its-songs-review-fosse.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6131406/2025/02/12/bulls-pistons-nba-loss-boos-fans
 **Trump’s Education Plans and America’s Most Vulnerable Students**\
 `Hobbling the Department of Education means parents can’t hold states accountable for services.`\
 https://nytimes.com/2025/02/12/opinion/trump-education-disability.html
-
-**‘Ultrahigh Energy’ Neutrino Found With a Telescope Under the Sea**\
-`It’s the most energetic particle of its kind ever discovered, and scientists have no idea where it came from.`\
-https://nytimes.com/2025/02/12/science/astrophysics-universe-neutrinos.html
 
