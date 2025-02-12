@@ -1,3 +1,11 @@
+**World Cup of Hockey will return in 2028 as in-season tournament, NHL and NHLPA announce**\
+`The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
+https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
+
+**Champions league knockout betting review: who are the bookies second-leg favourites?**\
+` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
+https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
+
 **Van Dijk accuses Doucoure of 'provoking' fans as Merseyside derby ends in fracas**\
 `Red cards were issued to Abdoulaye Doucoure and Curtis Jones as well as Liverpool manager Arne Slot and his assistant Sipke Hulshoff.`\
 https://nytimes.com/athletic/6132651/2025/02/12/liverpool-everton-merseyside-derby-altercation/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-da
 **Milan suffered a road loss to Feyenoord to open their knockout playoff**\
 `The USMNT star and his team will need a second leg fightback to remain in the competition`\
 https://nytimes.com/athletic/6132629/2025/02/12/ac-milan-feyenoord-champions-league-pulisic/
-
-**FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
-`The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
-https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
-
-**McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
-`McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
-https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
 
