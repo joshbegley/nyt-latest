@@ -1,3 +1,7 @@
+**Patriots mailbag: Submit your offseason questions for writer Chad Graff**\
+`With a busy stretch on the horizon for the Patriots, drop your questions here for a mailbag that will publish in the coming weeks.`\
+https://nytimes.com/athletic/6131706/2025/02/12/patriots-offseason-mailbag-chad-graff/
+
 **Department of Education rescinds Title IX guidance relating to NIL payments**\
 `How Title IX would factor into schools' revenue-sharing decisions has been a lingering question.`\
 https://nytimes.com/athletic/6131665/2025/02/12/title-ix-nil-college-sports-department-of-education/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-p
 **Blue Jackets' Cayden Lindstrom could miss season, but his path to the NHL could be fascinating**\
 `While some aspects of Lindstrom's recovery and future are coming into focus, others, like his return to the WHL, are no longer set in stone.`\
 https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-prospect-future-nhl/
-
-**Ozempic Can Curb Drinking, New Research Shows**\
-`Scientists have several theories about how the drug might reduce alcohol cravings.`\
-https://nytimes.com/2025/02/12/well/ozempic-alcohol-use.html
 
