@@ -1,3 +1,11 @@
+**Musk and Trump Appear Together in the Oval Office**\
+`Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
+https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html
+
+**A code name, ACC ‘in financial decline': Documents reveal UNC’s conference realignment approach**\
+`UNC’s behind-closed-doors exploration of conference realignment and its future in the ACC was known by only a code name. `\
+https://nytimes.com/athletic/6130428/2025/02/11/north-carolina-conference-realignment-documents-acc/
+
 **Enjoying the Pinnacle of Power, Musk Holds Court on Trump’s Stage**\
 `The president let the spotlight in the Oval Office go to his billionaire friend/budget slasher, who cited blank checks and 150-year-old Social Security beneficiaries to justify purging the federal work force.`\
 https://nytimes.com/2025/02/11/us/politics/trump-musk.html
