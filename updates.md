@@ -1,3 +1,7 @@
+**'Getting back to my roots': Inside Iga Swiatek's time machine**\
+`In an exclusive interview, Iga Swiatek discusses her evolution as a tennis player and off-court joy.`\
+https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
+
 **Kremlin Says U.S. Will Release a Russian in American Custody**\
 `Moscow said a Russian imprisoned in the U.S. would be freed “in the coming days” after the release of an American schoolteacher.`\
 https://nytimes.com/2025/02/12/world/europe/russia-us-prisoner-exchange-marc-fogel.html
