@@ -1,3 +1,7 @@
+**Arsenal's Havertz set to miss rest of season with torn hamstring**\
+`The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
+https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
+
 **Two Trump Loyalists**\
 `We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
 https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
