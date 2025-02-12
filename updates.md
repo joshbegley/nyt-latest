@@ -1,3 +1,20 @@
+**Patriots mailbag: Submit your offseason questions for writer Chad Graff**\
+`With a busy stretch on the horizon for the Patriots, drop your questions here for a mailbag that will publish in the coming weeks.`\
+https://nytimes.com/athletic/6131706/2025/02/12/patriots-offseason-mailbag-chad-graff/
+
+**Department of Education rescinds Title IX guidance relating to NIL payments**\
+`How Title IX would factor into schools' revenue-sharing decisions has been a lingering question.`\
+https://nytimes.com/athletic/6131665/2025/02/12/title-ix-nil-college-sports-department-of-education/
+
+**How does Jimmy Butler's arrival impact Jonathan Kuminga's future with the Warriors?**\
+`The Warriors already have $139.6 million committed to Steph Curry, Draymond Green and Jimmy Butler. Can they commit to pay Kuminga? `\
+https://nytimes.com/athletic/6129623/2025/02/12/jimmy-butler-jonathan-kuminga-warriors-nba/
+
+**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
+`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
+.`\
+https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
+
 **Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
 `The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
 .`\
