@@ -1,3 +1,11 @@
+**For 2026 Milan Cortina Winter Olympics, NBC taking a page from its Paris playbook**\
+`NBC announced plans for Winter Olympics coverage in 2026 that are modeled on its successful programming strategy for Paris 2024.`\
+https://nytimes.com/athletic/6130348/2025/02/12/2026-milan-cortina-winter-olympics-nbc-programming-strategy/
+
+**Defying Johnson, Graham and Senate G.O.P. Push Their Own Budget Plan**\
+`Senator Lindsey Graham, the South Carolina Republican who relishes being in the middle of the action, is leapfrogging the House G.O.P., which is still tied in knots over a budget blueprint.`\
+https://nytimes.com/2025/02/12/us/politics/lindsey-graham-budget-johnson-senate-house.html
+
 **Canned Tuna Sold at Trader Joe’s and Costco Is Recalled Over Botulism Risks**\
 `Tuna sold in 26 states and in Washington, D.C., was recalled over concerns that it may have been contaminated. The stores affected include Trader Joe’s, Genova, Van Camp’s and H-E-B.`\
 https://nytimes.com/2025/02/12/business/canned-tuna-recall-botulism.html
