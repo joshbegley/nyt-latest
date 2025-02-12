@@ -1,3 +1,7 @@
+**'Getting back to my roots': Inside Iga Swiatek's tennis time machine**\
+`In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
+https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
+
 **Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
 `This year’s deadline was a lot of information in a short amount of time. Let's evaluate everyone's work.`\
 https://nytimes.com/athletic/6128022/2025/02/12/best-nba-trade-deadline-moves-lakers-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/business/trump-inflation-prices.html
 **Trump’s W.H.O. Exit Throws Smallpox Defenses Into Upheaval**\
 `Health experts see his retreat from international cooperation as disrupting the safe-keepers of one of the world’s deadliest pathogens.`\
 https://nytimes.com/2025/02/12/health/smallpox-who-cdc-bioweapons.html
-
-**‘The White Lotus’ Is Coming to Thailand. So Are the Tourists.**\
-`Crowds of visitors descended on Maui and Sicily after the HBO show’s first two seasons. Is the tropical resort island of Koh Samui ready for Season 3?`\
-https://nytimes.com/2025/02/12/travel/white-lotus-thailand.html
 
