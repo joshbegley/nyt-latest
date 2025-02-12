@@ -1,3 +1,11 @@
+**The Briefing — Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
+`Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
+https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
+
+**Without Pennies, What Becomes of Penny Loafers?**\
+`The fashion world pondered the future of the iconic shoe after learning that a presidential order might eliminate the penny.`\
+https://nytimes.com/2025/02/12/style/penny-production-penny-loafers.html
+
 **Disney to Diminish Content Warnings Shown Before Classic Films**\
 `In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
 https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
