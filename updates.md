@@ -1,3 +1,15 @@
+**When Musk’s Team Comes to Your Door**\
+`The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
+https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
+
+**Handshakes and selfies: Giants pitchers are Justin Verlander fans, too**\
+`Verlander is already a well-known commodity to his new Giants teammates, who are eager to learn from him this season.`\
+https://nytimes.com/athletic/6132918/2025/02/12/sf-giants-justin-verlander-introductions/
+
+**Joann, the Arts and Crafts Chain, Will Close 500 Stores Across U.S.**\
+`The announcement came one month after the company’s second bankruptcy filing in less than a year.`\
+https://nytimes.com/2025/02/12/us/joann-fabrics-stores-closing.html
+
 **Mets' David Stearns speaks on Pete Alonso contract, stiff NL competition: Takeaways**\
 `With Alonso back in the fold, the Mets enter 2025 as one of several teams vying for the World Series in a tough National League. `\
 https://nytimes.com/athletic/6132952/2025/02/12/new-york-mets-david-stearns-presser/
