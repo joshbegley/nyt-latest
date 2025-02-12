@@ -1,3 +1,23 @@
+**Eric Adams Case Tests an Ambitious Prosecutor’s Independence**\
+`Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor is her greatest challenge yet.`\
+https://nytimes.com/2025/02/12/nyregion/adams-prosecutor-danielle-sassoon-profile.html
+
+**As Cardinals spring training begins, John Mozeliak continues Nolan Arenado trade attempts**\
+`Neither Arenado nor Mozeliak has set a deadline for a decision. Both are prepared to wait out Alex Bregman's next move.`\
+https://nytimes.com/athletic/6132005/2025/02/12/cardinals-nolan-arenado-trade-talks/
+
+**California’s Scary Product Warning Labels Might Be Working, Study Says**\
+`Products must state if they contain chemicals tied to cancer or other risks. As a result, manufacturers have pulled back from using the chemicals, researchers found.`\
+https://nytimes.com/2025/02/12/climate/california-chemical-warning-labels.html
+
+**Four Takeaways From Tulsi Gabbard’s Road to Confirmation**\
+`It turns out it is very difficult to vote down a president’s choice for a top post.`\
+https://nytimes.com/2025/02/12/us/politics/tulsi-gabbard-confirmation-takeaways.html
+
+**New York Got $80 Million for Migrants. The White House Took It Back.**\
+`The New York City comptroller’s office, which first noticed the missing money, said that the Federal Emergency Management Agency had unilaterally taken the funds from the city’s accounts.`\
+https://nytimes.com/2025/02/12/nyregion/doge-migrant-hotel-shelters.html
+
 **A.P. Accuses White House of Violating First Amendment**\
 `The Associated Press said the White House had blocked its journalists from attending two press events because the news agency had not started using the term Gulf of America.`\
 https://nytimes.com/2025/02/12/business/media/associated-press-gulf-of-america.html
