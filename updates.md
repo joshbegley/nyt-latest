@@ -1,3 +1,19 @@
+**How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
+`The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
+https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
+
+**Assessing the Giants on the roster bubble who are out of options**\
+`How does being out of options impact Villar and others in his situation in Giants camp this spring?`\
+https://nytimes.com/athletic/6127026/2025/02/12/sf-giants-out-of-options-players-2025/
+
+**Watch: How much of a problem is Tottenham's wage bill?**\
+`The Athletic FC Podcast discuss whether Tottenham's low wage bill is holding them back.`\
+https://nytimes.com/athletic/6128894/2025/02/12/tottenham-wage-bill-ambition-tafc/
+
+**Dak Prescott gives health update, thoughts on new coach and Cowboys vs. Eagles**\
+`Prescott is 9-4 all-time against the Eagles, but Philadelphia swept the Cowboys this season for the first time in his nine-year career.`\
+https://nytimes.com/athletic/6130306/2025/02/12/dak-prescott-cowboys-injury-update-eagles/
+
 **Treasury Secretary Expected to Visit Kyiv**\
 `The visit by Scott Bessent will be the first by a Trump official since the president’s return to office and comes amid uncertainty about the future of U.S. support for Ukraine.`\
 https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html

@@ -1,3 +1,19 @@
+**How PSG started using Ousmane Dembele as a No 9 and unlocked the form of his life**\
+`The club needed a goalscorer after Kylian Mbappe left for Real Madrid — it turns out they had one in their ranks already`\
+https://nytimes.com/athletic/6130490/2025/02/12/ousmane-dembele-champions-league-form/
+
+**Assessing the Giants on the roster bubble who are out of options**\
+`How does being out of options impact Villar and others in his situation in Giants camp this spring?`\
+https://nytimes.com/athletic/6127026/2025/02/12/sf-giants-out-of-options-players-2025/
+
+**Watch: How much of a problem is Tottenham's wage bill?**\
+`The Athletic FC Podcast discuss whether Tottenham's low wage bill is holding them back.`\
+https://nytimes.com/athletic/6128894/2025/02/12/tottenham-wage-bill-ambition-tafc/
+
+**Dak Prescott gives health update, thoughts on new coach and Cowboys vs. Eagles**\
+`Prescott is 9-4 all-time against the Eagles, but Philadelphia swept the Cowboys this season for the first time in his nine-year career.`\
+https://nytimes.com/athletic/6130306/2025/02/12/dak-prescott-cowboys-injury-update-eagles/
+
 **Treasury Secretary Expected to Visit Kyiv**\
 `The visit by Scott Bessent will be the first by a Trump official since the president’s return to office and comes amid uncertainty about the future of U.S. support for Ukraine.`\
 https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6129259/2025/02/12/broncos-mock-draft-sean-payton-j
 **'Stop crying your heart out': How Vinicius Junior silenced City's taunts**\
 `The Brazilian underlined his star quality on a night when City fans' jibes fell flat`\
 https://nytimes.com/athletic/6130501/2025/02/12/vinicius-junior-manchester-city-ballon-dor/
-
-**Lowetide: Is Patrick Kane a trade target fit for the Oilers?**\
-`The Oilers might be wise to add Kane in a trade with the Red Wings ahead of the March 7 deadline.`\
-https://nytimes.com/athletic/6128746/2025/02/12/oilers-trade-deadline-patrick-kane/
-
-**‘Dutchman’: An Electrifying Dance of Death**\
-`A newly restored film adaptation of Amiri Baraka’s provocative 1964 play evoking racial and sexual anxiety is showing at the Museum of Modern Art.`\
-https://nytimes.com/2025/02/12/movies/dutchman-moma.html
-
-**Netflix? Amazon? Why the race for F1’s U.S. TV rights could change the sport**\
-`F1’s broadcast rights in the U.S are up for renewal at the end of the year. The outcome of the deal will be critical to the sport's fortunes`\
-https://nytimes.com/athletic/6129337/2025/02/12/f1-tv-rights-netflix-espn-amazon-streaming/
-
-**Arsenal's Havertz set to miss rest of season with torn hamstring**\
-`The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
-https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
 
