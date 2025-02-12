@@ -1,3 +1,15 @@
+**Q&A with Braves' Chris Sale: On winning Cy Young, team's offseason and more**\
+`The Cy Young winner knows the Mets and Dodgers spent boatloads in the offseason but said: "I like our chances as much as anybody."`\
+https://nytimes.com/athletic/6132179/2025/02/12/braves-chris-sale-interview/
+
+**FEMA Seizes $80 Million in Approved Funding for N.Y.C. Migrant Shelters**\
+`The comptroller’s office, which first noticed the missing money, said that the federal agency had unilaterally taken the funds from the city’s accounts.`\
+https://nytimes.com/2025/02/12/nyregion/doge-migrant-hotel-shelters.html
+
+**Flu Cases Are Surging**\
+`At least 24 million cases have been reported so far this season — and the virus is still spreading widely.`\
+https://nytimes.com/2025/02/12/well/flu-season-risk.html
+
 **Christopher Jencks, a Shaper of Views on Economic Inequality, Dies at 88**\
 `His clear prose, illuminating data and novel arguments helped transform debates around issues like public education and welfare reform.`\
 https://nytimes.com/2025/02/12/books/christopher-jencks-dead.html
