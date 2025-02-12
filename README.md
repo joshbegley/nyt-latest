@@ -1,3 +1,15 @@
+**New Hampshire High School Trans Athletes Take Their Fight to Trump**\
+`A lawsuit appears to be the first challenge to the constitutionality of an executive order barring trans athletes from girls’ and women’s sports teams.`\
+https://nytimes.com/2025/02/12/us/trump-trans-girls-women-sports.html
+
+**House Democrats Call for Investigation of Top Justice Officials**\
+`In a letter to the Justice Department’s inspector general, seven former Justice employees who now serve in Congress accused two officials of engaging in “flagrant ethics violations.”`\
+https://nytimes.com/2025/02/12/us/politics/house-democrats-justice-department-trump.html
+
+**Letter From House Democrats on Justice Department Officials**\
+`The letter calls for an investigation of two Justice Department officials: the acting attorney general, Emil Bove, and the interim U.S. attorney for the District of Columbia, Ed Martin/`\
+https://nytimes.com/interactive/2025/02/12/us/politics/12democrats-letter.html
+
 **Watch Adrien Brody Defend His Art in ‘The Brutalist’**\
 `The director Brady Corbet narrates a scene from his film, which is nominated for 10 Academy Awards.`\
 https://nytimes.com/2025/02/12/movies/adrien-brody-the-brutalist-clip.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/nyregion/arrow-linen-apartments-brooklyn.html
 **Museum With Renowned Dinosaur Fossils Gets a $25 Million Gift**\
 `The Carnegie Museum of Natural History in Pittsburgh, home to the Tyrannosaurus rex holotype and a famous Diplodocus, will benefit from Carole and Daniel Kamin’s donation.`\
 https://nytimes.com/2025/02/12/arts/design/carnegie-museum-pittsburgh-dinosaurs-donation.html
-
-**Swiss sweep men's team combined at world championships as Americans just miss medal**\
-`Ryan Cochran-Siegle and Ben Ritchie nearly won a surprise medal Wednesday at the world championships, finishing fourth in the team combined.`\
-https://nytimes.com/athletic/6131280/2025/02/12/switzerland-team-combined-skiing-world-championships-ryan-cochran-siegle/
-
-**Hegseth Says Return to Ukraine’s Prewar Borders Is ‘Unrealistic’**\
-`In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
-https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
-
-**Tom Brady buys stake in sports card and memorabilia retailer**\
-`The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
-https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
 
