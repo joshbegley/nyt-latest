@@ -1,3 +1,15 @@
+**Czech Dam Project Was Stalled by Bureaucracy. Beavers Built Their Own.**\
+`The dam project, drafted in 2018 and based on a former military training site south of Prague, had been delayed by land negotiations. Local beavers built several dams, saving the government more than one million euros.`\
+https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bureaucracy-beavers-built-their-own.html
+
+**Can the Tigers build on last year's magic? Inside Day 1 of spring training**\
+`Optimism abounds in Lakeland, but Alex Bregman's decision looms large over the Tigers' chances of returning to the playoffs.`\
+https://nytimes.com/athletic/6132515/2025/02/12/detroit-tigers-spring-training-day-1/
+
+**World Cup of Hockey will return as in-season tournament in 2028**\
+`The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
+https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
+
 **Champions league knockout betting review: Who are the bookmakers' second-leg favourites?**\
 ` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
 https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
