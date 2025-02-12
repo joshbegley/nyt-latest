@@ -1,3 +1,15 @@
+**Trump and Musk Hunt for Corruption, Very Selectively**\
+`Spending that the White House does not like is being labeled fraudulent. At the same time, President Trump is rolling back anticorruption efforts and ethical standards for himself and allies like Elon Musk.`\
+https://nytimes.com/2025/02/12/us/politics/trump-musk-corruption.html
+
+**G.S.A. begins staff cuts, targeting probationary employees.**\
+`By Kate Conger and Madeleine Ngo`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/gsa-begins-staff-cuts-targeting-probationary-employees
+
+**'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
+`Thursday's first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
+https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/
+
 **Three unanswered Yankees questions as spring training begins**\
 `The Yankees still need to figure out their starting third baseman, leadoff hitter and more in the next six weeks. `\
 https://nytimes.com/athletic/6132601/2025/02/12/yankees-spring-training-questions/
