@@ -1,3 +1,7 @@
+**Trump’s Resignation Program for Federal Workers Can Proceed, Judge Rules**\
+`The decision was a win for the Trump administration, which has been stymied by a series of other court rulings in recent days. The judge said the plaintiffs lacked standing.`\
+https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
+
 **World Cup of Hockey will return in 2028 as in-season tournament, NHL and NHLPA announce**\
 `The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
 https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/science/measles-vaccination-texas.html
 **Trump and Putin Discussed the War in Ukraine**\
 `Also, scientists suggest that Ozempic can curb drinking. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-day.html
-
-**Milan suffered a road loss to Feyenoord to open their knockout playoff**\
-`The USMNT star and his team will need a second leg fightback to remain in the competition`\
-https://nytimes.com/athletic/6132629/2025/02/12/ac-milan-feyenoord-champions-league-pulisic/
 
