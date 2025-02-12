@@ -1,3 +1,15 @@
+**Is This a Constitutional Crisis?**\
+`Readers discuss the showdown with President Trump. Also: A report on nature; Hank Azaria’s voice; A.I. jobs; attacks on diversity.`\
+https://nytimes.com/2025/02/12/opinion/trump-constitutional-crisis.html
+
+**Ohio State hiring Matt Patricia as defensive coordinator**\
+`Patricia will be tasked with keeping Ohio State’s defense as one of the best in the country, despite losing seven starters.`\
+https://nytimes.com/athletic/6131976/2025/02/12/matt-patricia-ohio-state-defensive-coordinator-hiring/
+
+**Environmentalists Gear Up to Fight Trump in Court**\
+`As Trump pledges regulatory rollbacks, environmental groups say the administration’s aggressive cost-cutting tactics could make it easier for them to win some long-term battles.`\
+https://nytimes.com/2025/02/12/climate/environmental-legal-strategy-lawsuit.html
+
 **Video Shows Kilauea Volcano in Hawaii Erupting Again**\
 `Hawaii’s most active volcano has been erupting intermittently since December. The latest episode sent lava more than 300 feet into the air.`\
 https://nytimes.com/2025/02/12/us/hawaii-volcano-eruption-kilauea.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
 **Ex-Hochul Aide Accused of Working for China Faces New Bribery Allegation**\
 `Linda Sun, a former deputy chief of staff to the New York governor, is also accused of violating the Foreign Agents Registration Act, according to a superseding indictment.`\
 https://nytimes.com/2025/02/12/business/linda-sun-hochul-aide-china.html
-
-**Denny Hamlin, NASCAR's best driver to never win a title, faces a season of changes**\
-`At age 44, with time running out in his career, Denny Hamlin will have a new logo on the suit and a new voice in his ear in 2025.`\
-https://nytimes.com/athletic/6124257/2025/02/12/denny-hamlin-nascar-daytona-500-sponsor-crew-chief/
-
-**Chevron to Lay Off Up to 20% of Staff**\
-`The second largest U.S. oil company may cut as many as 9,000 workers worldwide in an effort to cut costs.`\
-https://nytimes.com/2025/02/12/business/energy-environment/chevron-layoffs-oil.html
-
-**Natural Gas Could Get Priority Over Renewable Energy in Largest U.S. Grid**\
-`Federal regulators approved a proposal from the nation’s largest grid operator that will give primacy to 50 new power plants, a decision to help meet the country’s growing electricity demand.`\
-https://nytimes.com/2025/02/12/business/energy-environment/gas-power-plants-electric-grid.html
 

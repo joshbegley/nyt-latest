@@ -1,3 +1,15 @@
+**Is This a Constitutional Crisis?**\
+`Readers discuss the showdown with President Trump. Also: A report on nature; Hank Azaria’s voice; A.I. jobs; attacks on diversity.`\
+https://nytimes.com/2025/02/12/opinion/trump-constitutional-crisis.html
+
+**Ohio State hiring Matt Patricia as defensive coordinator**\
+`Patricia will be tasked with keeping Ohio State’s defense as one of the best in the country, despite losing seven starters.`\
+https://nytimes.com/athletic/6131976/2025/02/12/matt-patricia-ohio-state-defensive-coordinator-hiring/
+
+**Environmentalists Gear Up to Fight Trump in Court**\
+`As Trump pledges regulatory rollbacks, environmental groups say the administration’s aggressive cost-cutting tactics could make it easier for them to win some long-term battles.`\
+https://nytimes.com/2025/02/12/climate/environmental-legal-strategy-lawsuit.html
+
 **Video Shows Kilauea Volcano in Hawaii Erupting Again**\
 `Hawaii’s most active volcano has been erupting intermittently since December. The latest episode sent lava more than 300 feet into the air.`\
 https://nytimes.com/2025/02/12/us/hawaii-volcano-eruption-kilauea.html
