@@ -1,3 +1,7 @@
+**Google Calendar Deletes Women’s History Month and Other Cultural Events**\
+`The Silicon Valley giant said it made the change last year because it was difficult to keep up with every occasion, but some users questioned the decision.`\
+https://nytimes.com/2025/02/12/technology/google-black-history-womens-history.html
+
 **Dodgers' Shohei Ohtani expected to throw his first bullpen this weekend**\
 `Ohtani won't overdo his intensity as he ramps up for a return to pitching: “It’s gonna be more about touching the slope."`\
 https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
 https://nytimes.com/athletic/6132510/2025/02/12/bill-belichick-unc-football-michael-lombardi/
 
 **Rich Rodriguez hires WVU legend Pat White as assistant QBs coach**\
-`West Virginia quarterback great Pat White has returned to his alma mater as an assistant quarterbacks coach and assistant to returning head coach Rich Rodriguez, the school announced Wednesday.`\
+`White, a former two-time Big East Offensive Player of the Year, went 35-8 as the Mountaineers’ quarterback from 2005 to '08.`\
 https://nytimes.com/athletic/6132645/2025/02/12/pat-white-west-virginia-rich-rodriguez-staff/
 
 **FIFA suspends employee after arrest on charge of meeting a minor for sex**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/style/penny-production-penny-loafers.html
 **Disney to Diminish Content Warnings Shown Before Classic Films**\
 `In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
 https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
-
-**Nominee for No. 2 Official at Justice Dept., Todd Blanche, Denounces Treatment of Trump**\
-`Mr. Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
-https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html
 
