@@ -1,3 +1,7 @@
+**Mr. President, Foreign Aid Does Put America First**\
+`U.S.A.I.D. keeps children alive and us safe.`\
+https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
+
 **David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
 `His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
 https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html

@@ -1,3 +1,7 @@
+**Mr. President, Foreign Aid Does Put America First**\
+`U.S.A.I.D. keeps children alive and us safe.`\
+https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
+
 **David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
 `His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
 https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/sonya-massey-shooting-settlement.html
 **LFP launches legal action against DAZN over payment for Ligue 1 rights**\
 `DAZN has made it clear it either wants to renegotiate a much lower annual fee or activate the break-clause in its deal with LFP.`\
 https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
-
-**FC Dallas acquires Luciano Acosta from Cincinnati for record $5 million**\
-`Acosta won the Landon Donovan MLS MVP award in 2023, scoring 17 goals and adding 14 assists in the regular season.`\
-https://nytimes.com/athletic/6132342/2025/02/12/fc-dallas-acquires-luciano-acosta-cincinnati/
 
