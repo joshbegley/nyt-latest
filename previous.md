@@ -1,4 +1,4 @@
-**'Getting back to my roots': Inside Iga Swiatek's tennis time machine**\
+**'Getting back to my roots': Inside Iga Swiatek's time machine**\
 `In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
 https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
 
