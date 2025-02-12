@@ -1,3 +1,7 @@
+**Inflation Stayed Sticky in January, Keeping Fed Rate Cuts at Bay**\
+`The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
+https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
+
 **College basketball mailbag: Mid-major leagues getting multiple bids? Hubert Davis' fate at UNC?**\
 `What can be done about all the disruptions at the end of games? Why are some of the former Pac-12 teams struggling in the Big 12?`\
 https://nytimes.com/athletic/6131100/2025/02/12/mens-college-basketball-ncaa-tournament-bids-unc/
