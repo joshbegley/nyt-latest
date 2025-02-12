@@ -1,3 +1,15 @@
+**Disney to Diminish Content Warnings Shown Before Classic Films**\
+`In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
+https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
+
+**Nominee for No. 2 Official at Justice Dept., Todd Blanche, Decries Treatment of Trump**\
+`Todd Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
+https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html
+
+**Two Brothers Bring Their Love of Venice to Watches**\
+`The Venezianico brand now has five collections, with designs inspired by the city’s heritage.`\
+https://nytimes.com/2025/02/12/fashion/watches-venezianico-italy.html
+
 **Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
 `Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html

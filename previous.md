@@ -1,3 +1,15 @@
+**Disney to Diminish Content Warnings Shown Before Classic Films**\
+`In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
+https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
+
+**Nominee for No. 2 Official at Justice Dept., Todd Blanche, Decries Treatment of Trump**\
+`Todd Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
+https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html
+
+**Two Brothers Bring Their Love of Venice to Watches**\
+`The Venezianico brand now has five collections, with designs inspired by the city’s heritage.`\
+https://nytimes.com/2025/02/12/fashion/watches-venezianico-italy.html
+
 **Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
 `Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/weather/100000009987237/virginia-mid-atlantic-snow-sto
 **Australian Health Workers Suspended After Threatening Israeli Patients**\
 `Prime Minister Anthony Albanese of Australia denounced the comments, caught on video amid a spate of antisemitic incidents, as “sickening and shameful.”`\
 https://nytimes.com/2025/02/12/world/australia/australia-health-workers-antisemitism.html
-
-**Chelsea forward Jackson to be out until April with injury**\
-`The forward picked up the problem in the 2-1 victory against West Ham United on February 3`\
-https://nytimes.com/athletic/6132413/2025/02/12/chelsea-nicolas-jackson-injury/
-
-**Spurs at Celtics: How to watch Wembanyama and Fox take on the defending champions**\
-`Victor Wembanyama and De'Aaron Fox visit formidable Boston ahead of the NBA's All-Star break.`\
-https://nytimes.com/athletic/6129879/2025/02/12/spurs-celtics-how-to-watch-preview-wembanyama-fox-tatum/
-
-**Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
-`Plus, Thailand braces for the “White Lotus” effect.`\
-https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
 
