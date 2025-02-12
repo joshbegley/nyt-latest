@@ -1,3 +1,7 @@
+**Leeds have replaced individual brilliance with collective balance - and are better for it**\
+`A 4-0 midweek win at Watford showed that this season's squad is proving greater than the sum of its parts`\
+https://nytimes.com/athletic/6130552/2025/02/12/leeds-squad-balance-championship-title-race/
+
 **Jimmy Kimmel Pokes Fun at Trump’s Hatred of Paper Straws**\
 `“Listen, the fact of the matter is Trump loves plastic,” Kimmel said. “Most of his wives are made of plastic.”`\
 https://nytimes.com/2025/02/12/arts/television/jimmy-kimmel-trump-paper-straws.html

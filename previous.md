@@ -1,3 +1,7 @@
+**Leeds have replaced individual brilliance with collective balance - and are better for it**\
+`A 4-0 midweek win at Watford showed that this season's squad is proving greater than the sum of its parts`\
+https://nytimes.com/athletic/6130552/2025/02/12/leeds-squad-balance-championship-title-race/
+
 **Jimmy Kimmel Pokes Fun at Trump’s Hatred of Paper Straws**\
 `“Listen, the fact of the matter is Trump loves plastic,” Kimmel said. “Most of his wives are made of plastic.”`\
 https://nytimes.com/2025/02/12/arts/television/jimmy-kimmel-trump-paper-straws.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
 **What Modi and India Can Offer Trump on Tariffs and Trade**\
 `As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
 https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
-
-**Real Madrid's stars needed to show a collective effort to beat City - and they did**\
-`The celebrations that followed told you this was a big moment for a young Madrid team`\
-https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
 
