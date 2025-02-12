@@ -1,3 +1,7 @@
+**Where Trump, Musk and DOGE Have Cut Federal Workers So Far**\
+`President Trump and Elon Musk have spent three weeks slashing federal jobs — often in defiance of legal limits — and there are more to come. These are the reported cuts to date.`\
+https://nytimes.com/interactive/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
+
 **Trump Orders Plans for ‘Large Scale’ Work Force Cuts and Expands Musk’s Power**\
 `The latest executive order by the president made clear that the billionaire’s cost-cutting team will have continuing oversight of the Civil Service.`\
 https://nytimes.com/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
