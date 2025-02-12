@@ -1,3 +1,11 @@
+**Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
+`This year’s deadline was a lot of information in a short amount of time. Let's evaluate everyone's work.`\
+https://nytimes.com/athletic/6128022/2025/02/12/best-nba-trade-deadline-moves-lakers-mavericks/
+
+**For the Mets, Kodai Senga is the ultimate X-factor**\
+`The rotation needs to be prepared to carry the Mets' load and a healthy Senga can take a big part of it on his shoulders.`\
+https://nytimes.com/athletic/6130359/2025/02/12/mets-kodai-senga-comeback-2025/
+
 **Brandon Ingram's extension will result in tough decisions for Raptors**\
 `A good deal for Brandon Ingram might not be so good for the Raptors. `\
 https://nytimes.com/athletic/6130426/2025/02/12/brandon-ingrams-extension-raptors/
