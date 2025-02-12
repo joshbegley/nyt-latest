@@ -1,3 +1,7 @@
+**Travis Kelce contemplates future in first media appearance since Super Bowl LIX loss**\
+`Kelce is "kicking every can I can down the road" regarding retirement, but did offer insight into the wear Super Bowl runs take on players.`\
+https://nytimes.com/athletic/6131432/2025/02/12/travis-kelce-retirement-new-heights-super-bowl/
+
 **With Attack on Consumer Bureau, Musk Removes Obstacle to His ‘X Money’ Vision**\
 `Former officials at the Consumer Financial Protection Bureau said Elon Musk’s payment-business aspirations were driving his efforts to hobble the agency.`\
 https://nytimes.com/2025/02/12/business/elon-musk-cfpb-x-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/theater/night-sings-its-songs-review-fosse.html
 **If you're a Sidney Crosby fan, the 4 Nations Face-Off is worth your attention**\
 `If you like Sidney Crosby, you should watch the 4 Nations Face-Off. You're sure to see something unforgettable.`\
 https://nytimes.com/athletic/6131370/2025/02/12/sidney-crosby-4-nations-face-off-canada/
-
-**Shedeur Sanders says his first top-30 visit is with Browns, then Giants**\
-`Sanders already met with the Titans, Giants and Browns at the Shrine Bowl — the teams that hold the top three picks in the draft.`\
-https://nytimes.com/athletic/6131486/2025/02/12/shedeur-sanders-browns-giants-visit/
 
