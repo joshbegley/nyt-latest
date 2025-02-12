@@ -1,40 +1,40 @@
-**Kremlin Says U.S. Will Release a Russian in American Custody**\
-`Moscow said a Russian imprisoned in the U.S. would be freed “in the coming days” after the release of an American schoolteacher.`\
-https://nytimes.com/2025/02/12/world/europe/russia-us-prisoner-exchange-marc-fogel.html
+**'He's got a gift': Islanders prospect Cole Eiserman scores big goals wherever he goes**\
+`The Islanders' first-round pick in 2024 isn't afraid to celly like his NHL idol when he finds the net, and he does both a lot.`\
+https://nytimes.com/athletic/6129017/2025/02/12/cole-eiserman-new-york-islanders-prospect-big-goals/
 
-**Eno Sarris’ 2025 starting pitcher fantasy rankings with Stuff+ powered projections**\
-`The Stuff+ projections are back with more information than ever to help steer you toward the starting pitchers who can help win your league.`\
-https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher-fantasy-rankings-stuff-plus-projections/
+**What each AFC playoff team needs this offseason to compete again in 2025**\
+`Where can the Steelers, Broncos, Chargers, Ravens, Texans, Bills and Chiefs improve before the 2025 NFL season begins?`\
+https://nytimes.com/athletic/6129309/2025/02/12/afc-offseason-priorities-bills-chiefs-steelers/
 
-**Ranking Browns' top unrestricted free agents: Will Nick Chubb return?**\
-`We take a look at Cleveland's top free agents and make predictions on whether they'll return or sign elsewhere this offseason.`\
-https://nytimes.com/athletic/6128736/2025/02/12/browns-free-agents-nick-chubb/
+**Chubby Checker, Phish and Outkast Among Rock Hall Nominees**\
+`Billy Idol, the Black Crowes and Maná will also appear on the ballot for the first time, alongside Oasis, Joe Cocker, Mariah Carey and others.`\
+https://nytimes.com/2025/02/12/arts/music/rock-hall-nominees-chubby-checker-phish-outkast.html
 
-**'Getting back to my roots': Inside Iga Swiatek's time machine**\
-`In an exclusive interview, Iga Swiatek discusses her evolution as a tennis player and off-court joy.`\
-https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
+**4 Nations Face-Off tournament explained: Format, TV schedule, teams, rosters and more**\
+`Here's everything you need to know about the upcoming 4 Nations Face-Off event.`\
+https://nytimes.com/athletic/6119121/2025/02/12/four-nations-face-off-tournament-explained/
 
-**Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
-`This year’s deadline was a lot of information in a short amount of time. Let's evaluate everyone's work.`\
-https://nytimes.com/athletic/6128022/2025/02/12/best-nba-trade-deadline-moves-lakers-mavericks/
+**Blues player poll: Who's the worst texter? Best shoe game?**\
+`The Athletic asked 20 Blues players 10 questions about their teammates and got some hysterical responses.`\
+https://nytimes.com/athletic/6081719/2025/02/12/blues-player-poll-2025/
 
-**For the Mets, Kodai Senga is the ultimate X-factor**\
-`The rotation needs to be prepared to carry the Mets' load and a healthy Senga can take a big part of it on his shoulders.`\
-https://nytimes.com/athletic/6130359/2025/02/12/mets-kodai-senga-comeback-2025/
+**More Power for Elon Musk, and the Risk of Lithium-Ion Batteries**\
+`Plus, who isn’t in the Rock & Roll Hall of Fame.`\
+https://nytimes.com/2025/02/12/podcasts/the-headlines/elon-musk-lithium-ion-batteries.html
 
-**Brandon Ingram's extension will result in tough decisions for Raptors**\
-`A good deal for Brandon Ingram might not be so good for the Raptors. `\
-https://nytimes.com/athletic/6130426/2025/02/12/brandon-ingrams-extension-raptors/
+**A Constitutional Crisis**\
+`Unpacking the debate around President Trump’s executive orders.`\
+https://nytimes.com/2025/02/12/podcasts/the-daily/trump-executive-orders-constitutional-crisis.html
 
-**Cowboys mock draft 1.0: Addressing the trenches and running back are top priorities**\
-`If Ashton Jeanty is available at No. 12, will the Cowboys draft him or do they look to address a different need?`\
-https://nytimes.com/athletic/6128892/2025/02/12/dallas-cowboys-mock-draft-jalon-walker/
+**4 Nations Face-Off storylines: A Leafs-centric tournament viewing guide**\
+`Breaking down some of the best Leafs-centric storylines to watch at the 4 Nations Face-Off tournament.`\
+https://nytimes.com/athletic/6129771/2025/02/12/maple-leafs-4-nations-face-off-schedule/
 
-**Nebraska fortified O-line in the portal but knows development is key to success up front**\
-`If some young players step up in the spring, the Huskers won't have to dip into the portal in April for reinforcements. `\
-https://nytimes.com/athletic/6129893/2025/02/12/nebraska-offensive-line-transfers-recruiting/
+**As Palisades basketball team endures after fires, two NBA coaches provide a respite**\
+`The Palisades boys team carries on after a devastating blow to their lives. On Thursday, they got a boost from Steve Kerr and JJ Redick.`\
+https://nytimes.com/athletic/6128748/2025/02/12/palisades-basketball-team-fires-steve-kerr-jj-redick/
 
-**What's it like to get recruited by Bill Belichick? 'It’s pandemonium'**\
-`High school coaches have used words such as "engaging" and "refreshing" to describe their interactions with the new UNC head coach.`\
-https://nytimes.com/athletic/6128993/2025/02/12/bill-belichick-unc-football-recruiting/
+**Wordle Review No. 1,335**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 13, 2025.`\
+https://nytimes.com/2025/02/12/crosswords/wordle-review-1335.html
 
