@@ -1,3 +1,11 @@
+**Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
+`Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
+https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
+
+**Illinois County to Pay $10 Million After Fatal Shooting of Black Woman**\
+`A Sangamon County deputy fatally shot Sonya Massey, 36, last year, after she called to report a prowler outside her home in Springfield, Ill. The former deputy has been charged with murder.`\
+https://nytimes.com/2025/02/12/us/sonya-massey-shooting-settlement.html
+
 **New Mystics GM and head coach hope to lead franchise back into WNBA's forefront**\
 `The Mystics introduced new general manager Jamila Wideman and new coach Sydney Johnson on Wednesday.`\
 https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-jamila-wideman-sydney-johnson-wnba/
