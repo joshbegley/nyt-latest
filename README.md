@@ -1,3 +1,7 @@
+**Natural Gas Could Get Priority Over Renewable Energy in Largest U.S. Grid**\
+`Federal regulators approved a proposal from the nation’s largest grid operator that will give primacy to 50 new power plants, a decision to help meet the country’s growing electricity demand.`\
+https://nytimes.com/2025/02/12/business/energy-environment/gas-power-plants-electric-grid.html
+
 **Kennedy One Step Closer to Confirmation as Health Secretary After Senate Vote**\
 `The Senate voted along party lines to advance the nomination of Robert F. Kennedy Jr. for health secretary to the floor for a final vote, likely Thursday.`\
 https://nytimes.com/2025/02/12/us/rfk-jr-senate-vote-hhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/house-republicans-budget.html
 **Leather Hoodies and Flared Pants, Anyone?**\
 `During a mostly ho-hum New York Fashion Week, designers lobbed a few good ideas at their male shoppers.`\
 https://nytimes.com/2025/02/12/style/mens-fashion-new-york-fashion-week-calvin-klein.html
-
-**Why Amy Tan Decided Not to Shred Her Archive**\
-`The author of “The Joy Luck Club” once vowed to have her papers destroyed after her death. Now they are going to the University of California, Berkeley.`\
-https://nytimes.com/2025/02/12/arts/amy-tan-archive-berkeley.html
 
