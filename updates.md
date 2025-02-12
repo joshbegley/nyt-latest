@@ -1,3 +1,23 @@
+**Democratic Power Broker in Illinois Is Convicted in Corruption Trial**\
+`Michael J. Madigan, a formidable force in the state’s politics for decades, faced federal charges of racketeering, bribery and conspiracy.`\
+https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.html
+
+**A New Kind of Defense Secretary Saves His Ammunition for Domestic Enemies**\
+`Pete Hegseth has spent much of his first weeks in office focused on culture wars while saying little about America’s adversaries.`\
+https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
+
+**Ex-Hochul Aide Accused of Working for China Faces New Bribery Allegation**\
+`Linda Sun, a former deputy chief of staff to the New York governor, is also accused of violating the Foreign Agents Registration Act, according to a superseding indictment.`\
+https://nytimes.com/2025/02/12/business/linda-sun-hochul-aide-china.html
+
+**Denny Hamlin, NASCAR's best driver to never win a title, faces a season of changes**\
+`At age 44, with time running out in his career, Denny Hamlin will have a new logo on the suit and a new voice in his ear in 2025.`\
+https://nytimes.com/athletic/6124257/2025/02/12/denny-hamlin-nascar-daytona-500-sponsor-crew-chief/
+
+**Chevron to Lay Off Up to 20% of Staff**\
+`The second largest U.S. oil company may cut as many as 9,000 workers worldwide in an effort to cut costs.`\
+https://nytimes.com/2025/02/12/business/energy-environment/chevron-layoffs-oil.html
+
 **Natural Gas Could Get Priority Over Renewable Energy in Largest U.S. Grid**\
 `Federal regulators approved a proposal from the nation’s largest grid operator that will give primacy to 50 new power plants, a decision to help meet the country’s growing electricity demand.`\
 https://nytimes.com/2025/02/12/business/energy-environment/gas-power-plants-electric-grid.html
