@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher
 https://nytimes.com/athletic/6128736/2025/02/12/browns-free-agents-nick-chubb/
 
 **'Getting back to my roots': Inside Iga Swiatek's time machine**\
-`In an exclusive interview, Iga Swiatek explains how her vision for her tennis future requires looking back to her dominant 2022 season.`\
+`In an exclusive interview, Iga Swiatek discusses her evolution as a tennis player and off-court joy.`\
 https://nytimes.com/athletic/6118600/2025/02/12/iga-swiatek-interview-womens-tennis/
 
 **Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
