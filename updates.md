@@ -1,3 +1,7 @@
+**Stocks Drop After Hotter Than Expected Inflation Reading**\
+`Investors are now betting that the Federal Reserve will cut interest rates just once more this year, a drastic shift in expectations since late 2024.`\
+https://nytimes.com/2025/02/12/business/stock-market-inflation.html
+
 **For 2026 Milan Cortina Winter Olympics, NBC taking a page from its Paris playbook**\
 `NBC announced plans for Winter Olympics coverage in 2026 that are modeled on its successful programming strategy for Paris 2024.`\
 https://nytimes.com/athletic/6130348/2025/02/12/2026-milan-cortina-winter-olympics-nbc-programming-strategy/
