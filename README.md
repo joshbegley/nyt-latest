@@ -1,3 +1,11 @@
+**‘Night Sings Its Songs’ Review: Scenes From a Miserable Marriage**\
+`A play by the Nobel winner Jon Fosse gets a rare staging, but New Yorkers will have to wait a little longer to see a production that captures the Norwegian writer’s haunting universe.`\
+https://nytimes.com/2025/02/12/theater/night-sings-its-songs-review-fosse.html
+
+**If you're a Sidney Crosby fan, the 4 Nations Face-Off is worth your attention**\
+`If you like Sidney Crosby, you should watch the 4 Nations Face-Off. You're sure to see something unforgettable.`\
+https://nytimes.com/athletic/6131370/2025/02/12/sidney-crosby-4-nations-face-off-canada/
+
 **Shedeur Sanders says his first top-30 visit is with Browns, then Giants**\
 `Sanders already met with the Titans, Giants and Browns at the Shrine Bowl — the teams that hold the top three picks in the draft.`\
 https://nytimes.com/athletic/6131486/2025/02/12/shedeur-sanders-browns-giants-visit/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/02/12/opinion/trump-education-disability.html
 **‘Ultrahigh Energy’ Neutrino Found With a Telescope Under the Sea**\
 `It’s the most energetic particle of its kind ever discovered, and scientists have no idea where it came from.`\
 https://nytimes.com/2025/02/12/science/astrophysics-universe-neutrinos.html
-
-**Chocolate!**\
-`Chocolate cheesecake with raspberry swirl; chocolate pound cake with strawberry whipped cream; chocolate-covered strawberries. Chocolate.`\
-https://nytimes.com/2025/02/12/dining/chocolate.html
-
-**One Wordless, Animated Cat Movie. Two Oscar Nominations.**\
-`Gints Zilbalodis’s “Flow” is the first Latvian film to get Academy Award nods, for animated feature and international feature. The director talks about the film’s journey.`\
-https://nytimes.com/2025/02/12/movies/gints-zilbalodis-interview-flow.html
 

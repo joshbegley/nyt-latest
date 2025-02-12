@@ -1,3 +1,8 @@
+**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
+`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
+.`\
+https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
+
 **Shedeur Sanders says his first top-30 visit is with Browns, then Giants**\
 `Sanders already met with the Titans, Giants and Browns at the Shrine Bowl — the teams that hold the top three picks in the draft.`\
 https://nytimes.com/athletic/6131486/2025/02/12/shedeur-sanders-browns-giants-visit/
