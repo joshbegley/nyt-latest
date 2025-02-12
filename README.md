@@ -1,6 +1,6 @@
 **FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
 `The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
-https://nytimes.com/2025/02/12/climate/fema-can-freeze-money-for-migrant-shelter-program-in-new-york-judge-says.html
+https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
 
 **McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
 `McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
