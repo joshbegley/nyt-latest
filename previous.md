@@ -1,3 +1,7 @@
+**Trump Orders Plans for ‘Large Scale’ Work Force Cuts and Expands Musk’s Power**\
+`The latest executive order by the president made clear that the billionaire’s cost-cutting team will have continuing oversight of the Civil Service.`\
+https://nytimes.com/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
+
 **The New NIMBY Battle Over the Waste From the L.A. Fires**\
 `Federal and state officials say the temporary sites for processing hazardous waste pose no threat, but residents are worried about their air and water.`\
 https://nytimes.com/2025/02/11/us/wildfires-toxic-waste-sites.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
 **Birds of Paradise Glow on Mating Parade**\
 `The always colorful males light up with biofluorescence, sending off signals.`\
 https://nytimes.com/2025/02/11/science/birds-of-paradise-luminescence.html
-
-**Nuno says Awoniyi suffered broken nose and concussion in incident against Exeter**\
-`The 27-year-old forward was taken off on a stretcher in the FA Cup tie after suffering a head injury.`\
-https://nytimes.com/athletic/6130137/2025/02/11/nottingham-forest-taiwo-awoniyi-injury/
 
