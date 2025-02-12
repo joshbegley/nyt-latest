@@ -1,3 +1,11 @@
+**Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
+`Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
+https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
+
+**Illinois County to Pay $10 Million After Fatal Shooting of Black Woman**\
+`A Sangamon County deputy fatally shot Sonya Massey, 36, last year, after she called to report a prowler outside her home in Springfield, Ill. The former deputy has been charged with murder.`\
+https://nytimes.com/2025/02/12/us/sonya-massey-shooting-settlement.html
+
 **LFP launches legal action against DAZN over payment for Ligue 1 rights**\
 `DAZN has made it clear it either wants to renegotiate a much lower annual fee or activate the break-clause in its deal with LFP.`\
 https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129879/2025/02/12/spurs-celtics-how-to-watch-previ
 **Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
 `Plus, Thailand braces for the “White Lotus” effect.`\
 https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
-
-**New Mystics GM and head coach hope to lead franchise back into WNBA's forefront**\
-`The Mystics introduced new general manager Jamila Wideman and new coach Sydney Johnson on Wednesday.`\
-https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-jamila-wideman-sydney-johnson-wnba/
-
-**Trump and Musk Pull Focus. But Vance Is the One to Watch.**\
-`The vice president is the millennial Republican we should have seen coming.`\
-https://nytimes.com/2025/02/12/opinion/jd-vance-donald-trump.html
 
