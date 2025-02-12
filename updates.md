@@ -1,3 +1,7 @@
+**When Will China’s Leader Talk to Trump?**\
+`Xi Jinping seems to be in no rush to engage with President Trump, who has sent mixed signals about when a call might happen (or whether it already has).`\
+https://nytimes.com/2025/02/12/world/asia/trump-xi-china-talks.html
+
 **Leeds have replaced individual brilliance with collective balance - and are better for it**\
 `A 4-0 midweek win at Watford showed that this season's squad is proving greater than the sum of its parts`\
 https://nytimes.com/athletic/6130552/2025/02/12/leeds-squad-balance-championship-title-race/
