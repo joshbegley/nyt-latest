@@ -1,3 +1,11 @@
+**Department of Education rescinds Title IX guidance relating to NIL payments**\
+`How Title IX would factor into schools' revenue-sharing decisions has been a lingering question.`\
+https://nytimes.com/athletic/6131665/2025/02/12/title-ix-nil-college-sports-department-of-education/
+
+**How does Jimmy Butler's arrival impact Jonathan Kuminga's future with the Warriors?**\
+`The Warriors already have $139.6 million committed to Steph Curry, Draymond Green and Jimmy Butler. Can they commit to pay Kuminga? `\
+https://nytimes.com/athletic/6129623/2025/02/12/jimmy-butler-jonathan-kuminga-warriors-nba/
+
 **Everton warned over Stake sponsorship**\
 `The UK Gambling Commission confirmed it will be writing to Everton to warn them of the risks of the promotion of unlawful gambling sites.`\
 https://nytimes.com/athletic/6131433/2025/02/12/everton-stake-sponsorship-shirt/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-pr
 **Ozempic Can Curb Drinking, New Research Shows**\
 `Scientists have several theories about how the drug might reduce alcohol cravings.`\
 https://nytimes.com/2025/02/12/well/ozempic-alcohol-use.html
-
-**Republicans Love Trump’s Spending Cuts. Just Not in Their States.**\
-`Even as they praise the president’s unilateral actions to slash federal spending, G.O.P. lawmakers have quietly moved to seek carve outs or exemptions for their own constituents.`\
-https://nytimes.com/2025/02/12/us/politics/trump-spending-republicans-agriculture-research.html
-
-**A 40-point Bulls loss brought out the boos in Chicago: 'We probably deserved it'**\
-`“We didn’t give them anything to cheer for. We were down 40 in the first half, and that’s not acceptable,” Bulls Josh Giddey said.`\
-https://nytimes.com/athletic/6131406/2025/02/12/bulls-pistons-nba-loss-boos-fans/
 
