@@ -1,3 +1,7 @@
+**Swiss sweep men's team combined at world championships as Americans just miss medal**\
+`Ryan Cochran-Siegle and Ben Ritchie nearly won a surprise medal Wednesday at the world championships, finishing fourth in the team combined.`\
+https://nytimes.com/athletic/6131280/2025/02/12/swiss-sweep-mens-team-combined-at-worlds-as-american-duo-just-misses-medal/
+
 **Hegseth Says Return to Ukraine’s Pre-War Borders Is ‘Unrealistic’**\
 `In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
 https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6130846/2025/02/12/manchester-city-real-madrid-prob
 **How to Prepare for Your Digital Afterlife**\
 `When planning your estate, leave instructions for handling your online accounts, data and other electronic affairs.`\
 https://nytimes.com/2025/02/12/technology/personaltech/social-media-accounts-death.html
-
-**Why Doesn’t My Son’s Adviser Understand That Boys Will Be Boys?**\
-`A father objects to his son’s punishment after a rowdy “tickle fight” in a darkened room, but an adviser isn’t budging on the decision to bar the boy from a future activity.`\
-https://nytimes.com/2025/02/12/style/boys-will-be-boys-excuse.html
 
