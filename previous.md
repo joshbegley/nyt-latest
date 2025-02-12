@@ -1,3 +1,19 @@
+**Is Trump Helping You or Hurting You? A Cautionary Tale.**\
+`By setting aside Mayor Eric Adams’s corruption charges, Trump has effortlessly humiliated Adams and New York’s Democratic establishment.`\
+https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
+
+**Belarus Frees an American and 2 Others as It Tries to Thaw Relations**\
+`Aleksandr G. Lukashenko, Belarus’s autocratic president and Russia’s closest ally, has taken steps to soften his country’s isolation from the West.`\
+https://nytimes.com/2025/02/12/world/europe/belarus-prisoner-release.html
+
+**Japanese stars Yamamoto, Imanaga expected to start MLB's Opening Day in Tokyo**\
+`Dodgers manager Dave Roberts added that Japanese rookie Roki Sasaki could start the second of the two-game set.`\
+https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-mlb-opening-day/
+
+**‘Captain America: Brave New World’ Review: This One’s Red**\
+`The latest Marvel movie introduces a new Captain America in the form of a political thriller.`\
+https://nytimes.com/2025/02/12/movies/captain-america-brave-new-world-review.html
+
 **For the F.A.A., Three Deadly Crashes and a Reckoning**\
 `The agency in charge of air travel safety is facing criticism and demands for change after a yearslong streak of no major commercial jet accidents ended in catastrophe.`\
 https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
 **Virginia Snowstorm Leaves 180,000 Without Power and Causes Havoc on Highways**\
 `More than a foot of snow fell across much of Virginia as wintry weather swept across the Mid-Atlantic. State officials said more than 900 car collisions had been reported.`\
 https://nytimes.com/2025/02/12/us/snow-storm-virginia-power-outage.html
-
-**Eggs Over Easy? Not These Days.**\
-`The soaring cost of eggs is hitting your local breakfast spot hard.`\
-https://nytimes.com/2025/02/12/business/high-egg-prices-restaurants.html
-
-**Submit your Jets trade proposals for Murat Ates’ ‘Who says no?’ mailbag**\
-`Have an idea for a Jets trade ahead of the March 7 deadline? Submit it here and it could be addressed in an upcoming story.`\
-https://nytimes.com/athletic/6132061/2025/02/12/winnipeg-jets-trade-deadline-2025-proposals/
-
-**Luis Rubiales trial: Prosecution say Rubiales enforced 'code of silence' after kissing Hermoso at World Cup**\
-`Prosecutors are asking for a two-and-a-half-year sentence for Rubiales`\
-https://nytimes.com/athletic/6131804/2025/02/12/luis-rubiales-trial-vilda-luque-rivera-testimony/
-
-**A Deep-Sea Fish of Nightmares Strays Into Shallow Waters**\
-`A scary-looking creature with “devil” in its name was spotted close to the surface off Tenerife, a Spanish island.`\
-https://nytimes.com/2025/02/12/science/black-seadevil-anglerfish.html
 

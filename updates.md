@@ -1,3 +1,19 @@
+**Is Trump Helping You or Hurting You? A Cautionary Tale.**\
+`By setting aside Mayor Eric Adams’s corruption charges, Trump has effortlessly humiliated Adams and New York’s Democratic establishment.`\
+https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
+
+**Belarus Frees an American and 2 Others as It Tries to Thaw Relations**\
+`Aleksandr G. Lukashenko, Belarus’s autocratic president and Russia’s closest ally, has taken steps to soften his country’s isolation from the West.`\
+https://nytimes.com/2025/02/12/world/europe/belarus-prisoner-release.html
+
+**Japanese stars Yamamoto, Imanaga expected to start MLB's Opening Day in Tokyo**\
+`Dodgers manager Dave Roberts added that Japanese rookie Roki Sasaki could start the second of the two-game set.`\
+https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-mlb-opening-day/
+
+**‘Captain America: Brave New World’ Review: This One’s Red**\
+`The latest Marvel movie introduces a new Captain America in the form of a political thriller.`\
+https://nytimes.com/2025/02/12/movies/captain-america-brave-new-world-review.html
+
 **For the F.A.A., Three Deadly Crashes and a Reckoning**\
 `The agency in charge of air travel safety is facing criticism and demands for change after a yearslong streak of no major commercial jet accidents ended in catastrophe.`\
 https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
