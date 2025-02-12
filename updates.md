@@ -1,3 +1,7 @@
+**After 3 Die in Fires, Officials Urge Drivers Not to Block Hydrants**\
+`Firefighters had to navigate cars that blocked hydrants in two fires in the Bronx and in Brooklyn. “Seconds count when we’re fighting fire,” said a Fire Department chief.`\
+https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
+
 **Virginia Snowstorm Leaves 180,000 Without Power and Causes Havoc on Highways**\
 `More than a foot of snow fell across much of Virginia as wintry weather swept across the Mid-Atlantic. State officials said more than 900 car collisions had been reported.`\
 https://nytimes.com/2025/02/12/us/snow-storm-virginia-power-outage.html
