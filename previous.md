@@ -1,40 +1,40 @@
-**Death threats, racism, Venmo requests: Dark side of sports betting and its impact on NBA players**\
-`The legalization of sports gambling has led to players being harassed online like never before.`\
-https://nytimes.com/athletic/6077963/2025/02/12/nba-sports-betting-players/
+**Who Pays for Tariffs**\
+`Understanding who will end up paying for the higher costs means understanding how manufacturing, trade and supply chains function — and how costs build along each step of the complex process. Take shoes, for example.`\
+https://nytimes.com/interactive/2025/02/12/business/economy/who-pays-for-tariffs.html
 
-**Vinicius says Man City fans' Ballon d'Or banner 'gave me more strength'**\
-`Ahead of the game, a banner in the Man City end read "Stop crying your heart out" alongside an image of the Ballon d'Or trophy`\
-https://nytimes.com/athletic/6130881/2025/02/12/vinicius-ballon-dor-banner-manchester-city/
+**With High Prices Persisting, Trump Tempers Tone on Slaying Inflation**\
+`President Trump pledged to lower costs on “Day 1” as a candidate. His administration now acknowledges it will take more time.`\
+https://nytimes.com/2025/02/12/business/trump-inflation-prices.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/12/crosswords/spelling-bee-forum.html
+**Trump’s W.H.O. Exit Throws Smallpox Defenses Into Upheaval**\
+`Health experts see his retreat from international cooperation as disrupting the safe-keepers of one of the world’s deadliest pathogens.`\
+https://nytimes.com/2025/02/12/health/smallpox-who-cdc-bioweapons.html
 
-**Manhattan D.A. Would Face Uphill Battle if He Took Adams Case**\
-`Now that the Justice Department has directed federal prosecutors to drop Eric Adams’s case, could Alvin L. Bragg’s office pick it up?`\
-https://nytimes.com/2025/02/12/nyregion/alvin-bragg-adams-state-charges.html
+**‘The White Lotus’ Is Coming to Thailand. So Are the Tourists.**\
+`Crowds of visitors descended on Maui and Sicily after the HBO show’s first two seasons. Is the tropical resort island of Koh Samui ready for Season 3?`\
+https://nytimes.com/2025/02/12/travel/white-lotus-thailand.html
 
-**When Will China’s Leader Talk to Trump?**\
-`Xi Jinping seems to be in no rush to engage with President Trump, who has sent mixed signals about when a call might happen (or whether it already has).`\
-https://nytimes.com/2025/02/12/world/asia/trump-xi-china-talks.html
+**What Is One Skill You Can Do Really Well? What Is One You’d Like to Learn?**\
+`Read about the world champions of spreadsheets and about an adult learning how to swim. Then tell us about your own journey to get good at something.`\
+https://nytimes.com/2025/02/12/learning/what-is-one-skill-you-can-do-really-well-what-is-one-youd-like-to-learn.html
 
-**Leeds have replaced individual brilliance with collective balance - and are better for it**\
-`A 4-0 midweek win at Watford showed that this season's squad is proving greater than the sum of its parts`\
-https://nytimes.com/athletic/6130552/2025/02/12/leeds-squad-balance-championship-title-race/
+**Where the Oscar Race Stands After Two Tumultuous Weeks**\
+`“Emilia Pérez” is hobbled, “Anora” is revitalized and plenty remains up in the air ahead of the March 2 awards ceremony.`\
+https://nytimes.com/2025/02/12/movies/where-the-oscar-race-stands-after-two-tumultuous-weeks.html
 
-**Jimmy Kimmel Pokes Fun at Trump’s Hatred of Paper Straws**\
-`“Listen, the fact of the matter is Trump loves plastic,” Kimmel said. “Most of his wives are made of plastic.”`\
-https://nytimes.com/2025/02/12/arts/television/jimmy-kimmel-trump-paper-straws.html
+**Trump’s War on D.E.I. Is Really a War on Civil Rights**\
+`The genius of the right-wing crusade against D.E.I. is that the term is amorphous enough that it can mean many different things to many different people.`\
+https://nytimes.com/2025/02/12/opinion/trump-dei-meritocracy-civil-right.html
 
-**Playing Chelsea again presents a 'different challenge' - Hurzeler**\
-`Brighton host Chelsea again in the Premier League on Friday night, having knocked them out of the FA Cup with a 2-1 win on Saturday.`\
-https://nytimes.com/athletic/6129361/2025/02/12/fabian-hurzeler-chelsea-brighton/
+**A Turn as Trump Made Sebastian Stan an Unlikely Oscar Nominee**\
+`He is attracting different attention, and some leading man hardware, after standout performances in “The Apprentice” and “A Different Man.”`\
+https://nytimes.com/2025/02/12/movies/sebastian-stan-oscars-apprentice.html
 
-**Word of the Day: obliquely**\
-`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
+**Adams Seeks to Move Past Charges as Questions Remain About Trump’s Sway**\
+`In a speech, Mayor Eric Adams of New York did not address whether the Justice Department’s order that his federal corruption case be dropped would put him in the president’s debt.`\
+https://nytimes.com/2025/02/12/nyregion/adams-seeks-to-move-past-charges-as-questions-remain-about-trumps-sway.html
 
-**Nottingham Forest are the highest-ranked team left in the FA Cup - it's there to be won**\
-`In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
-https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
+**Look Past Elon Musk’s Chaos. There’s Something More Sinister at Work.**\
+`Everything is content.`\
+https://nytimes.com/2025/02/12/opinion/musk-trump-government-takeover.html
 
