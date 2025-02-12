@@ -1,3 +1,11 @@
+**For the F.A.A., Three Deadly Crashes and a Reckoning**\
+`The agency in charge of air travel safety is facing criticism and demands for change after a yearslong streak of no major commercial jet accidents ended in catastrophe.`\
+https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
+
+**‘Henry IV’ Review: Two Plays Become One**\
+`The relationship between Prince Hal and John Falstaff, a favorite of Shakespeare scholars, is the focus of this condensed adaptation.`\
+https://nytimes.com/2025/02/12/theater/henry-iv-review.html
+
 **Mets' longest-tenured pitcher agrees to new deal**\
 `Drew Smith, coming off hybrid Tommy John surgery in July, will likely be back to full strength in 2026.`\
 https://nytimes.com/athletic/6132125/2025/02/12/mets-drew-smith-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6131804/2025/02/12/luis-rubiales-trial-vilda-luque-
 **A Deep-Sea Fish of Nightmares Strays Into Shallow Waters**\
 `A scary-looking creature with “devil” in its name was spotted close to the surface off Tenerife, a Spanish island.`\
 https://nytimes.com/2025/02/12/science/black-seadevil-anglerfish.html
-
-**Trump Nominates Oil and Gas Advocate to Run Bureau of Land Management**\
-`The nominee, Kathleen Sgamma, has worked for nearly two decades on behalf of oil and gas companies in Western states.`\
-https://nytimes.com/2025/02/12/us/kathleen-sgamma-blm-trump.html
-
-**F.C.C. Chair Orders Investigation Into Comcast’s D.E.I. Practices**\
-`The investigation follows inquiries by the agency into NPR, PBS and CBS News.`\
-https://nytimes.com/2025/02/12/business/media/fcc-comcast-nbc-dei-discrimination.html
 
