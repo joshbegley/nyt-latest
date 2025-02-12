@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Two Boyfriends at One Time’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/02/12/style/tiny-modern-love-stories-two-boyfriends-at-one-time.html
+
+**MoneyCall: NFL wins big with Super Bowl viewership**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
+https://nytimes.com/athletic/6130705/2025/02/12/super-bowl-viewership-record-moneycall-newsletter/
+
 **Democratic Power Broker in Illinois Is Convicted in Corruption Trial**\
 `Michael J. Madigan, a formidable force in the state’s politics for decades, faced federal charges of racketeering, bribery and conspiracy.`\
 https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.html

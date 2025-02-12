@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Two Boyfriends at One Time’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/02/12/style/tiny-modern-love-stories-two-boyfriends-at-one-time.html
+
+**MoneyCall: NFL wins big with Super Bowl viewership**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
+https://nytimes.com/athletic/6130705/2025/02/12/super-bowl-viewership-record-moneycall-newsletter/
+
 **Democratic Power Broker in Illinois Is Convicted in Corruption Trial**\
 `Michael J. Madigan, a formidable force in the state’s politics for decades, faced federal charges of racketeering, bribery and conspiracy.`\
 https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/us/rfk-jr-senate-vote-hhs.html
 **Scoop City: Understand Vic Fangio's defense in one play**\
 `Inside: A film breakdown of the Eagles defense, grades for every coaching hire (now that the Saints have officially landed Kellen Moore) and Cam Newton calling out his former Panthers teammates, among other notable quotes.`\
 https://nytimes.com/athletic/6131825/2025/02/12/vic-fangio-defense-explained-nfl-eagles-super-bowl-scoop-city/
-
-**Sean Combs Sues NBC Over Documentary That He Says Defamed Him**\
-`The documentary, “Diddy: Making of a Bad Boy,” began streaming on NBCUniversal’s Peacock platform last month.`\
-https://nytimes.com/2025/02/12/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
-
-**In Daytona Beach, NASCAR's influence goes far beyond Sunday's iconic race**\
-`DAYTONA BEACH, Fla.`\
-https://nytimes.com/athletic/6130470/2025/02/12/daytona-500-beach-nascar-city-ties/
 
