@@ -1,3 +1,11 @@
+**With Attack on Consumer Bureau, Musk Removes Obstacle to His ‘X Money’ Vision**\
+`Former officials at the Consumer Financial Protection Bureau said Elon Musk’s payment-business aspirations were driving his efforts to hobble the agency.`\
+https://nytimes.com/2025/02/12/business/elon-musk-cfpb-x-money.html
+
+**Senate Confirms Gabbard as Top Intelligence Official**\
+`The success of one of President Trump’s more divisive cabinet candidates shows his domination over the Republican Senate.`\
+https://nytimes.com/2025/02/12/us/politics/tulsi-gabbard-senate-confirmation-vote.html
+
 **Patriots mailbag: Submit your offseason questions for writer Chad Graff**\
 `With a busy stretch on the horizon for the Patriots, drop your questions here for a mailbag that will publish in the coming weeks.`\
 https://nytimes.com/athletic/6131706/2025/02/12/patriots-offseason-mailbag-chad-graff/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6131370/2025/02/12/sidney-crosby-4-nations-face-off
 **Shedeur Sanders says his first top-30 visit is with Browns, then Giants**\
 `Sanders already met with the Titans, Giants and Browns at the Shrine Bowl — the teams that hold the top three picks in the draft.`\
 https://nytimes.com/athletic/6131486/2025/02/12/shedeur-sanders-browns-giants-visit/
-
-**Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
-`The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
-.`\
-https://nytimes.com/athletic/6131250/2025/02/12/womens-basketball-podcast-ncaa-programs/
-
-**Blue Jackets' Cayden Lindstrom could miss season, but his path to the NHL could be fascinating**\
-`While some aspects of Lindstrom's recovery and future are coming into focus, others, like his return to the WHL, are no longer set in stone.`\
-https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-prospect-future-nhl/
 
