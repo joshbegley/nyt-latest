@@ -1,3 +1,11 @@
+**Mets' longest-tenured pitcher agrees to new deal**\
+`Drew Smith, coming off hybrid Tommy John surgery in July, will likely be back to full strength in 2026.`\
+https://nytimes.com/athletic/6132125/2025/02/12/mets-drew-smith-contract/
+
+**Answer 4 Questions. Leave With a Romance Novel You’ll Love.**\
+`Tell us a few things about what you like, and we’ll give you a spot-on recommendation.`\
+https://nytimes.com/interactive/2025/02/12/books/romance-novel-quiz.html
+
 **After 3 Die in Fires, Officials Urge Drivers Not to Block Hydrants**\
 `Firefighters had to navigate cars that blocked hydrants in two fires in the Bronx and in Brooklyn. “Seconds count when we’re fighting fire,” said a Fire Department chief.`\
 https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/us/kathleen-sgamma-blm-trump.html
 **F.C.C. Chair Orders Investigation Into Comcast’s D.E.I. Practices**\
 `The investigation follows inquiries by the agency into NPR, PBS and CBS News.`\
 https://nytimes.com/2025/02/12/business/media/fcc-comcast-nbc-dei-discrimination.html
-
-**Top N.I.H. Official Abruptly Resigns as Trump Orders Deep Cuts**\
-`Dr. Lawrence Tabak, the No. 2 official at the National Institutes of Health, did not give a reason for his departure.`\
-https://nytimes.com/2025/02/12/us/politics/national-health-institutes-resignation-trump.html
-
-**A Major Storm Is About to Soak California**\
-`In Southern California, the flooding could be life-threatening in areas burned by wildfires.`\
-https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
 
