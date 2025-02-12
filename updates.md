@@ -1,3 +1,15 @@
+**The N.E.A.’s New Gender and Diversity Edicts Worry Arts Groups**\
+`As the National Endowment for the Arts adjusts to comply with President Trump’s executive orders, “gender ideology” is out and works that “honor the nation’s rich artistic heritage” are in.`\
+https://nytimes.com/2025/02/12/arts/nea-dei-gender.html
+
+**My Partner Cheated and Said It ‘Didn’t Mean Anything.’ How Should I Feel?**\
+`The magazine’s Ethicist columnist on how to handle emotional manipulation from an unfaithful lover.`\
+https://nytimes.com/2025/02/12/magazine/partner-cheated-means-nothing-ethics.html
+
+**Fool's gold? How to bet on Doncic and LA after the blockbuster trade**\
+`Breaking down the best — and worst — props and futures to bet on with Luka on the Lakers. `\
+https://nytimes.com/athletic/6131399/2025/02/12/luka-doncic-trade-lakers-betting-props/
+
 **Travis Kelce contemplates future in first media appearance since Super Bowl LIX loss**\
 `Kelce is "kicking every can I can down the road" regarding retirement, but did offer insight into the wear Super Bowl runs take on players.`\
 https://nytimes.com/athletic/6131432/2025/02/12/travis-kelce-retirement-new-heights-super-bowl/

@@ -1,3 +1,15 @@
+**The N.E.A.’s New Gender and Diversity Edicts Worry Arts Groups**\
+`As the National Endowment for the Arts adjusts to comply with President Trump’s executive orders, “gender ideology” is out and works that “honor the nation’s rich artistic heritage” are in.`\
+https://nytimes.com/2025/02/12/arts/nea-dei-gender.html
+
+**My Partner Cheated and Said It ‘Didn’t Mean Anything.’ How Should I Feel?**\
+`The magazine’s Ethicist columnist on how to handle emotional manipulation from an unfaithful lover.`\
+https://nytimes.com/2025/02/12/magazine/partner-cheated-means-nothing-ethics.html
+
+**Fool's gold? How to bet on Doncic and LA after the blockbuster trade**\
+`Breaking down the best — and worst — props and futures to bet on with Luka on the Lakers. `\
+https://nytimes.com/athletic/6131399/2025/02/12/luka-doncic-trade-lakers-betting-props/
+
 **Travis Kelce contemplates future in first media appearance since Super Bowl LIX loss**\
 `Kelce is "kicking every can I can down the road" regarding retirement, but did offer insight into the wear Super Bowl runs take on players.`\
 https://nytimes.com/athletic/6131432/2025/02/12/travis-kelce-retirement-new-heights-super-bowl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6129623/2025/02/12/jimmy-butler-jonathan-kuminga-wa
 **Everton warned over Stake sponsorship**\
 `The UK Gambling Commission confirmed it will be writing to Everton to warn them of the risks of the promotion of unlawful gambling sites.`\
 https://nytimes.com/athletic/6131433/2025/02/12/everton-stake-sponsorship-shirt/
-
-**Carnegie Hall’s New Season: What We’re Excited to Hear**\
-`Our critics choose a dozen highlights from the season, which heavily features the music of Arvo Pärt and includes series by several artists.`\
-https://nytimes.com/2025/02/12/arts/music/carnegie-hall-2025-2026-season.html
-
-**‘Night Sings Its Songs’ Review: Scenes From a Miserable Marriage**\
-`A play by the Nobel winner Jon Fosse gets a rare staging, but New Yorkers will have to wait a little longer to see a production that captures the Norwegian writer’s haunting universe.`\
-https://nytimes.com/2025/02/12/theater/night-sings-its-songs-review-fosse.html
-
-**If you're a Sidney Crosby fan, the 4 Nations Face-Off is worth your attention**\
-`If you like Sidney Crosby, you should watch the 4 Nations Face-Off. You're sure to see something unforgettable.`\
-https://nytimes.com/athletic/6131370/2025/02/12/sidney-crosby-4-nations-face-off-canada/
 
