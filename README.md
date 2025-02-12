@@ -1,5 +1,5 @@
-**Guardiola's harsh reality? His great City side are coming to an end**\
-`For all their achievements and bursts of quality, age, recurring mistakes and fragility are simply what City are these days`\
+**Guardiola's harsh reality? His great City side is coming to an end**\
+`For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
 https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
 
 **Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
