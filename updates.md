@@ -1,3 +1,7 @@
+**Guardiola's harsh reality? His great City side is coming to an end**\
+`For all their achievements and bursts of quality, age, recurring mistakes and fragility are simply what City are these days`\
+https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
+
 **Trump Greets Freed American Teacher at White House**\
 `President Trump welcomed Marc Fogel hours after the United States secured his release from Russia.`\
 https://nytimes.com/2025/02/11/us/politics/trump-white-house-fogel-russia.html

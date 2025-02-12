@@ -1,3 +1,7 @@
+**Guardiola's harsh reality? His great City side is coming to an end**\
+`For all their achievements and bursts of quality, age, recurring mistakes and fragility are simply what City are these days`\
+https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
+
 **Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
 `Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
 https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
 **FM25 was cancelled - why? What will financial impact be? 'It will probably cost me £25k'**\
 `Football Manager 25 was cancelled last week — this is what it means for the company behind it, fans and content creators`\
 https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-cancellation-explained/
-
-**Trump Greets Freed American Teacher at White House**\
-`President Trump welcomed Marc Fogel hours after the United States secured his release from Russia.`\
-https://nytimes.com/2025/02/11/us/politics/trump-white-house-fogel-russia.html
 
