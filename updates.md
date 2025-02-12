@@ -1,3 +1,7 @@
+**James Franklin takeaways: Updating the coaching staff and the wide receivers situation**\
+`Much has transpired in the past month at Penn State, and Franklin broke it down Tuesday.`\
+https://nytimes.com/athletic/6130271/2025/02/11/penn-state-jim-knowles-james-franklin-running-back-coach/
+
 **Why Canada is giving Jordan Binnington the 4 Nations net with 'full confidence': 'Binner's a winner'**\
 `"He seems really dialed in right now," Team Canada forward Nathan MacKinnon said of his Central Division rival. "Full confidence in him."`\
 https://nytimes.com/athletic/6130257/2025/02/11/jordan-binnington-canada-4-nations-goalie/
