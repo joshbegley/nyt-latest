@@ -1,3 +1,11 @@
+**Champions League briefing: Bayern drown out the noise, and was this the worst penalty award of all time?**\
+`All the big talking points from Wednesday's Champions League playoff matches, including Feyenoord shutting out Milan's Fab Four`\
+https://nytimes.com/athletic/6131300/2025/02/12/champions-league-bayern-penalty-atalanta-pulisic-milan-briefing/
+
+**Joann, the Arts and Crafts Chain, Will Close 500 Stores Across U.S.**\
+`The announcement came one month after the company’s second bankruptcy filing in less than a year.`\
+https://nytimes.com/2025/02/12/us/joann-store-closures-bankruptcy.html
+
 **Free agent WR Kadarius Toney arrested, accused of strangling a woman**\
 `Toney, 26, is also accused of taking the woman's phone to prevent her from calling police.`\
 https://nytimes.com/athletic/6132588/2025/02/12/kadarius-toney-arrested/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
 **World Cup of Hockey will return as in-season tournament in 2028**\
 `The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
 https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
-
-**Champions league knockout betting review: Who are the bookmakers' second-leg favourites?**\
-` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
-https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
-
-**Van Dijk accuses Doucoure of 'provoking' fans as Merseyside derby ends in fracas**\
-`Red cards were issued to Abdoulaye Doucoure and Curtis Jones as well as Liverpool manager Arne Slot and his assistant Sipke Hulshoff.`\
-https://nytimes.com/athletic/6132651/2025/02/12/liverpool-everton-merseyside-derby-altercation/
 

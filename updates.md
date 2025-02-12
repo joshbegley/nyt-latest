@@ -1,3 +1,11 @@
+**Champions League briefing: Bayern drown out the noise, and was this the worst penalty award of all time?**\
+`All the big talking points from Wednesday's Champions League playoff matches, including Feyenoord shutting out Milan's Fab Four`\
+https://nytimes.com/athletic/6131300/2025/02/12/champions-league-bayern-penalty-atalanta-pulisic-milan-briefing/
+
+**Joann, the Arts and Crafts Chain, Will Close 500 Stores Across U.S.**\
+`The announcement came one month after the company’s second bankruptcy filing in less than a year.`\
+https://nytimes.com/2025/02/12/us/joann-store-closures-bankruptcy.html
+
 **Free agent WR Kadarius Toney arrested, accused of strangling a woman**\
 `Toney, 26, is also accused of taking the woman's phone to prevent her from calling police.`\
 https://nytimes.com/athletic/6132588/2025/02/12/kadarius-toney-arrested/
