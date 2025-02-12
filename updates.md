@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/12/crosswords/spelling-bee-forum.html
+
+**Manhattan D.A. Would Face Uphill Battle if He Took Adams Case**\
+`Now that the Justice Department has directed federal prosecutors to drop Eric Adams’s case, could Alvin L. Bragg’s office pick it up?`\
+https://nytimes.com/2025/02/12/nyregion/alvin-bragg-adams-state-charges.html
+
 **When Will China’s Leader Talk to Trump?**\
 `Xi Jinping seems to be in no rush to engage with President Trump, who has sent mixed signals about when a call might happen (or whether it already has).`\
 https://nytimes.com/2025/02/12/world/asia/trump-xi-china-talks.html
