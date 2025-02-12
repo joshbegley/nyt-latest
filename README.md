@@ -1,3 +1,11 @@
+**Trump and Putin Discussed the War in Ukraine**\
+`Also, scientists suggest that Ozempic can curb drinking. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-day.html
+
+**Milan suffered a road loss to Feyenoord to open their knockout playoff**\
+`The USMNT star and his team will need a second leg fightback to remain in the competition`\
+https://nytimes.com/athletic/6132629/2025/02/12/ac-milan-feyenoord-champions-league-pulisic/
+
 **FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
 `The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
 https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
 **Michael Lombardi on UNC under Bill Belichick: 'We consider ourselves the 33rd team'**\
 `A former NFL general manager, Lombardi will serve as North Carolina's GM and help Belichick build the Tar Heels' roster.`\
 https://nytimes.com/athletic/6132510/2025/02/12/bill-belichick-unc-football-michael-lombardi/
-
-**Rich Rodriguez hires WVU legend Pat White as assistant QBs coach**\
-`White, a former two-time Big East Offensive Player of the Year, went 35-8 as the Mountaineers’ quarterback from 2005 to '08.`\
-https://nytimes.com/athletic/6132645/2025/02/12/pat-white-west-virginia-rich-rodriguez-staff/
-
-**FIFA suspends employee after arrest on charge of meeting a minor for sex**\
-`Jack Edward Coles was arrested on two counts relating to sexual activity with a minor, per a court filing.`\
-https://nytimes.com/athletic/6131089/2025/02/12/fifa-employee-arrest-florida/
 
