@@ -1,3 +1,11 @@
+**Trump Curtails Anti-Corruption Efforts, Suggesting Charging Bribery Is Unfair**\
+`The Trump administration is telling prosecutors and agents to care less on efforts to investigate foreign corruption, including a case against New York’s mayor.`\
+https://nytimes.com/2025/02/11/us/politics/trump-orders-bribery-corruption.html
+
+**Reds spring training notes: Rhett Lowder held back; Spencer Steer limited to DH early**\
+`Lowder's delayed progression for the upcoming season is more of a precaution than anything.`\
+https://nytimes.com/athletic/6130384/2025/02/11/reds-rhett-lowder-spring-training/
+
 **James Franklin takeaways: Updating the coaching staff and the wide receivers situation**\
 `Much has transpired in the past month at Penn State, and Franklin broke it down Tuesday.`\
 https://nytimes.com/athletic/6130271/2025/02/11/penn-state-jim-knowles-james-franklin-running-back-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6130137/2025/02/11/nottingham-forest-taiwo-awoniyi-
 **In an upset, the top-ranked golden retriever was eliminated.**\
 `By Sarah Lyall`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-upset-the-top-ranked-golden-retriever-was-eliminated
-
-**Knicks' Mitchell Robinson discusses absence, hopes to return at '100 percent'**\
-`Knicks expect a defensive boost when big man returns, which they view as akin to a trade deadline acquisition.`\
-https://nytimes.com/athletic/6130224/2025/02/11/mitchell-robinson-injury-update-knicks/
-
-**Do the Cubs want Alex Bregman in their clubhouse? '1,000 percent' **\
-`Until there’s a deal for the best remaining free agent, Bregman Watch will remain the biggest story around the Cubs.`\
-https://nytimes.com/athletic/6130234/2025/02/11/cubs-alex-bregman-clubhouse-fit/
 
