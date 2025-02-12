@@ -1,3 +1,23 @@
+**Thursday Briefing: Trump and Putin Discuss an End to Ukraine War**\
+`Plus, Thailand braces for the “White Lotus” effect.`\
+https://nytimes.com/2025/02/12/briefing/trump-putin-ukraine-india-modi-venezuela-colombia-rebels.html
+
+**New Mystics GM and head coach hope to lead franchise back into WNBA's forefront**\
+`The Mystics introduced new general manager Jamila Wideman and new coach Sydney Johnson on Wednesday.`\
+https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-jamila-wideman-sydney-johnson-wnba/
+
+**Trump and Musk Pull Focus. But Vance Is the One to Watch.**\
+`The vice president is the millennial Republican we should have seen coming.`\
+https://nytimes.com/2025/02/12/opinion/jd-vance-donald-trump.html
+
+**Phillies camp opens with a new clubhouse, familiar faces and a glimpse of the future**\
+`The Phillies are trying to win now with a club-record payroll while bridging a gap with one-year deals until their prospects arrive.`\
+https://nytimes.com/athletic/6132263/2025/02/12/phillies-spring-training-prospects/
+
+**Israeli scholars dangle a Nobel Peace Prize nomination for Trump, if he helps free the hostages in Gaza.**\
+`Four of Israel’s top scholars, including three Nobel laureates, have offered to nominate the president, tying the move to efforts to free the remaining Israeli hostages held by Hamas in Gaza.`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/trump-nobel-peace-prize
+
 **Eric Adams Case Tests an Ambitious Prosecutor’s Independence**\
 `Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor is her greatest challenge yet.`\
 https://nytimes.com/2025/02/12/nyregion/adams-prosecutor-danielle-sassoon-profile.html
