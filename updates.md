@@ -1,3 +1,7 @@
+**Champions league knockout betting review: Who are the bookmakers' second-leg favourites?**\
+` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
+https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
+
 **Trump’s Resignation Program for Federal Workers Can Proceed, Judge Rules**\
 `The decision was a win for the Trump administration, which has been stymied by a series of other court rulings in recent days. The judge said the plaintiffs lacked standing.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
