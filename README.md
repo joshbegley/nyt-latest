@@ -1,3 +1,7 @@
+**The New NIMBY Battle Over the Waste From the L.A. Fires**\
+`Federal and state officials say the temporary sites for processing hazardous waste pose no threat, but residents are worried about their air and water.`\
+https://nytimes.com/2025/02/11/us/wildfires-toxic-waste-sites.html
+
 **Trump Curtails Anti-Corruption Efforts, Suggesting Charging Bribery Is Unfair**\
 `The Trump administration is telling prosecutors and agents to care less on efforts to investigate foreign corruption, including a case against New York’s mayor.`\
 https://nytimes.com/2025/02/11/us/politics/trump-orders-bribery-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/science/birds-of-paradise-luminescence.html
 **Nuno says Awoniyi suffered broken nose and concussion in incident against Exeter**\
 `The 27-year-old forward was taken off on a stretcher in the FA Cup tie after suffering a head injury.`\
 https://nytimes.com/athletic/6130137/2025/02/11/nottingham-forest-taiwo-awoniyi-injury/
-
-**In an upset, the top-ranked golden retriever was eliminated.**\
-`By Sarah Lyall`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/in-an-upset-the-top-ranked-golden-retriever-was-eliminated
 
