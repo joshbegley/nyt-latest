@@ -1,3 +1,11 @@
+**Three unanswered Yankees questions as spring training begins**\
+`The Yankees still need to figure out their starting third baseman, leadoff hitter and more in the next six weeks. `\
+https://nytimes.com/athletic/6132601/2025/02/12/yankees-spring-training-questions/
+
+**Measles Outbreak Hits Town in Texas**\
+`As of Tuesday, 22 children and two adults had been infected, all of whom were unvaccinated, local officials said.`\
+https://nytimes.com/2025/02/12/science/measles-vaccination-texas.html
+
 **Trump and Putin Discussed the War in Ukraine**\
 `Also, scientists suggest that Ozempic can curb drinking. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132209/2025/02/12/gerrit-cole-yankees-juan-soto/
 **Google Calendar Deletes Women’s History Month and Other Cultural Events**\
 `The Silicon Valley giant said it made the change last year because it was difficult to keep up with every occasion, but some users questioned the decision.`\
 https://nytimes.com/2025/02/12/technology/google-black-history-womens-history.html
-
-**Dodgers' Shohei Ohtani expected to throw his first bullpen this weekend**\
-`Ohtani won't overdo his intensity as he ramps up for a return to pitching: “It’s gonna be more about touching the slope."`\
-https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
-
-**Michael Lombardi on UNC under Bill Belichick: 'We consider ourselves the 33rd team'**\
-`A former NFL general manager, Lombardi will serve as North Carolina's GM and help Belichick build the Tar Heels' roster.`\
-https://nytimes.com/athletic/6132510/2025/02/12/bill-belichick-unc-football-michael-lombardi/
 
