@@ -1,3 +1,15 @@
+**Travis Kelce contemplates future in first media appearance since Super Bowl LIX loss**\
+`Kelce is "kicking every can I can down the road" regarding retirement, but did offer insight into the wear Super Bowl runs take on players.`\
+https://nytimes.com/athletic/6131432/2025/02/12/travis-kelce-retirement-new-heights-super-bowl/
+
+**With Attack on Consumer Bureau, Musk Removes Obstacle to His ‘X Money’ Vision**\
+`Former officials at the Consumer Financial Protection Bureau said Elon Musk’s payment-business aspirations were driving his efforts to hobble the agency.`\
+https://nytimes.com/2025/02/12/business/elon-musk-cfpb-x-money.html
+
+**Senate Confirms Gabbard as Top Intelligence Official**\
+`The success of one of President Trump’s more divisive cabinet candidates shows his domination over the Republican Senate.`\
+https://nytimes.com/2025/02/12/us/politics/tulsi-gabbard-senate-confirmation-vote.html
+
 **Listen: Which women's hoops programs could soon rival the bluebloods of the sport?**\
 `The Women's Basketball Show discusses the programs that could potentially join UConn, Tennessee and Stanford as bluebloods.
 .`\
