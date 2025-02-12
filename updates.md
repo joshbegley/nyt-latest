@@ -1,3 +1,7 @@
+**Kremlin Says U.S. Will Release a Russian in American Custody**\
+`Moscow said a Russian imprisoned in the U.S. would be freed “in the coming days” after the release of an American schoolteacher.`\
+https://nytimes.com/2025/02/12/world/europe/russia-us-prisoner-exchange-marc-fogel.html
+
 **Eno Sarris’ 2025 starting pitcher fantasy rankings with Stuff+ powered projections**\
 `The Stuff+ projections are back with more information than ever to help steer you toward the starting pitchers who can help win your league.`\
 https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher-fantasy-rankings-stuff-plus-projections/

@@ -1,3 +1,7 @@
+**Kremlin Says U.S. Will Release a Russian in American Custody**\
+`Moscow said a Russian imprisoned in the U.S. would be freed “in the coming days” after the release of an American schoolteacher.`\
+https://nytimes.com/2025/02/12/world/europe/russia-us-prisoner-exchange-marc-fogel.html
+
 **Eno Sarris’ 2025 starting pitcher fantasy rankings with Stuff+ powered projections**\
 `The Stuff+ projections are back with more information than ever to help steer you toward the starting pitchers who can help win your league.`\
 https://nytimes.com/athletic/6128052/2025/02/12/eno-sarris-2025-starting-pitcher-fantasy-rankings-stuff-plus-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129893/2025/02/12/nebraska-offensive-line-transfer
 **What's it like to get recruited by Bill Belichick? 'It’s pandemonium'**\
 `High school coaches have used words such as "engaging" and "refreshing" to describe their interactions with the new UNC head coach.`\
 https://nytimes.com/athletic/6128993/2025/02/12/bill-belichick-unc-football-recruiting/
-
-**Who Pays for Tariffs**\
-`Understanding who will end up paying for the higher costs means understanding how manufacturing, trade and supply chains function — and how costs build along each step of the complex process. Take shoes, for example.`\
-https://nytimes.com/interactive/2025/02/12/business/economy/who-pays-for-tariffs.html
 
