@@ -1,3 +1,7 @@
+**Natural Gas Could Get Priority Over Renewable Energy in Largest U.S. Grid**\
+`Federal regulators approved a proposal from the nation’s largest grid operator that will give primacy to 50 new power plants, a decision to help meet the country’s growing electricity demand.`\
+https://nytimes.com/2025/02/12/business/energy-environment/gas-power-plants-electric-grid.html
+
 **Kennedy One Step Closer to Confirmation as Health Secretary After Senate Vote**\
 `The Senate voted along party lines to advance the nomination of Robert F. Kennedy Jr. for health secretary to the floor for a final vote, likely Thursday.`\
 https://nytimes.com/2025/02/12/us/rfk-jr-senate-vote-hhs.html
