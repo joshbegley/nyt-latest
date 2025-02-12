@@ -1,3 +1,11 @@
+**North Korea Is Caring for Russia’s Wounded Soldiers, Envoy Says**\
+`Russia’s ambassador to North Korea said that its Asian ally is also hosting Russian children orphaned by its war against Ukraine, as the two nations deepen ties.`\
+https://nytimes.com/2025/02/12/world/asia/north-korea-russia-soldiers-orphans.html
+
+**Inflation Rises Unexpectedly, Keeping Fed Rate Cuts at Bay**\
+`The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
+https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
+
 **Inflation Stayed Sticky in January, Keeping Fed Rate Cuts at Bay**\
 `The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
 https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
