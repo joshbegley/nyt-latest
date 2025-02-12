@@ -1,3 +1,19 @@
+**Brandon Ingram's extension will result in tough decisions for Raptors**\
+`A good deal for Brandon Ingram might not be so good for the Raptors. `\
+https://nytimes.com/athletic/6130426/2025/02/12/brandon-ingrams-extension-raptors/
+
+**Cowboys mock draft 1.0: Addressing the trenches and running back are top priorities**\
+`If Ashton Jeanty is available at No. 12, will the Cowboys draft him or do they look to address a different need?`\
+https://nytimes.com/athletic/6128892/2025/02/12/dallas-cowboys-mock-draft-jalon-walker/
+
+**Nebraska fortified O-line in the portal but knows development is key to success up front**\
+`If some young players step up in the spring, the Huskers won't have to dip into the portal in April for reinforcements. `\
+https://nytimes.com/athletic/6129893/2025/02/12/nebraska-offensive-line-transfers-recruiting/
+
+**What's it like to get recruited by Bill Belichick? 'It’s pandemonium'**\
+`High school coaches have used words such as "engaging" and "refreshing" to describe their interactions with the new UNC head coach.`\
+https://nytimes.com/athletic/6128993/2025/02/12/bill-belichick-unc-football-recruiting/
+
 **Who Pays for Tariffs**\
 `Understanding who will end up paying for the higher costs means understanding how manufacturing, trade and supply chains function — and how costs build along each step of the complex process. Take shoes, for example.`\
 https://nytimes.com/interactive/2025/02/12/business/economy/who-pays-for-tariffs.html
