@@ -1,3 +1,11 @@
+**Brock Nelson on 'break' from trade talk, Auston Matthews kicked off the team, more: U.S. 4 Nations notes**\
+`Also can Connor Hellebuyck rise to the moment, Chris Kreider on the outside looking in and Charlie McAvoy shocked by fans' comments.`\
+https://nytimes.com/athletic/6132153/2025/02/12/brock-nelson-auston-matthews-team-usa-4-nations/
+
+**N.Y.P.D. Officer Who Fatally Shot Driver Should Be Fired, Judge Says**\
+`Lt. Jonathan Rivera was a sergeant in October 2019 when he shot Allan Feliz during a struggle in the Bronx. An administrative judge found him guilty of first-degree assault.`\
+https://nytimes.com/2025/02/12/nyregion/jonathan-rivera-allan-feliz-police-discipline.html
+
 **Trump Is Closing the Curtain on the American Century**\
 `The Trump administration is leading the world into a chaotic global order.`\
 https://nytimes.com/2025/02/12/opinion/trump-world-usaid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
 **Belarus Frees an American and 2 Others as It Tries to Thaw Relations**\
 `Aleksandr G. Lukashenko, Belarus’s autocratic president and Russia’s closest ally, has taken steps to soften his country’s isolation from the West.`\
 https://nytimes.com/2025/02/12/world/europe/belarus-prisoner-release.html
-
-**Japanese stars Yamamoto, Imanaga expected to start Opening Day in Tokyo**\
-`Dodgers manager Dave Roberts added that Japanese rookie Roki Sasaki could start the second of the two-game set.`\
-https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-mlb-opening-day/
-
-**‘Captain America: Brave New World’ Review: This One’s Red**\
-`The latest Marvel movie introduces a new Captain America in the form of a political thriller.`\
-https://nytimes.com/2025/02/12/movies/captain-america-brave-new-world-review.html
 

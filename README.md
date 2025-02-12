@@ -1,3 +1,23 @@
+**Christopher Jencks, a Shaper of Views on Economic Inequality, Dies at 88**\
+`His clear prose, illuminating data and novel arguments helped transform debates around issues like public education and welfare reform.`\
+https://nytimes.com/2025/02/12/books/christopher-jencks-dead.html
+
+**UNLV football player Ben Christman dies at 21**\
+`Christman transferred to UNLV this offseason after spending the last two years at Kentucky.`\
+https://nytimes.com/athletic/6132183/2025/02/12/unlv-football-ben-christman-death/
+
+**A.P. Accuses White House of Violating First Amendment**\
+`The Associated Press said the White House had blocked its journalists from attending two press events because the news agency had not started using the term Gulf of America.`\
+https://nytimes.com/2025/02/12/business/media/ap-accuses-white-house-of-violating-first-amendment.html
+
+**Behind Kennedy’s Vow to ‘Follow the Science’ on Vaccines**\
+`Robert F. Kennedy Jr. cited a disputed study from a close network of fellow vaccine skeptics during his confirmation hearings. His critics say it is part of a pattern that raises concerns about whose research he would elevate as health secretary.`\
+https://nytimes.com/2025/02/12/us/politics/rfk-science-vaccines.html
+
+**It’s a Man’s World. So How Should a Woman Dress in It?**\
+`Fashion wrestles with a shift in gender politics.`\
+https://nytimes.com/2025/02/12/style/dressing-in-the-manosphere-new-york-fashion-week.html
+
 **Brock Nelson on 'break' from trade talk, Auston Matthews kicked off the team, more: U.S. 4 Nations notes**\
 `Also can Connor Hellebuyck rise to the moment, Chris Kreider on the outside looking in and Charlie McAvoy shocked by fans' comments.`\
 https://nytimes.com/athletic/6132153/2025/02/12/brock-nelson-auston-matthews-team-usa-4-nations/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/12/style/nyfw-party-outfits.html
 **Trump Elected Chair of Kennedy Center as Its President Steps Down**\
 `The president solidified his grip on the performing arts complex as the center’s longtime president, Deborah F. Rutter, announced she was stepping down.`\
 https://nytimes.com/2025/02/12/us/politics/trump-kennedy-center-chairman.html
-
-**Immigrant Aid Groups Seek Access to Migrants Sent by Trump to Guantánamo**\
-`In a lawsuit, the groups asked a judge to enable lawyers to communicate with the men in case they would like legal representation.`\
-https://nytimes.com/2025/02/12/us/guantanamo-trump-lawsuit-migrants-venezuela.html
-
-**Heat Today: As NBA All-Star break nears, road trip for Heat, Erik Spoelstra could pose vital test**\
-`Miami is once again under .500, but its upcoming road trip (and the All-Star break) could pose a chance to correct key issues.`\
-https://nytimes.com/athletic/6131715/2025/02/12/miami-heat-erik-spoelstra-nba-tyler-herro-bam-adebayo/
-
-**How Elon Musk and the Right Are Trying to Recast Reporting as ‘Doxxing’**\
-`Right-wing influencers are criticizing journalists who have published public information about government employees.`\
-https://nytimes.com/2025/02/12/business/media/elon-musk-doxxing-marko-elez.html
-
-**Is Trump Helping You or Hurting You? A Cautionary Tale.**\
-`By setting aside Mayor Eric Adams’s corruption charges, Trump has effortlessly humiliated Adams and New York’s Democratic establishment.`\
-https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
-
-**Belarus Frees an American and 2 Others as It Tries to Thaw Relations**\
-`Aleksandr G. Lukashenko, Belarus’s autocratic president and Russia’s closest ally, has taken steps to soften his country’s isolation from the West.`\
-https://nytimes.com/2025/02/12/world/europe/belarus-prisoner-release.html
 
