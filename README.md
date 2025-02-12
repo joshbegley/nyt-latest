@@ -1,8 +1,24 @@
+**8 Inspectors General Fired by Trump File Lawsuit Seeking Reinstatement**\
+`The case is the latest to challenge a wave of actions by President Trump that brazenly violated legal limits on his power.`\
+https://nytimes.com/2025/02/12/us/politics/inspectors-general-trump-lawsuit.html
+
+**Giant Schnauzer Wins Best in Show at Westminster**\
+`A 5-year-old dog named Monty took the top prize after reaching the final round for the third consecutive year.`\
+https://nytimes.com/video/us/100000009986043/westminster-dog-show-winner.html
+
+**The Housing Crisis Forces Change on a Low-Rise Pocket of Brooklyn**\
+`A contentious plan to build two 10-story towers illustrates how a pressing shortage of affordable apartments has started to change the politics around development.`\
+https://nytimes.com/2025/02/12/nyregion/arrow-linen-apartments-brooklyn.html
+
+**Museum With Renowned Dinosaur Fossils Gets a $25 Million Gift**\
+`The Carnegie Museum of Natural History in Pittsburgh, home to the Tyrannosaurus rex holotype and a famous Diplodocus, will benefit from Carole and Daniel Kamin’s donation.`\
+https://nytimes.com/2025/02/12/arts/design/carnegie-museum-pittsburgh-dinosaurs-donation.html
+
 **Swiss sweep men's team combined at world championships as Americans just miss medal**\
 `Ryan Cochran-Siegle and Ben Ritchie nearly won a surprise medal Wednesday at the world championships, finishing fourth in the team combined.`\
 https://nytimes.com/athletic/6131280/2025/02/12/switzerland-team-combined-skiing-world-championships-ryan-cochran-siegle/
 
-**Hegseth Says Return to Ukraine’s Pre-War Borders Is ‘Unrealistic’**\
+**Hegseth Says Return to Ukraine’s Prewar Borders Is ‘Unrealistic’**\
 `In his first trip abroad, the new U.S. defense secretary told Ukrainian and NATO officials that a durable peace could only come ‘with a realistic assessment of the battlefield.’`\
 https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6130348/2025/02/12/2026-milan-cortina-winter-olympi
 **Defying Johnson, Graham and Senate G.O.P. Push Their Own Budget Plan**\
 `Senator Lindsey Graham, the South Carolina Republican who relishes being in the middle of the action, is leapfrogging the House G.O.P., which is still tied in knots over a budget blueprint.`\
 https://nytimes.com/2025/02/12/us/politics/lindsey-graham-budget-johnson-senate-house.html
-
-**Canned Tuna Sold at Trader Joe’s and Costco Is Recalled Over Botulism Risks**\
-`Tuna sold in 26 states and in Washington, D.C., was recalled over concerns that it may have been contaminated. The stores affected include Trader Joe’s, Genova, Van Camp’s and H-E-B.`\
-https://nytimes.com/2025/02/12/business/canned-tuna-recall-botulism.html
-
-**Best in Show**\
-`Would you want to enter your pet in a contest?`\
-https://nytimes.com/2025/02/12/learning/best-in-show.html
-
-**What unites Man City and Real Madrid? Problems out of possession**\
-`Whoever progresses from this tie next will need to improve their performance off the ball if they want to reach the latter stages `\
-https://nytimes.com/athletic/6130846/2025/02/12/manchester-city-real-madrid-problems-off-ball/
-
-**How to Prepare for Your Digital Afterlife**\
-`When planning your estate, leave instructions for handling your online accounts, data and other electronic affairs.`\
-https://nytimes.com/2025/02/12/technology/personaltech/social-media-accounts-death.html
 
