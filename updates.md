@@ -1,3 +1,11 @@
+**Submit your Jets trade proposals for Murat Ates’ ‘Who says no?’ mailbag**\
+`Have an idea for a Jets trade ahead of the March 7 deadline? Submit it here and it could be addressed in an upcoming story.`\
+https://nytimes.com/athletic/6132061/2025/02/12/winnipeg-jets-trade-deadline-2025-proposals/
+
+**Luis Rubiales trial: Prosecution say Rubiales enforced 'code of silence' after kissing Hermoso at World Cup**\
+`Prosecutors are asking for a two-and-a-half-year sentence for Rubiales`\
+https://nytimes.com/athletic/6131804/2025/02/12/luis-rubiales-trial-vilda-luque-rivera-testimony/
+
 **A Deep-Sea Fish of Nightmares Strays Into Shallow Waters**\
 `A scary-looking creature with “devil” in its name was spotted close to the surface off Tenerife, a Spanish island.`\
 https://nytimes.com/2025/02/12/science/black-seadevil-anglerfish.html
