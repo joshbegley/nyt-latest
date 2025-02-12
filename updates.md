@@ -1,3 +1,11 @@
+**New Mystics GM and head coach hope to lead franchise back into WNBA's forefront**\
+`The Mystics introduced new general manager Jamila Wideman and new coach Sydney Johnson on Wednesday.`\
+https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-jamila-wideman-sydney-johnson-wnba/
+
+**Trump and Musk Pull Focus. But Vance Is the One to Watch.**\
+`The vice president is the millennial Republican we should have seen coming.`\
+https://nytimes.com/2025/02/12/opinion/jd-vance-donald-trump.html
+
 **Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
 `Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
