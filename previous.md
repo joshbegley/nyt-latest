@@ -1,3 +1,7 @@
+**Jimmy Kimmel Pokes Fun at Trump’s Hatred of Paper Straws**\
+`“Listen, the fact of the matter is Trump loves plastic,” Kimmel said. “Most of his wives are made of plastic.”`\
+https://nytimes.com/2025/02/12/arts/television/jimmy-kimmel-trump-paper-straws.html
+
 **Playing Chelsea again presents a 'different challenge' - Hurzeler**\
 `Brighton host Chelsea again in the Premier League on Friday night, having knocked them out of the FA Cup with a 2-1 win on Saturday.`\
 https://nytimes.com/athletic/6129361/2025/02/12/fabian-hurzeler-chelsea-brighton/
@@ -9,10 +13,6 @@ https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
 **Nottingham Forest are the highest-ranked team left in the FA Cup - it's there to be won**\
 `In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
 https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
-
-**Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
-`The celebrations that followed told you this was a big moment for a young Madrid team`\
-https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
 
 **Guardiola's harsh reality? His great City side is coming to an end**\
 `For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
 `As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
 https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
 
-**Why the Merseyside derby now sounds less Scouse**\
-`English top-flight football's most historic derby has increasingly less local representation. Can the trend be reversed?`\
-https://nytimes.com/athletic/6126458/2025/02/12/liverpool-everton-merseyside-derby-local-player/
+**Real Madrid's stars needed to show a collective effort to beat City - and they did**\
+`The celebrations that followed told you this was a big moment for a young Madrid team`\
+https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
 

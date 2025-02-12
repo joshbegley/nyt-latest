@@ -1,3 +1,11 @@
+**Jimmy Kimmel Pokes Fun at Trump’s Hatred of Paper Straws**\
+`“Listen, the fact of the matter is Trump loves plastic,” Kimmel said. “Most of his wives are made of plastic.”`\
+https://nytimes.com/2025/02/12/arts/television/jimmy-kimmel-trump-paper-straws.html
+
+**Real Madrid's stars needed to show a collective effort to beat City - and they did**\
+`The celebrations that followed told you this was a big moment for a young Madrid team`\
+https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
+
 **Playing Chelsea again presents a 'different challenge' - Hurzeler**\
 `Brighton host Chelsea again in the Premier League on Friday night, having knocked them out of the FA Cup with a 2-1 win on Saturday.`\
 https://nytimes.com/athletic/6129361/2025/02/12/fabian-hurzeler-chelsea-brighton/
