@@ -1,3 +1,15 @@
+**New Hampshire High School Trans Athletes Take Their Fight to Trump**\
+`A lawsuit appears to be the first challenge to the constitutionality of an executive order barring trans athletes from girls’ and women’s sports teams.`\
+https://nytimes.com/2025/02/12/us/trump-trans-girls-women-sports.html
+
+**House Democrats Call for Investigation of Top Justice Officials**\
+`In a letter to the Justice Department’s inspector general, seven former Justice employees who now serve in Congress accused two officials of engaging in “flagrant ethics violations.”`\
+https://nytimes.com/2025/02/12/us/politics/house-democrats-justice-department-trump.html
+
+**Letter From House Democrats on Justice Department Officials**\
+`The letter calls for an investigation of two Justice Department officials: the acting attorney general, Emil Bove, and the interim U.S. attorney for the District of Columbia, Ed Martin/`\
+https://nytimes.com/interactive/2025/02/12/us/politics/12democrats-letter.html
+
 **Watch Adrien Brody Defend His Art in ‘The Brutalist’**\
 `The director Brady Corbet narrates a scene from his film, which is nominated for 10 Academy Awards.`\
 https://nytimes.com/2025/02/12/movies/adrien-brody-the-brutalist-clip.html
