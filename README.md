@@ -1,3 +1,11 @@
+**Czech Dam Project Was Stalled by Bureaucracy. Beavers Built Their Own.**\
+`The dam project, drafted in 2018 and based on a former military training site south of Prague, had been delayed by land negotiations. Local beavers built several dams, saving the government more than one million euros.`\
+https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bureaucracy-beavers-built-their-own.html
+
+**Can the Tigers build on last year's magic? Inside Day 1 of spring training**\
+`Optimism abounds in Lakeland, but Alex Bregman's decision looms large over the Tigers' chances of returning to the playoffs.`\
+https://nytimes.com/athletic/6132515/2025/02/12/detroit-tigers-spring-training-day-1/
+
 **Trump’s Resignation Program for Federal Workers Can Proceed, Judge Rules**\
 `The decision was a win for the Trump administration, which has been stymied by a series of other court rulings in recent days. The judge said the plaintiffs lacked standing.`\
 https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/gsa-begins-staff-c
 **Three unanswered Yankees questions as spring training begins**\
 `The Yankees still need to figure out their starting third baseman, leadoff hitter and more in the next six weeks. `\
 https://nytimes.com/athletic/6132601/2025/02/12/yankees-spring-training-questions/
-
-**Measles Outbreak Hits Town in Texas**\
-`As of Tuesday, 22 children and two adults had been infected, all of whom were unvaccinated, local officials said.`\
-https://nytimes.com/2025/02/12/science/measles-vaccination-texas.html
-
-**Trump and Putin Discussed the War in Ukraine**\
-`Also, scientists suggest that Ozempic can curb drinking. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-day.html
 
