@@ -1,3 +1,11 @@
+**In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
+`The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
+https://nytimes.com/2025/02/12/world/middleeast/in-trumps-cross-hairs-over-taking-gazans-egypt-and-jordan-try-diversion.html
+
+**Villa's MacPhee appointed Portugal assistant coach**\
+`Austin MacPhee has landed a new role as the assistant coach of Portugal, which he will combine with his current position as Aston Villa set piece coach.`\
+https://nytimes.com/athletic/6128945/2025/02/12/austin-macphee-aston-villa-portugal-coach/
+
 **The Pulse: The disappearing Canadian goalie**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6130452/2025/02/12/canada-4-nations-goalies-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/podcasts/the-headlines/elon-musk-lithium-ion-batt
 **A Constitutional Crisis**\
 `Unpacking the debate around President Trump’s executive orders.`\
 https://nytimes.com/2025/02/12/podcasts/the-daily/trump-executive-orders-constitutional-crisis.html
-
-**4 Nations Face-Off storylines: A Leafs-centric tournament viewing guide**\
-`Breaking down some of the best Leafs-centric storylines to watch at the 4 Nations Face-Off tournament.`\
-https://nytimes.com/athletic/6129771/2025/02/12/maple-leafs-4-nations-face-off-schedule/
-
-**As Palisades basketball team endures after fires, two NBA coaches provide a respite**\
-`The Palisades boys team carries on after a devastating blow to their lives. On Thursday, they got a boost from Steve Kerr and JJ Redick.`\
-https://nytimes.com/athletic/6128748/2025/02/12/palisades-basketball-team-fires-steve-kerr-jj-redick/
 
