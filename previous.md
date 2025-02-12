@@ -1,3 +1,11 @@
+**Archer, a Skye terrier, wins the terrier group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/archer-a-skye-terrier-wins-the-terrier-group
+
+**Finland’s underdog blue line ready for 4 Nations challenge, lines revealed and questions in net**\
+`Is there a defense development crisis in Finland similar to the goaltending development crisis in Canada?`\
+https://nytimes.com/athletic/6130603/2025/02/11/finland-4-nations-face-off-defense-starting-goalie-laine/
+
 **No. 20 Michigan avenges blowout loss to No. 7 Purdue, moves atop Big Ten**\
 `Wolverines bolster NCAA Tournament résumé with victory over last season's national runner-up.`\
 https://nytimes.com/athletic/6130508/2025/02/11/michigan-beats-purdue-top-of-big-ten/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6130428/2025/02/11/north-carolina-conference-realig
 **Enjoying the Pinnacle of Power, Musk Holds Court on Trump’s Stage**\
 `The president let the spotlight in the Oval Office go to his billionaire friend/budget slasher, who cited blank checks and 150-year-old Social Security beneficiaries to justify purging the federal work force.`\
 https://nytimes.com/2025/02/11/us/politics/trump-musk.html
-
-**Things got tense at the Afghan hound judging.**\
-`By Sarah Lyall`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/things-got-tense-at-the-afghan-hound-judging
-
-**Freddie, an English springer spaniel, wins the sporting group.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/freddie-an-english-springer-spaniel-wins-the-sporting-group
 
