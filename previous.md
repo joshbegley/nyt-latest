@@ -10,8 +10,8 @@ https://nytimes.com/2025/02/12/style/penny-production-penny-loafers.html
 `In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
 https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
 
-**Nominee for No. 2 Official at Justice Dept., Todd Blanche, Decries Treatment of Trump**\
-`Todd Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
+**Nominee for No. 2 Official at Justice Dept., Todd Blanche, Denounces Treatment of Trump**\
+`Mr. Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
 https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html
 
 **Two Brothers Bring Their Love of Venice to Watches**\
