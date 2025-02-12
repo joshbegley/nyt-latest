@@ -1,4 +1,8 @@
-**Inflation Stayed Sticky in January, Keeping Fed Rate Cuts at Bay**\
+**North Korea Is Caring for Russia’s Wounded Soldiers, Envoy Says**\
+`Russia’s ambassador to North Korea said that its Asian ally is also hosting Russian children orphaned by its war against Ukraine, as the two nations deepen ties.`\
+https://nytimes.com/2025/02/12/world/asia/north-korea-russia-soldiers-orphans.html
+
+**Inflation Rises Unexpectedly, Keeping Fed Rate Cuts at Bay**\
 `The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
 https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6130306/2025/02/12/dak-prescott-cowboys-injury-upda
 **Treasury Secretary Expected to Visit Kyiv**\
 `The visit by Scott Bessent will be the first by a Trump official since the president’s return to office and comes amid uncertainty about the future of U.S. support for Ukraine.`\
 https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html
-
-**Philadelphia Will Close Schools for Super Bowl Parade**\
-`Nearly 200,000 students in Philadelphia’s schools will be free to attend the public celebration on Friday of the Eagles’ Super Bowl victory.`\
-https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-parade.html
 
