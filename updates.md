@@ -1,3 +1,7 @@
+**Four Takeaways From Tulsi Gabbard’s Road to Confirmation**\
+`It turns out it is very difficult to vote down a president’s choice for a top post.`\
+https://nytimes.com/2025/02/12/us/politics/takeaways-tulsi-gabbard-confirmation.html
+
 **The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power

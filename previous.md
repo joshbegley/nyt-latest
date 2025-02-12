@@ -1,3 +1,7 @@
+**Four Takeaways From Tulsi Gabbard’s Road to Confirmation**\
+`It turns out it is very difficult to vote down a president’s choice for a top post.`\
+https://nytimes.com/2025/02/12/us/politics/takeaways-tulsi-gabbard-confirmation.html
+
 **The nominee for the Justice Department’s antitrust chief expressed concern about online platforms’ power.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-the-justice-departments-antitrust-chief-expressed-concern-about-online-platforms-power
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/rfk-science-vaccines.html
 **It’s a Man’s World. So How Should a Woman Dress in It?**\
 `Fashion wrestles with a shift in gender politics.`\
 https://nytimes.com/2025/02/12/style/dressing-in-the-manosphere-new-york-fashion-week.html
-
-**Brock Nelson on 'break' from trade talk, Auston Matthews kicked off the team, more: U.S. 4 Nations notes**\
-`Also can Connor Hellebuyck rise to the moment, Chris Kreider on the outside looking in and Charlie McAvoy shocked by fans' comments.`\
-https://nytimes.com/athletic/6132153/2025/02/12/brock-nelson-auston-matthews-team-usa-4-nations/
 
