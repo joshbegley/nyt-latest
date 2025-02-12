@@ -1,3 +1,7 @@
+**The Pulse: The disappearing Canadian goalie**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6130452/2025/02/12/canada-4-nations-goalies-the-pulse/
+
 **'He's got a gift': Islanders prospect Cole Eiserman scores big goals wherever he goes**\
 `The Islanders' first-round pick in 2024 isn't afraid to celly like his NHL idol when he finds the net, and he does both a lot.`\
 https://nytimes.com/athletic/6129017/2025/02/12/cole-eiserman-new-york-islanders-prospect-big-goals/

@@ -1,3 +1,7 @@
+**The Pulse: The disappearing Canadian goalie**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6130452/2025/02/12/canada-4-nations-goalies-the-pulse/
+
 **'He's got a gift': Islanders prospect Cole Eiserman scores big goals wherever he goes**\
 `The Islanders' first-round pick in 2024 isn't afraid to celly like his NHL idol when he finds the net, and he does both a lot.`\
 https://nytimes.com/athletic/6129017/2025/02/12/cole-eiserman-new-york-islanders-prospect-big-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129771/2025/02/12/maple-leafs-4-nations-face-off-s
 **As Palisades basketball team endures after fires, two NBA coaches provide a respite**\
 `The Palisades boys team carries on after a devastating blow to their lives. On Thursday, they got a boost from Steve Kerr and JJ Redick.`\
 https://nytimes.com/athletic/6128748/2025/02/12/palisades-basketball-team-fires-steve-kerr-jj-redick/
-
-**Wordle Review No. 1,335**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 13, 2025.`\
-https://nytimes.com/2025/02/12/crosswords/wordle-review-1335.html
 
