@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/12/crosswords/spelling-bee-forum.html
+
+**Manhattan D.A. Would Face Uphill Battle if He Took Adams Case**\
+`Now that the Justice Department has directed federal prosecutors to drop Eric Adams’s case, could Alvin L. Bragg’s office pick it up?`\
+https://nytimes.com/2025/02/12/nyregion/alvin-bragg-adams-state-charges.html
+
 **When Will China’s Leader Talk to Trump?**\
 `Xi Jinping seems to be in no rush to engage with President Trump, who has sent mixed signals about when a call might happen (or whether it already has).`\
 https://nytimes.com/2025/02/12/world/asia/trump-xi-china-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-en
 **Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
 `Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
 https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
-
-**Leicester probably won't need 40 points for Premier League survival - but they have work to do**\
-`The average points total needed to avoid relegation is falling but Leicester's fixture list makes for daunting reading`\
-https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-league-relegation/
-
-**How Andy Irving rose from obscurity to gain cult status at West Ham**\
-`The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
-https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
 
