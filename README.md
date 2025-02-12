@@ -1,3 +1,15 @@
+**Enjoying the Pinnacle of Power, Musk Holds Court on Trump’s Stage**\
+`The president let the spotlight in the Oval Office go to his billionaire friend/budget slasher, who cited blank checks and 150-year-old Social Security beneficiaries to justify purging the federal work force.`\
+https://nytimes.com/2025/02/11/us/politics/trump-musk.html
+
+**Things got tense at the Afghan hound judging.**\
+`By Sarah Lyall`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/things-got-tense-at-the-afghan-hound-judging
+
+**Freddie, an English springer spaniel, wins the sporting group.**\
+`By Callie Holtermann`\
+https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/freddie-an-english-springer-spaniel-wins-the-sporting-group
+
 **Where Trump, Musk and DOGE Have Cut Federal Workers So Far**\
 `President Trump and Elon Musk have spent three weeks slashing federal jobs — often in defiance of legal limits — and there are more to come. These are the reported cuts to date.`\
 https://nytimes.com/interactive/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6130271/2025/02/11/penn-state-jim-knowles-james-fra
 **Why Canada is giving Jordan Binnington the 4 Nations net with 'full confidence': 'Binner's a winner'**\
 `"He seems really dialed in right now," Team Canada forward Nathan MacKinnon said of his Central Division rival. "Full confidence in him."`\
 https://nytimes.com/athletic/6130257/2025/02/11/jordan-binnington-canada-4-nations-goalie/
-
-**Champions League Briefing: Man City have a Madrid mountain to climb**\
-`All the big talking points from Tuesday's Champions League playoff matches, including Mbappe scoring with his shin and McKennie's magic`\
-https://nytimes.com/athletic/6129715/2025/02/11/champions-league-man-city-real-madrid-psg-mbappe/
-
-**A Musk ally was accidentally given broad access to sensitive Treasury data.**\
-`In a court filing, a career civil servant said that a former employee of X was mistakenly given the ability to modify a payment database.`\
-https://nytimes.com/2025/02/11/us/elon-musk-treasury-data-x-employee.html
-
-**LeBrun: Players, execs all-in on 4 Nations — and what it means for 2026 Olympics**\
-`How will 4 Nations factor into Olympic decisions? We asked Olympic GMs and got a good sense for why players say, "It's going to be intense."`\
-https://nytimes.com/athletic/6130140/2025/02/11/4-nations-2026-olympics-lebrun/
 
