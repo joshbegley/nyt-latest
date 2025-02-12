@@ -1,3 +1,11 @@
+**Ranking every NBA team’s trade deadline, with a clear choice for first and last**\
+`This year’s deadline was a lot of information in a short amount of time. Let's evaluate everyone's work.`\
+https://nytimes.com/athletic/6128022/2025/02/12/best-nba-trade-deadline-moves-lakers-mavericks/
+
+**For the Mets, Kodai Senga is the ultimate X-factor**\
+`The rotation needs to be prepared to carry the Mets' load and a healthy Senga can take a big part of it on his shoulders.`\
+https://nytimes.com/athletic/6130359/2025/02/12/mets-kodai-senga-comeback-2025/
+
 **Brandon Ingram's extension will result in tough decisions for Raptors**\
 `A good deal for Brandon Ingram might not be so good for the Raptors. `\
 https://nytimes.com/athletic/6130426/2025/02/12/brandon-ingrams-extension-raptors/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/health/smallpox-who-cdc-bioweapons.html
 **‘The White Lotus’ Is Coming to Thailand. So Are the Tourists.**\
 `Crowds of visitors descended on Maui and Sicily after the HBO show’s first two seasons. Is the tropical resort island of Koh Samui ready for Season 3?`\
 https://nytimes.com/2025/02/12/travel/white-lotus-thailand.html
-
-**What Is One Skill You Can Do Really Well? What Is One You’d Like to Learn?**\
-`Read about the world champions of spreadsheets and about an adult learning how to swim. Then tell us about your own journey to get good at something.`\
-https://nytimes.com/2025/02/12/learning/what-is-one-skill-you-can-do-really-well-what-is-one-youd-like-to-learn.html
-
-**Where the Oscar Race Stands After Two Tumultuous Weeks**\
-`“Emilia Pérez” is hobbled, “Anora” is revitalized and plenty remains up in the air ahead of the March 2 awards ceremony.`\
-https://nytimes.com/2025/02/12/movies/where-the-oscar-race-stands-after-two-tumultuous-weeks.html
 
