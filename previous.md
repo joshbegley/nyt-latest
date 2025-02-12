@@ -1,3 +1,7 @@
+**Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
+`Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
+https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
+
 **In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
 `The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
 https://nytimes.com/2025/02/12/world/middleeast/trump-gaza-egypt-jordan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6081719/2025/02/12/blues-player-poll-2025/
 **More Power for Elon Musk, and the Risk of Lithium-Ion Batteries**\
 `Plus, who isn’t in the Rock & Roll Hall of Fame.`\
 https://nytimes.com/2025/02/12/podcasts/the-headlines/elon-musk-lithium-ion-batteries.html
-
-**A Constitutional Crisis**\
-`Unpacking the debate around President Trump’s executive orders.`\
-https://nytimes.com/2025/02/12/podcasts/the-daily/trump-executive-orders-constitutional-crisis.html
 

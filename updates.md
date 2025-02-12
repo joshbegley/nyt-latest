@@ -1,3 +1,7 @@
+**Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
+`Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
+https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
+
 **In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
 `The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
 https://nytimes.com/2025/02/12/world/middleeast/trump-gaza-egypt-jordan.html
