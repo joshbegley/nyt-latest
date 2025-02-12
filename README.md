@@ -1,3 +1,7 @@
+**Two Trump Loyalists**\
+`We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
+https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
+
 **Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
 `Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
 https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6119121/2025/02/12/four-nations-face-off-tournament
 **Blues player poll: Who's the worst texter? Best shoe game?**\
 `The Athletic asked 20 Blues players 10 questions about their teammates and got some hysterical responses.`\
 https://nytimes.com/athletic/6081719/2025/02/12/blues-player-poll-2025/
-
-**More Power for Elon Musk, and the Risk of Lithium-Ion Batteries**\
-`Plus, who isn’t in the Rock & Roll Hall of Fame.`\
-https://nytimes.com/2025/02/12/podcasts/the-headlines/elon-musk-lithium-ion-batteries.html
 
