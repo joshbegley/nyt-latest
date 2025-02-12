@@ -1,3 +1,7 @@
+**When Will China’s Leader Talk to Trump?**\
+`Xi Jinping seems to be in no rush to engage with President Trump, who has sent mixed signals about when a call might happen (or whether it already has).`\
+https://nytimes.com/2025/02/12/world/asia/trump-xi-china-talks.html
+
 **Leeds have replaced individual brilliance with collective balance - and are better for it**\
 `A 4-0 midweek win at Watford showed that this season's squad is proving greater than the sum of its parts`\
 https://nytimes.com/athletic/6130552/2025/02/12/leeds-squad-balance-championship-title-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-
 **How Andy Irving rose from obscurity to gain cult status at West Ham**\
 `The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
 https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
-
-**What Modi and India Can Offer Trump on Tariffs and Trade**\
-`As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
-https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
 
