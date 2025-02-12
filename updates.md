@@ -1,3 +1,7 @@
+**Two Trump Loyalists**\
+`We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
+https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
+
 **Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
 `Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
 https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
