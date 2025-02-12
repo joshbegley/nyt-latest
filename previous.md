@@ -1,3 +1,7 @@
+**How Elon Musk and the Right Are Trying to Recast Reporting as ‘Doxxing’**\
+`Right-wing influencers are criticizing journalists who have published public information about government employees.`\
+https://nytimes.com/2025/02/12/business/media/elon-musk-doxxing-marko-elez.html
+
 **Is Trump Helping You or Hurting You? A Cautionary Tale.**\
 `By setting aside Mayor Eric Adams’s corruption charges, Trump has effortlessly humiliated Adams and New York’s Democratic establishment.`\
 https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
 `Aleksandr G. Lukashenko, Belarus’s autocratic president and Russia’s closest ally, has taken steps to soften his country’s isolation from the West.`\
 https://nytimes.com/2025/02/12/world/europe/belarus-prisoner-release.html
 
-**Japanese stars Yamamoto, Imanaga expected to start MLB's Opening Day in Tokyo**\
+**Japanese stars Yamamoto, Imanaga expected to start Opening Day in Tokyo**\
 `Dodgers manager Dave Roberts added that Japanese rookie Roki Sasaki could start the second of the two-game set.`\
 https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-mlb-opening-day/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/12/books/romance-novel-quiz.html
 **After 3 Die in Fires, Officials Urge Drivers Not to Block Hydrants**\
 `Firefighters had to navigate cars that blocked hydrants in two fires in the Bronx and in Brooklyn. “Seconds count when we’re fighting fire,” said a Fire Department chief.`\
 https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
-
-**Virginia Snowstorm Leaves 180,000 Without Power and Causes Havoc on Highways**\
-`More than a foot of snow fell across much of Virginia as wintry weather swept across the Mid-Atlantic. State officials said more than 900 car collisions had been reported.`\
-https://nytimes.com/2025/02/12/us/snow-storm-virginia-power-outage.html
 

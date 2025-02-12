@@ -1,3 +1,11 @@
+**How Elon Musk and the Right Are Trying to Recast Reporting as ‘Doxxing’**\
+`Right-wing influencers are criticizing journalists who have published public information about government employees.`\
+https://nytimes.com/2025/02/12/business/media/elon-musk-doxxing-marko-elez.html
+
+**Japanese stars Yamamoto, Imanaga expected to start Opening Day in Tokyo**\
+`Dodgers manager Dave Roberts added that Japanese rookie Roki Sasaki could start the second of the two-game set.`\
+https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-mlb-opening-day/
+
 **Is Trump Helping You or Hurting You? A Cautionary Tale.**\
 `By setting aside Mayor Eric Adams’s corruption charges, Trump has effortlessly humiliated Adams and New York’s Democratic establishment.`\
 https://nytimes.com/2025/02/12/opinion/eric-adams-donald-trump.html
