@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6132263/2025/02/12/phillies-spring-training-prospec
 https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/trump-nobel-peace-prize
 
 **Eric Adams Case Tests an Ambitious Prosecutor’s Independence**\
-`Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor is her greatest challenge yet.`\
+`Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor presents her with a pivotal choice.`\
 https://nytimes.com/2025/02/12/nyregion/adams-prosecutor-danielle-sassoon-profile.html
 
