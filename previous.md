@@ -1,3 +1,19 @@
+**World Cup of Hockey will return in 2028 as in-season tournament, NHL and NHLPA announce**\
+`The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
+https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
+
+**Champions league knockout betting review: who are the bookies second-leg favourites?**\
+` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
+https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
+
+**Van Dijk accuses Doucoure of 'provoking' fans as Merseyside derby ends in fracas**\
+`Red cards were issued to Abdoulaye Doucoure and Curtis Jones as well as Liverpool manager Arne Slot and his assistant Sipke Hulshoff.`\
+https://nytimes.com/athletic/6132651/2025/02/12/liverpool-everton-merseyside-derby-altercation/
+
+**Brayan Bello admits feeling pressure from contract extension, ready now to handle high expectations**\
+`Bello admits expectations after his extension got to him, but he’s better prepared to meet them in 2025.`\
+https://nytimes.com/athletic/6132728/2025/02/12/brayan-bello-red-sox-expectations/
+
 **Trump and Musk Hunt for Corruption, Very Selectively**\
 `Spending that the White House does not like is being labeled fraudulent. At the same time, President Trump is rolling back anticorruption efforts and ethical standards for himself and allies like Elon Musk.`\
 https://nytimes.com/2025/02/12/us/politics/trump-musk-corruption.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-da
 **Milan suffered a road loss to Feyenoord to open their knockout playoff**\
 `The USMNT star and his team will need a second leg fightback to remain in the competition`\
 https://nytimes.com/athletic/6132629/2025/02/12/ac-milan-feyenoord-champions-league-pulisic/
-
-**FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
-`The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
-https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
-
-**McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
-`McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
-https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
-
-**Todd Blanche Spends Confirmation Hearing Defending Trump’s Record**\
-`President Trump’s former criminal defense lawyer and pick for deputy attorney general, frequently called out what he considered to be politically motivated legal retaliation against his former client orchestrated by the Department of Justice.`\
-https://nytimes.com/video/us/politics/100000009986177/todd-blanch-confirmation-hearing.html
-
-**'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
-`Thursday's first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
-https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/
 
