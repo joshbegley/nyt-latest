@@ -1,3 +1,7 @@
+**Blue Jackets' Cayden Lindstrom could miss season, but his path to the NHL could be fascinating**\
+`While some aspects of Lindstrom's recovery and future are coming into focus, others, like his return to the WHL, are no longer set in stone.`\
+https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-prospect-future-nhl/
+
 **Ozempic Can Curb Drinking, New Research Shows**\
 `Scientists have several theories about how the drug might reduce alcohol cravings.`\
 https://nytimes.com/2025/02/12/well/ozempic-alcohol-use.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/style/westminster-dog-show-best-in-show.html
 **A Lost Silent Film About Lincoln Was Unearthed by an Intern**\
 `“The Heart of Lincoln,” a 1922 movie directed by the pioneering filmmaker Francis Ford, was found at a stock-footage library on Long Island.`\
 https://nytimes.com/2025/02/12/movies/abraham-lincoln-silent-film-long-island.html
-
-**With ‘Mindplay,’ Vinny DePonto Wants to Bring More Awe Into Your Life**\
-`In this mentalist show, the magician asks his audience: “What is most meaningful to you?”`\
-https://nytimes.com/2025/02/12/theater/mindplay-vinny-deponto-mentalist.html
 
