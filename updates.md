@@ -1,3 +1,7 @@
+**A.P. Accuses White House of Violating First Amendment**\
+`The Associated Press said the White House had blocked its journalists from attending two press events because the news agency had not started using the term Gulf of America.`\
+https://nytimes.com/2025/02/12/business/media/associated-press-gulf-of-america.html
+
 **Four Takeaways From Tulsi Gabbard’s Road to Confirmation**\
 `It turns out it is very difficult to vote down a president’s choice for a top post.`\
 https://nytimes.com/2025/02/12/us/politics/takeaways-tulsi-gabbard-confirmation.html
