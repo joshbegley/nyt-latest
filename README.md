@@ -1,3 +1,7 @@
+**Quote of the Day: ‘I Was Dying’: Rushdie Testifies About Stabbing**\
+`Quotation of the Day for Wednesday, February 12, 2025`\
+https://nytimes.com/2025/02/11/pageoneplus/quote-of-the-day-i-was-dying-rushdie-testifies-about-stabbing.html
+
 **Trump Names 2 New Top Financial Regulators**\
 `Jonathan McKernan has been nominated to lead the Consumer Financial Protection Bureau, which has been in turmoil for days.`\
 https://nytimes.com/2025/02/11/us/politics/trump-names-2-new-top-financial-regulators.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/11/pageoneplus/corrections-feb-12-2025.html
 **Monty, a giant schnauzer, wins the working group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/monty-a-giant-schnauzer-wins-the-working-group
-
-**Musk and Trump Appear Together in the Oval Office**\
-`Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
-https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html
 
