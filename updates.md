@@ -1,3 +1,23 @@
+**Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
+`Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
+https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
+
+**Illinois County to Pay $10 Million After Fatal Shooting of Black Woman**\
+`A Sangamon County deputy fatally shot Sonya Massey, 36, last year, after she called to report a prowler outside her home in Springfield, Ill. The former deputy has been charged with murder.`\
+https://nytimes.com/2025/02/12/us/sonya-massey-shooting-settlement.html
+
+**LFP launches legal action against DAZN over payment for Ligue 1 rights**\
+`DAZN has made it clear it either wants to renegotiate a much lower annual fee or activate the break-clause in its deal with LFP.`\
+https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
+
+**FC Dallas acquires Luciano Acosta from Cincinnati for record $5 million**\
+`Acosta won the Landon Donovan MLS MVP award in 2023, scoring 17 goals and adding 14 assists in the regular season.`\
+https://nytimes.com/athletic/6132342/2025/02/12/fc-dallas-acquires-luciano-acosta-cincinnati/
+
+**Tracking the Lawsuits Against Trump’s Agenda**\
+`Follow the lawsuits and rulings that are challenging President Trump's executive orders.`\
+https://nytimes.com/interactive/2025/us/trump-administration-lawsuits.html
+
 **Mid-Atlantic Snowstorm Causes Car Accidents and School Closures**\
 `A snowstorm blew across the Mid-Atlantic on Tuesday, unloading more than a foot of snow and leaving 180,000 homes in Virginia without power.`\
 https://nytimes.com/video/weather/100000009987237/virginia-mid-atlantic-snow-storm.html
