@@ -1,3 +1,7 @@
+**Netflix? Amazon? Why the race for F1’s U.S. TV rights could change the sport**\
+`F1’s broadcast rights in the U.S are up for renewal at the end of the year. The outcome of the deal will be critical to the sport's fortunes`\
+https://nytimes.com/athletic/6129337/2025/02/12/f1-tv-rights-netflix-espn-amazon-streaming/
+
 **Arsenal's Havertz set to miss rest of season with torn hamstring**\
 `The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
 https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129309/2025/02/12/afc-offseason-priorities-bills-c
 **Chubby Checker, Phish and Outkast Among Rock Hall Nominees**\
 `Billy Idol, the Black Crowes and Maná will also appear on the ballot for the first time, alongside Oasis, Joe Cocker, Mariah Carey and others.`\
 https://nytimes.com/2025/02/12/arts/music/rock-hall-nominees-chubby-checker-phish-outkast.html
-
-**4 Nations Face-Off tournament explained: Format, TV schedule, teams, rosters and more**\
-`Here's everything you need to know about the upcoming 4 Nations Face-Off event.`\
-https://nytimes.com/athletic/6119121/2025/02/12/four-nations-face-off-tournament-explained/
 

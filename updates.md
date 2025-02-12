@@ -1,3 +1,7 @@
+**Netflix? Amazon? Why the race for F1’s U.S. TV rights could change the sport**\
+`F1’s broadcast rights in the U.S are up for renewal at the end of the year. The outcome of the deal will be critical to the sport's fortunes`\
+https://nytimes.com/athletic/6129337/2025/02/12/f1-tv-rights-netflix-espn-amazon-streaming/
+
 **Arsenal's Havertz set to miss rest of season with torn hamstring**\
 `The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
 https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
