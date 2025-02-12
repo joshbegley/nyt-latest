@@ -1,3 +1,11 @@
+**The Briefing — Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
+`Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
+https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
+
+**Without Pennies, What Becomes of Penny Loafers?**\
+`The fashion world pondered the future of the iconic shoe after learning that a presidential order might eliminate the penny.`\
+https://nytimes.com/2025/02/12/style/penny-production-penny-loafers.html
+
 **Disney to Diminish Content Warnings Shown Before Classic Films**\
 `In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
 https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132342/2025/02/12/fc-dallas-acquires-luciano-acost
 **Tracking the Lawsuits Against Trump’s Agenda**\
 `Follow the lawsuits and rulings that are challenging President Trump's executive orders.`\
 https://nytimes.com/interactive/2025/us/trump-administration-lawsuits.html
-
-**Mid-Atlantic Snowstorm Causes Car Accidents and School Closures**\
-`A snowstorm blew across the Mid-Atlantic on Tuesday, unloading more than a foot of snow and leaving 180,000 homes in Virginia without power.`\
-https://nytimes.com/video/weather/100000009987237/virginia-mid-atlantic-snow-storm.html
-
-**Australian Health Workers Suspended After Threatening Israeli Patients**\
-`Prime Minister Anthony Albanese of Australia denounced the comments, caught on video amid a spate of antisemitic incidents, as “sickening and shameful.”`\
-https://nytimes.com/2025/02/12/world/australia/australia-health-workers-antisemitism.html
 
