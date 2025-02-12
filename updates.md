@@ -1,3 +1,7 @@
+**Blue Jackets' Cayden Lindstrom could miss season, but his path to the NHL could be fascinating**\
+`While some aspects of Lindstrom's recovery and future are coming into focus, others, like his return to the WHL, are no longer set in stone.`\
+https://nytimes.com/athletic/6128980/2025/02/12/blue-jackets-cayden-lindstrom-prospect-future-nhl/
+
 **Ozempic Can Curb Drinking, New Research Shows**\
 `Scientists have several theories about how the drug might reduce alcohol cravings.`\
 https://nytimes.com/2025/02/12/well/ozempic-alcohol-use.html
