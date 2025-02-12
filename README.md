@@ -1,3 +1,7 @@
+**McIlroy believes Trump is 'on the (PGA Tour's) side' against LIV**\
+`McIlroy and PGA Tour commissioner Jay Monahan believes Trump can make a deal to end golf's long-running dispute over the men's pro game.`\
+https://nytimes.com/athletic/6132561/2025/02/12/president-donald-trump-pga-tour-liv-mcilroy/
+
 **Todd Blanche Spends Confirmation Hearing Defending Trump’s Record**\
 `President Trump’s former criminal defense lawyer and pick for deputy attorney general, frequently called out what he considered to be politically motivated legal retaliation against his former client orchestrated by the Department of Justice.`\
 https://nytimes.com/video/us/politics/100000009986177/todd-blanch-confirmation-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131089/2025/02/12/fifa-employee-arrest-florida/
 **Mr. President, Foreign Aid Does Put America First**\
 `U.S.A.I.D. keeps children alive and us safe.`\
 https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
-
-**David Edward Byrd, Whose Posters Captured Rock’s Energy, Dies at 83**\
-`His designs for Jimi Hendrix, the Who and others embodied the spirit of the psychedelic era. He also created images for stage shows like “Godspell.”`\
-https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
 
