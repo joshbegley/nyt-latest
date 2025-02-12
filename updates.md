@@ -1,3 +1,7 @@
+**What Modi and India Can Offer Trump on Tariffs and Trade**\
+`As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
+https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
+
 **Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
 `The celebrations that followed told you this was a big moment for a young Madrid team`\
 https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
