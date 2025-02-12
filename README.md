@@ -1,3 +1,7 @@
+**Canned Tuna Sold at Trader Joe’s and Costco Is Recalled Over Botulism Risks**\
+`Tuna sold in 26 states and in Washington, D.C., was recalled over concerns that it may have been contaminated. The stores affected include Trader Joe’s, Genova, Van Camp’s and H-E-B.`\
+https://nytimes.com/2025/02/12/business/canned-tuna-recall-botulism.html
+
 **Best in Show**\
 `Would you want to enter your pet in a contest?`\
 https://nytimes.com/2025/02/12/learning/best-in-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131100/2025/02/12/mens-college-basketball-ncaa-tou
 **Elon Musk in the Oval Office**\
 `Dispelling doubts, the billionaire showed off his unprecedented power to disrupt and remake the government — with President Trump’s blessing.`\
 https://nytimes.com/2025/02/12/business/dealbook/elon-musk-trump-oval-office.html
-
-**Canucks trade deadline targets: How these 7 wingers could aid Vancouver's attack**\
-`The Canucks are still short on talent, speed and skill up front. Here are seven potential wing options on the trade market.`\
-https://nytimes.com/athletic/6130808/2025/02/12/canucks-trade-deadline-targets-2025-wingers/
 
