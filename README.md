@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6131192/2025/02/12/nations-league-uefa-germany-muni
 `Russia’s ambassador to North Korea said that its Asian ally is also hosting Russian children orphaned by its war against Ukraine, as the two nations deepen ties.`\
 https://nytimes.com/2025/02/12/world/asia/north-korea-russia-soldiers-orphans.html
 
-**Inflation Rises Unexpectedly, Keeping Fed Rate Cuts at Bay**\
+**Inflation Rises Unexpectedly, Complicating Picture for the Fed**\
 `The Consumer Price Index rose 3.0 percent from a year earlier as food and energy prices picked up.`\
 https://nytimes.com/2025/02/12/business/inflation-cpi-report-january.html
 
