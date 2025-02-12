@@ -1,3 +1,7 @@
+**Arsenal's Havertz set to miss rest of season with torn hamstring**\
+`The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
+https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
+
 **Two Trump Loyalists**\
 `We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
 https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/arts/music/rock-hall-nominees-chubby-checker-phis
 **4 Nations Face-Off tournament explained: Format, TV schedule, teams, rosters and more**\
 `Here's everything you need to know about the upcoming 4 Nations Face-Off event.`\
 https://nytimes.com/athletic/6119121/2025/02/12/four-nations-face-off-tournament-explained/
-
-**Blues player poll: Who's the worst texter? Best shoe game?**\
-`The Athletic asked 20 Blues players 10 questions about their teammates and got some hysterical responses.`\
-https://nytimes.com/athletic/6081719/2025/02/12/blues-player-poll-2025/
 
