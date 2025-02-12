@@ -1,3 +1,11 @@
+**Trump and Putin Discussed the War in Ukraine**\
+`Also, scientists suggest that Ozempic can curb drinking. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/12/briefing/trump-putin-call-inflation-valentines-day.html
+
+**Milan suffered a road loss to Feyenoord to open their knockout playoff**\
+`The USMNT star and his team will need a second leg fightback to remain in the competition`\
+https://nytimes.com/athletic/6132629/2025/02/12/ac-milan-feyenoord-champions-league-pulisic/
+
 **FEMA Can Freeze Money for Migrant Shelter Program in New York, Judge Says**\
 `The court ruled that the Trump administration had a narrowly defined path to withhold some funds to the city that had been approved by Congress.`\
 https://nytimes.com/2025/02/12/climate/fema-funds-nyc-migrant-shelters-judge-ruling.html
