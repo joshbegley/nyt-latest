@@ -1,40 +1,40 @@
-**Live Senate Tally: Tulsi Gabbard Confirmation Vote**\
-`Follow the count live.`\
-https://nytimes.com/interactive/2025/02/12/us/politics/gabbard-senate-confirmation-vote.html
+**Ozempic Can Curb Drinking, New Research Shows**\
+`Scientists have several theories about how the drug might reduce alcohol cravings.`\
+https://nytimes.com/2025/02/12/well/ozempic-alcohol-use.html
 
-**Pistons set franchise record in 40-point win over Bulls**\
-`By halftime, Detroit held a 71-29 lead over the Bulls — the biggest halftime lead in franchise history.`\
-https://nytimes.com/athletic/6130744/2025/02/12/pistons-franchise-record-win-bulls/
+**Republicans Love Trump’s Spending Cuts. Just Not in Their States.**\
+`Even as they praise the president’s unilateral actions to slash federal spending, G.O.P. lawmakers have quietly moved to seek carve outs or exemptions for their own constituents.`\
+https://nytimes.com/2025/02/12/us/politics/trump-spending-republicans-agriculture-research.html
 
-**New Hampshire High School Trans Athletes Take Their Fight to Trump**\
-`A lawsuit appears to be the first challenge to the constitutionality of an executive order barring trans athletes from girls’ and women’s sports teams.`\
-https://nytimes.com/2025/02/12/us/trump-trans-girls-women-sports.html
+**A 40-point Bulls loss brought out the boos in Chicago: 'We probably deserved it'**\
+`“We didn’t give them anything to cheer for. We were down 40 in the first half, and that’s not acceptable,” Bulls Josh Giddey said.`\
+https://nytimes.com/athletic/6131406/2025/02/12/bulls-pistons-nba-loss-boos-fans/
 
-**House Democrats Call for Investigation of Top Justice Officials**\
-`In a letter to the Justice Department’s inspector general, seven former Justice employees who now serve in Congress accused two officials of engaging in “flagrant ethics violations.”`\
-https://nytimes.com/2025/02/12/us/politics/house-democrats-justice-department-trump.html
+**Trump’s Education Plans and America’s Most Vulnerable Students**\
+`Hobbling the Department of Education means parents can’t hold states accountable for services.`\
+https://nytimes.com/2025/02/12/opinion/trump-education-disability.html
 
-**Letter From House Democrats on Justice Department Officials**\
-`The letter calls for an investigation of two Justice Department officials: the acting attorney general, Emil Bove, and the interim U.S. attorney for the District of Columbia, Ed Martin/`\
-https://nytimes.com/interactive/2025/02/12/us/politics/12democrats-letter.html
+**‘Ultrahigh Energy’ Neutrino Found With a Telescope Under the Sea**\
+`It’s the most energetic particle of its kind ever discovered, and scientists have no idea where it came from.`\
+https://nytimes.com/2025/02/12/science/astrophysics-universe-neutrinos.html
 
-**Watch Adrien Brody Defend His Art in ‘The Brutalist’**\
-`The director Brady Corbet narrates a scene from his film, which is nominated for 10 Academy Awards.`\
-https://nytimes.com/2025/02/12/movies/adrien-brody-the-brutalist-clip.html
+**Chocolate!**\
+`Chocolate cheesecake with raspberry swirl; chocolate pound cake with strawberry whipped cream; chocolate-covered strawberries. Chocolate.`\
+https://nytimes.com/2025/02/12/dining/chocolate.html
 
-**The Bounce: Why Duke's Cooper Flagg stands alone in a loaded 2025 NBA Draft class**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6131206/2025/02/12/cooper-flagg-duke-2025-nba-draft-the-bounce/
+**One Wordless, Animated Cat Movie. Two Oscar Nominations.**\
+`Gints Zilbalodis’s “Flow” is the first Latvian film to get Academy Award nods, for animated feature and international feature. The director talks about the film’s journey.`\
+https://nytimes.com/2025/02/12/movies/gints-zilbalodis-interview-flow.html
 
-**‘The Brutalist’ | Anatomy of a Scene**\
-`The director Brady Corbet narrates a sequence from his film, starring Adrien Brody. The movie is nominated for 10 Academy Awards.`\
-https://nytimes.com/video/movies/100000009985976/the-brutalist-scene.html
+**7 Unforgettable Dogs at Westminster**\
+`Monty the giant schnauzer took home best in show, but each of the group winners left a lasting impression.`\
+https://nytimes.com/2025/02/12/style/westminster-dog-show-best-in-show.html
 
-**8 Inspectors General Fired by Trump File Lawsuit Seeking Reinstatement**\
-`The case is the latest to challenge a wave of actions by President Trump that brazenly violated legal limits on his power.`\
-https://nytimes.com/2025/02/12/us/politics/inspectors-general-trump-lawsuit.html
+**A Lost Silent Film About Lincoln Was Unearthed by an Intern**\
+`“The Heart of Lincoln,” a 1922 movie directed by the pioneering filmmaker Francis Ford, was found at a stock-footage library on Long Island.`\
+https://nytimes.com/2025/02/12/movies/abraham-lincoln-silent-film-long-island.html
 
-**Giant Schnauzer Wins Best in Show at Westminster**\
-`A 5-year-old dog named Monty took the top prize after reaching the final round for the third consecutive year.`\
-https://nytimes.com/video/us/100000009986043/westminster-dog-show-winner.html
+**With ‘Mindplay,’ Vinny DePonto Wants to Bring More Awe Into Your Life**\
+`In this mentalist show, the magician asks his audience: “What is most meaningful to you?”`\
+https://nytimes.com/2025/02/12/theater/mindplay-vinny-deponto-mentalist.html
 
