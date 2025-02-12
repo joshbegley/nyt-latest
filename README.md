@@ -1,3 +1,7 @@
+**Philadelphia Will Close Schools for Super Bowl Parade**\
+`Nearly 200,000 students in Philadelphia’s schools will be free to attend the public celebration on Friday of the Eagles’ Super Bowl victory.`\
+https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-parade.html
+
 **Kevin Paredes: How Marvel marathons and copycat Chipotle helped USMNT man find 'joy' away from football**\
 `After impressing at the Olympics, the 21-year-old's momentum has been halted by injury - coping with that has been a test of character`\
 https://nytimes.com/athletic/6103479/2025/02/12/usmnt-kevin-paredes-injury-interview-wolfsburg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-ars
 **Two Trump Loyalists**\
 `We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
 https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
-
-**Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
-`Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
-https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
 
