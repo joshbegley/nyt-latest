@@ -1,3 +1,7 @@
+**Leicester probably won't need 40 points for Premier League survival - but they have work to do**\
+`The average points total needed to avoid relegation is falling but Leicester's fixture list makes for daunting reading`\
+https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-league-relegation/
+
 **How Andy Irving rose from obscurity to gain cult status at West Ham**\
 `The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
 https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
