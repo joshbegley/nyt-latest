@@ -1,3 +1,15 @@
+**Watch Adrien Brody Defend His Art in ‘The Brutalist’**\
+`The director Brady Corbet narrates a scene from his film, which is nominated for 10 Academy Awards.`\
+https://nytimes.com/2025/02/12/movies/adrien-brody-the-brutalist-clip.html
+
+**The Bounce: Why Duke's Cooper Flagg stands alone in a loaded 2025 NBA Draft class**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6131206/2025/02/12/cooper-flagg-duke-2025-nba-draft-the-bounce/
+
+**‘The Brutalist’ | Anatomy of a Scene**\
+`The director Brady Corbet narrates a sequence from his film, starring Adrien Brody. The movie is nominated for 10 Academy Awards.`\
+https://nytimes.com/video/movies/100000009985976/the-brutalist-scene.html
+
 **8 Inspectors General Fired by Trump File Lawsuit Seeking Reinstatement**\
 `The case is the latest to challenge a wave of actions by President Trump that brazenly violated legal limits on his power.`\
 https://nytimes.com/2025/02/12/us/politics/inspectors-general-trump-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/world/europe/ukraine-war-hegseth-nato.html
 **Tom Brady buys stake in sports card and memorabilia retailer**\
 `The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
 https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
-
-**Stocks Drop After Hotter Than Expected Inflation Reading**\
-`Investors are now betting that the Federal Reserve will cut interest rates just once more this year, a drastic shift in expectations since late 2024.`\
-https://nytimes.com/2025/02/12/business/stock-market-inflation.html
-
-**For 2026 Milan Cortina Winter Olympics, NBC taking a page from its Paris playbook**\
-`NBC announced plans for Winter Olympics coverage in 2026 that are modeled on its successful programming strategy for Paris 2024.`\
-https://nytimes.com/athletic/6130348/2025/02/12/2026-milan-cortina-winter-olympics-nbc-programming-strategy/
-
-**Defying Johnson, Graham and Senate G.O.P. Push Their Own Budget Plan**\
-`Senator Lindsey Graham, the South Carolina Republican who relishes being in the middle of the action, is leapfrogging the House G.O.P., which is still tied in knots over a budget blueprint.`\
-https://nytimes.com/2025/02/12/us/politics/lindsey-graham-budget-johnson-senate-house.html
 

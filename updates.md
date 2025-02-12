@@ -1,3 +1,15 @@
+**Watch Adrien Brody Defend His Art in ‘The Brutalist’**\
+`The director Brady Corbet narrates a scene from his film, which is nominated for 10 Academy Awards.`\
+https://nytimes.com/2025/02/12/movies/adrien-brody-the-brutalist-clip.html
+
+**The Bounce: Why Duke's Cooper Flagg stands alone in a loaded 2025 NBA Draft class**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6131206/2025/02/12/cooper-flagg-duke-2025-nba-draft-the-bounce/
+
+**‘The Brutalist’ | Anatomy of a Scene**\
+`The director Brady Corbet narrates a sequence from his film, starring Adrien Brody. The movie is nominated for 10 Academy Awards.`\
+https://nytimes.com/video/movies/100000009985976/the-brutalist-scene.html
+
 **8 Inspectors General Fired by Trump File Lawsuit Seeking Reinstatement**\
 `The case is the latest to challenge a wave of actions by President Trump that brazenly violated legal limits on his power.`\
 https://nytimes.com/2025/02/12/us/politics/inspectors-general-trump-lawsuit.html
