@@ -1,3 +1,7 @@
+**Quote of the Day: ‘I Was Dying’: Rushdie Testifies About Stabbing**\
+`Quotation of the Day for Wednesday, February 12, 2025`\
+https://nytimes.com/2025/02/11/pageoneplus/quote-of-the-day-i-was-dying-rushdie-testifies-about-stabbing.html
+
 **Trump Names 2 New Top Financial Regulators**\
 `Jonathan McKernan has been nominated to lead the Consumer Financial Protection Bureau, which has been in turmoil for days.`\
 https://nytimes.com/2025/02/11/us/politics/trump-names-2-new-top-financial-regulators.html
