@@ -1,3 +1,7 @@
+**Sotomayor Says Presidents Are Not Monarchs and Must Obey Rulings**\
+`Speaking in general terms at a Florida college and not naming President Trump, the Supreme Court justice’s remarks took on potency in the current climate.`\
+https://nytimes.com/2025/02/11/us/sotomayor-says-presidents-are-not-monarchs-and-must-obey-rulings.html
+
 **Archer, a Skye terrier, wins the terrier group.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/archer-a-skye-terrier-wins-the-terrier-group
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government
 **A code name, ACC ‘in financial decline': Documents reveal UNC’s conference realignment approach**\
 `UNC’s behind-closed-doors exploration of conference realignment and its future in the ACC was known by only a code name. `\
 https://nytimes.com/athletic/6130428/2025/02/11/north-carolina-conference-realignment-documents-acc/
-
-**Enjoying the Pinnacle of Power, Musk Holds Court on Trump’s Stage**\
-`The president let the spotlight in the Oval Office go to his billionaire friend/budget slasher, who cited blank checks and 150-year-old Social Security beneficiaries to justify purging the federal work force.`\
-https://nytimes.com/2025/02/11/us/politics/trump-musk.html
 

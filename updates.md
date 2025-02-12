@@ -1,3 +1,7 @@
+**Sotomayor Says Presidents Are Not Monarchs and Must Obey Rulings**\
+`Speaking in general terms at a Florida college and not naming President Trump, the Supreme Court justice’s remarks took on potency in the current climate.`\
+https://nytimes.com/2025/02/11/us/sotomayor-says-presidents-are-not-monarchs-and-must-obey-rulings.html
+
 **Finland’s underdog blue line ready for 4 Nations challenge, lines revealed and questions in net**\
 `Is there a defense development crisis in Finland similar to the goaltending development crisis in Canada?`\
 https://nytimes.com/athletic/6130603/2025/02/11/finland-4-nations-defense-starting-goalie-laine/
