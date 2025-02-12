@@ -1,3 +1,11 @@
+**F.C.C. Chair Orders Investigation Into Comcast’s D.E.I. Practices**\
+`The investigation follows inquiries by the agency into NPR, PBS and CBS News.`\
+https://nytimes.com/2025/02/12/business/media/fcc-comcast-nbc-dei-discrimination.html
+
+**Top N.I.H. Official Abruptly Resigns as Trump Orders Deep Cuts**\
+`Dr. Lawrence Tabak, the No. 2 official at the National Institutes of Health, did not give a reason for his departure.`\
+https://nytimes.com/2025/02/12/us/politics/national-health-institutes-resignation-trump.html
+
 **A Major Storm Is About to Soak California**\
 `In Southern California, the flooding could be life-threatening in areas burned by wildfires.`\
 https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
