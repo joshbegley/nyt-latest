@@ -1,3 +1,19 @@
+**Dodgers' Shohei Ohtani expected to throw his first bullpen this weekend**\
+`Ohtani won't overdo his intensity as he ramps up for a return to pitching: “It’s gonna be more about touching the slope."`\
+https://nytimes.com/athletic/6132576/2025/02/12/shohei-ohtani-return-pitching/
+
+**Michael Lombardi on UNC under Bill Belichick: 'We consider ourselves the 33rd team'**\
+`A former NFL general manager, Lombardi will serve as North Carolina's GM and help Belichick build the Tar Heels' roster.`\
+https://nytimes.com/athletic/6132510/2025/02/12/bill-belichick-unc-football-michael-lombardi/
+
+**Rich Rodriguez hires WVU legend Pat White as assistant QBs coach**\
+`West Virginia quarterback great Pat White has returned to his alma mater as an assistant quarterbacks coach and assistant to returning head coach Rich Rodriguez, the school announced Wednesday.`\
+https://nytimes.com/athletic/6132645/2025/02/12/pat-white-west-virginia-rich-rodriguez-staff/
+
+**FIFA suspends employee after arrest on charge of meeting a minor for sex**\
+`Jack Edward Coles was arrested on two counts relating to sexual activity with a minor, per a court filing.`\
+https://nytimes.com/athletic/6131089/2025/02/12/fifa-employee-arrest-florida/
+
 **Mr. President, Foreign Aid Does Put America First**\
 `U.S.A.I.D. keeps children alive and us safe.`\
 https://nytimes.com/2025/02/12/opinion/usaid-foreign-aid.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
 **Nominee for No. 2 Official at Justice Dept., Todd Blanche, Denounces Treatment of Trump**\
 `Mr. Blanche made clear that his prior work as a personal lawyer for the president informed his approach to the job of deputy attorney general.`\
 https://nytimes.com/2025/02/12/us/politics/trump-deputy-attorney-general-hearing.html
-
-**Two Brothers Bring Their Love of Venice to Watches**\
-`The Venezianico brand now has five collections, with designs inspired by the city’s heritage.`\
-https://nytimes.com/2025/02/12/fashion/watches-venezianico-italy.html
-
-**Many Groups Promised Federal Aid Still Have No Funds and No Answers**\
-`Judicial rulings have unfrozen some grants awaited by nonprofits, states and companies, but the reprieve has been uneven and many fear the relief is only temporary.`\
-https://nytimes.com/2025/02/12/us/politics/trump-federal-aid-freeze.html
-
-**Illinois County to Pay $10 Million After Fatal Shooting of Black Woman**\
-`A Sangamon County deputy fatally shot Sonya Massey, 36, last year, after she called to report a prowler outside her home in Springfield, Ill. The former deputy has been charged with murder.`\
-https://nytimes.com/2025/02/12/us/sonya-massey-shooting-settlement.html
-
-**LFP launches legal action against DAZN over payment for Ligue 1 rights**\
-`DAZN has made it clear it either wants to renegotiate a much lower annual fee or activate the break-clause in its deal with LFP.`\
-https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
 
