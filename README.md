@@ -6,7 +6,7 @@ https://nytimes.com/2025/02/12/us/politics/trump-federal-workers-buyout.html
 `The league and union still have to hash out details like the host city (or cities), Russian participation and participating countries.`\
 https://nytimes.com/athletic/6132466/2025/02/12/hockey-world-cup-2028-nhl-nhlpa/
 
-**Champions league knockout betting review: who are the bookies second-leg favourites?**\
+**Champions league knockout betting review: Who are the bookmakers' second-leg favourites?**\
 ` Julia Ranney, Brett Koremenos and Sam Tighe review this evening’s Champions League games, with a look ahead at the second legs' odds. `\
 https://nytimes.com/athletic/6132646/2025/02/12/champions-league-knockout-round-betting-review-second-leg-predictions/
 
