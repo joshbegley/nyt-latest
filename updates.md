@@ -1,3 +1,7 @@
+**Treasury Secretary Expected to Visit Kyiv**\
+`The visit by Scott Bessent will be the first by a Trump official since the president’s return to office and comes amid uncertainty about the future of U.S. support for Ukraine.`\
+https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html
+
 **Philadelphia Will Close Schools for Super Bowl Parade**\
 `Nearly 200,000 students in Philadelphia’s schools will be free to attend the public celebration on Friday of the Eagles’ Super Bowl victory.`\
 https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-parade.html

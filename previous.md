@@ -1,3 +1,7 @@
+**Treasury Secretary Expected to Visit Kyiv**\
+`The visit by Scott Bessent will be the first by a Trump official since the president’s return to office and comes amid uncertainty about the future of U.S. support for Ukraine.`\
+https://nytimes.com/2025/02/12/world/europe/scott-bessent-us-ukraine.html
+
 **Philadelphia Will Close Schools for Super Bowl Parade**\
 `Nearly 200,000 students in Philadelphia’s schools will be free to attend the public celebration on Friday of the Eagles’ Super Bowl victory.`\
 https://nytimes.com/2025/02/12/us/philadelphia-schools-closed-eagles-super-bowl-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129337/2025/02/12/f1-tv-rights-netflix-espn-amazon
 **Arsenal's Havertz set to miss rest of season with torn hamstring**\
 `The injury to Havertz adds to Arsenal's fitness issues up front, with Bukayo Saka, Gabriel Jesus and Gabriel Martinelli all currently out.`\
 https://nytimes.com/athletic/6129812/2025/02/12/kai-havertz-hamstring-injury-arsenal/
-
-**Two Trump Loyalists**\
-`We’re covering two of this administration’s most controversial nominees — Tulsi Gabbard and Kash Patel.`\
-https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
 
