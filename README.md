@@ -1,3 +1,7 @@
+**Live Senate Tally: Tulsi Gabbard Confirmation Vote**\
+`Follow the count live.`\
+https://nytimes.com/interactive/2025/02/12/us/politics/gabbard-senate-confirmation-vote.html
+
 **Pistons set franchise record in 40-point win over Bulls**\
 `By halftime, Detroit held a 71-29 lead over the Bulls — the biggest halftime lead in franchise history.`\
 https://nytimes.com/athletic/6130744/2025/02/12/pistons-franchise-record-win-bulls/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/inspectors-general-trump-lawsuit.html
 **Giant Schnauzer Wins Best in Show at Westminster**\
 `A 5-year-old dog named Monty took the top prize after reaching the final round for the third consecutive year.`\
 https://nytimes.com/video/us/100000009986043/westminster-dog-show-winner.html
-
-**Museum With Renowned Dinosaur Fossils Gets a $25 Million Gift**\
-`The Carnegie Museum of Natural History in Pittsburgh, home to the Tyrannosaurus rex holotype and a famous Diplodocus, will benefit from Carole and Daniel Kamin’s donation.`\
-https://nytimes.com/2025/02/12/arts/design/carnegie-museum-pittsburgh-dinosaurs-donation.html
 
