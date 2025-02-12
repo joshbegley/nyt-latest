@@ -1,3 +1,27 @@
+**Kevin Paredes: How Marvel marathons and copycat Chipotle helped USMNT man find 'joy' away from football**\
+`After impressing at the Olympics, the 21-year-old's momentum has been halted by injury - coping with that has been a test of character`\
+https://nytimes.com/athletic/6103479/2025/02/12/usmnt-kevin-paredes-injury-interview-wolfsburg/
+
+**Eriksson Ek wasn't missing the 4 Nations, McDavid and Hedman praise Brodin**\
+`Team USA captain Auston Matthews also surprised John Hynes at the Americans' team dinner.`\
+https://nytimes.com/athletic/6129688/2025/02/12/wild-joel-eriksson-ek-4-nations-face-off-jonas-brodin/
+
+**Broncos 7-round mock draft: Can Sean Payton land 2 Jokers with Denver's 7 picks?**\
+`The Broncos haven't had consistent tight end production since trading Noah Fant, but this draft could end that drought for Denver.`\
+https://nytimes.com/athletic/6129259/2025/02/12/broncos-mock-draft-sean-payton-joker/
+
+**'Stop crying your heart out': How Vinicius Junior silenced City's taunts**\
+`The Brazilian underlined his star quality on a night when City fans' jibes fell flat`\
+https://nytimes.com/athletic/6130501/2025/02/12/vinicius-junior-manchester-city-ballon-dor/
+
+**Lowetide: Is Patrick Kane a trade target fit for the Oilers?**\
+`The Oilers might be wise to add Kane in a trade with the Red Wings ahead of the March 7 deadline.`\
+https://nytimes.com/athletic/6128746/2025/02/12/oilers-trade-deadline-patrick-kane/
+
+**‘Dutchman’: An Electrifying Dance of Death**\
+`A newly restored film adaptation of Amiri Baraka’s provocative 1964 play evoking racial and sexual anxiety is showing at the Museum of Modern Art.`\
+https://nytimes.com/2025/02/12/movies/dutchman-moma.html
+
 **Netflix? Amazon? Why the race for F1’s U.S. TV rights could change the sport**\
 `F1’s broadcast rights in the U.S are up for renewal at the end of the year. The outcome of the deal will be critical to the sport's fortunes`\
 https://nytimes.com/athletic/6129337/2025/02/12/f1-tv-rights-netflix-espn-amazon-streaming/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/12/briefing/two-trump-loyalists.html
 **Q&A: Blackhawks' Davidson on complementing Bedard, trading top pick**\
 `Davidson spoke recently to The Athletic about where the Blackhawks' rebuild is and where it needs to get to.`\
 https://nytimes.com/athletic/6128089/2025/02/12/blackhawks-kyle-davidson-connor-bedard-qa/
-
-**In Trump’s Cross Hairs Over Taking Gazans, Egypt and Jordan Try Diversion**\
-`The U.S. president has repeatedly asked the two Mideast allies to take in two million Palestinians from Gaza. Both Egypt and Jordan have been trying to offer Mr. Trump help in other ways.`\
-https://nytimes.com/2025/02/12/world/middleeast/trump-gaza-egypt-jordan.html
-
-**Villa's MacPhee appointed Portugal assistant coach**\
-`Austin MacPhee has landed a new role as the assistant coach of Portugal, which he will combine with his current position as Aston Villa set piece coach.`\
-https://nytimes.com/athletic/6128945/2025/02/12/austin-macphee-aston-villa-portugal-coach/
-
-**The Pulse: The disappearing Canadian goalie**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6130452/2025/02/12/canada-4-nations-goalies-the-pulse/
-
-**'He's got a gift': Islanders prospect Cole Eiserman scores big goals wherever he goes**\
-`The Islanders' first-round pick in 2024 isn't afraid to celly like his NHL idol when he finds the net, and he does both a lot.`\
-https://nytimes.com/athletic/6129017/2025/02/12/cole-eiserman-new-york-islanders-prospect-big-goals/
-
-**What each AFC playoff team needs this offseason to compete again in 2025**\
-`Where can the Steelers, Broncos, Chargers, Ravens, Texans, Bills and Chiefs improve before the 2025 NFL season begins?`\
-https://nytimes.com/athletic/6129309/2025/02/12/afc-offseason-priorities-bills-chiefs-steelers/
-
-**Chubby Checker, Phish and Outkast Among Rock Hall Nominees**\
-`Billy Idol, the Black Crowes and Maná will also appear on the ballot for the first time, alongside Oasis, Joe Cocker, Mariah Carey and others.`\
-https://nytimes.com/2025/02/12/arts/music/rock-hall-nominees-chubby-checker-phish-outkast.html
 
