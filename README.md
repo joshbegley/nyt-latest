@@ -1,3 +1,7 @@
+**How Andy Irving rose from obscurity to gain cult status at West Ham**\
+`The Scot's route to the Premier League was unconventional, with spells in Germany and Austria, but he is intent on making up for lost time`\
+https://nytimes.com/athletic/6127947/2025/02/12/irving-west-ham-scotland-potter/
+
 **How Big Is the Tariff on That Harley? Trump and Modi Are Set to Talk Trade.**\
 `As two-way trade expands, India’s surplus is growing. President Trump is expected to press Prime Minister Narendra Modi to lower tariffs.`\
 https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128728/2025/02/12/cole-palmer-chelsea-goals-assist
 **Kevin Durant and the march toward 30,000 points: 'Consistency of greatness'**\
 `Durant does not set out to pursue a specific award or accolade. He instead follows a simple mindset: Just do more.`\
 https://nytimes.com/athletic/6104651/2025/02/12/kevin-durant-30000-points-nba-suns/
-
-**Crystal Palace fans: We are taking requests – what would you like to read about?**\
-`Let us know what you would be interested in knowing about`\
-https://nytimes.com/athletic/6124224/2025/02/12/crystal-palace-fans-article-suggestions/
 
