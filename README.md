@@ -22,8 +22,8 @@ https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/the-nominee-for-th
 `The Cy Young winner knows the Mets and Dodgers spent boatloads in the offseason but said: "I like our chances as much as anybody."`\
 https://nytimes.com/athletic/6132179/2025/02/12/braves-chris-sale-interview/
 
-**FEMA Seizes $80 Million in Approved Funding for N.Y.C. Migrant Shelters**\
-`The comptroller’s office, which first noticed the missing money, said that the federal agency had unilaterally taken the funds from the city’s accounts.`\
+**New York Got $80 Million for Migrants. The White House Took It Back.**\
+`The New York City comptroller’s office, which first noticed the missing money, said that the Federal Emergency Management Agency had unilaterally taken the funds from the city’s accounts.`\
 https://nytimes.com/2025/02/12/nyregion/doge-migrant-hotel-shelters.html
 
 **Flu Cases Are Surging**\
