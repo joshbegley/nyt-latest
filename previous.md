@@ -1,3 +1,7 @@
+**Tom Brady buys stake in sports card and memorabilia retailer**\
+`The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
+https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
+
 **Stocks Drop After Hotter Than Expected Inflation Reading**\
 `Investors are now betting that the Federal Reserve will cut interest rates just once more this year, a drastic shift in expectations since late 2024.`\
 https://nytimes.com/2025/02/12/business/stock-market-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/style/boys-will-be-boys-excuse.html
 **Munich City Council in row over where Nations League semi-finals will be held**\
 `A row is developing between UEFA, European football’s governing body, the German Football Association, and the city of Munich, over where this summer’s Nations League semi-finals and final will be staged and who will pay for it.`\
 https://nytimes.com/athletic/6131192/2025/02/12/nations-league-uefa-germany-munich/
-
-**North Korea Is Caring for Russia’s Wounded Soldiers, Envoy Says**\
-`Russia’s ambassador to North Korea said that its Asian ally is also hosting Russian children orphaned by its war against Ukraine, as the two nations deepen ties.`\
-https://nytimes.com/2025/02/12/world/asia/north-korea-russia-soldiers-orphans.html
 

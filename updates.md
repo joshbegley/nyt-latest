@@ -1,3 +1,7 @@
+**Tom Brady buys stake in sports card and memorabilia retailer**\
+`The trading card and memorabilia retailer has locations inside TD Garden and Gillette Stadium, with more to come `\
+https://nytimes.com/athletic/6131306/2025/02/12/tom-brady-cardvault/
+
 **Stocks Drop After Hotter Than Expected Inflation Reading**\
 `Investors are now betting that the Federal Reserve will cut interest rates just once more this year, a drastic shift in expectations since late 2024.`\
 https://nytimes.com/2025/02/12/business/stock-market-inflation.html
