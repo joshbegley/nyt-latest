@@ -1,11 +1,3 @@
-**FEMA Seizes $80 Million in Approved Funding for N.Y.C. Migrant Shelters**\
-`The comptroller’s office, which first noticed the missing money, said that the federal agency had unilaterally taken the funds from the city’s accounts.`\
-https://nytimes.com/2025/02/12/nyregion/doge-migrant-hotel-shelters.html
-
-**Flu Cases Are Surging**\
-`At least 24 million cases have been reported so far this season — and the virus is still spreading widely.`\
-https://nytimes.com/2025/02/12/well/flu-season-risk.html
-
 **Christopher Jencks, a Shaper of Views on Economic Inequality, Dies at 88**\
 `His clear prose, illuminating data and novel arguments helped transform debates around issues like public education and welfare reform.`\
 https://nytimes.com/2025/02/12/books/christopher-jencks-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/02/12/nyregion/jonathan-rivera-allan-feliz-police-disci
 **Trump Is Closing the Curtain on the American Century**\
 `The Trump administration is leading the world into a chaotic global order.`\
 https://nytimes.com/2025/02/12/opinion/trump-world-usaid.html
+
+**What’s the Difference Between an Outfit and a ’Fit?**\
+`Photos from New York Fashion Week parties document the chaos and confidence that comes out at night.`\
+https://nytimes.com/2025/02/12/style/nyfw-party-outfits.html
+
+**Trump Elected Chair of Kennedy Center as Its President Steps Down**\
+`The president solidified his grip on the performing arts complex as the center’s longtime president, Deborah F. Rutter, announced she was stepping down.`\
+https://nytimes.com/2025/02/12/us/politics/trump-kennedy-center-chairman.html
 
