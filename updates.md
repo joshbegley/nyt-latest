@@ -1,3 +1,7 @@
+**A Deep-Sea Fish of Nightmares Strays Into Shallow Waters**\
+`A scary-looking creature with “devil” in its name was spotted close to the surface off Tenerife, a Spanish island.`\
+https://nytimes.com/2025/02/12/science/black-seadevil-anglerfish.html
+
 **Trump Nominates Oil and Gas Advocate to Run Bureau of Land Management**\
 `The nominee, Kathleen Sgamma, has worked for nearly two decades on behalf of oil and gas companies in Western states.`\
 https://nytimes.com/2025/02/12/us/kathleen-sgamma-blm-trump.html

@@ -1,3 +1,7 @@
+**A Deep-Sea Fish of Nightmares Strays Into Shallow Waters**\
+`A scary-looking creature with “devil” in its name was spotted close to the surface off Tenerife, a Spanish island.`\
+https://nytimes.com/2025/02/12/science/black-seadevil-anglerfish.html
+
 **Trump Nominates Oil and Gas Advocate to Run Bureau of Land Management**\
 `The nominee, Kathleen Sgamma, has worked for nearly two decades on behalf of oil and gas companies in Western states.`\
 https://nytimes.com/2025/02/12/us/kathleen-sgamma-blm-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/hawaii-volcano-eruption-kilauea.html
 **Austrian Coalition Talks Collapse, Averting a Far-Right Chancellor for Now**\
 `The plan by the far-right Freedom Party to run Austria was halted by a disagreement over who would lead the all-important Interior Ministry.`\
 https://nytimes.com/2025/02/12/world/europe/austria-coalition-talks-far-right-chancellor.html
-
-**Tiny Love Stories: ‘Two Boyfriends at One Time’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/02/12/style/tiny-modern-love-stories-two-boyfriends-at-one-time.html
 
