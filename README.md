@@ -1,3 +1,19 @@
+**Kennedy One Step Closer to Confirmation as Health Secretary After Senate Vote**\
+`The Senate voted along party lines to advance the nomination of Robert F. Kennedy Jr. for health secretary to the floor for a final vote, likely Thursday.`\
+https://nytimes.com/2025/02/12/us/rfk-jr-senate-vote-hhs.html
+
+**Scoop City: Understand Vic Fangio's defense in one play**\
+`Inside: A film breakdown of the Eagles defense, grades for every coaching hire (now that the Saints have officially landed Kellen Moore) and Cam Newton calling out his former Panthers teammates, among other notable quotes.`\
+https://nytimes.com/athletic/6131825/2025/02/12/vic-fangio-defense-explained-nfl-eagles-super-bowl-scoop-city/
+
+**Sean Combs Sues NBC Over Documentary That He Says Defamed Him**\
+`The documentary, “Diddy: Making of a Bad Boy,” began streaming on NBCUniversal’s Peacock platform last month.`\
+https://nytimes.com/2025/02/12/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
+**In Daytona Beach, NASCAR's influence goes far beyond Sunday's iconic race**\
+`DAYTONA BEACH, Fla.`\
+https://nytimes.com/athletic/6130470/2025/02/12/daytona-500-beach-nascar-city-ties/
+
 **U.N. Calls Bangladesh Protest Crackdown a Possible Crime Against Humanity**\
 `As many as 1,400 people were killed in former Prime Minister Sheikh Hasina’s violent response to a student-led revolt, according to a U.N. inquiry.`\
 https://nytimes.com/2025/02/12/world/asia/bangladesh-hasina-un-report.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/12/style/mens-fashion-new-york-fashion-week-calvin-k
 **Why Amy Tan Decided Not to Shred Her Archive**\
 `The author of “The Joy Luck Club” once vowed to have her papers destroyed after her death. Now they are going to the University of California, Berkeley.`\
 https://nytimes.com/2025/02/12/arts/amy-tan-archive-berkeley.html
-
-**The N.E.A.’s New Gender and Diversity Edicts Worry Arts Groups**\
-`As the National Endowment for the Arts adjusts to comply with President Trump’s executive orders, “gender ideology” is out and works that “honor the nation’s rich artistic heritage” are in.`\
-https://nytimes.com/2025/02/12/arts/nea-dei-gender.html
-
-**My Partner Cheated and Said It ‘Didn’t Mean Anything.’ How Should I Feel?**\
-`The magazine’s Ethicist columnist on how to handle emotional manipulation from an unfaithful lover.`\
-https://nytimes.com/2025/02/12/magazine/partner-cheated-means-nothing-ethics.html
-
-**Fool's gold? How to bet on Luka Dončić and LA after the blockbuster trade**\
-`Breaking down the best — and worst — props and futures to bet on with Luka on the Lakers. `\
-https://nytimes.com/athletic/6131399/2025/02/12/luka-doncic-trade-lakers-betting-props/
-
-**Travis Kelce contemplates future in first media appearance since Super Bowl LIX loss**\
-`Kelce is "kicking every can I can down the road" regarding retirement, but did offer insight into the wear Super Bowl runs take on players.`\
-https://nytimes.com/athletic/6131432/2025/02/12/travis-kelce-retirement-new-heights-super-bowl/
 
