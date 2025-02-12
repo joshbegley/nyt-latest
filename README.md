@@ -1,3 +1,15 @@
+**Playing Chelsea again presents a 'different challenge' - Hurzeler**\
+`Brighton host Chelsea again in the Premier League on Friday night, having knocked them out of the FA Cup with a 2-1 win on Saturday.`\
+https://nytimes.com/athletic/6129361/2025/02/12/fabian-hurzeler-chelsea-brighton/
+
+**Word of the Day: obliquely**\
+`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
+
+**Nottingham Forest are the highest-ranked team left in the FA Cup - it's there to be won**\
+`In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
+https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
+
 **Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
 `The celebrations that followed told you this was a big moment for a young Madrid team`\
 https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/business/trump-modi-tariffs-india.html
 **Why the Merseyside derby now sounds less Scouse**\
 `English top-flight football's most historic derby has increasingly less local representation. Can the trend be reversed?`\
 https://nytimes.com/athletic/6126458/2025/02/12/liverpool-everton-merseyside-derby-local-player/
-
-**Will it become increasingly common to see footballers still playing in their 40s?**\
-`Will changes in sports science and medicine make 40-year-old players, such as Cristiano Ronaldo, the norm?`\
-https://nytimes.com/athletic/6126482/2025/02/12/footballers-40-ronaldo/
-
-**Is Manchester United's data department 'last century' - and how should it change?**\
-`United are playing catch up at this cutting edge of the football industry and, despite making progress, there are no quick fixes`\
-https://nytimes.com/athletic/6129400/2025/02/12/manchester-united-data-department/
-
-**Sam Kerr, a nightmare two years and now the chance to look to the future**\
-`More than two years after the incident that led to her trial, Chelsea and Australia striker Kerr is free to resume her career`\
-https://nytimes.com/athletic/6129216/2025/02/12/sam-kerr-trial-chelsea-innocent/
 
