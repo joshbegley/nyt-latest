@@ -1,3 +1,11 @@
+**Some Looks Into Space**\
+`Extra, extra fun awaits you in Philip Koski’s crossword.`\
+https://nytimes.com/2025/02/11/crosswords/daily-puzzle-2025-02-12.html
+
+**Fact-Checking Musk’s Oval Office Remarks**\
+`Appearing alongside President Trump, Elon Musk made remarks that included broad accusations and misleading claims.`\
+https://nytimes.com/2025/02/11/us/elon-musk-doge-fact-check.html
+
 **Corrections: Feb. 12, 2025**\
 `Corrections that appeared in print on Wednesday, Feb. 12, 2025.`\
 https://nytimes.com/2025/02/11/pageoneplus/corrections-feb-12-2025.html

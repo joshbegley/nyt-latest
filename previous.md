@@ -1,3 +1,11 @@
+**Some Looks Into Space**\
+`Extra, extra fun awaits you in Philip Koski’s crossword.`\
+https://nytimes.com/2025/02/11/crosswords/daily-puzzle-2025-02-12.html
+
+**Fact-Checking Musk’s Oval Office Remarks**\
+`Appearing alongside President Trump, Elon Musk made remarks that included broad accusations and misleading claims.`\
+https://nytimes.com/2025/02/11/us/elon-musk-doge-fact-check.html
+
 **Corrections: Feb. 12, 2025**\
 `Corrections that appeared in print on Wednesday, Feb. 12, 2025.`\
 https://nytimes.com/2025/02/11/pageoneplus/corrections-feb-12-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/11/style/westminster-dog-show-results/freddie-a
 **Where Trump, Musk and DOGE Have Cut Federal Workers So Far**\
 `President Trump and Elon Musk have spent three weeks slashing federal jobs — often in defiance of legal limits — and there are more to come. These are the reported cuts to date.`\
 https://nytimes.com/interactive/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
-
-**Trump Orders Plans for ‘Large Scale’ Work Force Cuts and Expands Musk’s Power**\
-`The latest executive order by the president made clear that the billionaire’s cost-cutting team will have continuing oversight of the Civil Service.`\
-https://nytimes.com/2025/02/11/us/politics/trump-musk-doge-federal-workers.html
-
-**The New NIMBY Battle Over the Waste From the L.A. Fires**\
-`Federal and state officials say the temporary sites for processing hazardous waste pose no threat, but residents are worried about their air and water.`\
-https://nytimes.com/2025/02/11/us/wildfires-toxic-waste-sites.html
 
