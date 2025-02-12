@@ -1,3 +1,11 @@
+**Virginia Snowstorm Leaves 180,000 Without Power and Causes Havoc on Highways**\
+`More than a foot of snow fell across much of Virginia as wintry weather swept across the Mid-Atlantic. State officials said more than 900 car collisions had been reported.`\
+https://nytimes.com/2025/02/12/us/snow-storm-virginia-power-outage.html
+
+**Eggs Over Easy? Not These Days.**\
+`The soaring cost of eggs is hitting your local breakfast spot hard.`\
+https://nytimes.com/2025/02/12/business/high-egg-prices-restaurants.html
+
 **Submit your Jets trade proposals for Murat Ates’ ‘Who says no?’ mailbag**\
 `Have an idea for a Jets trade ahead of the March 7 deadline? Submit it here and it could be addressed in an upcoming story.`\
 https://nytimes.com/athletic/6132061/2025/02/12/winnipeg-jets-trade-deadline-2025-proposals/

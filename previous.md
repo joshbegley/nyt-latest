@@ -1,3 +1,11 @@
+**Virginia Snowstorm Leaves 180,000 Without Power and Causes Havoc on Highways**\
+`More than a foot of snow fell across much of Virginia as wintry weather swept across the Mid-Atlantic. State officials said more than 900 car collisions had been reported.`\
+https://nytimes.com/2025/02/12/us/snow-storm-virginia-power-outage.html
+
+**Eggs Over Easy? Not These Days.**\
+`The soaring cost of eggs is hitting your local breakfast spot hard.`\
+https://nytimes.com/2025/02/12/business/high-egg-prices-restaurants.html
+
 **Submit your Jets trade proposals for Murat Ates’ ‘Who says no?’ mailbag**\
 `Have an idea for a Jets trade ahead of the March 7 deadline? Submit it here and it could be addressed in an upcoming story.`\
 https://nytimes.com/athletic/6132061/2025/02/12/winnipeg-jets-trade-deadline-2025-proposals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
 **Is This a Constitutional Crisis?**\
 `Readers discuss the showdown with President Trump. Also: A report on nature; Hank Azaria’s voice; A.I. jobs; attacks on diversity.`\
 https://nytimes.com/2025/02/12/opinion/trump-constitutional-crisis.html
-
-**Ohio State hiring Matt Patricia as defensive coordinator**\
-`Patricia will be tasked with keeping Ohio State’s defense as one of the best in the country, despite losing seven starters.`\
-https://nytimes.com/athletic/6131976/2025/02/12/matt-patricia-ohio-state-defensive-coordinator-hiring/
-
-**Environmentalists Gear Up to Fight Trump in Court**\
-`As Trump pledges regulatory rollbacks, environmental groups say the administration’s aggressive cost-cutting tactics could make it easier for them to win some long-term battles.`\
-https://nytimes.com/2025/02/12/climate/environmental-legal-strategy-lawsuit.html
 
