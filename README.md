@@ -1,3 +1,11 @@
+**Musk and Trump Appear Together in the Oval Office**\
+`Elon Musk, who was accompanied by his 4-year-old son, claimed without evidence that the Department of Government Efficiency had found multiple instances of fraud and waste across the federal government.`\
+https://nytimes.com/video/us/politics/100000009985196/trump-musk-doge-government-corruption.html
+
+**A code name, ACC ‘in financial decline': Documents reveal UNC’s conference realignment approach**\
+`UNC’s behind-closed-doors exploration of conference realignment and its future in the ACC was known by only a code name. `\
+https://nytimes.com/athletic/6130428/2025/02/11/north-carolina-conference-realignment-documents-acc/
+
 **Enjoying the Pinnacle of Power, Musk Holds Court on Trump’s Stage**\
 `The president let the spotlight in the Oval Office go to his billionaire friend/budget slasher, who cited blank checks and 150-year-old Social Security beneficiaries to justify purging the federal work force.`\
 https://nytimes.com/2025/02/11/us/politics/trump-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/11/us/politics/trump-orders-bribery-corruption.html
 **Reds spring training notes: Rhett Lowder held back; Spencer Steer limited to DH early**\
 `Lowder's delayed progression for the upcoming season is more of a precaution than anything.`\
 https://nytimes.com/athletic/6130384/2025/02/11/reds-rhett-lowder-spring-training/
-
-**James Franklin takeaways: Updating the coaching staff and the wide receivers situation**\
-`Much has transpired in the past month at Penn State, and Franklin broke it down Tuesday.`\
-https://nytimes.com/athletic/6130271/2025/02/11/penn-state-jim-knowles-james-franklin-running-back-coach/
-
-**Why Canada is giving Jordan Binnington the 4 Nations net with 'full confidence': 'Binner's a winner'**\
-`"He seems really dialed in right now," Team Canada forward Nathan MacKinnon said of his Central Division rival. "Full confidence in him."`\
-https://nytimes.com/athletic/6130257/2025/02/11/jordan-binnington-canada-4-nations-goalie/
 
