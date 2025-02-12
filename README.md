@@ -1,3 +1,15 @@
+**Trump Elected Chair of Kennedy Center as Its President Steps Down**\
+`The president solidified his grip on the performing arts complex as the center’s longtime president, Deborah F. Rutter, announced she was stepping down.`\
+https://nytimes.com/2025/02/12/us/politics/trump-kennedy-center-chairman.html
+
+**Immigrant Aid Groups Seek Access to Migrants Sent by Trump to Guantánamo**\
+`In a lawsuit, the groups asked a judge to enable lawyers to communicate with the men in case they would like legal representation.`\
+https://nytimes.com/2025/02/12/us/guantanamo-trump-lawsuit-migrants-venezuela.html
+
+**Heat Today: As NBA All-Star break nears, road trip for Heat, Erik Spoelstra could pose vital test**\
+`Miami is once again under .500, but its upcoming road trip (and the All-Star break) could pose a chance to correct key issues.`\
+https://nytimes.com/athletic/6131715/2025/02/12/miami-heat-erik-spoelstra-nba-tyler-herro-bam-adebayo/
+
 **How Elon Musk and the Right Are Trying to Recast Reporting as ‘Doxxing’**\
 `Right-wing influencers are criticizing journalists who have published public information about government employees.`\
 https://nytimes.com/2025/02/12/business/media/elon-musk-doxxing-marko-elez.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
 **‘Henry IV’ Review: Two Plays Become One**\
 `The relationship between Prince Hal and John Falstaff, a favorite of Shakespeare scholars, is the focus of this condensed adaptation.`\
 https://nytimes.com/2025/02/12/theater/henry-iv-review.html
-
-**Mets' longest-tenured pitcher agrees to new deal**\
-`Drew Smith, coming off hybrid Tommy John surgery in July, will likely be back to full strength in 2026.`\
-https://nytimes.com/athletic/6132125/2025/02/12/mets-drew-smith-contract/
-
-**Answer 4 Questions. Leave With a Romance Novel You’ll Love.**\
-`Tell us a few things about what you like, and we’ll give you a spot-on recommendation.`\
-https://nytimes.com/interactive/2025/02/12/books/romance-novel-quiz.html
-
-**After 3 Die in Fires, Officials Urge Drivers Not to Block Hydrants**\
-`Firefighters had to navigate cars that blocked hydrants in two fires in the Bronx and in Brooklyn. “Seconds count when we’re fighting fire,” said a Fire Department chief.`\
-https://nytimes.com/2025/02/12/nyregion/fire-response-hydrants-parked-cars.html
 
