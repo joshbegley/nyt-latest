@@ -1,3 +1,15 @@
+**OpenAI Questions Rationale of Elon Musk’s Bid to Control the Company**\
+`The company answered the billionaire’s offer in a legal filing, accusing him of hypocrisy.`\
+https://nytimes.com/2025/02/12/technology/elon-musk-openai-response.html
+
+**If this is the end for Angels and Anthony Rendon, it's a depressingly fitting conclusion**\
+`While there’s no true finality yet, Wednesday’s news still felt like this relationship had reached a point of no return. `\
+https://nytimes.com/athletic/6132625/2025/02/12/anthony-rendon-angels-contract-end/
+
+**Eric Adams Discussed Possible Republican Primary Run With G.O.P. Leader**\
+`The mayor discussed options to run for re-election in the Republican contest as recently as Monday. Asked for comment, he said he was running as a Democrat.`\
+https://nytimes.com/2025/02/12/nyregion/eric-adams-republican-primary.html
+
 **Czech Dam Project Was Stalled by Bureaucracy. Beavers Built Their Own.**\
 `The dam project, drafted in 2018 and based on a former military training site south of Prague, had been delayed by land negotiations. Local beavers built several dams, saving the government more than one million euros.`\
 https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bureaucracy-beavers-built-their-own.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6132651/2025/02/12/liverpool-everton-merseyside-der
 **Brayan Bello admits feeling pressure from contract extension, ready now to handle high expectations**\
 `Bello admits expectations after his extension got to him, but he’s better prepared to meet them in 2025.`\
 https://nytimes.com/athletic/6132728/2025/02/12/brayan-bello-red-sox-expectations/
-
-**Trump and Musk Hunt for Corruption, Very Selectively**\
-`Spending that the White House does not like is being labeled fraudulent. At the same time, President Trump is rolling back anticorruption efforts and ethical standards for himself and allies like Elon Musk.`\
-https://nytimes.com/2025/02/12/us/politics/trump-musk-corruption.html
-
-**G.S.A. begins staff cuts, targeting probationary employees.**\
-`By Kate Conger and Madeleine Ngo`\
-https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/gsa-begins-staff-cuts-targeting-probationary-employees
-
-**Three unanswered Yankees questions as spring training begins**\
-`The Yankees still need to figure out their starting third baseman, leadoff hitter and more in the next six weeks. `\
-https://nytimes.com/athletic/6132601/2025/02/12/yankees-spring-training-questions/
 
