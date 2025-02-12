@@ -10,7 +10,7 @@ https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
 `In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
 https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
 
-**Real Madrid's stars needed to show a collective effort to beat Manchester City - and they did**\
+**Real Madrid's stars needed to show a collective effort to beat City - and they did**\
 `The celebrations that followed told you this was a big moment for a young Madrid team`\
 https://nytimes.com/athletic/6130718/2025/02/12/real-madrid-workrate-balance-manchester-city-champions-league/
 
