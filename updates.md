@@ -1,3 +1,7 @@
+**The New NIMBY Battle Over the Waste From the L.A. Fires**\
+`Federal and state officials say the temporary sites for processing hazardous waste pose no threat, but residents are worried about their air and water.`\
+https://nytimes.com/2025/02/11/us/wildfires-toxic-waste-sites.html
+
 **Trump Curtails Anti-Corruption Efforts, Suggesting Charging Bribery Is Unfair**\
 `The Trump administration is telling prosecutors and agents to care less on efforts to investigate foreign corruption, including a case against New York’s mayor.`\
 https://nytimes.com/2025/02/11/us/politics/trump-orders-bribery-corruption.html
