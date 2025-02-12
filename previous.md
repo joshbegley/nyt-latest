@@ -1,3 +1,7 @@
+**Death threats, racism, Venmo requests: Dark side of sports betting and its impact on NBA players**\
+`The legalization of sports gambling has led to players being harassed online like never before.`\
+https://nytimes.com/athletic/6077963/2025/02/12/nba-sports-betting-players/
+
 **Vinicius says Man City fans' Ballon d'Or banner 'gave me more strength'**\
 `Ahead of the game, a banner in the Man City end read "Stop crying your heart out" alongside an image of the Ballon d'Or trophy`\
 https://nytimes.com/athletic/6130881/2025/02/12/vinicius-ballon-dor-banner-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/learning/word-of-the-day-obliquely.html
 **Nottingham Forest are the highest-ranked team left in the FA Cup - it's there to be won**\
 `In the next round Nuno Espirito Santo's task is to find a balance between rewarding his squad players but continuing to progress`\
 https://nytimes.com/athletic/6130531/2025/02/12/nottingham-forest-fa-cup-exeter-progression/
-
-**Guardiola's harsh reality? His great City side is coming to an end**\
-`For all their achievements and bursts of quality, City are now defined by their age, recurring mistakes and fragility`\
-https://nytimes.com/athletic/6130284/2025/02/12/manchester-city-pep-guardiola-end/
 

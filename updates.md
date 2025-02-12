@@ -1,3 +1,7 @@
+**Death threats, racism, Venmo requests: Dark side of sports betting and its impact on NBA players**\
+`The legalization of sports gambling has led to players being harassed online like never before.`\
+https://nytimes.com/athletic/6077963/2025/02/12/nba-sports-betting-players/
+
 **Vinicius says Man City fans' Ballon d'Or banner 'gave me more strength'**\
 `Ahead of the game, a banner in the Man City end read "Stop crying your heart out" alongside an image of the Ballon d'Or trophy`\
 https://nytimes.com/athletic/6130881/2025/02/12/vinicius-ballon-dor-banner-manchester-city/
