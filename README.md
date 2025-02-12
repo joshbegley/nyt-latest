@@ -1,3 +1,15 @@
+**LFP launches legal action against DAZN over payment for Ligue 1 rights**\
+`DAZN has made it clear it either wants to renegotiate a much lower annual fee or activate the break-clause in its deal with LFP.`\
+https://nytimes.com/athletic/6132446/2025/02/12/dazn-ligue-1-rights-payment/
+
+**FC Dallas acquires Luciano Acosta from Cincinnati for record $5 million**\
+`Acosta won the Landon Donovan MLS MVP award in 2023, scoring 17 goals and adding 14 assists in the regular season.`\
+https://nytimes.com/athletic/6132342/2025/02/12/fc-dallas-acquires-luciano-acosta-cincinnati/
+
+**Tracking the Lawsuits Against Trump’s Agenda**\
+`Follow the lawsuits and rulings that are challenging President Trump's executive orders.`\
+https://nytimes.com/interactive/2025/us/trump-administration-lawsuits.html
+
 **Mid-Atlantic Snowstorm Causes Car Accidents and School Closures**\
 `A snowstorm blew across the Mid-Atlantic on Tuesday, unloading more than a foot of snow and leaving 180,000 homes in Virginia without power.`\
 https://nytimes.com/video/weather/100000009987237/virginia-mid-atlantic-snow-storm.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6132285/2025/02/12/mystics-general-manager-coach-ja
 **Trump and Musk Pull Focus. But Vance Is the One to Watch.**\
 `The vice president is the millennial Republican we should have seen coming.`\
 https://nytimes.com/2025/02/12/opinion/jd-vance-donald-trump.html
-
-**Phillies camp opens with a new clubhouse, familiar faces and a glimpse of the future**\
-`The Phillies are trying to win now with a club-record payroll while bridging a gap with one-year deals until their prospects arrive.`\
-https://nytimes.com/athletic/6132263/2025/02/12/phillies-spring-training-prospects/
-
-**Israeli scholars dangle a Nobel Peace Prize nomination for Trump, if he helps free the hostages in Gaza.**\
-`Four of Israel’s top scholars, including three Nobel laureates, have offered to nominate the president, tying the move to efforts to free the remaining Israeli hostages held by Hamas in Gaza.`\
-https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/trump-nobel-peace-prize
-
-**Eric Adams Case Tests an Ambitious Prosecutor’s Independence**\
-`Danielle R. Sassoon, Manhattan’s interim U.S. attorney, has built a life on conservative values. The order to drop the corruption case against New York’s mayor presents her with a pivotal choice.`\
-https://nytimes.com/2025/02/12/nyregion/adams-prosecutor-danielle-sassoon-profile.html
 
