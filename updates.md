@@ -1,3 +1,7 @@
+**Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
+`Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
+https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
+
 **Leicester probably won't need 40 points for Premier League survival - but they have work to do**\
 `The average points total needed to avoid relegation is falling but Leicester's fixture list makes for daunting reading`\
 https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-league-relegation/

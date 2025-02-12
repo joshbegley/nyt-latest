@@ -1,3 +1,7 @@
+**Kentucky beats Tennessee 74-65 as Lamont Butler suffers injury**\
+`Kentucky earned its seventh win this season over an AP top-15 team, the most in the nation.`\
+https://nytimes.com/athletic/6130740/2025/02/12/kentucky-tennessee-lamont-butler/
+
 **Leicester probably won't need 40 points for Premier League survival - but they have work to do**\
 `The average points total needed to avoid relegation is falling but Leicester's fixture list makes for daunting reading`\
 https://nytimes.com/athletic/6126560/2025/02/12/leicester-city-fixtures-premier-league-relegation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128565/2025/02/12/football-manager-25-cancelled-ca
 **Trump greets Marc Fogel at the White House after securing his release from Russia.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/02/11/us/president-trump-news/trump-greets-marc-fogel-at-the-white-house-after-securing-his-release-from-russia
-
-**Cole Palmer's goals and assists have dried up - but is Chelsea star doing anything wrong?**\
-`Cole Palmer has not scored in four games or assisted since December 4 — but do the underlying numbers tell us anything?`\
-https://nytimes.com/athletic/6128728/2025/02/12/cole-palmer-chelsea-goals-assists-analysis/
 
