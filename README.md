@@ -1,3 +1,11 @@
+**F.C.C. Chair Orders Investigation Into Comcast’s D.E.I. Practices**\
+`The investigation follows inquiries by the agency into NPR, PBS and CBS News.`\
+https://nytimes.com/2025/02/12/business/media/fcc-comcast-nbc-dei-discrimination.html
+
+**Top N.I.H. Official Abruptly Resigns as Trump Orders Deep Cuts**\
+`Dr. Lawrence Tabak, the No. 2 official at the National Institutes of Health, did not give a reason for his departure.`\
+https://nytimes.com/2025/02/12/us/politics/national-health-institutes-resignation-trump.html
+
 **A Major Storm Is About to Soak California**\
 `In Southern California, the flooding could be life-threatening in areas burned by wildfires.`\
 https://nytimes.com/2025/02/12/weather/la-rain-california-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/style/tiny-modern-love-stories-two-boyfriends-at-
 **MoneyCall: NFL wins big with Super Bowl viewership**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter. `\
 https://nytimes.com/athletic/6130705/2025/02/12/super-bowl-viewership-record-moneycall-newsletter/
-
-**Democratic Power Broker in Illinois Is Convicted in Corruption Trial**\
-`Michael J. Madigan, a formidable force in the state’s politics for decades, faced federal charges of racketeering, bribery and conspiracy.`\
-https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.html
-
-**A New Kind of Defense Secretary Saves His Ammunition for Domestic Enemies**\
-`Pete Hegseth has spent much of his first weeks in office focused on culture wars while saying little about America’s adversaries.`\
-https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
 
