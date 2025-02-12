@@ -1,3 +1,7 @@
+**Mets' David Stearns speaks on Pete Alonso contract, stiff NL competition: Takeaways**\
+`With Alonso back in the fold, the Mets enter 2025 as one of several teams vying for the World Series in a tough National League. `\
+https://nytimes.com/athletic/6132952/2025/02/12/new-york-mets-david-stearns-presser/
+
 **Bondi Announces Lawsuit Against New York Over Immigration**\
 `The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing “illegal aliens over American citizens.”`\
 https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html

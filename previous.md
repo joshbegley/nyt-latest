@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
 
 **Mets' David Stearns speaks on Pete Alonso contract, stiff NL competition: Takeaways**\
-`With Pete Alosno back in the fold, the Mets enter 2025 as one of several teams vying for the World Series in a tough National League. `\
+`With Alonso back in the fold, the Mets enter 2025 as one of several teams vying for the World Series in a tough National League. `\
 https://nytimes.com/athletic/6132952/2025/02/12/new-york-mets-david-stearns-presser/
 
 **Champions League briefing: Bayern drown out the noise, and was this the worst penalty award of all time?**\
