@@ -1,3 +1,11 @@
+**'Internal' Alex Bregman conversations, Jose Altuve's position and more: Astros notes**\
+`Wednesday’s first workout for pitchers and catchers will begin the first Astros camp without Bregman since 2016.`\
+https://nytimes.com/athletic/6132184/2025/02/12/alex-bregman-jose-alutve-astros-notes/
+
+**Gerrit Cole weighs in on Juan Soto's megadeal: 'It's good for the game'**\
+`While Cole praised his fellow Boras Corp. client, he also spoke highly of the Yankees' offseason moves following Soto's departure.`\
+https://nytimes.com/athletic/6132209/2025/02/12/gerrit-cole-yankees-juan-soto/
+
 **Google Calendar Deletes Women’s History Month and Other Cultural Events**\
 `The Silicon Valley giant said it made the change last year because it was difficult to keep up with every occasion, but some users questioned the decision.`\
 https://nytimes.com/2025/02/12/technology/google-black-history-womens-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/arts/design/david-edward-byrd-dead.html
 **The Briefing - Everton 2 Liverpool 2: Why were Jones, Doucoure and Slot sent off after game?**\
 `Everton scored a dramatic late equaliser to ensure the final Goodison Park Merseyside derby against Liverpool ended in a 2-2 draw`\
 https://nytimes.com/athletic/6126091/2025/02/12/everton-liverpool-premier-league-result-report-analysis/
-
-**Without Pennies, What Becomes of Penny Loafers?**\
-`The fashion world pondered the future of the iconic shoe after learning that a presidential order might eliminate the penny.`\
-https://nytimes.com/2025/02/12/style/penny-production-penny-loafers.html
-
-**Disney to Diminish Content Warnings Shown Before Classic Films**\
-`In addition to wording changes, the warnings will no longer autoplay at the beginning of movies such as “Dumbo” and “Peter Pan.”`\
-https://nytimes.com/2025/02/12/movies/disney-content-warnings-language.html
 
