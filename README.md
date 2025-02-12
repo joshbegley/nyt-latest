@@ -1,3 +1,7 @@
+**Democratic Power Broker in Illinois Is Convicted in Corruption Trial**\
+`Michael J. Madigan, a formidable force in the state’s politics for decades, faced federal charges of racketeering, bribery and conspiracy.`\
+https://nytimes.com/2025/02/12/us/corruption-verdict-michael-madigan-illinois.html
+
 **A New Kind of Defense Secretary Saves His Ammunition for Domestic Enemies**\
 `Pete Hegseth has spent much of his first weeks in office focused on culture wars while saying little about America’s adversaries.`\
 https://nytimes.com/2025/02/12/us/politics/pete-hegseth-fort-bragg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/arts/music/sean-combs-defamation-lawsuit-nbc-peac
 **In Daytona Beach, NASCAR's influence goes far beyond Sunday's iconic race**\
 `DAYTONA BEACH, Fla.`\
 https://nytimes.com/athletic/6130470/2025/02/12/daytona-500-beach-nascar-city-ties/
-
-**U.N. Calls Bangladesh Protest Crackdown a Possible Crime Against Humanity**\
-`As many as 1,400 people were killed in former Prime Minister Sheikh Hasina’s violent response to a student-led revolt, according to a U.N. inquiry.`\
-https://nytimes.com/2025/02/12/world/asia/bangladesh-hasina-un-report.html
 
