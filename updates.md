@@ -1,3 +1,15 @@
+**OpenAI Questions Rationale of Elon Musk’s Bid to Control the Company**\
+`The company answered the billionaire’s offer in a legal filing, accusing him of hypocrisy.`\
+https://nytimes.com/2025/02/12/technology/elon-musk-openai-response.html
+
+**If this is the end for Angels and Anthony Rendon, it's a depressingly fitting conclusion**\
+`While there’s no true finality yet, Wednesday’s news still felt like this relationship had reached a point of no return. `\
+https://nytimes.com/athletic/6132625/2025/02/12/anthony-rendon-angels-contract-end/
+
+**Eric Adams Discussed Possible Republican Primary Run With G.O.P. Leader**\
+`The mayor discussed options to run for re-election in the Republican contest as recently as Monday. Asked for comment, he said he was running as a Democrat.`\
+https://nytimes.com/2025/02/12/nyregion/eric-adams-republican-primary.html
+
 **Czech Dam Project Was Stalled by Bureaucracy. Beavers Built Their Own.**\
 `The dam project, drafted in 2018 and based on a former military training site south of Prague, had been delayed by land negotiations. Local beavers built several dams, saving the government more than one million euros.`\
 https://nytimes.com/2025/02/12/world/europe/czech-dam-project-was-stalled-by-bureaucracy-beavers-built-their-own.html
