@@ -1,3 +1,11 @@
+**Trump Is Closing the Curtain on the American Century**\
+`The Trump administration is leading the world into a chaotic global order.`\
+https://nytimes.com/2025/02/12/opinion/trump-world-usaid.html
+
+**What’s the Difference Between an Outfit and a ’Fit?**\
+`Photos from New York Fashion Week parties document the chaos and confidence that comes out at night.`\
+https://nytimes.com/2025/02/12/style/nyfw-party-outfits.html
+
 **Trump Elected Chair of Kennedy Center as Its President Steps Down**\
 `The president solidified his grip on the performing arts complex as the center’s longtime president, Deborah F. Rutter, announced she was stepping down.`\
 https://nytimes.com/2025/02/12/us/politics/trump-kennedy-center-chairman.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132108/2025/02/12/yamamoto-imanaga-japan-pitchers-
 **‘Captain America: Brave New World’ Review: This One’s Red**\
 `The latest Marvel movie introduces a new Captain America in the form of a political thriller.`\
 https://nytimes.com/2025/02/12/movies/captain-america-brave-new-world-review.html
-
-**For the F.A.A., Three Deadly Crashes and a Reckoning**\
-`The agency in charge of air travel safety is facing criticism and demands for change after a yearslong streak of no major commercial jet accidents ended in catastrophe.`\
-https://nytimes.com/2025/02/12/us/politics/faa-plane-crashes-safety.html
-
-**‘Henry IV’ Review: Two Plays Become One**\
-`The relationship between Prince Hal and John Falstaff, a favorite of Shakespeare scholars, is the focus of this condensed adaptation.`\
-https://nytimes.com/2025/02/12/theater/henry-iv-review.html
 
