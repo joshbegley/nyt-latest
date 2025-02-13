@@ -1,3 +1,7 @@
+**Miami City Ballet’s Artistic Leader to Step Down After 13 Years**\
+`Lourdes Lopez, who championed contemporary ballets and elevated the company’s profile, is departing two years before her contract expires.`\
+https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
+
 **Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
 `Summary`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135389/2025/02/13/astros-alex-bregman-departure-re
 **Virginia Tech zeroes in on new OC from Bills staff: Source**\
 `The Hokies are targeting Christian Taylor, a Buffalo Bills assistant and former William & Mary offensive coordinator, to be their new OC.`\
 https://nytimes.com/athletic/6135496/2025/02/13/christian-taylor-virginia-tech-offensive-coordinator/
-
-**Maresca: 'Completely wrong' for teams to play on deadline day**\
-`The Chelsea head coach says it is not fair as clubs cannot respond to any injury setbacks.`\
-https://nytimes.com/athletic/6134805/2025/02/13/enzo-maresca-chelsea-injuries-deadline-day/
 
