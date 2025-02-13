@@ -1,3 +1,7 @@
+**Slovakia’s leader welcomes Trump’s outreach to broker peace in the Russia-Ukraine war.**\
+`By Andrew Higgins`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/slovakia-fico-peace-talks
+
 **Michael Longley, 85, Northern Irish Poet of Nature and ‘the Troubles,’ Dies**\
 `“Ceasefire,” his most famous poem, invoked the “Iliad” in exploring his country’s sectarian strife. But his work wasn’t Homeric in length: “Michael was a miniaturist.”`\
 https://nytimes.com/2025/02/13/books/michael-longley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
 **Igloo Recalls Coolers Over Fingertip Amputation and Crushing Risk**\
 `More than one million coolers sold in North America were recalled after a dozen injuries. Consumers are advised to stop using them and contact the company.`\
 https://nytimes.com/2025/02/13/business/igloo-cooler-injuries-recall.html
-
-**Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
-`Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
-https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/
 
