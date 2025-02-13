@@ -1,3 +1,23 @@
+**For These 20-Somethings, Trump ‘Is Making It Sexy’ to Be Republican**\
+`A “MAGA Youth” dinner in Manhattan gave young Trump supporters a place to socialize and celebrate the new administration.`\
+https://nytimes.com/2025/02/13/style/trump-maga-youth-republicans.html
+
+**The Two Things I’m Hearing in Europe About Trump’s Ukraine ‘Negotiations’**\
+`There’s despair about Trump’s approach to Ukraine in European military circles. And something else: appreciation that Americans are finally being honest.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/ukraine-european-armament-trump-nato
+
+**Can We Please Stop Calling These People Populists?**\
+`Trumpism is not a working-class revolt against the elites. All I see is one section of the educated elite going after another section of the educated elite.`\
+https://nytimes.com/2025/02/13/opinion/trump-populism-elites.html
+
+**Yankees' reality doesn’t change despite Red Sox adding Alex Bregman**\
+`“Sox got a good player,” Yankees manager Aaron Boone said Thursday.`\
+https://nytimes.com/athletic/6135250/2025/02/13/yankees-red-sox-alex-bregman/
+
+**What is a hamstring injury? How long does it take to recover? What are the grades of injury?**\
+`A number of players, including Arsenal's Kai Havertz and Chelsea's Nicolas Jackson, have suffered hamstring injuries - how do they happen?`\
+https://nytimes.com/athletic/3277910/2025/02/13/what-is-hamstring-strain-tear/
+
 **No Tubman, No Rainbows: Defense Schools Prepared for Hegseth’s Wife**\
 `The American schools at the NATO headquarters were scrambling to comply with Trump diversity, equity and inclusion rollbacks. An expected visit from Pete Hegseth’s wife intensified that effort.`\
 https://nytimes.com/2025/02/13/world/europe/nato-school-dei-hegseth.html
