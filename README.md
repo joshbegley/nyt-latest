@@ -1,3 +1,7 @@
+**The Hundred franchise stakes sold for over half a billion**\
+`Each bid now enters an exclusivity process and if concluded will result in £520m of investment filtering into leagues governed by the ECB.`\
+https://nytimes.com/athletic/6133747/2025/02/13/hundred-cricket-franchises-investment/
+
 **Warming Trend in U.S.-Russia Relations Leaves Ukraine in a Tough Spot**\
 `Trump’s recent moves, including a conversation with Putin and a demand for Ukrainian mineral rights, are worrisome signs for Zelensky.`\
 https://nytimes.com/2025/02/13/world/europe/ukraine-russia-us-diplomacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131711/2025/02/13/new-york-jets-nfl-draft-prospect
 **Packers 7-round mock draft 1.0: Will Brian Gutekunst hit immediately on first-rounder?**\
 `The Packers only currently have seven picks in the 2025 NFL Draft that they're hosting.`\
 https://nytimes.com/athletic/6131682/2025/02/13/packers-mock-draft-1-gutekunst/
-
-**What each NFC playoff team needs this offseason to compete again in 2025**\
-`How can the Bucs, Packers, Vikings, Lions, Commanders and Super Bowl champion Eagles improve before the 2025 NFL season begins?`\
-https://nytimes.com/athletic/6129391/2025/02/13/nfc-offseason-priorities-eagles-commanders-lions/
 
