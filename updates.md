@@ -1,3 +1,11 @@
+**The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
+`Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
+https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
+
+**At the BAFTAs, Fans Have a Say Who Wins This Award**\
+`The EE Rising Star Award is the only honor presented at the British equivalent of the Oscars that is voted on by the British public.`\
+https://nytimes.com/2025/02/13/movies/baftas-rising-star-award.html
+
 **Curry, Ionescu will not run back 3-point contest at All-Star Weekend: Sources**\
 `League officials attempted to resurrect the Curry-Ionescu competition in some form as late as Wednesday, multiple league sources said.`\
 https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-point-contest-all-star-weekend-off/
