@@ -1,3 +1,15 @@
+**Trump’s Call With Putin Was ‘No Betrayal’ of Ukraine, Hegseth Says**\
+`The call has raised concerns among some European leaders that Ukraine could effectively be sidelined in any peace negotiations.`\
+https://nytimes.com/2025/02/13/world/europe/hegseth-trump-putin-call.html
+
+**Aid Agencies Rush Supplies Into Gaza as Fragile Cease-Fire Holds for Now**\
+`The United Nations and other relief organizations delivered tents and other help into the enclave as the truce continued despite a standoff between Israel and Hamas.`\
+https://nytimes.com/2025/02/13/world/middleeast/gaza-israel-ceasefire-hostages.html
+
+**The Pulse: An OT thriller**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6133063/2025/02/13/4-nations-canada-sweden-the-pulse/
+
 **Bears mock draft 1.0: Finding good pass protectors, maybe better pass rushers**\
 `The Bears have three picks in the top 50 this year to build around QB Caleb Williams — or improve their defense. `\
 https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-graham-will-campbell/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6129391/2025/02/13/nfc-offseason-priorities-eagles-
 **Manchester United live Q&A: Carl Anka answers your questions**\
 `Pose your questions and Carl Anka will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
 https://nytimes.com/athletic/6130937/2025/02/13/manchester-united-questions-amorim/
-
-**Trump’s Call with Putin, and Ozempic’s Effect on Drinking**\
-`Plus, the hidden cost of a Valentine’s bouquet.`\
-https://nytimes.com/2025/02/13/podcasts/the-headlines/trumps-putin-ozempic-drinking.html
-
-**Mitch Marner gets his star turn at 4 Nations, 'oozes confidence' for Team Canada**\
-`Marner secured a huge 4 Nations victory for Canada on Wednesday, reinforcing his standing in the larger hockey universe.`\
-https://nytimes.com/athletic/6133498/2025/02/13/mitch-marner-4-nations-face-off/
-
-**Between Russia and Elon Musk, German Voters Face a ‘Dual Front’ of Disinformation**\
-`In the first major European vote since President Trump’s re-election, influence campaigns are targeting Germany from two sides.`\
-https://nytimes.com/2025/02/13/world/europe/russia-germany-elon-musk-disinformation.html
 

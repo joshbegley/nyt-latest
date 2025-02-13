@@ -1,3 +1,15 @@
+**Trump’s Call With Putin Was ‘No Betrayal’ of Ukraine, Hegseth Says**\
+`The call has raised concerns among some European leaders that Ukraine could effectively be sidelined in any peace negotiations.`\
+https://nytimes.com/2025/02/13/world/europe/hegseth-trump-putin-call.html
+
+**Aid Agencies Rush Supplies Into Gaza as Fragile Cease-Fire Holds for Now**\
+`The United Nations and other relief organizations delivered tents and other help into the enclave as the truce continued despite a standoff between Israel and Hamas.`\
+https://nytimes.com/2025/02/13/world/middleeast/gaza-israel-ceasefire-hostages.html
+
+**The Pulse: An OT thriller**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6133063/2025/02/13/4-nations-canada-sweden-the-pulse/
+
 **Bears mock draft 1.0: Finding good pass protectors, maybe better pass rushers**\
 `The Bears have three picks in the top 50 this year to build around QB Caleb Williams — or improve their defense. `\
 https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-graham-will-campbell/
