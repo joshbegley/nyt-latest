@@ -1,3 +1,15 @@
+**How Trump Is Muzzling the C.D.C.**\
+`Former health officials object to restrictions on the agency. Also: The Kennedy Center; Mayor Eric Adams; profiles in cowardice; fury over Gaza; a plea for protests.`\
+https://nytimes.com/2025/02/13/opinion/trump-cdc.html
+
+**Teddi Mellencamp of ‘Real Housewives’ Says She Has Brain Tumors**\
+`Mellencamp, also the daughter of the rock musician John Mellencamp, said on Instagram that she was receiving treatment after experiencing “severe and debilitating” headaches.`\
+https://nytimes.com/2025/02/13/arts/television/teddi-mellencamp-brain-tumors.html
+
+**What Is Your Outfit Telling Your Therapist?**\
+`Whether we want them to or not, our clothes may be giving our therapists more psychoanalytic material.`\
+https://nytimes.com/2025/02/13/style/therapy-clothes.html
+
 **Watch: What's going on with Mark Williams and Dalton Knecht?**\
 `NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
 https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/well/live/working-with-medical-condition.html
 **How Do You Feel About Dining Alone? We Want to Hear.**\
 `We’re asking readers to help us understand solo dining in America.`\
 https://nytimes.com/2025/02/13/dining/reader-callout-solo-diners.html
-
-**5 Spring Break Destinations, for Every Type of Traveler**\
-`Ideas for a last-minute trip, whether you want wildflower meadows or white-sand beaches.`\
-https://nytimes.com/2025/02/13/t-magazine/where-to-go-spring-break.html
-
-**Can Britain avoid a rift with Trump over Ukraine?**\
-`Prime Minister Keir Starmer faces a diplomatic dilemma as he weighs his longstanding support for Ukraine against his determination to cultivate President Trump.`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/can-britain-avoid-a-rift-with-trump-over-ukraine
-
-**Bears mock draft 1.0: Finding good pass protectors, maybe better pass rushers**\
-`The Bears have three picks in the top 50 this year to build around QB Caleb Williams — or improve their defense. `\
-https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-graham-will-campbell/
 
