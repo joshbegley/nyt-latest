@@ -1,3 +1,7 @@
+**Trump’s Whirlwind Now Blows Through Europe**\
+`The new Trump foreign policy team has brought a dizzying message to European allies on A.I., Ukraine and more. It has already left many angered and chagrined.`\
+https://nytimes.com/2025/02/13/world/europe/trump-europe-tariffs-ukraine-nato.html
+
 **Alex Bregman’s rejection of the Tigers is a reminder of harsh realities**\
 `The Tigers made a competitive offer for Alex Bregman but finished as runners up. Do they have enough offense without him?`\
 https://nytimes.com/athletic/6134939/2025/02/13/alex-bregman-detroit-tigers-rejection/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-graph-feb-26-2025
 **What’s Going On in This Picture? | Feb. 24, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-picture-feb-24-2025.html
-
-**It’s Little Treat O’Clock**\
-`These homemade sweets are ready in 25 minutes or less.`\
-https://nytimes.com/2025/02/13/dining/fast-dessert-recipes.html
 
