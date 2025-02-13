@@ -1,3 +1,11 @@
+**As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
+`Ahead of Spring Training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
+https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/
+
+**What Are You Waiting for?**\
+`Don’t throw away this chance to solve Jem Burch’s puzzle.`\
+https://nytimes.com/2025/02/12/crosswords/daily-puzzle-2025-02-13.html
+
 **Lifesaving Aid Remains Halted Worldwide Despite Rubio’s Promise**\
 `A new directive puts further exemptions on hold. Aid workers also say the U.S. government has made it impossible to pay partners around the world.`\
 https://nytimes.com/2025/02/12/us/politics/usaid-waivers-rubio.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/12/us/gitmo-migrants-trump.html
 **NHL, NHLPA turn eyes to next labor deal: What could a new CBA bring?**\
 `With an international competition cadence reestablished, the league and its players' union will dive into CBA negotiations soon.`\
 https://nytimes.com/athletic/6133134/2025/02/12/nhl-nhlpa-cba-negotiations-2026/
-
-**New Trump Executive Order Calls for ‘Reform’ to the U.S. Diplomatic Corps**\
-`“Failure to faithfully implement the president’s policy is grounds for professional discipline, including separation,” the order says.`\
-https://nytimes.com/2025/02/12/us/politics/trump-foreign-service.html
-
-**State Dept. plans $400 million order for armored trucks from Musk’s Tesla.**\
-`By Jack Ewing`\
-https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/state-dept-plans-400-million-order-for-armored-trucks-from-musks-tesla
 
