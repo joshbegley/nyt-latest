@@ -1,3 +1,15 @@
+**The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
+`A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
+
+**Judge Extends Halt on Trump Plan to Dismantle U.S.A.I.D.**\
+`For at least another week, a judge will keep a hold on a directive placing more than 2,000 employees on administrative leave and forcing the return of overseas workers.`\
+https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
+
+**14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
+`Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
+https://nytimes.com/2025/02/13/us/politics/elon-musk-doge-lawsuits.html
+
 **Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
 `Danielle R. Sassoon, who resigned Thursday as Manhattan’s U.S. attorney, writes to Attorney General Pam Bondi to explain her refusal to drop a corruption case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html

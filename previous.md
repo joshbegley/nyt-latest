@@ -1,3 +1,15 @@
+**The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
+`A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
+
+**Judge Extends Halt on Trump Plan to Dismantle U.S.A.I.D.**\
+`For at least another week, a judge will keep a hold on a directive placing more than 2,000 employees on administrative leave and forcing the return of overseas workers.`\
+https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
+
+**14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
+`Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
+https://nytimes.com/2025/02/13/us/politics/elon-musk-doge-lawsuits.html
+
 **Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
 `He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
 https://nytimes.com/2025/02/13/us/politics/jim-guy-tucker-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/nyregion/abortion-extradition-louisiana-doctor.ht
 **Trump Administration Requests Update on Boeing’s Safety and Quality Improvements**\
 `Transportation Secretary Sean Duffy committed to restoring the public’s trust in the aircraft manufacturer during his confirmation hearing last month.`\
 https://nytimes.com/2025/02/13/us/politics/sean-duffy-boeing.html
-
-**Ingebrigtsen breaks world indoor 1500m record, Yared Nuguse's mile record**\
-`Ingebrigtsen — who ran 3:29.63 in the 1500m and 3:45.14 in the mile — claimed Nuguse's mark just five days after the American made history.`\
-https://nytimes.com/athletic/6135413/2025/02/13/jakob-ingebrigtsen-world-indoor-mile-1500m-records/
-
-**Ukraine Will Not Be Sidelined in Peace Talks With Russia, Trump Says**\
-`President Volodymyr Zelensky of Ukraine and European defense ministers had expressed concern that they might not be present for talks between President Trump and Russia’s leader to end the war.`\
-https://nytimes.com/2025/02/13/world/europe/ukraine-russia-peace-talks-europe.html
-
-**Officials Resigned After Refusing to Drop Adams Case**\
-`Also, a look inside the Murdoch family succession saga. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/02/13/briefing/prosecutor-eric-adams-murdoch-family-succession.html
 
