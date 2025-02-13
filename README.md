@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
 https://nytimes.com/athletic/6129972/2025/02/13/usl-launch-division-1-league-us-soccer-mls/
 
 **Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
-`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
+`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday with Moltzan sneaking into the No. 3 spot.`\
 https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
 
 **Cubarsi signs new Barcelona contract through to 2029**\
