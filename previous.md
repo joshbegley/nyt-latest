@@ -1,3 +1,7 @@
+**Bubble Watch: Kansas State and Indiana suddenly have life**\
+`We welcomed a new crop of teams to Lockdom this week, while a couple of others clawed closer to the field.`\
+https://nytimes.com/athletic/6133294/2025/02/13/college-basketball-bubble-watch-indiana-kstate/
+
 **Notre Dame is hiring a new GM. So what does that actually mean?**\
 `We spoke to three general managers at the Power 4 level about where the job is heading and what specifically is needed at Notre Dame.`\
 https://nytimes.com/athletic/6133862/2025/02/13/notre-dame-football-general-manager-search/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/movies/paddington-in-peru-review.html
 **Maresca hopeful on five Chelsea injury returns after March international break**\
 `Maresca is optimistic Nicolas Jackson, Marc Guiu, Romeo Lavia, Wesley Fofana and Benoit Badiashile can return against Tottenham on April 2.`\
 https://nytimes.com/athletic/6133849/2025/02/13/chelsea-injury-update-maresca/
-
-**Can He Do That?**\
-`We examine President Trump’s power to determine federal funding.`\
-https://nytimes.com/2025/02/13/briefing/can-he-do-that.html
 
