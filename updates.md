@@ -1,3 +1,11 @@
+**Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
+`Summary`\
+https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
+
+**Harley headed to Boston as Canada 4 Nations defense standby**\
+`Like Theodore, the 23-year-old Stars defenseman is a left shot with some power-play acumen.`\
+https://nytimes.com/athletic/6135565/2025/02/13/thomas-harley-4-nations-canada-injury-sub/
+
 **Abortion Provider Won’t Be Extradited to Louisiana, N.Y. Governor Says**\
 `The case could lead to a battle in federal court over whether states that support abortion rights can protect doctors who provide abortion services.`\
 https://nytimes.com/2025/02/13/nyregion/abortion-extradition-louisiana-doctor.html

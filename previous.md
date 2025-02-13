@@ -1,3 +1,11 @@
+**Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
+`Summary`\
+https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
+
+**Harley headed to Boston as Canada 4 Nations defense standby**\
+`Like Theodore, the 23-year-old Stars defenseman is a left shot with some power-play acumen.`\
+https://nytimes.com/athletic/6135565/2025/02/13/thomas-harley-4-nations-canada-injury-sub/
+
 **Abortion Provider Won’t Be Extradited to Louisiana, N.Y. Governor Says**\
 `The case could lead to a battle in federal court over whether states that support abortion rights can protect doctors who provide abortion services.`\
 https://nytimes.com/2025/02/13/nyregion/abortion-extradition-louisiana-doctor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6135496/2025/02/13/christian-taylor-virginia-tech-o
 **Maresca: 'Completely wrong' for teams to play on deadline day**\
 `The Chelsea head coach says it is not fair as clubs cannot respond to any injury setbacks.`\
 https://nytimes.com/athletic/6134805/2025/02/13/enzo-maresca-chelsea-injuries-deadline-day/
-
-**Clayton Kershaw back for 18th season as a Dodger: 'Hopefully I can walk out on my own terms'**\
-`Kershaw and Blake Snell would form just the 10th pairing of multi-time Cy Young winners in the same rotation.`\
-https://nytimes.com/athletic/6135365/2025/02/13/dodgers-clayton-kershaw-returns-rehab/
-
-**Trump Administration Fires Dozens at Federal Personnel Office**\
-`The firings come as the Trump administration moves ahead with a plan for tens of thousands of federal workers to resign in exchange for being paid through September.`\
-https://nytimes.com/2025/02/13/us/politics/trump-federal-personnel-layoffs.html
 
