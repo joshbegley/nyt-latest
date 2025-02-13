@@ -1,3 +1,20 @@
+**Is INEOS starting to fall out of love with sport?**\
+`For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
+https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
+
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
+**UEFA's talks with Relevent Sports explained: Games in U.S? What would a deal be worth? Why them?**\
+`Everything you need to know about the prospective partnership between European football's governing body and the American sports media firm`\
+https://nytimes.com/athletic/6131109/2025/02/13/uefa-relevent-talks-explained/
+
+**Why do Manchester City keep conceding goals in quick succession?**\
+`The outgoing Premier League champions have become vulnerable to in-game momentum swings`\
+https://nytimes.com/athletic/6119717/2025/02/13/manchester-city-conceding-goals-game-management/
+
 **"There'll always be that hole for us all. George's number is still in our group chats"**\
 `Chris Basham is enjoying being a 'normal guy, a normal dad' after experiences no one should have to go through on and off the pitch`\
 https://nytimes.com/athletic/6118527/2025/02/13/chris-basham-retirement-george-baldock-sheffield-united/
