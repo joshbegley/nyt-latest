@@ -1,3 +1,15 @@
+**Adams Donor Is Accused of Taking Millions From Emergency Housing Program**\
+`Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
+https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
+
+**House passes bill to crack down on immigrants fleeing police near border.**\
+`The legislation would increase penalties for citizens and allow anyone who is not a citizen to be deported for evading arrest or detention while driving a vehicle within 100 miles of the border.`\
+https://nytimes.com/live/2025/02/13/us/trump-news/house-passes-bill-to-crack-down-on-immigrants-fleeing-police-near-border
+
+**Finding Devoted Sports Fans in the Coldest Place on Earth**\
+`An innocent question from a friend inspired one reporter to seek out sports buffs in a remote and chilly place: Antarctica.`\
+https://nytimes.com/2025/02/13/insider/finding-devoted-sports-fans-in-the-coldest-place-on-earth.html
+
 **Travis Hunter headlines prospects invited to 2025 NFL Scouting Combine**\
 `Hunter, who starred as both a receiver and cornerback the last two seasons at Colorado, is listed with the defensive backs.`\
 https://nytimes.com/athletic/6134816/2025/02/13/nfl-scouting-combine-prospect-list-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-k
 **In This Trump Presidency, the Domination Will be Televised**\
 `From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
 https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
-
-**Rubiales' lawyer: Hermoso 'not liking' kiss 'does not mean she did not give consent'**\
-`Olga Tubau made the argument as part of her closing comments in Rubiales' trial for sexual assault and coercion. He denies all charges`\
-https://nytimes.com/athletic/6134429/2025/02/13/luis-rubiales-lawyer-jenni-hermoso-kiss/
-
-**May Arugula Always Find Me**\
-`Its peppery leaves add verve to all sorts of dishes, including Melissa Clark’s roasted cauliflower salad and Yewande Komolafe’s savory Dutch baby.`\
-https://nytimes.com/2025/02/13/dining/may-arugula-always-find-me.html
-
-**C.D.C. Study Finds Silent Bird Flu Infections in Dairy Veterinarians**\
-`The vets had no symptoms, and one worked only in states where no dairy infections had been reported.`\
-https://nytimes.com/2025/02/13/science/cdc-bird-flu-infections.html
 
