@@ -1,3 +1,7 @@
+**Until Saturday: 2 CFB angles for this NFL Draft**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6134797/2025/02/13/college-football-nfl-draft-ohio-state-until-saturday/
+
 **Manhattan’s Federal Prosecutor Quits After Adams Case Is Ordered Dropped**\
 `Danielle R. Sassoon, the interim U.S. attorney for the Southern District of New York, quit after the Justice Department told her to withdraw corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/13/nyregion/danielle-sassoon-quit-eric-adams.html

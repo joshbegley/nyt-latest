@@ -1,3 +1,7 @@
+**Until Saturday: 2 CFB angles for this NFL Draft**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6134797/2025/02/13/college-football-nfl-draft-ohio-state-until-saturday/
+
 **Manhattan’s Federal Prosecutor Quits After Adams Case Is Ordered Dropped**\
 `Danielle R. Sassoon, the interim U.S. attorney for the Southern District of New York, quit after the Justice Department told her to withdraw corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/13/nyregion/danielle-sassoon-quit-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134799/2025/02/13/liverpool-joe-gomez-hamstring-in
 **Chiefs give Travis Kelce until mid-March to decide future: Source**\
 `The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
 https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
-
-**Adams Donor Took Millions From Covid Housing Plan for Inmates, U.S. Says**\
-`Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
-https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
 
