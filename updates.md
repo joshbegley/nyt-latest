@@ -1,3 +1,7 @@
+**Taiwan Prepares for Trump’s Tariffs, and a Changed Washington**\
+`Taiwanese officials, facing a more transactional U.S. relationship, have traveled to Washington to float energy deals and defend the island’s semiconductors.`\
+https://nytimes.com/2025/02/13/world/asia/taiwan-tariffs-trump.html
+
 **The Look of Luxury Is Evolving**\
 `It is far less quiet, if the clothes on and off runways at New York Fashion Week were any indication.`\
 https://nytimes.com/2025/02/13/style/nyfw-quiet-luxury-street-style-photos.html
