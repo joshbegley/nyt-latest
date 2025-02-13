@@ -1,3 +1,7 @@
+**Shohei Ohtani won't have to wait for two-way status – and the Dodgers will benefit**\
+`Ohtani’s status has caused at least some confusion, particularly due to a change to the rule made last month.`\
+https://nytimes.com/athletic/6135017/2025/02/13/shohei-ohtani-dodgers-two-way-player/
+
 **Judge Temporarily Stops Trump’s Plan to End Funds for Trans Youths’ Health Providers**\
 `Six transgender individuals, all younger than 19, sued the administration over executive orders targeting hospitals that offer transition treatments to young people.`\
 https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-funds-for-trans-youths-health-providers.html
