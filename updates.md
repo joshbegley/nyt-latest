@@ -1,3 +1,15 @@
+**Cease-fire talks could upend Ukraine’s domestic politics.**\
+`By Andrew E. Kramer`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/zelensky-ukraine-poroshenko
+
+**Kerr's injury rehab 'going in the right direction' after return to Chelsea training**\
+`The Australia forward has not played for Chelsea since sustaining an anterior cruciate ligament injury in January last year.`\
+https://nytimes.com/athletic/6134488/2025/02/13/sam-kerr-injury-chelsea-training/
+
+**Reporter Gone Wild**\
+`We all need an occasional chance to focus on the untamed, and remind ourselves that we are a part of it. That might go double for journalists.`\
+https://nytimes.com/2025/02/13/insider/animal-rescues.html
+
 **Senate Panel Advances Kash Patel as F.B.I. Director Amid Agency Turmoil**\
 `The vote moved Mr. Patel, a Trump loyalist, one step closer to leading the nation’s premier law enforcement agency.`\
 https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confirmation-trump.html
