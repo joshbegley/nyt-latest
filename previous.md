@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adeba
 `Joe Gomez is undergoing further tests amid fears that the Liverpool defender is facing another lengthy spell on the sidelines.`\
 https://nytimes.com/athletic/6134799/2025/02/13/liverpool-joe-gomez-hamstring-injury-update-scan/
 
-**Chiefs give Travis Kelce until mid-March to decide future: Source**\
+**Chiefs give Travis Kelce until mid-March to decide NFL future: Source**\
 `The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
 https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
 

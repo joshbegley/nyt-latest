@@ -1,3 +1,7 @@
+**Chiefs give Travis Kelce until mid-March to decide NFL future: Source**\
+`The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
+https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
+
 **Until Saturday: 2 CFB angles for this NFL Draft**\
 `Welcome to Until Saturday, The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6134797/2025/02/13/college-football-nfl-draft-ohio-state-until-saturday/
