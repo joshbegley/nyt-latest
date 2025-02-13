@@ -1,3 +1,7 @@
+**Authorities Believe Car Crash in Munich Was a Deliberate Attack**\
+`German politicians wasted little time before adding to growing tensions around immigration after authorities said a 24-year-old asylum seeker from Afghanistan crashed a car into a union demonstration in Munich on Thursday, injuring more than two dozen people.`\
+https://nytimes.com/video/world/europe/100000009989408/munich-car-crash-attack.html
+
 **This City’s Sewer System Is Full of Alligators, but It’s Not New York**\
 `Researchers found crocodilians, bats, raccoons and other creatures prowling a Florida town’s storm drains, “like something out of ‘Teenage Mutant Ninja Turtles,’” one said.`\
 https://nytimes.com/2025/02/13/science/alligators-sewers-florida.html

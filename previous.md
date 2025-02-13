@@ -1,3 +1,7 @@
+**Authorities Believe Car Crash in Munich Was a Deliberate Attack**\
+`German politicians wasted little time before adding to growing tensions around immigration after authorities said a 24-year-old asylum seeker from Afghanistan crashed a car into a union demonstration in Munich on Thursday, injuring more than two dozen people.`\
+https://nytimes.com/video/world/europe/100000009989408/munich-car-crash-attack.html
+
 **This City’s Sewer System Is Full of Alligators, but It’s Not New York**\
 `Researchers found crocodilians, bats, raccoons and other creatures prowling a Florida town’s storm drains, “like something out of ‘Teenage Mutant Ninja Turtles,’” one said.`\
 https://nytimes.com/2025/02/13/science/alligators-sewers-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/arts/television/adeleide-austrailan-drama-streami
 **NATO Emphasizes Unity as Concerns Mount That Europe Will Be Left Out of Ukraine Talks**\
 `President Trump has made it clear that he is pushing for an end to the war in Ukraine. The move has left Europe worried that it, and Ukraine, could be left out as he negotiates with Russia’s leader, Vladimir V. Putin.`\
 https://nytimes.com/2025/02/13/world/europe/nato-ukraine-war-eu.html
-
-**The Jets' Aaron Rodgers era was everything it wasn't supposed to be**\
-`On Thursday, the Jets announced they will part ways with Rodgers after two disappointing seasons.`\
-https://nytimes.com/athletic/6134858/2025/02/13/aaron-rodgers-jets-era-end-nfl/
 
