@@ -1,3 +1,15 @@
+**Friday Briefing: Trump Orders New Global Tariffs**\
+`Plus, “Saturday Night Live” turns 50.`\
+https://nytimes.com/2025/02/13/briefing/trump-tariffs-ukraine-europe-hamas-hostages.html
+
+**Teen Tiny Memoirs: The Winners of Our 3rd Annual 100-Word Narrative Contest**\
+`We invited teenagers to write miniature memoirs about meaningful moments in their lives. Read the 20 winning stories.`\
+https://nytimes.com/2025/02/13/learning/teen-tiny-memoirs-the-winners-of-our-3rd-annual-100-word-narrative-contest.html
+
+**Police Officer Is Guilty of Manslaughter in Shooting of Man Holding Taser**\
+`Brad Lunsford, an officer in Las Cruces, N.M., shot Presley Eze at point-blank range after he took a stun gun from another officer.`\
+https://nytimes.com/2025/02/13/us/police-officer-manslaughter-new-mexico.html
+
 **A Brisk and Juicy Australian Family Drama**\
 `A nimble mini-series on Amazon crams a lot of believable texture and chemistry into a tidy package, with just six 15-minute episodes.`\
 https://nytimes.com/2025/02/13/arts/television/adeleide-austrailan-drama-streaming-amazon.html

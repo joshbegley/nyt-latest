@@ -1,3 +1,15 @@
+**Friday Briefing: Trump Orders New Global Tariffs**\
+`Plus, “Saturday Night Live” turns 50.`\
+https://nytimes.com/2025/02/13/briefing/trump-tariffs-ukraine-europe-hamas-hostages.html
+
+**Teen Tiny Memoirs: The Winners of Our 3rd Annual 100-Word Narrative Contest**\
+`We invited teenagers to write miniature memoirs about meaningful moments in their lives. Read the 20 winning stories.`\
+https://nytimes.com/2025/02/13/learning/teen-tiny-memoirs-the-winners-of-our-3rd-annual-100-word-narrative-contest.html
+
+**Police Officer Is Guilty of Manslaughter in Shooting of Man Holding Taser**\
+`Brad Lunsford, an officer in Las Cruces, N.M., shot Presley Eze at point-blank range after he took a stun gun from another officer.`\
+https://nytimes.com/2025/02/13/us/police-officer-manslaughter-new-mexico.html
+
 **A Brisk and Juicy Australian Family Drama**\
 `A nimble mini-series on Amazon crams a lot of believable texture and chemistry into a tidy package, with just six 15-minute episodes.`\
 https://nytimes.com/2025/02/13/arts/television/adeleide-austrailan-drama-streaming-amazon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/books/review/new-books-recommendations.html
 **Three Potpies That Go Beyond Chicken**\
 `A Japanese curry take on beef pie, an upscale fisherman’s pie and a comforting Irish turkey pie.`\
 https://nytimes.com/2025/02/13/dining/three-potpies-that-go-beyond-chicken.html
-
-**Six Takeaways About the Murdoch Succession Fight**\
-`Here are the main revelations about the battle for control from a secret Nevada trial.`\
-https://nytimes.com/2025/02/13/magazine/murdoch-family-trust-dispute-takeaways.html
-
-**How the Murdoch Family Trust Works**\
-`A group of managing directors appointed by Murdoch family members controls the fate of the world's largest conservative media empire.`\
-https://nytimes.com/interactive/2025/02/13/magazine/murdoch-family-trust-succession-explainer.html
-
-**‘You’ve Blown a Hole in the Family’: Inside the Murdochs’ Succession Drama**\
-`More than 3,000 pages of documents reveal how years of betrayals led to a messy court battle that threatens the future of Rupert’s empire.`\
-https://nytimes.com/2025/02/13/magazine/rupert-murdoch-succession-family-trust-fight.html
 
