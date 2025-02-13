@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6135254/2025/02/13/cardinals-nolan-arenado-speculat
 https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
 
 **Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
-`Summary`\
+`Danielle R. Sassoon, who resigned Thursday as Manhattan’s U.S. attorney, writes to Attorney General Pam Bondi to explain her refusal to drop a corruption case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
 
 **Harley headed to Boston as Canada 4 Nations defense standby**\

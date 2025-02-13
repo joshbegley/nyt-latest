@@ -1,3 +1,7 @@
+**Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
+`Danielle R. Sassoon, who resigned Thursday as Manhattan’s U.S. attorney, writes to Attorney General Pam Bondi to explain her refusal to drop a corruption case against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
+
 **Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
 `He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
 https://nytimes.com/2025/02/13/us/politics/jim-guy-tucker-dead.html
