@@ -1,5 +1,5 @@
 **What adding Alex Bregman means for the Red Sox infield, lineup, payroll and prospects**\
-`The Red Sox finally made their big free agent splash, bringing Bregman into the fold. How will he fit in the lineup and the infield?`\
+`The Red Sox finally made their big free-agent splash, bringing Bregman into the fold. How will he fit in the lineup and infield?`\
 https://nytimes.com/athletic/6133365/2025/02/13/red-sox-alex-bregman-signing-analysis/
 
 **How Stefanos Tzimas went from Greece, to Germany's second tier, to Brighton in six months**\
