@@ -1,3 +1,19 @@
+**Explained: Stake, Everton and how a porn star led to a Gambling Commission warning**\
+`The GC has warned Everton, Forest and Leicester of the risks of promoting “unlawful gambling websites” — what happens next?`\
+https://nytimes.com/athletic/6133814/2025/02/13/everton-stake-gambling-commission-nottingham-forest-leicester/
+
+**How much damage have red cards done to Arsenal's title challenge?**\
+`Analysing which Premier League teams have been most affected by sendings-off - and when it is worth taking one for the team`\
+https://nytimes.com/athletic/6125743/2025/02/13/how-much-damage-have-red-cards-done-to-arsenals-latest-title-challenge/
+
+**‘The Gorge’ Review: How Deep Is Your Love?**\
+`Miles Teller and Anya Taylor-Joy don’t exactly meet cute in this action movie, but they do find romance as well as horror.`\
+https://nytimes.com/2025/02/13/movies/the-gorge-review.html
+
+**The Cowards in the Senate Bow Down to Trump**\
+`No nominee — not Kennedy, not Gabbard — is a provocateur too far for Susan Collins & Co.`\
+https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
+
 **Senator Tina Smith Won’t Run in 2026 as Democrats Face a Brutal Map**\
 `Ms. Smith, a Democrat from Minnesota, will leave open another seat for her party to defend next year as it confronts an uphill battle to retake the Senate.`\
 https://nytimes.com/2025/02/13/us/politics/tina-smith-minnesota-senate.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/13/dining/anti-valentines-day-restaurants-bars.html
 **Stephen A. Smith says 'I wouldn’t mind being in office' as president. The chances aren’t zero**\
 `ESPN's Stephen A. Smith isn't running for U.S. president. That doesn't mean he wouldn't mind being president.`\
 https://nytimes.com/athletic/6134120/2025/02/13/stephen-a-smith-presidential-campaign-run/
-
-**Padres sign starter Kyle Hart to a one-year deal to boost back of rotation**\
-`Hart pitched for the KBO’s NC Dinos last season, logging a 2.69 ERA in 157 innings and drawing widespread interest from big-league clubs.`\
-https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
-
-**When ‘Just Asking Questions’ About Science Turns Into 300,000 Dead**\
-`We have to go toe-to-toe with this administration and resist its attacks on public health.`\
-https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
-
-**Senate Confirms Kennedy, a Prominent Vaccine Skeptic, as Health Secretary**\
-`The vote capped a remarkable rise for Robert F. Kennedy Jr., who was confirmed by a Republican Senate in a chamber where his father and uncles once served as Democrats.`\
-https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html
-
-**After Abortion Bans, Infant Mortality and Births Increased, Research Finds**\
-`The findings showed the highest mortality occurred among infants who were Black, lived in Southern states or had fetal birth defects.`\
-https://nytimes.com/2025/02/13/health/abortion-bans-infant-mortality.html
 

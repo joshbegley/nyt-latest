@@ -1,3 +1,19 @@
+**Explained: Stake, Everton and how a porn star led to a Gambling Commission warning**\
+`The GC has warned Everton, Forest and Leicester of the risks of promoting “unlawful gambling websites” — what happens next?`\
+https://nytimes.com/athletic/6133814/2025/02/13/everton-stake-gambling-commission-nottingham-forest-leicester/
+
+**How much damage have red cards done to Arsenal's title challenge?**\
+`Analysing which Premier League teams have been most affected by sendings-off - and when it is worth taking one for the team`\
+https://nytimes.com/athletic/6125743/2025/02/13/how-much-damage-have-red-cards-done-to-arsenals-latest-title-challenge/
+
+**‘The Gorge’ Review: How Deep Is Your Love?**\
+`Miles Teller and Anya Taylor-Joy don’t exactly meet cute in this action movie, but they do find romance as well as horror.`\
+https://nytimes.com/2025/02/13/movies/the-gorge-review.html
+
+**The Cowards in the Senate Bow Down to Trump**\
+`No nominee — not Kennedy, not Gabbard — is a provocateur too far for Susan Collins & Co.`\
+https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
+
 **When ‘Just Asking Questions’ About Science Turns Into 300,000 Dead**\
 `We have to go toe-to-toe with this administration and resist its attacks on public health.`\
 https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
