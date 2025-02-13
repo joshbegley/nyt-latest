@@ -1,3 +1,7 @@
+**Red Sox, Alex Bregman agree to three-year, $120 million deal: Source**\
+`In joining the Red Sox, Bregman reunites with former Astros bench coach and current Boston manager, Alex Cora. `\
+https://nytimes.com/athletic/5933932/2025/02/12/alex-bregman-red-sox-deal/
+
 **NASCAR says judge made errors in latest antitrust lawsuit ruling**\
 `NASCAR has accused a district court judge of making numerous errors leading to what the company claims is an incorrect decision in the suit.`\
 https://nytimes.com/athletic/6133157/2025/02/12/nascar-ruling-front-row-motorsports-23xi-racing-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133117/2025/02/12/villanova-st-johns-mens-basketba
 **2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
 `Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
 https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Here Are the Names of 53 Migrants Taken to Guantánamo Bay**\
-`The Times has obtained a list of the names of the men, whom the U.S. government has described as Venezuelan citizens under final deportation orders.`\
-https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
 
