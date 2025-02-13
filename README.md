@@ -1,3 +1,7 @@
+**Chase Briscoe secures first, Cindric second in Daytona 500 qualifying**\
+`Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
+https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
+
 **Alex Bregman, a bedrock of Astros’ golden era, leaves void on field and in clubhouse**\
 `Bregman arrived in Houston at 22 buoyed by braggadocio. He leaves as a buttoned-up leader.`\
 https://nytimes.com/athletic/5976853/2025/02/12/astros-alex-bregman-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/crosswords/daily-puzzle-2025-02-13.html
 **Lifesaving Aid Remains Halted Worldwide Despite Rubio’s Promise**\
 `A new directive puts further exemptions on hold. Aid workers also say the U.S. government has made it impossible to pay partners around the world.`\
 https://nytimes.com/2025/02/12/us/politics/usaid-waivers-rubio.html
-
-**Padres, Nick Pivetta agree to four-year, $55 million deal: Sources**\
-`After a quiet offseason, the Padres finally struck, inking the soon-to-be 32-year-old righty. `\
-https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-deal/
 
