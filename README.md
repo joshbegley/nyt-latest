@@ -1,6 +1,6 @@
 **Baby Girl Born on Subway to Woman Who Had Been Reported Missing**\
 `A 25-year-old woman from Florida gave birth on a W train in Midtown Manhattan on Wednesday morning. She had been missing since last summer, her sister said.`\
-https://nytimes.com/2025/02/12/nyregion/nyc-subway.html
+https://nytimes.com/2025/02/12/nyregion/nyc-subway-birth-baby.html
 
 **Elon Musk’s X Settles Trump Lawsuit**\
 `The social media site agreed to pay in the range of $10 million to settle with the president, who had sued over the suspension of his account in 2021.`\
