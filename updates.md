@@ -1,3 +1,11 @@
+**Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
+`The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
+https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
+
+**Canucks trade deadline targets: Why these 5 high-character players could help Vancouver**\
+`Players with various attributes — toughness, exceptional work rate or locker room character — the Canucks could consider adding.`\
+https://nytimes.com/athletic/6133530/2025/02/13/canucks-trade-deadline-targets-2025-character/
+
 **NBA Lookahead: Kevin Durant joins an (overly) exclusive club as All-Star weekend arrives**\
 `The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
 https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/

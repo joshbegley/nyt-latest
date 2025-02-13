@@ -1,3 +1,11 @@
+**Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
+`The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
+https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
+
+**Canucks trade deadline targets: Why these 5 high-character players could help Vancouver**\
+`Players with various attributes — toughness, exceptional work rate or locker room character — the Canucks could consider adding.`\
+https://nytimes.com/athletic/6133530/2025/02/13/canucks-trade-deadline-targets-2025-character/
+
 **NBA Lookahead: Kevin Durant joins an (overly) exclusive club as All-Star weekend arrives**\
 `The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
 https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6133662/2025/02/13/fa-cup-offside-semi-automated/
 **Little extends Arsenal contract until 2026**\
 `Arsenal announced the club and midfielder have agreed to exercise an option to extend her deal by one year.`\
 https://nytimes.com/athletic/6133559/2025/02/13/kim-little-arsenal-contract-extension/
-
-**49ers mailbag: If Deebo Samuel exits, who enters at WR? DT or DE in Round 1?**\
-`Among this week's questions, what's more critical for a Wide 9 defensive front: good defensive ends or good defensive tackles?`\
-https://nytimes.com/athletic/6132682/2025/02/13/49ers-mailbag-deebo-samuel-draft-offseason/
-
-**LIV Golf Adelaide: How to watch, odds for the invitational series at Australia's Grange**\
-`The second LIV Golf tournament of 2025 tees off in Australia this weekend with Jon Rahm as the favorite. `\
-https://nytimes.com/athletic/6132621/2025/02/13/liv-golf-adelaide-how-to-watch/
 
