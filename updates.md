@@ -1,3 +1,7 @@
+**Chase Briscoe secures first, Cindric second in Daytona 500 qualifying**\
+`Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
+https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
+
 **Alex Bregman, a bedrock of Astros’ golden era, leaves void on field and in clubhouse**\
 `Bregman arrived in Houston at 22 buoyed by braggadocio. He leaves as a buttoned-up leader.`\
 https://nytimes.com/athletic/5976853/2025/02/12/astros-alex-bregman-free-agency/
