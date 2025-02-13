@@ -1,3 +1,11 @@
+**From underdog to F1 title favorite? McLaren signals intent with ‘innovative’ new car**\
+`With two drivers both believing they are ready to win a world championship, McLaren is no longer carrying the underdog tag.`\
+https://nytimes.com/athletic/6134499/2025/02/13/mclaren-f1-launch-2025-lando-norris-oscar-piastri/
+
+**This Book on World War I Changed How I Think of Nonfiction**\
+`Paul Fussell’s 50-year-old survey of trench warfare deserves a new generation of readers, our book critic writes.`\
+https://nytimes.com/2025/02/13/books/review/paul-fussell-great-war-and-modern-memory.html
+
 **Elon Musk Says He Will Drop OpenAI Bid if Company Preserves Nonprofit Mission**\
 `In a court filing, Mr. Musk said he and other investors would pull their $97.4 billion bid if OpenAI withdrew its plan to change its structure.`\
 https://nytimes.com/2025/02/13/technology/elon-musk-openai-nonprofit.html
