@@ -1,3 +1,7 @@
+**Trump Says Saudi Arabia May Host Talks With Vladimir Putin on Ukraine**\
+`The kingdom has increasingly emerged as a mediator in the Russia-Ukraine war, leveraging ties with both sides as well as with President Trump.`\
+https://nytimes.com/2025/02/13/world/europe/trump-putin-saudi-arabia-ukraine.html
+
 **How can Commanders catch the Eagles? The playoffs offered suggestions**\
 `Closing the gap with Philadelphia in the NFC East will be one of Washington's many goals heading into the 2025 season. `\
 https://nytimes.com/athletic/6130295/2025/02/13/commanders-eagles-nfl-draft-nfc-east/

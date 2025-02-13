@@ -1,3 +1,7 @@
+**Trump Says Saudi Arabia May Host Talks With Vladimir Putin on Ukraine**\
+`The kingdom has increasingly emerged as a mediator in the Russia-Ukraine war, leveraging ties with both sides as well as with President Trump.`\
+https://nytimes.com/2025/02/13/world/europe/trump-putin-saudi-arabia-ukraine.html
+
 **How can Commanders catch the Eagles? The playoffs offered suggestions**\
 `Closing the gap with Philadelphia in the NFC East will be one of Washington's many goals heading into the 2025 season. `\
 https://nytimes.com/athletic/6130295/2025/02/13/commanders-eagles-nfl-draft-nfc-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122261/2025/02/13/celtics-payton-pritchard-summer-
 **Falcons mock draft 1.0: It's all about defense, starting with cornerback and pass rusher**\
 `The Falcons have only five picks in the 2025 draft. That will tie for the fewest in franchise history unless Atlanta makes a trade.`\
 https://nytimes.com/athletic/6128969/2025/02/13/falcons-2025-mock-draft-will-johnson/
-
-**Modi to Meet Trump With Eyes on Trade and Immigration**\
-`Prime Minister Narendra Modi of India, who has a warm relationship with President Trump, may try to ease friction over migrants and trade.`\
-https://nytimes.com/2025/02/13/us/modi-trump-trade-immigration.html
 
