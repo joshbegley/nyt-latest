@@ -1,3 +1,11 @@
+**Russian markets soar after Trump-Putin call.**\
+`Russia’s main stock index skyrocketed and the ruble jumped, but experts warned that exuberance might be short-lived.`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/russia-economy-ukraine
+
+**At Least 4 Killed in Suspected Gas Explosion at Taiwan Shopping Mall**\
+`The deadly blast occurred in a food court. The island’s president ordered an investigation into the cause.`\
+https://nytimes.com/2025/02/13/world/asia/taiwan-gas-explosion-mall.html
+
 **Bubble Watch: Kansas State and Indiana suddenly have life**\
 `We welcomed a new crop of teams to Lockdom this week, while a couple of others clawed closer to the field.`\
 https://nytimes.com/athletic/6133294/2025/02/13/college-basketball-bubble-watch-indiana-kstate/
