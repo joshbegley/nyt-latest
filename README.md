@@ -1,3 +1,11 @@
+**Curry, Ionescu will not run back 3-point contest at All-Star Weekend: Sources**\
+`League officials attempted to resurrect the Curry-Ionescu competition in some form as late as Wednesday, multiple league sources said.`\
+https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-point-contest-all-star-weekend-off/
+
+**Submit questions for Scott Wheeler's prospects and NHL Draft mailbag**\
+`This week, The Athletic’s prospects writer Scott Wheeler released his annual top 100 drafted NHL prospects ranking and a new ranking for the 2025 NHL Draft. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
+https://nytimes.com/athletic/6134405/2025/02/13/nhl-draft-prospects-mailbag-february-2025/
+
 **Arsenal's Havertz to undergo surgery on torn hamstring injury**\
 `Arsenal forward Kai Havertz will begin a period of rehabilitation with a focus on being fit for the start of the 2025-26 season.`\
 https://nytimes.com/athletic/6131108/2025/02/13/havertz-injury-surgery-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/the-push-for-
 **Hot Inflation Raises Stakes of Trump’s Tariffs**\
 `Economists warn that enacting tariffs at a time of persisting price pressures is a risky move.`\
 https://nytimes.com/2025/02/13/business/trump-inflation-tariffs.html
-
-**The Windup: Bregman finds a new home**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6134352/2025/02/13/alex-bregman-red-sox-astros-the-windup/
-
-**The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
-`It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
-https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
 
