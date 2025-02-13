@@ -1,3 +1,7 @@
+**Britain’s Economy Squeezes Out 0.1% Growth**\
+`The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
+https://nytimes.com/2025/02/13/business/britain-economy.html
+
 **Premier League clubs would love to bring Harry Kane back to England. He'd be mad to indulge them**\
 `The England captain reportedly has a release clause but Kane seems to have found the perfect environment at Bayern - and he is thriving`\
 https://nytimes.com/athletic/6132975/2025/02/13/harry-kane-bayern-munich-transfer-future/
