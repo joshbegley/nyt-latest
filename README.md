@@ -1,3 +1,7 @@
+**Warming Trend in U.S.-Russia Relations Leaves Ukraine in a Tough Spot**\
+`Trump’s recent moves, including a conversation with Putin and a demand for Ukrainian mineral rights, are worrisome signs for Zelensky.`\
+https://nytimes.com/2025/02/13/world/europe/ukraine-russia-us-diplomacy.html
+
 **Trump’s Call With Putin Was ‘No Betrayal’ of Ukraine, Hegseth Says**\
 `The call has raised concerns among some European leaders that Ukraine could effectively be sidelined in any peace negotiations.`\
 https://nytimes.com/2025/02/13/world/europe/hegseth-trump-putin-call.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131682/2025/02/13/packers-mock-draft-1-gutekunst/
 **What each NFC playoff team needs this offseason to compete again in 2025**\
 `How can the Bucs, Packers, Vikings, Lions, Commanders and Super Bowl champion Eagles improve before the 2025 NFL season begins?`\
 https://nytimes.com/athletic/6129391/2025/02/13/nfc-offseason-priorities-eagles-commanders-lions/
-
-**Manchester United live Q&A: Carl Anka answers your questions**\
-`Pose your questions and Carl Anka will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6130937/2025/02/13/manchester-united-questions-amorim/
 
