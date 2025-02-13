@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6134120/2025/02/13/stephen-a-smith-presidential-cam
 `Hart pitched for the KBO’s NC Dinos last season, logging a 2.69 ERA in 157 innings and drawing widespread interest from big-league clubs.`\
 https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
 
-**Kennedy’s Views on Science Are Too Dangerous for Us to Accept**\
+**When ‘Just Asking Questions’ About Science Turns Into 300,000 Dead**\
 `We have to go toe-to-toe with this administration and resist its attacks on public health.`\
 https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
 

@@ -1,3 +1,7 @@
+**When ‘Just Asking Questions’ About Science Turns Into 300,000 Dead**\
+`We have to go toe-to-toe with this administration and resist its attacks on public health.`\
+https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
+
 **Yankees' Marcus Stroman absent from first two days of workouts**\
 `The Yankees have tried trading Stroman, who's owed $18.33 million in 2025, to no avail this offseason.`\
 https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
