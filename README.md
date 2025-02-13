@@ -1,3 +1,20 @@
+**Is INEOS starting to fall out of love with sport?**\
+`For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
+https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
+
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
+**UEFA's talks with Relevent Sports explained: Games in U.S? What would a deal be worth? Why them?**\
+`Everything you need to know about the prospective partnership between European football's governing body and the American sports media firm`\
+https://nytimes.com/athletic/6131109/2025/02/13/uefa-relevent-talks-explained/
+
+**Why do Manchester City keep conceding goals in quick succession?**\
+`The outgoing Premier League champions have become vulnerable to in-game momentum swings`\
+https://nytimes.com/athletic/6119717/2025/02/13/manchester-city-conceding-goals-game-management/
+
 **"There'll always be that hole for us all. George's number is still in our group chats"**\
 `Chris Basham is enjoying being a 'normal guy, a normal dad' after experiences no one should have to go through on and off the pitch`\
 https://nytimes.com/athletic/6118527/2025/02/13/chris-basham-retirement-george-baldock-sheffield-united/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden
 **Chase Briscoe secures first pole in JGR debut at Daytona 500 qualifying**\
 `Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
 https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
-
-**Alex Bregman, a bedrock of Astros’ golden era, leaves void on field and in clubhouse**\
-`Bregman arrived in Houston at 22 buoyed by braggadocio. He leaves as a buttoned-up leader.`\
-https://nytimes.com/athletic/5976853/2025/02/12/astros-alex-bregman-free-agency/
-
-**State Dept. Draws Up List of Cartels to Be Labeled Terrorist Groups**\
-`The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
-https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
-
-**Red Sox fans, get to know Alex Bregman, your new infielder**\
-`A cornerstone of the Houston Astros, Bregman now joins the Boston Red Sox.`\
-https://nytimes.com/athletic/5956842/2025/02/12/alex-bregman-stories/
-
-**Red Sox, Alex Bregman agree to three-year, $120 million deal: Source**\
-`In joining the Red Sox, Bregman reunites with former Astros bench coach and current Boston manager, Alex Cora. `\
-https://nytimes.com/athletic/5933932/2025/02/12/alex-bregman-red-sox-deal/
 
