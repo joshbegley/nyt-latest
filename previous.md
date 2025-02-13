@@ -1,3 +1,11 @@
+**Could Forest's Wood be the sleuth betting pick for this year's Golden Boot race?**\
+`The Athletic's Julia Ranney explores why Nottingham Forest's Chris Wood could be the leading bet for this season's Golden Boot race`\
+https://nytimes.com/athletic/6133669/2025/02/13/nottingham-forests-chris-wood-golden-boot-best-bets/
+
+**Driver Arrested After Car Crash at Demonstration in Munich**\
+`Several people were injured in the incident, the police said. They have not said whether the crash was an accident or a deliberate attack.`\
+https://nytimes.com/2025/02/13/world/europe/germany-car-crash-munich-driver-arrested.html
+
 **Bengals front office under the microscope in pivotal offseason: Dehner Jr. mailbag**\
 `Fans stand largely in solidarity with Joe Burrow and his call to keep Cincinnati's cast of stars together.`\
 https://nytimes.com/athletic/6130626/2025/02/13/bengals-front-office-dehner-jr-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/world/europe/england-wassailing-cider-tradition.h
 **What I'm hearing: Decisions on 3 specialists looming after Panthers add kicker to mix**\
 `Long snapper J.J. Jansen, punter Johnny Hekker and kicker Eddy Pineiro are each pending free agents.`\
 https://nytimes.com/athletic/6132683/2025/02/13/panthers-kicker-punter-long-snapper-contract-decisions/
-
-**How can Mike Vrabel and the Patriots fix their suddenly struggling defense?**\
-`The Patriots offense has been bad for three seasons. But improving defensively might be even more important as Mike Vrabel takes the reins. `\
-https://nytimes.com/athletic/6129673/2025/02/13/patriots-defense-nfl-draft-free-agency/
-
-**Mailbag: Myles Garrett to Dallas? Why don't Cowboys operate more like Eagles?**\
-`Garrett definitely would be in play for the Cowboys years ago. Ashton Jeanty would be difficult to pass on if he's there at No. 12 in draft.`\
-https://nytimes.com/athletic/6132079/2025/02/13/cowboys-myles-garrett-nfl-draft-eagles-mailbag/
 

@@ -1,3 +1,11 @@
+**Could Forest's Wood be the sleuth betting pick for this year's Golden Boot race?**\
+`The Athletic's Julia Ranney explores why Nottingham Forest's Chris Wood could be the leading bet for this season's Golden Boot race`\
+https://nytimes.com/athletic/6133669/2025/02/13/nottingham-forests-chris-wood-golden-boot-best-bets/
+
+**Driver Arrested After Car Crash at Demonstration in Munich**\
+`Several people were injured in the incident, the police said. They have not said whether the crash was an accident or a deliberate attack.`\
+https://nytimes.com/2025/02/13/world/europe/germany-car-crash-munich-driver-arrested.html
+
 **Bengals front office under the microscope in pivotal offseason: Dehner Jr. mailbag**\
 `Fans stand largely in solidarity with Joe Burrow and his call to keep Cincinnati's cast of stars together.`\
 https://nytimes.com/athletic/6130626/2025/02/13/bengals-front-office-dehner-jr-mailbag/
