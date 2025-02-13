@@ -1,4 +1,4 @@
-**Gustavsson steals Sweden a point they had no business getting**\
+**Gustavsson steals Sweden a point it had no business getting**\
 `Gustavsson robbed Canada's Devon Toews to keep Sweden in the game, then shut down seven more shots in overtime.`\
 https://nytimes.com/athletic/6133397/2025/02/13/filip-gustavsson-4-nations-face-off-sweden-canada/
 
