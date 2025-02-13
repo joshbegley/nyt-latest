@@ -1,3 +1,7 @@
+**Takeaways: How Canada's star power beat Sweden in 4 Nations Face-Off**\
+`Canada avoided a major letdown in the first game of the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden/
+
 **Chase Briscoe secures first pole in JGR debut at Daytona 500 qualifying**\
 `Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
 https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
