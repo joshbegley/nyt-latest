@@ -1,3 +1,7 @@
+**Jets parting ways with QB Aaron Rodgers, team announces**\
+`New regime of head coach Aaron Glenn and general manager Darren Mougey will start fresh at the quarterback position. `\
+https://nytimes.com/athletic/6134523/2025/02/13/aaron-rodgers-jets-release/
+
 **Cease-fire talks could upend Ukraine’s domestic politics.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/zelensky-ukraine-poroshenko
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/dining/solo-dinner-recipes.html
 **In Yearslong Search for Lost Bitcoin, a Final Proposal: Let Me Buy the Landfill**\
 `For 12 years, James Howells has begged officials to let him dig through a South Wales landfill to find a lost Bitcoin wallet that he says is worth around $800 million.`\
 https://nytimes.com/2025/02/13/world/europe/bitcoin-wales-james-howells-landfill.html
-
-**The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
-`Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
-https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
 
