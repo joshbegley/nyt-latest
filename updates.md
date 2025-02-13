@@ -1,3 +1,11 @@
+**Chase Briscoe secures first pole in JGR debut at Daytona 500 qualifying**\
+`Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
+https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
+
+**Red Sox fans, get to know Alex Bregman, your new infielder**\
+`A cornerstone of the Houston Astros, Bregman now joins the Boston Red Sox.`\
+https://nytimes.com/athletic/5956842/2025/02/12/alex-bregman-stories/
+
 **Chase Briscoe secures first, Cindric second in Daytona 500 qualifying**\
 `Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
 https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
