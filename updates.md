@@ -1,3 +1,7 @@
+**Rosenthal: With Alex Bregman signing, the Red Sox make an appropriate big-market flex**\
+`It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
+https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
+
 **The Knicks' Jalen Brunson and the making of a winner**\
 `Brunson will never forget the first chance he had to win a game. It's helped him make the clutch shots, including Wednesday against Atlanta.`\
 https://nytimes.com/athletic/6133382/2025/02/13/knicks-jalen-brunson-game-winner-hawks/
