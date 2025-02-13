@@ -1,3 +1,7 @@
+**Red Sox 'fired up' as they await Alex Bregman's arrival, plus other notes**\
+`Red Sox players are excited to add Bregman’s on-field talents and clubhouse leadership to the mix.`\
+https://nytimes.com/athletic/6135395/2025/02/13/alex-bregman-red-sox-player-reaction/
+
 **The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
 `A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135565/2025/02/13/thomas-harley-4-nations-canada-i
 **Abortion Provider Won’t Be Extradited to Louisiana, N.Y. Governor Says**\
 `The case could lead to a battle in federal court over whether states that support abortion rights can protect doctors who provide abortion services.`\
 https://nytimes.com/2025/02/13/nyregion/abortion-extradition-louisiana-doctor.html
-
-**Trump Administration Requests Update on Boeing’s Safety and Quality Improvements**\
-`Transportation Secretary Sean Duffy committed to restoring the public’s trust in the aircraft manufacturer during his confirmation hearing last month.`\
-https://nytimes.com/2025/02/13/us/politics/sean-duffy-boeing.html
 

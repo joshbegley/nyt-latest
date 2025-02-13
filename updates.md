@@ -1,3 +1,7 @@
+**Red Sox 'fired up' as they await Alex Bregman's arrival, plus other notes**\
+`Red Sox players are excited to add Bregman’s on-field talents and clubhouse leadership to the mix.`\
+https://nytimes.com/athletic/6135395/2025/02/13/alex-bregman-red-sox-player-reaction/
+
 **The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
 `A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
