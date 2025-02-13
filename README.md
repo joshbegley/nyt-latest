@@ -1,4 +1,4 @@
-**Chase Briscoe secures first, Cindric second in Daytona 500 qualifying**\
+**Chase Briscoe secures first pole in JGR debut at Daytona 500 qualifying**\
 `Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
 https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
 
@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5976853/2025/02/12/astros-alex-bregman-free-agency/
 `The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
 https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
 
-**Red Sox fans, get to know Alex Bregman, your new third baseman**\
+**Red Sox fans, get to know Alex Bregman, your new infielder**\
 `A cornerstone of the Houston Astros, Bregman now joins the Boston Red Sox.`\
 https://nytimes.com/athletic/5956842/2025/02/12/alex-bregman-stories/
 
