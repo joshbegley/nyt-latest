@@ -1,3 +1,7 @@
+**Corrections: Feb. 13, 2025**\
+`Corrections that appeared in print on Thursday, Feb. 13, 2025.`\
+https://nytimes.com/2025/02/12/pageoneplus/corrections-feb-13-2025.html
+
 **Villanova snaps No. 9 St. John's 10-game Big East win streak**\
 `Madison Square Garden will host a showdown for the conference lead between St. John's and Creighton on Sunday.`\
 https://nytimes.com/athletic/6133117/2025/02/12/villanova-st-johns-mens-basketball-upset-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/nyregion/nyc-subway-birth-baby.html
 **Elon Musk’s X Settles Trump Lawsuit**\
 `The social media site agreed to pay in the range of $10 million to settle with the president, who had sued over the suspension of his account in 2021.`\
 https://nytimes.com/2025/02/12/technology/musk-x-settles-trump-lawsuit.html
-
-**Dodgers are willing to let Roki Sasaki pitch from the start — even possibly in Japan**\
-`Sasaki's bullpen drew a crowd as team officials, media members and even players watched the 23-year-old get to work.`\
-https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-plans/
 
