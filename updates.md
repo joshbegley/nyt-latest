@@ -1,3 +1,11 @@
+**Slot could be on touchline vs Wolves despite Merseyside derby red card**\
+`Slot and his assistant Sipke Hulshoff received red cards after the final whistle in the Merseyside derby on Wednesday.`\
+https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
+
+**Move over, MLS. Another top flight men's league is coming to the U.S.**\
+`USL is launching a new league with first-division sanctioning, offering an alternative to MLS and potentially opening the door to pro-rel.`\
+https://nytimes.com/athletic/6129972/2025/02/13/usl-launch-division-1-league-us-soccer-mls/
+
 **Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
 `Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
 https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
