@@ -1,3 +1,15 @@
+**A Brisk and Juicy Australian Family Drama**\
+`A nimble mini-series on Amazon crams a lot of believable texture and chemistry into a tidy package, with just six 15-minute episodes.`\
+https://nytimes.com/2025/02/13/arts/television/adeleide-austrailan-drama-streaming-amazon.html
+
+**NATO Emphasizes Unity as Concerns Mount That Europe Will Be Left Out of Ukraine Talks**\
+`President Trump has made it clear that he is pushing for an end to the war in Ukraine. The move has left Europe worried that it, and Ukraine, could be left out as he negotiates with Russia’s leader, Vladimir V. Putin.`\
+https://nytimes.com/2025/02/13/world/europe/nato-ukraine-war-eu.html
+
+**The Jets' Aaron Rodgers era was everything it wasn't supposed to be**\
+`On Thursday, the Jets announced they will part ways with Rodgers after two disappointing seasons.`\
+https://nytimes.com/athletic/6134858/2025/02/13/aaron-rodgers-jets-era-end-nfl/
+
 **Blue Origin, Jeff Bezos’ Rocket Company, Cuts 10% of Its Employees**\
 `In an email to employees, the company’s chief executive said the company had become bloated during its growth in recent years.`\
 https://nytimes.com/2025/02/13/technology/blue-origin-layoffs-jeff-bezos.html

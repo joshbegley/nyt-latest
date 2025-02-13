@@ -1,3 +1,15 @@
+**A Brisk and Juicy Australian Family Drama**\
+`A nimble mini-series on Amazon crams a lot of believable texture and chemistry into a tidy package, with just six 15-minute episodes.`\
+https://nytimes.com/2025/02/13/arts/television/adeleide-austrailan-drama-streaming-amazon.html
+
+**NATO Emphasizes Unity as Concerns Mount That Europe Will Be Left Out of Ukraine Talks**\
+`President Trump has made it clear that he is pushing for an end to the war in Ukraine. The move has left Europe worried that it, and Ukraine, could be left out as he negotiates with Russia’s leader, Vladimir V. Putin.`\
+https://nytimes.com/2025/02/13/world/europe/nato-ukraine-war-eu.html
+
+**The Jets' Aaron Rodgers era was everything it wasn't supposed to be**\
+`On Thursday, the Jets announced they will part ways with Rodgers after two disappointing seasons.`\
+https://nytimes.com/athletic/6134858/2025/02/13/aaron-rodgers-jets-era-end-nfl/
+
 **Blue Origin, Jeff Bezos’ Rocket Company, Cuts 10% of Its Employees**\
 `In an email to employees, the company’s chief executive said the company had become bloated during its growth in recent years.`\
 https://nytimes.com/2025/02/13/technology/blue-origin-layoffs-jeff-bezos.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/13/magazine/murdoch-family-trust-success
 **‘You’ve Blown a Hole in the Family’: Inside the Murdochs’ Succession Drama**\
 `More than 3,000 pages of documents reveal how years of betrayals led to a messy court battle that threatens the future of Rupert’s empire.`\
 https://nytimes.com/2025/02/13/magazine/rupert-murdoch-succession-family-trust-fight.html
-
-**Review: The War Is Never Over in This Epic-Inspired Dance**\
-`“Gigenis,” drawn from a tale in the Mahabharata, is the choreographer Akram Khan’s most potent work in years.`\
-https://nytimes.com/2025/02/13/arts/dance/review-akram-khan-gigenis.html
-
-**Shohei Ohtani won't have to wait for two-way status — and the Dodgers will benefit**\
-`Ohtani’s status has caused at least some confusion, particularly due to a change to the rule made last month.`\
-https://nytimes.com/athletic/6135017/2025/02/13/shohei-ohtani-dodgers-two-way-player/
-
-**Judge Temporarily Stops Trump’s Plan to End Funds for Trans Youths’ Health Providers**\
-`Six transgender individuals, all younger than 19, sued the administration over executive orders targeting hospitals that offer transition treatments to young people.`\
-https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-funds-for-trans-youths-health-providers.html
 
