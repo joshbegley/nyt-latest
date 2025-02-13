@@ -1,9 +1,13 @@
+**NASCAR says judge made errors in latest antitrust lawsuit ruling**\
+`NASCAR has accused a district court judge of making numerous errors leading to what the company claims is an incorrect decision in the suit.`\
+https://nytimes.com/athletic/6133157/2025/02/12/nascar-ruling-front-row-motorsports-23xi-racing-lawsuit/
+
 **Canada loses defenseman Shea Theodore to injury in 4 Nations Face-Off opener**\
 `Team Canada is down a defenseman one game into the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6133250/2025/02/12/canada-4-nations-face-off-shea-theodore-injury-update/
 
 **As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
-`Ahead of Spring Training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
+`Ahead of spring training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
 https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/
 
 **What Are You Waiting for?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-to
 **Here Are the Names of 53 Migrants Taken to Guantánamo Bay**\
 `The Times has obtained a list of the names of the men, whom the U.S. government has described as Venezuelan citizens under final deportation orders.`\
 https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
-
-**Some Migrants Sent by Trump to Guantánamo Are Being Held by Military Guards**\
-`The Times has obtained a list of 53 Venezuelan men the Trump administration has put in a wartime prison built to hold Al Qaeda suspects.`\
-https://nytimes.com/2025/02/12/us/gitmo-migrants-trump.html
 
