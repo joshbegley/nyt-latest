@@ -1,3 +1,11 @@
+**Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
+`He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
+https://nytimes.com/2025/02/13/us/politics/jim-guy-tucker-dead.html
+
+**Nolan Arenado 'likely' to remain a Cardinal after months of trade speculation**\
+`John Mozeliak does not expect any awkwardness when Arenado reports to Cardinals camp: "He knows we've tried."`\
+https://nytimes.com/athletic/6135254/2025/02/13/cardinals-nolan-arenado-speculation/
+
 **Miami City Ballet’s Artistic Leader to Step Down After 13 Years**\
 `Lourdes Lopez, who championed contemporary ballets and elevated the company’s profile, is departing two years before her contract expires.`\
 https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
