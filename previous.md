@@ -1,3 +1,7 @@
+**Virginia Tech zeroes in on new OC from Bills staff: Source**\
+`The Hokies are targeting Christian Taylor, a Buffalo Bills assistant and former William & Mary offensive coordinator, to be their new OC.`\
+https://nytimes.com/athletic/6135496/2025/02/13/christian-taylor-virginia-tech-offensive-coordinator/
+
 **Maresca: 'Completely wrong' for teams to play on deadline day**\
 `The Chelsea head coach says it is not fair as clubs cannot respond to any injury setbacks.`\
 https://nytimes.com/athletic/6134805/2025/02/13/enzo-maresca-chelsea-injuries-deadline-day/
