@@ -1,3 +1,7 @@
+**Texas Judge Fines New York Doctor and Orders Her to Stop Sending Abortion Pills to Texas**\
+`It is the first ruling in a case challenging “shield laws” intended to protect doctors in states that support abortion rights who send abortion pills to states with bans.`\
+https://nytimes.com/2025/02/13/health/texas-new-york-abortion-pills-lawsuit.html
+
 **Mayor Adams to Sign Order Allowing ICE Agents Into Rikers Island**\
 `The executive order seems to conflict with New York City’s sanctuary laws designed to prevent cooperation with the enforcement of federal immigration law.`\
 https://nytimes.com/2025/02/13/nyregion/adams-ice-rikers-homan.html

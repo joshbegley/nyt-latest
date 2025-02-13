@@ -1,3 +1,7 @@
+**Texas Judge Fines New York Doctor and Orders Her to Stop Sending Abortion Pills to Texas**\
+`It is the first ruling in a case challenging “shield laws” intended to protect doctors in states that support abortion rights who send abortion pills to states with bans.`\
+https://nytimes.com/2025/02/13/health/texas-new-york-abortion-pills-lawsuit.html
+
 **Mayor Adams to Sign Order Allowing ICE Agents Into Rikers Island**\
 `The executive order seems to conflict with New York City’s sanctuary laws designed to prevent cooperation with the enforcement of federal immigration law.`\
 https://nytimes.com/2025/02/13/nyregion/adams-ice-rikers-homan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/world/europe/nato-school-dei-hegseth.html
 **Alex Bregman signing signals Red Sox are back and baseball may be past cheating scandal**\
 `Alex Cora addressed sign-stealing topic again, taking responsibility and saying, “We made a mistake in ’17, and some of us paid the price."`\
 https://nytimes.com/athletic/6135218/2025/02/13/boston-red-sox-alex-bregman-column/
-
-**Authorities Believe Car Crash in Munich Was a Deliberate Attack**\
-`German politicians wasted little time before adding to growing tensions around immigration after authorities said a 24-year-old asylum seeker from Afghanistan crashed a car into a union demonstration in Munich on Thursday, injuring more than two dozen people.`\
-https://nytimes.com/video/world/europe/100000009989408/munich-car-crash-attack.html
 
