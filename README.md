@@ -1,5 +1,5 @@
 **Scoop City: What every general manager can learn from the Eagles**\
-`Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and single-team mock drafts are underway.`\
+`Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and five single-team mock drafts.`\
 https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
 
 **‘The Boss of Everyone and Everything’: Trump Seeks to Influence Many Spheres**\
