@@ -1,3 +1,11 @@
+**PSR to remain in place in Premier League next season**\
+`Several clubs, including Manchester United, Newcastle United and Aston Villa, have all criticised PSR.`\
+https://nytimes.com/athletic/6134226/2025/02/13/premier-league-psr-next-season/
+
+**Bucks claw their way to win, enter All-Star break with confidence: 'I really like this team'**\
+`A hard-fought win while shorthanded was the ideal way for the Bucks to enter the All-Star Break. `\
+https://nytimes.com/athletic/6133837/2025/02/13/bucks-timberwolves-recap-kyle-kuzma-brook-lopez/
+
 **Forest's Awoniyi unlikely to play vs Fulham after suspected concussion**\
 `Awoniyi is being fitted with a face mask — similar to the one recently worn by Forest defender Neco Williams — to protect his nose.`\
 https://nytimes.com/athletic/6134232/2025/02/13/taiwo-awoniyi-injury-concussion/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/arts/avowed-review.html
 **Ukraine’s Borders in Maps: Pre-2014 Invasion to Now**\
 `Ukraine’s government wants to restore the country’s frontier to where it was before Russia launched its first invasion more than a decade ago. The U.S. defense secretary said that was “unrealistic.”`\
 https://nytimes.com/2025/02/13/world/europe/ukraine-borders-pre-2014-map-war.html
-
-**Slot could be on touchline vs Wolves despite Merseyside derby red card**\
-`Slot and his assistant Sipke Hulshoff received red cards after the final whistle in the Merseyside derby on Wednesday.`\
-https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
-
-**Move over, MLS. Another top flight men's league is coming to the U.S.**\
-`USL is launching a new league with first-division sanctioning, offering an alternative to MLS and potentially opening the door to pro-rel.`\
-https://nytimes.com/athletic/6129972/2025/02/13/usl-launch-division-1-league-us-soccer-mls/
 
