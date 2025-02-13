@@ -1,3 +1,7 @@
+**Miami City Ballet’s Artistic Leader to Step Down After 13 Years**\
+`Lourdes Lopez, who championed contemporary ballets and elevated the company’s profile, is departing two years before her contract expires.`\
+https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
+
 **Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
 `Summary`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
