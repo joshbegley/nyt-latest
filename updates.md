@@ -1,3 +1,7 @@
+**Arsenal's Havertz to undergo surgery on torn hamstring injury**\
+`Arsenal forward Kai Havertz will begin a period of rehabilitation with a focus on being fit for the start of the 2025-26 season.`\
+https://nytimes.com/athletic/6131108/2025/02/13/havertz-injury-surgery-arsenal/
+
 **Ausar Thompson is becoming key to Pistons offense: 'You’re seeing him blossom'**\
 `"He’s just putting it all together now and it’s great to see,” says Pistons teammate Tobias Harris.`\
 https://nytimes.com/athletic/6134122/2025/02/13/pistons-ausar-thompson-offense/
