@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
 `We have to go toe-to-toe with this administration and resist its attacks on public health.`\
 https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
 
-**Senate Confirms Kennedy as Health Secretary**\
+**Senate Confirms Kennedy, a Prominent Vaccine Skeptic, as Health Secretary**\
 `The vote capped a remarkable rise for Robert F. Kennedy Jr., who was confirmed by a Republican Senate in a chamber where his father and uncles once served as Democrats.`\
 https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html
 
