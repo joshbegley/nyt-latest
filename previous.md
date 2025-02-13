@@ -1,3 +1,7 @@
+**Travis Hunter headlines prospects invited to 2025 NFL Scouting Combine**\
+`Hunter, who starred as both a receiver and cornerback the last two seasons at Colorado, is listed with the defensive backs.`\
+https://nytimes.com/athletic/6134816/2025/02/13/nfl-scouting-combine-prospect-list-2025/
+
 **The $3 Billion House That Orange Chicken Built**\
 `The parent restaurant of Panda Express underwent a multimillion-dollar renovation. The deep, comforting pleasures are still on the menu.`\
 https://nytimes.com/2025/02/13/dining/panda-inn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/dining/may-arugula-always-find-me.html
 **C.D.C. Study Finds Silent Bird Flu Infections in Dairy Veterinarians**\
 `The vets had no symptoms, and one worked only in states where no dairy infections had been reported.`\
 https://nytimes.com/2025/02/13/science/cdc-bird-flu-infections.html
-
-**Chronic Illness Can Affect Every Part of Life. How Do You Talk About it at Work?**\
-`Opening up can unlock much-needed support, but it also comes with risks.`\
-https://nytimes.com/2025/02/13/well/live/working-with-medical-condition.html
 
