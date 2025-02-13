@@ -1,3 +1,11 @@
+**Miso-Parmesan Noodle Soup, and More Superb Solo Suppers**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2025/02/13/dining/solo-dinner-recipes.html
+
+**In Yearslong Search for Lost Bitcoin, a Final Proposal: Let Me Buy the Landfill**\
+`For 12 years, James Howells has begged officials to let him dig through a South Wales landfill to find a lost Bitcoin wallet that he says is worth around $800 million.`\
+https://nytimes.com/2025/02/13/world/europe/bitcoin-wales-james-howells-landfill.html
+
 **The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
 `Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
 https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
