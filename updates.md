@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 `\
 https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
 **What adding Alex Bregman means for the Red Sox infield, lineup, payroll and prospects**\
 `The Red Sox finally made their big free-agent splash, bringing Bregman into the fold. How will he fit in the lineup and infield?`\
 https://nytimes.com/athletic/6133365/2025/02/13/red-sox-alex-bregman-signing-analysis/
