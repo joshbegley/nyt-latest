@@ -1,3 +1,27 @@
+**Senator Tina Smith Won’t Run in 2026 as Democrats Face a Brutal Map**\
+`Ms. Smith, a Democrat from Minnesota, will leave open another seat for her party to defend next year as it confronts an uphill battle to retake the Senate.`\
+https://nytimes.com/2025/02/13/us/politics/tina-smith-minnesota-senate.html
+
+**Stars Resign Kennedy Center Posts in Wake of Trump’s Takeover**\
+`Renée Fleming, Ben Folds and Shonda Rhimes all left posts at the Kennedy Center after President Trump became chairman and its longtime leaders were fired.`\
+https://nytimes.com/2025/02/13/arts/shonda-rhimes-renee-fleming-ben-folds-kennedy-center.html
+
+**The Yellowjackets Are Back. Here’s Where We Left Off.**\
+`The Showtime survival drama returns on Friday for Season 3. Memory a little fuzzy? Hint: There was a bunch of cannibalism and even more ’90s rock.`\
+https://nytimes.com/2025/02/13/arts/television/yellowjackets-recap-season-2.html
+
+**Yankees' Marcus Stroman absent from first two days of workouts**\
+`The Yankees have tried trading Stroman, who's owed $18.33 million this season, this offseason to no avail.`\
+https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
+
+**At These Bars and Restaurants, a Valentine’s Day for the Rest of Us**\
+`On one of the biggest nights of the year for restaurants, a select few are saying no to the “corporatization” of romance and the singling out of single people.`\
+https://nytimes.com/2025/02/13/dining/anti-valentines-day-restaurants-bars.html
+
+**Stephen A. Smith says 'I wouldn’t mind being in office' as president. The chances aren’t zero**\
+`ESPN's Stephen A. Smith isn't running for U.S. president. That doesn't mean he wouldn't mind being president.`\
+https://nytimes.com/athletic/6134120/2025/02/13/stephen-a-smith-presidential-campaign-run/
+
 **Senate Confirms Kennedy, a Prominent Vaccine Skeptic, as Health Secretary**\
 `The vote capped a remarkable rise for Robert F. Kennedy Jr., who was confirmed by a Republican Senate in a chamber where his father and uncles once served as Democrats.`\
 https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html

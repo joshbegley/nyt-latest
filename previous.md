@@ -1,3 +1,27 @@
+**Senator Tina Smith Won’t Run in 2026 as Democrats Face a Brutal Map**\
+`Ms. Smith, a Democrat from Minnesota, will leave open another seat for her party to defend next year as it confronts an uphill battle to retake the Senate.`\
+https://nytimes.com/2025/02/13/us/politics/tina-smith-minnesota-senate.html
+
+**Stars Resign Kennedy Center Posts in Wake of Trump’s Takeover**\
+`Renée Fleming, Ben Folds and Shonda Rhimes all left posts at the Kennedy Center after President Trump became chairman and its longtime leaders were fired.`\
+https://nytimes.com/2025/02/13/arts/shonda-rhimes-renee-fleming-ben-folds-kennedy-center.html
+
+**The Yellowjackets Are Back. Here’s Where We Left Off.**\
+`The Showtime survival drama returns on Friday for Season 3. Memory a little fuzzy? Hint: There was a bunch of cannibalism and even more ’90s rock.`\
+https://nytimes.com/2025/02/13/arts/television/yellowjackets-recap-season-2.html
+
+**Yankees' Marcus Stroman absent from first two days of workouts**\
+`The Yankees have tried trading Stroman, who's owed $18.33 million this season, this offseason to no avail.`\
+https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
+
+**At These Bars and Restaurants, a Valentine’s Day for the Rest of Us**\
+`On one of the biggest nights of the year for restaurants, a select few are saying no to the “corporatization” of romance and the singling out of single people.`\
+https://nytimes.com/2025/02/13/dining/anti-valentines-day-restaurants-bars.html
+
+**Stephen A. Smith says 'I wouldn’t mind being in office' as president. The chances aren’t zero**\
+`ESPN's Stephen A. Smith isn't running for U.S. president. That doesn't mean he wouldn't mind being president.`\
+https://nytimes.com/athletic/6134120/2025/02/13/stephen-a-smith-presidential-campaign-run/
+
 **Padres sign starter Kyle Hart to a one-year deal to boost back of rotation**\
 `Hart pitched for the KBO’s NC Dinos last season, logging a 2.69 ERA in 157 innings and drawing widespread interest from big-league clubs.`\
 https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html
 **After Abortion Bans, Infant Mortality and Births Increased, Research Finds**\
 `The findings showed the highest mortality occurred among infants who were Black, lived in Southern states or had fetal birth defects.`\
 https://nytimes.com/2025/02/13/health/abortion-bans-infant-mortality.html
-
-**Jets parting ways with QB Aaron Rodgers, team announces**\
-`New regime of head coach Aaron Glenn and general manager Darren Mougey will start fresh at the quarterback position. `\
-https://nytimes.com/athletic/6134523/2025/02/13/aaron-rodgers-jets-release/
-
-**Cease-fire talks could upend Ukraine’s domestic politics.**\
-`By Andrew E. Kramer`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/zelensky-ukraine-poroshenko
-
-**Kerr's injury rehab 'going in the right direction' after return to Chelsea training**\
-`The Australia forward has not played for Chelsea since sustaining an anterior cruciate ligament injury in January last year.`\
-https://nytimes.com/athletic/6134488/2025/02/13/sam-kerr-injury-chelsea-training/
-
-**Reporter Gone Wild**\
-`We all need an occasional chance to focus on the untamed, and remind ourselves that we are a part of it. That might go double for journalists.`\
-https://nytimes.com/2025/02/13/insider/animal-rescues.html
-
-**Senate Panel Advances Kash Patel as F.B.I. Director Amid Agency Turmoil**\
-`The vote moved Mr. Patel, a Trump loyalist, one step closer to leading the nation’s premier law enforcement agency.`\
-https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confirmation-trump.html
-
-**11,000 Years of Designer Sheep**\
-`According to a new exhibition in Amsterdam, centuries of human intervention turned the animal into “a wool-producing machine with ears and eyes.”`\
-https://nytimes.com/2025/02/13/arts/design/sheep-exhibition-formafantasma-oltre-terra.html
 
