@@ -1,3 +1,11 @@
+**PHOTOS: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
+`Among the upgrades to the facilities are a made-to-order kitchen, as well as a players' lounge and a two-story weight room. `\
+https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenner-field-upgrades/
+
+**Joann Is More Than a Chain Store to ‘Heartbroken’ Regulars**\
+`For quilters, knitters and crafters, Joann, which expects to close more than half of its stores after filing for bankruptcy, has been a one-stop shop — and more.`\
+https://nytimes.com/2025/02/13/style/joann-bankruptcy-reactions.html
+
 **Angels' Ben Joyce, fresh off losing closer's role, is 'excited' to learn from Kenley Jansen**\
 `“It’s awesome to get to learn from a guy like that," Joyce said. "I’m going to just be an open book. Keep my ears open."`\
 https://nytimes.com/athletic/6135655/2025/02/13/angels-closer-ben-joyce-kenley-jansen/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/13/us/trump-news/elon-musk-doge-lawsuits
 **Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
 `He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
 https://nytimes.com/2025/02/13/us/politics/jim-guy-tucker-dead.html
-
-**Nolan Arenado 'likely' to remain a Cardinal after months of trade speculation**\
-`John Mozeliak does not expect any awkwardness when Arenado reports to Cardinals camp: "He knows we've tried."`\
-https://nytimes.com/athletic/6135254/2025/02/13/cardinals-nolan-arenado-speculation/
-
-**Miami City Ballet’s Artistic Leader to Step Down After 13 Years**\
-`Lourdes Lopez, who championed contemporary ballets and elevated the company’s profile, is departing two years before her contract expires.`\
-https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
 
