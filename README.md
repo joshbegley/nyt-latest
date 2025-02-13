@@ -1,3 +1,7 @@
+**Premier League clubs would love to bring Harry Kane back to England. He'd be mad to indulge them**\
+`The England captain reportedly has a release clause but Kane seems to have found the perfect environment at Bayern - and he is thriving`\
+https://nytimes.com/athletic/6132975/2025/02/13/harry-kane-bayern-munich-transfer-future/
+
 **Everton's final Goodison Park derby was wild - a fitting end that will go down in folklore**\
 `This was a new addition to the pantheon of great Goodison Park nights`\
 https://nytimes.com/athletic/6133043/2025/02/13/everton-liverpool-goodison-park-tarkowski/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133430/2025/02/13/lakers-dalton-knecht-return-horn
 **Honda and Nissan Scrap $50 Billion Merger Plan**\
 `The Japanese companies’ decision to call off negotiations highlights the challenges legacy automakers face in partnering to tackle new technologies.`\
 https://nytimes.com/2025/02/13/business/honda-nissan-merger.html
-
-**Canadian Tariffs Are an Act of Self-Harm by the U.S.**\
-`Retaliation is a must. One hundred percent tariffs on Teslas, imposed by every country in the world, would be a good place to start.`\
-https://nytimes.com/2025/02/13/opinion/canada-tariffs-steel-us.html
 
