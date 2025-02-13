@@ -1,3 +1,7 @@
+**Alex Bregman, a bedrock of Astros’ golden era, leaves void on field and in clubhouse**\
+`Bregman arrived in Houston at 22 buoyed by braggadocio. He leaves as a buttoned-up leader.`\
+https://nytimes.com/athletic/5976853/2025/02/12/astros-alex-bregman-free-agency/
+
 **State Dept. to Designate Latin American Cartels as Terrorist Groups**\
 `The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
 https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/usaid-waivers-rubio.html
 **Padres, Nick Pivetta agree to four-year, $55 million deal: Sources**\
 `After a quiet offseason, the Padres finally struck, inking the soon-to-be 32-year-old righty. `\
 https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-deal/
-
-**Corrections: Feb. 13, 2025**\
-`Corrections that appeared in print on Thursday, Feb. 13, 2025.`\
-https://nytimes.com/2025/02/12/pageoneplus/corrections-feb-13-2025.html
 
