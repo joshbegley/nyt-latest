@@ -1,3 +1,7 @@
+**Warming Trend in U.S.-Russia Relations Leaves Ukraine in a Tough Spot**\
+`Trump’s recent moves, including a conversation with Putin and a demand for Ukrainian mineral rights, are worrisome signs for Zelensky.`\
+https://nytimes.com/2025/02/13/world/europe/ukraine-russia-us-diplomacy.html
+
 **Trump’s Call With Putin Was ‘No Betrayal’ of Ukraine, Hegseth Says**\
 `The call has raised concerns among some European leaders that Ukraine could effectively be sidelined in any peace negotiations.`\
 https://nytimes.com/2025/02/13/world/europe/hegseth-trump-putin-call.html
