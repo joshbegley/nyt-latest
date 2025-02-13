@@ -1,3 +1,11 @@
+**Framber Valdez says Astros haven't approached him about an extension**\
+`The 31-year-old lefty will be a free agent after the 2025 season.`\
+https://nytimes.com/athletic/6134845/2025/02/13/astros-framber-valdez-contract-extension/
+
+**3-point shootout, wisecracks and memories: Inside Run TMC's recent reunion**\
+`Chris Mullin, Tim Hardaway and Mitch Richmond shook off the rust and joined Baron Davis for a nostalgic All-Star promotion.`\
+https://nytimes.com/athletic/6087006/2025/02/13/warriors-nba-all-star-run-tmc-reunion/
+
 **Trump Says He’ll Rework Global Trading Relations With ‘Reciprocal’ Tariffs**\
 `The president said advisers would devise new tariff levels reflecting countries’ tariffs, taxes, subsidies and other policies affecting trade with the United States.`\
 https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/13/us/trump-news/house-passes-bill-to-crack-dow
 **Finding Devoted Sports Fans in the Coldest Place on Earth**\
 `An innocent question from a friend inspired one reporter to seek out sports buffs in a remote and chilly place: Antarctica.`\
 https://nytimes.com/2025/02/13/insider/finding-devoted-sports-fans-in-the-coldest-place-on-earth.html
-
-**Travis Hunter headlines prospects invited to 2025 NFL Scouting Combine**\
-`Hunter, who starred as both a receiver and cornerback the last two seasons at Colorado, is listed with the defensive backs.`\
-https://nytimes.com/athletic/6134816/2025/02/13/nfl-scouting-combine-prospect-list-2025/
-
-**The $3 Billion House That Orange Chicken Built**\
-`The parent restaurant of Panda Express underwent a multimillion-dollar renovation. The deep, comforting pleasures are still on the menu.`\
-https://nytimes.com/2025/02/13/dining/panda-inn.html
 
