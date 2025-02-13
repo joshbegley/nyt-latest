@@ -1,4 +1,4 @@
-**American Paula Moltzan hits new career high with giant slalom bronze at worlds**\
+**Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
 `Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
 https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
 
