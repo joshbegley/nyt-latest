@@ -1,3 +1,11 @@
+**Read Danielle Sassoon’s Letter to Attorney General Pam Bondi**\
+`Danielle R. Sassoon, Manhattan’s acting U.S. attorney, writes to Attorney General Pam Bondi, refusing to drop the case against Mayor Eric Adams.`\
+https://nytimes.com/interactive/2025/02/13/us/letter-to-bondi.html
+
+**Braves passed over Ian Anderson for playoff start, now he's driven to win rotation spot**\
+`How close does Anderson think he is to his pre-injury form? "I think pretty damn close."`\
+https://nytimes.com/athletic/6135204/2025/02/13/braves-ian-anderson-rotation/
+
 **Friday Briefing: Trump Orders New Global Tariffs**\
 `Plus, “Saturday Night Live” turns 50.`\
 https://nytimes.com/2025/02/13/briefing/trump-tariffs-ukraine-europe-hamas-hostages.html
