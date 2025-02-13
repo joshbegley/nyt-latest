@@ -1,3 +1,7 @@
+**Putin Scores a Big Victory, and Not on the Battlefield**\
+`Vladimir Putin’s call with President Trump reinforced the Russian leader’s view that Moscow and Washington should decide the fate of Ukraine — and other weighty matters.`\
+https://nytimes.com/2025/02/13/world/europe/putin-trump-call-russia-ukraine.html
+
 **Taiwan Prepares for Trump’s Tariffs, and a Changed Washington**\
 `Taiwanese officials, facing a more transactional U.S. relationship, have traveled to Washington to float energy deals and defend the island’s semiconductors.`\
 https://nytimes.com/2025/02/13/world/asia/taiwan-tariffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133043/2025/02/13/everton-liverpool-goodison-park-
 **It’s Bring a Kid to Work Day on ‘The Tonight Show’**\
 `Elon Musk took his son to the Oval Office, so Jimmy Fallon saw no reason not to walk onstage with a child, too.`\
 https://nytimes.com/2025/02/13/arts/television/jimmy-fallon-elon-musk.html
-
-**The Knicks' Jalen Brunson and the making of a winner**\
-`Brunson will never forget the first chance he had to win a game. It's helped him make the clutch shots, including Wednesday against Atlanta.`\
-https://nytimes.com/athletic/6133382/2025/02/13/knicks-jalen-brunson-game-winner-hawks/
 
