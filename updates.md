@@ -1,3 +1,11 @@
+**State Dept. to Designate Latin American Cartels as Terrorist Groups**\
+`The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
+https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
+
+**Red Sox fans, get to know Alex Bregman, your new third baseman**\
+`A cornerstone of the Houston Astros, Bregman now joins the Boston Red Sox.`\
+https://nytimes.com/athletic/5956842/2025/02/12/alex-bregman-stories/
+
 **Red Sox, Alex Bregman agree to three-year, $120 million deal: Source**\
 `In joining the Red Sox, Bregman reunites with former Astros bench coach and current Boston manager, Alex Cora. `\
 https://nytimes.com/athletic/5933932/2025/02/12/alex-bregman-red-sox-deal/

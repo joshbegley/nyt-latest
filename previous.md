@@ -1,3 +1,11 @@
+**State Dept. to Designate Latin American Cartels as Terrorist Groups**\
+`The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
+https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
+
+**Red Sox fans, get to know Alex Bregman, your new third baseman**\
+`A cornerstone of the Houston Astros, Bregman now joins the Boston Red Sox.`\
+https://nytimes.com/athletic/5956842/2025/02/12/alex-bregman-stories/
+
 **Red Sox, Alex Bregman agree to three-year, $120 million deal: Source**\
 `In joining the Red Sox, Bregman reunites with former Astros bench coach and current Boston manager, Alex Cora. `\
 https://nytimes.com/athletic/5933932/2025/02/12/alex-bregman-red-sox-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-de
 **Corrections: Feb. 13, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 13, 2025.`\
 https://nytimes.com/2025/02/12/pageoneplus/corrections-feb-13-2025.html
-
-**Villanova snaps No. 9 St. John's 10-game Big East win streak**\
-`Madison Square Garden will host a showdown for the conference lead between St. John's and Creighton on Sunday.`\
-https://nytimes.com/athletic/6133117/2025/02/12/villanova-st-johns-mens-basketball-upset-results-analysis/
-
-**2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
-`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
-https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
