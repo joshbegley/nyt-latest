@@ -10,7 +10,7 @@ https://nytimes.com/2025/02/12/technology/musk-x-settles-trump-lawsuit.html
 `Sasaki's bullpen drew a crowd as team officials, media members and even players watched the 23-year-old get to work. `\
 https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-plans/
 
-**When Musk’s Team Comes to Your Door**\
+**When Musk’s Team Shows Up at Your Doorstep**\
 `The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
 https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
 
