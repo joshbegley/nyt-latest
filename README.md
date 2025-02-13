@@ -1,5 +1,5 @@
 **Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
-`“Obviously disappointed,” Cubs president of baseball operations Jed Hoyer said Thursday morning at the team’s Arizona facility.`\
+`"Obviously disappointed," Cubs president of baseball operations Jed Hoyer said Thursday morning at the team's Arizona facility.`\
 https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/
 
 **Red Sox 'fired up' as they await Alex Bregman's arrival, plus other notes**\
