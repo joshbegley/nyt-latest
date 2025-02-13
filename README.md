@@ -1,3 +1,7 @@
+**Watch: What's going on with Mark Williams and Dalton Knecht?**\
+`NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
+https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
+
 **In This Trump Presidency, the Domination Will be Televised**\
 `From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
 https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/can-britain-a
 **Bears mock draft 1.0: Finding good pass protectors, maybe better pass rushers**\
 `The Bears have three picks in the top 50 this year to build around QB Caleb Williams — or improve their defense. `\
 https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-graham-will-campbell/
-
-**‘The Annihilation of Fish’ Review: A Gem That’s Worth the Wait**\
-`The director Charles Burnett’s deeply humane, singular film from 1999, starring James Earl Jones, is finally receiving a theatrical release.`\
-https://nytimes.com/2025/02/13/movies/the-annihilation-of-fish-review.html
 
