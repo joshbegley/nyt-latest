@@ -1,3 +1,15 @@
+**Premier League clubs would love to bring Harry Kane back to England. He'd be mad to indulge them**\
+`The England captain reportedly has a release clause but Kane seems to have found the perfect environment at Bayern - and he is thriving`\
+https://nytimes.com/athletic/6132975/2025/02/13/harry-kane-bayern-munich-transfer-future/
+
+**Everton's final Goodison Park derby was wild - a fitting end that will go down in folklore**\
+`This was a new addition to the pantheon of great Goodison Park nights`\
+https://nytimes.com/athletic/6133043/2025/02/13/everton-liverpool-goodison-park-tarkowski/
+
+**It’s Bring a Kid to Work Day on ‘The Tonight Show’**\
+`Elon Musk took his son to the Oval Office, so Jimmy Fallon saw no reason not to walk onstage with a child, too.`\
+https://nytimes.com/2025/02/13/arts/television/jimmy-fallon-elon-musk.html
+
 **Rosenthal: With Alex Bregman signing, the Red Sox make an appropriate big-market flex**\
 `It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
 https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
