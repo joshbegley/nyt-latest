@@ -1,3 +1,11 @@
+**‘Notes on Displacement’ Review: Seeking a Fresh Start in Europe**\
+`The artist and director Khaled Jarrar accompanies a group of people from Syria on their way to Germany in this documentary.`\
+https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
+
+**Driver Arrested After Injuring Several in Munich Crowd**\
+`The police in Munich said they had arrested an Afghan asylum seeker who was known to them after a car drove into a demonstration by a major German union. More than two dozen people were injured, including children.`\
+https://nytimes.com/video/world/europe/100000009988439/driver-arrested-after-injuring-several-in-munich-crowd.html
+
 **With an Evil Empire’s Power Comes Great Responsibility**\
 `Weighty player choices give the fantasy role-playing game Avowed an impressive central narrative. But simplistic combat and rote side quests keep it from excellence.`\
 https://nytimes.com/2025/02/13/arts/avowed-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
 **Canucks trade deadline targets: Why these 5 high-character players could help Vancouver**\
 `Players with various attributes — toughness, exceptional work rate or locker room character — the Canucks could consider adding.`\
 https://nytimes.com/athletic/6133530/2025/02/13/canucks-trade-deadline-targets-2025-character/
-
-**NBA Lookahead: Kevin Durant joins an (overly) exclusive club as All-Star weekend arrives**\
-`The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
-https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/
-
-**Liverpool and Everton condemn online racist abuse of Doucoure**\
-`The 32-year-old midfielder received multiple racist replies to a post he made after the Merseyside derby.`\
-https://nytimes.com/athletic/6133860/2025/02/13/abdoulaye-doucoure-everton-racist-abuse/
 
