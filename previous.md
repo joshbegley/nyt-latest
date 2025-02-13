@@ -1,3 +1,7 @@
+**The Windup: Bregman finds a new home**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6134352/2025/02/13/alex-bregman-red-sox-astros-the-windup/
+
 **The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
 `It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
 https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/state-dept-armored-teslas.html
 **‘Notes on Displacement’ Review: Seeking a Fresh Start in Europe**\
 `The artist and director Khaled Jarrar accompanies a group of people from Syria on their way to Germany in this documentary.`\
 https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
-
-**Driver Arrested After Injuring Several in Munich Crowd**\
-`The police in Munich said they had arrested an Afghan asylum seeker who was known to them after a car drove into a demonstration by a major German union. More than two dozen people were injured, including children.`\
-https://nytimes.com/video/world/europe/100000009988439/driver-arrested-after-injuring-several-in-munich-crowd.html
 

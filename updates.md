@@ -1,3 +1,7 @@
+**The Windup: Bregman finds a new home**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6134352/2025/02/13/alex-bregman-red-sox-astros-the-windup/
+
 **The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
 `It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
 https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
