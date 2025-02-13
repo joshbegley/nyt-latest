@@ -1,3 +1,23 @@
+**Officials Resigned After Refusing to Drop Adams Case**\
+`Also, a look inside the Murdoch family succession saga. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/02/13/briefing/prosecutor-eric-adams-murdoch-family-succession.html
+
+**The Astros' post-Alex Bregman world begins with silence, semantics and symbols**\
+`Bregman's contributions on and off the field will be missed: “His time with the team here, he’s always been the leader.”`\
+https://nytimes.com/athletic/6135389/2025/02/13/astros-alex-bregman-departure-reactions/
+
+**Trump Administration Fires Dozens at Federal Personnel Office**\
+`The firings come as the Trump administration moves ahead with a plan for tens of thousands of federal workers to resign in exchange for being paid through September.`\
+https://nytimes.com/2025/02/13/us/politics/trump-federal-personnel-layoffs.html
+
+**Fourth Federal Judge Blocks Trump’s Birthright Citizenship Order**\
+`Federal judges in Maryland, Washington State and New Hampshire have already issued similar injunctions to stop the executive order from being enacted.`\
+https://nytimes.com/2025/02/13/us/politics/trump-birthright-citizenship-judge-block.html
+
+**Texas Judge Fines New York Doctor and Orders Her to Stop Sending Abortion Pills to Texas**\
+`It is the first ruling in a case challenging “shield laws” intended to protect doctors in states that support abortion rights who send abortion pills to states with bans.`\
+https://nytimes.com/2025/02/13/health/texas-new-york-abortion-pills-lawsuit.html
+
 **Virginia Tech zeroes in on new OC from Bills staff: Source**\
 `The Hokies are targeting Christian Taylor, a Buffalo Bills assistant and former William & Mary offensive coordinator, to be their new OC.`\
 https://nytimes.com/athletic/6135496/2025/02/13/christian-taylor-virginia-tech-offensive-coordinator/
