@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6125743/2025/02/13/how-much-damage-have-red-cards-d
 `Miles Teller and Anya Taylor-Joy don’t exactly meet cute in this action movie, but they do find romance as well as horror.`\
 https://nytimes.com/2025/02/13/movies/the-gorge-review.html
 
-**The Cowards in the Senate Bow Down to Trump**\
-`No nominee — not Kennedy, not Gabbard — is a provocateur too far for Susan Collins & Co.`\
+**Susan Collins and Her Cowardly Caucus Bow Down to Trump**\
+`No nominee — not Kennedy, not Gabbard — is a provocateur too far for Senate Republicans.`\
 https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
 
