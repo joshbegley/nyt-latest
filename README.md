@@ -1,3 +1,7 @@
+**What adding Alex Bregman means for the Red Sox infield, lineup, payroll and prospects**\
+`The Red Sox finally made their big free agent splash, bringing Bregman into the fold. How will he fit in the lineup and the infield?`\
+https://nytimes.com/athletic/6133365/2025/02/13/red-sox-alex-bregman-signing-analysis/
+
 **How Stefanos Tzimas went from Greece, to Germany's second tier, to Brighton in six months**\
 `Brighton's data-led recruitment model identified Tzimas as a hot prospect at PAOK, before six months at Nurnberg convinced them to swoop`\
 https://nytimes.com/athletic/6125596/2025/02/13/stefanos-tzimas-brighton-transfer-2/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 **UEFA's talks with Relevent Sports explained: Games in U.S? What would a deal be worth? Why them?**\
 `Everything you need to know about the prospective partnership between European football's governing body and the American sports media firm`\
 https://nytimes.com/athletic/6131109/2025/02/13/uefa-relevent-talks-explained/
-
-**Why do Manchester City keep conceding goals in quick succession?**\
-`The outgoing Premier League champions have become vulnerable to in-game momentum swings`\
-https://nytimes.com/athletic/6119717/2025/02/13/manchester-city-conceding-goals-game-management/
 

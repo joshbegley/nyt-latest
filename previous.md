@@ -1,3 +1,23 @@
+**How Stefanos Tzimas went from Greece, to Germany's second tier, to Brighton in six months**\
+`Brighton's data-led recruitment model identified Tzimas as a hot prospect at PAOK, before six months at Nurnberg convinced them to swoop`\
+https://nytimes.com/athletic/6125596/2025/02/13/stefanos-tzimas-brighton-transfer-2/
+
+**Crystal Palace's home form: Why are Oliver Glasner's side struggling to win at Selhurst Park?**\
+`Palace have won only two home league games this season and face Everton on Saturday, a team they have beaten once there since 1994`\
+https://nytimes.com/athletic/6127693/2025/02/13/palace-home-away-form-selhurst-everton/
+
+**Marshall Munetsi, a player tipped for the Premier League from a young age in Zimbabwe**\
+`Wolves' new signing could make his Premier League debut this weekend, fulfilling predictions made about him years ago in his home country`\
+https://nytimes.com/athletic/6129522/2025/02/13/marshall-munetsi-wolves-zimbabwe/
+
+**Chelsea moved quickly for inexperienced Amougou - but they'd tracked him for two years**\
+`Chelsea confirmed the signing of Mathis Amougou late in the transfer window`\
+https://nytimes.com/athletic/6130555/2025/02/13/chelsea-mathis-amougou-transfer-analysis/
+
+**Chris Wood: The statistical outlier powering Forest**\
+`The Forest striker is scoring 38 per cent of his shots this season as his side climb up the table and head towards Europe`\
+https://nytimes.com/athletic/6131808/2025/02/13/chris-wood-nottingham-forest-analysis-premier-league/
+
 **How did Newcastle's Lloyd Kelly end up in the Champions League with Juventus?**\
 `The defender moved to Tyneside on a free last summer but, with only a handful of games to his name, will end the season at the Turin giants`\
 https://nytimes.com/athletic/6125575/2025/02/13/juventus-lloyd-kelly-newcastle-champions-league/
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6131109/2025/02/13/uefa-relevent-talks-explained/
 **Why do Manchester City keep conceding goals in quick succession?**\
 `The outgoing Premier League champions have become vulnerable to in-game momentum swings`\
 https://nytimes.com/athletic/6119717/2025/02/13/manchester-city-conceding-goals-game-management/
-
-**"There'll always be that hole for us all. George's number is still in our group chats"**\
-`Chris Basham is enjoying being a 'normal guy, a normal dad' after experiences no one should have to go through on and off the pitch`\
-https://nytimes.com/athletic/6118527/2025/02/13/chris-basham-retirement-george-baldock-sheffield-united/
-
-**Thursday Briefing**\
-`President Trump’s call with Vladimir Putin.`\
-https://nytimes.com/2025/02/13/briefing/putin-trump-modi.html
-
-**Quote of the Day: Trump’s Words Attack Morality Of Being Trans**\
-`Quotation of the Day for Thursday, February 13, 2025`\
-https://nytimes.com/2025/02/12/pageoneplus/quote-of-the-day-trumps-words-attack-morality-of-being-trans.html
-
-**2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
-`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
-https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Takeaways: How Canada's star power beat Sweden in 4 Nations Face-Off**\
-`Canada avoided a major letdown in the first game of the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden/
 
