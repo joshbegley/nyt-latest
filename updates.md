@@ -1,3 +1,11 @@
+**Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
+`Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
+https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/
+
+**Liverpool's Gomez undergoing tests on hamstring injury amid lengthy lay-off fears**\
+`Joe Gomez is undergoing further tests amid fears that the Liverpool defender is facing another lengthy spell on the sidelines.`\
+https://nytimes.com/athletic/6134799/2025/02/13/liverpool-joe-gomez-hamstring-injury-update-scan/
+
 **Chiefs give Travis Kelce until mid-March to decide future: Source**\
 `The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
 https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
