@@ -1,3 +1,15 @@
+**Baby Girl Born on Subway to Woman Who Had Been Reported Missing**\
+`A 25-year-old woman from Florida gave birth on a W train in Midtown Manhattan on Wednesday morning. She had been missing since last summer, her sister said.`\
+https://nytimes.com/2025/02/12/nyregion/nyc-subway.html
+
+**Elon Musk’s X Settles Trump Lawsuit**\
+`The social media site agreed to pay in the range of $10 million to settle with the president, who had sued over the suspension of his account in 2021.`\
+https://nytimes.com/2025/02/12/technology/musk-x-settles-trump-lawsuit.html
+
+**Dodgers are willing to let Roki Sasaki pitch from the start — even possibly in Japan**\
+`Sasaki's bullpen drew a crowd, as team officials, media members and even players watched the 23-year-old get to work. `\
+https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-plans/
+
 **When Musk’s Team Comes to Your Door**\
 `The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
 https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/12/us/joann-fabrics-stores-closing.html
 **Free agent WR Kadarius Toney arrested, accused of strangling a woman**\
 `Toney, 26, is also accused of taking the woman's phone to prevent her from calling police.`\
 https://nytimes.com/athletic/6132588/2025/02/12/kadarius-toney-arrested/
-
-**OpenAI Questions Rationale of Elon Musk’s Bid to Control the Company**\
-`The company answered the billionaire’s offer in a legal filing, accusing him of hypocrisy.`\
-https://nytimes.com/2025/02/12/technology/elon-musk-openai-response.html
-
-**If this is the end for Angels and Anthony Rendon, it's a depressingly fitting conclusion**\
-`While there’s no true finality yet, Wednesday’s news still felt like this relationship had reached a point of no return. `\
-https://nytimes.com/athletic/6132625/2025/02/12/anthony-rendon-angels-contract-end/
-
-**Eric Adams Discussed Possible Republican Primary Run With G.O.P. Leader**\
-`The mayor discussed options to run for re-election in the Republican contest as recently as Monday. Asked for comment, he said he was running as a Democrat.`\
-https://nytimes.com/2025/02/12/nyregion/eric-adams-republican-primary.html
 
