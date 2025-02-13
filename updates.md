@@ -1,3 +1,7 @@
+**When Musk’s Team Shows Up at Your Doorstep**\
+`The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
+https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
+
 **Baby Girl Born on Subway to Woman Who Had Been Reported Missing**\
 `A 25-year-old woman from Florida gave birth on a W train in Midtown Manhattan on Wednesday morning. She had been missing since last summer, her sister said.`\
 https://nytimes.com/2025/02/12/nyregion/nyc-subway-birth-baby.html
