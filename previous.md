@@ -1,3 +1,11 @@
+**NBA Lookahead: Kevin Durant joins an (overly) exclusive club as All-Star weekend arrives**\
+`The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
+https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/
+
+**Liverpool and Everton condemn online racist abuse of Doucoure**\
+`The 32-year-old midfielder received multiple racist replies to a post he made after the Merseyside derby.`\
+https://nytimes.com/athletic/6133860/2025/02/13/abdoulaye-doucoure-everton-racist-abuse/
+
 **Southern California Braces for Storm Damage in Wildfire Areas**\
 `An intense storm could cause flooding and debris flows in areas burned by wildfires. Some residents have begun to evacuate.`\
 https://nytimes.com/2025/02/13/weather/california-storm-flooding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132682/2025/02/13/49ers-mailbag-deebo-samuel-draft
 **LIV Golf Adelaide: How to watch, odds for the invitational series at Australia's Grange**\
 `The second LIV Golf tournament of 2025 tees off in Australia this weekend with Jon Rahm as the favorite. `\
 https://nytimes.com/athletic/6132621/2025/02/13/liv-golf-adelaide-how-to-watch/
-
-**Russian markets soar after Trump-Putin call.**\
-`Russia’s main stock index skyrocketed and the ruble jumped, but experts warned that exuberance might be short-lived.`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/russia-economy-ukraine
-
-**At Least 4 Killed in Suspected Gas Explosion at Taiwan Shopping Mall**\
-`The deadly blast occurred in a food court. The island’s president ordered an investigation into the cause.`\
-https://nytimes.com/2025/02/13/world/asia/taiwan-gas-explosion-mall.html
 

@@ -1,3 +1,11 @@
+**NBA Lookahead: Kevin Durant joins an (overly) exclusive club as All-Star weekend arrives**\
+`The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
+https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/
+
+**Liverpool and Everton condemn online racist abuse of Doucoure**\
+`The 32-year-old midfielder received multiple racist replies to a post he made after the Merseyside derby.`\
+https://nytimes.com/athletic/6133860/2025/02/13/abdoulaye-doucoure-everton-racist-abuse/
+
 **Southern California Braces for Storm Damage in Wildfire Areas**\
 `An intense storm could cause flooding and debris flows in areas burned by wildfires. Some residents have begun to evacuate.`\
 https://nytimes.com/2025/02/13/weather/california-storm-flooding.html
