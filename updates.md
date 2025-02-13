@@ -1,3 +1,7 @@
+**U.S. Deports Migrants From Asia to Panama**\
+`The move could herald a new front in the Trump administration’s plans for mass deportations, one that allows for more rapid removal of migrants whose home countries are reluctant to accept them.`\
+https://nytimes.com/2025/02/13/us/politics/trump-deportations-panama.html
+
 **Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
 `Italy's Federica Brignone and New Zealand's Alice Robinson ran away from the field Thursday with Moltzan sneaking into the No. 3 spot.`\
 https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
