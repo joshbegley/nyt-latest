@@ -1,3 +1,7 @@
+**How did Newcastle's Lloyd Kelly end up in the Champions League with Juventus?**\
+`The defender moved to Tyneside on a free last summer but, with only a handful of games to his name, will end the season at the Turin giants`\
+https://nytimes.com/athletic/6125575/2025/02/13/juventus-lloyd-kelly-newcastle-champions-league/
+
 **Is INEOS starting to fall out of love with sport?**\
 `For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
 https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-to
 **Takeaways: How Canada's star power beat Sweden in 4 Nations Face-Off**\
 `Canada avoided a major letdown in the first game of the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden/
-
-**Chase Briscoe secures first pole in JGR debut at Daytona 500 qualifying**\
-`Briscoe's pole win marks just the second time a JGR driver has set the fastest time in NASCAR’s biggest race.`\
-https://nytimes.com/athletic/6133290/2025/02/12/chase-briscoe-austin-cindric-daytona-500-qualifying/
 
