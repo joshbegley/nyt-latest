@@ -1,3 +1,15 @@
+**Six Takeaways About the Murdoch Succession Fight**\
+`Here are the main revelations about the battle for control from a secret Nevada trial.`\
+https://nytimes.com/2025/02/13/magazine/murdoch-family-trust-dispute-takeaways.html
+
+**How the Murdoch Family Trust Works**\
+`A group of managing directors appointed by Murdoch family members controls the fate of the world's largest conservative media empire.`\
+https://nytimes.com/interactive/2025/02/13/magazine/murdoch-family-trust-succession-explainer.html
+
+**Read the letter from Emil Bove accepting Danielle Sassoon’s resignation**\
+`A letter from Emil Bove, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams.`\
+https://nytimes.com/interactive/2025/02/13/nyregion/memo-from-bove-1.html
+
 **‘You’ve Blown a Hole in the Family’: Inside the Murdochs’ Succession Drama**\
 `More than 3,000 pages of documents reveal how years of betrayals led to a messy court battle that threatens the future of Rupert’s empire.`\
 https://nytimes.com/2025/02/13/magazine/rupert-murdoch-succession-family-trust-fight.html
