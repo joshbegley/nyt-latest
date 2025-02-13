@@ -1,3 +1,15 @@
+**Grammys, L.A. Fires and Longevity: Students React to the News**\
+`Some favorite responses by teenagers to three recent Picture Prompts.`\
+https://nytimes.com/2025/02/13/learning/grammys-la-fires-and-longevity-students-react-to-the-news.html
+
+**Tracking Trump’s Biggest Climate Moves**\
+`In his first few weeks, President Trump has frozen climate spending, shaken up staffing at agencies like the E.P.A. and set off a wave of legal challenges.`\
+https://nytimes.com/2025/02/13/climate/tracking-trumps-biggest-climate-moves.html
+
+**Musk Staff Propose Bigger Role for A.I. in Education Department**\
+`A new chatbot would answer questions from student borrowers. The idea comes from staffers with ties to the tech industry as they push further into the agency’s work.`\
+https://nytimes.com/2025/02/13/us/doge-ai-education-department-students.html
+
 **The Truth and the Fiction of Black English**\
 `It wasn’t invented as a survival strategy — but as “James” shows, that idea does make for a very good story.`\
 https://nytimes.com/2025/02/13/opinion/james-percival-everett-black-english.html
