@@ -1,3 +1,15 @@
+**Cease-fire talks could upend Ukraine’s domestic politics.**\
+`By Andrew E. Kramer`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/zelensky-ukraine-poroshenko
+
+**Kerr's injury rehab 'going in the right direction' after return to Chelsea training**\
+`The Australia forward has not played for Chelsea since sustaining an anterior cruciate ligament injury in January last year.`\
+https://nytimes.com/athletic/6134488/2025/02/13/sam-kerr-injury-chelsea-training/
+
+**Reporter Gone Wild**\
+`We all need an occasional chance to focus on the untamed, and remind ourselves that we are a part of it. That might go double for journalists.`\
+https://nytimes.com/2025/02/13/insider/animal-rescues.html
+
 **Senate Panel Advances Kash Patel as F.B.I. Director Amid Agency Turmoil**\
 `The vote moved Mr. Patel, a Trump loyalist, one step closer to leading the nation’s premier law enforcement agency.`\
 https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confirmation-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/world/europe/bitcoin-wales-james-howells-landfill
 **The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
 `Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
 https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
-
-**At the BAFTAs, Fans Have a Say Who Wins This Award**\
-`The EE Rising Star Award is the only honor presented at the British equivalent of the Oscars that is voted on by the British public.`\
-https://nytimes.com/2025/02/13/movies/baftas-rising-star-award.html
-
-**Curry, Ionescu will not run back 3-point contest at All-Star Weekend: Sources**\
-`League officials attempted to resurrect the Curry-Ionescu competition in some form as late as Wednesday, multiple league sources said.`\
-https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-point-contest-all-star-weekend-off/
-
-**Submit questions for Scott Wheeler's prospects and NHL Draft mailbag**\
-`This week, The Athletic’s prospects writer Scott Wheeler released his annual top 100 drafted NHL prospects ranking and a new ranking for the 2025 NHL Draft. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
-https://nytimes.com/athletic/6134405/2025/02/13/nhl-draft-prospects-mailbag-february-2025/
 
