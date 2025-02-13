@@ -1,3 +1,7 @@
+**Jets parting ways with QB Aaron Rodgers, team announces**\
+`New regime of head coach Aaron Glenn and general manager Darren Mougey will start fresh at the quarterback position. `\
+https://nytimes.com/athletic/6134523/2025/02/13/aaron-rodgers-jets-release/
+
 **Cease-fire talks could upend Ukraine’s domestic politics.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/zelensky-ukraine-poroshenko
