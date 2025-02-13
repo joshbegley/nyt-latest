@@ -11,7 +11,7 @@ https://nytimes.com/2025/02/13/arts/shonda-rhimes-renee-fleming-ben-folds-kenned
 https://nytimes.com/2025/02/13/arts/television/yellowjackets-recap-season-2.html
 
 **Yankees' Marcus Stroman absent from first two days of workouts**\
-`The Yankees have tried trading Stroman, who's owed $18.33 million this season, this offseason to no avail.`\
+`The Yankees have tried trading Stroman, who's owed $18.33 million in 2025, to no avail this offseason.`\
 https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
 
 **At These Bars and Restaurants, a Valentine’s Day for the Rest of Us**\

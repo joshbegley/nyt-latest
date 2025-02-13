@@ -1,3 +1,7 @@
+**Yankees' Marcus Stroman absent from first two days of workouts**\
+`The Yankees have tried trading Stroman, who's owed $18.33 million in 2025, to no avail this offseason.`\
+https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
+
 **Senator Tina Smith Won’t Run in 2026 as Democrats Face a Brutal Map**\
 `Ms. Smith, a Democrat from Minnesota, will leave open another seat for her party to defend next year as it confronts an uphill battle to retake the Senate.`\
 https://nytimes.com/2025/02/13/us/politics/tina-smith-minnesota-senate.html
