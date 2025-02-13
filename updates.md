@@ -1,3 +1,7 @@
+**Trump’s Whirlwind Now Blows Through Europe**\
+`The new Trump foreign policy team has brought a dizzying message to European allies on A.I., Ukraine and more. It has already left many angered and chagrined.`\
+https://nytimes.com/2025/02/13/world/europe/trump-europe-tariffs-ukraine-nato.html
+
 **Alex Bregman’s rejection of the Tigers is a reminder of harsh realities**\
 `The Tigers made a competitive offer for Alex Bregman but finished as runners up. Do they have enough offense without him?`\
 https://nytimes.com/athletic/6134939/2025/02/13/alex-bregman-detroit-tigers-rejection/
