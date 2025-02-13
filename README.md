@@ -1,11 +1,3 @@
-**Manhattan’s Federal Prosecutor Quits After Adams Case Is Ordered Dropped**\
-`Danielle R. Sassoon, the interim U.S. attorney for the Southern District of New York, quit after the Justice Department told her to withdraw corruption charges against Mayor Eric Adams.`\
-https://nytimes.com/2025/02/13/nyregion/danielle-sassoon-quit-eric-adams.html
-
-**Mets' Francisco Alvarez needed to fix his swing, J.D. Martinez showed him how**\
-`Alvarez sought guidance at at Maven Baseball Lab, a training facility frequented by Martinez and other professional players.`\
-https://nytimes.com/athletic/6134951/2025/02/13/mets-francisco-alvarez-jd-martinez/
-
 **Framber Valdez says Astros haven't approached him about an extension**\
 `The 31-year-old lefty will be a free agent after the 2025 season.`\
 https://nytimes.com/athletic/6134845/2025/02/13/astros-framber-valdez-contract-extension/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision
 **Adams Donor Took Millions From Covid Housing Plan for Inmates, U.S. Says**\
 `Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
 https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
+
+**House passes bill to crack down on immigrants fleeing police near border.**\
+`The legislation would increase penalties for citizens and allow anyone who is not a citizen to be deported for evading arrest or detention while driving a vehicle within 100 miles of the border.`\
+https://nytimes.com/live/2025/02/13/us/trump-news/house-passes-bill-to-crack-down-on-immigrants-fleeing-police-near-border
+
+**Finding Devoted Sports Fans in the Coldest Place on Earth**\
+`An innocent question from a friend inspired one reporter to seek out sports buffs in a remote and chilly place: Antarctica.`\
+https://nytimes.com/2025/02/13/insider/finding-devoted-sports-fans-in-the-coldest-place-on-earth.html
 
