@@ -1,3 +1,7 @@
+**Lifesaving Aid Remains Halted Worldwide Despite Rubio’s Promise**\
+`A new directive puts further exemptions on hold. Aid workers also say the U.S. government has made it impossible to pay partners around the world.`\
+https://nytimes.com/2025/02/12/us/politics/usaid-waivers-rubio.html
+
 **Padres, Nick Pivetta agree to four-year, $55 million deal: Sources**\
 `After a quiet offseason, the Padres finally struck, inking the soon-to-be 32-year-old righty. `\
 https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/trump-foreign-service.html
 **State Dept. plans $400 million order for armored trucks from Musk’s Tesla.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/state-dept-plans-400-million-order-for-armored-trucks-from-musks-tesla
-
-**Tigers sign right-hander John Brebbia to one-year deal**\
-`Veteran reliever is coming off a rough 2024, but Detroit likes his ability to miss bats.`\
-https://nytimes.com/athletic/6133050/2025/02/12/tigers-sign-right-hander-john-brebbia-to-one-year-deal/
 

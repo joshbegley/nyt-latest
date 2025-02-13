@@ -1,3 +1,7 @@
+**Lifesaving Aid Remains Halted Worldwide Despite Rubio’s Promise**\
+`A new directive puts further exemptions on hold. Aid workers also say the U.S. government has made it impossible to pay partners around the world.`\
+https://nytimes.com/2025/02/12/us/politics/usaid-waivers-rubio.html
+
 **Padres, Nick Pivetta agree to four-year, $55 million deal: Sources**\
 `After a quiet offseason, the Padres finally struck, inking the soon-to-be 32-year-old righty. `\
 https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-deal/
