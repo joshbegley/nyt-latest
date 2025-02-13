@@ -1,3 +1,19 @@
+**Senate Panel Advances Kash Patel as F.B.I. Director Amid Agency Turmoil**\
+`The vote moved Mr. Patel, a Trump loyalist, one step closer to leading the nation’s premier law enforcement agency.`\
+https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confirmation-trump.html
+
+**11,000 Years of Designer Sheep**\
+`According to a new exhibition in Amsterdam, centuries of human intervention turned the animal into “a wool-producing machine with ears and eyes.”`\
+https://nytimes.com/2025/02/13/arts/design/sheep-exhibition-formafantasma-oltre-terra.html
+
+**Protests in Brussels Halt Over 400 Flights and Snarl Public Transit**\
+`Tens of thousands of demonstrators in Brussels protested the government’s proposed pension reforms and cuts to public services. All flights into and out of Brussels Airport were canceled.`\
+https://nytimes.com/2025/02/13/world/europe/brussels-protests-air-traffic.html
+
+**NBC hiring Carmelo Anthony as NBA studio analyst next season: Sources**\
+`Anthony, 40, retired from playing in May 2023 and is a Hall of Fame nominee this year.`\
+https://nytimes.com/athletic/6134342/2025/02/13/nbc-pregame-nba-carmelo-anthony/
+
 **Miso-Parmesan Noodle Soup, and More Superb Solo Suppers**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2025/02/13/dining/solo-dinner-recipes.html
