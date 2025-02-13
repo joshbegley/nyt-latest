@@ -1,3 +1,7 @@
+**5 Spring Break Destinations, for Every Type of Traveler**\
+`Ideas for a last-minute trip, whether you want wildflower meadows or white-sand beaches.`\
+https://nytimes.com/2025/02/13/t-magazine/where-to-go-spring-break.html
+
 **Can Britain avoid a rift with Trump over Ukraine?**\
 `Prime Minister Keir Starmer faces a diplomatic dilemma as he weighs his longstanding support for Ukraine against his determination to cultivate President Trump.`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/can-britain-avoid-a-rift-with-trump-over-ukraine
