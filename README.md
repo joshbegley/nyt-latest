@@ -1,3 +1,7 @@
+**Notre Dame is hiring a new GM. So what does that actually mean?**\
+`We spoke to three general managers at the Power 4 level about where the job is heading and what specifically is needed at Notre Dame.`\
+https://nytimes.com/athletic/6133862/2025/02/13/notre-dame-football-general-manager-search/
+
 **How David Moyes' tactics prevented Liverpool playing forward from defence**\
 `Everton successfully blocked up the passing lanes into Ryan Gravenberch, and it took an hour before Arne Slot devised a plan to respond `\
 https://nytimes.com/athletic/6133684/2025/02/13/liverpool-gravenberch-everton-slot-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133849/2025/02/13/chelsea-injury-update-maresca/
 **Can He Do That?**\
 `We examine President Trump’s power to determine federal funding.`\
 https://nytimes.com/2025/02/13/briefing/can-he-do-that.html
-
-**The Athletic FC: Four sent off in Merseyside mayhem, what do Arsenal do without Havertz?**\
-`Today in TAFC: Focus on the Merseyside mayhem, INEOS's legal case with New Zealand rugby, what will Arsenal do without Havertz?`\
-https://nytimes.com/athletic/6133710/2025/02/13/everton-liverpool-red-cards-arsenal-havertz/
 
