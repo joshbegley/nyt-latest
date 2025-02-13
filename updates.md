@@ -1,3 +1,19 @@
+**The Look of Luxury Is Evolving**\
+`It is far less quiet, if the clothes on and off runways at New York Fashion Week were any indication.`\
+https://nytimes.com/2025/02/13/style/nyfw-quiet-luxury-street-style-photos.html
+
+**Fake IDs Are Really, Really Good Now**\
+`Holograms, engravings and just the right polycarbonate make a perfect driver’s license from anywhere you want. The cards are bedeviling bouncers.`\
+https://nytimes.com/2025/02/13/nyregion/students-high-tech-fake-ids.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/13/crosswords/spelling-bee-forum.html
+
+**Powerful Tropical Cyclone Zelia Churns Toward Northwest Australia**\
+`The storm is expected to make landfall late Friday, with wind gusts of up to 180 miles per hour. A port crucial to the global economy has shut down.`\
+https://nytimes.com/2025/02/13/world/cyclone-zelia-australia.html
+
 **Britain’s Economy Squeezes Out 0.1% Growth**\
 `The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
 https://nytimes.com/2025/02/13/business/britain-economy.html

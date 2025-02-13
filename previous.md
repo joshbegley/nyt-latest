@@ -1,3 +1,19 @@
+**The Look of Luxury Is Evolving**\
+`It is far less quiet, if the clothes on and off runways at New York Fashion Week were any indication.`\
+https://nytimes.com/2025/02/13/style/nyfw-quiet-luxury-street-style-photos.html
+
+**Fake IDs Are Really, Really Good Now**\
+`Holograms, engravings and just the right polycarbonate make a perfect driver’s license from anywhere you want. The cards are bedeviling bouncers.`\
+https://nytimes.com/2025/02/13/nyregion/students-high-tech-fake-ids.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/13/crosswords/spelling-bee-forum.html
+
+**Powerful Tropical Cyclone Zelia Churns Toward Northwest Australia**\
+`The storm is expected to make landfall late Friday, with wind gusts of up to 180 miles per hour. A port crucial to the global economy has shut down.`\
+https://nytimes.com/2025/02/13/world/cyclone-zelia-australia.html
+
 **Britain’s Economy Squeezes Out 0.1% Growth**\
 `The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
 https://nytimes.com/2025/02/13/business/britain-economy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6133382/2025/02/13/knicks-jalen-brunson-game-winner
 **Rosenthal: With Alex Bregman signing, the Red Sox make an appropriate big-market flex**\
 `It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
 https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
-
-**Word of the Day: peripatetic**\
-`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/13/learning/word-of-the-day-peripatetic.html
-
-**Liverpool were furious at the end but the events at Everton should not disrupt their season**\
-`Curtis Jones, Arne Slot and his assistant Sipke Hulshoff were all sent off for Liverpool at Goodison Park in a fiery end to the derby`\
-https://nytimes.com/athletic/6133038/2025/02/13/liverpool-everton-goodison-slot-jones/
-
-**Here’s the latest.**\
-`By Maggie Haberman, Daniel Victor and Anton Troianovski`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-latest
-
-**Lakers' Dalton Knecht returns to team for first time since rescinded trade**\
-`Knecht scored 10 points (3-for-7 shooting) and had one steal in 17 minutes in his return.`\
-https://nytimes.com/athletic/6133430/2025/02/13/lakers-dalton-knecht-return-hornets-trade/
 
