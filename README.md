@@ -1,3 +1,11 @@
+**Scoop City: What every general manager can learn from the Eagles**\
+`Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and single-team mock drafts are underway.`\
+https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
+
+**‘The Boss of Everyone and Everything’: Trump Seeks to Influence Many Spheres**\
+`No paper straws or local bike lanes. President Trump is increasingly trying to enforce his will on areas like the arts, sports, news, private companies and college campuses.`\
+https://nytimes.com/2025/02/13/us/politics/trump-influence.html
+
 **From underdog to F1 title favorite? McLaren signals intent with ‘innovative’ new car**\
 `With two drivers both believing they are ready to win a world championship, McLaren is no longer carrying the underdog tag.`\
 https://nytimes.com/athletic/6134499/2025/02/13/mclaren-f1-launch-2025-lando-norris-oscar-piastri/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/movies/the-gorge-review.html
 **The Cowards in the Senate Bow Down to Trump**\
 `No nominee — not Kennedy, not Gabbard — is a provocateur too far for Susan Collins & Co.`\
 https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
-
-**Senator Tina Smith Won’t Run in 2026 as Democrats Face a Brutal Map**\
-`Ms. Smith, a Democrat from Minnesota, will leave open another seat for her party to defend next year as it confronts an uphill battle to retake the Senate.`\
-https://nytimes.com/2025/02/13/us/politics/tina-smith-minnesota-senate.html
-
-**Stars Resign Kennedy Center Posts in Wake of Trump’s Takeover**\
-`Renée Fleming, Ben Folds and Shonda Rhimes all left posts at the Kennedy Center after President Trump became chairman and its longtime leaders were fired.`\
-https://nytimes.com/2025/02/13/arts/shonda-rhimes-renee-fleming-ben-folds-kennedy-center.html
 
