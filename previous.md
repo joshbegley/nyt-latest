@@ -1,3 +1,19 @@
+**Padres sign starter Kyle Hart to a one-year deal to boost back of rotation**\
+`Hart pitched for the KBO’s NC Dinos last season, logging a 2.69 ERA in 157 innings and drawing widespread interest from big-league clubs.`\
+https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
+
+**Kennedy’s Views on Science Are Too Dangerous for Us to Accept**\
+`We have to go toe-to-toe with this administration and resist its attacks on public health.`\
+https://nytimes.com/2025/02/13/opinion/kennedys-views-on-science-are-too-dangerous-for-us-to-accept.html
+
+**Senate Confirms Kennedy as Health Secretary**\
+`The vote capped a remarkable rise for Robert F. Kennedy Jr., who was confirmed by a Republican Senate in a chamber where his father and uncles once served as Democrats.`\
+https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html
+
+**After Abortion Bans, Infant Mortality and Births Increased, Research Finds**\
+`The findings showed the highest mortality occurred among infants who were Black, lived in Southern states or had fetal birth defects.`\
+https://nytimes.com/2025/02/13/health/abortion-bans-infant-mortality.html
+
 **Jets parting ways with QB Aaron Rodgers, team announces**\
 `New regime of head coach Aaron Glenn and general manager Darren Mougey will start fresh at the quarterback position. `\
 https://nytimes.com/athletic/6134523/2025/02/13/aaron-rodgers-jets-release/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confi
 **11,000 Years of Designer Sheep**\
 `According to a new exhibition in Amsterdam, centuries of human intervention turned the animal into “a wool-producing machine with ears and eyes.”`\
 https://nytimes.com/2025/02/13/arts/design/sheep-exhibition-formafantasma-oltre-terra.html
-
-**Protests in Brussels Halt Over 400 Flights and Snarl Public Transit**\
-`Tens of thousands of demonstrators in Brussels protested the government’s proposed pension reforms and cuts to public services. All flights into and out of Brussels Airport were canceled.`\
-https://nytimes.com/2025/02/13/world/europe/brussels-protests-air-traffic.html
-
-**NBC hiring Carmelo Anthony as NBA studio analyst next season: Sources**\
-`Anthony, 40, retired from playing in May 2023 and is a Hall of Fame nominee this year.`\
-https://nytimes.com/athletic/6134342/2025/02/13/nbc-pregame-nba-carmelo-anthony/
-
-**Miso-Parmesan Noodle Soup, and More Superb Solo Suppers**\
-`By Mia Leimkuhler`\
-https://nytimes.com/2025/02/13/dining/solo-dinner-recipes.html
-
-**In Yearslong Search for Lost Bitcoin, a Final Proposal: Let Me Buy the Landfill**\
-`For 12 years, James Howells has begged officials to let him dig through a South Wales landfill to find a lost Bitcoin wallet that he says is worth around $800 million.`\
-https://nytimes.com/2025/02/13/world/europe/bitcoin-wales-james-howells-landfill.html
 
