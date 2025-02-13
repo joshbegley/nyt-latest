@@ -1,3 +1,8 @@
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
 **How Stefanos Tzimas went from Greece, to Germany's second tier, to Brighton in six months**\
 `Brighton's data-led recruitment model identified Tzimas as a hot prospect at PAOK, before six months at Nurnberg convinced them to swoop`\
 https://nytimes.com/athletic/6125596/2025/02/13/stefanos-tzimas-brighton-transfer-2/
