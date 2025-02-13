@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/12/nyregion/nyc-subway-birth-baby.html
 https://nytimes.com/2025/02/12/technology/musk-x-settles-trump-lawsuit.html
 
 **Dodgers are willing to let Roki Sasaki pitch from the start — even possibly in Japan**\
-`Sasaki's bullpen drew a crowd, as team officials, media members and even players watched the 23-year-old get to work. `\
+`Sasaki's bullpen drew a crowd as team officials, media members and even players watched the 23-year-old get to work. `\
 https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-plans/
 
 **When Musk’s Team Comes to Your Door**\
