@@ -1,3 +1,15 @@
+**May Arugula Always Find Me**\
+`Its peppery leaves add verve to all sorts of dishes, including Melissa Clark’s roasted cauliflower salad and Yewande Komolafe’s savory Dutch baby.`\
+https://nytimes.com/2025/02/13/dining/may-arugula-always-find-me.html
+
+**C.D.C. Study Finds Silent Bird Flu Infections in Dairy Veterinarians**\
+`The vets had no symptoms, and one worked only in states where no dairy infections had been reported.`\
+https://nytimes.com/2025/02/13/science/cdc-bird-flu-infections.html
+
+**Chronic Illness Can Affect Every Part of Life. How Do You Talk About it at Work?**\
+`Opening up can unlock much-needed support, but it also comes with risks.`\
+https://nytimes.com/2025/02/13/well/live/working-with-medical-condition.html
+
 **How Do You Feel About Dining Alone? We Want to Hear.**\
 `We’re asking readers to help us understand solo dining in America.`\
 https://nytimes.com/2025/02/13/dining/reader-callout-solo-diners.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/13/world/americas/gulf-mexico-trump.html
 **Scoop City: What every general manager can learn from the Eagles**\
 `Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and five single-team mock drafts.`\
 https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
-
-**‘The Boss of Everyone and Everything’: Trump Seeks to Influence Many Spheres**\
-`No paper straws or local bike lanes. President Trump is increasingly trying to enforce his will on areas like the arts, sports, news, private companies and college campuses.`\
-https://nytimes.com/2025/02/13/us/politics/trump-influence.html
-
-**From underdog to F1 title favorite? McLaren signals intent with ‘innovative’ new car**\
-`With two drivers both believing they are ready to win a world championship, McLaren is no longer carrying the underdog tag.`\
-https://nytimes.com/athletic/6134499/2025/02/13/mclaren-f1-launch-2025-lando-norris-oscar-piastri/
-
-**This Book on World War I Changed How I Think of Nonfiction**\
-`Paul Fussell’s 50-year-old survey of trench warfare deserves a new generation of readers, our book critic writes.`\
-https://nytimes.com/2025/02/13/books/review/paul-fussell-great-war-and-modern-memory.html
 
