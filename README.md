@@ -1,3 +1,7 @@
+**Abortion Provider Won’t Be Extradited to Louisiana, N.Y. Governor Says**\
+`The case could lead to a battle in federal court over whether states that support abortion rights can protect doctors who provide abortion services.`\
+https://nytimes.com/2025/02/13/nyregion/abortion-extradition-louisiana-doctor.html
+
 **Trump Administration Requests Update on Boeing’s Safety and Quality Improvements**\
 `Transportation Secretary Sean Duffy committed to restoring the public’s trust in the aircraft manufacturer during his confirmation hearing last month.`\
 https://nytimes.com/2025/02/13/us/politics/sean-duffy-boeing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135365/2025/02/13/dodgers-clayton-kershaw-returns-
 **Trump Administration Fires Dozens at Federal Personnel Office**\
 `The firings come as the Trump administration moves ahead with a plan for tens of thousands of federal workers to resign in exchange for being paid through September.`\
 https://nytimes.com/2025/02/13/us/politics/trump-federal-personnel-layoffs.html
-
-**U.S. Navy Aircraft Carrier Collides With Merchant Ship Off Egypt**\
-`The U.S.S. Harry S. Truman, which had launched airstrikes against the Houthis in Yemen, struck a commercial vessel near Port Said on Wednesday, Navy officials said.`\
-https://nytimes.com/2025/02/13/world/middleeast/us-navy-carrier-commercial-ship-collision.html
 
