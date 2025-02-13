@@ -1,3 +1,7 @@
+**State Dept. Draws Up List of Cartels to Be Labeled Terrorist Groups**\
+`The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
+https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html
+
 **Takeaways: How Canada's star power beat Sweden in 4 Nations Face-Off**\
 `Canada avoided a major letdown in the first game of the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden/
