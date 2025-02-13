@@ -1,3 +1,11 @@
+**The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
+`Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
+https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
+
+**At the BAFTAs, Fans Have a Say Who Wins This Award**\
+`The EE Rising Star Award is the only honor presented at the British equivalent of the Oscars that is voted on by the British public.`\
+https://nytimes.com/2025/02/13/movies/baftas-rising-star-award.html
+
 **Curry, Ionescu will not run back 3-point contest at All-Star Weekend: Sources**\
 `League officials attempted to resurrect the Curry-Ionescu competition in some form as late as Wednesday, multiple league sources said.`\
 https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-point-contest-all-star-weekend-off/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/02/13/us/politics/kennedy-senate-confirmati
 **Watch: Could this year's NFL Draft see more Day 2 QBs than first-round passers?**\
 `The Athletic Football Show discuss the latest 2025 NFL Draft Big Board rankings and what makes this year's quarterback class unique.`\
 https://nytimes.com/athletic/6133806/2025/02/13/athletic-football-show-nfl-draft-2025-big-board/
-
-**The push for talks on Ukraine comes as Russia’s battlefield advances have slowed.**\
-`By Anatoly Kurmanaev`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/the-push-for-talks-on-ukraine-comes-as-russias-battlefield-advances-have-slowed
-
-**Hot Inflation Raises Stakes of Trump’s Tariffs**\
-`Economists warn that enacting tariffs at a time of persisting price pressures is a risky move.`\
-https://nytimes.com/2025/02/13/business/trump-inflation-tariffs.html
 
