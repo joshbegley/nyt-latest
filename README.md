@@ -1,3 +1,7 @@
+**Powerful Tropical Cyclone Zelia Churns Toward Northwest Australia**\
+`The storm is expected to make landfall late Friday, with wind gusts of up to 180 miles per hour. A port crucial to the global economy has shut down.`\
+https://nytimes.com/2025/02/13/world/cyclone-zelia-australia.html
+
 **Britain’s Economy Squeezes Out 0.1% Growth**\
 `The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
 https://nytimes.com/2025/02/13/business/britain-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133038/2025/02/13/liverpool-everton-goodison-slot-
 **Here’s the latest.**\
 `By Maggie Haberman, Daniel Victor and Anton Troianovski`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-latest
-
-**Lakers' Dalton Knecht returns to team for first time since rescinded trade**\
-`Knecht scored 10 points (3-for-7 shooting) and had one steal in 17 minutes in his return.`\
-https://nytimes.com/athletic/6133430/2025/02/13/lakers-dalton-knecht-return-hornets-trade/
 
