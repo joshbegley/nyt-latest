@@ -1,3 +1,11 @@
+**Angels' Ben Joyce, fresh off losing closer's role, is 'excited' to learn from Kenley Jansen**\
+`“It’s awesome to get to learn from a guy like that," Joyce said. "I’m going to just be an open book. Keep my ears open."`\
+https://nytimes.com/athletic/6135655/2025/02/13/angels-closer-ben-joyce-kenley-jansen/
+
+**USC's Jen Cohen on Lincoln Riley, revenue sharing, scheduling and more: A Q&A with the Trojans AD**\
+`Cohen acknowledged the importance of the USC-Notre Dame football rivalry but was noncommittal about the future of the series. `\
+https://nytimes.com/athletic/6135589/2025/02/13/jen-cohen-usc-lincoln-riley-nil/
+
 **Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
 `"Obviously disappointed," Cubs president of baseball operations Jed Hoyer said Thursday morning at the team's Arizona facility.`\
 https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/

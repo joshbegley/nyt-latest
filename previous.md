@@ -1,3 +1,11 @@
+**Angels' Ben Joyce, fresh off losing closer's role, is 'excited' to learn from Kenley Jansen**\
+`“It’s awesome to get to learn from a guy like that," Joyce said. "I’m going to just be an open book. Keep my ears open."`\
+https://nytimes.com/athletic/6135655/2025/02/13/angels-closer-ben-joyce-kenley-jansen/
+
+**USC's Jen Cohen on Lincoln Riley, revenue sharing, scheduling and more: A Q&A with the Trojans AD**\
+`Cohen acknowledged the importance of the USC-Notre Dame football rivalry but was noncommittal about the future of the series. `\
+https://nytimes.com/athletic/6135589/2025/02/13/jen-cohen-usc-lincoln-riley-nil/
+
 **Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
 `"Obviously disappointed," Cubs president of baseball operations Jed Hoyer said Thursday morning at the team's Arizona facility.`\
 https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6135254/2025/02/13/cardinals-nolan-arenado-speculat
 **Miami City Ballet’s Artistic Leader to Step Down After 13 Years**\
 `Lourdes Lopez, who championed contemporary ballets and elevated the company’s profile, is departing two years before her contract expires.`\
 https://nytimes.com/2025/02/13/arts/dance/lourdes-lopez-leaving-miami-city-ballet.html
-
-**Danielle Sassoon’s Letter to Attorney General Pam Bondi, Annotated**\
-`Danielle R. Sassoon, who resigned Thursday as Manhattan’s U.S. attorney, writes to Attorney General Pam Bondi to explain her refusal to drop a corruption case against Mayor Eric Adams of New York.`\
-https://nytimes.com/interactive/2025/02/13/us/doc-annotation-letter-to-bondi.html
-
-**Harley headed to Boston as Canada 4 Nations defense standby**\
-`Like Theodore, the 23-year-old Stars defenseman is a left shot with some power-play acumen.`\
-https://nytimes.com/athletic/6135565/2025/02/13/thomas-harley-4-nations-canada-injury-sub/
 
