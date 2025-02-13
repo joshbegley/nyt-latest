@@ -1,3 +1,11 @@
+**Scoop City: What every general manager can learn from the Eagles**\
+`Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and single-team mock drafts are underway.`\
+https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
+
+**‘The Boss of Everyone and Everything’: Trump Seeks to Influence Many Spheres**\
+`No paper straws or local bike lanes. President Trump is increasingly trying to enforce his will on areas like the arts, sports, news, private companies and college campuses.`\
+https://nytimes.com/2025/02/13/us/politics/trump-influence.html
+
 **From underdog to F1 title favorite? McLaren signals intent with ‘innovative’ new car**\
 `With two drivers both believing they are ready to win a world championship, McLaren is no longer carrying the underdog tag.`\
 https://nytimes.com/athletic/6134499/2025/02/13/mclaren-f1-launch-2025-lando-norris-oscar-piastri/
