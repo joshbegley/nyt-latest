@@ -1,3 +1,11 @@
+**Trump Says He’ll Rework Global Trading Relations With ‘Reciprocal’ Tariffs**\
+`The president said advisers would devise new tariff levels reflecting countries’ tariffs, taxes, subsidies and other policies affecting trade with the United States.`\
+https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
+
+**Igloo Recalls Coolers Over Fingertip Amputation and Crushing Risk**\
+`More than one million coolers sold in North America were recalled after a dozen injuries. Consumers are advised to stop using them and contact the company.`\
+https://nytimes.com/2025/02/13/business/igloo-cooler-injuries-recall.html
+
 **Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
 `Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
 https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/

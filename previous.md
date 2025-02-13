@@ -1,3 +1,11 @@
+**Trump Says He’ll Rework Global Trading Relations With ‘Reciprocal’ Tariffs**\
+`The president said advisers would devise new tariff levels reflecting countries’ tariffs, taxes, subsidies and other policies affecting trade with the United States.`\
+https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
+
+**Igloo Recalls Coolers Over Fingertip Amputation and Crushing Risk**\
+`More than one million coolers sold in North America were recalled after a dozen injuries. Consumers are advised to stop using them and contact the company.`\
+https://nytimes.com/2025/02/13/business/igloo-cooler-injuries-recall.html
+
 **Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
 `Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
 https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6134816/2025/02/13/nfl-scouting-combine-prospect-li
 **The $3 Billion House That Orange Chicken Built**\
 `The parent restaurant of Panda Express underwent a multimillion-dollar renovation. The deep, comforting pleasures are still on the menu.`\
 https://nytimes.com/2025/02/13/dining/panda-inn.html
-
-**How Trump Is Muzzling the C.D.C.**\
-`Former health officials object to restrictions on the agency. Also: The Kennedy Center; Mayor Eric Adams; profiles in cowardice; fury over Gaza; a plea for protests.`\
-https://nytimes.com/2025/02/13/opinion/trump-cdc.html
-
-**Teddi Mellencamp of ‘Real Housewives’ Says She Has Brain Tumors**\
-`Mellencamp, also the daughter of the rock musician John Mellencamp, said on Instagram that she was receiving treatment after experiencing “severe and debilitating” headaches.`\
-https://nytimes.com/2025/02/13/arts/television/teddi-mellencamp-brain-tumors.html
 
