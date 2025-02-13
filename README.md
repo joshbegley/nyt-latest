@@ -1,3 +1,11 @@
+**Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
+`Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
+https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/
+
+**Liverpool's Gomez undergoing tests on hamstring injury amid lengthy lay-off fears**\
+`Joe Gomez is undergoing further tests amid fears that the Liverpool defender is facing another lengthy spell on the sidelines.`\
+https://nytimes.com/athletic/6134799/2025/02/13/liverpool-joe-gomez-hamstring-injury-update-scan/
+
 **Chiefs give Travis Kelce until mid-March to decide future: Source**\
 `The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
 https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/opinion/trump-cdc.html
 **Teddi Mellencamp of ‘Real Housewives’ Says She Has Brain Tumors**\
 `Mellencamp, also the daughter of the rock musician John Mellencamp, said on Instagram that she was receiving treatment after experiencing “severe and debilitating” headaches.`\
 https://nytimes.com/2025/02/13/arts/television/teddi-mellencamp-brain-tumors.html
-
-**What Is Your Outfit Telling Your Therapist?**\
-`Whether we want them to or not, our clothes may be giving our therapists more psychoanalytic material.`\
-https://nytimes.com/2025/02/13/style/therapy-clothes.html
-
-**Watch: What's going on with Mark Williams and Dalton Knecht?**\
-`NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
-https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
 
