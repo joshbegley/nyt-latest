@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Maggie Haberman, Daniel Victor and Anton Troianovski`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-latest
+
+**Lakers' Dalton Knecht returns to team for first time since rescinded trade**\
+`Knecht scored 10 points (3-for-7 shooting) and had one steal in 17 minutes in his return.`\
+https://nytimes.com/athletic/6133430/2025/02/13/lakers-dalton-knecht-return-hornets-trade/
+
+**Honda and Nissan Scrap $50 Billion Merger Plan**\
+`The Japanese companies’ decision to call off negotiations highlights the challenges legacy automakers face in partnering to tackle new technologies.`\
+https://nytimes.com/2025/02/13/business/honda-nissan-merger.html
+
 **Canadian Tariffs Are an Act of Self-Harm by the U.S.**\
 `Retaliation is a must. One hundred percent tariffs on Teslas, imposed by every country in the world, would be a good place to start.`\
 https://nytimes.com/2025/02/13/opinion/canada-tariffs-steel-us.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6129522/2025/02/13/marshall-munetsi-wolves-zimbabwe
 **Chelsea moved quickly for inexperienced Amougou - but they'd tracked him for two years**\
 `Chelsea confirmed the signing of Mathis Amougou late in the transfer window`\
 https://nytimes.com/athletic/6130555/2025/02/13/chelsea-mathis-amougou-transfer-analysis/
-
-**Chris Wood: The statistical outlier powering Forest**\
-`The Forest striker is scoring 38 per cent of his shots this season as his side climb up the table and head towards Europe`\
-https://nytimes.com/athletic/6131808/2025/02/13/chris-wood-nottingham-forest-analysis-premier-league/
-
-**How did Newcastle's Lloyd Kelly end up in the Champions League with Juventus?**\
-`The defender moved to Tyneside on a free last summer but, with only a handful of games to his name, will end the season at the Turin giants`\
-https://nytimes.com/athletic/6125575/2025/02/13/juventus-lloyd-kelly-newcastle-champions-league/
-
-**Is INEOS starting to fall out of love with sport?**\
-`For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
-https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
 
