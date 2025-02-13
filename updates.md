@@ -1,3 +1,7 @@
+**Donald Trump’s Chicken-and-Egg Problem**\
+`A surge in egg prices underscores how persistent inflation is spooking the markets and could check the president’s boldest economic policies.`\
+https://nytimes.com/2025/02/13/business/dealbook/trump-inflation-egg-prices.html
+
 **Anthony Edwards keeps shooting, even as the misses in clutch moments keep coming**\
 `Edwards' lousy shooting night against the Bucks ended with an errant 3 in the final seconds. He remains confident despite clutch failures. `\
 https://nytimes.com/athletic/6133100/2025/02/13/anthony-edwards-timberwolves-clutch-misses/
