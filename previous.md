@@ -1,3 +1,7 @@
+**State Department Revises Plan to Buy Armored Teslas**\
+`The name of the carmaker led by Elon Musk was removed from a list of planned purchases after news outlets raised conflict-of-interest concerns.`\
+https://nytimes.com/2025/02/13/us/politics/state-dept-armored-teslas.html
+
 **‘Notes on Displacement’ Review: Seeking a Fresh Start in Europe**\
 `The artist and director Khaled Jarrar accompanies a group of people from Syria on their way to Germany in this documentary.`\
 https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133631/2025/02/13/pau-cubarsi-barcelona-contract-l
 **Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
 `The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
 https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
-
-**Canucks trade deadline targets: Why these 5 high-character players could help Vancouver**\
-`Players with various attributes — toughness, exceptional work rate or locker room character — the Canucks could consider adding.`\
-https://nytimes.com/athletic/6133530/2025/02/13/canucks-trade-deadline-targets-2025-character/
 

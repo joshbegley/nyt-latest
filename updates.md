@@ -1,3 +1,7 @@
+**State Department Revises Plan to Buy Armored Teslas**\
+`The name of the carmaker led by Elon Musk was removed from a list of planned purchases after news outlets raised conflict-of-interest concerns.`\
+https://nytimes.com/2025/02/13/us/politics/state-dept-armored-teslas.html
+
 **‘Notes on Displacement’ Review: Seeking a Fresh Start in Europe**\
 `The artist and director Khaled Jarrar accompanies a group of people from Syria on their way to Germany in this documentary.`\
 https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
