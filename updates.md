@@ -1,3 +1,7 @@
+**Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
+`Italy's Federica Brignone and New Zealand's Alice Robinson ran away from the field Thursday with Moltzan sneaking into the No. 3 spot.`\
+https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
+
 **To some Ukrainian soldiers, the prospect of cease-fire talks is ‘too painful.’**\
 `By Constant Méheut`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/to-some-ukrainian-soldiers-the-prospect-of-cease-fire-talks-is-too-painful
