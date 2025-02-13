@@ -1,6 +1,6 @@
 **Travis Hunter headlines prospects invited to 2025 NFL Scouting Combine**\
 `Hunter, who starred as both a receiver and cornerback the last two seasons at Colorado, is listed with the defensive backs.`\
-https://nytimes.com/athletic/6134816/2025/02/13/colorados-travis-hunter-headlines-prospects-invited-to-2025-nfl-scouting-combine/
+https://nytimes.com/athletic/6134816/2025/02/13/nfl-scouting-combine-prospect-list-2025/
 
 **The $3 Billion House That Orange Chicken Built**\
 `The parent restaurant of Panda Express underwent a multimillion-dollar renovation. The deep, comforting pleasures are still on the menu.`\
