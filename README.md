@@ -1,3 +1,11 @@
+**In This Trump Presidency, the Domination Will be Televised**\
+`From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
+https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
+
+**Rubiales' lawyer: Hermoso 'not liking' kiss 'does not mean she did not give consent'**\
+`Olga Tubau made the argument as part of her closing comments in Rubiales' trial for sexual assault and coercion. He denies all charges`\
+https://nytimes.com/athletic/6134429/2025/02/13/luis-rubiales-lawyer-jenni-hermoso-kiss/
+
 **May Arugula Always Find Me**\
 `Its peppery leaves add verve to all sorts of dishes, including Melissa Clark’s roasted cauliflower salad and Yewande Komolafe’s savory Dutch baby.`\
 https://nytimes.com/2025/02/13/dining/may-arugula-always-find-me.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-grah
 **‘The Annihilation of Fish’ Review: A Gem That’s Worth the Wait**\
 `The director Charles Burnett’s deeply humane, singular film from 1999, starring James Earl Jones, is finally receiving a theatrical release.`\
 https://nytimes.com/2025/02/13/movies/the-annihilation-of-fish-review.html
-
-**Who Controls the Gulf of Mexico?**\
-`The United States, Mexico and Cuba have jurisdiction over different parts of the gulf.`\
-https://nytimes.com/interactive/2025/02/13/world/americas/gulf-mexico-trump.html
-
-**Scoop City: What every general manager can learn from the Eagles**\
-`Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and five single-team mock drafts.`\
-https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
 
