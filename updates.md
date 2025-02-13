@@ -1,3 +1,11 @@
+**Can He Do That?**\
+`We examine President Trump’s power to determine federal funding.`\
+https://nytimes.com/2025/02/13/briefing/can-he-do-that.html
+
+**The Athletic FC: Four sent off in Merseyside mayhem, what do Arsenal do without Havertz?**\
+`Today in TAFC: Focus on the Merseyside mayhem, INEOS's legal case with New Zealand rugby, what will Arsenal do without Havertz?`\
+https://nytimes.com/athletic/6133710/2025/02/13/everton-liverpool-red-cards-arsenal-havertz/
+
 **The Hundred franchise stakes sold for over half a billion**\
 `Each bid now enters an exclusivity process and if concluded will result in £520m of investment filtering into leagues governed by the ECB.`\
 https://nytimes.com/athletic/6133747/2025/02/13/hundred-cricket-franchises-investment/
