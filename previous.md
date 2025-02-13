@@ -1,3 +1,11 @@
+**Can Britain avoid a rift with Trump over Ukraine?**\
+`Prime Minister Keir Starmer faces a diplomatic dilemma as he weighs his longstanding support for Ukraine against his determination to cultivate President Trump.`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/can-britain-avoid-a-rift-with-trump-over-ukraine
+
+**‘The Annihilation of Fish’ Review: A Gem That’s Worth the Wait**\
+`The director Charles Burnett’s deeply humane, singular film from 1999, starring James Earl Jones, is finally receiving a theatrical release.`\
+https://nytimes.com/2025/02/13/movies/the-annihilation-of-fish-review.html
+
 **Who Controls the Gulf of Mexico?**\
 `The United States, Mexico and Cuba have jurisdiction over different parts of the gulf.`\
 https://nytimes.com/interactive/2025/02/13/world/americas/gulf-mexico-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6134597/2025/02/13/dutch-football-12-players-heeren
 **Explained: Stake, Everton and how a porn star led to a Gambling Commission warning**\
 `The GC has warned Everton, Forest and Leicester of the risks of promoting “unlawful gambling websites” — what happens next?`\
 https://nytimes.com/athletic/6133814/2025/02/13/everton-stake-gambling-commission-nottingham-forest-leicester/
-
-**How much damage have red cards done to Arsenal's title challenge?**\
-`Analysing which Premier League teams have been most affected by sendings-off - and when it is worth taking one for the team`\
-https://nytimes.com/athletic/6125743/2025/02/13/how-much-damage-have-red-cards-done-to-arsenals-latest-title-challenge/
-
-**‘The Gorge’ Review: How Deep Is Your Love?**\
-`Miles Teller and Anya Taylor-Joy don’t exactly meet cute in this action movie, but they do find romance as well as horror.`\
-https://nytimes.com/2025/02/13/movies/the-gorge-review.html
 
