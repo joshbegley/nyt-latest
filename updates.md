@@ -1,3 +1,7 @@
+**Bondi Announces Lawsuit Against New York Over Immigration**\
+`The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing illegal aliens over American citizens.”`\
+https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
+
 **NHL, NHLPA turn eyes to next labor deal: What could a new CBA bring?**\
 `With an international competition cadence reestablished, the league and its players' union will dive into CBA negotiations soon.`\
 https://nytimes.com/athletic/6133134/2025/02/12/nhl-nhlpa-cba-negotiations-2026/
