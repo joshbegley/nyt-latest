@@ -1,3 +1,15 @@
+**Judge Temporarily Stops Trump’s Plan to End Funds for Trans Youths’ Health Providers**\
+`Six transgender individuals, all younger than 19, sued the administration over executive orders targeting hospitals that offer transition treatments to young people.`\
+https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-funds-for-trans-youths-health-providers.html
+
+**Funding Freeze Decimates Women’s Health Care, U.N. and Others Say**\
+`Only three weeks into the Trump administration’s suspension of money for foreign aid, those who work in women’s health say the impact has already been devastating.`\
+https://nytimes.com/2025/02/13/world/africa/trump-funding-freeze-womens-health.html
+
+**Read the document**\
+`A letter from Emil Bove, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams.`\
+https://nytimes.com/interactive/2025/02/13/nyregion/memo-from-bove-1.html
+
 **Trump’s Whirlwind Now Blows Through Europe**\
 `The new Trump foreign policy team has brought a dizzying message to European allies on A.I., Ukraine and more. It has already left many angered and chagrined.`\
 https://nytimes.com/2025/02/13/world/europe/trump-europe-tariffs-ukraine-nato.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/climate/tracking-trumps-biggest-climate-moves.htm
 **Musk Staff Propose Bigger Role for A.I. in Education Department**\
 `A new chatbot would answer questions from student borrowers. The idea comes from staffers with ties to the tech industry as they push further into the agency’s work.`\
 https://nytimes.com/2025/02/13/us/doge-ai-education-department-students.html
-
-**The Truth and the Fiction of Black English**\
-`It wasn’t invented as a survival strategy — but as “James” shows, that idea does make for a very good story.`\
-https://nytimes.com/2025/02/13/opinion/james-percival-everett-black-english.html
-
-**What’s Going On in This Graph? | Feb. 26, 2025**\
-`What do you notice about the percentage change in the number of foreign-born and native-born workers in the United States? What do you wonder?`\
-https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-graph-feb-26-2025.html
-
-**What’s Going On in This Picture? | Feb. 24, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-picture-feb-24-2025.html
 

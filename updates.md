@@ -1,3 +1,15 @@
+**Judge Temporarily Stops Trump’s Plan to End Funds for Trans Youths’ Health Providers**\
+`Six transgender individuals, all younger than 19, sued the administration over executive orders targeting hospitals that offer transition treatments to young people.`\
+https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-funds-for-trans-youths-health-providers.html
+
+**Funding Freeze Decimates Women’s Health Care, U.N. and Others Say**\
+`Only three weeks into the Trump administration’s suspension of money for foreign aid, those who work in women’s health say the impact has already been devastating.`\
+https://nytimes.com/2025/02/13/world/africa/trump-funding-freeze-womens-health.html
+
+**Read the document**\
+`A letter from Emil Bove, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams.`\
+https://nytimes.com/interactive/2025/02/13/nyregion/memo-from-bove-1.html
+
 **Trump’s Whirlwind Now Blows Through Europe**\
 `The new Trump foreign policy team has brought a dizzying message to European allies on A.I., Ukraine and more. It has already left many angered and chagrined.`\
 https://nytimes.com/2025/02/13/world/europe/trump-europe-tariffs-ukraine-nato.html
