@@ -1,3 +1,11 @@
+**‘Paddington in Peru’ Review: Homeward Bound**\
+`The genial bear embarks on an Amazonian journey of self discovery in this movie, which cannot measure up to “Paddington 2” despite its charms.`\
+https://nytimes.com/2025/02/13/movies/paddington-in-peru-review.html
+
+**Maresca hopeful on five Chelsea injury returns after March international break**\
+`Maresca is optimistic Nicolas Jackson, Marc Guiu, Romeo Lavia, Wesley Fofana and Benoit Badiashile can return against Tottenham on April 2.`\
+https://nytimes.com/athletic/6133849/2025/02/13/chelsea-injury-update-maresca/
+
 **Can He Do That?**\
 `We examine President Trump’s power to determine federal funding.`\
 https://nytimes.com/2025/02/13/briefing/can-he-do-that.html
