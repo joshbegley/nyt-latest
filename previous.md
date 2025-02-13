@@ -1,3 +1,23 @@
+**The Truth and the Fiction of Black English**\
+`It wasn’t invented as a survival strategy — but as “James” shows, that idea does make for a very good story.`\
+https://nytimes.com/2025/02/13/opinion/james-percival-everett-black-english.html
+
+**What’s Going On in This Graph? | Feb. 26, 2025**\
+`What do you notice about the percentage change in the number of foreign-born and native-born workers in the United States? What do you wonder?`\
+https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-graph-feb-26-2025.html
+
+**What’s Going On in This Picture? | Feb. 24, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-picture-feb-24-2025.html
+
+**It’s Little Treat O’Clock**\
+`These homemade sweets are ready in 25 minutes or less.`\
+https://nytimes.com/2025/02/13/dining/fast-dessert-recipes.html
+
+**Jack Eichel on Golden Knights teammate Shea Theodore's injury at 4 Nations: 'Really sucks for our team'**\
+`Vegas announced Thursday that the defenseman, injured in the international tournament's opener, is out week-to-week.`\
+https://nytimes.com/athletic/6134928/2025/02/13/shea-theodore-4-nations-injury-jack-eichel/
+
 **New Saints coach Kellen Moore calls Derek Carr 'tremendous' but noncommittal on QB's status**\
 `The league's youngest head coach takes over a New Orleans team that has not made the playoffs in four seasons.`\
 https://nytimes.com/athletic/6134806/2025/02/13/kellen-moore-new-orleans-saints-derek-carr/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/13/books/michael-longley-dead.html
 **Trump’s Funding Freezes Bruise a Core Constituency: Farmers**\
 `A rapid-fire array of directives by the Trump administration have left farmers and businesses in rural America reeling.`\
 https://nytimes.com/2025/02/13/us/politics/trump-funding-freeze-farmers.html
-
-**Until Saturday: 2 CFB angles for this NFL Draft**\
-`Welcome to Until Saturday, The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6134797/2025/02/13/college-football-nfl-draft-ohio-state-until-saturday/
-
-**Manhattan’s Federal Prosecutor Quits After Adams Case Is Ordered Dropped**\
-`Danielle R. Sassoon, the interim U.S. attorney for the Southern District of New York, quit after the Justice Department told her to withdraw corruption charges against Mayor Eric Adams.`\
-https://nytimes.com/2025/02/13/nyregion/danielle-sassoon-quit-eric-adams.html
-
-**Mets' Francisco Alvarez needed to fix his swing, J.D. Martinez showed him how**\
-`Alvarez sought guidance at at Maven Baseball Lab, a training facility frequented by Martinez and other professional players.`\
-https://nytimes.com/athletic/6134951/2025/02/13/mets-francisco-alvarez-jd-martinez/
-
-**Framber Valdez says Astros haven't approached him about an extension**\
-`The 31-year-old lefty will be a free agent after the 2025 season.`\
-https://nytimes.com/athletic/6134845/2025/02/13/astros-framber-valdez-contract-extension/
-
-**3-point shootout, wisecracks and memories: Inside Run TMC's recent reunion**\
-`Chris Mullin, Tim Hardaway and Mitch Richmond shook off the rust and joined Baron Davis for a nostalgic All-Star promotion.`\
-https://nytimes.com/athletic/6087006/2025/02/13/warriors-nba-all-star-run-tmc-reunion/
 
