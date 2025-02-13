@@ -1,3 +1,7 @@
+**Canada loses defenseman Shea Theodore to injury in 4 Nations Face-Off opener**\
+`Team Canada is down a defenseman one game into the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6133250/2025/02/12/canada-4-nations-face-off-shea-theodore-injury-update/
+
 **As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
 `Ahead of Spring Training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
 https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/

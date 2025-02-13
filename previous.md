@@ -1,3 +1,7 @@
+**Canada loses defenseman Shea Theodore to injury in 4 Nations Face-Off opener**\
+`Team Canada is down a defenseman one game into the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6133250/2025/02/12/canada-4-nations-face-off-shea-theodore-injury-update/
+
 **As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
 `Ahead of Spring Training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
 https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
 **Some Migrants Sent by Trump to Guantánamo Are Being Held by Military Guards**\
 `The Times has obtained a list of 53 Venezuelan men the Trump administration has put in a wartime prison built to hold Al Qaeda suspects.`\
 https://nytimes.com/2025/02/12/us/gitmo-migrants-trump.html
-
-**NHL, NHLPA turn eyes to next labor deal: What could a new CBA bring?**\
-`With an international competition cadence reestablished, the league and its players' union will dive into CBA negotiations soon.`\
-https://nytimes.com/athletic/6133134/2025/02/12/nhl-nhlpa-cba-negotiations-2026/
 
