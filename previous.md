@@ -1,40 +1,40 @@
-**Putin Scores a Big Victory, and Not on the Battlefield**\
-`Vladimir Putin’s call with President Trump reinforced the Russian leader’s view that Moscow and Washington should decide the fate of Ukraine — and other weighty matters.`\
-https://nytimes.com/2025/02/13/world/europe/putin-trump-call-russia-ukraine.html
+**What I'm hearing: Decisions on 3 specialists looming after Panthers add kicker to mix**\
+`Long snapper J.J. Jansen, punter Johnny Hekker and kicker Eddy Pineiro are each pending free agents.`\
+https://nytimes.com/athletic/6132683/2025/02/13/panthers-kicker-punter-long-snapper-contract-decisions/
 
-**Taiwan Prepares for Trump’s Tariffs, and a Changed Washington**\
-`Taiwanese officials, facing a more transactional U.S. relationship, have traveled to Washington to float energy deals and defend the island’s semiconductors.`\
-https://nytimes.com/2025/02/13/world/asia/taiwan-tariffs-trump.html
+**How can Mike Vrabel and the Patriots fix their suddenly struggling defense?**\
+`The Patriots offense has been bad for three seasons. But improving defensively might be even more important as Mike Vrabel takes the reins. `\
+https://nytimes.com/athletic/6129673/2025/02/13/patriots-defense-nfl-draft-free-agency/
 
-**The Look of Luxury Is Evolving**\
-`It is far less quiet, if the clothes on and off runways at New York Fashion Week were any indication.`\
-https://nytimes.com/2025/02/13/style/nyfw-quiet-luxury-street-style-photos.html
+**Mailbag: Myles Garrett to Dallas? Why don't Cowboys operate more like Eagles?**\
+`Garrett definitely would be in play for the Cowboys years ago. Ashton Jeanty would be difficult to pass on if he's there at No. 12 in draft.`\
+https://nytimes.com/athletic/6132079/2025/02/13/cowboys-myles-garrett-nfl-draft-eagles-mailbag/
 
-**Fake IDs Are Really, Really Good Now**\
-`Holograms, engravings and just the right polycarbonate make a perfect driver’s license from anywhere you want. The cards are bedeviling bouncers.`\
-https://nytimes.com/2025/02/13/nyregion/students-high-tech-fake-ids.html
+**'Squid Game' workouts and burn books: How Payton Pritchard became Celtics' long-shot maestro**\
+`Payton Pritchard went from feeling like a long shot to making them on the court when the Celtics need them the most.`\
+https://nytimes.com/athletic/6122261/2025/02/13/celtics-payton-pritchard-summer-workout/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/13/crosswords/spelling-bee-forum.html
+**Falcons mock draft 1.0: It's all about defense, starting with cornerback and pass rusher**\
+`The Falcons have only five picks in the 2025 draft. That will tie for the fewest in franchise history unless Atlanta makes a trade.`\
+https://nytimes.com/athletic/6128969/2025/02/13/falcons-2025-mock-draft-will-johnson/
 
-**Powerful Tropical Cyclone Zelia Churns Toward Northwest Australia**\
-`The storm is expected to make landfall late Friday, with wind gusts of up to 180 miles per hour. A port crucial to the global economy has shut down.`\
-https://nytimes.com/2025/02/13/world/cyclone-zelia-australia.html
+**Modi to Meet Trump With Eyes on Trade and Immigration**\
+`Prime Minister Narendra Modi of India, who has a warm relationship with President Trump, may try to ease friction over migrants and trade.`\
+https://nytimes.com/2025/02/13/us/modi-trump-trade-immigration.html
 
-**Britain’s Economy Squeezes Out 0.1% Growth**\
-`The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
-https://nytimes.com/2025/02/13/business/britain-economy.html
+**Behold the Strange Spectacle of Christians Against Empathy**\
+`There is nothing woke about medicine or food.`\
+https://nytimes.com/2025/02/13/opinion/trump-usaid-evangelicals.html
 
-**Premier League clubs would love to bring Harry Kane back to England. He'd be mad to indulge them**\
-`The England captain reportedly has a release clause but Kane seems to have found the perfect environment at Bayern - and he is thriving`\
-https://nytimes.com/athletic/6132975/2025/02/13/harry-kane-bayern-munich-transfer-future/
+**Tinted Lip Balms to Brighten Winter Days**\
+`Plus: a Cornwall cottage, an upstate New York cafe serving up dumplings and more recommendations from T Magazine.`\
+https://nytimes.com/2025/02/13/t-magazine/tinted-lip-balm.html
 
-**Everton's final Goodison Park derby was wild - a fitting end that will go down in folklore**\
-`This was a new addition to the pantheon of great Goodison Park nights`\
-https://nytimes.com/athletic/6133043/2025/02/13/everton-liverpool-goodison-park-tarkowski/
+**In Miami, a Young Family Sought a House to Grow Into. Would $750,000 Be Enough?**\
+`With a new baby and new jobs, a couple searched the city’s residential neighborhoods with ‘little idea of what the real Miami might be.’ Here’s what they found.`\
+https://nytimes.com/interactive/2025/02/13/realestate/miami-home-sale-prices.html
 
-**It’s Bring a Kid to Work Day on ‘The Tonight Show’**\
-`Elon Musk took his son to the Oval Office, so Jimmy Fallon saw no reason not to walk onstage with a child, too.`\
-https://nytimes.com/2025/02/13/arts/television/jimmy-fallon-elon-musk.html
+**Do You Ever Feel Overwhelmed by Your Emotions?**\
+`Big feelings can shape much of our life, and the lives of those around us.`\
+https://nytimes.com/2025/02/13/learning/do-you-ever-feel-overwhelmed-by-your-emotions.html
 
