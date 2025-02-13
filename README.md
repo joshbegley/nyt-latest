@@ -1,3 +1,7 @@
+**Shohei Ohtani won't have to wait for two-way status – and the Dodgers will benefit**\
+`Ohtani’s status has caused at least some confusion, particularly due to a change to the rule made last month.`\
+https://nytimes.com/athletic/6135017/2025/02/13/shohei-ohtani-dodgers-two-way-player/
+
 **Judge Temporarily Stops Trump’s Plan to End Funds for Trans Youths’ Health Providers**\
 `Six transgender individuals, all younger than 19, sued the administration over executive orders targeting hospitals that offer transition treatments to young people.`\
 https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-funds-for-trans-youths-health-providers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/learning/grammys-la-fires-and-longevity-students-
 **Tracking Trump’s Biggest Climate Moves**\
 `In his first few weeks, President Trump has frozen climate spending, shaken up staffing at agencies like the E.P.A. and set off a wave of legal challenges.`\
 https://nytimes.com/2025/02/13/climate/tracking-trumps-biggest-climate-moves.html
-
-**Musk Staff Propose Bigger Role for A.I. in Education Department**\
-`A new chatbot would answer questions from student borrowers. The idea comes from staffers with ties to the tech industry as they push further into the agency’s work.`\
-https://nytimes.com/2025/02/13/us/doge-ai-education-department-students.html
 
