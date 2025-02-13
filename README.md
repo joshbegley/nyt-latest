@@ -1,3 +1,11 @@
+**Word of the Day: peripatetic**\
+`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/13/learning/word-of-the-day-peripatetic.html
+
+**Liverpool were furious at the end but the events at Everton should not disrupt their season**\
+`Curtis Jones, Arne Slot and his assistant Sipke Hulshoff were all sent off for Liverpool at Goodison Park in a fiery end to the derby`\
+https://nytimes.com/athletic/6133038/2025/02/13/liverpool-everton-goodison-slot-jones/
+
 **Here’s the latest.**\
 `By Maggie Haberman, Daniel Victor and Anton Troianovski`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6125596/2025/02/13/stefanos-tzimas-brighton-transfe
 **Crystal Palace's home form: Why are Oliver Glasner's side struggling to win at Selhurst Park?**\
 `Palace have won only two home league games this season and face Everton on Saturday, a team they have beaten once there since 1994`\
 https://nytimes.com/athletic/6127693/2025/02/13/palace-home-away-form-selhurst-everton/
-
-**Marshall Munetsi, a player tipped for the Premier League from a young age in Zimbabwe**\
-`Wolves' new signing could make his Premier League debut this weekend, fulfilling predictions made about him years ago in his home country`\
-https://nytimes.com/athletic/6129522/2025/02/13/marshall-munetsi-wolves-zimbabwe/
-
-**Chelsea moved quickly for inexperienced Amougou - but they'd tracked him for two years**\
-`Chelsea confirmed the signing of Mathis Amougou late in the transfer window`\
-https://nytimes.com/athletic/6130555/2025/02/13/chelsea-mathis-amougou-transfer-analysis/
 
