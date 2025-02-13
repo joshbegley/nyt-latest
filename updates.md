@@ -1,3 +1,11 @@
+**Here Are the Names of 53 Migrants Taken to Guantánamo Bay**\
+`The Times has obtained a list of the names of the men, whom the U.S. government has described as Venezuelan citizens under final deportation orders.`\
+https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
+
+**Some Migrants Sent by Trump to Guantánamo Are Being Held by Military Guards**\
+`The Times has obtained a list of 53 Venezuelan men the Trump administration has put in a wartime prison built to hold Al Qaeda suspects.`\
+https://nytimes.com/2025/02/12/us/gitmo-migrants-trump.html
+
 **Bondi Announces Lawsuit Against New York Over Immigration**\
 `The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing illegal aliens over American citizens.”`\
 https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
