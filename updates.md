@@ -1,3 +1,11 @@
+**Manhattan’s Federal Prosecutor Quits After Adams Case Is Ordered Dropped**\
+`Danielle R. Sassoon, the interim U.S. attorney for the Southern District of New York, quit after the Justice Department told her to withdraw corruption charges against Mayor Eric Adams.`\
+https://nytimes.com/2025/02/13/nyregion/danielle-sassoon-quit-eric-adams.html
+
+**Mets' Francisco Alvarez needed to fix his swing, J.D. Martinez showed him how**\
+`Alvarez sought guidance at at Maven Baseball Lab, a training facility frequented by Martinez and other professional players.`\
+https://nytimes.com/athletic/6134951/2025/02/13/mets-francisco-alvarez-jd-martinez/
+
 **Framber Valdez says Astros haven't approached him about an extension**\
 `The 31-year-old lefty will be a free agent after the 2025 season.`\
 https://nytimes.com/athletic/6134845/2025/02/13/astros-framber-valdez-contract-extension/
