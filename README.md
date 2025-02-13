@@ -1,3 +1,7 @@
+**Britain’s Economy Squeezes Out 0.1% Growth**\
+`The unexpected increase eases pressure on the government, which has been trying to spur investment and development.`\
+https://nytimes.com/2025/02/13/business/britain-economy.html
+
 **Premier League clubs would love to bring Harry Kane back to England. He'd be mad to indulge them**\
 `The England captain reportedly has a release clause but Kane seems to have found the perfect environment at Bayern - and he is thriving`\
 https://nytimes.com/athletic/6132975/2025/02/13/harry-kane-bayern-munich-transfer-future/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-lat
 **Lakers' Dalton Knecht returns to team for first time since rescinded trade**\
 `Knecht scored 10 points (3-for-7 shooting) and had one steal in 17 minutes in his return.`\
 https://nytimes.com/athletic/6133430/2025/02/13/lakers-dalton-knecht-return-hornets-trade/
-
-**Honda and Nissan Scrap $50 Billion Merger Plan**\
-`The Japanese companies’ decision to call off negotiations highlights the challenges legacy automakers face in partnering to tackle new technologies.`\
-https://nytimes.com/2025/02/13/business/honda-nissan-merger.html
 
