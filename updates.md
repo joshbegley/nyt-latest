@@ -1,3 +1,7 @@
+**Corrections: Feb. 13, 2025**\
+`Corrections that appeared in print on Thursday, Feb. 13, 2025.`\
+https://nytimes.com/2025/02/12/pageoneplus/corrections-feb-13-2025.html
+
 **Villanova snaps No. 9 St. John's 10-game Big East win streak**\
 `Madison Square Garden will host a showdown for the conference lead between St. John's and Creighton on Sunday.`\
 https://nytimes.com/athletic/6133117/2025/02/12/villanova-st-johns-mens-basketball-upset-results-analysis/
