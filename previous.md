@@ -6,8 +6,8 @@ https://nytimes.com/2025/02/13/world/europe/ukraine-russia-us-diplomacy.html
 `The call has raised concerns among some European leaders that Ukraine could effectively be sidelined in any peace negotiations.`\
 https://nytimes.com/2025/02/13/world/europe/hegseth-trump-putin-call.html
 
-**Aid Agencies Rush Supplies Into Gaza as Fragile Cease-Fire Holds for Now**\
-`The United Nations and other relief organizations delivered tents and other help into the enclave as the truce continued despite a standoff between Israel and Hamas.`\
+**Hamas Signals Progress Toward Resumed Hostage Releases**\
+`Hamas said that mediators between the two sides were working “to remove obstacles and close gaps” after the cease-fire deal hit a roadblock.`\
 https://nytimes.com/2025/02/13/world/middleeast/gaza-israel-ceasefire-hostages.html
 
 **The Pulse: An OT thriller**\

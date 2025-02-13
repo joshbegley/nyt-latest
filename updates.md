@@ -1,3 +1,7 @@
+**Hamas Signals Progress Toward Resumed Hostage Releases**\
+`Hamas said that mediators between the two sides were working “to remove obstacles and close gaps” after the cease-fire deal hit a roadblock.`\
+https://nytimes.com/2025/02/13/world/middleeast/gaza-israel-ceasefire-hostages.html
+
 **Warming Trend in U.S.-Russia Relations Leaves Ukraine in a Tough Spot**\
 `Trump’s recent moves, including a conversation with Putin and a demand for Ukrainian mineral rights, are worrisome signs for Zelensky.`\
 https://nytimes.com/2025/02/13/world/europe/ukraine-russia-us-diplomacy.html
