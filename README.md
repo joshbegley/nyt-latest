@@ -1,3 +1,7 @@
+**To some Ukrainian soldiers, the prospect of cease-fire talks is ‘too painful.’**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/to-some-ukrainian-soldiers-the-prospect-of-cease-fire-talks-is-too-painful
+
 **State Department Revises Plan to Buy Armored Teslas**\
 `The name of the carmaker led by Elon Musk was removed from a list of planned purchases after news outlets raised conflict-of-interest concerns.`\
 https://nytimes.com/2025/02/13/us/politics/state-dept-armored-teslas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronz
 **Cubarsi signs new Barcelona contract through to 2029**\
 `Cubarsi's previous contract at Barcelona had been due to expire in 2027 and he has been a regular in Hansi Flick's side this season.`\
 https://nytimes.com/athletic/6133631/2025/02/13/pau-cubarsi-barcelona-contract-length/
-
-**Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
-`The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
-https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
 
