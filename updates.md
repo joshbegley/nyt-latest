@@ -1,3 +1,7 @@
+**Red Sox, Alex Bregman agree to three-year, $120 million deal: Source**\
+`In joining the Red Sox, Bregman reunites with former Astros bench coach and current Boston manager, Alex Cora. `\
+https://nytimes.com/athletic/5933932/2025/02/12/alex-bregman-red-sox-deal/
+
 **NASCAR says judge made errors in latest antitrust lawsuit ruling**\
 `NASCAR has accused a district court judge of making numerous errors leading to what the company claims is an incorrect decision in the suit.`\
 https://nytimes.com/athletic/6133157/2025/02/12/nascar-ruling-front-row-motorsports-23xi-racing-lawsuit/
