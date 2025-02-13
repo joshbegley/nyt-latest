@@ -1,3 +1,7 @@
+**Ukraine’s Borders in Maps: Pre-2014 Invasion to Now**\
+`Ukraine’s government wants to restore the country’s frontier to where it was before Russia launched its first invasion more than a decade ago. The U.S. defense secretary said that was “unrealistic.”`\
+https://nytimes.com/2025/02/13/world/europe/ukraine-borders-pre-2014-map-war.html
+
 **Slot could be on touchline vs Wolves despite Merseyside derby red card**\
 `Slot and his assistant Sipke Hulshoff received red cards after the final whistle in the Merseyside derby on Wednesday.`\
 https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
