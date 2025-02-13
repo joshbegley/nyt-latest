@@ -1,3 +1,11 @@
+**The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
+`It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
+https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
+
+**How will Beaver Stadium renovations impact Penn State fans? What we know and what's next**\
+`Penn State released further details about ongoing renovations of Beaver Stadium on Thursday, including new renderings.`\
+https://nytimes.com/athletic/6133182/2025/02/13/beaver-stadium-renovation-penn-state-football/
+
 **PSR to remain in place in Premier League next season**\
 `Several clubs, including Manchester United, Newcastle United and Aston Villa, have all criticised PSR.`\
 https://nytimes.com/athletic/6134226/2025/02/13/premier-league-psr-next-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
 **Driver Arrested After Injuring Several in Munich Crowd**\
 `The police in Munich said they had arrested an Afghan asylum seeker who was known to them after a car drove into a demonstration by a major German union. More than two dozen people were injured, including children.`\
 https://nytimes.com/video/world/europe/100000009988439/driver-arrested-after-injuring-several-in-munich-crowd.html
-
-**With an Evil Empire’s Power Comes Great Responsibility**\
-`Weighty player choices give the fantasy role-playing game Avowed an impressive central narrative. But simplistic combat and rote side quests keep it from excellence.`\
-https://nytimes.com/2025/02/13/arts/avowed-review.html
-
-**Ukraine’s Borders in Maps: Pre-2014 Invasion to Now**\
-`Ukraine’s government wants to restore the country’s frontier to where it was before Russia launched its first invasion more than a decade ago. The U.S. defense secretary said that was “unrealistic.”`\
-https://nytimes.com/2025/02/13/world/europe/ukraine-borders-pre-2014-map-war.html
 

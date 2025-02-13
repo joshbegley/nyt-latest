@@ -1,3 +1,11 @@
+**The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
+`It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
+https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
+
+**How will Beaver Stadium renovations impact Penn State fans? What we know and what's next**\
+`Penn State released further details about ongoing renovations of Beaver Stadium on Thursday, including new renderings.`\
+https://nytimes.com/athletic/6133182/2025/02/13/beaver-stadium-renovation-penn-state-football/
+
 **PSR to remain in place in Premier League next season**\
 `Several clubs, including Manchester United, Newcastle United and Aston Villa, have all criticised PSR.`\
 https://nytimes.com/athletic/6134226/2025/02/13/premier-league-psr-next-season/
