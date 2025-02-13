@@ -1,3 +1,7 @@
+**To some Ukrainian soldiers, the prospect of cease-fire talks is ‘too painful.’**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/to-some-ukrainian-soldiers-the-prospect-of-cease-fire-talks-is-too-painful
+
 **State Department Revises Plan to Buy Armored Teslas**\
 `The name of the carmaker led by Elon Musk was removed from a list of planned purchases after news outlets raised conflict-of-interest concerns.`\
 https://nytimes.com/2025/02/13/us/politics/state-dept-armored-teslas.html
