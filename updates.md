@@ -1,3 +1,7 @@
+**Watch: What's going on with Mark Williams and Dalton Knecht?**\
+`NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
+https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
+
 **In This Trump Presidency, the Domination Will be Televised**\
 `From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
 https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
