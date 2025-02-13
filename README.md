@@ -1,7 +1,3 @@
-**In Yearslong Search for Lost Bitcoin, a Final Proposal: Let Me Buy the Landfill**\
-`For 12 years, James Howells has begged officials to let him dig through a South Wales landfill to find a lost Bitcoin wallet that he says is worth around $800 million.`\
-https://nytimes.com/2025/02/13/world/europe/bitcoin-wales-james-howells-landfill.html
-
 **The Creator of Wallace and Gromit Breathes Life Into a Cast of Clay**\
 `Nick Park’s latest film in the stop-motion series is up for multiple awards at the BAFTAs and the Oscars.`\
 https://nytimes.com/2025/02/13/movies/wallace-gromit-nick-park-baftas.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6134318/2025/02/13/ncaa-flag-football-womens-sports
 **Live Tally: Robert F. Kennedy Jr. Confirmation Vote**\
 `Follow the count live.`\
 https://nytimes.com/interactive/2025/02/13/us/politics/kennedy-senate-confirmation-vote.html
+
+**Watch: Could this year's NFL Draft see more Day 2 QBs than first-round passers?**\
+`The Athletic Football Show discuss the latest 2025 NFL Draft Big Board rankings and what makes this year's quarterback class unique.`\
+https://nytimes.com/athletic/6133806/2025/02/13/athletic-football-show-nfl-draft-2025-big-board/
 
