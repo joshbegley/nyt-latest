@@ -1,3 +1,7 @@
+**Slovakia’s leader welcomes Trump’s outreach to broker peace in the Russia-Ukraine war.**\
+`By Andrew Higgins`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/slovakia-fico-peace-talks
+
 **Michael Longley, 85, Northern Irish Poet of Nature and ‘the Troubles,’ Dies**\
 `“Ceasefire,” his most famous poem, invoked the “Iliad” in exploring his country’s sectarian strife. But his work wasn’t Homeric in length: “Michael was a miniaturist.”`\
 https://nytimes.com/2025/02/13/books/michael-longley-dead.html
