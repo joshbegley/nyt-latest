@@ -1,4 +1,12 @@
 **Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
+`"Obviously disappointed," Cubs president of baseball operations Jed Hoyer said Thursday morning at the team's Arizona facility.`\
+https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/
+
+**14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
+`Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
+https://nytimes.com/live/2025/02/13/us/trump-news/elon-musk-doge-lawsuits
+
+**Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
 `“Obviously disappointed,” Cubs president of baseball operations Jed Hoyer said Thursday morning at the team’s Arizona facility.`\
 https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/
 
