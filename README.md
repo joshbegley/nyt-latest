@@ -1,3 +1,7 @@
+**The $3 Billion House That Orange Chicken Built**\
+`The parent restaurant of Panda Express underwent a multimillion-dollar renovation. The deep, comforting pleasures are still on the menu.`\
+https://nytimes.com/2025/02/13/dining/panda-inn.html
+
 **How Trump Is Muzzling the C.D.C.**\
 `Former health officials object to restrictions on the agency. Also: The Kennedy Center; Mayor Eric Adams; profiles in cowardice; fury over Gaza; a plea for protests.`\
 https://nytimes.com/2025/02/13/opinion/trump-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/science/cdc-bird-flu-infections.html
 **Chronic Illness Can Affect Every Part of Life. How Do You Talk About it at Work?**\
 `Opening up can unlock much-needed support, but it also comes with risks.`\
 https://nytimes.com/2025/02/13/well/live/working-with-medical-condition.html
-
-**How Do You Feel About Dining Alone? We Want to Hear.**\
-`We’re asking readers to help us understand solo dining in America.`\
-https://nytimes.com/2025/02/13/dining/reader-callout-solo-diners.html
 
