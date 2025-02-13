@@ -1,3 +1,7 @@
+**Taiwan Prepares for Trump’s Tariffs, and a Changed Washington**\
+`Taiwanese officials, facing a more transactional U.S. relationship, have traveled to Washington to float energy deals and defend the island’s semiconductors.`\
+https://nytimes.com/2025/02/13/world/asia/taiwan-tariffs-trump.html
+
 **The Look of Luxury Is Evolving**\
 `It is far less quiet, if the clothes on and off runways at New York Fashion Week were any indication.`\
 https://nytimes.com/2025/02/13/style/nyfw-quiet-luxury-street-style-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/arts/television/jimmy-fallon-elon-musk.html
 **The Knicks' Jalen Brunson and the making of a winner**\
 `Brunson will never forget the first chance he had to win a game. It's helped him make the clutch shots, including Wednesday against Atlanta.`\
 https://nytimes.com/athletic/6133382/2025/02/13/knicks-jalen-brunson-game-winner-hawks/
-
-**Rosenthal: With Alex Bregman signing, the Red Sox make an appropriate big-market flex**\
-`It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
-https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
 
