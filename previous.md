@@ -1,3 +1,7 @@
+**Trump Targets an Ideal Born of a President’s Murder**\
+`The act of violence almost 150 years ago effectively gave birth to the civil service, that class of nonpartisan experts who cannot be hired or fired for political reasons.`\
+https://nytimes.com/2025/02/13/us/politics/trump-civil-service-history.html
+
 **Slovakia’s leader welcomes Trump’s outreach to broker peace in the Russia-Ukraine war.**\
 `By Andrew Higgins`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/slovakia-fico-peace-talks
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6087006/2025/02/13/warriors-nba-all-star-run-tmc-re
 **Trump Says He’ll Rework Global Trading Relations With ‘Reciprocal’ Tariffs**\
 `The president said advisers would devise new tariff levels reflecting countries’ tariffs, taxes, subsidies and other policies affecting trade with the United States.`\
 https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
-
-**Igloo Recalls Coolers Over Fingertip Amputation and Crushing Risk**\
-`More than one million coolers sold in North America were recalled after a dozen injuries. Consumers are advised to stop using them and contact the company.`\
-https://nytimes.com/2025/02/13/business/igloo-cooler-injuries-recall.html
 

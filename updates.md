@@ -1,3 +1,7 @@
+**Trump Targets an Ideal Born of a President’s Murder**\
+`The act of violence almost 150 years ago effectively gave birth to the civil service, that class of nonpartisan experts who cannot be hired or fired for political reasons.`\
+https://nytimes.com/2025/02/13/us/politics/trump-civil-service-history.html
+
 **Slovakia’s leader welcomes Trump’s outreach to broker peace in the Russia-Ukraine war.**\
 `By Andrew Higgins`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/slovakia-fico-peace-talks
