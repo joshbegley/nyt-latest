@@ -1,3 +1,7 @@
+**Arsenal's Havertz to undergo surgery on torn hamstring injury**\
+`Arsenal forward Kai Havertz will begin a period of rehabilitation with a focus on being fit for the start of the 2025-26 season.`\
+https://nytimes.com/athletic/6131108/2025/02/13/havertz-injury-surgery-arsenal/
+
 **Ausar Thompson is becoming key to Pistons offense: 'You’re seeing him blossom'**\
 `"He’s just putting it all together now and it’s great to see,” says Pistons teammate Tobias Harris.`\
 https://nytimes.com/athletic/6134122/2025/02/13/pistons-ausar-thompson-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134352/2025/02/13/alex-bregman-red-sox-astros-the-
 **The spats, the scraps, the bedlam at Goodison Park: This is what we want to see, no?**\
 `It is rich for the league and broadcasters to encourage the madness and ramp up the intensity, then call for the fun police to intervene`\
 https://nytimes.com/athletic/6133676/2025/02/13/the-spats-the-scraps-the-bedlam-at-goodison-park-this-is-what-we-want-to-see-right/
-
-**How will Beaver Stadium renovations impact Penn State fans? What we know and what's next**\
-`Penn State released further details about ongoing renovations of Beaver Stadium on Thursday, including new renderings.`\
-https://nytimes.com/athletic/6133182/2025/02/13/beaver-stadium-renovation-penn-state-football/
 
