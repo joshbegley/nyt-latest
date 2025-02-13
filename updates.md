@@ -1,3 +1,15 @@
+**How Trump Is Muzzling the C.D.C.**\
+`Former health officials object to restrictions on the agency. Also: The Kennedy Center; Mayor Eric Adams; profiles in cowardice; fury over Gaza; a plea for protests.`\
+https://nytimes.com/2025/02/13/opinion/trump-cdc.html
+
+**Teddi Mellencamp of ‘Real Housewives’ Says She Has Brain Tumors**\
+`Mellencamp, also the daughter of the rock musician John Mellencamp, said on Instagram that she was receiving treatment after experiencing “severe and debilitating” headaches.`\
+https://nytimes.com/2025/02/13/arts/television/teddi-mellencamp-brain-tumors.html
+
+**What Is Your Outfit Telling Your Therapist?**\
+`Whether we want them to or not, our clothes may be giving our therapists more psychoanalytic material.`\
+https://nytimes.com/2025/02/13/style/therapy-clothes.html
+
 **Watch: What's going on with Mark Williams and Dalton Knecht?**\
 `NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
 https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
