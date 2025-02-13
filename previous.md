@@ -1,3 +1,11 @@
+**Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
+`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
+https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
+
+**Cubarsi signs new Barcelona contract through to 2029**\
+`Cubarsi's previous contract at Barcelona had been due to expire in 2027 and he has been a regular in Hansi Flick's side this season.`\
+https://nytimes.com/athletic/6133631/2025/02/13/pau-cubarsi-barcelona-contract-length/
+
 **Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
 `The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
 https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6133100/2025/02/13/anthony-edwards-timberwolves-clu
 **Trump says he will announce ‘reciprocal tariffs’ today.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/02/13/us/trump-news/trump-modi-reciprocal-tariffs
-
-**Semi-automated offside technology to be trialled in FA Cup fifth round**\
-`If the SAOT trial is considered to be a success, the Premier League will look to introduce the technology at a later date.`\
-https://nytimes.com/athletic/6133662/2025/02/13/fa-cup-offside-semi-automated/
-
-**Little extends Arsenal contract until 2026**\
-`Arsenal announced the club and midfielder have agreed to exercise an option to extend her deal by one year.`\
-https://nytimes.com/athletic/6133559/2025/02/13/kim-little-arsenal-contract-extension/
 

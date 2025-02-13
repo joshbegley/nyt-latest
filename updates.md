@@ -1,3 +1,11 @@
+**Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
+`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
+https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
+
+**Cubarsi signs new Barcelona contract through to 2029**\
+`Cubarsi's previous contract at Barcelona had been due to expire in 2027 and he has been a regular in Hansi Flick's side this season.`\
+https://nytimes.com/athletic/6133631/2025/02/13/pau-cubarsi-barcelona-contract-length/
+
 **Man Charged with Killing Roommate, Whose Torso Was Found in a Suitcase.**\
 `The remains of Edwin Echevarria, 65, were found floating in the East River on Feb. 5. His roommate, Christian Millet, 23, has been charged with second degree murder.`\
 https://nytimes.com/2025/02/13/nyregion/torso-suitcase-east-river.html
