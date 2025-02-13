@@ -1,3 +1,11 @@
+**Padres, Nick Pivetta agree to four-year, $55 million deal: Sources**\
+`After a quiet offseason, the Padres finally struck, inking the soon-to-be 32-year-old righty. `\
+https://nytimes.com/athletic/6133192/2025/02/12/san-diego-padres-nick-pivetta-deal/
+
+**2024-25 MLB Top 40 Free Agent Big Board: As Dodgers loom large, Pete Alonso returns to Mets**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Corrections: Feb. 13, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 13, 2025.`\
 https://nytimes.com/2025/02/12/pageoneplus/corrections-feb-13-2025.html
