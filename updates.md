@@ -1,3 +1,15 @@
+**"There'll always be that hole for us all. George's number is still in our group chats"**\
+`Chris Basham is enjoying being a 'normal guy, a normal dad' after experiences no one should have to go through on and off the pitch`\
+https://nytimes.com/athletic/6118527/2025/02/13/chris-basham-retirement-george-baldock-sheffield-united/
+
+**Thursday Briefing**\
+`President Trump’s call with Vladimir Putin.`\
+https://nytimes.com/2025/02/13/briefing/putin-trump-modi.html
+
+**2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/12/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Quote of the Day: Trump’s Words Attack Morality Of Being Trans**\
 `Quotation of the Day for Thursday, February 13, 2025`\
 https://nytimes.com/2025/02/12/pageoneplus/quote-of-the-day-trumps-words-attack-morality-of-being-trans.html
