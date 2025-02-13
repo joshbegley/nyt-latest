@@ -1,3 +1,7 @@
+**Who Controls the Gulf of Mexico?**\
+`The United States, Mexico and Cuba have jurisdiction over different parts of the gulf.`\
+https://nytimes.com/interactive/2025/02/13/world/americas/gulf-mexico-trump.html
+
 **Scoop City: What every general manager can learn from the Eagles**\
 `Inside: How the Eagles built another Super Bowl winner and what your team should copy, plus four big playoff moments and five single-team mock drafts.`\
 https://nytimes.com/athletic/6134688/2025/02/13/nfl-general-manager-how-eagles-howie-roseman-built-roster-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6125743/2025/02/13/how-much-damage-have-red-cards-d
 **‘The Gorge’ Review: How Deep Is Your Love?**\
 `Miles Teller and Anya Taylor-Joy don’t exactly meet cute in this action movie, but they do find romance as well as horror.`\
 https://nytimes.com/2025/02/13/movies/the-gorge-review.html
-
-**Susan Collins and Her Cowardly Caucus Bow Down to Trump**\
-`No nominee — not Kennedy, not Gabbard — is a provocateur too far for Senate Republicans.`\
-https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
 

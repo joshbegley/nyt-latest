@@ -1,3 +1,7 @@
+**Who Controls the Gulf of Mexico?**\
+`The United States, Mexico and Cuba have jurisdiction over different parts of the gulf.`\
+https://nytimes.com/interactive/2025/02/13/world/americas/gulf-mexico-trump.html
+
 **Susan Collins and Her Cowardly Caucus Bow Down to Trump**\
 `No nominee — not Kennedy, not Gabbard — is a provocateur too far for Senate Republicans.`\
 https://nytimes.com/2025/02/13/opinion/kennedy-trump-senate-republicans.html
