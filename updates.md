@@ -1,3 +1,7 @@
+**Canadian Tariffs Are an Act of Self-Harm by the U.S.**\
+`Retaliation is a must. One hundred percent tariffs on Teslas, imposed by every country in the world, would be a good place to start.`\
+https://nytimes.com/2025/02/13/opinion/canada-tariffs-steel-us.html
+
 **No Havertz, no striker... what on earth do Arsenal do now?**\
 `Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
 `\

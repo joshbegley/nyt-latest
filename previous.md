@@ -1,3 +1,7 @@
+**Canadian Tariffs Are an Act of Self-Harm by the U.S.**\
+`Retaliation is a must. One hundred percent tariffs on Teslas, imposed by every country in the world, would be a good place to start.`\
+https://nytimes.com/2025/02/13/opinion/canada-tariffs-steel-us.html
+
 **Gustavsson steals Sweden a point it had no business getting**\
 `Gustavsson robbed Canada's Devon Toews to keep Sweden in the game, then shut down seven more shots in overtime.`\
 https://nytimes.com/athletic/6133397/2025/02/13/filip-gustavsson-4-nations-face-off-sweden-canada/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6125575/2025/02/13/juventus-lloyd-kelly-newcastle-c
 **Is INEOS starting to fall out of love with sport?**\
 `For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
 https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
-
-**No Havertz, no striker... what on earth do Arsenal do now?**\
-`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
-`\
-https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 
