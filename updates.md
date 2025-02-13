@@ -1,3 +1,7 @@
+**Quote of the Day: Trump’s Words Attack Morality Of Being Trans**\
+`Quotation of the Day for Thursday, February 13, 2025`\
+https://nytimes.com/2025/02/12/pageoneplus/quote-of-the-day-trumps-words-attack-morality-of-being-trans.html
+
 **State Dept. Draws Up List of Cartels to Be Labeled Terrorist Groups**\
 `The move against a half-dozen organizations followed an executive order from President Trump that said the United States would ensure their “total elimination.”`\
 https://nytimes.com/2025/02/12/us/politics/state-dept-terrorist-designation.html

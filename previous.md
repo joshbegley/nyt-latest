@@ -1,3 +1,7 @@
+**Quote of the Day: Trump’s Words Attack Morality Of Being Trans**\
+`Quotation of the Day for Thursday, February 13, 2025`\
+https://nytimes.com/2025/02/12/pageoneplus/quote-of-the-day-trumps-words-attack-morality-of-being-trans.html
+
 **Takeaways: How Canada's star power beat Sweden in 4 Nations Face-Off**\
 `Canada avoided a major letdown in the first game of the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6133276/2025/02/12/canada-4-nations-face-off-sweden/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133250/2025/02/12/canada-4-nations-face-off-shea-t
 **As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
 `Ahead of spring training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
 https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/
-
-**What Are You Waiting for?**\
-`Don’t throw away this chance to solve Jem Burch’s puzzle.`\
-https://nytimes.com/2025/02/12/crosswords/daily-puzzle-2025-02-13.html
 
