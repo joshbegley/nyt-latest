@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6133100/2025/02/13/anthony-edwards-timberwolves-clu
 https://nytimes.com/live/2025/02/13/us/trump-news/trump-modi-reciprocal-tariffs
 
 **Semi-automated offside technology to be trialled in FA Cup fifth round**\
-`Semi-automated offside technology (SAOT) will be used in a competitive English football matches for the first time during the FA Cup fifth round in March.`\
+`If the SAOT trial is considered to be a success, the Premier League will look to introduce the technology at a later date.`\
 https://nytimes.com/athletic/6133662/2025/02/13/fa-cup-offside-semi-automated/
 
 **Little extends Arsenal contract until 2026**\
