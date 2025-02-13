@@ -1,3 +1,7 @@
+**Rosenthal: With Bregman signing, the Red Sox make an appropriate big-market flex**\
+`It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
+https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
+
 **Word of the Day: peripatetic**\
 `This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/13/learning/word-of-the-day-peripatetic.html
