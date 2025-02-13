@@ -1,3 +1,7 @@
+**New Saints coach Kellen Moore calls Derek Carr 'tremendous' but noncommittal on QB's status**\
+`The league's youngest head coach takes over a New Orleans team that has not made the playoffs in four seasons.`\
+https://nytimes.com/athletic/6134806/2025/02/13/kellen-moore-new-orleans-saints-derek-carr/
+
 **Trump Targets an Ideal Born of a President’s Murder**\
 `The act of violence almost 150 years ago effectively gave birth to the civil service, that class of nonpartisan experts who cannot be hired or fired for political reasons.`\
 https://nytimes.com/2025/02/13/us/politics/trump-civil-service-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134845/2025/02/13/astros-framber-valdez-contract-e
 **3-point shootout, wisecracks and memories: Inside Run TMC's recent reunion**\
 `Chris Mullin, Tim Hardaway and Mitch Richmond shook off the rust and joined Baron Davis for a nostalgic All-Star promotion.`\
 https://nytimes.com/athletic/6087006/2025/02/13/warriors-nba-all-star-run-tmc-reunion/
-
-**Trump Says He’ll Rework Global Trading Relations With ‘Reciprocal’ Tariffs**\
-`The president said advisers would devise new tariff levels reflecting countries’ tariffs, taxes, subsidies and other policies affecting trade with the United States.`\
-https://nytimes.com/2025/02/13/us/politics/trump-tariffs.html
 
