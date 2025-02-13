@@ -1,3 +1,11 @@
+**Word of the Day: peripatetic**\
+`This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/13/learning/word-of-the-day-peripatetic.html
+
+**Liverpool were furious at the end but the events at Everton should not disrupt their season**\
+`Curtis Jones, Arne Slot and his assistant Sipke Hulshoff were all sent off for Liverpool at Goodison Park in a fiery end to the derby`\
+https://nytimes.com/athletic/6133038/2025/02/13/liverpool-everton-goodison-slot-jones/
+
 **Here’s the latest.**\
 `By Maggie Haberman, Daniel Victor and Anton Troianovski`\
 https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/heres-the-latest
