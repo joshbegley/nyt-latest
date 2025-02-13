@@ -1,3 +1,11 @@
+**Here Are the Names of 53 Migrants Taken to Guantánamo Bay**\
+`The Times has obtained a list of the names of the men, whom the U.S. government has described as Venezuelan citizens under final deportation orders.`\
+https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
+
+**Some Migrants Sent by Trump to Guantánamo Are Being Held by Military Guards**\
+`The Times has obtained a list of 53 Venezuelan men the Trump administration has put in a wartime prison built to hold Al Qaeda suspects.`\
+https://nytimes.com/2025/02/12/us/gitmo-migrants-trump.html
+
 **NHL, NHLPA turn eyes to next labor deal: What could a new CBA bring?**\
 `With an international competition cadence reestablished, the league and its players' union will dive into CBA negotiations soon.`\
 https://nytimes.com/athletic/6133134/2025/02/12/nhl-nhlpa-cba-negotiations-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-pla
 **When Musk’s Team Shows Up at Your Doorstep**\
 `The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
 https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
-
-**Handshakes and selfies: Giants pitchers are Justin Verlander fans, too**\
-`Verlander is already a well-known commodity to his new Giants teammates, who are eager to learn from him this season.`\
-https://nytimes.com/athletic/6132918/2025/02/12/sf-giants-justin-verlander-introductions/
-
-**Bondi Announces Lawsuit Against New York Over Immigration**\
-`The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing illegal aliens over American citizens.”`\
-https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
 
