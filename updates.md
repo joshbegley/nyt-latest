@@ -1,3 +1,11 @@
+**‘You’ve Blown a Hole in the Family’: Inside the Murdochs’ Succession Drama**\
+`More than 3,000 pages of documents reveal how years of betrayals led to a messy court battle that threatens the future of Rupert’s empire.`\
+https://nytimes.com/2025/02/13/magazine/rupert-murdoch-succession-family-trust-fight.html
+
+**Review: The War Is Never Over in This Epic-Inspired Dance**\
+`“Gigenis,” drawn from a tale in the Mahabharata, is the choreographer Akram Khan’s most potent work in years.`\
+https://nytimes.com/2025/02/13/arts/dance/review-akram-khan-gigenis.html
+
 **Shohei Ohtani won't have to wait for two-way status – and the Dodgers will benefit**\
 `Ohtani’s status has caused at least some confusion, particularly due to a change to the rule made last month.`\
 https://nytimes.com/athletic/6135017/2025/02/13/shohei-ohtani-dodgers-two-way-player/

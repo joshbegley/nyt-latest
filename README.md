@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/13/us/judge-temporarily-stops-trumps-plan-to-end-fun
 `Only three weeks into the Trump administration’s suspension of money for foreign aid, those who work in women’s health say the impact has already been devastating.`\
 https://nytimes.com/2025/02/13/world/africa/trump-funding-freeze-womens-health.html
 
-**Read the document**\
+**Read the letter from Emil Bove accepting Danielle Sassoon’s resignation**\
 `A letter from Emil Bove, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams.`\
 https://nytimes.com/interactive/2025/02/13/nyregion/memo-from-bove-1.html
 
