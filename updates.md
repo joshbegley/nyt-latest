@@ -1,3 +1,7 @@
+**U.S. Park Service Strikes Transgender References From Stonewall Website**\
+`The “T” was removed in references to L.G.B.T.Q.+ on the official site for the Greenwich Village monument, which marks a milestone in the fight for gay rights.`\
+https://nytimes.com/2025/02/13/nyregion/stonewall-transgender-parks-service.html
+
 **Read Danielle Sassoon’s Letter to Attorney General Pam Bondi**\
 `Danielle R. Sassoon, Manhattan’s acting U.S. attorney, writes to Attorney General Pam Bondi, refusing to drop the case against Mayor Eric Adams.`\
 https://nytimes.com/interactive/2025/02/13/us/letter-to-bondi.html

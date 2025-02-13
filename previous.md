@@ -1,3 +1,7 @@
+**U.S. Park Service Strikes Transgender References From Stonewall Website**\
+`The “T” was removed in references to L.G.B.T.Q.+ on the official site for the Greenwich Village monument, which marks a milestone in the fight for gay rights.`\
+https://nytimes.com/2025/02/13/nyregion/stonewall-transgender-parks-service.html
+
 **Read Danielle Sassoon’s Letter to Attorney General Pam Bondi**\
 `Danielle R. Sassoon, Manhattan’s acting U.S. attorney, writes to Attorney General Pam Bondi, refusing to drop the case against Mayor Eric Adams.`\
 https://nytimes.com/interactive/2025/02/13/us/letter-to-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134858/2025/02/13/aaron-rodgers-jets-era-end-nfl/
 **Blue Origin, Jeff Bezos’ Rocket Company, Cuts 10% of Its Employees**\
 `In an email to employees, the company’s chief executive said the company had become bloated during its growth in recent years.`\
 https://nytimes.com/2025/02/13/technology/blue-origin-layoffs-jeff-bezos.html
-
-**After an offseason with trade chatter, Alec Bohm and Phillies embrace a new season**\
-`The Phillies never found what they perceived as commensurate value for Bohm on the trade market. "It's a business," but how is he feeling?`\
-https://nytimes.com/athletic/6135090/2025/02/13/alec-bohm-trade-talks-phillies-2025/
 
