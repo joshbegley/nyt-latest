@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 `\
 https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
 **Gustavsson steals Sweden a point it had no business getting**\
 `Gustavsson robbed Canada's Devon Toews to keep Sweden in the game, then shut down seven more shots in overtime.`\
 https://nytimes.com/athletic/6133397/2025/02/13/filip-gustavsson-4-nations-face-off-sweden-canada/
