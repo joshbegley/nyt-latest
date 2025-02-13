@@ -35,6 +35,6 @@ https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
 https://nytimes.com/athletic/6132918/2025/02/12/sf-giants-justin-verlander-introductions/
 
 **Bondi Announces Lawsuit Against New York Over Immigration**\
-`The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing “illegal aliens over American citizens.”`\
+`The attorney general, citing a law allowing New Yorkers to get a driver’s license regardless of citizenship or legal status, accused the state of “prioritizing illegal aliens over American citizens.”`\
 https://nytimes.com/2025/02/12/us/politics/bondi-new-york-immigration-lawsuit.html
 
