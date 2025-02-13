@@ -1,3 +1,11 @@
+**Alex Bregman’s rejection of the Tigers is a reminder of harsh realities**\
+`The Tigers made a competitive offer for Alex Bregman but finished as runners up. Do they have enough offense without him?`\
+https://nytimes.com/athletic/6134939/2025/02/13/alex-bregman-detroit-tigers-rejection/
+
+**Senate Confirms Brooke Rollins as Agriculture Secretary**\
+`In a rare show of bipartisan support for a Trump cabinet nominee, Ms. Rollins sailed through the confirmation process and will now lead the agency responsible for securing the nation’s food supply.`\
+https://nytimes.com/2025/02/13/us/politics/brooke-rollins-agriculture-secretary.html
+
 **As Trump Threatened a Primary, a G.O.P. Holdout on Hegseth Flipped**\
 `Before Senator Thom Tillis voted to confirm Pete Hegseth as defense secretary, he worked with accusers to make the case against him in a bid to get G.O.P. leaders to scrap the vote altogether.`\
 https://nytimes.com/2025/02/13/us/politics/hegseth-trump-tillis-senate.html
