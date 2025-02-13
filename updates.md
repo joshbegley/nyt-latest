@@ -1,3 +1,7 @@
+**Singing to Trees to Make Good Cider: An Ancient English Ritual Is Back**\
+`The centuries-old tradition of wassailing is making a comeback in rural England, with rituals and revelry meant to chase away evil spirits and the winter blues.`\
+https://nytimes.com/2025/02/13/world/europe/england-wassailing-cider-tradition.html
+
 **What I'm hearing: Decisions on 3 specialists looming after Panthers add kicker to mix**\
 `Long snapper J.J. Jansen, punter Johnny Hekker and kicker Eddy Pineiro are each pending free agents.`\
 https://nytimes.com/athletic/6132683/2025/02/13/panthers-kicker-punter-long-snapper-contract-decisions/
