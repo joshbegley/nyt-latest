@@ -1,3 +1,7 @@
+**Bears mock draft 1.0: Finding good pass protectors, maybe better pass rushers**\
+`The Bears have three picks in the top 50 this year to build around QB Caleb Williams — or improve their defense. `\
+https://nytimes.com/athletic/6131965/2025/02/13/bears-2025-mock-draft-mason-graham-will-campbell/
+
 **Vikings mock draft 1.0: Fortifying the trenches and adding picks by trading down**\
 `Given all their needs, the Vikings must add picks. A trade down in the first round is likely the best way to get them.`\
 https://nytimes.com/athletic/6132035/2025/02/13/vikings-mock-draft-nfl-tyler-booker/
