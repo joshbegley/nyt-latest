@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 `\
 https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
 **Is INEOS starting to fall out of love with sport?**\
 `For all its statements, events of the past week raise a crucial question: what does INEOS truly value?`\
 https://nytimes.com/athletic/6131147/2025/02/13/ineos-manchester-united-all-blacks-sport/
