@@ -1,3 +1,11 @@
+**Bengals front office under the microscope in pivotal offseason: Dehner Jr. mailbag**\
+`Fans stand largely in solidarity with Joe Burrow and his call to keep Cincinnati's cast of stars together.`\
+https://nytimes.com/athletic/6130626/2025/02/13/bengals-front-office-dehner-jr-mailbag/
+
+**Listen: ‘My Sister’s Murder Isn’t for Your Entertainment’**\
+`Is it wrong to like true crime?`\
+https://nytimes.com/2025/02/13/learning/listen-my-sisters-murder-isnt-for-your-entertainment.html
+
 **Trump Says Saudi Arabia May Host Talks With Vladimir Putin on Ukraine**\
 `The kingdom has increasingly emerged as a mediator in the Russia-Ukraine war, leveraging ties with both sides as well as with President Trump.`\
 https://nytimes.com/2025/02/13/world/europe/trump-putin-saudi-arabia-ukraine.html

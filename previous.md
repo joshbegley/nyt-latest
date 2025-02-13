@@ -1,3 +1,11 @@
+**Bengals front office under the microscope in pivotal offseason: Dehner Jr. mailbag**\
+`Fans stand largely in solidarity with Joe Burrow and his call to keep Cincinnati's cast of stars together.`\
+https://nytimes.com/athletic/6130626/2025/02/13/bengals-front-office-dehner-jr-mailbag/
+
+**Listen: ‘My Sister’s Murder Isn’t for Your Entertainment’**\
+`Is it wrong to like true crime?`\
+https://nytimes.com/2025/02/13/learning/listen-my-sisters-murder-isnt-for-your-entertainment.html
+
 **Trump Says Saudi Arabia May Host Talks With Vladimir Putin on Ukraine**\
 `The kingdom has increasingly emerged as a mediator in the Russia-Ukraine war, leveraging ties with both sides as well as with President Trump.`\
 https://nytimes.com/2025/02/13/world/europe/trump-putin-saudi-arabia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129673/2025/02/13/patriots-defense-nfl-draft-free-
 **Mailbag: Myles Garrett to Dallas? Why don't Cowboys operate more like Eagles?**\
 `Garrett definitely would be in play for the Cowboys years ago. Ashton Jeanty would be difficult to pass on if he's there at No. 12 in draft.`\
 https://nytimes.com/athletic/6132079/2025/02/13/cowboys-myles-garrett-nfl-draft-eagles-mailbag/
-
-**'Squid Game' workouts and burn books: How Payton Pritchard became Celtics' long-shot maestro**\
-`Payton Pritchard went from feeling like a long shot to making them on the court when the Celtics need them the most.`\
-https://nytimes.com/athletic/6122261/2025/02/13/celtics-payton-pritchard-summer-workout/
-
-**Falcons mock draft 1.0: It's all about defense, starting with cornerback and pass rusher**\
-`The Falcons have only five picks in the 2025 draft. That will tie for the fewest in franchise history unless Atlanta makes a trade.`\
-https://nytimes.com/athletic/6128969/2025/02/13/falcons-2025-mock-draft-will-johnson/
 
