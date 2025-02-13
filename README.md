@@ -1,3 +1,15 @@
+**Trump Administration Requests Update on Boeing’s Safety and Quality Improvements**\
+`Transportation Secretary Sean Duffy committed to restoring the public’s trust in the aircraft manufacturer during his confirmation hearing last month.`\
+https://nytimes.com/2025/02/13/us/politics/sean-duffy-boeing.html
+
+**Ingebrigtsen breaks world indoor 1500m record, Yared Nuguse's mile record**\
+`Ingebrigtsen — who ran 3:29.63 in the 1500m and 3:45.14 in the mile — claimed Nuguse's mark just five days after the American made history.`\
+https://nytimes.com/athletic/6135413/2025/02/13/jakob-ingebrigtsen-world-indoor-mile-1500m-records/
+
+**Ukraine Will Not Be Sidelined in Peace Talks With Russia, Trump Says**\
+`President Volodymyr Zelensky of Ukraine and European defense ministers had expressed concern that they might not be present for talks between President Trump and Russia’s leader to end the war.`\
+https://nytimes.com/2025/02/13/world/europe/ukraine-russia-peace-talks-europe.html
+
 **Officials Resigned After Refusing to Drop Adams Case**\
 `Also, a look inside the Murdoch family succession saga. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/02/13/briefing/prosecutor-eric-adams-murdoch-family-succession.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/trump-federal-personnel-layoffs.html
 **U.S. Navy Aircraft Carrier Collides With Merchant Ship Off Egypt**\
 `The U.S.S. Harry S. Truman, which had launched airstrikes against the Houthis in Yemen, struck a commercial vessel near Port Said on Wednesday, Navy officials said.`\
 https://nytimes.com/2025/02/13/world/middleeast/us-navy-carrier-commercial-ship-collision.html
-
-**What to Know About Debris Flows**\
-`After a wildfire, the danger continues, especially during torrential rain that can set off fast-moving landslides known as debris flows.`\
-https://nytimes.com/2025/02/13/weather/what-is-debris-flow-mudslide.html
-
-**Fourth Federal Judge Blocks Trump’s Birthright Citizenship Order**\
-`Federal judges in Maryland, Washington State and New Hampshire have already issued similar injunctions to stop the executive order from being enacted.`\
-https://nytimes.com/2025/02/13/us/politics/trump-birthright-citizenship-judge-block.html
-
-**Texas Judge Fines New York Doctor and Orders Her to Stop Sending Abortion Pills to Texas**\
-`It is the first ruling in a case challenging “shield laws” intended to protect doctors in states that support abortion rights who send abortion pills to states with bans.`\
-https://nytimes.com/2025/02/13/health/texas-new-york-abortion-pills-lawsuit.html
 
