@@ -1,3 +1,7 @@
+**Forest's Awoniyi unlikely to play vs Fulham after suspected concussion**\
+`Awoniyi is being fitted with a face mask — similar to the one recently worn by Forest defender Neco Williams — to protect his nose.`\
+https://nytimes.com/athletic/6134232/2025/02/13/taiwo-awoniyi-injury-concussion/
+
 **U.S. Deports Migrants From Asia to Panama**\
 `The move could herald a new front in the Trump administration’s plans for mass deportations, one that allows for more rapid removal of migrants whose home countries are reluctant to accept them.`\
 https://nytimes.com/2025/02/13/us/politics/trump-deportations-panama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
 **Move over, MLS. Another top flight men's league is coming to the U.S.**\
 `USL is launching a new league with first-division sanctioning, offering an alternative to MLS and potentially opening the door to pro-rel.`\
 https://nytimes.com/athletic/6129972/2025/02/13/usl-launch-division-1-league-us-soccer-mls/
-
-**Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
-`Italy's Federica Brignone and New Zealand's Alice Robinson ran away from the field Thursday with Moltzan sneaking into the No. 3 spot.`\
-https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
 

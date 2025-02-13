@@ -1,3 +1,7 @@
+**Forest's Awoniyi unlikely to play vs Fulham after suspected concussion**\
+`Awoniyi is being fitted with a face mask — similar to the one recently worn by Forest defender Neco Williams — to protect his nose.`\
+https://nytimes.com/athletic/6134232/2025/02/13/taiwo-awoniyi-injury-concussion/
+
 **U.S. Deports Migrants From Asia to Panama**\
 `The move could herald a new front in the Trump administration’s plans for mass deportations, one that allows for more rapid removal of migrants whose home countries are reluctant to accept them.`\
 https://nytimes.com/2025/02/13/us/politics/trump-deportations-panama.html
