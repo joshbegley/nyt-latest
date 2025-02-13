@@ -1,3 +1,19 @@
+**Senate Panel Advances Kash Patel as F.B.I. Director Amid Agency Turmoil**\
+`The vote moved Mr. Patel, a Trump loyalist, one step closer to leading the nation’s premier law enforcement agency.`\
+https://nytimes.com/2025/02/13/us/politics/kash-patel-fbi-senate-judiciary-confirmation-trump.html
+
+**11,000 Years of Designer Sheep**\
+`According to a new exhibition in Amsterdam, centuries of human intervention turned the animal into “a wool-producing machine with ears and eyes.”`\
+https://nytimes.com/2025/02/13/arts/design/sheep-exhibition-formafantasma-oltre-terra.html
+
+**Protests in Brussels Halt Over 400 Flights and Snarl Public Transit**\
+`Tens of thousands of demonstrators in Brussels protested the government’s proposed pension reforms and cuts to public services. All flights into and out of Brussels Airport were canceled.`\
+https://nytimes.com/2025/02/13/world/europe/brussels-protests-air-traffic.html
+
+**NBC hiring Carmelo Anthony as NBA studio analyst next season: Sources**\
+`Anthony, 40, retired from playing in May 2023 and is a Hall of Fame nominee this year.`\
+https://nytimes.com/athletic/6134342/2025/02/13/nbc-pregame-nba-carmelo-anthony/
+
 **Miso-Parmesan Noodle Soup, and More Superb Solo Suppers**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2025/02/13/dining/solo-dinner-recipes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-
 **Submit questions for Scott Wheeler's prospects and NHL Draft mailbag**\
 `This week, The Athletic’s prospects writer Scott Wheeler released his annual top 100 drafted NHL prospects ranking and a new ranking for the 2025 NHL Draft. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
 https://nytimes.com/athletic/6134405/2025/02/13/nhl-draft-prospects-mailbag-february-2025/
-
-**Arsenal's Havertz to undergo surgery on torn hamstring injury**\
-`Arsenal forward Kai Havertz will begin a period of rehabilitation with a focus on being fit for the start of the 2025-26 season.`\
-https://nytimes.com/athletic/6131108/2025/02/13/havertz-injury-surgery-arsenal/
-
-**Ausar Thompson is becoming key to Pistons offense: 'You’re seeing him blossom'**\
-`"He’s just putting it all together now and it’s great to see,” says Pistons teammate Tobias Harris.`\
-https://nytimes.com/athletic/6134122/2025/02/13/pistons-ausar-thompson-offense/
-
-**Some Tenants Could Get Only One Day’s Eviction Notice, Under Federal Bill**\
-`Legislation would end tenant protections that were first put in place during the pandemic.`\
-https://nytimes.com/2025/02/13/realestate/eviction-30-day-notice-legislation.html
-
-**NCAA committee recommends adding flag football as emerging sport for women**\
-`The last sport to move through the program was women’s wrestling, which was approved last month to be the NCAA's 91st championship sport.`\
-https://nytimes.com/athletic/6134318/2025/02/13/ncaa-flag-football-womens-sports/
 
