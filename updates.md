@@ -1,3 +1,7 @@
+**Putin Scores a Big Victory, and Not on the Battlefield**\
+`Vladimir Putin’s call with President Trump reinforced the Russian leader’s view that Moscow and Washington should decide the fate of Ukraine — and other weighty matters.`\
+https://nytimes.com/2025/02/13/world/europe/putin-trump-call-russia-ukraine.html
+
 **Taiwan Prepares for Trump’s Tariffs, and a Changed Washington**\
 `Taiwanese officials, facing a more transactional U.S. relationship, have traveled to Washington to float energy deals and defend the island’s semiconductors.`\
 https://nytimes.com/2025/02/13/world/asia/taiwan-tariffs-trump.html
