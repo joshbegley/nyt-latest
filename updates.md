@@ -1,3 +1,7 @@
+**Notre Dame is hiring a new GM. So what does that actually mean?**\
+`We spoke to three general managers at the Power 4 level about where the job is heading and what specifically is needed at Notre Dame.`\
+https://nytimes.com/athletic/6133862/2025/02/13/notre-dame-football-general-manager-search/
+
 **How David Moyes' tactics prevented Liverpool playing forward from defence**\
 `Everton successfully blocked up the passing lanes into Ryan Gravenberch, and it took an hour before Arne Slot devised a plan to respond `\
 https://nytimes.com/athletic/6133684/2025/02/13/liverpool-gravenberch-everton-slot-tactics/
