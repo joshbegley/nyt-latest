@@ -1,3 +1,11 @@
+**Elon Musk Says He Will Drop OpenAI Bid if Company Preserves Nonprofit Mission**\
+`In a court filing, Mr. Musk said he and other investors would pull their $97.4 billion bid if OpenAI withdrew its plan to change its structure.`\
+https://nytimes.com/2025/02/13/technology/elon-musk-openai-nonprofit.html
+
+**Dutch football authorities refuse to replay game where one team played with 12**\
+`Fortuna made a double substitution, but only one of their players left the pitch and the officials failed to recognise the additional player`\
+https://nytimes.com/athletic/6134597/2025/02/13/dutch-football-12-players-heerenveen-van-persie/
+
 **Explained: Stake, Everton and how a porn star led to a Gambling Commission warning**\
 `The GC has warned Everton, Forest and Leicester of the risks of promoting “unlawful gambling websites” — what happens next?`\
 https://nytimes.com/athletic/6133814/2025/02/13/everton-stake-gambling-commission-nottingham-forest-leicester/

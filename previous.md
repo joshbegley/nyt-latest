@@ -1,3 +1,11 @@
+**Elon Musk Says He Will Drop OpenAI Bid if Company Preserves Nonprofit Mission**\
+`In a court filing, Mr. Musk said he and other investors would pull their $97.4 billion bid if OpenAI withdrew its plan to change its structure.`\
+https://nytimes.com/2025/02/13/technology/elon-musk-openai-nonprofit.html
+
+**Dutch football authorities refuse to replay game where one team played with 12**\
+`Fortuna made a double substitution, but only one of their players left the pitch and the officials failed to recognise the additional player`\
+https://nytimes.com/athletic/6134597/2025/02/13/dutch-football-12-players-heerenveen-van-persie/
+
 **Explained: Stake, Everton and how a porn star led to a Gambling Commission warning**\
 `The GC has warned Everton, Forest and Leicester of the risks of promoting “unlawful gambling websites” — what happens next?`\
 https://nytimes.com/athletic/6133814/2025/02/13/everton-stake-gambling-commission-nottingham-forest-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/arts/television/yellowjackets-recap-season-2.html
 **Yankees' Marcus Stroman absent from first two days of workouts**\
 `The Yankees have tried trading Stroman, who's owed $18.33 million in 2025, to no avail this offseason.`\
 https://nytimes.com/athletic/6134556/2025/02/13/yankees-marcus-stroman-camp-no-show/
-
-**At These Bars and Restaurants, a Valentine’s Day for the Rest of Us**\
-`On one of the biggest nights of the year for restaurants, a select few are saying no to the “corporatization” of romance and the singling out of single people.`\
-https://nytimes.com/2025/02/13/dining/anti-valentines-day-restaurants-bars.html
-
-**Stephen A. Smith says 'I wouldn’t mind being in office' as president. The chances aren’t zero**\
-`ESPN's Stephen A. Smith isn't running for U.S. president. That doesn't mean he wouldn't mind being president.`\
-https://nytimes.com/athletic/6134120/2025/02/13/stephen-a-smith-presidential-campaign-run/
 
