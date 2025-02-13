@@ -1,3 +1,7 @@
+**Grammys, L.A. Fires and Longevity: Students React to the News**\
+`Some favorite responses by teenagers to three recent Picture Prompts.`\
+https://nytimes.com/2025/02/13/learning/grammys-la-fires-and-longevity-students-react-to-the-news.html
+
 **Tracking Trump’s Biggest Climate Moves**\
 `In his first few weeks, President Trump has frozen climate spending, shaken up staffing at agencies like the E.P.A. and set off a wave of legal challenges.`\
 https://nytimes.com/2025/02/13/climate/tracking-trumps-biggest-climate-moves.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134806/2025/02/13/kellen-moore-new-orleans-saints-
 **Trump Targets an Ideal Born of a President’s Murder**\
 `The act of violence almost 150 years ago effectively gave birth to the civil service, that class of nonpartisan experts who cannot be hired or fired for political reasons.`\
 https://nytimes.com/2025/02/13/us/politics/trump-civil-service-history.html
-
-**Slovakia’s leader welcomes Trump’s outreach to broker peace in the Russia-Ukraine war.**\
-`By Andrew Higgins`\
-https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/slovakia-fico-peace-talks
 
