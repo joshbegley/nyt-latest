@@ -1,3 +1,7 @@
+**The Knicks' Jalen Brunson and the making of a winner**\
+`Brunson will never forget the first chance he had to win a game. It's helped him make the clutch shots, including Wednesday against Atlanta.`\
+https://nytimes.com/athletic/6133382/2025/02/13/knicks-jalen-brunson-game-winner-hawks/
+
 **Rosenthal: With Bregman signing, the Red Sox make an appropriate big-market flex**\
 `It's a significant step forward for an organization that has been too cautious, too conservative and too cheap for too long.`\
 https://nytimes.com/athletic/6133409/2025/02/13/alex-bregman-red-sox-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133397/2025/02/13/filip-gustavsson-4-nations-face-
 **What adding Alex Bregman means for the Red Sox infield, lineup, payroll and prospects**\
 `The Red Sox finally made their big free-agent splash, bringing Bregman into the fold. How will he fit in the lineup and infield?`\
 https://nytimes.com/athletic/6133365/2025/02/13/red-sox-alex-bregman-signing-analysis/
-
-**How Stefanos Tzimas went from Greece, to Germany's second tier, to Brighton in six months**\
-`Brighton's data-led recruitment model identified Tzimas as a hot prospect at PAOK, before six months at Nurnberg convinced them to swoop`\
-https://nytimes.com/athletic/6125596/2025/02/13/stefanos-tzimas-brighton-transfer-2/
 
