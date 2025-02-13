@@ -1,3 +1,11 @@
+**Russian markets soar after Trump-Putin call.**\
+`Russia’s main stock index skyrocketed and the ruble jumped, but experts warned that exuberance might be short-lived.`\
+https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/russia-economy-ukraine
+
+**At Least 4 Killed in Suspected Gas Explosion at Taiwan Shopping Mall**\
+`The deadly blast occurred in a food court. The island’s president ordered an investigation into the cause.`\
+https://nytimes.com/2025/02/13/world/asia/taiwan-gas-explosion-mall.html
+
 **Bubble Watch: Kansas State and Indiana suddenly have life**\
 `We welcomed a new crop of teams to Lockdom this week, while a couple of others clawed closer to the field.`\
 https://nytimes.com/athletic/6133294/2025/02/13/college-basketball-bubble-watch-indiana-kstate/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6127987/2025/02/13/raiders-mock-draft-nfl-malaki-st
 **James Chester: 'The age footballers retire, there's a lot of life ahead - I'm excited'**\
 `Defender Chester had the "most enjoyable" time of his career captaining Aston Villa to Wembley success - he's ready for future challenges`\
 https://nytimes.com/athletic/6126071/2025/02/13/james-chester-retirement-aston-villa-wales/
-
-**‘Paddington in Peru’ Review: Homeward Bound**\
-`The genial bear embarks on an Amazonian journey of self discovery in this movie, which cannot measure up to “Paddington 2” despite its charms.`\
-https://nytimes.com/2025/02/13/movies/paddington-in-peru-review.html
-
-**Maresca hopeful on five Chelsea injury returns after March international break**\
-`Maresca is optimistic Nicolas Jackson, Marc Guiu, Romeo Lavia, Wesley Fofana and Benoit Badiashile can return against Tottenham on April 2.`\
-https://nytimes.com/athletic/6133849/2025/02/13/chelsea-injury-update-maresca/
 
