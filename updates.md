@@ -1,3 +1,11 @@
+**In This Trump Presidency, the Domination Will be Televised**\
+`From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
+https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
+
+**Rubiales' lawyer: Hermoso 'not liking' kiss 'does not mean she did not give consent'**\
+`Olga Tubau made the argument as part of her closing comments in Rubiales' trial for sexual assault and coercion. He denies all charges`\
+https://nytimes.com/athletic/6134429/2025/02/13/luis-rubiales-lawyer-jenni-hermoso-kiss/
+
 **May Arugula Always Find Me**\
 `Its peppery leaves add verve to all sorts of dishes, including Melissa Clark’s roasted cauliflower salad and Yewande Komolafe’s savory Dutch baby.`\
 https://nytimes.com/2025/02/13/dining/may-arugula-always-find-me.html
