@@ -1,3 +1,7 @@
+**Senate Confirms Kennedy, a Prominent Vaccine Skeptic, as Health Secretary**\
+`The vote capped a remarkable rise for Robert F. Kennedy Jr., who was confirmed by a Republican Senate in a chamber where his father and uncles once served as Democrats.`\
+https://nytimes.com/2025/02/13/us/rfk-jr-hhs-senate-confirmation.html
+
 **Padres sign starter Kyle Hart to a one-year deal to boost back of rotation**\
 `Hart pitched for the KBO’s NC Dinos last season, logging a 2.69 ERA in 157 innings and drawing widespread interest from big-league clubs.`\
 https://nytimes.com/athletic/6134561/2025/02/13/padres-sign-starter-kyle-hart/
