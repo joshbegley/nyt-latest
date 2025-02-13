@@ -2,7 +2,7 @@
 `The NBA tries a new format for its All-Star game in San Francisco. Plus, remembering the night Vince Carter reinvented the dunk contest. `\
 https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-star-weekend/
 
-**Meta investigating after Everton's Doucoure racially abused on Instagram**\
+**Liverpool and Everton condemn online racist abuse of Doucoure**\
 `The 32-year-old midfielder received multiple racist replies to a post he made after the Merseyside derby.`\
 https://nytimes.com/athletic/6133860/2025/02/13/abdoulaye-doucoure-everton-racist-abuse/
 
