@@ -1,3 +1,11 @@
+**NASCAR says judge made errors in latest antitrust lawsuit ruling**\
+`NASCAR has accused a district court judge of making numerous errors leading to what the company claims is an incorrect decision in the suit.`\
+https://nytimes.com/athletic/6133157/2025/02/12/nascar-ruling-front-row-motorsports-23xi-racing-lawsuit/
+
+**As Alex Bregman watch continues, Cubs open Spring Training with options: Takeaways**\
+`Ahead of spring training, the Cubs have prepared for all kinds of possibilities in the rotation and in the lineup. `\
+https://nytimes.com/athletic/6133153/2025/02/12/chicago-cubs-spring-training-takeaways-pitching-nico-hoerner/
+
 **Canada loses defenseman Shea Theodore to injury in 4 Nations Face-Off opener**\
 `Team Canada is down a defenseman one game into the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6133250/2025/02/12/canada-4-nations-face-off-shea-theodore-injury-update/
