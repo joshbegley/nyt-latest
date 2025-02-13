@@ -1,3 +1,7 @@
+**The Hundred franchise stakes sold for over half a billion**\
+`Each bid now enters an exclusivity process and if concluded will result in £520m of investment filtering into leagues governed by the ECB.`\
+https://nytimes.com/athletic/6133747/2025/02/13/hundred-cricket-franchises-investment/
+
 **Hamas Signals Progress Toward Resumed Hostage Releases**\
 `Hamas said that mediators between the two sides were working “to remove obstacles and close gaps” after the cease-fire deal hit a roadblock.`\
 https://nytimes.com/2025/02/13/world/middleeast/gaza-israel-ceasefire-hostages.html
