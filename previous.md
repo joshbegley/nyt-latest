@@ -1,3 +1,7 @@
+**Villanova snaps No. 9 St. John's 10-game Big East win streak**\
+`Madison Square Garden will host a showdown for the conference lead between St. John's and Creighton on Sunday.`\
+https://nytimes.com/athletic/6133117/2025/02/12/villanova-st-johns-mens-basketball-upset-results-analysis/
+
 **Here Are the Names of 53 Migrants Taken to Guantánamo Bay**\
 `The Times has obtained a list of the names of the men, whom the U.S. government has described as Venezuelan citizens under final deportation orders.`\
 https://nytimes.com/2025/02/12/us/politics/gitmo-migrants-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/12/technology/musk-x-settles-trump-lawsuit.html
 **Dodgers are willing to let Roki Sasaki pitch from the start — even possibly in Japan**\
 `Sasaki's bullpen drew a crowd as team officials, media members and even players watched the 23-year-old get to work.`\
 https://nytimes.com/athletic/6132814/2025/02/12/roki-sasaki-dodgers-pitching-plans/
-
-**When Musk’s Team Shows Up at Your Doorstep**\
-`The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
-https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
 
