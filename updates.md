@@ -1,3 +1,11 @@
+**Michael Longley, 85, Northern Irish Poet of Nature and ‘the Troubles,’ Dies**\
+`“Ceasefire,” his most famous poem, invoked the “Iliad” in exploring his country’s sectarian strife. But his work wasn’t Homeric in length: “Michael was a miniaturist.”`\
+https://nytimes.com/2025/02/13/books/michael-longley-dead.html
+
+**Trump’s Funding Freezes Bruise a Core Constituency: Farmers**\
+`A rapid-fire array of directives by the Trump administration have left farmers and businesses in rural America reeling.`\
+https://nytimes.com/2025/02/13/us/politics/trump-funding-freeze-farmers.html
+
 **Chiefs give Travis Kelce until mid-March to decide NFL future: Source**\
 `The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
 https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/

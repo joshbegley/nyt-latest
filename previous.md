@@ -1,3 +1,11 @@
+**Michael Longley, 85, Northern Irish Poet of Nature and ‘the Troubles,’ Dies**\
+`“Ceasefire,” his most famous poem, invoked the “Iliad” in exploring his country’s sectarian strife. But his work wasn’t Homeric in length: “Michael was a miniaturist.”`\
+https://nytimes.com/2025/02/13/books/michael-longley-dead.html
+
+**Trump’s Funding Freezes Bruise a Core Constituency: Farmers**\
+`A rapid-fire array of directives by the Trump administration have left farmers and businesses in rural America reeling.`\
+https://nytimes.com/2025/02/13/us/politics/trump-funding-freeze-farmers.html
+
 **Until Saturday: 2 CFB angles for this NFL Draft**\
 `Welcome to Until Saturday, The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6134797/2025/02/13/college-football-nfl-draft-ohio-state-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/business/igloo-cooler-injuries-recall.html
 **Heat Today: Inconsistent offense, untimely droughts are main culprits for late collapses**\
 `Since Jan. 22, the day after Jimmy Butler’s last game in a Miami uniform, the team has the NBA’s worst offense.`\
 https://nytimes.com/athletic/6134550/2025/02/13/miami-heat-tyler-herro-bam-adebayo-erik-spoelstra-nba/
-
-**Liverpool's Gomez undergoing tests on hamstring injury amid lengthy lay-off fears**\
-`Joe Gomez is undergoing further tests amid fears that the Liverpool defender is facing another lengthy spell on the sidelines.`\
-https://nytimes.com/athletic/6134799/2025/02/13/liverpool-joe-gomez-hamstring-injury-update-scan/
-
-**Chiefs give Travis Kelce until mid-March to decide NFL future: Source**\
-`The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
-https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
 
