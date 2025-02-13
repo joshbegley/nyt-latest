@@ -1,5 +1,5 @@
 **Virginia Tech zeroes in on new OC from Bills staff: Source**\
-`The Hokies are zeroing in on Christian Taylor, a Buffalo Bills assistant and former Willliam & Mary coordinator, to be their new OC.`\
+`The Hokies are targeting Christian Taylor, a Buffalo Bills assistant and former William & Mary offensive coordinator, to be their new OC.`\
 https://nytimes.com/athletic/6135496/2025/02/13/christian-taylor-virginia-tech-offensive-coordinator/
 
 **Maresca: 'Completely wrong' for teams to play on deadline day**\
