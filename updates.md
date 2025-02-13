@@ -1,3 +1,7 @@
+**Southern California Braces for Storm Damage in Wildfire Areas**\
+`An intense storm could cause flooding and debris flows in areas burned by wildfires. Some residents have begun to evacuate.`\
+https://nytimes.com/2025/02/13/weather/california-storm-flooding.html
+
 **Donald Trump’s Chicken-and-Egg Problem**\
 `A surge in egg prices underscores how persistent inflation is spooking the markets and could check the president’s boldest economic policies.`\
 https://nytimes.com/2025/02/13/business/dealbook/trump-inflation-egg-prices.html

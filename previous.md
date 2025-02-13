@@ -1,3 +1,7 @@
+**Southern California Braces for Storm Damage in Wildfire Areas**\
+`An intense storm could cause flooding and debris flows in areas burned by wildfires. Some residents have begun to evacuate.`\
+https://nytimes.com/2025/02/13/weather/california-storm-flooding.html
+
 **Donald Trump’s Chicken-and-Egg Problem**\
 `A surge in egg prices underscores how persistent inflation is spooking the markets and could check the president’s boldest economic policies.`\
 https://nytimes.com/2025/02/13/business/dealbook/trump-inflation-egg-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/13/world/russia-ukraine-war-trump/russia-econom
 **At Least 4 Killed in Suspected Gas Explosion at Taiwan Shopping Mall**\
 `The deadly blast occurred in a food court. The island’s president ordered an investigation into the cause.`\
 https://nytimes.com/2025/02/13/world/asia/taiwan-gas-explosion-mall.html
-
-**Bubble Watch: Kansas State and Indiana suddenly have life**\
-`We welcomed a new crop of teams to Lockdom this week, while a couple of others clawed closer to the field.`\
-https://nytimes.com/athletic/6133294/2025/02/13/college-basketball-bubble-watch-indiana-kstate/
 
