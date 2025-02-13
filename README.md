@@ -4,7 +4,7 @@ https://nytimes.com/2025/02/13/nyregion/adams-ice-rikers-homan.html
 
 **Map: 3.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/02/13/us/13wea-quake-tracker-san-francisco-bay-area.html
+https://nytimes.com/interactive/2025/02/13/us/earthquake-hayward-san-francisco-bay-area.html
 
 **Padres, A.J. Preller continue to be ‘creative’ while dispelling notions of a retreat**\
 `Despite so many things changing for the Padres, particularly at the top, Preller's aggressive style remains.`\
