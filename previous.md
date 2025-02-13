@@ -1,3 +1,7 @@
+**With an Evil Empire’s Power Comes Great Responsibility**\
+`Weighty player choices give the fantasy role-playing game Avowed an impressive central narrative. But simplistic combat and rote side quests keep it from excellence.`\
+https://nytimes.com/2025/02/13/arts/avowed-review.html
+
 **Ukraine’s Borders in Maps: Pre-2014 Invasion to Now**\
 `Ukraine’s government wants to restore the country’s frontier to where it was before Russia launched its first invasion more than a decade ago. The U.S. defense secretary said that was “unrealistic.”`\
 https://nytimes.com/2025/02/13/world/europe/ukraine-borders-pre-2014-map-war.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6133847/2025/02/13/liverpool-arne-slot-red-ban/
 https://nytimes.com/athletic/6129972/2025/02/13/usl-launch-division-1-league-us-soccer-mls/
 
 **Italy's Federica Brignone wins giant slalom at worlds; American Paula Moltzan takes bronze**\
-`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday, with Moltzan sneaking into the No. 3 spot.`\
+`Italy's Federica Brignone and New Zealand's Alice Robinson blew away the field Thursday with Moltzan sneaking into the No. 3 spot.`\
 https://nytimes.com/athletic/6133941/2025/02/13/paula-moltzan-giant-slalom-bronze-alpine-skiing-world-championships/
 
 **Cubarsi signs new Barcelona contract through to 2029**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6129025/2025/02/13/nba-lookahead-kevin-durant-all-s
 **Liverpool and Everton condemn online racist abuse of Doucoure**\
 `The 32-year-old midfielder received multiple racist replies to a post he made after the Merseyside derby.`\
 https://nytimes.com/athletic/6133860/2025/02/13/abdoulaye-doucoure-everton-racist-abuse/
-
-**Southern California Braces for Storm Damage in Wildfire Areas**\
-`An intense storm could cause flooding and debris flows in areas burned by wildfires. Some residents have begun to evacuate.`\
-https://nytimes.com/2025/02/13/weather/california-storm-flooding.html
 
