@@ -1,3 +1,15 @@
+**Mayor Adams to Sign Order Allowing ICE Agents Into Rikers Island**\
+`The executive order seems to conflict with New York City’s sanctuary laws designed to prevent cooperation with the enforcement of federal immigration law.`\
+https://nytimes.com/2025/02/13/nyregion/adams-ice-rikers-homan.html
+
+**Map: 3.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/13/us/earthquake-hayward-san-francisco-bay-area.html
+
+**Padres, A.J. Preller continue to be ‘creative’ while dispelling notions of a retreat**\
+`Despite so many things changing for the Padres, particularly at the top, Preller's aggressive style remains.`\
+https://nytimes.com/athletic/6134478/2025/02/13/padres-aj-preller-offseason/
+
 **For These 20-Somethings, Trump ‘Is Making It Sexy’ to Be Republican**\
 `A “MAGA Youth” dinner in Manhattan gave young Trump supporters a place to socialize and celebrate the new administration.`\
 https://nytimes.com/2025/02/13/style/trump-maga-youth-republicans.html

@@ -1,3 +1,15 @@
+**Mayor Adams to Sign Order Allowing ICE Agents Into Rikers Island**\
+`The executive order seems to conflict with New York City’s sanctuary laws designed to prevent cooperation with the enforcement of federal immigration law.`\
+https://nytimes.com/2025/02/13/nyregion/adams-ice-rikers-homan.html
+
+**Map: 3.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/13/us/earthquake-hayward-san-francisco-bay-area.html
+
+**Padres, A.J. Preller continue to be ‘creative’ while dispelling notions of a retreat**\
+`Despite so many things changing for the Padres, particularly at the top, Preller's aggressive style remains.`\
+https://nytimes.com/athletic/6134478/2025/02/13/padres-aj-preller-offseason/
+
 **For These 20-Somethings, Trump ‘Is Making It Sexy’ to Be Republican**\
 `A “MAGA Youth” dinner in Manhattan gave young Trump supporters a place to socialize and celebrate the new administration.`\
 https://nytimes.com/2025/02/13/style/trump-maga-youth-republicans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6135218/2025/02/13/boston-red-sox-alex-bregman-colu
 **Authorities Believe Car Crash in Munich Was a Deliberate Attack**\
 `German politicians wasted little time before adding to growing tensions around immigration after authorities said a 24-year-old asylum seeker from Afghanistan crashed a car into a union demonstration in Munich on Thursday, injuring more than two dozen people.`\
 https://nytimes.com/video/world/europe/100000009989408/munich-car-crash-attack.html
-
-**What is a hamstring injury? How long does it take to recover? What are the grades of injury?**\
-`A number of players, including Arsenal's Kai Havertz and Chelsea's Nicolas Jackson, have suffered hamstring injuries - how do they happen?`\
-https://nytimes.com/athletic/3277910/2025/02/13/what-is-hamstring-strain-tear/
-
-**This City’s Sewer System Is Full of Alligators, but It’s Not New York**\
-`Researchers found crocodilians, bats, raccoons and other creatures prowling a Florida town’s storm drains, “like something out of ‘Teenage Mutant Ninja Turtles,’” one said.`\
-https://nytimes.com/2025/02/13/science/alligators-sewers-florida.html
-
-**U.S. Park Service Strikes Transgender References From Stonewall Website**\
-`The “T” was removed in references to L.G.B.T.Q.+ on the official site for the Greenwich Village monument, which marks a milestone in the fight for gay rights.`\
-https://nytimes.com/2025/02/13/nyregion/stonewall-transgender-parks-service.html
 
