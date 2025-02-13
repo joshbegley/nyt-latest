@@ -1,3 +1,15 @@
+**How can Commanders catch the Eagles? The playoffs offered suggestions**\
+`Closing the gap with Philadelphia in the NFC East will be one of Washington's many goals heading into the 2025 season. `\
+https://nytimes.com/athletic/6130295/2025/02/13/commanders-eagles-nfl-draft-nfc-east/
+
+**Ravens mock draft 1.0: Early edge rusher, solidifying offensive and defensive lines**\
+`With as many as 11 picks to work with, which team needs will GM Eric DeCosta and Baltimore address in this year's draft?`\
+https://nytimes.com/athletic/6133204/2025/02/13/baltimore-ravens-2025-mock-draft/
+
+**College baseball coaches on NIL, transfer portal: The Athletic’s coaches forum**\
+`The combination of NIL and the transfer portal has dramatically impacted roster construction in college baseball over the past few seasons. `\
+https://nytimes.com/athletic/6128817/2025/02/13/college-baseball-coaches-nil-transfer-portal/
+
 **Singing to Trees to Make Good Cider: An Ancient English Ritual Is Back**\
 `The centuries-old tradition of wassailing is making a comeback in rural England, with rituals and revelry meant to chase away evil spirits and the winter blues.`\
 https://nytimes.com/2025/02/13/world/europe/england-wassailing-cider-tradition.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6128969/2025/02/13/falcons-2025-mock-draft-will-joh
 **Modi to Meet Trump With Eyes on Trade and Immigration**\
 `Prime Minister Narendra Modi of India, who has a warm relationship with President Trump, may try to ease friction over migrants and trade.`\
 https://nytimes.com/2025/02/13/us/modi-trump-trade-immigration.html
-
-**Behold the Strange Spectacle of Christians Against Empathy**\
-`There is nothing woke about medicine or food.`\
-https://nytimes.com/2025/02/13/opinion/trump-usaid-evangelicals.html
-
-**Tinted Lip Balms to Brighten Winter Days**\
-`Plus: a Cornwall cottage, an upstate New York cafe serving up dumplings and more recommendations from T Magazine.`\
-https://nytimes.com/2025/02/13/t-magazine/tinted-lip-balm.html
-
-**In Miami, a Young Family Sought a House to Grow Into. Would $750,000 Be Enough?**\
-`With a new baby and new jobs, a couple searched the city’s residential neighborhoods with ‘little idea of what the real Miami might be.’ Here’s what they found.`\
-https://nytimes.com/interactive/2025/02/13/realestate/miami-home-sale-prices.html
 
