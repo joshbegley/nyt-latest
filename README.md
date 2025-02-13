@@ -1,3 +1,11 @@
+**Alex Bregman’s rejection of the Tigers is a reminder of harsh realities**\
+`The Tigers made a competitive offer for Alex Bregman but finished as runners up. Do they have enough offense without him?`\
+https://nytimes.com/athletic/6134939/2025/02/13/alex-bregman-detroit-tigers-rejection/
+
+**Senate Confirms Brooke Rollins as Agriculture Secretary**\
+`In a rare show of bipartisan support for a Trump cabinet nominee, Ms. Rollins sailed through the confirmation process and will now lead the agency responsible for securing the nation’s food supply.`\
+https://nytimes.com/2025/02/13/us/politics/brooke-rollins-agriculture-secretary.html
+
 **As Trump Threatened a Primary, a G.O.P. Holdout on Hegseth Flipped**\
 `Before Senator Thom Tillis voted to confirm Pete Hegseth as defense secretary, he worked with accusers to make the case against him in a bid to get G.O.P. leaders to scrap the vote altogether.`\
 https://nytimes.com/2025/02/13/us/politics/hegseth-trump-tillis-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/13/learning/whats-going-on-in-this-picture-feb-24-20
 **It’s Little Treat O’Clock**\
 `These homemade sweets are ready in 25 minutes or less.`\
 https://nytimes.com/2025/02/13/dining/fast-dessert-recipes.html
-
-**Jack Eichel on Golden Knights teammate Shea Theodore's injury at 4 Nations: 'Really sucks for our team'**\
-`Vegas announced Thursday that the defenseman, injured in the international tournament's opener, is out week-to-week.`\
-https://nytimes.com/athletic/6134928/2025/02/13/shea-theodore-4-nations-injury-jack-eichel/
-
-**New Saints coach Kellen Moore calls Derek Carr 'tremendous' but noncommittal on QB's status**\
-`The league's youngest head coach takes over a New Orleans team that has not made the playoffs in four seasons.`\
-https://nytimes.com/athletic/6134806/2025/02/13/kellen-moore-new-orleans-saints-derek-carr/
 
