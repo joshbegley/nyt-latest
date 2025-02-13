@@ -1,3 +1,7 @@
+**As Trump Threatened a Primary, a G.O.P. Holdout on Hegseth Flipped**\
+`Before Senator Thom Tillis voted to confirm Pete Hegseth as defense secretary, he worked with accusers to make the case against him in a bid to get G.O.P. leaders to scrap the vote altogether.`\
+https://nytimes.com/2025/02/13/us/politics/hegseth-trump-tillis-senate.html
+
 **Grammys, L.A. Fires and Longevity: Students React to the News**\
 `Some favorite responses by teenagers to three recent Picture Prompts.`\
 https://nytimes.com/2025/02/13/learning/grammys-la-fires-and-longevity-students-react-to-the-news.html

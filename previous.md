@@ -1,3 +1,7 @@
+**As Trump Threatened a Primary, a G.O.P. Holdout on Hegseth Flipped**\
+`Before Senator Thom Tillis voted to confirm Pete Hegseth as defense secretary, he worked with accusers to make the case against him in a bid to get G.O.P. leaders to scrap the vote altogether.`\
+https://nytimes.com/2025/02/13/us/politics/hegseth-trump-tillis-senate.html
+
 **Grammys, L.A. Fires and Longevity: Students React to the News**\
 `Some favorite responses by teenagers to three recent Picture Prompts.`\
 https://nytimes.com/2025/02/13/learning/grammys-la-fires-and-longevity-students-react-to-the-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134928/2025/02/13/shea-theodore-4-nations-injury-j
 **New Saints coach Kellen Moore calls Derek Carr 'tremendous' but noncommittal on QB's status**\
 `The league's youngest head coach takes over a New Orleans team that has not made the playoffs in four seasons.`\
 https://nytimes.com/athletic/6134806/2025/02/13/kellen-moore-new-orleans-saints-derek-carr/
-
-**Trump Targets an Ideal Born of a President’s Murder**\
-`The act of violence almost 150 years ago effectively gave birth to the civil service, that class of nonpartisan experts who cannot be hired or fired for political reasons.`\
-https://nytimes.com/2025/02/13/us/politics/trump-civil-service-history.html
 
