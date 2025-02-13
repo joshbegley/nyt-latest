@@ -1,3 +1,11 @@
+**Curry, Ionescu will not run back 3-point contest at All-Star Weekend: Sources**\
+`League officials attempted to resurrect the Curry-Ionescu competition in some form as late as Wednesday, multiple league sources said.`\
+https://nytimes.com/athletic/6129842/2025/02/13/stephen-curry-sabrina-ionescu-3-point-contest-all-star-weekend-off/
+
+**Submit questions for Scott Wheeler's prospects and NHL Draft mailbag**\
+`This week, The Athletic’s prospects writer Scott Wheeler released his annual top 100 drafted NHL prospects ranking and a new ranking for the 2025 NHL Draft. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
+https://nytimes.com/athletic/6134405/2025/02/13/nhl-draft-prospects-mailbag-february-2025/
+
 **Arsenal's Havertz to undergo surgery on torn hamstring injury**\
 `Arsenal forward Kai Havertz will begin a period of rehabilitation with a focus on being fit for the start of the 2025-26 season.`\
 https://nytimes.com/athletic/6131108/2025/02/13/havertz-injury-surgery-arsenal/
