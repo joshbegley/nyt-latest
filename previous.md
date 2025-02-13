@@ -1,4 +1,8 @@
-**Adams Donor Is Accused of Taking Millions From Emergency Housing Program**\
+**Chiefs give Travis Kelce until mid-March to decide future: Source**\
+`The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
+https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
+
+**Adams Donor Took Millions From Covid Housing Plan for Inmates, U.S. Says**\
 `Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
 https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/style/therapy-clothes.html
 **Watch: What's going on with Mark Williams and Dalton Knecht?**\
 `NBA Daily discuss the ongoing dispute between the Los Angeles Lakers and Charlotte Hornets over the rescinded Mark Williams trade.`\
 https://nytimes.com/athletic/6134152/2025/02/13/nba-daily-mark-williams-dalton-knecht/
-
-**In This Trump Presidency, the Domination Will be Televised**\
-`From the Super Bowl to a self-produced version of “Cops,” the second Trump administration is using imagery to project an air of authority and invincibility.`\
-https://nytimes.com/2025/02/13/arts/television/donald-trump-tv-ice.html
 

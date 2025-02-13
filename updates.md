@@ -1,3 +1,11 @@
+**Chiefs give Travis Kelce until mid-March to decide future: Source**\
+`The Chiefs are hoping Kelce decides to remain with the team for the 2025 season.`\
+https://nytimes.com/athletic/6134788/2025/02/13/travis-kelce-retirement-decision-timeline-chiefs/
+
+**Adams Donor Took Millions From Covid Housing Plan for Inmates, U.S. Says**\
+`Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
+https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
+
 **Adams Donor Is Accused of Taking Millions From Emergency Housing Program**\
 `Brooklyn’s U.S. attorney said Weihong Hu and two men set out to “line their own pockets” at the height of the pandemic. Ms. Hu has helped raise funds for Mayor Eric Adams of New York.`\
 https://nytimes.com/2025/02/13/nyregion/adams-donor-weihong-hu-indicted.html
