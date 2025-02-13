@@ -16,7 +16,7 @@ https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
 
 **14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
 `Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
-https://nytimes.com/2025/02/13/us/politics/elon-musk-doge-lawsuits.html
+https://nytimes.com/live/2025/02/13/us/trump-news/elon-musk-doge-lawsuits
 
 **Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
 `He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
