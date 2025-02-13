@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 `\
 https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
 
+**No Havertz, no striker... what on earth do Arsenal do now?**\
+`Arsenal took a clear and collective decision not to invest last month. That decision now appears set to haunt them
+`\
+https://nytimes.com/athletic/6131957/2025/02/13/arsenal-havertz-injury-what-now/
+
 **How did Newcastle's Lloyd Kelly end up in the Champions League with Juventus?**\
 `The defender moved to Tyneside on a free last summer but, with only a handful of games to his name, will end the season at the Turin giants`\
 https://nytimes.com/athletic/6125575/2025/02/13/juventus-lloyd-kelly-newcastle-champions-league/
