@@ -1,3 +1,11 @@
+**State Dept. plans $400 million order for armored trucks from Musk’s Tesla.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/02/12/us/trump-news-gabbard-rfk/state-dept-plans-400-million-order-for-armored-trucks-from-musks-tesla
+
+**Tigers sign right-hander John Brebbia to one-year deal**\
+`Veteran reliever is coming off a rough 2024, but Detroit likes his ability to miss bats.`\
+https://nytimes.com/athletic/6133050/2025/02/12/tigers-sign-right-hander-john-brebbia-to-one-year-deal/
+
 **When Musk’s Team Shows Up at Your Doorstep**\
 `The upheaval at the Consumer Financial Protection Bureau offers a glimpse into the playbook that Elon Musk and other Trump allies seem to be writing in real time.`\
 https://nytimes.com/2025/02/12/us/politics/elon-musk-doge-cfpb-trump.html
