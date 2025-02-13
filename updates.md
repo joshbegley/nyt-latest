@@ -1,3 +1,11 @@
+**‘Notes on Displacement’ Review: Seeking a Fresh Start in Europe**\
+`The artist and director Khaled Jarrar accompanies a group of people from Syria on their way to Germany in this documentary.`\
+https://nytimes.com/2025/02/13/movies/notes-on-displacement-review.html
+
+**Driver Arrested After Injuring Several in Munich Crowd**\
+`The police in Munich said they had arrested an Afghan asylum seeker who was known to them after a car drove into a demonstration by a major German union. More than two dozen people were injured, including children.`\
+https://nytimes.com/video/world/europe/100000009988439/driver-arrested-after-injuring-several-in-munich-crowd.html
+
 **With an Evil Empire’s Power Comes Great Responsibility**\
 `Weighty player choices give the fantasy role-playing game Avowed an impressive central narrative. But simplistic combat and rote side quests keep it from excellence.`\
 https://nytimes.com/2025/02/13/arts/avowed-review.html
