@@ -1,3 +1,11 @@
+**No Tubman, No Rainbows: Defense Schools Prepared for Hegseth’s Wife**\
+`The American schools at the NATO headquarters were scrambling to comply with Trump diversity, equity and inclusion rollbacks. An expected visit from Pete Hegseth’s wife intensified that effort.`\
+https://nytimes.com/2025/02/13/world/europe/nato-school-dei-hegseth.html
+
+**Alex Bregman signing signals Red Sox are back and baseball may be past cheating scandal**\
+`Alex Cora addressed sign-stealing topic again, taking responsibility and saying, “We made a mistake in ’17, and some of us paid the price."`\
+https://nytimes.com/athletic/6135218/2025/02/13/boston-red-sox-alex-bregman-column/
+
 **Authorities Believe Car Crash in Munich Was a Deliberate Attack**\
 `German politicians wasted little time before adding to growing tensions around immigration after authorities said a 24-year-old asylum seeker from Afghanistan crashed a car into a union demonstration in Munich on Thursday, injuring more than two dozen people.`\
 https://nytimes.com/video/world/europe/100000009989408/munich-car-crash-attack.html
