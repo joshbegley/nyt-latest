@@ -1,3 +1,15 @@
+**The Best Argument Against Having Faith in God**\
+`Why the problem of evil is not really an argument for atheism.`\
+https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
+
+**As a White Man, Can I Date Women of Color to Advance My Antiracism?**\
+`The magazine’s Ethicist columnist on interracial dating as a sociopolitical strategy.`\
+https://nytimes.com/2025/02/14/magazine/interracial-dating-antiracism-ethics.html
+
+**Tensions Over F.B.I.’s Work on Hamas Case Spill Into the Open**\
+`The Justice Department’s request for information about a splashy case brought by prosecutors in New York thrust into public view tensions that have only deepened under the Trump administration.`\
+https://nytimes.com/2025/02/14/us/politics/fbi-justice-dept-hamas.html
+
 **Man Pleads Guilty in Shooting of Teen Who Went to the Wrong Door**\
 `Andrew D. Lester, a Kansas City resident in his 80s, was charged with felonies in the shooting of Ralph Yarl, a teen who rang his doorbell.`\
 https://nytimes.com/2025/02/14/us/andrew-lester-ralph-yarl-kansas-city.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 **USMNT's Pochettino takes on legends, influencers in 'Match for Hope'**\
 `The U.S. manager takes a detour to Qatar for a charity match before the Concacaf Nations League semifinals.`\
 https://nytimes.com/athletic/6137259/2025/02/14/mauricio-pochettino-usmnt-match-for-hope-speed-iniesta/
-
-**Sabrina Carpenter Flirts With Country, and 12 More New Songs**\
-`Hear Dolly Parton duet with the young star and tracks from Selena Gomez and Benny Blanco, plus Drake and PartyNextDoor.`\
-https://nytimes.com/2025/02/14/arts/music/playlist-sabrina-carpenter-dolly-parton.html
-
-**Judge Blocks Trump’s Plan to End Funds to Hospitals That Treat Young Trans Patients**\
-`The judge considered the matter in a Seattle courtroom a day after a judge in Baltimore temporarily halted the administration’s plan in a separate lawsuit.`\
-https://nytimes.com/2025/02/14/us/seattle-judge-trump-trans-youth-hospitals.html
-
-**Diagram: How the Justice Department Resignations Unfolded**\
-`More than half a dozen government attorneys have resigned since an order by the Trump administration’s Justice Department to drop charges against Mayor Eric Adams of New York City.`\
-https://nytimes.com/interactive/2025/02/14/us/doj-resignations-trump-adams.html
 
