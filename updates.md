@@ -1,3 +1,15 @@
+**Judge Blocks Trump’s Plan to End Funds to Hospitals That Treat Young Trans Patients**\
+`The judge considered the matter in a Seattle courtroom a day after a judge in Baltimore temporarily halted the administration’s plan in a separate lawsuit.`\
+https://nytimes.com/2025/02/14/us/seattle-judge-trump-trans-youth-hospitals.html
+
+**Diagram: How the Justice Department Resignations Unfolded**\
+`More than half a dozen government attorneys have resigned since an order by the Trump administration’s Justice Department to drop charges against Mayor Eric Adams of New York City.`\
+https://nytimes.com/interactive/2025/02/14/us/doj-resignations-trump-adams.html
+
+**Premier League APT rules declared 'void and unenforceable' in victory for Man City**\
+`Clubs could now claim compensation for deals agreed between December 2021 and November 2024 that may have been undervalued.`\
+https://nytimes.com/athletic/6137204/2025/02/14/manchester-city-legal-victory-premier-league-apt/
+
 **NASCAR moves Daytona 500 start up 1 hour with rain in forecast**\
 `The speedway encouraged attendees to arrive early due to "increased security measures," as President Donald Trump is expected to attend.`\
 https://nytimes.com/athletic/6137258/2025/02/14/nascar-daytona-500-start-time-change/

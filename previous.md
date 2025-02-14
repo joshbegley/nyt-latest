@@ -1,3 +1,15 @@
+**Judge Blocks Trump’s Plan to End Funds to Hospitals That Treat Young Trans Patients**\
+`The judge considered the matter in a Seattle courtroom a day after a judge in Baltimore temporarily halted the administration’s plan in a separate lawsuit.`\
+https://nytimes.com/2025/02/14/us/seattle-judge-trump-trans-youth-hospitals.html
+
+**Diagram: How the Justice Department Resignations Unfolded**\
+`More than half a dozen government attorneys have resigned since an order by the Trump administration’s Justice Department to drop charges against Mayor Eric Adams of New York City.`\
+https://nytimes.com/interactive/2025/02/14/us/doj-resignations-trump-adams.html
+
+**Premier League APT rules declared 'void and unenforceable' in victory for Man City**\
+`Clubs could now claim compensation for deals agreed between December 2021 and November 2024 that may have been undervalued.`\
+https://nytimes.com/athletic/6137204/2025/02/14/manchester-city-legal-victory-premier-league-apt/
+
 **NASCAR moves Daytona 500 start up 1 hour with rain in forecast**\
 `The speedway encouraged attendees to arrive early due to "increased security measures," as President Donald Trump is expected to attend.`\
 https://nytimes.com/athletic/6137258/2025/02/14/nascar-daytona-500-start-time-change/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.
 **Listen: Our favourite Tottenham managers and memories of covering them**\
 `The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
 https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
-
-**Republican Senator ‘Disturbed’ by Hegseth’s Comments About Ukraine**\
-`Senator Roger Wicker of Mississippi, the chairman of the Armed Services Committee, said the defense secretary made a ‘rookie mistake.’`\
-https://nytimes.com/2025/02/14/us/politics/hegseths-wicker-ukraine.html
-
-**Rare February Downpours Expected in the Eastern U.S. This Weekend**\
-`A developing springlike storm will bring a flood risk that is highly unusual for this time of year. Tornadoes, ice and snow are also forecast.`\
-https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.html
-
-**Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
-`Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
-https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html
 
