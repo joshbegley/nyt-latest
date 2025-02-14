@@ -1,3 +1,11 @@
+**Kyrie Irving, Mavericks haven't let February chaos sink their season**\
+`Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
+https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
+
+**The Bounce: The NBA needs All-Star 2025 to work. Plus, why the 76ers should give up**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6136335/2025/02/14/nba-all-star-weekend-lebron-james-steph-curry-the-bounce/
+
 **Why Trump’s Plan to Relocate Gazans Is Untenable for Jordan**\
 `President Trump’s plan would send a huge number of refugees to Jordan, adding new frictions to the kingdom’s often tense, sometimes violent history with displaced Palestinians.`\
 https://nytimes.com/2025/02/14/world/middleeast/trump-gaza-takeover-jordan.html
