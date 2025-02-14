@@ -1,3 +1,11 @@
+**The Pulse: An American rout**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6135184/2025/02/14/united-states-finland-4-nations-the-pulse/
+
+**FPL live Q&A: FPL Gameweek 25 advice from Ben Dinnery**\
+`Fantasy Premier League live Q&A: FPL Gameweek 25 advice from Ben Dinnery`\
+https://nytimes.com/athletic/6131092/2025/02/14/fantasy-premier-league-advice-gw25-tips/
+
 **Remnants of a Roman Basilica Are Found Under a London Office Building**\
 `The 2,000-year-old basilica was “once the beating heart of Roman London,” the Museum of London Archaeology said.`\
 https://nytimes.com/2025/02/14/world/europe/london-roman-basilica.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6135188/2025/02/14/bills-2025-free-agents-rasul-dou
 **Warriors legend Rick Barry reflects on how he rocked the Cow Palace in 1967 All-Star Game**\
 `A 22-year-old Barry scored 38 points in a contest that featured 18 Hall of Famers. "Yeah, it was pretty damn good."`\
 https://nytimes.com/athletic/6125439/2025/02/14/rick-barry-warriors-nba-all-star-game-cow-palace/
-
-**Arsenal live Q&A: Our club correspondent Jordan Campbell answers your questions**\
-`Get your questions in now for Jordan and he will be with you between 4pm and 5pm GMT (11am to 12pm ET) to answer as many as he can.`\
-https://nytimes.com/athletic/6134635/2025/02/14/arsenal-havertz-transfers-dubai/
-
-**Wrexham's new Kop stand: What the designs and planning details reveal**\
-`Everything you need to know about the redevelopment at the Racecourse`\
-https://nytimes.com/athletic/6112278/2025/02/14/wrexhams-new-kop-stand-what-the-designs-and-planning-details-reveal/
 
