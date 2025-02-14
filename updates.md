@@ -1,3 +1,7 @@
+**Tyreek Hill, Noah Lyles agree to race after trading public jabs**\
+`Hill and Lyles have not picked a location or distance for their race yet.`\
+https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-details/
+
 **Kyrie Irving, Mavericks haven't let February chaos sink their season**\
 `Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
 https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
