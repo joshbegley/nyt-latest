@@ -1,3 +1,11 @@
+**Covering the Devastation of Water, and Then Fire**\
+`Isabelle Taft, a reporting fellow for The New York Times, writes of the parallels and differences in covering hurricanes and wildfires.`\
+https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
+
+**Texas County Declares an Emergency Over Toxic Fertilizer**\
+`Johnson County is seeking federal assistance, saying its farmland has become dangerously contaminated with “forever chemicals” from the use of fertilizer made from sewage sludge.`\
+https://nytimes.com/2025/02/14/climate/forever-chemicals-sewage-sludge-fertilizer-texas.html
+
 **N.I.H. Research Grants Lag $1 Billion Behind Last Year’s**\
 `After weeks of disruption to scientific federal grants, the National Institutes of Health has fallen behind in funding research into treatments for deadly diseases.`\
 https://nytimes.com/2025/02/14/health/national-institutes-of-health-research-grants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/arts/dance/martha-graham-dance-company-midtown.ht
 **Adams’s Lead Prosecutor Quits Defiantly: ‘It Was Never Going to Be Me’**\
 `Hagan Scotten told Justice Department officials that he would not be party to a political prosecution. He was the latest in succession of federal prosecutors to quit.`\
 https://nytimes.com/2025/02/14/nyregion/adams-prosecutor-hagan-scotten-quits.html
-
-**Lula says Brazil will not back down to Trump.**\
-`By Jack Nicas`\
-https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/lula-says-brazil-will-not-back-down-to-trump
-
-**Vance Lectures Europe on Democracy at Security Meeting**\
-`Vice President JD Vance criticized European governments at the Munich Security Conference on Friday, saying that they are failing to uphold democratic values and are exercising extreme censorship.`\
-https://nytimes.com/video/world/europe/100000009991414/vance-democracy-munich-security-conference.html
 

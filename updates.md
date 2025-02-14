@@ -1,3 +1,11 @@
+**Covering the Devastation of Water, and Then Fire**\
+`Isabelle Taft, a reporting fellow for The New York Times, writes of the parallels and differences in covering hurricanes and wildfires.`\
+https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
+
+**Texas County Declares an Emergency Over Toxic Fertilizer**\
+`Johnson County is seeking federal assistance, saying its farmland has become dangerously contaminated with “forever chemicals” from the use of fertilizer made from sewage sludge.`\
+https://nytimes.com/2025/02/14/climate/forever-chemicals-sewage-sludge-fertilizer-texas.html
+
 **N.I.H. Research Grants Lag $1 Billion Behind Last Year’s**\
 `After weeks of disruption to scientific federal grants, the National Institutes of Health has fallen behind in funding research into treatments for deadly diseases.`\
 https://nytimes.com/2025/02/14/health/national-institutes-of-health-research-grants.html
