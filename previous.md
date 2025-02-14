@@ -15,7 +15,7 @@ https://nytimes.com/2025/02/14/us/politics/democrats-congress-spending-budget.ht
 https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-14/
 
 **‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
-`At a midnight ceremony and in ornate courthouses booked months in advance, couples rushed to exchange vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
+`At a midnight ceremony and in courthouses and city buildings booked months in advance, couples exchanged vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
 https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 
 **USMNT's Pochettino takes on legends, influencers in 'Match for Hope'**\

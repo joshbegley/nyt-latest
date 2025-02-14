@@ -1,3 +1,7 @@
+**‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
+`At a midnight ceremony and in courthouses and city buildings booked months in advance, couples exchanged vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
+https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
+
 **Will There Be Enough Power to Remove Carbon From the Sky?**\
 `The direct air capture industry has ambitious plans to pull carbon dioxide from the atmosphere, but it’s vying for limited renewable power resources.`\
 https://nytimes.com/2025/02/14/climate/direct-air-capture-power-energy-needs.html
