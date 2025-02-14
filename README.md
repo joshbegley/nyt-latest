@@ -1,3 +1,7 @@
+**Cleveland Museum to Return Prized Bronze Thought Looted From Turkey**\
+`The museum dropped a legal effort to block the seizure of the statue by investigators who said the bronze, thought by some to be of Marcus Aurelius, had been stolen.`\
+https://nytimes.com/2025/02/14/arts/design/marcus-aurelius-bronze-turkey-cleveland.html
+
 **In Major Expansion, Martha Graham Dance Company Will Move to Midtown**\
 `The acclaimed troupe will relocate to a Times Square tower, more than doubling its footprint, and building six new studios.`\
 https://nytimes.com/2025/02/14/arts/dance/martha-graham-dance-company-midtown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/world/europe/lebanon-israeli-withdrawal.html
 **Overlooked No More: Lena Richard, Who Brought Creole Cooking to the Masses**\
 `She hosted a cooking show years before Julia Child was on the air, tantalizing viewers with okra gumbo, shrimp bisque and other Southern specialties.`\
 https://nytimes.com/2025/02/14/obituaries/lena-richard-overlooked.html
-
-**Williams confident Franco Colapinto will return in future after Alpine loan**\
-`Team principal James Vowles reaffirmed his belief that the Argentine driver "is my driver that I want back in that car" someday.`\
-https://nytimes.com/athletic/6136871/2025/02/14/franco-colapinto-f1-alpine-williams/
 
