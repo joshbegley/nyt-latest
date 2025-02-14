@@ -1,3 +1,7 @@
+**I’ve Seen the World Our Trash Makes, and It’s Terrifying**\
+`The world’s poorer nations have never stopped being receptacles for the West’s rubbish.`\
+https://nytimes.com/2025/02/14/opinion/trash-recycling-global-waste-trade.html
+
 **Team USA reacts to Montreal crowd booing anthem at 4 Nations Face-Off**\
 `The negative reaction from some fans inside Bell Centre stirred a range of emotions in the American players.`\
 https://nytimes.com/athletic/6136046/2025/02/14/team-usa-anthem-4-nations-montreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134656/2025/02/14/djed-spence-tottenham/
 **Advice for Forest's players hoping to reach Europe – from those who made it in 1994-95**\
 `With Forest hoping to reach the Champions League, Paul Taylor asks three players who reached Europe in 1994-95 for their advice`\
 https://nytimes.com/athletic/6134854/2025/02/14/nottingham-forest-1994-95-europe-advice/
-
-**Is Brighton's squad now too big?**\
-`Brighton coach Fabian Hurzeler has used 30 players in the Premier League this season - can he possibly keep everybody happy?`\
-https://nytimes.com/athletic/6041066/2025/02/14/brighton-squad-size/
 
