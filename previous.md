@@ -1,3 +1,7 @@
+**A Night at the Donald J. Trump Center for the Performing Arts**\
+`It’s still called the Kennedy Center. But after President Trump’s takeover, drag performers protested outside while audience members inside worried about what might be in store.`\
+https://nytimes.com/2025/02/14/arts/music/kennedy-center-donald-trump.html
+
 **Adams tells Dr. Phil he’s happy to work with Trump’s border czar.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/adams-tells-dr-phil-hes-happy-to-work-with-trumps-border-czar
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137610/2025/02/14/broncos-darren-rizz-special-team
 **Why Prosecutors Accused Their Bosses of Offering Adams a Quid Pro Quo**\
 `The federal prosecutor who received orders to drop charges against Eric Adams said that the Trump administration was seeking the mayor’s cooperation on immigration enforcement.`\
 https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
-
-**Penn State hires ex-Temple coach Stan Drayton to staff**\
-`Stan Drayton will be Penn State's new running backs coach as the replacement for Ja'Juan Seider, who left for the same role at Notre Dame.`\
-https://nytimes.com/athletic/6136928/2025/02/14/penn-state-stan-drayton-running-backs-coach/
 

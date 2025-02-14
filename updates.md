@@ -1,3 +1,7 @@
+**A Night at the Donald J. Trump Center for the Performing Arts**\
+`It’s still called the Kennedy Center. But after President Trump’s takeover, drag performers protested outside while audience members inside worried about what might be in store.`\
+https://nytimes.com/2025/02/14/arts/music/kennedy-center-donald-trump.html
+
 **Adams tells Dr. Phil he’s happy to work with Trump’s border czar.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/adams-tells-dr-phil-hes-happy-to-work-with-trumps-border-czar
