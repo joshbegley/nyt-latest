@@ -1,3 +1,7 @@
+**City's Greenwood and Hemp return to training after knee injuries**\
+`The two England internationals both suffered their respective knee injuries towards the end of 2024 and have not played since.`\
+https://nytimes.com/athletic/6136836/2025/02/14/hemp-greenwood-injuries-manchester-city/
+
 **Review: A Conductor Hushes the New York Philharmonic**\
 `Some of the most memorable moments in the orchestra’s program this week, led by Karina Canellakis, were extremely soft.`\
 https://nytimes.com/2025/02/14/arts/music/karina-canellakis-new-york-philharmonic-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/world/europe/munich-car-attack-who-what.html
 **Sexual Violence Against Children Soars in Congo, U.N. Group Says**\
 `UNICEF accused “armed men” of raping scores of children in the Democratic Republic of Congo, which has been ravaged by conflict recently.`\
 https://nytimes.com/2025/02/14/world/africa/sexual-violence-children-congo.html
-
-**Criminal proceedings against Paqueta’s uncle recommended after Brazilian betting inquiry**\
-`The inquiry in Brazil analysed the banking records of Bruno Tolentino, one of the men believed to have placed bets on his nephew Paqueta.`\
-https://nytimes.com/athletic/6136364/2025/02/14/lucas-paquetas-uncle-betting-inquiry/
 

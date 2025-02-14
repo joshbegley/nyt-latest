@@ -1,3 +1,7 @@
+**City's Greenwood and Hemp return to training after knee injuries**\
+`The two England internationals both suffered their respective knee injuries towards the end of 2024 and have not played since.`\
+https://nytimes.com/athletic/6136836/2025/02/14/hemp-greenwood-injuries-manchester-city/
+
 **Review: A Conductor Hushes the New York Philharmonic**\
 `Some of the most memorable moments in the orchestra’s program this week, led by Karina Canellakis, were extremely soft.`\
 https://nytimes.com/2025/02/14/arts/music/karina-canellakis-new-york-philharmonic-review.html
