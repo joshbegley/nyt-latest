@@ -1,3 +1,7 @@
+**Jung Hoo Lee, run-producing No. 3 hitter? The Giants are considering it**\
+`After appearing in only 37 games in his first MLB season, Lee has no injury restrictions, and the Giants are hoping for big things.`\
+https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
+
 **Jung Hoo Lee, run-producing No. 3 hitter? Giants are considering it**\
 `After appearing in only 37 games in his first MLB season, Lee has no injury restrictions and the Giants are hoping for big things.`\
 https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
