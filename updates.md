@@ -1,3 +1,7 @@
+**Trump Official’s Demand in Adams Case Forces Justice Dept. Showdown**\
+`A crisis at the department over the Eric Adams case is an early test of the criminal justice system’s resilience against a retribution-minded president and his appointees.`\
+https://nytimes.com/2025/02/13/us/politics/emil-bove-doj-trump.html
+
 **TikTok Returns to Apple and Google App Stores**\
 `The popular social media app was removed to comply with a new law that banned it in the United States. President Trump has paused enforcement of the ban.`\
 https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
