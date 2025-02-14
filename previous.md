@@ -1,40 +1,40 @@
-**‘The W.T.O. Is Toast.’ What Happens to Global Trade Now.**\
-`President Trump, who disabled the World Trade Organization during his first term, is going after international free trade rules in place since the 1940s.`\
-https://nytimes.com/2025/02/14/business/trump-tariffs-world-trade-organization.html
+**How Trump’s Directives Echo Project 2025**\
+`President Trump attempted during his campaign to distance himself from the right-wing blueprint to overhaul the federal government, but many of his administration’s actions so far have mirrored it.`\
+https://nytimes.com/interactive/2025/02/14/us/politics/project-2025-trump-actions.html
 
-**NBA report cards: Grading every team's season at the All-Star break**\
-`Before a two-month sprint to the end of the season, let's assess how each team has performed so far.`\
-https://nytimes.com/athletic/6131639/2025/02/14/nba-grades-all-star-break-2025/
+**FEMA Quietly Eases Rules Meant to Protect Buildings in Flood Zones**\
+`The agency issued an internal memo saying it would “pause” a regulation directing that schools, libraries and other public facilities damaged by disasters be rebuilt safely.`\
+https://nytimes.com/2025/02/14/climate/fema-quietly-eases-rules-meant-to-protect-buildings-in-flood-zones.html
 
-**How Trump Is Approaching Foreign Policy**\
-`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro to discuss the projections of power by the Trump administration over the past week.`\
-https://nytimes.com/video/podcasts/the-daily/100000009983843/how-trump-is-approaching-foreign-policy.html
+**We Still Don’t Know How to Be Normal on Slack and Zoom**\
+`Experts shared five strategies to make things easier.`\
+https://nytimes.com/2025/02/14/well/slack-zoom-awkward-tips.html
 
-**Noonan, 16, becomes second youngest UEFA club competition scorer**\
-`Noonan scored against Molde aged 16 years and 197 days old.`\
-https://nytimes.com/athletic/6135407/2025/02/14/noonan-uefa-european-goal-shamrock-conference-league/
+**The New York Times News Quiz, Feb. 14, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/02/14/briefing/trump-tariffs-senate-confirmation-russia-news-quiz.html
 
-**4,000 Applications for Outdoor Dining. 39 Licenses Issued.**\
-`A program to restart outdoor dining in New York City on April 1 is facing an extensive backlog of applications.`\
-https://nytimes.com/2025/02/14/nyregion/nyc-outdoor-dining-sheds.html
+**Trump Wants to Destroy All Academia, Not Just the Woke Parts**\
+`The administration’s war on universities defies rational self-interest.`\
+https://nytimes.com/2025/02/14/opinion/trump-college-academia-woke.html
 
-**Judge to Hear Arguments Over Musk’s Access to Sensitive Treasury Data**\
-`After a lawsuit filed last week by 19 attorneys general, a judicial ruling temporarily blocked Elon Musk and his Department of Government Efficiency from accessing the information.`\
-https://nytimes.com/2025/02/14/nyregion/musk-doge-treasury-data-lawsuit.html
+**Is Sports Gambling a Problem?**\
+`This year’s Super Bowl was likely the biggest wagering event in U.S. sports betting history. Is legalized gambling hurting fans and sports?`\
+https://nytimes.com/2025/02/14/learning/is-sports-gambling-a-problem.html
 
-**Inside Max Verstappen's long-term goal to make F1 drivers out of sim racers**\
-`"I know it takes time, but I do want to find the talent that is able to transition to real life."`\
-https://nytimes.com/athletic/6134190/2025/02/14/max-verstappen-sim-racing-f1/
+**Kendrick Lamar’s Halftime Show Was Political Art, if You Knew Where to Look**\
+`With an audience of over 120 million people, Kendrick’s show broke viewership records. But at times it seemed designed to speak directly to me.`\
+https://nytimes.com/2025/02/14/opinion/kendrick-lamar-halftime-art.html
 
-**Be Mine**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/02/14/learning/be-mine.html
+**Moves by Trump and Bondi Raise Hopes of Those Accused of Foreign Corruption**\
+`Lawyers for defendants in foreign lobbying and bribery cases are rushing to take advantage of new guidance restricting enforcement of those laws.`\
+https://nytimes.com/2025/02/14/us/politics/trump-bondi-foreign-corruption.html
 
-**For Fans of Nicholas Sparks, This North Carolina City Is the Capital of Love**\
-`The best-selling author based “The Notebook” and other heart-tugging novels in New Bern, where he lives. But what makes the town so romantic?`\
-https://nytimes.com/2025/02/14/us/nicholas-sparks-north-carolina-new-bern.html
+**Adapting the Twists and Turns of ‘Conclave’**\
+`How the novel became an Oscar-nominated film.`\
+https://nytimes.com/2025/02/14/books/review/adapting-the-twists-and-turns-of-conclave.html
 
-**The Tulip’s Quiet War on Roses: A Valentine’s Day Battle**\
-`Roses have long been the flower of choice for the holiday, but some see an opening for the humble tulip.`\
-https://nytimes.com/2025/02/14/business/valentines-day-tulips-roses.html
+**Who Is Ugly?**\
+`A new book by Moshtari Hilal takes on the taboo subject of ugliness.`\
+https://nytimes.com/2025/02/14/style/who-is-ugly.html
 
