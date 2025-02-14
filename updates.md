@@ -1,3 +1,11 @@
+**Man Pleads Guilty in Shooting of Teen Who Went to the Wrong Door**\
+`Andrew D. Lester, a Kansas City resident in his 80s, was charged with felonies in the shooting of Ralph Yarl, a teen who rang his doorbell.`\
+https://nytimes.com/2025/02/14/us/andrew-lester-ralph-yarl-kansas-city.html
+
+**Sabrina Carpenter Flirts With Country, and 12 More New Songs**\
+`Hear Dolly Parton duet with the young star and tracks from Selena Gomez and Benny Blanco, plus Drake and PartyNextDoor.`\
+https://nytimes.com/2025/02/14/arts/music/playlist-sabrina-carpenter-dolly-parton.html
+
 **‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
 `At a midnight ceremony and in courthouses and city buildings booked months in advance, couples exchanged vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
 https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
