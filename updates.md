@@ -1,3 +1,7 @@
+**U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
+`Players expect the much-anticipated matchup between the countries to be measured by grit and will rather than pure skill.`\
+https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
+
 **Protesters Rally Against Deletion of ‘Transgender’ on Stonewall Website**\
 `Hundreds of people gathered at the Greenwich Village site to condemn what they saw as a chilling strike against the symbolic heart of the gay rights movement.`\
 https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.html
