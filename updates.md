@@ -1,3 +1,7 @@
+**Turmoil in the Justice Dept. Over the Adams Case**\
+`Responses to the resignation of the U.S. attorney in Manhattan. Also: Robert F. Kennedy Jr.’s confirmation as health secretary; Donald Trump “winning.”`\
+https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.html
+
 **Listen: Our favourite Tottenham managers and memories of covering them**\
 `The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
 https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
