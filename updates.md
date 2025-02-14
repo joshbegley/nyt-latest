@@ -1,3 +1,15 @@
+**Protesters Rally Against Deletion of ‘Transgender’ on Stonewall Website**\
+`Hundreds of people gathered at the Greenwich Village site to condemn what they saw as a chilling strike against the symbolic heart of the gay rights movement.`\
+https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.html
+
+**Dave Roberts enters Dodgers spring 'very hopeful' for contract extension**\
+`Dodgers' plans for a 6-man rotation might wait until Shohei Ohtani returns. Until then, Dustin May and Tony Gonsolin could vie for 5th spot.`\
+https://nytimes.com/athletic/6137818/2025/02/14/dodgers-dave-roberts-contract-talks/
+
+**Judges Generally Let Prosecutors Drop Charges. Maybe Not for Adams.**\
+`Judge Dale E. Ho will weigh the request after the resignation of Manhattan’s U.S. attorney and her accusations of misconduct.`\
+https://nytimes.com/2025/02/14/nyregion/adams-charges-judge.html
+
 **Cuts to U.S.-Backed Rights Groups Seen as a Win for China**\
 `U.S. funding for the promotion of democracy has been frozen, disrupting the work of groups that expose abuses in China. Chinese nationalists are celebrating.`\
 https://nytimes.com/2025/02/14/world/asia/us-rights-groups-doge-cuts-china.html

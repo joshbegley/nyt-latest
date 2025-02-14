@@ -1,3 +1,15 @@
+**Protesters Rally Against Deletion of ‘Transgender’ on Stonewall Website**\
+`Hundreds of people gathered at the Greenwich Village site to condemn what they saw as a chilling strike against the symbolic heart of the gay rights movement.`\
+https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.html
+
+**Dave Roberts enters Dodgers spring 'very hopeful' for contract extension**\
+`Dodgers' plans for a 6-man rotation might wait until Shohei Ohtani returns. Until then, Dustin May and Tony Gonsolin could vie for 5th spot.`\
+https://nytimes.com/athletic/6137818/2025/02/14/dodgers-dave-roberts-contract-talks/
+
+**Judges Generally Let Prosecutors Drop Charges. Maybe Not for Adams.**\
+`Judge Dale E. Ho will weigh the request after the resignation of Manhattan’s U.S. attorney and her accusations of misconduct.`\
+https://nytimes.com/2025/02/14/nyregion/adams-charges-judge.html
+
 **Cuts to U.S.-Backed Rights Groups Seen as a Win for China**\
 `U.S. funding for the promotion of democracy has been frozen, disrupting the work of groups that expose abuses in China. Chinese nationalists are celebrating.`\
 https://nytimes.com/2025/02/14/world/asia/us-rights-groups-doge-cuts-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/14/us/adams-dismissal.html
 **The White House Rose Garden in Photos: A Showcase of Presidential Power**\
 `A look at key moments at the White House’s signature outdoor setting amid reports that it may be turned into a Mar-a-Lago-like patio.`\
 https://nytimes.com/2025/02/14/style/white-house-rose-garden-photos.html
-
-**Heavy Rains Set Off Mudslides Across Southern California**\
-`A Los Angeles Fire Department vehicle was swept into the Pacific Ocean during a storm in Malibu on Thursday. Officials said road conditions were especially dangerous in areas affected by the wildfires last month.`\
-https://nytimes.com/video/weather/100000009992599/southern-california-mudslide.html
-
-**Trump Administration Toughens Rules for Release of Migrant Children**\
-`A new policy requires the fingerprinting of all adults who will be living with a migrant child in the United States. Advocates for immigrants say it could fuel overcrowding in shelters.`\
-https://nytimes.com/2025/02/14/us/politics/trump-rules-migrant-children.html
-
-**Alex Anthopoulos on Braves' quiet offseason: 'We've spent a lot on our own players'**\
-`The Braves considered a deal that would've put them over the luxury tax, which Anthopoulos said they're willing to do for the right player.`\
-https://nytimes.com/athletic/6137682/2025/02/14/braves-alex-anthopoulos-quiet-offseason/
 
