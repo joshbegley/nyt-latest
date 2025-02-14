@@ -1,3 +1,7 @@
+**Sabrina Carpenter Flirts With Country and 12 More New Songs**\
+`Hear Dolly Parton duet with the young star and tracks from Selena Gomez and Benny Blanco, plus Drake and PartyNextDoor.`\
+https://nytimes.com/2025/02/14/arts/music/playlist-sabrina-carpenter-dolly-parton.html
+
 **Judge Blocks Trump’s Plan to End Funds to Hospitals That Treat Young Trans Patients**\
 `The judge considered the matter in a Seattle courtroom a day after a judge in Baltimore temporarily halted the administration’s plan in a separate lawsuit.`\
 https://nytimes.com/2025/02/14/us/seattle-judge-trump-trans-youth-hospitals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/eric-adams-resignation-future.html
 **Turmoil in the Justice Dept. Over the Adams Case**\
 `Responses to the resignation of the U.S. attorney in Manhattan. Also: Robert F. Kennedy Jr.’s confirmation as health secretary; Donald Trump “winning.”`\
 https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.html
-
-**Listen: Our favourite Tottenham managers and memories of covering them**\
-`The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
-https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
 
