@@ -1,3 +1,11 @@
+**What We Know About the Munich Car Attack**\
+`At least 36 people were injured when an Afghan asylum seeker drove a car into a union march. The police said the driver confessed.`\
+https://nytimes.com/2025/02/14/world/europe/munich-car-attack-who-what.html
+
+**Sexual Violence Against Children Soars in Congo, U.N. Group Says**\
+`UNICEF accused “armed men” of raping scores of children in the Democratic Republic of Congo, which has been ravaged by conflict recently.`\
+https://nytimes.com/2025/02/14/world/africa/sexual-violence-children-congo.html
+
 **Criminal proceedings against Paqueta’s uncle recommended after Brazilian betting inquiry**\
 `The inquiry in Brazil analysed the banking records of Bruno Tolentino, one of the men believed to have placed bets on his nephew Paqueta.`\
 https://nytimes.com/athletic/6136364/2025/02/14/lucas-paquetas-uncle-betting-inquiry/
