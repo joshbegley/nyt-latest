@@ -1,3 +1,7 @@
+**Jung Hoo Lee, run-producing No. 3 hitter? Giants are considering it**\
+`After appearing in only 37 games in his first MLB season, Lee has no injury restrictions and the Giants are hoping for big things.`\
+https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
+
 **TikTok Returns to Apple and Google App Stores**\
 `The popular social media app was removed to comply with a new law that banned it in the United States.`\
 https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135395/2025/02/13/alex-bregman-red-sox-player-reac
 **The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
 `A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
-
-**Judge Extends Halt on Trump Plan to Dismantle U.S.A.I.D.**\
-`For at least another week, a judge will keep a hold on a directive placing more than 2,000 employees on administrative leave and forcing the return of overseas workers.`\
-https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
 
