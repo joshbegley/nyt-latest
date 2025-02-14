@@ -1,3 +1,11 @@
+**Musiala signs new Bayern contract until 2030**\
+`The 21-year-old’s previous deal, which was his first professional contract, was set to expire in 2026.`\
+https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
+
+**In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
+`Nigel Farage’s anti-immigrant party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
+https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
+
 **Akanji set for surgery and out for 'eight to ten weeks'**\
 `Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
 https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/

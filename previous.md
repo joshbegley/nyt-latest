@@ -1,3 +1,11 @@
+**Musiala signs new Bayern contract until 2030**\
+`The 21-year-old’s previous deal, which was his first professional contract, was set to expire in 2026.`\
+https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
+
+**In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
+`Nigel Farage’s anti-immigrant party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
+https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
+
 **Akanji set for surgery and out for 'eight to ten weeks'**\
 `Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
 https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136356/2025/02/14/notre-dame-footbal-playoff-2025-
 **Appreciating No. 1 Auburn vs. No. 2 Alabama and the impactful weekend ahead: Court Vision**\
 `There's also a battle for Big East supremacy at Madison Square Garden and an intriguing Big 12 showdown.`\
 https://nytimes.com/athletic/6135592/2025/02/14/alabama-basketball-auburn-rankings-st-johns-houston/
-
-**Hamas Names Hostages Set for Release on Saturday**\
-`An exchange of hostages for Palestinians jailed by Israel had been thrown into doubt after days of mutual recriminations. Israel has not yet commented.`\
-https://nytimes.com/2025/02/14/world/middleeast/israel-hamas-gaza-hostages.html
-
-**Two cornerstones of the Blazers' rebuild are dreaming big: 'We are going to figure it out'**\
-`The budding friendship between second-year players Scoot Henderson and Toumani Camara includes a vow: Being great together ... in Portland.`\
-https://nytimes.com/athletic/6133463/2025/02/14/toumani-camara-scoot-henderson-trail-blazers-dream-nba/
 
