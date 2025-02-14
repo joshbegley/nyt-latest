@@ -1,3 +1,11 @@
+**N.I.H. Research Grants Lag $1 Billion Behind Last Year’s**\
+`After weeks of disruption to scientific federal grants, the National Institutes of Health has fallen behind in funding research into treatments for deadly diseases.`\
+https://nytimes.com/2025/02/14/health/national-institutes-of-health-research-grants.html
+
+**Why Bove Wants Someone Else to Request Dismissal of Adams Charges**\
+`While it would be highly unusual for the acting No. 2 at the Justice Department to take such a role in a criminal case, there is nothing that expressly bars Emil Bove III from doing so.`\
+https://nytimes.com/2025/02/14/nyregion/bove-adams-charges-dismissal.html
+
 **Everton, Liverpool, Slot and Hulshoff charged by FA after Merseyside derby**\
 `Wednesday's game ended in a mass altercation between both sets of players at Goodison Park.`\
 https://nytimes.com/athletic/6136249/2025/02/14/everton-liverpool-slot-fa-charges/
