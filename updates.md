@@ -1,3 +1,7 @@
+**Listen: Our favourite Tottenham managers and memories of covering them**\
+`The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
+https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
+
 **Republican Senator ‘Disturbed’ by Hegseth’s Comments About Ukraine**\
 `Senator Roger Wicker of Mississippi, the chairman of the Armed Services Committee, said the defense secretary made a ‘rookie mistake.’`\
 https://nytimes.com/2025/02/14/us/politics/hegseths-wicker-ukraine.html
