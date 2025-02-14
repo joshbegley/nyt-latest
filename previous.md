@@ -1,3 +1,19 @@
+**Why are so many Premier League players suffering ACL injuries?**\
+`Anterior cruciate ligament injuries are on course for a record high in the Premier League`\
+https://nytimes.com/athletic/6133792/2025/02/14/premier-league-acl-injuries/
+
+**Have Liverpool become too reliant on Salah?**\
+`The Egyptian's brilliance is a key reason behind club's stellar season but his fellow forwards need to start contributing`\
+https://nytimes.com/athletic/6134572/2025/02/14/mohamed-salah-liverpool-goals-assists/
+
+**The One Who Got Away**\
+`Readers share personal stories of lost love and missed connections for Valentine’s Day.`\
+https://nytimes.com/interactive/2025/02/14/well/valentines-day-lost-love.html
+
+**Want to thrive in the Premier League? Don't play the game your opponents want you to play**\
+`The teams currently succeeding in England's top flight are experts at pushing opposing sides into situations that expose their weaknesses`\
+https://nytimes.com/athletic/6125987/2025/02/14/premier-league-tactics-style/
+
 **'Nothing about that game felt safe' - The 2009 Upton Park riot retold by those who were there**\
 `Players, supporters and officials present in 2009 talk us through how violence marred a League Cup tie between West Ham and Millwall.`\
 https://nytimes.com/athletic/6008983/2025/02/14/nothing-about-that-game-felt-safe-the-2009-upton-park-riot-re-told-by-those-who-were-there/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/14/business/economy/china-exports-trump-tariffs.html
 **The Athletic 500 transfer ratings: What was January's best Premier League deal?**\
 `We rated every major signing made by a Premier League side in the winter transfer window - here are the results`\
 https://nytimes.com/athletic/6131171/2025/02/14/the-athletic-transfer-500-overall-numbers/
-
-**For War Widows, Valentine’s Day Is a Painful Reminder of Unanswered Texts**\
-`Cellphone messages provide a cherished link for Ukrainians whose partners are away fighting, but when the answers dry up, the last words can become poignant symbols of loss.`\
-https://nytimes.com/2025/02/14/world/europe/ukrainian-war-widows-valentines-day.html
-
-**All 3 Fayed Brothers, Ex-Owners of Harrods, Are Now Accused of Sexual Assault**\
-`An abuse scandal that once appeared centered on the billionaire Mohamed al-Fayed has since widened to include Salah and Ali, with whom he owned Harrods, the iconic London department store.`\
-https://nytimes.com/2025/02/14/world/europe/harrods-mohamed-fayed-brothers-sexual-assault.html
-
-**Traders at China’s Export Hub Shrug Off Trump Tariffs, for Now**\
-`At the world’s largest wholesale market in Yiwu, China, a toymaker said he was unfazed by President Trump’s tariffs, but he’s waiting to see how other policies could change how his exports are taxed.`\
-https://nytimes.com/video/world/asia/100000009982943/china-trump-tariff-yiwu.html
-
-**Looking at a Stranger and Seeing Myself**\
-`A DNA match revealed my birth mother. Our story began with sacrifice and ended with a rapturous hello.`\
-https://nytimes.com/2025/02/14/style/modern-love-looking-at-a-stranger-and-seeing-myself.html
 

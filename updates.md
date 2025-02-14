@@ -1,3 +1,19 @@
+**Why are so many Premier League players suffering ACL injuries?**\
+`Anterior cruciate ligament injuries are on course for a record high in the Premier League`\
+https://nytimes.com/athletic/6133792/2025/02/14/premier-league-acl-injuries/
+
+**Have Liverpool become too reliant on Salah?**\
+`The Egyptian's brilliance is a key reason behind club's stellar season but his fellow forwards need to start contributing`\
+https://nytimes.com/athletic/6134572/2025/02/14/mohamed-salah-liverpool-goals-assists/
+
+**The One Who Got Away**\
+`Readers share personal stories of lost love and missed connections for Valentine’s Day.`\
+https://nytimes.com/interactive/2025/02/14/well/valentines-day-lost-love.html
+
+**Want to thrive in the Premier League? Don't play the game your opponents want you to play**\
+`The teams currently succeeding in England's top flight are experts at pushing opposing sides into situations that expose their weaknesses`\
+https://nytimes.com/athletic/6125987/2025/02/14/premier-league-tactics-style/
+
 **'Nothing about that game felt safe' - The 2009 Upton Park riot retold by those who were there**\
 `Players, supporters and officials present in 2009 talk us through how violence marred a League Cup tie between West Ham and Millwall.`\
 https://nytimes.com/athletic/6008983/2025/02/14/nothing-about-that-game-felt-safe-the-2009-upton-park-riot-re-told-by-those-who-were-there/
