@@ -1,3 +1,7 @@
+**Vicario available to return for Tottenham after ankle fracture**\
+`The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
+https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
+
 **Why Investors Appear Unfazed by the Latest Trump Tariffs**\
 `The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
 https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
