@@ -1,41 +1,40 @@
-**The Athletic FC: Is relegation coming to U.S. soccer? Teen's Euro goalscoring record**\
-`Today in TAFC: The USL division that could bring promotion and relegation to US soccer. Plus: The 16-year-old who scored in Europe on debut`\
-https://nytimes.com/athletic/6136275/2025/02/14/usl-mls-promotion-relegation/
+**Arteta: Havertz injury 'an accident waiting to happen' because of schedule**\
+`Havertz's season is over after tearing his hamstring on Arsenal’s warm-weather training trip to Dubai.`\
+https://nytimes.com/athletic/6136267/2025/02/14/arsenal-injuries-kai-havertz-mikel-arteta/
 
-**The Pulse: An American rout**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6135184/2025/02/14/united-states-finland-4-nations-the-pulse/
+**Pope Francis Is Admitted to Hospital for Bronchitis**\
+`The 88-year-old pontiff, who has been battling health problems for years, is expected to remain hospitalized in Rome, the Vatican said.`\
+https://nytimes.com/2025/02/14/world/europe/pope-francis-hospital-bronchitis.html
 
-**FPL live Q&A: FPL Gameweek 25 advice from Ben Dinnery**\
-`Fantasy Premier League live Q&A: FPL Gameweek 25 advice from Ben Dinnery`\
-https://nytimes.com/athletic/6131092/2025/02/14/fantasy-premier-league-advice-gw25-tips/
+**'Keep Coach Prime': Where do Deion Sanders and Colorado stand in reaching new deal?**\
+`Colorado and Sanders are in the thick of negotiations on a contract extension, according to a school source.`\
+https://nytimes.com/athletic/6134463/2025/02/14/deion-sanders-colorado-football-contract/
 
-**Remnants of a Roman Basilica Are Found Under a London Office Building**\
-`The 2,000-year-old basilica was “once the beating heart of Roman London,” the Museum of London Archaeology said.`\
-https://nytimes.com/2025/02/14/world/europe/london-roman-basilica.html
+**Notre Dame mailbag: What is your defining memory of the 2024 season?**\
+`Looking back at Notre Dame's memorable Playoff run and looking ahead to a challenging start to the 2025 football season and more.`\
+https://nytimes.com/athletic/6136356/2025/02/14/notre-dame-footbal-playoff-2025-mailbag/
 
-**A Strained Alliance**\
-`We explore the relationship between the Trump administration and Europe.`\
-https://nytimes.com/2025/02/14/briefing/a-strained-alliance.html
+**Appreciating No. 1 Auburn vs. No. 2 Alabama and the impactful weekend ahead: Court Vision**\
+`There's also a battle for Big East supremacy at Madison Square Garden and an intriguing Big 12 showdown.`\
+https://nytimes.com/athletic/6135592/2025/02/14/alabama-basketball-auburn-rankings-st-johns-houston/
 
-**Video Shows Explosion at Chernobyl Nuclear Power Plant**\
-`Ukraine said that a Russian drone had hit a shelter constructed to prevent radiation leaks at the site’s Reactor No. 4. The Kremlin denied the accusation.`\
-https://nytimes.com/video/world/europe/100000009991019/video-explosion-chernobyl-nuclear-ukraine-russia.html
+**Hamas Names Hostages Set for Release on Saturday**\
+`An exchange of hostages for Palestinians jailed by Israel had been thrown into doubt after days of mutual recriminations. Israel has not yet commented.`\
+https://nytimes.com/2025/02/14/world/middleeast/israel-hamas-gaza-hostages.html
 
-**China Says U.S. Should Lead Trump’s Proposed Arms Control Effort**\
-`President Trump said China and Russia should halve their military spending and limit nuclear weapons. You first, China said.`\
-https://nytimes.com/2025/02/14/world/asia/china-trump-nuclear-military.html
+**Two cornerstones of the Blazers' rebuild are dreaming big: 'We are going to figure it out'**\
+`The budding friendship between second-year players Scoot Henderson and Toumani Camara includes a vow: Being great together ... in Portland.`\
+https://nytimes.com/athletic/6133463/2025/02/14/toumani-camara-scoot-henderson-trail-blazers-dream-nba/
 
-**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
-`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
-`\
-https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+**Michael Olise: A star at ease on the grandest stage and temperamentally perfect for Bayern**\
+`Scepticism was rife in Germany when the young Frenchman signed from Crystal Palace, but Olise has taken life in Munich by storm`\
+https://nytimes.com/athletic/6133976/2025/02/14/olise-bayern-munich-kompany-palace/
 
-**Twins' Jhoan Duran already hitting 99, feeling fine after better offseason**\
-`Duran strived for the type of consistency he had with his 2022-23 offseason workouts. His manager says he arrived in "excellent shape."`\
-https://nytimes.com/athletic/6135495/2025/02/14/jhoan-duran-twins-offseason-workouts/
+**The Athletic’s Friday football quiz question #42**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6132236/2025/02/14/the-athletics-friday-football-quiz-question-42/
 
-**Bills 2025 free agent rankings: Potential new contracts and interest on the open market**\
-`Rasul Douglas and Amari Cooper are among the notable names set to hit free agency.`\
-https://nytimes.com/athletic/6135188/2025/02/14/bills-2025-free-agents-rasul-douglas-amari-cooper/
+**Lowetide: In defence of the Oilers' Evan Bouchard**\
+`Despite some puzzling struggles this year, Bouchard's resume over the last three seasons is exceptional.`\
+https://nytimes.com/athletic/6134609/2025/02/14/edmonton-oilers-evan-bouchard-stats-2025/
 
