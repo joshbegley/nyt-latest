@@ -1,3 +1,7 @@
+**Gabbard Seeks to Reassure Allies Wary of Sharing Intelligence**\
+`Ms. Gabbard’s remarks appeared to be aimed at reassuring allies who might have doubts about the new intelligence chief after her bruising confirmation fight.`\
+https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html
+
 **Gabbard, in Munich, seeks to reassure allies wary of sharing intelligence.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence

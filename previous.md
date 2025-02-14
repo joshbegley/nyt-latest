@@ -1,6 +1,6 @@
-**Gabbard, in Munich, seeks to reassure allies wary of sharing intelligence.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence
+**Gabbard Seeks to Reassure Allies Wary of Sharing Intelligence**\
+`Ms. Gabbard’s remarks appeared to be aimed at reassuring allies who might have doubts about the new intelligence chief after her bruising confirmation fight.`\
+https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html
 
 **Why Emil Bove’s Battle Against Danielle Sassoon Is So Self-Defeating**\
 `This kind of conflict was inevitable. It is extremely surprising, however, that the conflict would be sought and stoked just weeks into Trump’s four-year term, and for the sake of protecting Eric Adams.`\
