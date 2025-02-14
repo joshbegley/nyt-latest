@@ -1,3 +1,19 @@
+**Newcastle face a daunting run at their biggest bogey grounds, but this time it can be different**\
+`The club have a terrible record at the Etihad, Anfield and Wembley — but other performances this season suggest they can confound history`\
+https://nytimes.com/athletic/6133736/2025/02/14/newcastle-daunting-run-bogey-grounds/
+
+**Are Chelsea getting worse the more they play Marescaball? An analysis**\
+`Chelsea seem to be becoming more wedded to Enzo Maresca's preferred style but results have been poor — so what do the numbers say?`\
+https://nytimes.com/athletic/6134095/2025/02/14/chelsea-enzo-maresca-analysis-style/
+
+**Dubai was meant to rejuvenate Arsenal's season. It's had the opposite effect**\
+`The training trip to Dubai could have been a release valve for Arsenal. Instead, it is where their title challenge may just have imploded`\
+https://nytimes.com/athletic/6128824/2025/02/14/havertz-injury-arsenal-dubai/
+
+**Nico Gonzalez, the Barcelona years: Why they were happy to let 'next Busquets' go**\
+`Nico was once tipped to succeed legendary Barca midfielder Busquets. His exit from the club appears to have worked out well for all parties`\
+https://nytimes.com/athletic/6126609/2025/02/14/nico-gonzalez-man-city-barcelona/
+
 **Why are so many Premier League players suffering ACL injuries?**\
 `Anterior cruciate ligament injuries are on course for a record high in the Premier League`\
 https://nytimes.com/athletic/6133792/2025/02/14/premier-league-acl-injuries/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6008983/2025/02/14/nothing-about-that-game-felt-saf
 **How each Premier League club uses the loans market**\
 `Every club's strategy to temporary signings explained...`\
 https://nytimes.com/athletic/6124277/2025/02/14/how-each-premier-league-club-uses-the-loans-market/
-
-**Tropical Cyclone Zelia Makes Landfall in Northwest Australia**\
-`The storm’s winds equaled those of a Category 4 hurricane, and residents were told to stay indoors to shelter from destructive winds and flooding.`\
-https://nytimes.com/2025/02/14/world/australia/tropical-cyclone-zelia.html
-
-**Friday Briefing**\
-`More tariffs from President Trump.`\
-https://nytimes.com/2025/02/14/briefing/tariffs-trump-ukraine-modi.html
-
-**Where China’s Exports Begin: Inside the Vast Markets of Guangzhou**\
-`Along the Pearl River in southern China, a fast-growing industry is churning out cheap clothes and toys that are flooding the world duty-free.`\
-https://nytimes.com/2025/02/14/business/economy/china-exports-trump-tariffs.html
-
-**The Athletic 500 transfer ratings: What was January's best Premier League deal?**\
-`We rated every major signing made by a Premier League side in the winter transfer window - here are the results`\
-https://nytimes.com/athletic/6131171/2025/02/14/the-athletic-transfer-500-overall-numbers/
 
