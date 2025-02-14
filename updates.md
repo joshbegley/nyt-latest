@@ -1,3 +1,7 @@
+**Criminal proceedings against Paqueta’s uncle recommended after Brazilian betting inquiry**\
+`The inquiry in Brazil analysed the banking records of Bruno Tolentino, one of the men believed to have placed bets on his nephew Paqueta.`\
+https://nytimes.com/athletic/6136364/2025/02/14/lucas-paquetas-uncle-betting-inquiry/
+
 **Eric Adams Highlights Coordination With Trump’s Border Czar on Fox News**\
 `Mayor Eric Adams, appearing alongside the border czar, Tom Homan, said he would work with the Trump administration on immigration as he faces calls to resign over his cooperation.`\
 https://nytimes.com/2025/02/14/nyregion/adams-homan-fox-interview.html
