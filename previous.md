@@ -1,3 +1,11 @@
+**A Rupture on the Right Over Prosecutors, Politics and the Rule of Law**\
+`Differing interpretations of Attorney General Robert H. Jackson’s classic 1940 speech, “The Federal Prosecutor,” figured in Thursday’s showdown in the Eric Adams case.`\
+https://nytimes.com/2025/02/14/us/politics/trump-prosecutors-law.html
+
+**What Is the Value-Added Tax That Trump So Despises?**\
+`The president says the VAT system used across Europe gives other countries unfair trade advantages. Here’s how the system started.`\
+https://nytimes.com/2025/02/14/business/economy/trump-vat-tax-europe.html
+
 **Mayor Adams May Avoid a Criminal Trial. He Still Faces Political Peril.**\
 `The criminal case against Mr. Adams may be in jeopardy, but his political future now seems more imperiled amid heightened calls for his resignation or dismissal.`\
 https://nytimes.com/2025/02/14/nyregion/eric-adams-resignation-future.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/business/trump-tariffs-european-union.html
 **Isabella Rossellini: Model, Actress, Ethologist, Oscar Nominee**\
 `A scene-stealing role in “Conclave” brought her unexpected acclaim, and tears, at age 72. But she has built more than a life onscreen.`\
 https://nytimes.com/2025/02/14/movies/isabella-rossellini-oscars-conclave.html
-
-**Heat Today: 4 observations at the NBA All-Star break**\
-`On a four-game losing skid, the Heat are at their lowest point of the season. But Erik Spoelstra is confident in turning things around.`\
-https://nytimes.com/athletic/6136837/2025/02/14/miami-heat-observations-nba-all-star-break/
-
-**Scoop City: Saquon Barkley, Steven Jackson and second chances**\
-`Inside: We revisit Saquon Barkley&#8217;s fortunate move and examine the biggest offseason needs of four teams.`\
-https://nytimes.com/athletic/6137122/2025/02/14/saquon-barkley-steven-jackson-nfl-second-chances-eagles-rams-scoop-city/
 

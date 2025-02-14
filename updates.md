@@ -1,3 +1,11 @@
+**A Rupture on the Right Over Prosecutors, Politics and the Rule of Law**\
+`Differing interpretations of Attorney General Robert H. Jackson’s classic 1940 speech, “The Federal Prosecutor,” figured in Thursday’s showdown in the Eric Adams case.`\
+https://nytimes.com/2025/02/14/us/politics/trump-prosecutors-law.html
+
+**What Is the Value-Added Tax That Trump So Despises?**\
+`The president says the VAT system used across Europe gives other countries unfair trade advantages. Here’s how the system started.`\
+https://nytimes.com/2025/02/14/business/economy/trump-vat-tax-europe.html
+
 **Mayor Adams May Avoid a Criminal Trial. He Still Faces Political Peril.**\
 `The criminal case against Mr. Adams may be in jeopardy, but his political future now seems more imperiled amid heightened calls for his resignation or dismissal.`\
 https://nytimes.com/2025/02/14/nyregion/eric-adams-resignation-future.html
