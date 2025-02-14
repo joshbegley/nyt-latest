@@ -1,3 +1,7 @@
+**Tyreek Hill, Noah Lyles agree to race after trading public jabs**\
+`Hill and Lyles have not picked a location or distance for their race yet.`\
+https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-details/
+
 **Kyrie Irving, Mavericks haven't let February chaos sink their season**\
 `Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
 https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/
 **Planning permission for Wimbledon tennis expansion faces judicial review in High Court**\
 `Save Wimbledon Park said it had cited three grounds of legal significance, all of which had been accepted as “arguable” by the High Court.`\
 https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judicial-review-high-court/
-
-**Drake Releases New Album, ‘$ome $exy $ongs 4 U,’ Pivoting From Rap Beef**\
-`The Valentine’s Day release, a collaboration with PartyNextDoor, tries on different styles (acoustic pop, traditional Mexican) while only alluding to Kendrick Lamar.`\
-https://nytimes.com/2025/02/14/arts/music/drake-some-sexy-songs-partynextdoor.html
 
