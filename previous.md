@@ -1,3 +1,31 @@
+**Rafter Is Briefly ‘Swallowed’ by Whale in Chile, as His Father Films**\
+`Paddling in the Strait of Magellan, Adrián Simancas was caught in a humpback’s lunge. “I realized that I was in something’s mouth and I had been eaten,” he said.`\
+https://nytimes.com/2025/02/14/world/americas/whale-swallowed-man-chile.html
+
+**A Rafter ‘Swallowed’ by a Whale, and Caught on Dad’s Video**\
+`A humpback whale snatched and spat out Adrián Simancas, who had been packrafting with his father in the waters off Patagonia.`\
+https://nytimes.com/video/world/americas/100000009990497/a-rafter-swallowed-by-a-whale-and-caught-on-dads-video.html
+
+**Here’s the latest.**\
+`By Jonah E. Bromwich`\
+https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/heres-the-latest
+
+**Live Updates: Upheaval Over Adams Case Spreads as Calls for His Resignation Grow**\
+`A Manhattan prosecutor quit on Friday, the latest in a series of resignations over an order from a top Justice Department official to drop corruption charges against Mayor Eric Adams of New York.`\
+https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj
+
+**Lawmaker demands details on State Department’s plans to buy armored Tesla Cybertrucks.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/lawmaker-demands-details-on-state-departments-plans-to-buy-armored-tesla-cybertrucks
+
+**What We Know About the Munich Car Attack**\
+`At least 36 people were injured when an Afghan asylum seeker drove a car into a union march. The police said the driver confessed.`\
+https://nytimes.com/2025/02/14/world/europe/munich-car-attack-who-what.html
+
+**Sexual Violence Against Children Soars in Congo, U.N. Group Says**\
+`UNICEF accused “armed men” of raping scores of children in the Democratic Republic of Congo, which has been ravaged by conflict recently.`\
+https://nytimes.com/2025/02/14/world/africa/sexual-violence-children-congo.html
+
 **Criminal proceedings against Paqueta’s uncle recommended after Brazilian betting inquiry**\
 `The inquiry in Brazil analysed the banking records of Bruno Tolentino, one of the men believed to have placed bets on his nephew Paqueta.`\
 https://nytimes.com/athletic/6136364/2025/02/14/lucas-paquetas-uncle-betting-inquiry/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/adams-homan-fox-interview.html
 **Hwang injury means Wolves set to be without recognised No 9 against Liverpool**\
 `The South Korea international has been diagnosed with a hamstring strain that will keep him out in the short term.`\
 https://nytimes.com/athletic/6136672/2025/02/14/wolves-hwang-injury-no-9/
-
-**Why the Rockets have hit a wall and how they can reset after All-Star break: The IkoSystem**\
-`"You have to play with a certain amount of aggression, physicality and effort, or you don't give yourself a chance," says coach Ime Udoka.`\
-https://nytimes.com/athletic/6135982/2025/02/14/houston-rockets-wall-jabari-smith/
-
-**Trump’s Funding Freeze Raises a New Question: Is the Government’s Word Good?**\
-`Companies that get federal grants or loans usually sign a legally binding agreement and depend on getting reimbursed. The new administration has upended that expectation.`\
-https://nytimes.com/2025/02/14/climate/trumps-funding-freeze-raises-a-new-question-is-the-governments-word-good.html
-
-**Lakers at the All-Star break: How will Luka Dončić fit, and what's the plan at center?**\
-`The Lakers are one of the hottest teams in the NBA, and Dončić is still acclimating. How far can they go with a small-ball approach?`\
-https://nytimes.com/athletic/6133328/2025/02/14/lakers-luka-doncic-center-all-star-break-questions/
-
-**Vance Tells Europeans to Stop Shunning Parties Deemed Extreme**\
-`His comments, a week before Germany’s elections, seemed to specifically target efforts to sideline the hard-right Alternative for Germany.`\
-https://nytimes.com/2025/02/14/world/europe/vance-europe-immigration-ukraine.html
-
-**Theater to Watch at Home: ‘Uncle Vanya’ and an Alice Childress Revival**\
-`A bare-bones Chekhov, a critically acclaimed revival of “The Wedding Band” and the cult TV series “Smash” are all available for streaming.`\
-https://nytimes.com/2025/02/14/theater/streaming-theater-uncle-vanya-smash.html
-
-**Watkins and Mings set for Aston Villa return against Ipswich**\
-`Mings sustained a knee injury in Villa’s draw with West Ham in January while Watkins suffered a groin issue against Wolves two weeks ago.`\
-https://nytimes.com/athletic/6136667/2025/02/14/ollie-watkins-tyrone-mings-injury-update/
-
-**Tyreek Hill, Noah Lyles agree to race after trading public jabs**\
-`Hill and Lyles have not picked a location or distance for their race yet.`\
-https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-details/
 
