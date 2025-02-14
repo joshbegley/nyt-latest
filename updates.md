@@ -1,3 +1,7 @@
+**Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
+`Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
+https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
+
 **Layoffs Begin at Energy Department, Part of Trump Purge**\
 `Mass firings have rocked multiple agencies as President Trump and Elon Musk accelerate plans to drastically slash and reshape the federal work force.`\
 https://nytimes.com/2025/02/14/us/politics/energy-department-layoffs.html

@@ -1,3 +1,7 @@
+**Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
+`Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
+https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
+
 **Layoffs Begin at Energy Department, Part of Trump Purge**\
 `Mass firings have rocked multiple agencies as President Trump and Elon Musk accelerate plans to drastically slash and reshape the federal work force.`\
 https://nytimes.com/2025/02/14/us/politics/energy-department-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/trump-obamacare-navigators.html
 **Bracing for a Shutdown Fight, Democrats Warn Their Votes Are Not a Given**\
 `As Democrats ponder how best to position themselves for a looming spending confrontation, they are finding novel ways to put Republicans on the spot.`\
 https://nytimes.com/2025/02/14/us/politics/democrats-congress-spending-budget.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 2/14 at 3:00 p.m. ET**\
-`Submit your questions for Eno's latest Q&A. `\
-https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-14/
 
