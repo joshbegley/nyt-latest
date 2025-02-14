@@ -2,8 +2,8 @@
 `A top Trump appointee guided Mr. Adams’s legal team as they crafted an argument for dismissing corruption charges against the mayor of America’s largest city.`\
 https://nytimes.com/2025/02/13/nyregion/adams-lawyers-justice-department-dismissal.html
 
-**PHOTOS: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
-`Among the upgrades to the facilities are a made-to-order kitchen, as well as a players' lounge and a two-story weight room. `\
+**Photos: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
+`Among the upgrades to the facilities are a made-to-order kitchen, a players lounge and a two-story weight room. `\
 https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenner-field-upgrades/
 
 **Joann Is More Than a Chain Store to ‘Heartbroken’ Regulars**\
