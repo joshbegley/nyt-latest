@@ -1,3 +1,7 @@
+**Listen: Our favourite Tottenham managers and memories of covering them**\
+`The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
+https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
+
 **Republican Senator ‘Disturbed’ by Hegseth’s Comments About Ukraine**\
 `Senator Roger Wicker of Mississippi, the chairman of the Armed Services Committee, said the defense secretary made a ‘rookie mistake.’`\
 https://nytimes.com/2025/02/14/us/politics/hegseths-wicker-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/world/asia/barbie-hsu-dead.html
 **Bowden's MLB power rankings: Dodgers, Yankees, Phillies 1-2-3 as spring training starts**\
 `Let’s look ahead to the season, taking stock of the league landscape and the rosters of all 30 teams, from the elite to the bottom dwellers.`\
 https://nytimes.com/athletic/6135930/2025/02/14/mlb-power-rankings-spring-training-dodgers-yankees/
-
-**Marc Armstrong to join Manchester United from PSG as chief business officer**\
-`British-born Armstrong is expected to begin work at Old Trafford within weeks and a start date has been agreed.`\
-https://nytimes.com/athletic/6137068/2025/02/14/marc-armstrong-manchester-united-chief-business-officer/
 
