@@ -1,3 +1,7 @@
+**Tensions Build in Syria Between New Leaders and Kurdish-Led Militia**\
+`The interim government in Damascus has called for a powerful Kurdish-led militia backed by the United States to disarm and integrate into a national military force.`\
+https://nytimes.com/2025/02/14/world/middleeast/syria-kurdish-militia.html
+
 **Cleveland Museum to Return Prized Bronze Thought Looted From Turkey**\
 `The museum dropped a legal effort to block the seizure of the statue by investigators who said the bronze, thought by some to be of Marcus Aurelius, had been stolen.`\
 https://nytimes.com/2025/02/14/arts/design/marcus-aurelius-bronze-turkey-cleveland.html
