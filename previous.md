@@ -1,3 +1,7 @@
+**Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
+`Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
+https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html
+
 **Trump’s Tariffs Could Worsen Europe’s Economic Slowdown**\
 `The trade threats could reduce exports to the United States and dampen investment in Europe, dealing a blow to growth at a time when the continent is already facing a lackluster economy.`\
 https://nytimes.com/2025/02/14/business/trump-tariffs-european-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
 **Texas County Declares an Emergency Over Toxic Fertilizer**\
 `Johnson County is seeking federal assistance, saying its farmland has become dangerously contaminated with “forever chemicals” from the use of fertilizer made from sewage sludge.`\
 https://nytimes.com/2025/02/14/climate/forever-chemicals-sewage-sludge-fertilizer-texas.html
-
-**N.I.H. Research Grants Lag $1 Billion Behind Last Year’s**\
-`After weeks of disruption to scientific federal grants, the National Institutes of Health has fallen behind in funding research into treatments for deadly diseases.`\
-https://nytimes.com/2025/02/14/health/national-institutes-of-health-research-grants.html
 

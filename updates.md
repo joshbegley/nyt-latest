@@ -1,3 +1,7 @@
+**Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
+`Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
+https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html
+
 **Trump’s Tariffs Could Worsen Europe’s Economic Slowdown**\
 `The trade threats could reduce exports to the United States and dampen investment in Europe, dealing a blow to growth at a time when the continent is already facing a lackluster economy.`\
 https://nytimes.com/2025/02/14/business/trump-tariffs-european-union.html
