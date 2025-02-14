@@ -1,3 +1,7 @@
+**Chelsea's Madueke 'out for a while' with hamstring injury - Maresca**\
+`Madueke was substituted in the 21st minute shortly after making a long run down the right flank and immediately going to ground.`\
+https://nytimes.com/athletic/6137774/2025/02/14/noni-madueke-chelsea-injury-update/
+
 **A Night at the Donald J. Trump Center for the Performing Arts**\
 `It’s still called the Kennedy Center. But after President Trump’s takeover, drag performers protested outside while audience members inside worried about what might be in store.`\
 https://nytimes.com/2025/02/14/arts/music/kennedy-center-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/arts/television/yellowjackets-season-3-episode-2-
 **Broncos bring in ex-Saints coach Darren Rizzi as special teams coordinator**\
 `Rizzi, who spent multiple seasons in New Orleans, will reunite with coach Sean Payton in Denver.`\
 https://nytimes.com/athletic/6137610/2025/02/14/broncos-darren-rizz-special-teams-coordinator/
-
-**Why Prosecutors Accused Their Bosses of Offering Adams a Quid Pro Quo**\
-`The federal prosecutor who received orders to drop charges against Eric Adams said that the Trump administration was seeking the mayor’s cooperation on immigration enforcement.`\
-https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
 
