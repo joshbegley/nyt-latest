@@ -1,3 +1,7 @@
+**Man Pleads Guilty in Shooting of Teen Who Went to the Wrong Door**\
+`Andrew D. Lester, a Kansas City resident in his 80s, was charged with felonies in the shooting of Ralph Yarl, a teen who rang his doorbell.`\
+https://nytimes.com/2025/02/14/us/andrew-lester-ralph-yarl-kansas-city.html
+
 **Will There Be Enough Power to Remove Carbon From the Sky?**\
 `The direct air capture industry has ambitious plans to pull carbon dioxide from the atmosphere, but it’s vying for limited renewable power resources.`\
 https://nytimes.com/2025/02/14/climate/direct-air-capture-power-energy-needs.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 `The U.S. manager takes a detour to Qatar for a charity match before the Concacaf Nations League semifinals.`\
 https://nytimes.com/athletic/6137259/2025/02/14/mauricio-pochettino-usmnt-match-for-hope-speed-iniesta/
 
-**Sabrina Carpenter Flirts With Country and 12 More New Songs**\
+**Sabrina Carpenter Flirts With Country, and 12 More New Songs**\
 `Hear Dolly Parton duet with the young star and tracks from Selena Gomez and Benny Blanco, plus Drake and PartyNextDoor.`\
 https://nytimes.com/2025/02/14/arts/music/playlist-sabrina-carpenter-dolly-parton.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/seattle-judge-trump-trans-youth-hospitals.html
 **Diagram: How the Justice Department Resignations Unfolded**\
 `More than half a dozen government attorneys have resigned since an order by the Trump administration’s Justice Department to drop charges against Mayor Eric Adams of New York City.`\
 https://nytimes.com/interactive/2025/02/14/us/doj-resignations-trump-adams.html
-
-**Premier League APT rules declared 'void and unenforceable' in victory for Man City**\
-`Clubs could now claim compensation for deals agreed between December 2021 and November 2024 that may have been undervalued.`\
-https://nytimes.com/athletic/6137204/2025/02/14/manchester-city-legal-victory-premier-league-apt/
 
