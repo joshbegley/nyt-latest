@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-bettin
 `\
 https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
 
+**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
+`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
+`\
+https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+
 **Remnants of a Roman Basilica Are Found Under a London Office Building**\
 `The 2,000-year-old basilica was “once the beating heart of Roman London,” the Museum of London Archaeology said.`\
 https://nytimes.com/2025/02/14/world/europe/london-roman-basilica.html
