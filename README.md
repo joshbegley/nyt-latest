@@ -1,3 +1,7 @@
+**Trump and Modi Shove Disputes Into Background in White House Visit**\
+`India’s prime minister sought to placate President Trump in public even as Mr. Trump pushed for major tariffs on his country.`\
+https://nytimes.com/2025/02/13/us/politics/trump-modi-musk.html
+
 **How Trump’s Medical Research Cuts Would Hit Colleges and Hospitals in Every State**\
 `Changes to a key funding formula will reduce research grants at hospitals and universities by billions — and may discourage future research.`\
 https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135589/2025/02/13/jen-cohen-usc-lincoln-riley-nil/
 **Cubs detail Alex Bregman pursuit: 'We made the best offer we could make'**\
 `"Obviously disappointed," Cubs president of baseball operations Jed Hoyer said Thursday morning at the team's Arizona facility.`\
 https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-agency-offer/
-
-**Red Sox 'fired up' as they await Alex Bregman's arrival, plus other notes**\
-`Red Sox players are excited to add Bregman’s on-field talents and clubhouse leadership to the mix.`\
-https://nytimes.com/athletic/6135395/2025/02/13/alex-bregman-red-sox-player-reaction/
 
