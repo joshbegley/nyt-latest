@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/13/us/politics/airbnb-joe-gebbia-musk-doge.html
 
 **USA blows out Finland in 4 Nations Face-Off win**\
-`Team USA promptly turned a one-goal game into a 6-1 rout with five third period goals.`\
+`Team USA promptly turned a one-goal game into a 6-1 rout with five third-period goals.`\
 https://nytimes.com/athletic/6135888/2025/02/13/usa-finland-4-nations-face-off-score/
 
 **Trump Official’s Demand in Adams Case Forces Justice Dept. Showdown**\
