@@ -1,3 +1,19 @@
+**Ken Wydro, Who Helped Create an Off Broadway Phenomenon, Dies at 81**\
+`He and his wife, Vy Higginsen, poured all they had into “Mama, I Want to Sing,” a long-shot musical that became an enduring staple of Black theater.`\
+https://nytimes.com/2025/02/14/theater/ken-wydro-dead.html
+
+**‘Yellowjackets’ Season 3, Episode 2 Recap: New Friends**\
+`An unexpected visitor shows up on Adult Shauna’s doorstep, prompting Callie to get ideas. Young Shauna makes a new friend.`\
+https://nytimes.com/2025/02/14/arts/television/14yellowjackets-recap-season-2-episode-2.html
+
+**Broncos bring in ex-Saints coach Darren Rizzi as special teams coordinator**\
+`Rizzi, who spent multiple seasons in New Orleans, will reunite with coach Sean Payton in Denver.`\
+https://nytimes.com/athletic/6137610/2025/02/14/broncos-darren-rizz-special-teams-coordinator/
+
+**Two people shot during Eagles' Super Bowl parade in Philadelphia**\
+`Medics transported the two women who were shot to Presbyterian Hospital, and they are listed in stable condition.`\
+https://nytimes.com/athletic/6137606/2025/02/14/eagles-parade-shooting-philadelphia-super-bowl/
+
 **Why Prosecutors Accused Their Bosses of Offering Adams a Quid Pro Quo**\
 `The federal prosecutor who received orders to drop charges against Eric Adams said that the Trump administration was seeking the mayor’s cooperation on immigration enforcement.`\
 https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
