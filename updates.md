@@ -1,3 +1,11 @@
+**Planning permission for Wimbledon tennis expansion faces judicial review in High Court**\
+`Save Wimbledon Park said it had cited three grounds of legal significance, all of which had been accepted as “arguable” by the High Court.`\
+https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judicial-review-high-court/
+
+**Drake Releases New Album, ‘$ome $exy $ongs 4 U,’ Pivoting From Rap Beef**\
+`The Valentine’s Day release, a collaboration with PartyNextDoor, tries on different styles (acoustic pop, traditional Mexican) while only alluding to Kendrick Lamar.`\
+https://nytimes.com/2025/02/14/arts/music/drake-some-sexy-songs-partynextdoor.html
+
 **Footballer Hwang given suspended sentence for secretly filming sex with woman**\
 `The former Forest striker was convicted of charges related to one woman but acquitted of charges related to another.`\
 https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-sentence/
