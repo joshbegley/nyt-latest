@@ -1,3 +1,7 @@
+**Louisiana Health Department Says It Will Stop Promoting ‘Mass Vaccination’**\
+`“Vaccines should be treated with nuance, recognizing differences between seasonal vaccines and childhood immunizations,” Dr. Ralph L. Abraham, the state’s surgeon general, wrote in a memo.`\
+https://nytimes.com/2025/02/13/us/louisiana-mass-vaccination.html
+
 **Bubba Wallace grabs first Daytona 500 qualifying win in tight finish**\
 `The win puts Wallace in the third starting spot for the Daytona 500, a race he’s never won but twice finished runner up.`\
 https://nytimes.com/athletic/6135869/2025/02/13/bubba-wallace-daytona-500-qualifying-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/trump-modi-musk.html
 **How Trump’s Medical Research Cuts Would Hit Colleges and Hospitals in Every State**\
 `Changes to a key funding formula will reduce research grants at hospitals and universities by billions — and may discourage future research.`\
 https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
-
-**Jung Hoo Lee, run-producing No. 3 hitter? The Giants are considering it**\
-`After appearing in only 37 games in his first MLB season, Lee has no injury restrictions, and the Giants are hoping for big things.`\
-https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
 

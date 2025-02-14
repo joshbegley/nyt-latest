@@ -1,3 +1,7 @@
+**Louisiana Health Department Says It Will Stop Promoting ‘Mass Vaccination’**\
+`“Vaccines should be treated with nuance, recognizing differences between seasonal vaccines and childhood immunizations,” Dr. Ralph L. Abraham, the state’s surgeon general, wrote in a memo.`\
+https://nytimes.com/2025/02/13/us/louisiana-mass-vaccination.html
+
 **Bubba Wallace grabs first Daytona 500 qualifying win in tight finish**\
 `The win puts Wallace in the third starting spot for the Daytona 500, a race he’s never won but twice finished runner up.`\
 https://nytimes.com/athletic/6135869/2025/02/13/bubba-wallace-daytona-500-qualifying-win/
