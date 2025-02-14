@@ -1,3 +1,15 @@
+**Ilona Maher, Bristol Bears face nervous wait over Premiership SF spot**\
+`Maher, the world's most followed rugby player on social media, had every move of her 73-minute outing cheered by over 6,000 fans on Friday.`\
+https://nytimes.com/athletic/6137611/2025/02/14/ilona-maher-bristol-bears-premiership-semi-finals/
+
+**The Briefing: Brighton 3 Chelsea 0 - more problems for Maresca, Madueke injury and hosts' magic moments**\
+`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Brighton & Hove Albion`\
+https://nytimes.com/athletic/6126110/2025/02/14/brighton-chelsea-premier-league-analysis/
+
+**Eleanor Maguire, Memory Expert Who Studied London Cabbies, Dies at 54**\
+`By watching the brain process information, she discovered that a specific region plays a key role in spatial navigation — and that it can be strengthened like a muscle.`\
+https://nytimes.com/2025/02/14/science/eleanor-maguire-dead.html
+
 **Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
 `This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
 https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html

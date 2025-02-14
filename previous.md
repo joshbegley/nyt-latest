@@ -1,3 +1,15 @@
+**Ilona Maher, Bristol Bears face nervous wait over Premiership SF spot**\
+`Maher, the world's most followed rugby player on social media, had every move of her 73-minute outing cheered by over 6,000 fans on Friday.`\
+https://nytimes.com/athletic/6137611/2025/02/14/ilona-maher-bristol-bears-premiership-semi-finals/
+
+**The Briefing: Brighton 3 Chelsea 0 - more problems for Maresca, Madueke injury and hosts' magic moments**\
+`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Brighton & Hove Albion`\
+https://nytimes.com/athletic/6126110/2025/02/14/brighton-chelsea-premier-league-analysis/
+
+**Eleanor Maguire, Memory Expert Who Studied London Cabbies, Dies at 54**\
+`By watching the brain process information, she discovered that a specific region plays a key role in spatial navigation — and that it can be strengthened like a muscle.`\
+https://nytimes.com/2025/02/14/science/eleanor-maguire-dead.html
+
 **Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
 `This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
 https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/hochul-adams-removal.html
 **Trump Will Withhold Money From Schools That Require Covid Vaccines**\
 `An estimated 15 colleges still required Covid vaccines for students as of late last year. No states require K-12 students to get the shots.`\
 https://nytimes.com/2025/02/14/health/trump-schools-covid-vaccine-mandates.html
-
-**OpenAI Rejects Elon Musk’s Bid to Gain Control of the Company**\
-`Bret Taylor, the chairman of OpenAI’s board, said the artificial intelligence company was “not for sale.” Mr. Musk and other investors had offered $97.4 billion earlier this week.`\
-https://nytimes.com/2025/02/14/technology/openai-elon-musk.html
-
-**‘Yellowjackets’ Season 3 Premiere Recap: It’s All Fun and Games Until …**\
-`The teen Yellowjackets seem to be having fun when we first rejoin them. Taking bets now for which one gets eaten first.`\
-https://nytimes.com/2025/02/14/arts/television/yellowjackets-recap-season-3-premiere.html
-
-**Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
-`"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
-https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/
 
