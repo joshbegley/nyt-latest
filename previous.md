@@ -1,3 +1,15 @@
+**No, Mark Zuckerberg Did Not Fund Anti-Trump Lawsuit, Spokesman Says**\
+`A right-wing influencer has argued that Mr. Zuckerberg was indirectly funding Protect Democracy, which is backing a lawsuit brought by labor unions against President Trump.`\
+https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.html
+
+**Tropical Cyclone Zelia Hits North Western Australia**\
+`Zelia made landfall 34 miles northeast of Port Hedland, packing winds equivalent to a Category 4 Atlantic hurricane. Residents were told to stay indoors to shelter from heavy rain and destructive winds.`\
+https://nytimes.com/video/world/australia/100000009992022/tropical-cyclone-zelia-australia.html
+
+**Braves' Ronald Acuña Jr. on rehab: ‘When I stay healthy, I can do everything’**\
+`Once Acuña returns to the active roster there are no plans to have him DH any regular-season games, Alex Anthopoulos said.`\
+https://nytimes.com/athletic/6137381/2025/02/14/ronald-acuna-jr-atlanta-braves-rehab-update/
+
 **I.R.S. Expected to Lay Off Thousands**\
 `The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
 https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/magazine/interracial-dating-antiracism-ethics.htm
 **Tensions Over F.B.I.’s Work on Hamas Case Spill Into the Open**\
 `The Justice Department’s request for information about a splashy case brought by prosecutors in New York thrust into public view tensions that have only deepened under the Trump administration.`\
 https://nytimes.com/2025/02/14/us/politics/fbi-justice-dept-hamas.html
-
-**Man Pleads Guilty in Shooting of Teen Who Went to the Wrong Door**\
-`Andrew D. Lester, a Kansas City resident in his 80s, was charged with felonies in the shooting of Ralph Yarl, a teen who rang his doorbell.`\
-https://nytimes.com/2025/02/14/us/andrew-lester-ralph-yarl-kansas-city.html
-
-**Will There Be Enough Power to Remove Carbon From the Sky?**\
-`The direct air capture industry has ambitious plans to pull carbon dioxide from the atmosphere, but it’s vying for limited renewable power resources.`\
-https://nytimes.com/2025/02/14/climate/direct-air-capture-power-energy-needs.html
-
-**Trump Shrinks Funds for Navigators Who Help Americans Enroll in Obamacare**\
-`A record number of people have enrolled in health insurance plans through the Affordable Care Act marketplaces in recent years. Navigators help pick appropriate plans for enrollees.`\
-https://nytimes.com/2025/02/14/us/politics/trump-obamacare-navigators.html
 

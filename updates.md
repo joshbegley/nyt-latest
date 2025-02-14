@@ -1,3 +1,15 @@
+**No, Mark Zuckerberg Did Not Fund Anti-Trump Lawsuit, Spokesman Says**\
+`A right-wing influencer has argued that Mr. Zuckerberg was indirectly funding Protect Democracy, which is backing a lawsuit brought by labor unions against President Trump.`\
+https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.html
+
+**Tropical Cyclone Zelia Hits North Western Australia**\
+`Zelia made landfall 34 miles northeast of Port Hedland, packing winds equivalent to a Category 4 Atlantic hurricane. Residents were told to stay indoors to shelter from heavy rain and destructive winds.`\
+https://nytimes.com/video/world/australia/100000009992022/tropical-cyclone-zelia-australia.html
+
+**Braves' Ronald Acuña Jr. on rehab: ‘When I stay healthy, I can do everything’**\
+`Once Acuña returns to the active roster there are no plans to have him DH any regular-season games, Alex Anthopoulos said.`\
+https://nytimes.com/athletic/6137381/2025/02/14/ronald-acuna-jr-atlanta-braves-rehab-update/
+
 **I.R.S. Expected to Lay Off Thousands**\
 `The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
 https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
