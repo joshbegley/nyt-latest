@@ -1,3 +1,7 @@
+**Notre Dame hiring Mike Martin from Lions as new GM: Source**\
+`Detroit Lions director of scouting advancement Mike Martin is expected to become Notre Dame's new football general manager.`\
+https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/
+
 **Planning permission for Wimbledon tennis expansion faces judicial review in High Court**\
 `Save Wimbledon Park said it had cited three grounds of legal significance, all of which had been accepted as “arguable” by the High Court.`\
 https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judicial-review-high-court/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
 **Vicario available to return for Tottenham after ankle fracture**\
 `The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
 https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
-
-**Why Investors Appear Unfazed by the Latest Trump Tariffs**\
-`The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
-https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
 

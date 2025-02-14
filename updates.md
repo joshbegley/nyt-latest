@@ -1,3 +1,7 @@
+**Notre Dame hiring Mike Martin from Lions as new GM: Source**\
+`Detroit Lions director of scouting advancement Mike Martin is expected to become Notre Dame's new football general manager.`\
+https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/
+
 **Planning permission for Wimbledon tennis expansion faces judicial review in High Court**\
 `Save Wimbledon Park said it had cited three grounds of legal significance, all of which had been accepted as “arguable” by the High Court.`\
 https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judicial-review-high-court/
