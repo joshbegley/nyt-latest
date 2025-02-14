@@ -1,3 +1,7 @@
+**I.R.S. Expected to Lay Off Thousands**\
+`The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
+https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
+
 **Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
 `Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
 https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/

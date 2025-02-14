@@ -1,3 +1,7 @@
+**I.R.S. Expected to Lay Off Thousands**\
+`The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
+https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
+
 **Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
 `Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
 https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/climate/direct-air-capture-power-energy-needs.htm
 **Trump Shrinks Funds for Navigators Who Help Americans Enroll in Obamacare**\
 `A record number of people have enrolled in health insurance plans through the Affordable Care Act marketplaces in recent years. Navigators help pick appropriate plans for enrollees.`\
 https://nytimes.com/2025/02/14/us/politics/trump-obamacare-navigators.html
-
-**Bracing for a Shutdown Fight, Democrats Warn Their Votes Are Not a Given**\
-`As Democrats ponder how best to position themselves for a looming spending confrontation, they are finding novel ways to put Republicans on the spot.`\
-https://nytimes.com/2025/02/14/us/politics/democrats-congress-spending-budget.html
 
