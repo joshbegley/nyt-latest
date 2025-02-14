@@ -1,3 +1,7 @@
+**Rare February Downpours Expected in the Eastern U.S. This Weekend**\
+`A developing springlike storm will bring a flood risk that is highly unusual for this time of year. Tornadoes, ice and snow are also forecast.`\
+https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.html
+
 **Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
 `Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
 https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html

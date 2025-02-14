@@ -1,3 +1,7 @@
+**Rare February Downpours Expected in the Eastern U.S. This Weekend**\
+`A developing springlike storm will bring a flood risk that is highly unusual for this time of year. Tornadoes, ice and snow are also forecast.`\
+https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.html
+
 **Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
 `Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
 https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137068/2025/02/14/marc-armstrong-manchester-united
 **Covering the Devastation of Water, and Then Fire**\
 `Isabelle Taft, a reporting fellow for The New York Times, writes of the parallels and differences in covering hurricanes and wildfires.`\
 https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
-
-**Texas County Declares an Emergency Over Toxic Fertilizer**\
-`Johnson County is seeking federal assistance, saying its farmland has become dangerously contaminated with “forever chemicals” from the use of fertilizer made from sewage sludge.`\
-https://nytimes.com/2025/02/14/climate/forever-chemicals-sewage-sludge-fertilizer-texas.html
 
