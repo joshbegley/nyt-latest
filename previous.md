@@ -1,3 +1,19 @@
+**Sam Kerr's trial and the complex issues of privilege and power**\
+`In being cleared of racially aggravated harassment, Kerr made clear how she felt privilege and power were a key part of this case`\
+https://nytimes.com/athletic/6131427/2025/02/14/sam-kerr-trial-privilege/
+
+**FPL: Why you should keep an eye on the future in Double Gameweek 25**\
+`Double Gameweek 25 is another prime opportunity to rack up a big score — but future blanks have to be taken into account`\
+https://nytimes.com/athletic/6130152/2025/02/14/fantasy-premier-league-double-gameweek-25-blank/
+
+**Everton's big unanswered question - will Thelwell play a leading role in the rebuild?**\
+`The Friedkin Group are new owners, David Moyes is now manager - but what will happen to director of football Kevin Thelwell?`\
+https://nytimes.com/athletic/6134154/2025/02/14/kevin-thelwell-everton-future-transfers/
+
+**Judge Orders Trump Administration to Resume Foreign Aid Spending**\
+`The judge faulted the logic of a blanket freeze on foreign aid spending and found that groups that depend on the aid had made a strong initial showing of “irreparable harm.”`\
+https://nytimes.com/2025/02/14/us/politics/court-trump-foreign-aid-freeze.html
+
 **From 'club signing' to undroppable, how Djed Spence turned his Spurs career around**\
 `The evidence suggests Spence should be in Spurs' starting XI regardless of the fitness of other defenders. It is an incredible turnaround...`\
 https://nytimes.com/athletic/6134656/2025/02/14/djed-spence-tottenham/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6128923/2025/02/14/is-the-rogers-n-ramsey-partnersh
 **Newcastle face a daunting run at their biggest bogey grounds, but this time it can be different**\
 `The club have a terrible record at the Etihad, Anfield and Wembley — but other performances this season suggest they can confound history`\
 https://nytimes.com/athletic/6133736/2025/02/14/newcastle-daunting-run-bogey-grounds/
-
-**Are Chelsea getting worse the more they play Marescaball? An analysis**\
-`Chelsea seem to be becoming more wedded to Enzo Maresca's preferred style but results have been poor — so what do the numbers say?`\
-https://nytimes.com/athletic/6134095/2025/02/14/chelsea-enzo-maresca-analysis-style/
-
-**Dubai was meant to rejuvenate Arsenal's season. It's had the opposite effect**\
-`The training trip to Dubai could have been a release valve for Arsenal. Instead, it is where their title challenge may just have imploded`\
-https://nytimes.com/athletic/6128824/2025/02/14/havertz-injury-arsenal-dubai/
-
-**Nico Gonzalez, the Barcelona years: Why they were happy to let 'next Busquets' go**\
-`Nico was once tipped to succeed legendary Barca midfielder Busquets. His exit from the club appears to have worked out well for all parties`\
-https://nytimes.com/athletic/6126609/2025/02/14/nico-gonzalez-man-city-barcelona/
-
-**Why are so many Premier League players suffering ACL injuries?**\
-`Anterior cruciate ligament injuries are on course for a record high in the Premier League`\
-https://nytimes.com/athletic/6133792/2025/02/14/premier-league-acl-injuries/
 
