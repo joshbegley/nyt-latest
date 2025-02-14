@@ -1,3 +1,7 @@
+**Layoffs Begin at Energy Department, Part of Trump Purge**\
+`Mass firings have rocked multiple agencies as President Trump and Elon Musk accelerate plans to drastically slash and reshape the federal work force.`\
+https://nytimes.com/2025/02/14/us/politics/energy-department-layoffs.html
+
 **Watch: What would a perfect offseason look like for the Bengals?**\
 `The Athletic Football Show discuss what a perfect offseason would look like for the Cincinnati Bengals.`\
 https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-offseason/

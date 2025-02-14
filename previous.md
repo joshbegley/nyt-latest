@@ -1,3 +1,7 @@
+**Layoffs Begin at Energy Department, Part of Trump Purge**\
+`Mass firings have rocked multiple agencies as President Trump and Elon Musk accelerate plans to drastically slash and reshape the federal work force.`\
+https://nytimes.com/2025/02/14/us/politics/energy-department-layoffs.html
+
 **Watch: What would a perfect offseason look like for the Bengals?**\
 `The Athletic Football Show discuss what a perfect offseason would look like for the Cincinnati Bengals.`\
 https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/democrats-congress-spending-budget.ht
 **Live Q&A: Talking baseball with Eno Sarris on Friday 2/14 at 3:00 p.m. ET**\
 `Submit your questions for Eno's latest Q&A. `\
 https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-14/
-
-**‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
-`At a midnight ceremony and in courthouses and city buildings booked months in advance, couples exchanged vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
-https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 
