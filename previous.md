@@ -1,3 +1,11 @@
+**Eric Adams Highlights Coordination With Trump’s Border Czar on Fox News**\
+`Mayor Eric Adams, appearing alongside the border czar, Tom Homan, said he would work with the Trump administration on immigration as he faces calls to resign over his cooperation.`\
+https://nytimes.com/2025/02/14/nyregion/adams-homan-fox-interview.html
+
+**Hwang injury means Wolves set to be without recognised No 9 against Liverpool**\
+`The South Korea international has been diagnosed with a hamstring strain that will keep him out in the short term.`\
+https://nytimes.com/athletic/6136672/2025/02/14/wolves-hwang-injury-no-9/
+
 **Why the Rockets have hit a wall and how they can reset after All-Star break: The IkoSystem**\
 `"You have to play with a certain amount of aggression, physicality and effort, or you don't give yourself a chance," says coach Ime Udoka.`\
 https://nytimes.com/athletic/6135982/2025/02/14/houston-rockets-wall-jabari-smith/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-deta
 **Kyrie Irving, Mavericks haven't let February chaos sink their season**\
 `Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
 https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
-
-**The Bounce: The NBA needs All-Star 2025 to work. Plus, why the 76ers should give up**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6136335/2025/02/14/nba-all-star-weekend-lebron-james-steph-curry-the-bounce/
-
-**Why Trump’s Plan to Relocate Gazans Is Untenable for Jordan**\
-`President Trump’s plan would send a huge number of refugees to Jordan, adding new frictions to the kingdom’s often tense, sometimes violent history with displaced Palestinians.`\
-https://nytimes.com/2025/02/14/world/middleeast/trump-gaza-takeover-jordan.html
 

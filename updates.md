@@ -1,3 +1,11 @@
+**Eric Adams Highlights Coordination With Trump’s Border Czar on Fox News**\
+`Mayor Eric Adams, appearing alongside the border czar, Tom Homan, said he would work with the Trump administration on immigration as he faces calls to resign over his cooperation.`\
+https://nytimes.com/2025/02/14/nyregion/adams-homan-fox-interview.html
+
+**Hwang injury means Wolves set to be without recognised No 9 against Liverpool**\
+`The South Korea international has been diagnosed with a hamstring strain that will keep him out in the short term.`\
+https://nytimes.com/athletic/6136672/2025/02/14/wolves-hwang-injury-no-9/
+
 **Why the Rockets have hit a wall and how they can reset after All-Star break: The IkoSystem**\
 `"You have to play with a certain amount of aggression, physicality and effort, or you don't give yourself a chance," says coach Ime Udoka.`\
 https://nytimes.com/athletic/6135982/2025/02/14/houston-rockets-wall-jabari-smith/
