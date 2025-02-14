@@ -1,3 +1,7 @@
+**A Fire Vehicle Plunges Into the Pacific on a Day of Mudslides**\
+`Southern California took stock on Friday of the damage from an intense bout of rain. Among the most dramatic scenes: a Fire Department vehicle that was swept to the sea.`\
+https://nytimes.com/2025/02/14/us/storm-la-mudslides-flood-rain.html
+
 **Chelsea's Madueke 'out for a while' with hamstring injury - Maresca**\
 `Madueke was substituted in the 21st minute shortly after making a long run down the right flank and immediately going to ground.`\
 https://nytimes.com/athletic/6137774/2025/02/14/noni-madueke-chelsea-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/theater/ken-wydro-dead.html
 **‘Yellowjackets’ Season 3, Episode 2 Recap: New Friends**\
 `An unexpected visitor shows up on Adult Shauna’s doorstep, prompting Callie to get ideas. Young Shauna makes a new friend.`\
 https://nytimes.com/2025/02/14/arts/television/yellowjackets-season-3-episode-2-recap.html
-
-**Broncos bring in ex-Saints coach Darren Rizzi as special teams coordinator**\
-`Rizzi, who spent multiple seasons in New Orleans, will reunite with coach Sean Payton in Denver.`\
-https://nytimes.com/athletic/6137610/2025/02/14/broncos-darren-rizz-special-teams-coordinator/
 
