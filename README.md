@@ -1,3 +1,11 @@
+**Alex Anthopoulos on Braves' quiet offseason: 'We've spent a lot on our own players'**\
+`The Braves considered a deal that would've put them over the luxury tax, which Anthopoulos said they're willing to do for the right player.`\
+https://nytimes.com/athletic/6137682/2025/02/14/braves-alex-anthopoulos-quiet-offseason/
+
+**Seven Former Manhattan U.S. Attorneys Voice Support for Sassoon**\
+`The former prosecutors, both Democrats and Republicans, sharply criticized the Justice Department’s intention to investigate Danielle Sassoon. She resigned rather than drop a case she supported.`\
+https://nytimes.com/2025/02/14/nyregion/manhattan-us-attorneys-sassoon.html
+
 **A Fire Vehicle Plunges Into the Pacific on a Day of Mudslides**\
 `Southern California took stock on Friday of the damage from an intense bout of rain. Among the most dramatic scenes: a Fire Department vehicle that was swept to the sea.`\
 https://nytimes.com/2025/02/14/us/storm-la-mudslides-flood-rain.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/briefing/trump-mass-layoffs-eric-adams-new-york.h
 **F.B.I. Calls D.H.S. Secretary’s Criticism ‘Deeply Irresponsible’**\
 `Secretary Kristi Noem suggested this week that F.B.I. special agents leaked details ahead of immigration arrests being conducted on the West Coast.`\
 https://nytimes.com/2025/02/14/us/politics/fbi-kristi-noem-dhs.html
-
-**Ken Wydro, Who Helped Create an Off Broadway Phenomenon, Dies at 81**\
-`He and his wife, Vy Higginsen, poured all they had into “Mama, I Want to Sing,” a long-shot musical that became an enduring staple of Black theater.`\
-https://nytimes.com/2025/02/14/theater/ken-wydro-dead.html
-
-**‘Yellowjackets’ Season 3, Episode 2 Recap: New Friends**\
-`An unexpected visitor shows up on Adult Shauna’s doorstep, prompting Callie to get ideas. Young Shauna makes a new friend.`\
-https://nytimes.com/2025/02/14/arts/television/yellowjackets-season-3-episode-2-recap.html
 
