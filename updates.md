@@ -1,3 +1,7 @@
+**Slot: 'Emotions got the better of me' after Merseyside derby**\
+`The Liverpool head coach was sent off for his complaints to referee Michael Oliver after the full-time whistle.`\
+https://nytimes.com/athletic/6136256/2025/02/14/liverpool-arne-slot-red-card-everton/
+
 **Pompei: Outpouring for Virginia McCaskey shows how many lives she touched**\
 `McCaskey's mourners ranged from Bears legends to working people, billionaires to fans in Bears jerseys and Starter jackets.`\
 https://nytimes.com/athletic/6133934/2025/02/14/virginia-mccaskey-remembrance-bears/
