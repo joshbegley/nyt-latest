@@ -1,3 +1,15 @@
+**The Best Argument Against Having Faith in God**\
+`Why the problem of evil is not really an argument for atheism.`\
+https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
+
+**As a White Man, Can I Date Women of Color to Advance My Antiracism?**\
+`The magazine’s Ethicist columnist on interracial dating as a sociopolitical strategy.`\
+https://nytimes.com/2025/02/14/magazine/interracial-dating-antiracism-ethics.html
+
+**Tensions Over F.B.I.’s Work on Hamas Case Spill Into the Open**\
+`The Justice Department’s request for information about a splashy case brought by prosecutors in New York thrust into public view tensions that have only deepened under the Trump administration.`\
+https://nytimes.com/2025/02/14/us/politics/fbi-justice-dept-hamas.html
+
 **Man Pleads Guilty in Shooting of Teen Who Went to the Wrong Door**\
 `Andrew D. Lester, a Kansas City resident in his 80s, was charged with felonies in the shooting of Ralph Yarl, a teen who rang his doorbell.`\
 https://nytimes.com/2025/02/14/us/andrew-lester-ralph-yarl-kansas-city.html
