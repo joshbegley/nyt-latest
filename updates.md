@@ -1,3 +1,11 @@
+**Ukrainians Fear Peace May Strand Them Forever From Lost Homes**\
+`Bitterness has greeted suggestions that occupied territory will have to be ceded to Russia: “It’s like ripping off a man’s arm or leg and then saying, ‘Let it be as it is.’”`\
+https://nytimes.com/2025/02/14/world/europe/occupied-ukraine-russia-peace.html
+
+**Man City vs Real Madrid sets new streaming record for Amazon’s Prime Video**\
+`The fixture between Manchester City and Real Madrid was the first leg of their Champions League play-off.`\
+https://nytimes.com/athletic/6136286/2025/02/14/man-city-real-madrid-amazon-streaming-record/
+
 **Premier League accumulator picks: this weekend’s best bets**\
 `The Athletic’s Sam Tighe offers insights on the best bets to add to your accumulator ahead of this weekend’s Premier League action`\
 https://nytimes.com/athletic/6136287/2025/02/14/premier-league-accumulator-picks-best-bets/

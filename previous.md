@@ -1,3 +1,11 @@
+**Ukrainians Fear Peace May Strand Them Forever From Lost Homes**\
+`Bitterness has greeted suggestions that occupied territory will have to be ceded to Russia: “It’s like ripping off a man’s arm or leg and then saying, ‘Let it be as it is.’”`\
+https://nytimes.com/2025/02/14/world/europe/occupied-ukraine-russia-peace.html
+
+**Man City vs Real Madrid sets new streaming record for Amazon’s Prime Video**\
+`The fixture between Manchester City and Real Madrid was the first leg of their Champions League play-off.`\
+https://nytimes.com/athletic/6136286/2025/02/14/man-city-real-madrid-amazon-streaming-record/
+
 **Premier League accumulator picks: this weekend’s best bets**\
 `The Athletic’s Sam Tighe offers insights on the best bets to add to your accumulator ahead of this weekend’s Premier League action`\
 https://nytimes.com/athletic/6136287/2025/02/14/premier-league-accumulator-picks-best-bets/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/02/14/us/politics/project-2025-trump-action
 **FEMA Quietly Eases Rules Meant to Protect Buildings in Flood Zones**\
 `The agency issued an internal memo saying it would “pause” a regulation directing that schools, libraries and other public facilities damaged by disasters be rebuilt safely.`\
 https://nytimes.com/2025/02/14/climate/fema-quietly-eases-rules-meant-to-protect-buildings-in-flood-zones.html
-
-**We Still Don’t Know How to Be Normal on Slack and Zoom**\
-`Experts shared five strategies to make things easier.`\
-https://nytimes.com/2025/02/14/well/slack-zoom-awkward-tips.html
-
-**The New York Times News Quiz, Feb. 14, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/02/14/briefing/trump-tariffs-senate-confirmation-russia-news-quiz.html
 
