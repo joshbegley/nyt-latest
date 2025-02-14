@@ -1,3 +1,7 @@
+**Premier League accumulator picks: this weekend’s best bets**\
+`The Athletic’s Sam Tighe offers insights on the best bets to add to your accumulator ahead of this weekend’s Premier League action`\
+https://nytimes.com/athletic/6136287/2025/02/14/premier-league-accumulator-picks-best-bets/
+
 **Bengals mock draft 0.5: Setting the table with an infusion for Al Golden's defense**\
 `Major looming decisions are keeping Cincinnati's draft strategy in flux, but here are some positions they'll likely be looking to address.`\
 https://nytimes.com/athletic/6134921/2025/02/14/bengals-mock-draft-al-golden/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/well/slack-zoom-awkward-tips.html
 **The New York Times News Quiz, Feb. 14, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/02/14/briefing/trump-tariffs-senate-confirmation-russia-news-quiz.html
-
-**Trump Wants to Destroy All Academia, Not Just the Woke Parts**\
-`The administration’s war on universities defies rational self-interest.`\
-https://nytimes.com/2025/02/14/opinion/trump-college-academia-woke.html
 
