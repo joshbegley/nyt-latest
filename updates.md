@@ -1,3 +1,7 @@
+**NBA report cards: Grading every team's season at the All-Star break**\
+`Before a two-month sprint to the end of the season, let's assess how each team has performed so far.`\
+https://nytimes.com/athletic/6131639/2025/02/14/nba-grades-all-star-break-2025/
+
 **How Trump Is Approaching Foreign Policy**\
 `Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro to discuss the projections of power by the Trump administration over the past week.`\
 https://nytimes.com/video/podcasts/the-daily/100000009983843/how-trump-is-approaching-foreign-policy.html

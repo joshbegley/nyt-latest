@@ -1,3 +1,7 @@
+**NBA report cards: Grading every team's season at the All-Star break**\
+`Before a two-month sprint to the end of the season, let's assess how each team has performed so far.`\
+https://nytimes.com/athletic/6131639/2025/02/14/nba-grades-all-star-break-2025/
+
 **How Trump Is Approaching Foreign Policy**\
 `Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro to discuss the projections of power by the Trump administration over the past week.`\
 https://nytimes.com/video/podcasts/the-daily/100000009983843/how-trump-is-approaching-foreign-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/business/valentines-day-tulips-roses.html
 **35 Years Later, a Survivor With Scars Both Seen and Unseen**\
 `She escaped death in a devastating aviation accident in 1990. Decades later, as she tried to recover her memories, a reporter struggled to piece together her story, too.`\
 https://nytimes.com/2025/02/14/insider/astrid-lopez-avianca-flight-52.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/14/crosswords/spelling-bee-forum.html
 
