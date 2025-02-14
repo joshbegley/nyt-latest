@@ -1,3 +1,11 @@
+**Under Pressure to Dismiss Charges, Career Prosecutors Weighed Stark Options**\
+`Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
+https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
+
+**Hurts toasts Philly fans at Super Bowl parade: 'I know about this city ... we fight**\
+`Saquon Barkley, A.J. Brown and more also addressed the crowd at Friday's parade.`\
+https://nytimes.com/athletic/6137139/2025/02/14/jalen-hurts-eagles-super-bowl-parade-speeches/
+
 **Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
 `Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
 https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6137818/2025/02/14/dodgers-dave-roberts-contract-ta
 **Judges Generally Let Prosecutors Drop Charges. Maybe Not for Adams.**\
 `Judge Dale E. Ho will weigh the request after the resignation of Manhattan’s U.S. attorney and her accusations of misconduct.`\
 https://nytimes.com/2025/02/14/nyregion/adams-charges-judge.html
-
-**Cuts to U.S.-Backed Rights Groups Seen as a Win for China**\
-`U.S. funding for the promotion of democracy has been frozen, disrupting the work of groups that expose abuses in China. Chinese nationalists are celebrating.`\
-https://nytimes.com/2025/02/14/world/asia/us-rights-groups-doge-cuts-china.html
-
-**Judge orders a freeze on firing consumer bureau’s staff and deleting its data.**\
-`Agency workers, including some who were listening to the hearing remotely, expressed immediate joy and relief.`\
-https://nytimes.com/2025/02/14/us/politics/judge-orders-a-freeze-on-firing-consumer-bureaus-staff-and-deleting-its-data.html
 
