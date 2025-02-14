@@ -1,3 +1,7 @@
+**Watkins and Mings set for Aston Villa return against Ipswich**\
+`Mings sustained a knee injury in Villa’s draw with West Ham in January while Watkins suffered a groin issue against Wolves two weeks ago.`\
+https://nytimes.com/athletic/6136667/2025/02/14/ollie-watkins-tyrone-mings-injury-update/
+
 **Tyreek Hill, Noah Lyles agree to race after trading public jabs**\
 `Hill and Lyles have not picked a location or distance for their race yet.`\
 https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-details/
