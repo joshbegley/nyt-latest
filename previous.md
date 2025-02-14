@@ -10,8 +10,8 @@ https://nytimes.com/video/world/americas/100000009990497/a-rafter-swallowed-by-a
 `By Jonah E. Bromwich`\
 https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/heres-the-latest
 
-**Live Updates: Upheaval Over Adams Case Spreads as Calls for His Resignation Grow**\
-`A Manhattan prosecutor quit on Friday, the latest in a series of resignations over an order from a top Justice Department official to drop corruption charges against Mayor Eric Adams of New York.`\
+****\
+``\
 https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj
 
 **Lawmaker demands details on State Department’s plans to buy armored Tesla Cybertrucks.**\

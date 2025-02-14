@@ -1,3 +1,7 @@
+****\
+``\
+https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj
+
 **Rafter Is Briefly ‘Swallowed’ by Whale in Chile, as His Father Films**\
 `Paddling in the Strait of Magellan, Adrián Simancas was caught in a humpback’s lunge. “I realized that I was in something’s mouth and I had been eaten,” he said.`\
 https://nytimes.com/2025/02/14/world/americas/whale-swallowed-man-chile.html
