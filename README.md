@@ -1,3 +1,7 @@
+**Amorim drafts in academy players for Man United training amid injury 'issues'**\
+`The Portuguese could be facing a reshuffle of his squad for Sunday's Premier League trip to Tottenham Hotspur.`\
+https://nytimes.com/athletic/6136533/2025/02/14/manchester-united-injuries-team-news-amorim/
+
 **Row Z: Make INEOS make sense, Firmino hits the sun lounger and football frustrates transfer**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-cont
 **In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
 `Nigel Farage’s anti-immigration party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
 https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
-
-**Akanji set for surgery and out for 'eight to ten weeks'**\
-`Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
-https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
 
