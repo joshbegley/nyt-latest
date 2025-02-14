@@ -1,3 +1,11 @@
+**Alex Anthopoulos on Braves' quiet offseason: 'We've spent a lot on our own players'**\
+`The Braves considered a deal that would've put them over the luxury tax, which Anthopoulos said they're willing to do for the right player.`\
+https://nytimes.com/athletic/6137682/2025/02/14/braves-alex-anthopoulos-quiet-offseason/
+
+**Seven Former Manhattan U.S. Attorneys Voice Support for Sassoon**\
+`The former prosecutors, both Democrats and Republicans, sharply criticized the Justice Department’s intention to investigate Danielle Sassoon. She resigned rather than drop a case she supported.`\
+https://nytimes.com/2025/02/14/nyregion/manhattan-us-attorneys-sassoon.html
+
 **A Fire Vehicle Plunges Into the Pacific on a Day of Mudslides**\
 `Southern California took stock on Friday of the damage from an intense bout of rain. Among the most dramatic scenes: a Fire Department vehicle that was swept to the sea.`\
 https://nytimes.com/2025/02/14/us/storm-la-mudslides-flood-rain.html
