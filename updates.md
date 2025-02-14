@@ -1,3 +1,11 @@
+**Row Z: Make INEOS make sense, Firmino hits the sun lounger and football frustrates transfer**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
+https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
+
+**In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
+`Nigel Farage’s anti-immigration party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
+https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
+
 **Notre Dame hiring Mike Martin from Lions as new GM: Source**\
 `Detroit Lions director of scouting advancement Mike Martin is expected to become Notre Dame's new football general manager.`\
 https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/

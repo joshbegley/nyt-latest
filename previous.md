@@ -1,3 +1,7 @@
+**Row Z: Make INEOS make sense, Firmino hits the sun lounger and football frustrates transfer**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
+https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
+
 **Notre Dame hiring Mike Martin from Lions as new GM: Source**\
 `Detroit Lions director of scouting advancement Mike Martin is expected to become Notre Dame's new football general manager.`\
 https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6136128/2025/02/14/vancouver-canucks-trade-deadline
 https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
 
 **In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
-`Nigel Farage’s anti-immigrant party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
+`Nigel Farage’s anti-immigration party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
 https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
 
 **Akanji set for surgery and out for 'eight to ten weeks'**\
 `Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
 https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
-
-**Vicario available to return for Tottenham after ankle fracture**\
-`The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
-https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
 
