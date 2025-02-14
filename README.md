@@ -1,3 +1,7 @@
+**USA blows out Finland in 4 Nations Face-Off win**\
+`Team USA promptly turned a one-goal game into a 6-1 rout with five third period goals.`\
+https://nytimes.com/athletic/6135888/2025/02/13/usa-finland-4-nations-face-off-score/
+
 **Trump Official’s Demand in Adams Case Forces Justice Dept. Showdown**\
 `A crisis at the department over the Eric Adams case is an early test of the criminal justice system’s resilience against a retribution-minded president and his appointees.`\
 https://nytimes.com/2025/02/13/us/politics/emil-bove-doj-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
 **How the Justice Dept. Helped Sink Its Own Case Against Eric Adams**\
 `A top Trump appointee guided Mr. Adams’s legal team as they crafted an argument for dismissing corruption charges against the mayor of America’s largest city.`\
 https://nytimes.com/2025/02/13/nyregion/adams-lawyers-justice-department-dismissal.html
-
-**Photos: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
-`Among the upgrades to the facilities are a made-to-order kitchen, a players lounge and a two-story weight room. `\
-https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenner-field-upgrades/
 
