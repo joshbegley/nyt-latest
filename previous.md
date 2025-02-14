@@ -1,3 +1,15 @@
+**Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
+`"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
+https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/
+
+**Mets spring training notes: Edwin Díaz on opt out, New York's pitching plans, and more**\
+`PORT ST.`\
+https://nytimes.com/athletic/6137455/2025/02/14/new-york-mets-spring-training-edwin-diaz-notes/
+
+**High Above Chernobyl, Workers Grapple With Ice, Fire and Nuclear Fears**\
+`After an apparent drone strike blew a hole in the protective shell, there is an urgent need to patch what covers the wreckage of the world’s worst nuclear accident.`\
+https://nytimes.com/2025/02/14/world/europe/chernobyl-drone-blast-scene.html
+
 **Trump Says Auto Tariffs Coming April 2**\
 `The president did not specify how much the tariffs would be or which nations could be targeted.`\
 https://nytimes.com/2025/02/14/us/politics/trump-auto-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/nixon-saturday-night-massacre-adams-sass
 **Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
 `Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
 https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html
-
-**Lance McCullers, still working toward return, reflects on Astros' transformative offseason**\
-`McCullers, who is throwing bullpen sessions, was "a little bit surprised" after watching three key players depart.`\
-https://nytimes.com/athletic/6137451/2025/02/14/astros-lance-mccullers-offseason-comeback/
-
-**No, Mark Zuckerberg Did Not Fund Anti-Trump Lawsuit, Spokesman Says**\
-`A right-wing influencer has argued that Mr. Zuckerberg was indirectly funding Protect Democracy, which is backing a lawsuit brought by labor unions against President Trump.`\
-https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.html
-
-**Tropical Cyclone Zelia Hits North Western Australia**\
-`Zelia made landfall 34 miles northeast of Port Hedland, packing winds equivalent to a Category 4 Atlantic hurricane. Residents were told to stay indoors to shelter from heavy rain and destructive winds.`\
-https://nytimes.com/video/world/australia/100000009992022/tropical-cyclone-zelia-australia.html
 

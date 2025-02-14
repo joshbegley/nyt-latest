@@ -1,3 +1,15 @@
+**Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
+`"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
+https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/
+
+**Mets spring training notes: Edwin Díaz on opt out, New York's pitching plans, and more**\
+`PORT ST.`\
+https://nytimes.com/athletic/6137455/2025/02/14/new-york-mets-spring-training-edwin-diaz-notes/
+
+**High Above Chernobyl, Workers Grapple With Ice, Fire and Nuclear Fears**\
+`After an apparent drone strike blew a hole in the protective shell, there is an urgent need to patch what covers the wreckage of the world’s worst nuclear accident.`\
+https://nytimes.com/2025/02/14/world/europe/chernobyl-drone-blast-scene.html
+
 **Trump Says Auto Tariffs Coming April 2**\
 `The president did not specify how much the tariffs would be or which nations could be targeted.`\
 https://nytimes.com/2025/02/14/us/politics/trump-auto-tariffs.html
