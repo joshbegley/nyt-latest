@@ -1,3 +1,7 @@
+**Why Investors Appear Unfazed by the Latest Trump Tariffs**\
+`The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
+https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
+
 **Arteta: Havertz injury 'an accident waiting to happen' because of schedule**\
 `Havertz's season is over after tearing his hamstring on Arsenal’s warm-weather training trip to Dubai.`\
 https://nytimes.com/athletic/6136267/2025/02/14/arsenal-injuries-kai-havertz-mikel-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133976/2025/02/14/olise-bayern-munich-kompany-pala
 **The Athletic’s Friday football quiz question #42**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6132236/2025/02/14/the-athletics-friday-football-quiz-question-42/
-
-**Lowetide: In defence of the Oilers' Evan Bouchard**\
-`Despite some puzzling struggles this year, Bouchard's resume over the last three seasons is exceptional.`\
-https://nytimes.com/athletic/6134609/2025/02/14/edmonton-oilers-evan-bouchard-stats-2025/
 

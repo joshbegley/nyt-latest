@@ -1,3 +1,7 @@
+**Why Investors Appear Unfazed by the Latest Trump Tariffs**\
+`The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
+https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
+
 **Arteta: Havertz injury 'an accident waiting to happen' because of schedule**\
 `Havertz's season is over after tearing his hamstring on Arsenal’s warm-weather training trip to Dubai.`\
 https://nytimes.com/athletic/6136267/2025/02/14/arsenal-injuries-kai-havertz-mikel-arteta/
