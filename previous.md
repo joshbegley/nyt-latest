@@ -1,3 +1,7 @@
+**Pompei: Outpouring for Virginia McCaskey shows how many lives she touched**\
+`McCaskey's mourners ranged from Bears legends to working people, billionaires to fans in Bears jerseys and Starter jackets.`\
+https://nytimes.com/athletic/6133934/2025/02/14/virginia-mccaskey-remembrance-bears/
+
 **How Trump’s Directives Echo Project 2025**\
 `President Trump attempted during his campaign to distance himself from the right-wing blueprint to overhaul the federal government, but many of his administration’s actions so far have mirrored it.`\
 https://nytimes.com/interactive/2025/02/14/us/politics/project-2025-trump-actions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/trump-bondi-foreign-corruption.html
 **Adapting the Twists and Turns of ‘Conclave’**\
 `How the novel became an Oscar-nominated film.`\
 https://nytimes.com/2025/02/14/books/review/adapting-the-twists-and-turns-of-conclave.html
-
-**Who Is Ugly?**\
-`A new book by Moshtari Hilal takes on the taboo subject of ugliness.`\
-https://nytimes.com/2025/02/14/style/who-is-ugly.html
 
