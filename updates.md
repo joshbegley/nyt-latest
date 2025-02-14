@@ -1,3 +1,7 @@
+**Banks Sell $4.7 Billion of X’s Debt, in a Sign of Investor Demand**\
+`The social media company is attracting investor interest because of Elon Musk’s close ties to President Trump and a recent jump in revenue.`\
+https://nytimes.com/2025/02/13/technology/elon-musk-x-debt-sale.html
+
 **Review: Idina Menzel Climbs to New Broadway Heights in ‘Redwood’**\
 `The “Wicked” belter scales a 300-foot tree, and a mountain of songs, in a powerful if woo-woo musical about trauma and resilience.`\
 https://nytimes.com/2025/02/13/theater/review-idina-menzel-climbs-to-new-broadway-heights-in-redwood.html
