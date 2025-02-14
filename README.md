@@ -1,3 +1,11 @@
+**Vance Tells Europeans to Stop Shunning Parties Deemed Extreme**\
+`His comments, a week before Germany’s elections, seemed to specifically target efforts to sideline the hard-right Alternative for Germany.`\
+https://nytimes.com/2025/02/14/world/europe/vance-europe-immigration-ukraine.html
+
+**Theater to Watch at Home: ‘Uncle Vanya’ and an Alice Childress Revival**\
+`A bare-bones Chekhov, a critically acclaimed revival of “The Wedding Band” and the cult TV series “Smash” are all available for streaming.`\
+https://nytimes.com/2025/02/14/theater/streaming-theater-uncle-vanya-smash.html
+
 **Watkins and Mings set for Aston Villa return against Ipswich**\
 `Mings sustained a knee injury in Villa’s draw with West Ham in January while Watkins suffered a groin issue against Wolves two weeks ago.`\
 https://nytimes.com/athletic/6136667/2025/02/14/ollie-watkins-tyrone-mings-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/business/interest-rates-treasury-markets-investin
 **Amorim drafts in academy players for Man United training amid injury, illness 'issues'**\
 `The Portuguese could be facing a reshuffle of his squad for Sunday's Premier League trip to Tottenham Hotspur.`\
 https://nytimes.com/athletic/6136533/2025/02/14/manchester-united-injuries-team-news-amorim/
-
-**Row Z: Make INEOS make sense, Firmino hits the sun lounger, and football frustrates transfer**\
-`Tim Spiers takes his weekly look at the sillier side of football...`\
-https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
-
-**Notre Dame hiring Mike Martin from Lions as new GM: Source**\
-`Detroit Lions director of scouting advancement Mike Martin is expected to become Notre Dame's new football general manager.`\
-https://nytimes.com/athletic/6136507/2025/02/14/notre-dame-gm-mike-martin-lions/
 
