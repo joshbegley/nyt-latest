@@ -1,3 +1,11 @@
+**Planning permission for Wimbledon tennis expansion faces judicial review in High Court**\
+`Save Wimbledon Park said it had cited three grounds of legal significance, all of which had been accepted as “arguable” by the High Court.`\
+https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judicial-review-high-court/
+
+**Drake Releases New Album, ‘$ome $exy $ongs 4 U,’ Pivoting From Rap Beef**\
+`The Valentine’s Day release, a collaboration with PartyNextDoor, tries on different styles (acoustic pop, traditional Mexican) while only alluding to Kendrick Lamar.`\
+https://nytimes.com/2025/02/14/arts/music/drake-some-sexy-songs-partynextdoor.html
+
 **Footballer Hwang given suspended sentence for secretly filming sex with woman**\
 `The former Forest striker was convicted of charges related to one woman but acquitted of charges related to another.`\
 https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-sentence/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-inju
 **Why Investors Appear Unfazed by the Latest Trump Tariffs**\
 `The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
 https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
-
-**Arteta: Havertz injury 'an accident waiting to happen' because of schedule**\
-`Havertz's season is over after tearing his hamstring on Arsenal’s warm-weather training trip to Dubai.`\
-https://nytimes.com/athletic/6136267/2025/02/14/arsenal-injuries-kai-havertz-mikel-arteta/
-
-**Pope Francis Is Admitted to Hospital for Bronchitis**\
-`The 88-year-old pontiff, who has been battling health problems for years, is expected to remain hospitalized in Rome, the Vatican said.`\
-https://nytimes.com/2025/02/14/world/europe/pope-francis-hospital-bronchitis.html
 
