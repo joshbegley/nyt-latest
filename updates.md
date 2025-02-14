@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-bettin
 `\
 https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
 
+**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
+`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
+`\
+https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+
 **The Athletic FC: Is relegation coming to U.S. soccer? Teen's Euro goalscoring record**\
 `Today in TAFC: The USL division that could bring promotion and relegation to US soccer. Plus: The 16-year-old who scored in Europe on debut`\
 https://nytimes.com/athletic/6136275/2025/02/14/usl-mls-promotion-relegation/
