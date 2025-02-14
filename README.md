@@ -1,3 +1,7 @@
+**Banks Sell $4.7 Billion of X’s Debt, in a Sign of Investor Demand**\
+`The social media company is attracting investor interest because of Elon Musk’s close ties to President Trump and a recent jump in revenue.`\
+https://nytimes.com/2025/02/13/technology/elon-musk-x-debt-sale.html
+
 **Review: Idina Menzel Climbs to New Broadway Heights in ‘Redwood’**\
 `The “Wicked” belter scales a 300-foot tree, and a mountain of songs, in a powerful if woo-woo musical about trauma and resilience.`\
 https://nytimes.com/2025/02/13/theater/review-idina-menzel-climbs-to-new-broadway-heights-in-redwood.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenn
 **Joann Is More Than a Chain Store to ‘Heartbroken’ Regulars**\
 `For quilters, knitters and crafters, Joann, which expects to close more than half of its stores after filing for bankruptcy, has been a one-stop shop — and more.`\
 https://nytimes.com/2025/02/13/style/joann-bankruptcy-reactions.html
-
-**Angels' Ben Joyce, fresh off losing closer's role, is 'excited' to learn from Kenley Jansen**\
-`“It’s awesome to get to learn from a guy like that," Joyce said. "I’m going to just be an open book. Keep my ears open."`\
-https://nytimes.com/athletic/6135655/2025/02/13/angels-closer-ben-joyce-kenley-jansen/
 
