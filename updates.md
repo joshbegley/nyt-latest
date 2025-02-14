@@ -1,3 +1,7 @@
+**Bubba Wallace grabs first Daytona 500 qualifying win in tight finish**\
+`The win puts Wallace in the third starting spot for the Daytona 500, a race he’s never won but twice finished runner up.`\
+https://nytimes.com/athletic/6135869/2025/02/13/bubba-wallace-daytona-500-qualifying-win/
+
 **Billionaire Airbnb Co-Founder Is Said to Take Role in Musk’s Government Initiative**\
 `Joe Gebbia is a board member at Tesla and is close to Elon Musk, the company’s C.E.O.`\
 https://nytimes.com/2025/02/13/us/politics/airbnb-joe-gebbia-musk-doge.html
