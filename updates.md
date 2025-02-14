@@ -1,3 +1,7 @@
+**TikTok Returns to Apple and Google App Stores**\
+`The popular social media app was removed to comply with a new law that banned it in the United States. President Trump has paused enforcement of the ban.`\
+https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
+
 **Banks Sell $4.7 Billion of X’s Debt, in a Sign of Investor Demand**\
 `The social media company is attracting investor interest because of Elon Musk’s close ties to President Trump and a recent jump in revenue.`\
 https://nytimes.com/2025/02/13/technology/elon-musk-x-debt-sale.html
