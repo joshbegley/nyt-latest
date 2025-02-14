@@ -1,3 +1,7 @@
+**Team USA reacts to Montreal crowd booing anthem at 4 Nations Face-Off**\
+`The negative reaction from some fans inside Bell Centre stirred a range of emotions in the American players.`\
+https://nytimes.com/athletic/6136046/2025/02/14/team-usa-anthem-4-nations-montreal/
+
 **No. 6 USC takes down No. 1 UCLA 71-60, ending Bruins' undefeated streak**\
 `USC now sits atop the Big Ten standings at 12-1, and UCLA is a half-game behind at 11-1.`\
 https://nytimes.com/athletic/6136025/2025/02/14/ucla-usc-ncaa-basketball/
