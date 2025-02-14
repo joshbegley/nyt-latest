@@ -1,3 +1,11 @@
+**No. 6 USC takes down No. 1 UCLA 71-60, ending Bruins' undefeated streak**\
+`USC now sits atop the Big Ten standings at 12-1, and UCLA is a half-game behind at 11-1.`\
+https://nytimes.com/athletic/6136025/2025/02/14/ucla-usc-ncaa-basketball/
+
+**Vance Says All Options on Table to Pressure Russia to End Ukraine War**\
+`Vice President JD Vance told The Wall Street Journal that it was too early to talk about specific territorial or security arrangements.`\
+https://nytimes.com/2025/02/14/world/europe/vance-russia-ukraine-war.html
+
 **Sam Kerr's trial and the complex issues of privilege and power**\
 `In being cleared of racially aggravated harassment, Kerr made clear how she felt privilege and power were a key part of this case`\
 https://nytimes.com/athletic/6131427/2025/02/14/sam-kerr-trial-privilege/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6041066/2025/02/14/brighton-squad-size/
 **Project Reset: Why some Leicester City fans are calling for change on Saturday**\
 `Why a group of Leicester fans are organising a protest before their side play Arsenal this weekend`\
 https://nytimes.com/athletic/6133872/2025/02/14/leicester-city-project-reset-protests/
-
-**Is the Rogers n' Ramsey partnership the most exciting aspect of Villa's attack right now?**\
-`The paths of the two young players diverged but now they're together and flourishing`\
-https://nytimes.com/athletic/6128923/2025/02/14/is-the-rogers-n-ramsey-partnership-the-most-exciting-aspect-of-villas-attack-right-now/
-
-**Newcastle face a daunting run at their biggest bogey grounds, but this time it can be different**\
-`The club have a terrible record at the Etihad, Anfield and Wembley — but other performances this season suggest they can confound history`\
-https://nytimes.com/athletic/6133736/2025/02/14/newcastle-daunting-run-bogey-grounds/
 
