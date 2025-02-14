@@ -1,3 +1,7 @@
+**Lula says Brazil will not back down to Trump.**\
+`By Jack Nicas`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/lula-says-brazil-will-not-back-down-to-trump
+
 **Vance Lectures Europe on Democracy at Security Meeting**\
 `Vice President JD Vance criticized European governments at the Munich Security Conference on Friday, saying that they are failing to uphold democratic values and are exercising extreme censorship.`\
 https://nytimes.com/video/world/europe/100000009991414/vance-democracy-munich-security-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135346/2025/02/14/fantasy-trends-and-hidden-gems-m
 **Ben Simmons' teammates shower him with praise after Clippers debut**\
 `"That's why he was the No. 1 pick, that's why he was an All-Star in the NBA," Nicolas Batum said of Simmons' impact Thursday.`\
 https://nytimes.com/athletic/6136410/2025/02/14/ben-simmons-clippers-debut-nba/
-
-**Mailbag: Sidney Crosby's greatness, Penguins' next move**\
-`Sidney Crosby put on one of the great shows of his career on Wednesday, and this resulted in plenty of questions about the captain.`\
-https://nytimes.com/athletic/6136658/2025/02/14/sidney-crosby-4-nations-face-off-penguins-mailbag/
 
