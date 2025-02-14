@@ -1,3 +1,15 @@
+**Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
+`Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
+https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
+
+**Slash Now, Fix Later**\
+`Elon Musk is using the same tactics to cut the government that he used to overhaul Twitter. But there are important differences.`\
+https://nytimes.com/2025/02/14/us/politics/slash-now-fix-later.html
+
+**Vance Shocks Europe With a Message That He Has Long Promoted at Home**\
+`The vice president’s speech in Munich, expressing support for far-right, anti-immigration parties and criticizing suppression of conservative voices, was a global extension of his core political themes.`\
+https://nytimes.com/2025/02/14/us/politics/vance-far-right-germany-munich-afd.html
+
 **Protesters Rally Against Deletion of ‘Transgender’ on Stonewall Website**\
 `Hundreds of people gathered at the Greenwich Village site to condemn what they saw as a chilling strike against the symbolic heart of the gay rights movement.`\
 https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/arts/jay-z-lawsuit-dismissed.html
 **U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
 `Players expect the much-anticipated matchup between the countries to be measured by grit and will rather than pure skill.`\
 https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
-
-**U.S. Asks Judge to Drop Adams Case After Manhattan Prosecutor Quits**\
-`New York City’s mayor was accused of bribery, fraud and soliciting illegal foreign campaign donations. President Trump’s administration wants him free to help with mass deportations.`\
-https://nytimes.com/2025/02/14/nyregion/eric-adams-drop-charges-sdny.html
-
-**Read the Motion to Dismiss the Corruption Case Against Mayor Adams**\
-`Federal prosecutors in Washington asked a judge to drop charges against Eric Adams, the mayor of New York City, after several of their colleagues resigned rather than heed an order to drop the case.`\
-https://nytimes.com/interactive/2025/02/14/us/adams-dismissal.html
-
-**The White House Rose Garden in Photos: A Showcase of Presidential Power**\
-`A look at key moments at the White House’s signature outdoor setting amid reports that it may be turned into a Mar-a-Lago-like patio.`\
-https://nytimes.com/2025/02/14/style/white-house-rose-garden-photos.html
 

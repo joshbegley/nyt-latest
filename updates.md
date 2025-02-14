@@ -1,3 +1,15 @@
+**Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
+`Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
+https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
+
+**Slash Now, Fix Later**\
+`Elon Musk is using the same tactics to cut the government that he used to overhaul Twitter. But there are important differences.`\
+https://nytimes.com/2025/02/14/us/politics/slash-now-fix-later.html
+
+**Vance Shocks Europe With a Message That He Has Long Promoted at Home**\
+`The vice president’s speech in Munich, expressing support for far-right, anti-immigration parties and criticizing suppression of conservative voices, was a global extension of his core political themes.`\
+https://nytimes.com/2025/02/14/us/politics/vance-far-right-germany-munich-afd.html
+
 **U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
 `Players expect the much-anticipated matchup between the countries to be measured by grit and will rather than pure skill.`\
 https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
