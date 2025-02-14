@@ -1,3 +1,7 @@
+**I’ve Seen the World Our Trash Makes, and It’s Terrifying**\
+`The world’s poorer nations have never stopped being receptacles for the West’s rubbish.`\
+https://nytimes.com/2025/02/14/opinion/trash-recycling-global-waste-trade.html
+
 **Team USA reacts to Montreal crowd booing anthem at 4 Nations Face-Off**\
 `The negative reaction from some fans inside Bell Centre stirred a range of emotions in the American players.`\
 https://nytimes.com/athletic/6136046/2025/02/14/team-usa-anthem-4-nations-montreal/
