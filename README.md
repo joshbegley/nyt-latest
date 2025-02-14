@@ -1,3 +1,7 @@
+**Musiala signs new Bayern contract until 2030**\
+`The 21-year-old’s previous deal, which was his first professional contract, was set to expire in 2026.`\
+https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
+
 **In a Corner of Wales, Britain’s Hard-Right Reform U.K. Party Gains Ground**\
 `Nigel Farage’s anti-immigrant party is winning over some disillusioned Labour voters by targeting regions that are struggling economically and by campaigning on local issues.`\
 https://nytimes.com/2025/02/14/world/europe/reform-uk-wales-farage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136356/2025/02/14/notre-dame-footbal-playoff-2025-
 **Appreciating No. 1 Auburn vs. No. 2 Alabama and the impactful weekend ahead: Court Vision**\
 `There's also a battle for Big East supremacy at Madison Square Garden and an intriguing Big 12 showdown.`\
 https://nytimes.com/athletic/6135592/2025/02/14/alabama-basketball-auburn-rankings-st-johns-houston/
-
-**Hamas Names Hostages Set for Release on Saturday**\
-`An exchange of hostages for Palestinians jailed by Israel had been thrown into doubt after days of mutual recriminations. Israel has not yet commented.`\
-https://nytimes.com/2025/02/14/world/middleeast/israel-hamas-gaza-hostages.html
 
