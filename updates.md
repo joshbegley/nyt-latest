@@ -1,3 +1,15 @@
+**6 Killed in Fire at Luxury Hotel Construction Site in South Korea**\
+`The fire at an unfinished Banyan Tree resort in the southeastern port city of Busan spread quickly, leaving 25 others injured.`\
+https://nytimes.com/2025/02/14/world/asia/south-korea-busan-fire.html
+
+**Hurzeler enjoys Brighton-Chelsea 'tension': 'It shows we are ready to fight'**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says the tension with Chelsea can benefit his side — as long as his players use it in the right way.`\
+https://nytimes.com/athletic/6133741/2025/02/14/fabian-hurzeler-brighton-chelsea-tension/
+
+**Word of the Day: nomadic**\
+`This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/14/learning/word-of-the-day-nomadic.html
+
 **Late Night Braces for the Reign of R.F.K. Jr., Health Czar**\
 `“Bobby Brainworm is on the job,” Jimmy Kimmel said after President Trump’s nominee for health secretary was confirmed and sworn in.`\
 https://nytimes.com/2025/02/14/arts/television/late-night-rfk-jr-health-czar.html

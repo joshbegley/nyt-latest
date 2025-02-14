@@ -1,3 +1,15 @@
+**6 Killed in Fire at Luxury Hotel Construction Site in South Korea**\
+`The fire at an unfinished Banyan Tree resort in the southeastern port city of Busan spread quickly, leaving 25 others injured.`\
+https://nytimes.com/2025/02/14/world/asia/south-korea-busan-fire.html
+
+**Hurzeler enjoys Brighton-Chelsea 'tension': 'It shows we are ready to fight'**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says the tension with Chelsea can benefit his side — as long as his players use it in the right way.`\
+https://nytimes.com/athletic/6133741/2025/02/14/fabian-hurzeler-brighton-chelsea-tension/
+
+**Word of the Day: nomadic**\
+`This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/14/learning/word-of-the-day-nomadic.html
+
 **Late Night Braces for the Reign of R.F.K. Jr., Health Czar**\
 `“Bobby Brainworm is on the job,” Jimmy Kimmel said after President Trump’s nominee for health secretary was confirmed and sworn in.`\
 https://nytimes.com/2025/02/14/arts/television/late-night-rfk-jr-health-czar.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6131427/2025/02/14/sam-kerr-trial-privilege/
 **FPL: Why you should keep an eye on the future in Double Gameweek 25**\
 `Double Gameweek 25 is another prime opportunity to rack up a big score — but future blanks have to be taken into account`\
 https://nytimes.com/athletic/6130152/2025/02/14/fantasy-premier-league-double-gameweek-25-blank/
-
-**Everton's big unanswered question - will Thelwell play a leading role in the rebuild?**\
-`The Friedkin Group are new owners, David Moyes is now manager - but what will happen to director of football Kevin Thelwell?`\
-https://nytimes.com/athletic/6134154/2025/02/14/kevin-thelwell-everton-future-transfers/
-
-**Judge Orders Trump Administration to Resume Foreign Aid Spending**\
-`The judge faulted the logic of a blanket freeze on foreign aid spending and found that groups that depend on the aid had made a strong initial showing of “irreparable harm.”`\
-https://nytimes.com/2025/02/14/us/politics/court-trump-foreign-aid-freeze.html
-
-**From 'club signing' to undroppable, how Djed Spence turned his Spurs career around**\
-`The evidence suggests Spence should be in Spurs' starting XI regardless of the fitness of other defenders. It is an incredible turnaround...`\
-https://nytimes.com/athletic/6134656/2025/02/14/djed-spence-tottenham/
 
