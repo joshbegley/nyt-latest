@@ -1,3 +1,7 @@
+**Watch: What would a perfect offseason look like for the Bengals?**\
+`The Athletic Football Show discuss what a perfect offseason would look like for the Cincinnati Bengals.`\
+https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-offseason/
+
 **The Best Argument Against Having Faith in God**\
 `Why the problem of evil is not really an argument for atheism.`\
 https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
