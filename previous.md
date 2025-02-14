@@ -1,3 +1,35 @@
+**Adams tells Dr. Phil he’s happy to work with Trump’s border czar.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/adams-tells-dr-phil-hes-happy-to-work-with-trumps-border-czar
+
+**Intimidated By Deadlifts? Try This Version Instead.**\
+`The Romanian deadlift offers all the benefits of a traditional deadlift but is less intimidating and easier on the body.`\
+https://nytimes.com/interactive/2025/02/14/well/move/romanian-deadlift-technique.html
+
+**The Sierra Nevada Just Had an ‘Epic Snow Day’**\
+`The mountain range straddling California and Nevada has had mostly warm storms this winter. Finally, a cold one has piled up multiple feet of snow.`\
+https://nytimes.com/2025/02/14/weather/sierra-nevada-snow.html
+
+**Trump Officials Pushed Ahead With Mass Layoffs**\
+`Also, a man in Chile was briefly “swallowed” by a whale. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/02/14/briefing/trump-mass-layoffs-eric-adams-new-york.html
+
+**F.B.I. Calls D.H.S. Secretary’s Criticism ‘Deeply Irresponsible’**\
+`Secretary Kristi Noem suggested this week that F.B.I. special agents leaked details ahead of immigration arrests being conducted on the West Coast.`\
+https://nytimes.com/2025/02/14/us/politics/fbi-kristi-noem-dhs.html
+
+**Ken Wydro, Who Helped Create an Off Broadway Phenomenon, Dies at 81**\
+`He and his wife, Vy Higginsen, poured all they had into “Mama, I Want to Sing,” a long-shot musical that became an enduring staple of Black theater.`\
+https://nytimes.com/2025/02/14/theater/ken-wydro-dead.html
+
+**‘Yellowjackets’ Season 3, Episode 2 Recap: New Friends**\
+`An unexpected visitor shows up on Adult Shauna’s doorstep, prompting Callie to get ideas. Young Shauna makes a new friend.`\
+https://nytimes.com/2025/02/14/arts/television/yellowjackets-season-3-episode-2-recap.html
+
+**Broncos bring in ex-Saints coach Darren Rizzi as special teams coordinator**\
+`Rizzi, who spent multiple seasons in New Orleans, will reunite with coach Sean Payton in Denver.`\
+https://nytimes.com/athletic/6137610/2025/02/14/broncos-darren-rizz-special-teams-coordinator/
+
 **Why Prosecutors Accused Their Bosses of Offering Adams a Quid Pro Quo**\
 `The federal prosecutor who received orders to drop charges against Eric Adams said that the Trump administration was seeking the mayor’s cooperation on immigration enforcement.`\
 https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
 **Penn State hires ex-Temple coach Stan Drayton to staff**\
 `Stan Drayton will be Penn State's new running backs coach as the replacement for Ja'Juan Seider, who left for the same role at Notre Dame.`\
 https://nytimes.com/athletic/6136928/2025/02/14/penn-state-stan-drayton-running-backs-coach/
-
-**Prime Tire: Max Verstappen's big sim racing plans; McLaren and Williams drivers speak**\
-`Welcome back to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6137590/2025/02/14/prime-tire-f1-max-verstappen-sim-racing-mclaren-williams-2025-launch/
-
-**Two people shot during Eagles' Super Bowl parade in Philadelphia**\
-`Medics transported the two women who were shot to Presbyterian Hospital, and they are listed in stable condition.`\
-https://nytimes.com/athletic/6137606/2025/02/14/eagles-parade-shooting-philadelphia-super-bowl/
-
-**Seeking a Mar-a-Lago Vibe, Trump Considers Paving Over Grass in Rose Garden**\
-`The president has been discussing plans to rip up the grass in one of the White House’s most iconic locations and put in a hard surface to serve as a patio like the one at his Florida home and club.`\
-https://nytimes.com/2025/02/14/us/politics/mar-a-lago-trump-grass-rose-garden.html
-
-**Ilona Maher, Bristol Bears face nervous wait over Premiership SF spot**\
-`Maher, the world's most followed rugby player on social media, had every move of her 73-minute outing cheered by over 6,000 fans on Friday.`\
-https://nytimes.com/athletic/6137611/2025/02/14/ilona-maher-bristol-bears-premiership-semi-finals/
-
-**The Briefing: Brighton 3 Chelsea 0 - more problems for Maresca, Madueke injury and hosts' magic moments**\
-`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Brighton & Hove Albion`\
-https://nytimes.com/athletic/6126110/2025/02/14/brighton-chelsea-premier-league-analysis/
-
-**Eleanor Maguire, Memory Expert Who Studied London Cabbies, Dies at 54**\
-`By watching the brain process information, she discovered that a specific region plays a key role in spatial navigation — and that it can be strengthened like a muscle.`\
-https://nytimes.com/2025/02/14/science/eleanor-maguire-dead.html
-
-**Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
-`This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
-https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html
-
-**LeBrun: Canada vs. USA rivalry enters new era with same intensity**\
-`Players from the last time Team USA beat Canada in men's best-on-best play reflect on what the return of the format means to the rivalry.`\
-https://nytimes.com/athletic/6137542/2025/02/14/canada-usa-4-nations-face-off-lebrun/
 
