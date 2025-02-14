@@ -1,3 +1,11 @@
+**Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
+`Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
+https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/
+
+**What a perfect trade deadline could look like for the Canucks in 2025**\
+`The Canucks' overall positioning going into the deadline is as complex and difficult as it's been in a decade.`\
+https://nytimes.com/athletic/6136128/2025/02/14/vancouver-canucks-trade-deadline-perfect-2025/
+
 **Musiala signs new Bayern contract until 2030**\
 `The 21-year-old’s previous deal, which was his first professional contract, was set to expire in 2026.`\
 https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/world/europe/pope-francis-hospital-bronchitis.htm
 **'Keep Coach Prime': Where do Deion Sanders and Colorado stand in reaching new deal?**\
 `Colorado and Sanders are in the thick of negotiations on a contract extension, according to a school source.`\
 https://nytimes.com/athletic/6134463/2025/02/14/deion-sanders-colorado-football-contract/
-
-**Notre Dame mailbag: What is your defining memory of the 2024 season?**\
-`Looking back at Notre Dame's memorable Playoff run and looking ahead to a challenging start to the 2025 football season and more.`\
-https://nytimes.com/athletic/6136356/2025/02/14/notre-dame-footbal-playoff-2025-mailbag/
-
-**Appreciating No. 1 Auburn vs. No. 2 Alabama and the impactful weekend ahead: Court Vision**\
-`There's also a battle for Big East supremacy at Madison Square Garden and an intriguing Big 12 showdown.`\
-https://nytimes.com/athletic/6135592/2025/02/14/alabama-basketball-auburn-rankings-st-johns-houston/
 

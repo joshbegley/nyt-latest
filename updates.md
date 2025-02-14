@@ -1,3 +1,11 @@
+**Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
+`Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
+https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/
+
+**What a perfect trade deadline could look like for the Canucks in 2025**\
+`The Canucks' overall positioning going into the deadline is as complex and difficult as it's been in a decade.`\
+https://nytimes.com/athletic/6136128/2025/02/14/vancouver-canucks-trade-deadline-perfect-2025/
+
 **Musiala signs new Bayern contract until 2030**\
 `The 21-year-old’s previous deal, which was his first professional contract, was set to expire in 2026.`\
 https://nytimes.com/athletic/6136452/2025/02/14/jamal-musiala-bayern-munich-contract/
