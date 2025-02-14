@@ -1,3 +1,7 @@
+**China Says U.S. Should Lead Trump’s Proposed Arms Control Effort**\
+`President Trump said China and Russia should halve their military spending and limit nuclear weapons. You first, China said.`\
+https://nytimes.com/2025/02/14/world/asia/china-trump-nuclear-military.html
+
 **Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
 `The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6133778/2025/02/14/manchester-city-vs-newcastle-bet
 **Jets' salary cap situation with Aaron Rodgers on the way out (and Davante Adams likely to follow)**\
 `With Davante Adams and Allen Lazard likely on the way out as well, how things are shaping up on the Jets' cap sheet.`\
 https://nytimes.com/athletic/6134674/2025/02/14/new-york-jets-salary-cap-room-aaron-rodgers-contract/
-
-**Rangers prospects Perreault and Fortescue searching for one last win before pros**\
-`The two 2023 Rangers draft picks hope that one more championship with Boston College might send them to the pros at just the right time.`\
-https://nytimes.com/athletic/6131526/2025/02/14/rangers-prospects-gabe-perreault-drew-fortescue/
 
