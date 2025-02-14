@@ -1,3 +1,7 @@
+**Giants open to potential sale of minority stake in franchise**\
+`NFL owners voted recently to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
+https://nytimes.com/athletic/6135960/2025/02/13/giants-sale-minority-stake/
+
 **Louisiana Health Department Says It Will Stop Promoting ‘Mass Vaccination’**\
 `“Vaccines should be treated with nuance, recognizing differences between seasonal vaccines and childhood immunizations,” Dr. Ralph L. Abraham, the state’s surgeon general, wrote in a memo.`\
 https://nytimes.com/2025/02/13/us/louisiana-mass-vaccination.html
