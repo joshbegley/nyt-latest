@@ -1,3 +1,7 @@
+**How Trump Is Approaching Foreign Policy**\
+`Maggie Haberman, Zolan Kanno-Youngs and David Sanger join Michael Barbaro to discuss the projections of power by the Trump administration over the past week.`\
+https://nytimes.com/video/podcasts/the-daily/100000009983843/how-trump-is-approaching-foreign-policy.html
+
 **Noonan, 16, becomes second youngest UEFA club competition scorer**\
 `Noonan scored against Molde aged 16 years and 197 days old.`\
 https://nytimes.com/athletic/6135407/2025/02/14/noonan-uefa-european-goal-shamrock-conference-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/insider/astrid-lopez-avianca-flight-52.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/14/crosswords/spelling-bee-forum.html
-
-**Here are the latest developments.**\
-`By Qasim Nauman`\
-https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
 
