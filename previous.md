@@ -1,40 +1,40 @@
-**Ukrainians Fear Peace May Strand Them Forever From Lost Homes**\
-`Bitterness has greeted suggestions that occupied territory will have to be ceded to Russia: “It’s like ripping off a man’s arm or leg and then saying, ‘Let it be as it is.’”`\
-https://nytimes.com/2025/02/14/world/europe/occupied-ukraine-russia-peace.html
+**Bills 2025 free agent rankings: Potential new contracts and interest on the open market**\
+`Rasul Douglas and Amari Cooper are among the notable names set to hit free agency.`\
+https://nytimes.com/athletic/6135188/2025/02/14/bills-2025-free-agents-rasul-douglas-amari-cooper/
 
-**Man City vs Real Madrid sets new streaming record for Amazon’s Prime Video**\
-`The fixture between Manchester City and Real Madrid was the first leg of their Champions League play-off.`\
-https://nytimes.com/athletic/6136286/2025/02/14/man-city-real-madrid-amazon-streaming-record/
+**Warriors legend Rick Barry reflects on how he rocked the Cow Palace in 1967 All-Star Game**\
+`A 22-year-old Barry scored 38 points in a contest that featured 18 Hall of Famers. "Yeah, it was pretty damn good."`\
+https://nytimes.com/athletic/6125439/2025/02/14/rick-barry-warriors-nba-all-star-game-cow-palace/
 
-**Premier League accumulator picks: this weekend’s best bets**\
-`The Athletic’s Sam Tighe offers insights on the best bets to add to your accumulator ahead of this weekend’s Premier League action`\
-https://nytimes.com/athletic/6136287/2025/02/14/premier-league-accumulator-picks-best-bets/
+**Arsenal live Q&A: Our club correspondent Jordan Campbell answers your questions**\
+`Get your questions in now for Jordan and he will be with you between 4pm and 5pm GMT (11am to 12pm ET) to answer as many as he can.`\
+https://nytimes.com/athletic/6134635/2025/02/14/arsenal-havertz-transfers-dubai/
 
-**Bengals mock draft 0.5: Setting the table with an infusion for Al Golden's defense**\
-`Major looming decisions are keeping Cincinnati's draft strategy in flux, but here are some positions they'll likely be looking to address.`\
-https://nytimes.com/athletic/6134921/2025/02/14/bengals-mock-draft-al-golden/
+**Wrexham's new Kop stand: What the designs and planning details reveal**\
+`Everything you need to know about the redevelopment at the Racecourse`\
+https://nytimes.com/athletic/6112278/2025/02/14/wrexhams-new-kop-stand-what-the-designs-and-planning-details-reveal/
 
-**Commanders mock draft 1.0: Linemen, offensive playmaker targeted early**\
-`Our first Washington mock draft of the year highlights the team's needs, including help along the O-line and D-line, at WR and CB. `\
-https://nytimes.com/athletic/6134584/2025/02/14/washington-commanders-2025-mock-draft/
+**From bowling to hockey, competitiveness drove Bryan Bickell's early career in Rockford**\
+`Bickell will be recognized for his contributions, both on and off the ice, when he is inducted into the IceHogs Ring of Honor on Saturday.`\
+https://nytimes.com/athletic/6135085/2025/02/14/blackhawks-bryan-bickell-rockford-icehogs/
 
-**These Podcasters Want to Teach You How to Date**\
-`Elizabeth Day, a British writer, and Mel Schilling, a dating coach, are the hosts of the new podcast “How to Date.” In time for Valentine’s Day, here are their top tips.`\
-https://nytimes.com/2025/02/14/world/europe/how-to-date-podcast.html
+**Man City vs Newcastle betting preview: Can the Citizens stave off the tricky Toons?**\
+`The Athletic's Oli Gamp offers his betting insight ahead of this weekend's clash between Manchester City and Newcastle.`\
+https://nytimes.com/athletic/6133778/2025/02/14/manchester-city-vs-newcastle-betting-preview-odds-predictions/
 
-**Slot: 'Emotions got the better of me' after Merseyside derby**\
-`The Liverpool head coach was sent off for his complaints to referee Michael Oliver after the full-time whistle.`\
-https://nytimes.com/athletic/6136256/2025/02/14/liverpool-arne-slot-red-card-everton/
+**Jets' salary cap situation with Aaron Rodgers on the way out (and Davante Adams likely to follow)**\
+`With Davante Adams and Allen Lazard likely on the way out as well, how things are shaping up on the Jets' cap sheet.`\
+https://nytimes.com/athletic/6134674/2025/02/14/new-york-jets-salary-cap-room-aaron-rodgers-contract/
 
-**Pompei: Outpouring for Virginia McCaskey shows how many lives she touched**\
-`McCaskey's mourners ranged from Bears legends to working people, billionaires to fans in Bears jerseys and Starter jackets.`\
-https://nytimes.com/athletic/6133934/2025/02/14/virginia-mccaskey-remembrance-bears/
+**Rangers prospects Perreault and Fortescue searching for one last win before pros**\
+`The two 2023 Rangers draft picks hope that one more championship with Boston College might send them to the pros at just the right time.`\
+https://nytimes.com/athletic/6131526/2025/02/14/rangers-prospects-gabe-perreault-drew-fortescue/
 
-**How Trump’s Directives Echo Project 2025**\
-`President Trump attempted during his campaign to distance himself from the right-wing blueprint to overhaul the federal government, but many of his administration’s actions so far have mirrored it.`\
-https://nytimes.com/interactive/2025/02/14/us/politics/project-2025-trump-actions.html
+**Mass Government Layoffs Begin, and New Abortion Fight Takes Shape**\
+`Plus, why crafters are in mourning.`\
+https://nytimes.com/2025/02/14/podcasts/the-headlines/government-layoffs-trump-abortion-musk.html
 
-**FEMA Quietly Eases Rules Meant to Protect Buildings in Flood Zones**\
-`The agency issued an internal memo saying it would “pause” a regulation directing that schools, libraries and other public facilities damaged by disasters be rebuilt safely.`\
-https://nytimes.com/2025/02/14/climate/fema-quietly-eases-rules-meant-to-protect-buildings-in-flood-zones.html
+**Greenberg: Cubs, White Sox enter spring training with modest hopes of improvement**\
+`The Cubs are hoping to win the NL Central, while the White Sox are just trying to win more games than last season. `\
+https://nytimes.com/athletic/6135721/2025/02/14/chicago-cubs-white-sox-spring-training/
 
