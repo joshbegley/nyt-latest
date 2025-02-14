@@ -1,3 +1,27 @@
+**Jay-Z Accuser Drops Rape Lawsuit Against Him and Sean Combs**\
+`The anonymous plaintiff’s account was attacked as inconsistent after an NBC report called details from her account into question.`\
+https://nytimes.com/2025/02/14/arts/jay-z-lawsuit-dismissed.html
+
+**U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
+`Players expect the much-anticipated matchup between the two countries to be measured by grit and will rather than pure skill.`\
+https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
+
+**U.S. Asks Judge to Drop Adams Case After Manhattan Prosecutor Quits**\
+`New York City’s mayor was accused of bribery, fraud and soliciting illegal foreign campaign donations. President Trump’s administration wants him free to help with mass deportations.`\
+https://nytimes.com/2025/02/14/nyregion/eric-adams-drop-charges-sdny.html
+
+**Read the Motion to Dismiss the Corruption Case Against Mayor Eric Adams**\
+`Federal prosecutors in Washington asked a judge to drop charges against Mayor Eric Adams of New York on Friday, after several of their colleagues resigned rather than heed an order to drop the case.`\
+https://nytimes.com/interactive/2025/02/14/us/adams-dismissal.html
+
+**The White House Rose Garden in Photos: A Showcase of Presidential Power**\
+`A look at key moments at the White House’s signature outdoor setting amid reports that it may be turned into a Mar-a-Lago-like patio.`\
+https://nytimes.com/2025/02/14/style/white-house-rose-garden-photos.html
+
+**Heavy Rains Set Off Mudslides Across Southern California**\
+`A Los Angeles Fire Department vehicle was swept into the Pacific Ocean during a storm in Malibu on Thursday. Officials said road conditions were especially dangerous in areas affected by the wildfires last month.`\
+https://nytimes.com/video/weather/100000009992599/southern-california-mudslide.html
+
 **Trump Administration Toughens Rules for Release of Migrant Children**\
 `A new policy requires the fingerprinting of all adults who will be living with a migrant child in the United States. Advocates for immigrants say it could fuel overcrowding in shelters.`\
 https://nytimes.com/2025/02/14/us/politics/trump-rules-migrant-children.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/manhattan-us-attorneys-sassoon.html
 **A Fire Vehicle Plunges Into the Pacific on a Day of Mudslides**\
 `Southern California took stock on Friday of the damage from an intense bout of rain. Among the most dramatic scenes: a Fire Department vehicle that was swept to the sea.`\
 https://nytimes.com/2025/02/14/us/storm-la-mudslides-flood-rain.html
-
-**Chelsea's Madueke 'out for a while' with hamstring injury - Maresca**\
-`Madueke was substituted in the 21st minute shortly after making a long run down the right flank and immediately going to ground.`\
-https://nytimes.com/athletic/6137774/2025/02/14/noni-madueke-chelsea-injury-update/
-
-**A Night at the Donald J. Trump Center for the Performing Arts**\
-`It’s still called the Kennedy Center. But after President Trump’s takeover, drag performers protested outside while audience members inside worried about what might be in store.`\
-https://nytimes.com/2025/02/14/arts/music/kennedy-center-donald-trump.html
-
-**Adams tells Dr. Phil he’s happy to work with Trump’s border czar.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/adams-tells-dr-phil-hes-happy-to-work-with-trumps-border-czar
-
-**Intimidated By Deadlifts? Try This Version Instead.**\
-`The Romanian deadlift offers all the benefits of a traditional deadlift but is less intimidating and easier on the body.`\
-https://nytimes.com/interactive/2025/02/14/well/move/romanian-deadlift-technique.html
-
-**The Sierra Nevada Just Had an ‘Epic Snow Day’**\
-`The mountain range straddling California and Nevada has had mostly warm storms this winter. Finally, a cold one has piled up multiple feet of snow.`\
-https://nytimes.com/2025/02/14/weather/sierra-nevada-snow.html
-
-**Trump Officials Pushed Ahead With Mass Layoffs**\
-`Also, a man in Chile was briefly “swallowed” by a whale. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/02/14/briefing/trump-mass-layoffs-eric-adams-new-york.html
 
