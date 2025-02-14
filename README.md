@@ -1,3 +1,7 @@
+**‘The W.T.O. Is Toast.’ What Happens to Global Trade Now.**\
+`President Trump, who disabled the World Trade Organization during his first term, is going after international free trade rules in place since the 1940s.`\
+https://nytimes.com/2025/02/14/business/trump-tariffs-world-trade-organization.html
+
 **NBA report cards: Grading every team's season at the All-Star break**\
 `Before a two-month sprint to the end of the season, let's assess how each team has performed so far.`\
 https://nytimes.com/athletic/6131639/2025/02/14/nba-grades-all-star-break-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/nicholas-sparks-north-carolina-new-bern.html
 **The Tulip’s Quiet War on Roses: A Valentine’s Day Battle**\
 `Roses have long been the flower of choice for the holiday, but some see an opening for the humble tulip.`\
 https://nytimes.com/2025/02/14/business/valentines-day-tulips-roses.html
-
-**35 Years Later, a Survivor With Scars Both Seen and Unseen**\
-`She escaped death in a devastating aviation accident in 1990. Decades later, as she tried to recover her memories, a reporter struggled to piece together her story, too.`\
-https://nytimes.com/2025/02/14/insider/astrid-lopez-avianca-flight-52.html
 
