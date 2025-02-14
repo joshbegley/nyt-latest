@@ -1,3 +1,7 @@
+**Mayor Adams May Avoid a Criminal Trial. He Still Faces Political Peril.**\
+`The criminal case against Mr. Adams may be in jeopardy, but his political future now seems more imperiled amid heightened calls for his resignation or dismissal.`\
+https://nytimes.com/2025/02/14/nyregion/eric-adams-resignation-future.html
+
 **Turmoil in the Justice Dept. Over the Adams Case**\
 `Responses to the resignation of the U.S. attorney in Manhattan. Also: Robert F. Kennedy Jr.’s confirmation as health secretary; Donald Trump “winning.”`\
 https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136837/2025/02/14/miami-heat-observations-nba-all-
 **Scoop City: Saquon Barkley, Steven Jackson and second chances**\
 `Inside: We revisit Saquon Barkley&#8217;s fortunate move and examine the biggest offseason needs of four teams.`\
 https://nytimes.com/athletic/6137122/2025/02/14/saquon-barkley-steven-jackson-nfl-second-chances-eagles-rams-scoop-city/
-
-**Barbie Hsu, Taiwanese Actress and Star of ‘Meteor Garden,’ Dies at 48**\
-`Her role in the teen drama catapulted her to fame as a pop idol. She was also a TV host and appeared in films.`\
-https://nytimes.com/2025/02/14/world/asia/barbie-hsu-dead.html
 
