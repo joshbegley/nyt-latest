@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-bettin
 `\
 https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
 
+**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
+`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
+`\
+https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+
 **The Pulse: An American rout**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6135184/2025/02/14/united-states-finland-4-nations-the-pulse/
