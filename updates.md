@@ -1,3 +1,7 @@
+**Why Trump’s Plan to Relocate Gazans Is Untenable for Jordan**\
+`President Trump’s plan would send a huge number of refugees to Jordan, adding new frictions to the kingdom’s often tense, sometimes violent history with displaced Palestinians.`\
+https://nytimes.com/2025/02/14/world/middleeast/trump-gaza-takeover-jordan.html
+
 **How to Become a Millionaire With a Health Savings Account**\
 `A new analysis finds that a diligent saver who leaves the money untouched for decades can accumulate $1 million. But not everyone with an H.S.A. can afford to leave the money untapped.`\
 https://nytimes.com/2025/02/14/your-money/hsa-savings-retirement.html

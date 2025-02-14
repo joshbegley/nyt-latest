@@ -1,3 +1,7 @@
+**Why Trump’s Plan to Relocate Gazans Is Untenable for Jordan**\
+`President Trump’s plan would send a huge number of refugees to Jordan, adding new frictions to the kingdom’s often tense, sometimes violent history with displaced Palestinians.`\
+https://nytimes.com/2025/02/14/world/middleeast/trump-gaza-takeover-jordan.html
+
 **How to Become a Millionaire With a Health Savings Account**\
 `A new analysis finds that a diligent saver who leaves the money untouched for decades can accumulate $1 million. But not everyone with an H.S.A. can afford to leave the money untapped.`\
 https://nytimes.com/2025/02/14/your-money/hsa-savings-retirement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-senten
 **Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
 `Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
 https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/
-
-**What a perfect trade deadline could look like for the Canucks in 2025**\
-`The Canucks' overall positioning going into the deadline is as complex and difficult as it's been in a decade.`\
-https://nytimes.com/athletic/6136128/2025/02/14/vancouver-canucks-trade-deadline-perfect-2025/
 
