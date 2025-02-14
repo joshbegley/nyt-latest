@@ -1,3 +1,7 @@
+**Vicario available to return for Tottenham after ankle fracture**\
+`The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
+https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
+
 **Why Investors Appear Unfazed by the Latest Trump Tariffs**\
 `The dollar fell and global stock markets are holding up despite President Trump announcing his plan to impose reciprocal tariffs on trading partners.`\
 https://nytimes.com/2025/02/14/business/dealbook/markets-unfazed-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6133463/2025/02/14/toumani-camara-scoot-henderson-t
 **Michael Olise: A star at ease on the grandest stage and temperamentally perfect for Bayern**\
 `Scepticism was rife in Germany when the young Frenchman signed from Crystal Palace, but Olise has taken life in Munich by storm`\
 https://nytimes.com/athletic/6133976/2025/02/14/olise-bayern-munich-kompany-palace/
-
-**The Athletic’s Friday football quiz question #42**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6132236/2025/02/14/the-athletics-friday-football-quiz-question-42/
 
