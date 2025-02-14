@@ -1,3 +1,7 @@
+**‘The W.T.O. Is Toast.’ What Happens to Global Trade Now.**\
+`President Trump, who disabled the World Trade Organization during his first term, is going after international free trade rules in place since the 1940s.`\
+https://nytimes.com/2025/02/14/business/trump-tariffs-world-trade-organization.html
+
 **NBA report cards: Grading every team's season at the All-Star break**\
 `Before a two-month sprint to the end of the season, let's assess how each team has performed so far.`\
 https://nytimes.com/athletic/6131639/2025/02/14/nba-grades-all-star-break-2025/
