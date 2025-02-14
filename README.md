@@ -6,7 +6,7 @@ https://nytimes.com/2025/02/14/your-money/hsa-savings-retirement.html
 `The Fed’s short-term rates matter, but the main action now is in the 10-year Treasury market, which influences mortgages, credit cards and much more, our columnist says.`\
 https://nytimes.com/2025/02/14/business/interest-rates-treasury-markets-investing.html
 
-**Amorim drafts in academy players for Man United training amid injury 'issues'**\
+**Amorim drafts in academy players for Man United training amid injury, illness 'issues'**\
 `The Portuguese could be facing a reshuffle of his squad for Sunday's Premier League trip to Tottenham Hotspur.`\
 https://nytimes.com/athletic/6136533/2025/02/14/manchester-united-injuries-team-news-amorim/
 
