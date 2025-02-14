@@ -1,3 +1,7 @@
+**Twins' Jhoan Duran already hitting 99, feeling fine after better offseason**\
+`Duran strived for the type of consistency he had with his 2022-23 offseason workouts. His manager says he arrived in "excellent shape."`\
+https://nytimes.com/athletic/6135495/2025/02/14/jhoan-duran-twins-offseason-workouts/
+
 **Bills 2025 free agent rankings: Potential new contracts and interest on the open market**\
 `Rasul Douglas and Amari Cooper are among the notable names set to hit free agency.`\
 https://nytimes.com/athletic/6135188/2025/02/14/bills-2025-free-agents-rasul-douglas-amari-cooper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131526/2025/02/14/rangers-prospects-gabe-perreault
 **Mass Government Layoffs Begin, and New Abortion Fight Takes Shape**\
 `Plus, why crafters are in mourning.`\
 https://nytimes.com/2025/02/14/podcasts/the-headlines/government-layoffs-trump-abortion-musk.html
-
-**Greenberg: Cubs, White Sox enter spring training with modest hopes of improvement**\
-`The Cubs are hoping to win the NL Central, while the White Sox are just trying to win more games than last season. `\
-https://nytimes.com/athletic/6135721/2025/02/14/chicago-cubs-white-sox-spring-training/
 
