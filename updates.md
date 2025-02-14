@@ -1,3 +1,7 @@
+**Republican Senator ‘Disturbed’ by Hegseth’s Comments About Ukraine**\
+`Senator Roger Wicker of Mississippi, the chairman of the Armed Services Committee, said the defense secretary made a ‘rookie mistake.’`\
+https://nytimes.com/2025/02/14/us/politics/hegseths-wicker-ukraine.html
+
 **Rare February Downpours Expected in the Eastern U.S. This Weekend**\
 `A developing springlike storm will bring a flood risk that is highly unusual for this time of year. Tornadoes, ice and snow are also forecast.`\
 https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.html

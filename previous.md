@@ -1,3 +1,7 @@
+**Republican Senator ‘Disturbed’ by Hegseth’s Comments About Ukraine**\
+`Senator Roger Wicker of Mississippi, the chairman of the Armed Services Committee, said the defense secretary made a ‘rookie mistake.’`\
+https://nytimes.com/2025/02/14/us/politics/hegseths-wicker-ukraine.html
+
 **Rare February Downpours Expected in the Eastern U.S. This Weekend**\
 `A developing springlike storm will bring a flood risk that is highly unusual for this time of year. Tornadoes, ice and snow are also forecast.`\
 https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135930/2025/02/14/mlb-power-rankings-spring-traini
 **Marc Armstrong to join Manchester United from PSG as chief business officer**\
 `British-born Armstrong is expected to begin work at Old Trafford within weeks and a start date has been agreed.`\
 https://nytimes.com/athletic/6137068/2025/02/14/marc-armstrong-manchester-united-chief-business-officer/
-
-**Covering the Devastation of Water, and Then Fire**\
-`Isabelle Taft, a reporting fellow for The New York Times, writes of the parallels and differences in covering hurricanes and wildfires.`\
-https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
 
