@@ -1,3 +1,11 @@
+**Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
+`Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
+https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html
+
+**Lance McCullers, still working toward return, reflects on Astros' transformative offseason**\
+`McCullers, who is throwing bullpen sessions, was "a little bit surprised" after watching three key players depart.`\
+https://nytimes.com/athletic/6137451/2025/02/14/astros-lance-mccullers-offseason-comeback/
+
 **No, Mark Zuckerberg Did Not Fund Anti-Trump Lawsuit, Spokesman Says**\
 `A right-wing influencer has argued that Mr. Zuckerberg was indirectly funding Protect Democracy, which is backing a lawsuit brought by labor unions against President Trump.`\
 https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-o
 **The Best Argument Against Having Faith in God**\
 `Why the problem of evil is not really an argument for atheism.`\
 https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
-
-**As a White Man, Can I Date Women of Color to Advance My Antiracism?**\
-`The magazine’s Ethicist columnist on interracial dating as a sociopolitical strategy.`\
-https://nytimes.com/2025/02/14/magazine/interracial-dating-antiracism-ethics.html
-
-**Tensions Over F.B.I.’s Work on Hamas Case Spill Into the Open**\
-`The Justice Department’s request for information about a splashy case brought by prosecutors in New York thrust into public view tensions that have only deepened under the Trump administration.`\
-https://nytimes.com/2025/02/14/us/politics/fbi-justice-dept-hamas.html
 

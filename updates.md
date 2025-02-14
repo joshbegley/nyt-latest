@@ -1,3 +1,11 @@
+**Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
+`Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
+https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html
+
+**Lance McCullers, still working toward return, reflects on Astros' transformative offseason**\
+`McCullers, who is throwing bullpen sessions, was "a little bit surprised" after watching three key players depart.`\
+https://nytimes.com/athletic/6137451/2025/02/14/astros-lance-mccullers-offseason-comeback/
+
 **No, Mark Zuckerberg Did Not Fund Anti-Trump Lawsuit, Spokesman Says**\
 `A right-wing influencer has argued that Mr. Zuckerberg was indirectly funding Protect Democracy, which is backing a lawsuit brought by labor unions against President Trump.`\
 https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.html
