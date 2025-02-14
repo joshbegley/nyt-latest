@@ -1,3 +1,7 @@
+**Cleveland Museum to Return Prized Bronze Thought Looted From Turkey**\
+`The museum dropped a legal effort to block the seizure of the statue by investigators who said the bronze, thought by some to be of Marcus Aurelius, had been stolen.`\
+https://nytimes.com/2025/02/14/arts/design/marcus-aurelius-bronze-turkey-cleveland.html
+
 **In Major Expansion, Martha Graham Dance Company Will Move to Midtown**\
 `The acclaimed troupe will relocate to a Times Square tower, more than doubling its footprint, and building six new studios.`\
 https://nytimes.com/2025/02/14/arts/dance/martha-graham-dance-company-midtown.html
