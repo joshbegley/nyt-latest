@@ -1,3 +1,7 @@
+**What to expect from Matt Patricia as Ohio State's defense coordinator**\
+`Week 1 isn’t going to be the best version of the 2025 defense. And in the expanded College Football Playoff era, it doesn’t need to be.`\
+https://nytimes.com/athletic/6136735/2025/02/14/matt-patricia-ohio-state-defensive-coordiantor/
+
 **Yankees' Marcus Stroman arrives in camp and sends message: 'I won't pitch in the bullpen''**\
 `The veteran made it clear that he sees himself remaining a starting pitcher in 2025. `\
 https://nytimes.com/athletic/6136630/2025/02/14/yankees-marcus-stroman-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136658/2025/02/14/sidney-crosby-4-nations-face-off
 **Meet the man behind Elland Road's murals: 'I'm not Leonardo da Vinci'**\
 `Like thousands of Leeds supporters down the years, you may have travelled down Elland Road itself and seen Robert Endeacott’s latest canvas`\
 https://nytimes.com/athletic/6136473/2025/02/14/leeds-murals-elland-road-robert-endeacott/
-
-**Steak au Poivre for Two? Don’t Mind if I Do.**\
-`Alexa Weibel’s recipe is a stunner, using a super-marbled rib-eye steak to deliver crusty, peppery beef in a pan sauce rich with brandy and cream.`\
-https://nytimes.com/2025/02/14/dining/steak-au-poivre-for-two-dont-mind-if-i-do.html
 

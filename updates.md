@@ -1,3 +1,7 @@
+**What to expect from Matt Patricia as Ohio State's defense coordinator**\
+`Week 1 isn’t going to be the best version of the 2025 defense. And in the expanded College Football Playoff era, it doesn’t need to be.`\
+https://nytimes.com/athletic/6136735/2025/02/14/matt-patricia-ohio-state-defensive-coordiantor/
+
 **Yankees' Marcus Stroman arrives in camp and sends message: 'I won't pitch in the bullpen''**\
 `The veteran made it clear that he sees himself remaining a starting pitcher in 2025. `\
 https://nytimes.com/athletic/6136630/2025/02/14/yankees-marcus-stroman-starter/
