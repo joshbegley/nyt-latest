@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/14/us/politics/democrats-congress-spending-budget.ht
 `Submit your questions for Eno's latest Q&A. `\
 https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-14/
 
-**In Love and in Line: Couples Flock to Courthouses on Valentine’s Day**\
+**‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
 `At a midnight ceremony and in ornate courthouses booked months in advance, couples rushed to exchange vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
 https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 
