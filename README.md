@@ -30,11 +30,11 @@ https://nytimes.com/2025/02/14/nyregion/bove-adams-charges-dismissal.html
 `Wednesday's game ended in a mass altercation between both sets of players at Goodison Park.`\
 https://nytimes.com/athletic/6136249/2025/02/14/everton-liverpool-slot-fa-charges/
 
-**'I'm ready to learn here and be happy again' - Chloe Kelly on Arsenal reunions and England target**\
-`The England forward is back in north London on loan from Manchester City and eager to regain her place in the national squad`\
-https://nytimes.com/athletic/6136795/2025/02/14/arsenal-chloe-kelly-city-england-interview/
-
 **Tensions Build in Syria Between New Leaders and Kurdish-Led Militia**\
 `The interim government in Damascus has called for a powerful Kurdish-led militia backed by the United States to disarm and integrate into a national military force.`\
 https://nytimes.com/2025/02/14/world/middleeast/syria-kurdish-militia.html
+
+**'I'm ready to learn here and be happy again' - Chloe Kelly on Arsenal reunions and England target**\
+`The England forward is back in north London on loan from Manchester City and eager to regain her place in the national squad`\
+https://nytimes.com/athletic/6136795/2025/02/14/arsenal-chloe-kelly-city-england-interview/
 
