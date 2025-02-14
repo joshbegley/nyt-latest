@@ -2,6 +2,10 @@
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
 
+**Live Updates: Ukraine Says Russia Has Struck Chernobyl With a Drone**\
+`President Volodymyr Zelensky said there was “significant” damage that prevents radiation leaks at the nuclear site. The U.N. confirmed an explosion, which comes as top diplomats meet in Munich to discuss a peace proposal.`\
+https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump
+
 **Dale Earnhardt Jr. qualifies for Daytona 500 as car owner: 'This is incredible'**\
 `"Where else do you go and barely make the field and cry tears of joy? Nowhere," Earnhardt said of the fabled speedway and race.`\
 https://nytimes.com/athletic/6136090/2025/02/14/dale-earnhardt-jr-daytona-500-qualifying/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136046/2025/02/14/team-usa-anthem-4-nations-montre
 **No. 6 USC takes down No. 1 UCLA 71-60, ending Bruins' undefeated streak**\
 `USC now sits atop the Big Ten standings at 12-1, and UCLA is a half-game behind at 11-1.`\
 https://nytimes.com/athletic/6136025/2025/02/14/ucla-usc-ncaa-basketball/
-
-**Vance Says All Options on Table to Pressure Russia to End Ukraine War**\
-`Vice President JD Vance told The Wall Street Journal that it was too early to talk about specific territorial or security arrangements.`\
-https://nytimes.com/2025/02/14/world/europe/vance-russia-ukraine-war.html
 
