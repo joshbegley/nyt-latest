@@ -1,3 +1,15 @@
+**Trump Says Auto Tariffs Coming April 2**\
+`The president did not specify how much the tariffs would be or which nations could be targeted.`\
+https://nytimes.com/2025/02/14/us/politics/trump-auto-tariffs.html
+
+**Dolphins release RB Raheem Mostert, a Pro Bowler in 2023**\
+`Mostert, 32, saw his playing time reduced with the rise of De'Von Achane in the Dolphins' backfield.`\
+https://nytimes.com/athletic/6137365/2025/02/14/dolphins-release-raheem-mostert/
+
+**Map: 6.0-Magnitude Earthquake Strikes Ethiopia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/14/world/africa/ethiopia-earthquake.html
+
 **Gabbard Seeks to Reassure Allies Wary of Sharing Intelligence**\
 `Ms. Gabbard’s remarks appeared to be aimed at reassuring allies who might have doubts about the new intelligence chief after her bruising confirmation fight.`\
 https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html

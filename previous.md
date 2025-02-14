@@ -1,3 +1,15 @@
+**Trump Says Auto Tariffs Coming April 2**\
+`The president did not specify how much the tariffs would be or which nations could be targeted.`\
+https://nytimes.com/2025/02/14/us/politics/trump-auto-tariffs.html
+
+**Dolphins release RB Raheem Mostert, a Pro Bowler in 2023**\
+`Mostert, 32, saw his playing time reduced with the rise of De'Von Achane in the Dolphins' backfield.`\
+https://nytimes.com/athletic/6137365/2025/02/14/dolphins-release-raheem-mostert/
+
+**Map: 6.0-Magnitude Earthquake Strikes Ethiopia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/14/world/africa/ethiopia-earthquake.html
+
 **Gabbard Seeks to Reassure Allies Wary of Sharing Intelligence**\
 `Ms. Gabbard’s remarks appeared to be aimed at reassuring allies who might have doubts about the new intelligence chief after her bruising confirmation fight.`\
 https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/zuckerberg-protect-democracy-funding.
 **Tropical Cyclone Zelia Hits North Western Australia**\
 `Zelia made landfall 34 miles northeast of Port Hedland, packing winds equivalent to a Category 4 Atlantic hurricane. Residents were told to stay indoors to shelter from heavy rain and destructive winds.`\
 https://nytimes.com/video/world/australia/100000009992022/tropical-cyclone-zelia-australia.html
-
-**Braves' Ronald Acuña Jr. on rehab: ‘When I stay healthy, I can do everything’**\
-`Once Acuña returns to the active roster there are no plans to have him DH any regular-season games, Alex Anthopoulos said.`\
-https://nytimes.com/athletic/6137381/2025/02/14/ronald-acuna-jr-atlanta-braves-rehab-update/
-
-**I.R.S. Expected to Lay Off Thousands**\
-`The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
-https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
-
-**Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
-`Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
-https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
 
