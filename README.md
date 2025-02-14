@@ -23,7 +23,7 @@ https://nytimes.com/2025/02/14/us/politics/judge-orders-a-freeze-on-firing-consu
 https://nytimes.com/2025/02/14/arts/jay-z-lawsuit-dismissed.html
 
 **U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
-`Players expect the much-anticipated matchup between the two countries to be measured by grit and will rather than pure skill.`\
+`Players expect the much-anticipated matchup between the countries to be measured by grit and will rather than pure skill.`\
 https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
 
 **U.S. Asks Judge to Drop Adams Case After Manhattan Prosecutor Quits**\
