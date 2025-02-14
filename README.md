@@ -1,3 +1,7 @@
+**Turmoil in the Justice Dept. Over the Adams Case**\
+`Responses to the resignation of the U.S. attorney in Manhattan. Also: Robert F. Kennedy Jr.’s confirmation as health secretary; Donald Trump “winning.”`\
+https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.html
+
 **Listen: Our favourite Tottenham managers and memories of covering them**\
 `The View From The Lane talk through and tell stories about their favourite Tottenham managers`\
 https://nytimes.com/athletic/6136866/2025/02/14/the-view-from-the-lane-our-favourite-tottenham-managers-and-memories-of-covering-them/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137122/2025/02/14/saquon-barkley-steven-jackson-nf
 **Barbie Hsu, Taiwanese Actress and Star of ‘Meteor Garden,’ Dies at 48**\
 `Her role in the teen drama catapulted her to fame as a pop idol. She was also a TV host and appeared in films.`\
 https://nytimes.com/2025/02/14/world/asia/barbie-hsu-dead.html
-
-**Bowden's MLB power rankings: Dodgers, Yankees, Phillies 1-2-3 as spring training starts**\
-`Let’s look ahead to the season, taking stock of the league landscape and the rosters of all 30 teams, from the elite to the bottom dwellers.`\
-https://nytimes.com/athletic/6135930/2025/02/14/mlb-power-rankings-spring-training-dodgers-yankees/
 
