@@ -1,3 +1,7 @@
+**How Trump’s Medical Research Cuts Would Hit Colleges and Hospitals in Every State**\
+`Changes to a key funding formula will reduce research grants at hospitals and universities by billions — and may discourage future research.`\
+https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
+
 **Jung Hoo Lee, run-producing No. 3 hitter? The Giants are considering it**\
 `After appearing in only 37 games in his first MLB season, Lee has no injury restrictions, and the Giants are hoping for big things.`\
 https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135632/2025/02/13/chicago-cubs-alex-bregman-free-a
 **Red Sox 'fired up' as they await Alex Bregman's arrival, plus other notes**\
 `Red Sox players are excited to add Bregman’s on-field talents and clubhouse leadership to the mix.`\
 https://nytimes.com/athletic/6135395/2025/02/13/alex-bregman-red-sox-player-reaction/
-
-**The Letter From Emil Bove Accepting Danielle Sassoon’s Resignation, Annotated**\
-`A letter from Emil Bove III, acting deputy attorney general, accepting the resignation of Danielle R. Sassoon, Manhattan’s acting U.S. attorney, over her refusal to drop the case against Mayor Eric Adams of New York.`\
-https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
 

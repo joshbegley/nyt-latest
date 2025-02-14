@@ -1,3 +1,7 @@
+**How Trump’s Medical Research Cuts Would Hit Colleges and Hospitals in Every State**\
+`Changes to a key funding formula will reduce research grants at hospitals and universities by billions — and may discourage future research.`\
+https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
+
 **Jung Hoo Lee, run-producing No. 3 hitter? The Giants are considering it**\
 `After appearing in only 37 games in his first MLB season, Lee has no injury restrictions, and the Giants are hoping for big things.`\
 https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
