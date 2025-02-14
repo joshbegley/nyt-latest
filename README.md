@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-
 `At a midnight ceremony and in ornate courthouses booked months in advance, couples rushed to exchange vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
 https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
 
-**USMNT's Pochettino Takes on Legends, Influencers in 'Match for Hope'**\
+**USMNT's Pochettino takes on legends, influencers in 'Match for Hope'**\
 `The U.S. manager takes a detour to Qatar for a charity match before the Concacaf Nations League semifinals.`\
 https://nytimes.com/athletic/6137259/2025/02/14/mauricio-pochettino-usmnt-match-for-hope-speed-iniesta/
 
