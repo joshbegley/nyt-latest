@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-bettin
 `\
 https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
 
+**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
+`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
+`\
+https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+
 **Twins' Jhoan Duran already hitting 99, feeling fine after better offseason**\
 `Duran strived for the type of consistency he had with his 2022-23 offseason workouts. His manager says he arrived in "excellent shape."`\
 https://nytimes.com/athletic/6135495/2025/02/14/jhoan-duran-twins-offseason-workouts/
