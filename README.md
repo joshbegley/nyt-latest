@@ -1,3 +1,7 @@
+**Bubba Wallace grabs first Daytona 500 qualifying win in tight finish**\
+`The win puts Wallace in the third starting spot for the Daytona 500, a race he’s never won but twice finished runner up.`\
+https://nytimes.com/athletic/6135869/2025/02/13/bubba-wallace-daytona-500-qualifying-win/
+
 **Billionaire Airbnb Co-Founder Is Said to Take Role in Musk’s Government Initiative**\
 `Joe Gebbia is a board member at Tesla and is close to Elon Musk, the company’s C.E.O.`\
 https://nytimes.com/2025/02/13/us/politics/airbnb-joe-gebbia-musk-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
 **Jung Hoo Lee, run-producing No. 3 hitter? The Giants are considering it**\
 `After appearing in only 37 games in his first MLB season, Lee has no injury restrictions, and the Giants are hoping for big things.`\
 https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
-
-**TikTok Returns to Apple and Google App Stores**\
-`The popular social media app was removed to comply with a new law that banned it in the United States. President Trump has paused enforcement of the ban.`\
-https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
 
