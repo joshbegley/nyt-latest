@@ -1,3 +1,11 @@
+**In Major Expansion, Martha Graham Dance Company Will Move to Midtown**\
+`The acclaimed troupe will relocate to a Times Square tower, more than doubling its footprint, and building six new studios.`\
+https://nytimes.com/2025/02/14/arts/dance/martha-graham-dance-company-midtown.html
+
+**Adams’s Lead Prosecutor Quits Defiantly: ‘It Was Never Going to Be Me’**\
+`Hagan Scotten told Justice Department officials that he would not be party to a political prosecution. He was the latest in succession of federal prosecutors to quit.`\
+https://nytimes.com/2025/02/14/nyregion/adams-prosecutor-hagan-scotten-quits.html
+
 **Lula says Brazil will not back down to Trump.**\
 `By Jack Nicas`\
 https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/lula-says-brazil-will-not-back-down-to-trump
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/obituaries/lena-richard-overlooked.html
 **Williams confident Franco Colapinto will return in future after Alpine loan**\
 `Team principal James Vowles reaffirmed his belief that the Argentine driver "is my driver that I want back in that car" someday.`\
 https://nytimes.com/athletic/6136871/2025/02/14/franco-colapinto-f1-alpine-williams/
-
-**Fantasy trends and hidden gems: Martin Necas traded to ideal situation — who's next?**\
-`Shayna Goldman looks at the fantasy impact of deals already made before the NHL trade deadline, and the potential of those to come.`\
-https://nytimes.com/athletic/6135346/2025/02/14/fantasy-trends-and-hidden-gems-martin-necas-traded-to-ideal-situation-whos-next/
-
-**Ben Simmons' teammates shower him with praise after Clippers debut**\
-`"That's why he was the No. 1 pick, that's why he was an All-Star in the NBA," Nicolas Batum said of Simmons' impact Thursday.`\
-https://nytimes.com/athletic/6136410/2025/02/14/ben-simmons-clippers-debut-nba/
 
