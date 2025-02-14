@@ -1,3 +1,11 @@
+**Ben Simmons' teammates shower him with praise after Clippers debut**\
+`"That's why he was the No. 1 pick, that's why he was an All-Star in the NBA," Nicolas Batum said of Simmons' impact Thursday.`\
+https://nytimes.com/athletic/6136410/2025/02/14/ben-simmons-clippers-debut-nba/
+
+**Mailbag: Sidney Crosby's greatness, Penguins' next move**\
+`Sidney Crosby put on one of the great shows of his career on Wednesday, and this resulted in plenty of questions about the captain.`\
+https://nytimes.com/athletic/6136658/2025/02/14/sidney-crosby-4-nations-face-off-penguins-mailbag/
+
 **Meet the man behind Elland Road's murals: 'I'm not Leonardo da Vinci'**\
 `Like thousands of Leeds supporters down the years, you may have travelled down Elland Road itself and seen Robert Endeacott’s latest canvas`\
 https://nytimes.com/athletic/6136473/2025/02/14/leeds-murals-elland-road-robert-endeacott/
