@@ -1,3 +1,15 @@
+**Eleanor Maguire, Memory Expert Who Studied London Cabbies, Dies at 54**\
+`By watching the brain process information, she discovered that a specific region plays a key role in spatial navigation — and that it can be strengthened like a muscle.`\
+https://nytimes.com/2025/02/14/science/eleanor-maguire-dead.html
+
+**Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
+`This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
+https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html
+
+**LeBrun: Canada vs. USA rivalry enters new era with same intensity**\
+`Players from the last time Team USA beat Canada in men's best-on-best play reflect on what the return of the format means to the rivalry.`\
+https://nytimes.com/athletic/6137542/2025/02/14/canada-usa-4-nations-face-off-lebrun/
+
 **Ken Wydro, Who Helped Create an Off Broadway Phenomenon, Dies at 81**\
 `He and his wife, Vy Higginsen, poured all they had into “Mama, I Want to Sing,” a long-shot musical that became an enduring staple of Black theater.`\
 https://nytimes.com/2025/02/14/theater/ken-wydro-dead.html
