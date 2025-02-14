@@ -1,3 +1,7 @@
+**Seeking a Mar-a-Lago Vibe, Trump Considers Paving Over Grass in Rose Garden**\
+`The president has been discussing plans to rip up the grass in one of the White House’s most iconic locations and put in a hard surface to serve as a patio like the one at his Florida home and club.`\
+https://nytimes.com/2025/02/14/us/politics/mar-a-lago-trump-grass-rose-garden.html
+
 **Ilona Maher, Bristol Bears face nervous wait over Premiership SF spot**\
 `Maher, the world's most followed rugby player on social media, had every move of her 73-minute outing cheered by over 6,000 fans on Friday.`\
 https://nytimes.com/athletic/6137611/2025/02/14/ilona-maher-bristol-bears-premiership-semi-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137548/2025/02/14/chicago-cubs-top-prospect-matt-s
 **Many Want Hochul to Force Adams From Office. She Isn’t So Sure.**\
 `Although Gov. Kathy Hochul has the power to begin removal proceedings against Mayor Eric Adams, doing so would test history, time and her own preference.`\
 https://nytimes.com/2025/02/14/nyregion/hochul-adams-removal.html
-
-**Trump Will Withhold Money From Schools That Require Covid Vaccines**\
-`An estimated 15 colleges still required Covid vaccines for students as of late last year. No states require K-12 students to get the shots.`\
-https://nytimes.com/2025/02/14/health/trump-schools-covid-vaccine-mandates.html
 
