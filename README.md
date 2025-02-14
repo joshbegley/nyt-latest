@@ -1,3 +1,11 @@
+**NASCAR moves Daytona 500 start up 1 hour with rain in forecast**\
+`The speedway encouraged attendees to arrive early due to "increased security measures," as President Donald Trump is expected to attend.`\
+https://nytimes.com/athletic/6137258/2025/02/14/nascar-daytona-500-start-time-change/
+
+**An Assortment of 7 ‘Valentine’ Songs**\
+`Hear tracks from Laufey, the Replacements and Fiona Apple that share a title but vary in tone.`\
+https://nytimes.com/2025/02/14/arts/music/amplifier-newsletter-valentine-laufey-replacements.html
+
 **A Rupture on the Right Over Prosecutors, Politics and the Rule of Law**\
 `Differing interpretations of Attorney General Robert H. Jackson’s classic 1940 speech, “The Federal Prosecutor,” figured in Thursday’s showdown in the Eric Adams case.`\
 https://nytimes.com/2025/02/14/us/politics/trump-prosecutors-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/weather/flood-rain-forecast-tennessee-kentucky.ht
 **Trump Cracks Down on Diversity Initiatives Celebrated in His First Term**\
 `Top Education Department officials during the president’s prior administration routinely hailed diversity efforts. Now employees who participated in them have faced reprisals.`\
 https://nytimes.com/2025/02/14/us/politics/trump-diversity-education-department.html
-
-**Trump’s Tariffs Could Worsen Europe’s Economic Slowdown**\
-`The trade threats could reduce exports to the United States and dampen investment in Europe, dealing a blow to growth at a time when the continent is already facing a lackluster economy.`\
-https://nytimes.com/2025/02/14/business/trump-tariffs-european-union.html
-
-**Isabella Rossellini: Model, Actress, Ethologist, Oscar Nominee**\
-`A scene-stealing role in “Conclave” brought her unexpected acclaim, and tears, at age 72. But she has built more than a life onscreen.`\
-https://nytimes.com/2025/02/14/movies/isabella-rossellini-oscars-conclave.html
 
