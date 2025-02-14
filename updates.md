@@ -1,3 +1,7 @@
+**USMNT's Pochettino Takes on Legends, Influencers in 'Match for Hope'**\
+`The U.S. manager takes a detour to Qatar for a charity match before the Concacaf Nations League semifinals.`\
+https://nytimes.com/athletic/6137259/2025/02/14/mauricio-pochettino-usmnt-match-for-hope-speed-iniesta/
+
 **Sabrina Carpenter Flirts With Country and 12 More New Songs**\
 `Hear Dolly Parton duet with the young star and tracks from Selena Gomez and Benny Blanco, plus Drake and PartyNextDoor.`\
 https://nytimes.com/2025/02/14/arts/music/playlist-sabrina-carpenter-dolly-parton.html
