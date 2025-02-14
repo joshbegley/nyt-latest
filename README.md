@@ -1,3 +1,11 @@
+**Here’s are the latest developments.**\
+`By Daniel Victor and Qasim Nauman`\
+https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
+
+**Dale Earnhardt Jr. qualifies for Daytona 500 as car owner: 'This is incredible'**\
+`“Where else do you go and barely make the field and cry tears of joy? Nowhere,” Earnhardt said of the fabled speedway and race.`\
+https://nytimes.com/athletic/6136090/2025/02/14/dale-earnhardt-jr-daytona-500-qualifying/
+
 **6 Killed in Fire at Luxury Hotel Construction Site in South Korea**\
 `The fire at an unfinished Banyan Tree resort in the southeastern port city of Busan spread quickly, leaving 25 others injured.`\
 https://nytimes.com/2025/02/14/world/asia/south-korea-busan-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136025/2025/02/14/ucla-usc-ncaa-basketball/
 **Vance Says All Options on Table to Pressure Russia to End Ukraine War**\
 `Vice President JD Vance told The Wall Street Journal that it was too early to talk about specific territorial or security arrangements.`\
 https://nytimes.com/2025/02/14/world/europe/vance-russia-ukraine-war.html
-
-**Sam Kerr's trial and the complex issues of privilege and power**\
-`In being cleared of racially aggravated harassment, Kerr made clear how she felt privilege and power were a key part of this case`\
-https://nytimes.com/athletic/6131427/2025/02/14/sam-kerr-trial-privilege/
-
-**FPL: Why you should keep an eye on the future in Double Gameweek 25**\
-`Double Gameweek 25 is another prime opportunity to rack up a big score — but future blanks have to be taken into account`\
-https://nytimes.com/athletic/6130152/2025/02/14/fantasy-premier-league-double-gameweek-25-blank/
 
