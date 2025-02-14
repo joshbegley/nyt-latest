@@ -1,3 +1,7 @@
+**Adams tells Dr. Phil he’s happy to work with Trump’s border czar.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj/adams-tells-dr-phil-hes-happy-to-work-with-trumps-border-czar
+
 **Intimidated By Deadlifts? Try This Version Instead.**\
 `The Romanian deadlift offers all the benefits of a traditional deadlift but is less intimidating and easier on the body.`\
 https://nytimes.com/interactive/2025/02/14/well/move/romanian-deadlift-technique.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/adams-sassoon-bove-immigration.html
 **Penn State hires ex-Temple coach Stan Drayton to staff**\
 `Stan Drayton will be Penn State's new running backs coach as the replacement for Ja'Juan Seider, who left for the same role at Notre Dame.`\
 https://nytimes.com/athletic/6136928/2025/02/14/penn-state-stan-drayton-running-backs-coach/
-
-**Prime Tire: Max Verstappen's big sim racing plans; McLaren and Williams drivers speak**\
-`Welcome back to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6137590/2025/02/14/prime-tire-f1-max-verstappen-sim-racing-mclaren-williams-2025-launch/
 
