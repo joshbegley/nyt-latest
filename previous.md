@@ -1,9 +1,9 @@
-**Here’s are the latest developments.**\
+**Here are the latest developments.**\
 `By Daniel Victor and Qasim Nauman`\
 https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
 
 **Dale Earnhardt Jr. qualifies for Daytona 500 as car owner: 'This is incredible'**\
-`“Where else do you go and barely make the field and cry tears of joy? Nowhere,” Earnhardt said of the fabled speedway and race.`\
+`"Where else do you go and barely make the field and cry tears of joy? Nowhere," Earnhardt said of the fabled speedway and race.`\
 https://nytimes.com/athletic/6136090/2025/02/14/dale-earnhardt-jr-daytona-500-qualifying/
 
 **6 Killed in Fire at Luxury Hotel Construction Site in South Korea**\
