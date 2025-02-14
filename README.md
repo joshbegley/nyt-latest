@@ -1,3 +1,11 @@
+**Everton, Liverpool, Slot and Hulshoff charged by FA after Merseyside derby**\
+`Wednesday's game ended in a mass altercation between both sets of players at Goodison Park.`\
+https://nytimes.com/athletic/6136249/2025/02/14/everton-liverpool-slot-fa-charges/
+
+**'I'm ready to learn here and be happy again' - Chloe Kelly on Arsenal reunions and England target**\
+`The England forward is back in north London on loan from Manchester City and eager to regain her place in the national squad`\
+https://nytimes.com/athletic/6136795/2025/02/14/arsenal-chloe-kelly-city-england-interview/
+
 **Tensions Build in Syria Between New Leaders and Kurdish-Led Militia**\
 `The interim government in Damascus has called for a powerful Kurdish-led militia backed by the United States to disarm and integrate into a national military force.`\
 https://nytimes.com/2025/02/14/world/middleeast/syria-kurdish-militia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136735/2025/02/14/matt-patricia-ohio-state-defensi
 **Yankees' Marcus Stroman arrives in camp and sends message: 'I won't pitch in the bullpen''**\
 `The veteran made it clear that he sees himself remaining a starting pitcher in 2025. `\
 https://nytimes.com/athletic/6136630/2025/02/14/yankees-marcus-stroman-starter/
-
-**Terrence Shannon Jr. leads unlikely youth charge as Wolves stun best in the West**\
-`Missing four key players and getting an off shooting night from Anthony Edwards, Minnesota turned to its young players. They delivered.`\
-https://nytimes.com/athletic/6135835/2025/02/14/terrence-shannon-jr-leads-unlikely-youth-charge-as-timberwolves-stun-thunder/
-
-**Tensions Mount in Lebanon as Deadline Nears for Israeli Withdrawal**\
-`The United States has reportedly told Lebanese officials that Israel’s military intends to remain in five strategic points inside Lebanon, but will withdraw from towns it still occupies.`\
-https://nytimes.com/2025/02/14/world/europe/lebanon-israeli-withdrawal.html
 
