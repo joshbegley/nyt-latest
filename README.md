@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
 https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-three-hitter/
 
 **TikTok Returns to Apple and Google App Stores**\
-`The popular social media app was removed to comply with a new law that banned it in the United States.`\
+`The popular social media app was removed to comply with a new law that banned it in the United States. President Trump has paused enforcement of the ban.`\
 https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
 
 **How the Justice Dept. Helped Sink Its Own Case Against Eric Adams**\
