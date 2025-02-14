@@ -1,3 +1,15 @@
+**Yankees' Marcus Stroman arrives in camp and sends message: 'I won't pitch in the bullpen''**\
+`The veteran made it clear that he sees himself remaining a starting pitcher in 2025. `\
+https://nytimes.com/athletic/6136630/2025/02/14/yankees-marcus-stroman-starter/
+
+**Terrence Shannon Jr. leads unlikely youth charge as Wolves stun best in the West**\
+`Missing four key players and getting an off shooting night from Anthony Edwards, Minnesota turned to its young players. They delivered.`\
+https://nytimes.com/athletic/6135835/2025/02/14/terrence-shannon-jr-leads-unlikely-youth-charge-as-timberwolves-stun-thunder/
+
+**Tensions Mount in Lebanon as Deadline Nears for Israeli Withdrawal**\
+`The United States has reportedly told Lebanese officials that Israel’s military intends to remain in five strategic points inside Lebanon, but will withdraw from towns it still occupies.`\
+https://nytimes.com/2025/02/14/world/europe/lebanon-israeli-withdrawal.html
+
 **Overlooked No More: Lena Richard, Who Brought Creole Cooking to the Masses**\
 `She hosted a cooking show years before Julia Child was on the air, tantalizing viewers with okra gumbo, shrimp bisque and other Southern specialties.`\
 https://nytimes.com/2025/02/14/obituaries/lena-richard-overlooked.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6136473/2025/02/14/leeds-murals-elland-road-robert-
 **Steak au Poivre for Two? Don’t Mind if I Do.**\
 `Alexa Weibel’s recipe is a stunner, using a super-marbled rib-eye steak to deliver crusty, peppery beef in a pan sauce rich with brandy and cream.`\
 https://nytimes.com/2025/02/14/dining/steak-au-poivre-for-two-dont-mind-if-i-do.html
-
-**Dancing, With Alvin Ailey’s Spirit Lurking in the Shadows**\
-`The performance portion of “Edges of Ailey” at the Whitney Museum of American Art was best when it stepped away from tradition.`\
-https://nytimes.com/2025/02/14/arts/dance/edges-of-ailey-whitney-museum.html
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s picks include unleashed libidos, striking animation and strange underground caves.`\
-https://nytimes.com/2025/02/14/movies/five-science-fiction-movies-to-stream-now.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 25?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6126300/2025/02/14/premier-league-predicted-lineups-gameweek-25/
 
