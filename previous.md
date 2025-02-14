@@ -1,3 +1,7 @@
+**Akanji set for surgery and out for 'eight to ten weeks'**\
+`Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
+https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
+
 **Vicario available to return for Tottenham after ankle fracture**\
 `The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
 https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/world/middleeast/israel-hamas-gaza-hostages.html
 **Two cornerstones of the Blazers' rebuild are dreaming big: 'We are going to figure it out'**\
 `The budding friendship between second-year players Scoot Henderson and Toumani Camara includes a vow: Being great together ... in Portland.`\
 https://nytimes.com/athletic/6133463/2025/02/14/toumani-camara-scoot-henderson-trail-blazers-dream-nba/
-
-**Michael Olise: A star at ease on the grandest stage and temperamentally perfect for Bayern**\
-`Scepticism was rife in Germany when the young Frenchman signed from Crystal Palace, but Olise has taken life in Munich by storm`\
-https://nytimes.com/athletic/6133976/2025/02/14/olise-bayern-munich-kompany-palace/
 

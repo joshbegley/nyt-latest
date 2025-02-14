@@ -1,3 +1,7 @@
+**Akanji set for surgery and out for 'eight to ten weeks'**\
+`Akanji was substituted off at half-time in the midweek Champions League loss at home to Real Madrid.`\
+https://nytimes.com/athletic/6133901/2025/02/14/manuel-akanji-injury-update/
+
 **Vicario available to return for Tottenham after ankle fracture**\
 `The Italian, 28, fractured his ankle in the win over Manchester City on November 23.`\
 https://nytimes.com/athletic/6136439/2025/02/14/tottenham-team-news-vicario-injury/
