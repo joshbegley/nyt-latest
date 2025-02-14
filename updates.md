@@ -1,3 +1,11 @@
+**Review: Idina Menzel Climbs to New Broadway Heights in ‘Redwood’**\
+`The “Wicked” belter scales a 300-foot tree, and a mountain of songs, in a powerful if woo-woo musical about trauma and resilience.`\
+https://nytimes.com/2025/02/13/theater/review-idina-menzel-climbs-to-new-broadway-heights-in-redwood.html
+
+**Clean Energy**\
+`Sarah Sinclair wishes all of us, coupled or single, a happy Valentine’s Day.`\
+https://nytimes.com/2025/02/13/crosswords/daily-puzzle-2025-02-14.html
+
 **Trump and Modi Shove Disputes Into Background in White House Visit**\
 `India’s prime minister sought to placate President Trump in public even as Mr. Trump pushed for major tariffs on his country.`\
 https://nytimes.com/2025/02/13/us/politics/trump-modi-musk.html
