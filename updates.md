@@ -1,3 +1,20 @@
+**Remnants of a Roman Basilica Are Found Under a London Office Building**\
+`The 2,000-year-old basilica was “once the beating heart of Roman London,” the Museum of London Archaeology said.`\
+https://nytimes.com/2025/02/14/world/europe/london-roman-basilica.html
+
+**A Strained Alliance**\
+`We explore the relationship between the Trump administration and Europe.`\
+https://nytimes.com/2025/02/14/briefing/a-strained-alliance.html
+
+**Video Shows Explosion at Chernobyl Nuclear Power Plant**\
+`Ukraine said that a Russian drone had hit a shelter constructed to prevent radiation leaks at the site’s Reactor No. 4. The Kremlin denied the accusation.`\
+https://nytimes.com/video/world/europe/100000009991019/video-explosion-chernobyl-nuclear-ukraine-russia.html
+
+**Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
+`The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
+`\
+https://nytimes.com/athletic/6136317/2025/02/14/leicester-city-vs-arsenal-betting-preview-odds-predictions/
+
 **Leicester vs Arsenal betting preview: Can the Foxes thwart the visitors title ambitions?**\
 `The Athletic’s Julia Ranney explores the betting permutations around Leicester City’s clash with Arsenal this Saturday.
 `\

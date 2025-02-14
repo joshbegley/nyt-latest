@@ -1,3 +1,15 @@
+**Remnants of a Roman Basilica Are Found Under a London Office Building**\
+`The 2,000-year-old basilica was “once the beating heart of Roman London,” the Museum of London Archaeology said.`\
+https://nytimes.com/2025/02/14/world/europe/london-roman-basilica.html
+
+**A Strained Alliance**\
+`We explore the relationship between the Trump administration and Europe.`\
+https://nytimes.com/2025/02/14/briefing/a-strained-alliance.html
+
+**Video Shows Explosion at Chernobyl Nuclear Power Plant**\
+`Ukraine said that a Russian drone had hit a shelter constructed to prevent radiation leaks at the site’s Reactor No. 4. The Kremlin denied the accusation.`\
+https://nytimes.com/video/world/europe/100000009991019/video-explosion-chernobyl-nuclear-ukraine-russia.html
+
 **China Says U.S. Should Lead Trump’s Proposed Arms Control Effort**\
 `President Trump said China and Russia should halve their military spending and limit nuclear weapons. You first, China said.`\
 https://nytimes.com/2025/02/14/world/asia/china-trump-nuclear-military.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6134635/2025/02/14/arsenal-havertz-transfers-dubai/
 **Wrexham's new Kop stand: What the designs and planning details reveal**\
 `Everything you need to know about the redevelopment at the Racecourse`\
 https://nytimes.com/athletic/6112278/2025/02/14/wrexhams-new-kop-stand-what-the-designs-and-planning-details-reveal/
-
-**From bowling to hockey, competitiveness drove Bryan Bickell's early career in Rockford**\
-`Bickell will be recognized for his contributions, both on and off the ice, when he is inducted into the IceHogs Ring of Honor on Saturday.`\
-https://nytimes.com/athletic/6135085/2025/02/14/blackhawks-bryan-bickell-rockford-icehogs/
-
-**Man City vs Newcastle betting preview: Can the Citizens stave off the tricky Toons?**\
-`The Athletic's Oli Gamp offers his betting insight ahead of this weekend's clash between Manchester City and Newcastle.`\
-https://nytimes.com/athletic/6133778/2025/02/14/manchester-city-vs-newcastle-betting-preview-odds-predictions/
-
-**Jets' salary cap situation with Aaron Rodgers on the way out (and Davante Adams likely to follow)**\
-`With Davante Adams and Allen Lazard likely on the way out as well, how things are shaping up on the Jets' cap sheet.`\
-https://nytimes.com/athletic/6134674/2025/02/14/new-york-jets-salary-cap-room-aaron-rodgers-contract/
 
