@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6136356/2025/02/14/notre-dame-footbal-playoff-2025-
 https://nytimes.com/athletic/6135592/2025/02/14/alabama-basketball-auburn-rankings-st-johns-houston/
 
 **Hamas Names Hostages Set for Release on Saturday**\
-`An exchange of hostages for Palestinians jailed by Israel had been thrown into doubt after days of mutual recriminations. Israel has not yet commented on its plans.`\
+`An exchange of hostages for Palestinians jailed by Israel had been thrown into doubt after days of mutual recriminations. Israel has not yet commented.`\
 https://nytimes.com/2025/02/14/world/middleeast/israel-hamas-gaza-hostages.html
 
 **Two cornerstones of the Blazers' rebuild are dreaming big: 'We are going to figure it out'**\
