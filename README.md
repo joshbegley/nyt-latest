@@ -1,3 +1,11 @@
+**Kyrie Irving, Mavericks haven't let February chaos sink their season**\
+`Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
+https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
+
+**The Bounce: The NBA needs All-Star 2025 to work. Plus, why the 76ers should give up**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6136335/2025/02/14/nba-all-star-weekend-lebron-james-steph-curry-the-bounce/
+
 **Why Trump’s Plan to Relocate Gazans Is Untenable for Jordan**\
 `President Trump’s plan would send a huge number of refugees to Jordan, adding new frictions to the kingdom’s often tense, sometimes violent history with displaced Palestinians.`\
 https://nytimes.com/2025/02/14/world/middleeast/trump-gaza-takeover-jordan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6136443/2025/02/14/wimbledon-tennis-expansion-judic
 **Drake Releases New Album, ‘$ome $exy $ongs 4 U,’ Pivoting From Rap Beef**\
 `The Valentine’s Day release, a collaboration with PartyNextDoor, tries on different styles (acoustic pop, traditional Mexican) while only alluding to Kendrick Lamar.`\
 https://nytimes.com/2025/02/14/arts/music/drake-some-sexy-songs-partynextdoor.html
-
-**Footballer Hwang given suspended sentence for secretly filming sex with woman**\
-`The former Forest striker was convicted of charges related to one woman but acquitted of charges related to another.`\
-https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-sentence/
-
-**Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
-`Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
-https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/
 
