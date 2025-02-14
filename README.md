@@ -1,3 +1,7 @@
+**Giants open to potential sale of minority stake in franchise**\
+`NFL owners voted recently to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
+https://nytimes.com/athletic/6135960/2025/02/13/giants-sale-minority-stake/
+
 **Louisiana Health Department Says It Will Stop Promoting ‘Mass Vaccination’**\
 `“Vaccines should be treated with nuance, recognizing differences between seasonal vaccines and childhood immunizations,” Dr. Ralph L. Abraham, the state’s surgeon general, wrote in a memo.`\
 https://nytimes.com/2025/02/13/us/louisiana-mass-vaccination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/crosswords/daily-puzzle-2025-02-14.html
 **Trump and Modi Shove Disputes Into Background in White House Visit**\
 `India’s prime minister sought to placate President Trump in public even as Mr. Trump pushed for major tariffs on his country.`\
 https://nytimes.com/2025/02/13/us/politics/trump-modi-musk.html
-
-**How Trump’s Medical Research Cuts Would Hit Colleges and Hospitals in Every State**\
-`Changes to a key funding formula will reduce research grants at hospitals and universities by billions — and may discourage future research.`\
-https://nytimes.com/interactive/2025/02/13/upshot/nih-trump-funding-cuts.html
 
