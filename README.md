@@ -1,3 +1,7 @@
+**Watch: What would a perfect offseason look like for the Bengals?**\
+`The Athletic Football Show discuss what a perfect offseason would look like for the Cincinnati Bengals.`\
+https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-offseason/
+
 **The Best Argument Against Having Faith in God**\
 `Why the problem of evil is not really an argument for atheism.`\
 https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135603/2025/02/14/eno-sarris-live-baseball-chat-2-
 **‘Joyful Chaos’: Couples Flock to Courthouses to Wed on Valentine’s Day**\
 `At a midnight ceremony and in courthouses and city buildings booked months in advance, couples exchanged vows in civil ceremonies as Valentine’s Day fell on a Friday.`\
 https://nytimes.com/2025/02/14/style/valentines-day-weddings-city-hall.html
-
-**USMNT's Pochettino takes on legends, influencers in 'Match for Hope'**\
-`The U.S. manager takes a detour to Qatar for a charity match before the Concacaf Nations League semifinals.`\
-https://nytimes.com/athletic/6137259/2025/02/14/mauricio-pochettino-usmnt-match-for-hope-speed-iniesta/
 
