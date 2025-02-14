@@ -1,3 +1,11 @@
+**Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
+`Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
+https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
+
+**Senior officials could be forced to resign at C.D.C. and N.I.H.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/senior-officials-could-be-forced-to-resign-at-cdc-and-nih
+
 **Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
 `Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
 https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
