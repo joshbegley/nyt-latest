@@ -1,3 +1,7 @@
+**Noonan, 16, becomes second youngest UEFA club competition scorer**\
+`Noonan scored against Molde aged 16 years and 197 days old.`\
+https://nytimes.com/athletic/6135407/2025/02/14/noonan-uefa-european-goal-shamrock-conference-league/
+
 **Inside Max Verstappen's long-term goal to make F1 drivers out of sim racers**\
 `"I know it takes time, but I do want to find the talent that is able to transition to real life."`\
 https://nytimes.com/athletic/6134190/2025/02/14/max-verstappen-sim-racing-f1/

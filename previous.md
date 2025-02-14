@@ -1,3 +1,7 @@
+**Noonan, 16, becomes second youngest UEFA club competition scorer**\
+`Noonan scored against Molde aged 16 years and 197 days old.`\
+https://nytimes.com/athletic/6135407/2025/02/14/noonan-uefa-european-goal-shamrock-conference-league/
+
 **4,000 Applications for Outdoor Dining. 39 Licenses Issued.**\
 `A program to restart outdoor dining in New York City on April 1 is facing an extensive backlog of applications.`\
 https://nytimes.com/2025/02/14/nyregion/nyc-outdoor-dining-sheds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/crosswords/spelling-bee-forum.html
 **Here are the latest developments.**\
 `By Qasim Nauman`\
 https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
-
-**Live Updates: Ukraine Says Russia Has Struck Chernobyl With a Drone**\
-`President Volodymyr Zelensky said there was “significant” damage that prevents radiation leaks at the nuclear site. The U.N. confirmed an explosion, which comes as top diplomats meet in Munich to discuss a peace proposal.`\
-https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump
 
