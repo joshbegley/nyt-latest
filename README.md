@@ -1,3 +1,7 @@
+**Criminal proceedings against Paqueta’s uncle recommended after Brazilian betting inquiry**\
+`The inquiry in Brazil analysed the banking records of Bruno Tolentino, one of the men believed to have placed bets on his nephew Paqueta.`\
+https://nytimes.com/athletic/6136364/2025/02/14/lucas-paquetas-uncle-betting-inquiry/
+
 **Eric Adams Highlights Coordination With Trump’s Border Czar on Fox News**\
 `Mayor Eric Adams, appearing alongside the border czar, Tom Homan, said he would work with the Trump administration on immigration as he faces calls to resign over his cooperation.`\
 https://nytimes.com/2025/02/14/nyregion/adams-homan-fox-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136667/2025/02/14/ollie-watkins-tyrone-mings-injur
 **Tyreek Hill, Noah Lyles agree to race after trading public jabs**\
 `Hill and Lyles have not picked a location or distance for their race yet.`\
 https://nytimes.com/athletic/6136537/2025/02/14/noah-lyles-tyreek-hill-race-details/
-
-**Kyrie Irving, Mavericks haven't let February chaos sink their season**\
-`Irving’s whatever-it-takes mentality has trickled down to the rest of the team, winners of four of its last five games.`\
-https://nytimes.com/athletic/6136030/2025/02/14/kyrie-irving-mavericks-nba-february-doncic/
 
