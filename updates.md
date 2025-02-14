@@ -1,3 +1,7 @@
+**Trump Administration Toughens Rules for Release of Migrant Children**\
+`A new policy requires the fingerprinting of all adults who will be living with a migrant child in the United States. Advocates for immigrants say it could fuel overcrowding in shelters.`\
+https://nytimes.com/2025/02/14/us/politics/trump-rules-migrant-children.html
+
 **Alex Anthopoulos on Braves' quiet offseason: 'We've spent a lot on our own players'**\
 `The Braves considered a deal that would've put them over the luxury tax, which Anthopoulos said they're willing to do for the right player.`\
 https://nytimes.com/athletic/6137682/2025/02/14/braves-alex-anthopoulos-quiet-offseason/
