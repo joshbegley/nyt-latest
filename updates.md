@@ -1,3 +1,15 @@
+**Trump Will Withhold Money From Schools That Require Covid Vaccines**\
+`An estimated 15 colleges still required Covid vaccines for students as of late last year. No states require K-12 students to get the shots.`\
+https://nytimes.com/2025/02/14/health/trump-schools-covid-vaccine-mandates.html
+
+**OpenAI Rejects Elon Musk’s Bid to Gain Control of the Company**\
+`Bret Taylor, the chairman of OpenAI’s board, said the artificial intelligence company was “not for sale.” Mr. Musk and other investors had offered $97.4 billion earlier this week.`\
+https://nytimes.com/2025/02/14/technology/openai-elon-musk.html
+
+**‘Yellowjackets’ Season 3 Premiere Recap: It’s All Fun and Games Until …**\
+`The teen Yellowjackets seem to be having fun when we first rejoin them. Taking bets now for which one gets eaten first.`\
+https://nytimes.com/2025/02/14/arts/television/yellowjackets-recap-season-3-premiere.html
+
 **Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
 `"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
 https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/

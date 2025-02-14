@@ -1,3 +1,15 @@
+**Trump Will Withhold Money From Schools That Require Covid Vaccines**\
+`An estimated 15 colleges still required Covid vaccines for students as of late last year. No states require K-12 students to get the shots.`\
+https://nytimes.com/2025/02/14/health/trump-schools-covid-vaccine-mandates.html
+
+**OpenAI Rejects Elon Musk’s Bid to Gain Control of the Company**\
+`Bret Taylor, the chairman of OpenAI’s board, said the artificial intelligence company was “not for sale.” Mr. Musk and other investors had offered $97.4 billion earlier this week.`\
+https://nytimes.com/2025/02/14/technology/openai-elon-musk.html
+
+**‘Yellowjackets’ Season 3 Premiere Recap: It’s All Fun and Games Until …**\
+`The teen Yellowjackets seem to be having fun when we first rejoin them. Taking bets now for which one gets eaten first.`\
+https://nytimes.com/2025/02/14/arts/television/yellowjackets-recap-season-3-premiere.html
+
 **Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
 `"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
 https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/14/world/africa/ethiopia-earthquake.html
 **Gabbard Seeks to Reassure Allies Wary of Sharing Intelligence**\
 `Ms. Gabbard’s remarks appeared to be aimed at reassuring allies who might have doubts about the new intelligence chief after her bruising confirmation fight.`\
 https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html
-
-**Why Emil Bove’s Battle Against Danielle Sassoon Is So Self-Defeating**\
-`This kind of conflict was inevitable. It is extremely surprising, however, that the conflict would be sought and stoked just weeks into Trump’s four-year term, and for the sake of protecting Eric Adams.`\
-https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-danielle-sassoon-doj-trump
-
-**Recent Resignations Recall Nixon-Era Saturday Night Massacre**\
-`More than 50 years ago, President Richard M. Nixon sought to fire the special prosecutor leading the Watergate investigation, but his attorney general refused and resigned.`\
-https://nytimes.com/2025/02/14/nyregion/nixon-saturday-night-massacre-adams-sassoon.html
-
-**Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
-`Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
-https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html
 
