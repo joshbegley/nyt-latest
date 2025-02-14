@@ -1,3 +1,11 @@
+**Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
+`Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
+https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
+
+**Senior officials could be forced to resign at C.D.C. and N.I.H.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/senior-officials-could-be-forced-to-resign-at-cdc-and-nih
+
 **Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
 `Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
 https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/world/asia/us-rights-groups-doge-cuts-china.html
 **Judge orders a freeze on firing consumer bureau’s staff and deleting its data.**\
 `Agency workers, including some who were listening to the hearing remotely, expressed immediate joy and relief.`\
 https://nytimes.com/2025/02/14/us/politics/judge-orders-a-freeze-on-firing-consumer-bureaus-staff-and-deleting-its-data.html
-
-**Jay-Z Accuser Drops Rape Lawsuit Against Him and Sean Combs**\
-`The anonymous plaintiff’s account was attacked as inconsistent after an NBC report called details from her account into question.`\
-https://nytimes.com/2025/02/14/arts/jay-z-lawsuit-dismissed.html
-
-**U.S.-Canada rivalry gets new chapter at 4 Nations, with a shot at global hockey supremacy**\
-`Players expect the much-anticipated matchup between the countries to be measured by grit and will rather than pure skill.`\
-https://nytimes.com/athletic/6136669/2025/02/14/canada-usa-4-nations-face-off/
 
