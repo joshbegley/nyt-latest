@@ -1,3 +1,11 @@
+**NASCAR moves Daytona 500 start up 1 hour with rain in forecast**\
+`The speedway encouraged attendees to arrive early due to "increased security measures," as President Donald Trump is expected to attend.`\
+https://nytimes.com/athletic/6137258/2025/02/14/nascar-daytona-500-start-time-change/
+
+**An Assortment of 7 ‘Valentine’ Songs**\
+`Hear tracks from Laufey, the Replacements and Fiona Apple that share a title but vary in tone.`\
+https://nytimes.com/2025/02/14/arts/music/amplifier-newsletter-valentine-laufey-replacements.html
+
 **A Rupture on the Right Over Prosecutors, Politics and the Rule of Law**\
 `Differing interpretations of Attorney General Robert H. Jackson’s classic 1940 speech, “The Federal Prosecutor,” figured in Thursday’s showdown in the Eric Adams case.`\
 https://nytimes.com/2025/02/14/us/politics/trump-prosecutors-law.html
