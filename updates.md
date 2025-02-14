@@ -1,3 +1,7 @@
+**TikTok Returns to Apple and Google App Stores**\
+`The popular social media app was removed to comply with a new law that banned it in the United States.`\
+https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
+
 **Photos: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
 `Among the upgrades to the facilities are a made-to-order kitchen, a players lounge and a two-story weight room. `\
 https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenner-field-upgrades/
