@@ -1,3 +1,11 @@
+**Billionaire Airbnb Co-Founder Is Said to Take Role in Musk’s Government Initiative**\
+`Joe Gebbia is a board member at Tesla and is close to Elon Musk, the company’s C.E.O.`\
+https://nytimes.com/2025/02/13/us/politics/airbnb-joe-gebbia-musk-doge.html
+
+**USA blows out Finland in 4 Nations Face-Off win**\
+`Team USA promptly turned a one-goal game into a 6-1 rout with five third-period goals.`\
+https://nytimes.com/athletic/6135888/2025/02/13/usa-finland-4-nations-face-off-score/
+
 **USA blows out Finland in 4 Nations Face-Off win**\
 `Team USA promptly turned a one-goal game into a 6-1 rout with five third period goals.`\
 https://nytimes.com/athletic/6135888/2025/02/13/usa-finland-4-nations-face-off-score/

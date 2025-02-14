@@ -1,5 +1,9 @@
+**Billionaire Airbnb Co-Founder Is Said to Take Role in Musk’s Government Initiative**\
+`Joe Gebbia is a board member at Tesla and is close to Elon Musk, the company’s C.E.O.`\
+https://nytimes.com/2025/02/13/us/politics/airbnb-joe-gebbia-musk-doge.html
+
 **USA blows out Finland in 4 Nations Face-Off win**\
-`Team USA promptly turned a one-goal game into a 6-1 rout with five third period goals.`\
+`Team USA promptly turned a one-goal game into a 6-1 rout with five third-period goals.`\
 https://nytimes.com/athletic/6135888/2025/02/13/usa-finland-4-nations-face-off-score/
 
 **Trump Official’s Demand in Adams Case Forces Justice Dept. Showdown**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135808/2025/02/13/sf-giants-jung-hoo-lee-number-th
 **TikTok Returns to Apple and Google App Stores**\
 `The popular social media app was removed to comply with a new law that banned it in the United States. President Trump has paused enforcement of the ban.`\
 https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
-
-**How the Justice Dept. Helped Sink Its Own Case Against Eric Adams**\
-`A top Trump appointee guided Mr. Adams’s legal team as they crafted an argument for dismissing corruption charges against the mayor of America’s largest city.`\
-https://nytimes.com/2025/02/13/nyregion/adams-lawyers-justice-department-dismissal.html
 
