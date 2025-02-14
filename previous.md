@@ -1,3 +1,11 @@
+**Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
+`This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
+https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html
+
+**LeBrun: Canada vs. USA rivalry enters new era with same intensity**\
+`Players from the last time Team USA beat Canada in men's best-on-best play reflect on what the return of the format means to the rivalry.`\
+https://nytimes.com/athletic/6137542/2025/02/14/canada-usa-4-nations-face-off-lebrun/
+
 **Walter Robinson, Exuberant Art-World Participant and Observer, Dies at 74**\
 `A painter who took his subjects from pop culture, he was also the founding editor of Artnet.com and chronicled the rise of the SoHo art scene in the 1970s.`\
 https://nytimes.com/2025/02/14/arts/walter-robinson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/arts/television/yellowjackets-recap-season-3-prem
 **Can the Yankees financially compete with the Dodgers, Mets? Brian Cashman answers**\
 `"Regardless of financial circumstance, the job is to find a way to compete," Cashman said.`\
 https://nytimes.com/athletic/6137352/2025/02/14/yankees-brian-cashman-dodgers-mets-payroll/
-
-**Mets spring training notes: Edwin Díaz on opt out, New York's pitching plans, and more**\
-`PORT ST.`\
-https://nytimes.com/athletic/6137455/2025/02/14/new-york-mets-spring-training-edwin-diaz-notes/
-
-**High Above Chernobyl, Workers Grapple With Ice, Fire and Nuclear Fears**\
-`After an apparent drone strike blew a hole in the protective shell, there is an urgent need to patch what covers the wreckage of the world’s worst nuclear accident.`\
-https://nytimes.com/2025/02/14/world/europe/chernobyl-drone-blast-scene.html
 

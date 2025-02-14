@@ -1,3 +1,11 @@
+**Meet the Champion Who Memorized 80 Numbers in 13.5 Seconds**\
+`This month, Vishvaa Rajakumar won the Memory League World Championship, which tests memorization skills. He shared some of his techniques with The Times.`\
+https://nytimes.com/2025/02/14/science/vishvaa-rajakumar-memory-techniques.html
+
+**LeBrun: Canada vs. USA rivalry enters new era with same intensity**\
+`Players from the last time Team USA beat Canada in men's best-on-best play reflect on what the return of the format means to the rivalry.`\
+https://nytimes.com/athletic/6137542/2025/02/14/canada-usa-4-nations-face-off-lebrun/
+
 **Walter Robinson, Exuberant Art-World Participant and Observer, Dies at 74**\
 `A painter who took his subjects from pop culture, he was also the founding editor of Artnet.com and chronicled the rise of the SoHo art scene in the 1970s.`\
 https://nytimes.com/2025/02/14/arts/walter-robinson-dead.html
