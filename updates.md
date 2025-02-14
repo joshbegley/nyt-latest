@@ -1,3 +1,15 @@
+**Gabbard, in Munich, seeks to reassure allies wary of sharing intelligence.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence
+
+**Why Emil Bove’s Battle Against Danielle Sassoon Is So Self-Defeating**\
+`This kind of conflict was inevitable. It is extremely surprising, however, that the conflict would be sought and stoked just weeks into Trump’s four-year term, and for the sake of protecting Eric Adams.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-danielle-sassoon-doj-trump
+
+**Recent Resignations Recall Nixon-Era Saturday Night Massacre**\
+`More than 50 years ago, President Richard M. Nixon sought to fire the special prosecutor leading the Watergate investigation, but his attorney general refused and resigned.`\
+https://nytimes.com/2025/02/14/nyregion/nixon-saturday-night-massacre-adams-sassoon.html
+
 **Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
 `Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
 https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html

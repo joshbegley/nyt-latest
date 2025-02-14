@@ -1,6 +1,10 @@
+**Map: 6.0-Magnitude Earthquake Strikes Ethiopia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/14/world/africa/ethiopia-earthquake.html
+
 **Gabbard, in Munich, seeks to reassure allies wary of sharing intelligence.**\
 `By Julian E. Barnes`\
-https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence
+https://nytimes.com/2025/02/14/us/politics/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence.html
 
 **Why Emil Bove’s Battle Against Danielle Sassoon Is So Self-Defeating**\
 `This kind of conflict was inevitable. It is extremely surprising, however, that the conflict would be sought and stoked just weeks into Trump’s four-year term, and for the sake of protecting Eric Adams.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137381/2025/02/14/ronald-acuna-jr-atlanta-braves-r
 **I.R.S. Expected to Lay Off Thousands**\
 `The tax collector is preparing to terminate thousands of probationary employees as soon as next week.`\
 https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
-
-**Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
-`Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
-https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
 

@@ -1,3 +1,15 @@
+**Gabbard, in Munich, seeks to reassure allies wary of sharing intelligence.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/gabbard-in-munich-seeks-to-reassure-allies-wary-of-sharing-intelligence
+
+**Why Emil Bove’s Battle Against Danielle Sassoon Is So Self-Defeating**\
+`This kind of conflict was inevitable. It is extremely surprising, however, that the conflict would be sought and stoked just weeks into Trump’s four-year term, and for the sake of protecting Eric Adams.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-danielle-sassoon-doj-trump
+
+**Recent Resignations Recall Nixon-Era Saturday Night Massacre**\
+`More than 50 years ago, President Richard M. Nixon sought to fire the special prosecutor leading the Watergate investigation, but his attorney general refused and resigned.`\
+https://nytimes.com/2025/02/14/nyregion/nixon-saturday-night-massacre-adams-sassoon.html
+
 **Europeans Fear Trump Is Giving Up Leverage to Putin Even Before Peace Talks Begin**\
 `Diplomats at the Munich Security Conference were uttering “appeasement,” with all its historical resonance, to describe the Trump administration’s approach to negotiations to end the war in Ukraine.`\
 https://nytimes.com/2025/02/14/world/europe/ukraine-russia-trump-munich.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/irs-layoffs.html
 **Kutter Crawford, Brayan Bello injuries may test depth; Alex Bregman arrives for physical**\
 `Crawford has knee pain, Bello was shut down for a few days with shoulder soreness and there was a Bregman sighting at Red Sox camp.`\
 https://nytimes.com/athletic/6137372/2025/02/14/red-sox-kutter-crawford-brayan-bello-injuries-alex-bregman/
-
-**Layoffs Begin at Energy Department, Part of Trump Purge**\
-`Mass firings have rocked multiple agencies as President Trump and Elon Musk accelerate plans to drastically slash and reshape the federal work force.`\
-https://nytimes.com/2025/02/14/us/politics/energy-department-layoffs.html
-
-**Watch: What would a perfect offseason look like for the Bengals?**\
-`The Athletic Football Show discuss what a perfect offseason would look like for the Cincinnati Bengals.`\
-https://nytimes.com/athletic/6136388/2025/02/14/athletic-football-show-bengals-offseason/
-
-**The Best Argument Against Having Faith in God**\
-`Why the problem of evil is not really an argument for atheism.`\
-https://nytimes.com/2025/02/14/opinion/god-atheism-good-evil.html
 
