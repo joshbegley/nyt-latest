@@ -1,3 +1,15 @@
+**Barbie Hsu, Taiwanese Actress and Star of ‘Meteor Garden,’ Dies at 48**\
+`Her role in the teen drama catapulted her to fame as a pop idol. She was also a TV host and appeared in films.`\
+https://nytimes.com/2025/02/14/world/asia/barbie-hsu-dead.html
+
+**Bowden's MLB power rankings: Dodgers, Yankees, Phillies 1-2-3 as spring training starts**\
+`Let’s look ahead to the season, taking stock of the league landscape and the rosters of all 30 teams, from the elite to the bottom dwellers.`\
+https://nytimes.com/athletic/6135930/2025/02/14/mlb-power-rankings-spring-training-dodgers-yankees/
+
+**Marc Armstrong to join Manchester United from PSG as chief business officer**\
+`British-born Armstrong is expected to begin work at Old Trafford within weeks and a start date has been agreed.`\
+https://nytimes.com/athletic/6137068/2025/02/14/marc-armstrong-manchester-united-chief-business-officer/
+
 **Covering the Devastation of Water, and Then Fire**\
 `Isabelle Taft, a reporting fellow for The New York Times, writes of the parallels and differences in covering hurricanes and wildfires.`\
 https://nytimes.com/2025/02/14/us/covering-wildfires-hurricanes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6136795/2025/02/14/arsenal-chloe-kelly-city-england
 **Tensions Build in Syria Between New Leaders and Kurdish-Led Militia**\
 `The interim government in Damascus has called for a powerful Kurdish-led militia backed by the United States to disarm and integrate into a national military force.`\
 https://nytimes.com/2025/02/14/world/middleeast/syria-kurdish-militia.html
-
-**Cleveland Museum to Return Prized Bronze Thought Looted From Turkey**\
-`The museum dropped a legal effort to block the seizure of the statue by investigators who said the bronze, thought by some to be of Marcus Aurelius, had been stolen.`\
-https://nytimes.com/2025/02/14/arts/design/marcus-aurelius-bronze-turkey-cleveland.html
-
-**In Major Expansion, Martha Graham Dance Company Will Move to Midtown**\
-`The acclaimed troupe will relocate to a Times Square tower, more than doubling its footprint, and building six new studios.`\
-https://nytimes.com/2025/02/14/arts/dance/martha-graham-dance-company-midtown.html
-
-**Adams’s Lead Prosecutor Quits Defiantly: ‘It Was Never Going to Be Me’**\
-`Hagan Scotten told Justice Department officials that he would not be party to a political prosecution. He was the latest in succession of federal prosecutors to quit.`\
-https://nytimes.com/2025/02/14/nyregion/adams-prosecutor-hagan-scotten-quits.html
 
