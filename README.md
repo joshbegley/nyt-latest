@@ -1,3 +1,11 @@
+**N.I.H. Research Grants Lag $1 Billion Behind Last Year’s**\
+`After weeks of disruption to scientific federal grants, the National Institutes of Health has fallen behind in funding research into treatments for deadly diseases.`\
+https://nytimes.com/2025/02/14/health/national-institutes-of-health-research-grants.html
+
+**Why Bove Wants Someone Else to Request Dismissal of Adams Charges**\
+`While it would be highly unusual for the acting No. 2 at the Justice Department to take such a role in a criminal case, there is nothing that expressly bars Emil Bove III from doing so.`\
+https://nytimes.com/2025/02/14/nyregion/bove-adams-charges-dismissal.html
+
 **Everton, Liverpool, Slot and Hulshoff charged by FA after Merseyside derby**\
 `Wednesday's game ended in a mass altercation between both sets of players at Goodison Park.`\
 https://nytimes.com/athletic/6136249/2025/02/14/everton-liverpool-slot-fa-charges/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/lula-says-braz
 **Vance Lectures Europe on Democracy at Security Meeting**\
 `Vice President JD Vance criticized European governments at the Munich Security Conference on Friday, saying that they are failing to uphold democratic values and are exercising extreme censorship.`\
 https://nytimes.com/video/world/europe/100000009991414/vance-democracy-munich-security-conference.html
-
-**What to expect from Matt Patricia as Ohio State's defense coordinator**\
-`Week 1 isn’t going to be the best version of the 2025 defense. And in the expanded College Football Playoff era, it doesn’t need to be.`\
-https://nytimes.com/athletic/6136735/2025/02/14/matt-patricia-ohio-state-defensive-coordiantor/
-
-**Yankees' Marcus Stroman arrives in camp and sends message: 'I won't pitch in the bullpen''**\
-`The veteran made it clear that he sees himself remaining a starting pitcher in 2025. `\
-https://nytimes.com/athletic/6136630/2025/02/14/yankees-marcus-stroman-starter/
 
