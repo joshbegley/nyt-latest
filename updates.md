@@ -1,3 +1,15 @@
+**Review: A Conductor Hushes the New York Philharmonic**\
+`Some of the most memorable moments in the orchestra’s program this week, led by Karina Canellakis, were extremely soft.`\
+https://nytimes.com/2025/02/14/arts/music/karina-canellakis-new-york-philharmonic-review.html
+
+**Read the Resignation Letter From Hagan Scotten**\
+`Hagan Scotten, an assistant U.S. attorney, wrote to Emil Bove, acting deputy attorney general, refusing to drop the case against Mayor Eric Adams.`\
+https://nytimes.com/interactive/2025/02/14/nyregion/scotten-letter.html
+
+**Luis Rubiales trial: Prosecution portrayed Spanish FA 'like a mafia organisation', say defence counsel**\
+`The lawyers for the three co-accused - Vilda, Luque and Rivera - made their closing statements to wrap up the two-week trial near Madrid`\
+https://nytimes.com/athletic/6136483/2025/02/14/luis-rubiales-trial-hermoso-vilda-luque-rivera/
+
 ****\
 ``\
 https://nytimes.com/live/2025/02/14/nyregion/eric-adams-charges-doj
