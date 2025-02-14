@@ -1,3 +1,7 @@
+**Footballer Hwang given suspended sentence for secretly filming sex with woman**\
+`The former Forest striker was convicted of charges related to one woman but acquitted of charges related to another.`\
+https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-sentence/
+
 **Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
 `Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
 https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/

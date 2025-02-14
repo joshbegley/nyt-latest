@@ -1,3 +1,7 @@
+**Footballer Hwang given suspended sentence for secretly filming sex with woman**\
+`The former Forest striker was convicted of charges related to one woman but acquitted of charges related to another.`\
+https://nytimes.com/athletic/6126600/2025/02/14/hwang-ui-jo-trial-verdict-sentence/
+
 **Robbie Ray is one of the wildest wild cards in the Giants' wild-card quest**\
 `Ray can still get hitters to swing and miss. The Giants' 2025 hopes might hinge on him being able to do that for a full season.`\
 https://nytimes.com/athletic/6135316/2025/02/14/sf-giants-robbie-ray-profile/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136267/2025/02/14/arsenal-injuries-kai-havertz-mik
 **Pope Francis Is Admitted to Hospital for Bronchitis**\
 `The 88-year-old pontiff, who has been battling health problems for years, is expected to remain hospitalized in Rome, the Vatican said.`\
 https://nytimes.com/2025/02/14/world/europe/pope-francis-hospital-bronchitis.html
-
-**'Keep Coach Prime': Where do Deion Sanders and Colorado stand in reaching new deal?**\
-`Colorado and Sanders are in the thick of negotiations on a contract extension, according to a school source.`\
-https://nytimes.com/athletic/6134463/2025/02/14/deion-sanders-colorado-football-contract/
 
