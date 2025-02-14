@@ -1,3 +1,7 @@
+**Late Night Braces for the Reign of R.F.K. Jr., Health Czar**\
+`“Bobby Brainworm is on the job,” Jimmy Kimmel said after President Trump’s nominee for health secretary was confirmed and sworn in.`\
+https://nytimes.com/2025/02/14/arts/television/late-night-rfk-jr-health-czar.html
+
 **I’ve Seen the World Our Trash Makes, and It’s Terrifying**\
 `The world’s poorer nations have never stopped being receptacles for the West’s rubbish.`\
 https://nytimes.com/2025/02/14/opinion/trash-recycling-global-waste-trade.html

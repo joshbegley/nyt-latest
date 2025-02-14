@@ -1,3 +1,7 @@
+**Late Night Braces for the Reign of R.F.K. Jr., Health Czar**\
+`“Bobby Brainworm is on the job,” Jimmy Kimmel said after President Trump’s nominee for health secretary was confirmed and sworn in.`\
+https://nytimes.com/2025/02/14/arts/television/late-night-rfk-jr-health-czar.html
+
 **I’ve Seen the World Our Trash Makes, and It’s Terrifying**\
 `The world’s poorer nations have never stopped being receptacles for the West’s rubbish.`\
 https://nytimes.com/2025/02/14/opinion/trash-recycling-global-waste-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/court-trump-foreign-aid-freeze.html
 **From 'club signing' to undroppable, how Djed Spence turned his Spurs career around**\
 `The evidence suggests Spence should be in Spurs' starting XI regardless of the fitness of other defenders. It is an incredible turnaround...`\
 https://nytimes.com/athletic/6134656/2025/02/14/djed-spence-tottenham/
-
-**Advice for Forest's players hoping to reach Europe – from those who made it in 1994-95**\
-`With Forest hoping to reach the Champions League, Paul Taylor asks three players who reached Europe in 1994-95 for their advice`\
-https://nytimes.com/athletic/6134854/2025/02/14/nottingham-forest-1994-95-europe-advice/
 
