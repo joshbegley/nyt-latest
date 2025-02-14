@@ -1,3 +1,7 @@
+**How the Justice Dept. Helped Sink Its Own Case Against Eric Adams**\
+`A top Trump appointee guided Mr. Adams’s legal team as they crafted an argument for dismissing corruption charges against the mayor of America’s largest city.`\
+https://nytimes.com/2025/02/13/nyregion/adams-lawyers-justice-department-dismissal.html
+
 **PHOTOS: Inside Rays' new home as Yankees reveal upgrades to Steinbrenner Field**\
 `Among the upgrades to the facilities are a made-to-order kitchen, as well as a players' lounge and a two-story weight room. `\
 https://nytimes.com/athletic/6135687/2025/02/13/yankees-rays-george-m-steinbrenner-field-upgrades/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
 **14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
 `Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
 https://nytimes.com/live/2025/02/13/us/trump-news/elon-musk-doge-lawsuits
-
-**Jim Guy Tucker, Ex-Arkansas Governor Caught Up in Whitewater, Dies at 81**\
-`He was among those targeted by the investigation that consumed much of Bill Clinton’s presidency. But his conviction was later questioned.`\
-https://nytimes.com/2025/02/13/us/politics/jim-guy-tucker-dead.html
 
