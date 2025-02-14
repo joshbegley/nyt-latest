@@ -1,3 +1,11 @@
+**Amorim drafts in academy players for Man United training amid injury 'issues'**\
+`The Portuguese could be facing a reshuffle of his squad for Sunday's Premier League trip to Tottenham Hotspur.`\
+https://nytimes.com/athletic/6136533/2025/02/14/manchester-united-injuries-team-news-amorim/
+
+**Row Z: Make INEOS make sense, Firmino hits the sun lounger, and football frustrates transfer**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
+https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
+
 **Row Z: Make INEOS make sense, Firmino hits the sun lounger and football frustrates transfer**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6136368/2025/02/14/ineos-maresca-united-chelsea-firmino-row-z/
