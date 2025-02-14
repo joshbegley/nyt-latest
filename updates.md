@@ -1,3 +1,7 @@
+**Mayor Adams May Avoid a Criminal Trial. He Still Faces Political Peril.**\
+`The criminal case against Mr. Adams may be in jeopardy, but his political future now seems more imperiled amid heightened calls for his resignation or dismissal.`\
+https://nytimes.com/2025/02/14/nyregion/eric-adams-resignation-future.html
+
 **Turmoil in the Justice Dept. Over the Adams Case**\
 `Responses to the resignation of the U.S. attorney in Manhattan. Also: Robert F. Kennedy Jr.’s confirmation as health secretary; Donald Trump “winning.”`\
 https://nytimes.com/2025/02/14/opinion/danielle-sassoon-eric-adams-justice-dept.html
