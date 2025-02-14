@@ -1,3 +1,7 @@
+**TikTok Returns to Apple and Google App Stores**\
+`The popular social media app was removed to comply with a new law that banned it in the United States.`\
+https://nytimes.com/2025/02/13/technology/tiktok-apple-google-app-stores.html
+
 **How the Justice Dept. Helped Sink Its Own Case Against Eric Adams**\
 `A top Trump appointee guided Mr. Adams’s legal team as they crafted an argument for dismissing corruption charges against the mayor of America’s largest city.`\
 https://nytimes.com/2025/02/13/nyregion/adams-lawyers-justice-department-dismissal.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/13/us/doc-annotation-memo-from-bove.html
 **Judge Extends Halt on Trump Plan to Dismantle U.S.A.I.D.**\
 `For at least another week, a judge will keep a hold on a directive placing more than 2,000 employees on administrative leave and forcing the return of overseas workers.`\
 https://nytimes.com/2025/02/13/us/politics/judge-trump-usaid.html
-
-**14 States Sue to Challenge Musk’s ‘Unchecked Power’**\
-`Since President Trump’s inauguration, Mr. Musk’s team has inserted itself into at least 19 agencies, according to a tally by The New York Times.`\
-https://nytimes.com/live/2025/02/13/us/trump-news/elon-musk-doge-lawsuits
 
