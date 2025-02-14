@@ -1,3 +1,7 @@
+**Inside Max Verstappen's long-term goal to make F1 drivers out of sim racers**\
+`"I know it takes time, but I do want to find the talent that is able to transition to real life."`\
+https://nytimes.com/athletic/6134190/2025/02/14/max-verstappen-sim-racing-f1/
+
 **4,000 Applications for Outdoor Dining. 39 Licenses Issued.**\
 `A program to restart outdoor dining in New York City on April 1 is facing an extensive backlog of applications.`\
 https://nytimes.com/2025/02/14/nyregion/nyc-outdoor-dining-sheds.html

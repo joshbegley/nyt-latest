@@ -6,6 +6,10 @@ https://nytimes.com/2025/02/14/nyregion/nyc-outdoor-dining-sheds.html
 `After a lawsuit filed last week by 19 attorneys general, a judicial ruling temporarily blocked Elon Musk and his Department of Government Efficiency from accessing the information.`\
 https://nytimes.com/2025/02/14/nyregion/musk-doge-treasury-data-lawsuit.html
 
+**Inside Max Verstappen's long-term goal to make F1 drivers out of sim racers**\
+`"I know it takes time, but I do want to find the talent that is able to transition to real life."`\
+https://nytimes.com/athletic/6134190/2025/02/14/max-verstappen-sim-racing-f1/
+
 **Be Mine**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/02/14/learning/be-mine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the
 **Live Updates: Ukraine Says Russia Has Struck Chernobyl With a Drone**\
 `President Volodymyr Zelensky said there was “significant” damage that prevents radiation leaks at the nuclear site. The U.N. confirmed an explosion, which comes as top diplomats meet in Munich to discuss a peace proposal.`\
 https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump
-
-**Dale Earnhardt Jr. qualifies for Daytona 500 as car owner: 'This is incredible'**\
-`"Where else do you go and barely make the field and cry tears of joy? Nowhere," Earnhardt said of the fabled speedway and race.`\
-https://nytimes.com/athletic/6136090/2025/02/14/dale-earnhardt-jr-daytona-500-qualifying/
 
