@@ -1,3 +1,7 @@
+**Vance Lectures Europe on Democracy at Security Meeting**\
+`Vice President JD Vance criticized European governments at the Munich Security Conference on Friday, saying that they are failing to uphold democratic values and are exercising extreme censorship.`\
+https://nytimes.com/video/world/europe/100000009991414/vance-democracy-munich-security-conference.html
+
 **What to expect from Matt Patricia as Ohio State's defense coordinator**\
 `Week 1 isn’t going to be the best version of the 2025 defense. And in the expanded College Football Playoff era, it doesn’t need to be.`\
 https://nytimes.com/athletic/6136735/2025/02/14/matt-patricia-ohio-state-defensive-coordiantor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136410/2025/02/14/ben-simmons-clippers-debut-nba/
 **Mailbag: Sidney Crosby's greatness, Penguins' next move**\
 `Sidney Crosby put on one of the great shows of his career on Wednesday, and this resulted in plenty of questions about the captain.`\
 https://nytimes.com/athletic/6136658/2025/02/14/sidney-crosby-4-nations-face-off-penguins-mailbag/
-
-**Meet the man behind Elland Road's murals: 'I'm not Leonardo da Vinci'**\
-`Like thousands of Leeds supporters down the years, you may have travelled down Elland Road itself and seen Robert Endeacott’s latest canvas`\
-https://nytimes.com/athletic/6136473/2025/02/14/leeds-murals-elland-road-robert-endeacott/
 
