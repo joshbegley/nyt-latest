@@ -1,4 +1,8 @@
 **Here are the latest developments.**\
+`By Qasim Nauman`\
+https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
+
+**Here are the latest developments.**\
 `By Daniel Victor and Qasim Nauman`\
 https://nytimes.com/live/2025/02/14/world/russia-ukraine-war-trump/heres-are-the-latest-developments
 
