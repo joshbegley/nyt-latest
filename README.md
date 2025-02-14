@@ -1,3 +1,7 @@
+**Tensions Build in Syria Between New Leaders and Kurdish-Led Militia**\
+`The interim government in Damascus has called for a powerful Kurdish-led militia backed by the United States to disarm and integrate into a national military force.`\
+https://nytimes.com/2025/02/14/world/middleeast/syria-kurdish-militia.html
+
 **Cleveland Museum to Return Prized Bronze Thought Looted From Turkey**\
 `The museum dropped a legal effort to block the seizure of the statue by investigators who said the bronze, thought by some to be of Marcus Aurelius, had been stolen.`\
 https://nytimes.com/2025/02/14/arts/design/marcus-aurelius-bronze-turkey-cleveland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135835/2025/02/14/terrence-shannon-jr-leads-unlike
 **Tensions Mount in Lebanon as Deadline Nears for Israeli Withdrawal**\
 `The United States has reportedly told Lebanese officials that Israel’s military intends to remain in five strategic points inside Lebanon, but will withdraw from towns it still occupies.`\
 https://nytimes.com/2025/02/14/world/europe/lebanon-israeli-withdrawal.html
-
-**Overlooked No More: Lena Richard, Who Brought Creole Cooking to the Masses**\
-`She hosted a cooking show years before Julia Child was on the air, tantalizing viewers with okra gumbo, shrimp bisque and other Southern specialties.`\
-https://nytimes.com/2025/02/14/obituaries/lena-richard-overlooked.html
 
