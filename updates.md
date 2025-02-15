@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
+`The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
+https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
+
 **'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
 `What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
 https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-nba/

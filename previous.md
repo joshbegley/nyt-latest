@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
+`The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
+https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
+
 **'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
 `What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
 https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6112679/2025/02/15/nhl-goalie-gear-guide/
 **Which hockey hometown can create the best forward line? Ranking them 1 to 15**\
 `From Halifax to Moscow to St. Louis to Stockholm to Minneapolis-St. Paul, we made NHL lines for each greater area. How do they stack up?`\
 https://nytimes.com/athletic/6122828/2025/02/15/hockey-hometowns-forward-lines-ranked/
-
-**Why Trump’s Takedown of an Anti-Bribery Law Could Backfire**\
-`The president has said the law is unfair to U.S. businesses. But lawyers say weakening it could end up costing corporate America big.`\
-https://nytimes.com/2025/02/15/business/dealbook/why-trumps-takedown-of-an-anti-bribery-law-could-backfire.html
 
