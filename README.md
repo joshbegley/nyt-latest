@@ -1,3 +1,7 @@
+**With Trump’s Help, Intel Could Hand Control of Chip Plants to TSMC**\
+`The Silicon Valley giant is trying to cut a deal it hopes would help it pull out of a yearslong slump.`\
+https://nytimes.com/2025/02/14/technology/intel-tsmc-talks-trump.html
+
 **Under Pressure to Dismiss Charges, Career Prosecutors Weighed Stark Options**\
 `Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.htm
 **Dave Roberts enters Dodgers spring 'very hopeful' for contract extension**\
 `Dodgers' plans for a 6-man rotation might wait until Shohei Ohtani returns. Until then, Dustin May and Tony Gonsolin could vie for 5th spot.`\
 https://nytimes.com/athletic/6137818/2025/02/14/dodgers-dave-roberts-contract-talks/
-
-**Judges Generally Let Prosecutors Drop Charges. Maybe Not for Adams.**\
-`Judge Dale E. Ho will weigh the request after the resignation of Manhattan’s U.S. attorney and her accusations of misconduct.`\
-https://nytimes.com/2025/02/14/nyregion/adams-charges-judge.html
 
