@@ -1,3 +1,7 @@
+**Maresca is in a dangerous moment**\
+`Maresca is not the only source of fans' anger, the owners are too. But the head coach needs to find solutions to Chelsea's issues - and fast`\
+https://nytimes.com/athletic/6137871/2025/02/15/enzo-maresca-chelsea-potter/
+
 **Here’s the latest.**\
 `By Patrick Kingsley and Aaron Boxerman`\
 https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6135133/2025/02/15/van-dijk-konate-gabriel-saliba-m
 **Swallow**\
 `David P. Williams feathers our nests with a new installment of his themeless series.`\
 https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
-
-**Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
-`Five takeaways from the inaugural event, including the importance of a monetary incentive.`\
-https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
 
