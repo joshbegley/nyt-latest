@@ -1,3 +1,11 @@
+**The making of Omar Marmoush: Inside the Cairo club that formed him**\
+`His former coaches on the player they helped create`\
+https://nytimes.com/athletic/6118542/2025/02/15/making-of-omar-marmoush-man-city/
+
+**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record, and Newcastle's Etihad curse remains**\
+`Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush — and yet another Ederson assist`\
+https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
+
 **The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
 `Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush — and yet another Ederson assist`\
 https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/

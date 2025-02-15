@@ -1,3 +1,7 @@
+**The making of Omar Marmoush: Inside the Cairo club that formed him**\
+`His former coaches on the player they helped create`\
+https://nytimes.com/athletic/6118542/2025/02/15/making-of-omar-marmoush-man-city/
+
 **An Unchecked Trump Rapidly Remakes U.S. Government and Foreign Policy**\
 `The president’s swift moves underscore the confidence of an administration with a much firmer grip on the levers of government than during his first term.`\
 https://nytimes.com/2025/02/15/us/politics/trump-foreign-policy-government-firings.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
 `The 22-year-old has been one of the few bright spots in a bleak season for United.`\
 https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
 
-**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
+**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record, and Newcastle's Etihad curse remains**\
 `Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush — and yet another Ederson assist`\
 https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/15/us/malibu-california-earthquake.html
 **Hegseth’s Bruising 72-Hour Debut Overseas**\
 `It was a crash course in geopolitical realities as the new defense secretary stepped onto the world stage.`\
 https://nytimes.com/2025/02/15/us/politics/hegseth-ukraine-russia.html
-
-**Map: 5.0-Magnitude Earthquake Strikes Texas**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/02/15/us/earthquake-texas.html
 
