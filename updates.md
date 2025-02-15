@@ -1,3 +1,7 @@
+**The Briefing: Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stands out; Lewis-Skelly's composure**\
+`Jordan Campbell breaks down the talking points from a late victory at the King Power Stadium.`\
+https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-league/
+
 **'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
 `What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
 https://nytimes.com/athletic/6128683/2025/02/15/vince-carters-2000-nba-dunk-contest-masterpiece-i-wanted-to-go-out-there-and-give-you-a-show/
