@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
 
 **Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
-`Five takeaways from the event, including the importance of a monetary incentive.`\
+`Five takeaways from the inaugural event, including the importance of a monetary incentive.`\
 https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
 
 **Corrections: Feb. 15, 2025**\
