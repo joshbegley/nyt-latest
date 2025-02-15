@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
 
 **Bayern Munich sporting director confirms Kimmich contract talks**\
-`Bayern Munich sporting director Christoph Freund says contract talks with Joshua Kimmich are progressing and suggested an agreement could be reached in &#8220;a matter of weeks&#8221;.`\
+`The 30-year-old's existing contract expires in June 2025.`\
 https://nytimes.com/athletic/6138861/2025/02/15/joshua-kimmich-bayern-munich-contract/
 
 **How Finland stunned Sweden with huge OT win: takeaways**\
