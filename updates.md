@@ -1,3 +1,7 @@
+**Judge Refuses to Immediately Reinstate Inspectors General Fired by Trump**\
+`Judge Ana C. Reyes, a Biden appointee, excoriated lawyers representing the former government watchdogs for how they handled their emergency request, but let the lawsuit proceed on a slower timeline.`\
+https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
+
 **Woman Pleads Guilty in Covid Tax Credit Scheme That Netted $33 Million**\
 `A Nevada business owner prepared and filed false tax returns to fraudulently obtain Covid relief money for her businesses and others, prosecutors said.`\
 https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
