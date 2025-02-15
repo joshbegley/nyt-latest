@@ -1,5 +1,9 @@
 **Judge allows Elon Musk’s team to keep access to personal records at some U.S. agencies, for now.**\
 `Judge John D. Bates ruled in a suit filed by workers’ unions that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
+https://nytimes.com/2025/02/14/us/politics/judge-allows-elon-musks-team-to-keep-access-to-personal-records-at-some-us-agencies-for-now.html
+
+**Judge allows Elon Musk’s team to keep access to personal records at some U.S. agencies, for now.**\
+`Judge John D. Bates ruled in a suit filed by workers’ unions that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
 https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/judge-allows-elon-musks-team-to-keep-access-to-personal-records-at-some-us-agencies-for-now
 
 **Analysing every major tactical tweak Guardiola has made during City's bad run**\
