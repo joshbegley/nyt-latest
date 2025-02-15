@@ -1,3 +1,15 @@
+**Wisconsin dismantles Purdue, proving the Badgers might be Final 4 good**\
+`Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
+https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
+
+**How Finland stunned Sweden in 4 Nations OT thriller: Takeaways**\
+`Mikael Granlund scored the winner as Finland defeated Sweden in the rivalry matchup 4-3 on Saturday.`\
+https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
+
+**Trans Man Killed in New York Was Tortured for More Than a Month, Police Say**\
+`The body of Sam Nordquist, 24, was found in a field after he had been reported missing. The district attorney in Ontario County, N.Y., called the circumstances surrounding the death “beyond depraved.”`\
+https://nytimes.com/2025/02/15/nyregion/ny-arrests-sam-nordquist-murder.html
+
 **A look at Alex Bregman's first day in Red Sox camp, where he might play and more notes**\
 `Bregman spent Saturday working on the back fields and watching prospects Kristian Campbell and Marcelo Mayer take infield practice.`\
 https://nytimes.com/athletic/6138803/2025/02/15/red-sox-alex-bregman-position-first-day/
