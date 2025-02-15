@@ -2,7 +2,7 @@
 `The Silicon Valley giant is trying to cut a deal it hopes would help it pull out of a yearslong slump.`\
 https://nytimes.com/2025/02/14/technology/intel-tsmc-talks-trump.html
 
-**Under Pressure to Dismiss Charges, Career Prosecutors Weighed Stark Options**\
+**Under Pressure to Drop Charges, Career Prosecutors Weighed Stark Options**\
 `Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
 
