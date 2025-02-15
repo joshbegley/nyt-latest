@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
+`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
+
 **Daily 'backyard catch' program has Twins' Chris Paddack hoping to simplify, make 35 starts**\
 `Paddack began the program after the season ended and never slowed down. The one constant was throwing every day. Now he's eyeing 35 starts.`\
 https://nytimes.com/athletic/6137669/2025/02/15/chris-paddack-twins-35-starts-goal/
