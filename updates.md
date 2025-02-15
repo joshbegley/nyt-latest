@@ -1,3 +1,7 @@
+**Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
+`"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
+https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
+
 **Barcelona goalkeeper Roebuck sidelined with head injury**\
 `Barca confirmed she will miss Sunday's Liga F fixture against Madrid CFF.`\
 https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcelona/
