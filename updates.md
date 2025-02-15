@@ -1,3 +1,15 @@
+**The Parking Lot Frisbee Game That Started in 1968 Is Still Going Strong**\
+`In the New Jersey parking lot where high school students invented Ultimate Frisbee nearly 60 years ago, some of the original players are still throwing the disc every week.`\
+https://nytimes.com/2025/02/15/nyregion/ultimate-frisbee-new-jersey-parking-lot.html
+
+**How a Lady Gaga Impersonator Spends Sundays**\
+`Nick Gaga, who performs at a monthly Gaga Ball, gets a late start on Sundays but then fills the day with wig-prepping, dance rehearsal and a little bit of “Charmed.”`\
+https://nytimes.com/2025/02/15/nyregion/nick-gaga-lady-gaga-impersonator.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/15/crosswords/spelling-bee-forum.html
+
 **Maresca is in a dangerous moment**\
 `Maresca is not the only source of fans' anger, the owners are too. But the head coach needs to find solutions to Chelsea's issues - and fast`\
 https://nytimes.com/athletic/6137871/2025/02/15/enzo-maresca-chelsea-potter/
