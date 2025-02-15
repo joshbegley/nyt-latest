@@ -1,3 +1,7 @@
+**Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\
+`"Sometimes, the language barrier makes you lazy, unfortunately," Counsell said. "That’s on me. I got to get way better at that. And will."`\
+https://nytimes.com/athletic/6139136/2025/02/15/cubs-craig-counsell-seiya-suzuki-communication-issues/
+
 **Trump administration continues immigration court crackdown with judge firings.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2025/02/15/us/trump-news-federal/trump-administration-continues-immigration-court-crackdown-with-judge-firings
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/nyregion/adams-trump-migrant-shelter-funds.html
 **Trump Suggests No Laws Are Broken if He’s ‘Saving His Country’**\
 `President Trump shared a quotation on social media, making it clear it was one he wanted people to absorb: “He who saves his Country does not violate any Law.”`\
 https://nytimes.com/2025/02/15/us/politics/trump-saves-country-quote.html
-
-**Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
-`White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
-https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
 

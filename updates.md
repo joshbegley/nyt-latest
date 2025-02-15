@@ -1,3 +1,7 @@
+**Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\
+`"Sometimes, the language barrier makes you lazy, unfortunately," Counsell said. "That’s on me. I got to get way better at that. And will."`\
+https://nytimes.com/athletic/6139136/2025/02/15/cubs-craig-counsell-seiya-suzuki-communication-issues/
+
 **Trump administration continues immigration court crackdown with judge firings.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2025/02/15/us/trump-news-federal/trump-administration-continues-immigration-court-crackdown-with-judge-firings
