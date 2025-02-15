@@ -1,3 +1,7 @@
+**Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
+`"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
+https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
+
 **Barcelona goalkeeper Roebuck sidelined with head injury**\
 `Barca confirmed she will miss Sunday's Liga F fixture against Madrid CFF.`\
 https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
 **Man United could be without injured midfield trio at Spurs**\
 `Mainoo's injury is expected to keep him out for more than a couple of weeks, with Ugarte and Collyer also major doubts for Sunday's game.`\
 https://nytimes.com/athletic/6138247/2025/02/15/manchester-united-team-news-mainoo-ugarte/
-
-**Inside the world of NHL goalie equipment: Free custom gear, new sticks every game, 'kid in a candy store'**\
-`What's important to NHL goalies when selecting their glove, blocker, pads and sticks? Here's what they say.`\
-https://nytimes.com/athletic/6112679/2025/02/15/nhl-goalie-gear-guide/
 
