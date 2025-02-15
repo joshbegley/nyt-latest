@@ -23,7 +23,7 @@ https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/newly-relea
 https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
 
 **Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
-`After putting together one of the strongest driver lineups in the team's recent history, James Vowles' long-term project is coming together`\
+`After putting together one of the strongest driver lineups in the team's recent history, Williams' long-term project is taking shape.`\
 https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
 
 **Man United could be without injured midfield trio at Spurs**\

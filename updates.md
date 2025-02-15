@@ -1,3 +1,7 @@
+**Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
+`After putting together one of the strongest driver lineups in the team's recent history, Williams' long-term project is taking shape.`\
+https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
+
 **Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
 `The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
 https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
