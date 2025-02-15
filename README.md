@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-te
 `What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
 https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-nba/
 
-**The Briefing: Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stands out; Lewis-Skelly's composure**\
+**The Briefing - Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stands out; Lewis-Skelly's composure**\
 `Jordan Campbell breaks down the talking points from a late victory at the King Power Stadium.`\
 https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-league/
 
