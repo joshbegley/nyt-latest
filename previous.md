@@ -1,3 +1,11 @@
+**15 Hindu Pilgrims Reported Dead in Stampede at New Delhi Rail Station**\
+`Crowds had swelled because trains bound for the Kumbh Mela, the world’s largest religious festival, had been delayed, according to local media.`\
+https://nytimes.com/2025/02/15/world/asia/kumbh-mela-stampede-delhi-station.html
+
+**Did Sweden start the wrong goalie in 4 Nations matchup vs. Finland?**\
+`Filip Gustavsson allowed two goals on four shots but was pulled after the first period in favor of Linus Ullmark because of illness.`\
+https://nytimes.com/athletic/6138963/2025/02/15/sweden-4-nations-face-off-filip-gustavsson/
+
 **Amazon Union Push Falls Short at North Carolina Warehouse**\
 `The outcome was a setback for workers trying to score a second election success at an Amazon facility. The union vowed to keep trying to organize.`\
 https://nytimes.com/2025/02/15/business/economy/amazon-union-garner-warehouse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6138861/2025/02/15/joshua-kimmich-bayern-munich-con
 **How Finland stunned Sweden in 4 Nations OT thriller: Takeaways**\
 `Mikael Granlund scored the winner as Finland defeated Sweden in the rivalry matchup 4-3 on Saturday.`\
 https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
-
-**Yankees’ under-the-radar pitching prospect turning heads early in camp**\
-`Yerry De Los Santos signed a minor-league deal with the Yankees in 2023 and spent last season with Triple-A Scranton/Wilkes-Barre.`\
-https://nytimes.com/athletic/6138807/2025/02/15/yankees-prospect-yerry-de-los-santos/
-
-**Edith Mathis, Radiant Swiss Soprano, Is Dead at 86**\
-`Known for her interpretations of Bach, Mozart and Weber, she was praised for her clear, bright voice and her perfect intonation even on the highest notes.`\
-https://nytimes.com/2025/02/15/arts/music/edith-mathis-dead.html
 
