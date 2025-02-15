@@ -1,3 +1,7 @@
+**Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
+`After putting together one of the strongest driver lineups in the team's recent history, James Vowles' long-term project is coming together`\
+https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
+
 **Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss at Brighton**\
 `Chelsea's talisman looked at the end of his tether against Brighton and his team aren't getting the best from him right now`\
 https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustration-palmer/

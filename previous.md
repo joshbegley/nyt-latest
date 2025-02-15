@@ -1,3 +1,7 @@
+**Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
+`After putting together one of the strongest driver lineups in the team's recent history, James Vowles' long-term project is coming together`\
+https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
+
 **Man United could be without injured midfield trio at Spurs**\
 `Mainoo's injury is expected to keep him out for more than a couple of weeks, with Ugarte and Collyer also major doubts for Sunday's game.`\
 https://nytimes.com/athletic/6138247/2025/02/15/manchester-united-team-news-mainoo-ugarte/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-square-reaction.
 **Q&A: Montgomery on Blues' performance, biggest challenge and top need**\
 `Jim Montgomery is finally getting a break during the 4 Nations tournament. The Blues coach used some of his down time for a Q&A.`\
 https://nytimes.com/athletic/6134839/2025/02/15/blues-coach-jim-montgomery-qa/
-
-**Shane, Come Back! Hurry!!**\
-`Trump and Musk are destroying the magic of America.`\
-https://nytimes.com/2025/02/15/opinion/trump-musk-america.html
 
