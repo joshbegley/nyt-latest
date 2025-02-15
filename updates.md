@@ -1,3 +1,15 @@
+**Woman Pleads Guilty in Covid Tax Credit Scheme That Netted $33 Million**\
+`A Nevada business owner prepared and filed false tax returns to fraudulently obtain Covid relief money for her businesses and others, prosecutors said.`\
+https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
+
+**Why a Cubs-Kyle Tucker extension looks doubtful after unsuccessful Alex Bregman pursuit**\
+`In a pivotal year, the Cubs are more than $30 million beneath the $241 million luxury-tax threshold, according to FanGraphs.`\
+https://nytimes.com/athletic/6137859/2025/02/14/chicago-cubs-kyle-tucker-contract-extension/
+
+**California Bill Would Force Insurers to Pay Full Coverage Without Requiring Itemization**\
+`A proposed new law would release homeowners from the onerous process of listing every object lost in a destroyed home.`\
+https://nytimes.com/2025/02/14/realestate/la-fire-home-insurance-legislation.html
+
 **Under Pressure to Drop Charges, Career Prosecutors Weighed Stark Options**\
 `Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
