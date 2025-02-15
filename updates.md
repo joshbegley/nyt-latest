@@ -1,3 +1,7 @@
+**Argentine Leader Draws Fire After Cratering of Crypto Coin He Promoted**\
+`The move, quickly seized upon by his political rivals, was the latest in a series that Javier Milei has made that seem to mirror President Trump.`\
+https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
+
 **Yrjo Kukkapuro, Who Made the Easiest of Easy Chairs, Dies at 91**\
 `A celebrated Finnish modernist, he designed a variety of furnishings but was best known for his seating — which, his company said, “almost every Finn has sat on.”`\
 https://nytimes.com/2025/02/15/arts/design/yrjo-kukkapuro-dead.html
