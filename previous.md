@@ -1,8 +1,12 @@
+**Scottie Scheffler's driver is off at Torrey Pines. It does not matter**\
+`Scheffler is still rounding into tournament form. The best are still playing catch-up.`\
+https://nytimes.com/athletic/6137951/2025/02/14/scottie-scheffler-driver-off-torrey-pines-genesis-invitational/
+
 **Tigers' Scott Harris on Alex Bregman pursuit: ‘We want players who want to be here’**\
 `The mere fact the Tigers pursued Bregman so aggressively tells you how badly they wanted and needed the All-Star third baseman. `\
 https://nytimes.com/athletic/6137931/2025/02/14/detroit-tigers-alex-bregman-pursuit/
 
-**Emil Bove’s Collective Punishment Test and Our Collective Choices**\
+**Hagan Scotten, Emil Bove and the Collective Punishment Test**\
 `How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/technology/intel-tsmc-talks-trump.html
 **Under Pressure to Drop Charges, Career Prosecutors Weighed Stark Options**\
 `Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
-
-**Hurts toasts Philly fans at Super Bowl parade: 'I know about this city ... we fight**\
-`Saquon Barkley, A.J. Brown and more also addressed the crowd at Friday's parade.`\
-https://nytimes.com/athletic/6137139/2025/02/14/jalen-hurts-eagles-super-bowl-parade-speeches/
 

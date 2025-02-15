@@ -1,3 +1,11 @@
+**Scottie Scheffler's driver is off at Torrey Pines. It does not matter**\
+`Scheffler is still rounding into tournament form. The best are still playing catch-up.`\
+https://nytimes.com/athletic/6137951/2025/02/14/scottie-scheffler-driver-off-torrey-pines-genesis-invitational/
+
+**Hagan Scotten, Emil Bove and the Collective Punishment Test**\
+`How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
+
 **Tigers' Scott Harris on Alex Bregman pursuit: ‘We want players who want to be here’**\
 `The mere fact the Tigers pursued Bregman so aggressively tells you how badly they wanted and needed the All-Star third baseman. `\
 https://nytimes.com/athletic/6137931/2025/02/14/detroit-tigers-alex-bregman-pursuit/
