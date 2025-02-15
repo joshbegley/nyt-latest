@@ -1,3 +1,7 @@
+**He Nearly Ended Cuomo’s Career. Now He Says His Ex-Rival Should Be Mayor.**\
+`H. Carl McCall, whose 2002 primary race with Andrew M. Cuomo became a racially charged clash, is urging the former governor to run for mayor of New York City.`\
+https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
+
 **SEC dominates men’s NCAA Tournament top 16 seed bracket preview**\
 `The SEC secured three of the top four seeds in the NCAA selection committee's reveal.`\
 https://nytimes.com/athletic/6138324/2025/02/15/ncaa-tournament-top-16-seeds-preview-show/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premie
 **Greg Sharpe, longtime radio voice of Nebraska football, dies at 61**\
 `Sharpe began calling Nebraska football games on the school’s radio network late in the 2007 season.`\
 https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-radio-dies/
-
-**Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
-`Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
-https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
 
