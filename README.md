@@ -1,5 +1,5 @@
-**UConn blows late lead at Seton Hall, suffering one of worst losses this season**\
-`UConn's loss is the second worst in the KenPom era, with Seton Hall currently ranked No. 213 in KenPom`\
+**UConn falls to Seton Hall, suffering one of worst losses ever by defending champ**\
+`It is the second worst loss in the KenPom era, which dates back to 1997. The worst also belongs to the Huskies (2015 UConn to Houston).`\
 https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball-upset-analysis/
 
 **Adams to Sue Trump Administration Over Clawback of Migrant Shelter Funds**\
