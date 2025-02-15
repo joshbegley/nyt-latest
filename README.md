@@ -1,3 +1,7 @@
+**Map: 5.0-Magnitude Earthquake Strikes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/15/us/earthquake-texas.html
+
 **Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
 `"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
 https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-champions
 **Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
 `After putting together one of the strongest driver lineups in the team's recent history, Williams' long-term project is taking shape.`\
 https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
-
-**Man United could be without injured midfield trio at Spurs**\
-`Mainoo's injury is expected to keep him out for more than a couple of weeks, with Ugarte and Collyer also major doubts for Sunday's game.`\
-https://nytimes.com/athletic/6138247/2025/02/15/manchester-united-team-news-mainoo-ugarte/
 
