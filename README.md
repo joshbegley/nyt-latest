@@ -22,7 +22,7 @@ https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/hamas-tones
 `What has happened? How might other clubs react? Does this impact the charges against Man City?`\
 https://nytimes.com/athletic/6138205/2025/02/15/premier-league-apt-ruling-man-city/
 
-**Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss to Brighton**\
+**Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss at Brighton**\
 `Chelsea's talisman looked at the end of his tether against Brighton and his team aren't getting the best from him right now`\
 https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustration-palmer/
 
