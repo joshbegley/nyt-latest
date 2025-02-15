@@ -1,5 +1,5 @@
 **Lowetide: Has Noah Philp done enough to win NHL job with Oilers?**\
-`The Oilers have a job opportunity at fourth-line centre and first-year player Philp is trying to fill that role as the season rolls along.`\
+`The Oilers have a job opportunity at fourth-line centre, and first-year player Philp is trying to fill that role as the season rolls along.`\
 https://nytimes.com/athletic/6138285/2025/02/15/edmonton-oilers-noah-philp-nhl-job/
 
 **Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\

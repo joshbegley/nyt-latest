@@ -1,3 +1,7 @@
+**Lowetide: Has Noah Philp done enough to win NHL job with Oilers?**\
+`The Oilers have a job opportunity at fourth-line centre and first-year player Philp is trying to fill that role as the season rolls along.`\
+https://nytimes.com/athletic/6138285/2025/02/15/edmonton-oilers-noah-philp-nhl-job/
+
 **Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\
 `"Sometimes, the language barrier makes you lazy, unfortunately," Counsell said. "That’s on me. I got to get way better at that. And will."`\
 https://nytimes.com/athletic/6139136/2025/02/15/cubs-craig-counsell-seiya-suzuki-communication-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball
 **Adams to Sue Trump Administration Over Clawback of Migrant Shelter Funds**\
 `The decision to sue over the $80 million in seized funds comes as the New York City mayor has been accused of supporting the White House’s immigration agenda in exchange for legal leniency.`\
 https://nytimes.com/2025/02/15/nyregion/adams-trump-migrant-shelter-funds.html
-
-**Trump Suggests No Laws Are Broken if He’s ‘Saving His Country’**\
-`President Trump shared a quotation on social media, making it clear it was one he wanted people to absorb: “He who saves his Country does not violate any Law.”`\
-https://nytimes.com/2025/02/15/us/politics/trump-saves-country-quote.html
 
