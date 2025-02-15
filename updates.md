@@ -1,3 +1,7 @@
+**Trump Officials Attack a German Consensus on Nazis and Speech**\
+`Vice President JD Vance and Elon Musk have challenged decades-long approaches to political extremism that were designed to prevent another Hitler.`\
+https://nytimes.com/2025/02/15/world/europe/vance-musk-nazis-afd-munich.html
+
 **Bellingham sent off for swearing at referee: What happened, was it a 'miscommunication'?**\
 `Bellingham was shown a red card in Real Madrid's 1-1 draw with Osasuna on Saturday.`\
 https://nytimes.com/athletic/6138417/2025/02/15/jude-bellingham-red-card-real-madrid-swearing/
