@@ -1,3 +1,7 @@
+**Carmelo Anthony, Sue Bird headline 2025 Hall of Fame nominees**\
+`Anthony is a 10-time All-Star with the Denver Nuggets and New York Knicks who scored more than 28,000 points in his 19-year pro career.`\
+https://nytimes.com/athletic/6137656/2025/02/14/nba-naismith-hall-of-fame-nominees-carmelo-anthony-sue-bird-2025/
+
 **Scottie Scheffler's driver is off at Torrey Pines. It does not matter**\
 `Scheffler is still rounding into tournament form. The best are still playing catch-up.`\
 https://nytimes.com/athletic/6137951/2025/02/14/scottie-scheffler-driver-off-torrey-pines-genesis-invitational/
