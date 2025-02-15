@@ -1,5 +1,9 @@
 **Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
 `Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
+https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html
+
+**Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
+`Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
 https://nytimes.com/2025/02/14/us/politics/judge-allows-elon-musks-team-to-keep-access-to-personal-records-at-some-us-agencies-for-now.html
 
 **Judge allows Elon Musk’s team to keep access to personal records at some U.S. agencies, for now.**\
