@@ -1,3 +1,7 @@
+**Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
+`The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
+https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
+
 **Fiery Pileup in Wyoming Highway Tunnel Kills at Least 2**\
 `The crash caused a fire that raged for hours, and the tunnel remained closed on Friday evening.`\
 https://nytimes.com/2025/02/14/us/wyoming-tunnel-fire-crash.html
