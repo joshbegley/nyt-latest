@@ -1,3 +1,7 @@
+**Amazon Union Push Falls Short at North Carolina Warehouse**\
+`The outcome was a setback for workers trying to score a second election success at an Amazon facility. The union vowed to keep trying to organize.`\
+https://nytimes.com/2025/02/15/business/economy/amazon-union-garner-warehouse.html
+
 **Amorim says Man Utd first team can 'not ignore' redundancies**\
 `Sir Jim Ratcliffe is set to continue his drive to cut costs as part-owner of United by making more than 100 members of staff redundant.`\
 https://nytimes.com/athletic/6138937/2025/02/15/ruben-amorim-manchester-united-redundancies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138807/2025/02/15/yankees-prospect-yerry-de-los-sa
 **Edith Mathis, Radiant Swiss Soprano, Is Dead at 86**\
 `Known for her interpretations of Bach, Mozart and Weber, she was praised for her clear, bright voice and her perfect intonation even on the highest notes.`\
 https://nytimes.com/2025/02/15/arts/music/edith-mathis-dead.html
-
-**Bryce Harper, Kyle Schwarber embrace October sting, plus notes on Schwarber's contract and more**\
-`Additional camp observations include Cristopher Sánchez's increased strength, Edmundo Sosa's outfield work and Harper's TikTok exploits.`\
-https://nytimes.com/athletic/6138685/2025/02/15/phillies-bryce-harper-kyle-schwarber-contract/
 
