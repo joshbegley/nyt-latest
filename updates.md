@@ -1,3 +1,7 @@
+**Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss to Brighton**\
+`Chelsea's talisman looked at the end of his tether against Brighton and his team aren't getting the best from him right now`\
+https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustration-palmer/
+
 **Relief in Israel as Newly Released Hostages Appear to Be in Better Shape**\
 `The emaciated condition of the three men released last week horrified Israelis. A crowd that gathered in Tel Aviv on Saturday to watch video of the latest handover in Gaza reacted more positively.`\
 https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-square-reaction.html
