@@ -1,3 +1,15 @@
+**The making of Mathys Tel: starting at centre-back, getting kicked out of Clairefontaine and idolising Thierry Henry**\
+`The 19-year-old has swapped Bayern for Tottenham in search of regular playing time. His former coaches and those close to him tell his story`\
+https://nytimes.com/athletic/6130985/2025/02/15/mathys-tel-tottenham-signing-background-bayern-man-united/
+
+**The impact of being only player from your country to play in the Premier League**\
+`There are 18 players who are the only representatives from their country to feature in the Premier League. What has their impact been?`\
+https://nytimes.com/athletic/6091194/2025/02/15/sole-country-representatives-premier-league/
+
+**The Premier League's top three are proving centre-back partnerships matter again**\
+`Despite the tactical differences between the Premier League’s top three centre-back partnerships, they share one thing: their importance`\
+https://nytimes.com/athletic/6135133/2025/02/15/van-dijk-konate-gabriel-saliba-murillo-milenkovic-centre-backs/
+
 **Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
 `Five takeaways from the inaugural event, including the importance of a monetary incentive.`\
 https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
