@@ -1,3 +1,7 @@
+**Barcelona goalkeeper Roebuck sidelined with head injury**\
+`Barca confirmed she will miss Sunday's Liga F fixture against Madrid CFF.`\
+https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcelona/
+
 **Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
 `After putting together one of the strongest driver lineups in the team's recent history, Williams' long-term project is taking shape.`\
 https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
