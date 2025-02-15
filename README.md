@@ -1,3 +1,7 @@
+**The Briefing: Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
+`Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush - and yet another Ederson assist`\
+https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
+
 **Greg Sharpe, longtime radio voice of Nebraska football, dies at 61**\
 `Sharpe began calling Nebraska football games on the school’s radio network late in the 2007 season.`\
 https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-radio-dies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcel
 **Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
 `The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
 https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
-
-**'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
-`What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
-https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-nba/
 
