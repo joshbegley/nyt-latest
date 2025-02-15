@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, vying for Alpine world championship record, misses slalom medal by 0.05**\
+`"I'm definitely getting closer," Shiffrin said Saturday of her ongoing recovery after just missing a historic 16th world championship medal.`\
+https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
+
 **Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
 `After putting together one of the strongest driver lineups in the team's recent history, James Vowles' long-term project is coming together`\
 https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/

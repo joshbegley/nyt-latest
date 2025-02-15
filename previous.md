@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, vying for Alpine world championship record, misses slalom medal by 0.05**\
+`"I'm definitely getting closer," Shiffrin said Saturday of her ongoing recovery after just missing a historic 16th world championship medal.`\
+https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
+
 **Why Williams appears poised for F1 progress with its Carlos Sainz and Alex Albon chapter**\
 `After putting together one of the strongest driver lineups in the team's recent history, James Vowles' long-term project is coming together`\
 https://nytimes.com/athletic/6137461/2025/02/15/williams-f1-2025-car-launch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustra
 **Relief in Israel as Newly Released Hostages Appear to Be in Better Shape**\
 `The emaciated condition of the three men released last week horrified Israelis. A crowd that gathered in Tel Aviv on Saturday to watch video of the latest handover in Gaza reacted more positively.`\
 https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-square-reaction.html
-
-**Q&A: Montgomery on Blues' performance, biggest challenge and top need**\
-`Jim Montgomery is finally getting a break during the 4 Nations tournament. The Blues coach used some of his down time for a Q&A.`\
-https://nytimes.com/athletic/6134839/2025/02/15/blues-coach-jim-montgomery-qa/
 
