@@ -1,3 +1,7 @@
+**A Closer Look at the 3 Hostages Freed by Hamas**\
+`The release of the men, who include an American, was the sixth in a hostage-for-prisoner exchange laid out in a cease-fire deal between Hamas and Israel.`\
+https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-freed-hamas.html
+
 **Senator Ruben Gallego on the Democrats’ Problem: ‘We’re Always Afraid’**\
 `The Arizona lawmaker diagnoses what he thinks needs to change in the way his party communicates with men, Latinos and Trump voters.`\
 https://nytimes.com/2025/02/15/magazine/ruben-gallego-interview.html
