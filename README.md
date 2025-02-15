@@ -1,3 +1,7 @@
+**British Couple on World Motorcycle Tour Is Detained in Iran**\
+`The couple last posted online from Iran in early January. Britain’s foreign office confirmed their detention after Iranian reports about British nationals accused of “security crimes.”`\
+https://nytimes.com/2025/02/15/world/europe/british-couple-detained-iran.html
+
 **Trump Officials Attack a German Consensus on Nazis and Speech**\
 `Vice President JD Vance and Elon Musk have challenged decades-long approaches to political extremism that were designed to prevent another Hitler.`\
 https://nytimes.com/2025/02/15/world/europe/vance-musk-nazis-afd-munich.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/trump-foreign-policy-government-firin
 **Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
 `An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
 https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
-
-**Amad suffers ankle ligament injury, could miss rest of season**\
-`The 22-year-old has been one of the few bright spots in a bleak season for United.`\
-https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
 
