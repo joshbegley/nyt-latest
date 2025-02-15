@@ -1,3 +1,7 @@
+**A look at Alex Bregman's first day in Red Sox camp, where he might play and more notes**\
+`Bregman spent Saturday working on the back fields and watching prospects Kristian Campbell and Marcelo Mayer take infield practice.`\
+https://nytimes.com/athletic/6138803/2025/02/15/red-sox-alex-bregman-position-first-day/
+
 **Wisconsin dismantles Purdue, proving the Badgers aren't just good — they might be Final 4 good**\
 `Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
 https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138685/2025/02/15/phillies-bryce-harper-kyle-schwa
 **Trans Man Killed in New York Was Tortured for Two Months, Police Say**\
 `The body of Sam Nordquist, 24, was found in a field after he had been reported missing. The district attorney in Ontario County, N.Y., called the circumstances surrounding the death “beyond depraved.”`\
 https://nytimes.com/2025/02/15/nyregion/ny-arrests-sam-nordquist-murder.html
-
-**Returning from second elbow surgery, Braves' Spencer Strider is motivated and, yes, stoic**\
-`Strider, who underwent an internal brace procedure 10 months ago, should return to the Braves' rotation by late April or early May.`\
-https://nytimes.com/athletic/6138651/2025/02/15/braves-spencer-strider-return-stoic/
 
