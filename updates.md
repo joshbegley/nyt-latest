@@ -1,3 +1,7 @@
+**Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
+`With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely the Yankees will extend Boone before Opening Day.`\
+https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
+
 **Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
 `White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
 https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
