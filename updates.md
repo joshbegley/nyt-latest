@@ -1,3 +1,11 @@
+**Trans Man Killed in New York Was Tortured for Two Months, Police Say**\
+`The body of Sam Nordquist, 24, was found in a field after he had been reported missing. The district attorney in Ontario County, N.Y., called the circumstances surrounding the death “beyond depraved.”`\
+https://nytimes.com/2025/02/15/nyregion/ny-arrests-sam-nordquist-murder.html
+
+**Returning from second elbow surgery, Braves' Spencer Strider is motivated and, yes, stoic**\
+`Strider, who underwent an internal brace procedure 10 months ago, should return to the Braves' rotation by late April or early May.`\
+https://nytimes.com/athletic/6138651/2025/02/15/braves-spencer-strider-return-stoic/
+
 **Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
 `An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
 https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
