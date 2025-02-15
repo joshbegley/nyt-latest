@@ -1,3 +1,11 @@
+**Analysing every major tactical tweak Guardiola has made during City's bad run**\
+`City's manager has adjusted many things to try to jolt his side out of this season's slump - but which ones have been the most effective?`\
+https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical-tweaks/
+
+**Ward-Prowse's West Ham return: Why Potter has brought midfielder back**\
+`James Ward-Prowse returned to West Ham from his loan spell at the end of the January window`\
+https://nytimes.com/athletic/6129262/2025/02/15/james-ward-prowse-west-ham-return-why/
+
 **The making of Mathys Tel: starting at centre-back, getting kicked out of Clairefontaine and idolising Thierry Henry**\
 `The 19-year-old has swapped Bayern for Tottenham in search of regular playing time. His former coaches and those close to him tell his story`\
 https://nytimes.com/athletic/6130985/2025/02/15/mathys-tel-tottenham-signing-background-bayern-man-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
 **Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
 `The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
 https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
-
-**Fiery Pileup in Wyoming Highway Tunnel Kills at Least 2**\
-`The crash caused a fire that raged for hours, and the tunnel remained closed on Friday evening.`\
-https://nytimes.com/2025/02/14/us/wyoming-tunnel-fire-crash.html
-
-**Carmelo Anthony, Sue Bird headline 2025 Hall of Fame nominees**\
-`Anthony is a 10-time All-Star with the Denver Nuggets and New York Knicks who scored more than 28,000 points in his 19-year pro career.`\
-https://nytimes.com/athletic/6137656/2025/02/14/nba-naismith-hall-of-fame-nominees-carmelo-anthony-sue-bird-2025/
 
