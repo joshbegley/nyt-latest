@@ -1,3 +1,7 @@
+**Map: 5.0-Magnitude Earthquake Strikes Texas**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/15/us/earthquake-texas.html
+
 **Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
 `"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
 https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
