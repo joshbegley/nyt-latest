@@ -1,3 +1,11 @@
+**The swap went smoothly, but the cease-fire in Gaza still looks shaky.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/the-swap-went-smoothly-but-the-cease-fire-in-gaza-still-looks-shaky
+
+**Newly released from jail, one Palestinian has no home to return to.**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/newly-released-from-jail-one-palestinian-has-no-home-to-return-to
+
 **Mikaela Shiffrin, vying for Alpine world championship record, misses slalom medal by 0.05**\
 `"I'm definitely getting closer," Shiffrin said Saturday of her ongoing recovery after just missing a historic 16th world championship medal.`\
 https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
