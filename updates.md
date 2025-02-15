@@ -1,3 +1,7 @@
+**Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
+`Candace Parker will coach the fourth and final team in the All-Star tournament.`\
+https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
+
 **Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
 `Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
 https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html

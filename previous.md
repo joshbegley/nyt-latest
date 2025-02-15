@@ -1,3 +1,7 @@
+**Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
+`Candace Parker will coach the fourth and final team in the All-Star tournament.`\
+https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
+
 **Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
 `Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
 https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-
 **Corrections: Feb. 15, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 15, 2025.`\
 https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
-
-**Zelensky Says Ukraine Unlikely to Survive Its War Without U.S. Support**\
-`His comments came on the first day of the Munich Security Conference, where anxious European officials had hoped to learn more about U.S. plans to broker peace talks.`\
-https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
 
