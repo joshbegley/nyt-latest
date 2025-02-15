@@ -1,3 +1,7 @@
+**Judge allows Elon Musk’s team to keep access to personal records at some U.S. agencies, for now.**\
+`Judge John D. Bates ruled in a suit filed by workers’ unions that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
+https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/judge-allows-elon-musks-team-to-keep-access-to-personal-records-at-some-us-agencies-for-now
+
 **Analysing every major tactical tweak Guardiola has made during City's bad run**\
 `City's manager has adjusted many things to try to jolt his side out of this season's slump - but which ones have been the most effective?`\
 https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical-tweaks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
 **Zelensky Says Ukraine Unlikely to Survive Its War Without U.S. Support**\
 `His comments came on the first day of the Munich Security Conference, where anxious European officials had hoped to learn more about U.S. plans to broker peace talks.`\
 https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
-
-**Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
-`The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
-https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
 
