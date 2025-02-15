@@ -1,3 +1,7 @@
+**Tigers' Scott Harris on Alex Bregman pursuit: ‘We want players who want to be here’**\
+`The mere fact the Tigers pursued Bregman so aggressively tells you how badly they wanted and needed the All-Star third baseman. `\
+https://nytimes.com/athletic/6137931/2025/02/14/detroit-tigers-alex-bregman-pursuit/
+
 **Emil Bove’s Collective Punishment Test and Our Collective Choices**\
 `How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
 **Hurts toasts Philly fans at Super Bowl parade: 'I know about this city ... we fight**\
 `Saquon Barkley, A.J. Brown and more also addressed the crowd at Friday's parade.`\
 https://nytimes.com/athletic/6137139/2025/02/14/jalen-hurts-eagles-super-bowl-parade-speeches/
-
-**Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
-`Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
-https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
 
