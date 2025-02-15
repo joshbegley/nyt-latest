@@ -1,3 +1,7 @@
+**Judge Refuses to Immediately Reinstate Inspectors General Fired by Trump**\
+`Judge Ana C. Reyes, a Biden appointee, excoriated lawyers representing the former government watchdogs for how they handled their emergency request, but let the lawsuit proceed on a slower timeline.`\
+https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
+
 **Woman Pleads Guilty in Covid Tax Credit Scheme That Netted $33 Million**\
 `A Nevada business owner prepared and filed false tax returns to fraudulently obtain Covid relief money for her businesses and others, prosecutors said.`\
 https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/senior-officia
 **Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
 `Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
 https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
-
-**Slash Now, Fix Later**\
-`Elon Musk is using the same tactics to cut the government that he used to overhaul Twitter. But there are important differences.`\
-https://nytimes.com/2025/02/14/us/politics/slash-now-fix-later.html
 
