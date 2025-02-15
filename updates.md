@@ -1,3 +1,7 @@
+**Yankees’ under-the-radar pitching prospect turning heads early in camp**\
+`Yerry De Los Santos signed a minor-league deal with the Yankees in 2023 and spent last season with Triple-A Scranton/Wilkes-Barre.`\
+https://nytimes.com/athletic/6138807/2025/02/15/yankees-prospect-yerry-de-los-santos/
+
 **Edith Mathis, Radiant Swiss Soprano, Is Dead at 86**\
 `Known for her interpretations of Bach, Mozart and Weber, she was praised for her clear, bright voice and her perfect intonation even on the highest notes.`\
 https://nytimes.com/2025/02/15/arts/music/edith-mathis-dead.html
