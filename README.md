@@ -2,6 +2,10 @@
 `Brighton have young goalkeepers of high calibre, but Verbruggen showed second time around against Chelsea why he is top of the pile.`\
 https://nytimes.com/athletic/6129220/2025/02/15/bart-verbruggen-brighton-chelsea/
 
+**Hurzeler praises 'special talent' Mitoma after 'Messi-like' goal vs Chelsea**\
+`The Brighton winger's goal against Chelsea drew comparisons from pundit Jamie Carragher with Lionel Messi.`\
+https://nytimes.com/athletic/6138134/2025/02/15/mitoma-goal-chelsea-brighton/
+
 **The Parking Lot Frisbee Game That Started in 1968 Is Still Going Strong**\
 `In the New Jersey parking lot where high school students invented Ultimate Frisbee nearly 60 years ago, some of the original players are still throwing the disc every week.`\
 https://nytimes.com/2025/02/15/nyregion/ultimate-frisbee-new-jersey-parking-lot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-
 **Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
 `Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
 https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html
-
-**Analysing every major tactical tweak Guardiola has made during City's bad run**\
-`City's manager has adjusted many things to try to jolt his side out of this season's slump - but which ones have been the most effective?`\
-https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical-tweaks/
 
