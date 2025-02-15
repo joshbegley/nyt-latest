@@ -1,4 +1,8 @@
 **Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
+`The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
+https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
+
+**Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
 

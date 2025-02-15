@@ -11,7 +11,7 @@ https://nytimes.com/2025/02/15/briefing/love-letters.html
 https://nytimes.com/athletic/6137746/2025/02/15/yankees-jasson-dominguez-left-field-crash-course/
 
 **Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
-`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+`The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
 https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
 
 **Rangers mailbag: What will NY do at deadline? Could Kreider be dealt?**\
