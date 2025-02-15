@@ -1,3 +1,11 @@
+**He Nearly Ended Cuomo’s Career. Now He Says His Ex-Rival Should Be Mayor.**\
+`H. Carl McCall, whose 2002 primary race with Andrew M. Cuomo became a racially charged clash, is urging the former governor to run for mayor of New York City.`\
+https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
+
+**SEC dominates men’s NCAA Tournament top 16 seed bracket preview**\
+`The SEC secured three of the top four seeds in the NCAA selection committee's reveal.`\
+https://nytimes.com/athletic/6138324/2025/02/15/ncaa-tournament-top-16-seeds-preview-show/
+
 **In Seeking Adams Dismissal, Trump’s Appointees Use Legal System to Their Advantage**\
 `The demand for dismissal underlines the degree to which President Trump has long viewed the justice system as a battleground on which power is deployed for transactional political or personal ends.`\
 https://nytimes.com/2025/02/15/us/politics/adams-dismissal-trump-justice-department.html
