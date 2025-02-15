@@ -1,3 +1,7 @@
+**Zelensky Says Ukraine Unlikely to Survive Its War Without U.S. Support**\
+`His comments came on the first day of the Munich Security Conference, where anxious European officials had hoped to learn more about U.S. plans to broker peace talks.`\
+https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
+
 **Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
 `The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
 https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
