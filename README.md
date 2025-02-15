@@ -1,3 +1,7 @@
+**Why the Phillies are eyeing more positional flexibility for Realmuto, Schwarber, others**\
+`The Phillies need to squeeze as much as they can from their aging star players. This whole thing will be a balancing act for Rob Thomson.`\
+https://nytimes.com/athletic/6137439/2025/02/15/phillies-positional-flexibility-realmuto-schwarber/
+
 **Forest Service Layoffs and Frozen Funds Increase the Risk From Wildfires**\
 `The Trump administration’s decision to fire 3,400 workers and pause funds used for wildfire prevention comes as wildfires are growing more dangerous and frequent.`\
 https://nytimes.com/2025/02/15/climate/forest-service-layoffs-and-frozen-funds-increase-the-risk-from-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/books/tilted-axis-books-translation.html
 **Does Uncertainty Harm the Economy? Business Leaders Are About to Find Out.**\
 `The lack of clarity about tariffs and other policies could hurt hiring and investing. But the strong U.S. economy should provide a buffer.`\
 https://nytimes.com/2025/02/15/business/economy/business-uncertainty-economic-policy.html
-
-**Chiwetel Ejiofor on the Shakespeare Play That ‘Revolutionized’ Him**\
-`The “Bridget Jones: Mad About the Boy” actor talks about the ways John Coltrane, Paul Cézanne and Chimamanda Ngozi Adichie influence him.`\
-https://nytimes.com/2025/02/15/movies/chiwetel-ejiofor-bridget-jones.html
 
