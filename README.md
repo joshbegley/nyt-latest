@@ -1,3 +1,7 @@
+**A Closer Look at the 3 Hostages Freed by Hamas**\
+`The release of the men, who include an American, was the sixth in a hostage-for-prisoner exchange laid out in a cease-fire deal between Hamas and Israel.`\
+https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-freed-hamas.html
+
 **Senator Ruben Gallego on the Democrats’ Problem: ‘We’re Always Afraid’**\
 `The Arizona lawmaker diagnoses what he thinks needs to change in the way his party communicates with men, Latinos and Trump voters.`\
 https://nytimes.com/2025/02/15/magazine/ruben-gallego-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/science/heart-disease-aging.html
 **6 Americans on What They Think of Trump, Elon Musk and Gaza**\
 `A lot has happened since Mr. Trump took office. We checked in with a group of voters to see what they like and don’t.`\
 https://nytimes.com/2025/02/15/us/politics/americans-trump-elon-musk-gaza.html
-
-**A Tiny Press Took a Big Risk on Experimental Books. It Paid Off.**\
-`The British publisher Tilted Axis specialized in innovative translated literature. It won them major awards. Now they’re coming to the U.S.`\
-https://nytimes.com/2025/02/15/books/tilted-axis-books-translation.html
 

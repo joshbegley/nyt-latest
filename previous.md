@@ -1,3 +1,7 @@
+**Senator Ruben Gallego on the Democrats’ Problem: ‘We’re Always Afraid’**\
+`The Arizona lawmaker diagnoses what he thinks needs to change in the way his party communicates with men, Latinos and Trump voters.`\
+https://nytimes.com/2025/02/15/magazine/ruben-gallego-interview.html
+
 **Why the Phillies are eyeing more positional flexibility for Realmuto, Schwarber, others**\
 `The Phillies need to squeeze as much as they can from their aging star players. This whole thing will be a balancing act for Rob Thomson.`\
 https://nytimes.com/athletic/6137439/2025/02/15/phillies-positional-flexibility-realmuto-schwarber/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/americans-trump-elon-musk-gaza.html
 **A Tiny Press Took a Big Risk on Experimental Books. It Paid Off.**\
 `The British publisher Tilted Axis specialized in innovative translated literature. It won them major awards. Now they’re coming to the U.S.`\
 https://nytimes.com/2025/02/15/books/tilted-axis-books-translation.html
-
-**Does Uncertainty Harm the Economy? Business Leaders Are About to Find Out.**\
-`The lack of clarity about tariffs and other policies could hurt hiring and investing. But the strong U.S. economy should provide a buffer.`\
-https://nytimes.com/2025/02/15/business/economy/business-uncertainty-economic-policy.html
 
