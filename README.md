@@ -1,3 +1,7 @@
+**Verbruggen, redemption, and Brighton's goalkeeping situation**\
+`Brighton have young goalkeepers of high calibre, but Verbruggen showed second time around against Chelsea why he is top of the pile.`\
+https://nytimes.com/athletic/6129220/2025/02/15/bart-verbruggen-brighton-chelsea/
+
 **The Parking Lot Frisbee Game That Started in 1968 Is Still Going Strong**\
 `In the New Jersey parking lot where high school students invented Ultimate Frisbee nearly 60 years ago, some of the original players are still throwing the disc every week.`\
 https://nytimes.com/2025/02/15/nyregion/ultimate-frisbee-new-jersey-parking-lot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical
 **Ward-Prowse's West Ham return: Why Potter has brought midfielder back**\
 `James Ward-Prowse returned to West Ham from his loan spell at the end of the January window`\
 https://nytimes.com/athletic/6129262/2025/02/15/james-ward-prowse-west-ham-return-why/
-
-**The making of Mathys Tel: starting at centre-back, getting kicked out of Clairefontaine and idolising Thierry Henry**\
-`The 19-year-old has swapped Bayern for Tottenham in search of regular playing time. His former coaches and those close to him tell his story`\
-https://nytimes.com/athletic/6130985/2025/02/15/mathys-tel-tottenham-signing-background-bayern-man-united/
 
