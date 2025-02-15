@@ -1,3 +1,7 @@
+**Hurzeler praises 'special talent' Mitoma after 'Messi-like' goal vs Chelsea**\
+`The Brighton winger's goal against Chelsea drew comparisons from pundit Jamie Carragher with Lionel Messi.`\
+https://nytimes.com/athletic/6138134/2025/02/15/mitoma-goal-chelsea-brighton/
+
 **Live Updates: Hamas Releases 3 More Israeli Hostages**\
 `In return, Israel is expected to free hundreds of Palestinian prisoners. The exchange would extend a fragile cease-fire that appeared on the brink of collapse earlier this week.`\
 https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages
