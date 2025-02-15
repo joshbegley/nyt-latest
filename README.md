@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
 `The 22-year-old has been one of the few bright spots in a bleak season for United.`\
 https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
 
-**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
+**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record, and Newcastle's Etihad curse remains**\
 `Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush — and yet another Ederson assist`\
 https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
 
