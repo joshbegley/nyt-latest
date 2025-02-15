@@ -1,3 +1,7 @@
+**In Seeking Adams Dismissal, Trump’s Appointees Use Legal System to Their Advantage**\
+`The demand for dismissal underlines the degree to which President Trump has long viewed the justice system as a battleground on which power is deployed for transactional political or personal ends.`\
+https://nytimes.com/2025/02/15/us/politics/adams-dismissal-trump-justice-department.html
+
 **Wrexham's away form analysed and why an improvement will likely be needed to secure promotion**\
 `Wrexham's win at Northampton was a step in the right direction. They'll need more good results on the road to power their promotion push`\
 https://nytimes.com/athletic/6136265/2025/02/15/wrexham-away-form-promotion-league-one/

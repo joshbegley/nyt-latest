@@ -1,3 +1,7 @@
+**SEC dominates men’s NCAA Tournament top 16 seed bracket preview**\
+`The SEC secured three of the top four seeds in the NCAA selection committee's reveal.`\
+https://nytimes.com/athletic/6138324/2025/02/15/ncaa-tournament-top-16-seeds-preview-show/
+
 **In Seeking Adams Dismissal, Trump’s Appointees Use Legal System to Their Advantage**\
 `The demand for dismissal underlines the degree to which President Trump has long viewed the justice system as a battleground on which power is deployed for transactional political or personal ends.`\
 https://nytimes.com/2025/02/15/us/politics/adams-dismissal-trump-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-ra
 **Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
 `Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
 https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
-
-**Cottage Pie, Sweet and Spicy Meatballs, Salmon Burgers and Miso Chocolate Chip Cookies**\
-`Easy, cozy dishes that lean into winter.`\
-https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
 
