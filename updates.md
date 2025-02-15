@@ -1,3 +1,7 @@
+**Verbruggen, redemption, and Brighton's goalkeeping situation**\
+`Brighton have young goalkeepers of high calibre, but Verbruggen showed second time around against Chelsea why he is top of the pile.`\
+https://nytimes.com/athletic/6129220/2025/02/15/bart-verbruggen-brighton-chelsea/
+
 **The Parking Lot Frisbee Game That Started in 1968 Is Still Going Strong**\
 `In the New Jersey parking lot where high school students invented Ultimate Frisbee nearly 60 years ago, some of the original players are still throwing the disc every week.`\
 https://nytimes.com/2025/02/15/nyregion/ultimate-frisbee-new-jersey-parking-lot.html
