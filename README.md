@@ -1,3 +1,7 @@
+**Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
+`Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
+https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
+
 **Cottage Pie, Sweet and Spicy Meatballs, Salmon Burgers and Miso Chocolate Chip Cookies**\
 `Easy, cozy dishes that lean into winter.`\
 https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-n
 **The Briefing - Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stands out; Lewis-Skelly's composure**\
 `Jordan Campbell breaks down the talking points from a late victory at the King Power Stadium.`\
 https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-league/
-
-**The swap went smoothly, but the cease-fire in Gaza still looks shaky.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/the-swap-went-smoothly-but-the-cease-fire-in-gaza-still-looks-shaky
 
