@@ -1,3 +1,7 @@
+**Zelensky Says Ukraine Unlikely to Survive Its War Without U.S. Support**\
+`His comments came on the first day of the Munich Security Conference, where anxious European officials had hoped to learn more about U.S. plans to broker peace talks.`\
+https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
+
 **Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
 `The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
 https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
 **Woman Pleads Guilty in Covid Tax Credit Scheme That Netted $33 Million**\
 `A Nevada business owner prepared and filed false tax returns to fraudulently obtain Covid relief money for her businesses and others, prosecutors said.`\
 https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
-
-**Why a Cubs-Kyle Tucker extension looks doubtful after unsuccessful Alex Bregman pursuit**\
-`In a pivotal year, the Cubs are more than $30 million beneath the $241 million luxury-tax threshold, according to FanGraphs.`\
-https://nytimes.com/athletic/6137859/2025/02/14/chicago-cubs-kyle-tucker-contract-extension/
 
