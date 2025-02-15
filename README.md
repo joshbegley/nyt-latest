@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Patrick Kingsley and Aaron Boxerman`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/heres-the-latest
+
 **Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
 `Candace Parker will coach the fourth and final team in the All-Star tournament.`\
 https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
 **Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
 `Five takeaways from the inaugural event, including the importance of a monetary incentive.`\
 https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
-
-**Corrections: Feb. 15, 2025**\
-`Corrections that appeared in print on Saturday, Feb. 15, 2025.`\
-https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
 
