@@ -1,3 +1,7 @@
+**German Chancellor Rebukes Vance for Supporting Party That Downplays Nazis**\
+`At the Munich Security Conference, Olaf Scholz accused the U.S. vice president of unacceptable interference in Germany’s coming elections.`\
+https://nytimes.com/2025/02/15/world/europe/scholz-vance-munich-germany.html
+
 **Hurzeler praises 'special talent' Mitoma after 'Messi-like' goal vs Chelsea**\
 `The Brighton winger's goal against Chelsea drew comparisons from pundit Jamie Carragher with Lionel Messi.`\
 https://nytimes.com/athletic/6138134/2025/02/15/mitoma-goal-chelsea-brighton/
