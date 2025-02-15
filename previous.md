@@ -1,3 +1,7 @@
+**Fiery Pileup in Wyoming Highway Tunnel Kills at Least 2**\
+`The crash caused a fire that raged for hours, and the tunnel remained closed on Friday evening.`\
+https://nytimes.com/2025/02/14/us/wyoming-tunnel-fire-crash.html
+
 **Carmelo Anthony, Sue Bird headline 2025 Hall of Fame nominees**\
 `Anthony is a 10-time All-Star with the Denver Nuggets and New York Knicks who scored more than 28,000 points in his 19-year pro career.`\
 https://nytimes.com/athletic/6137656/2025/02/14/nba-naismith-hall-of-fame-nominees-carmelo-anthony-sue-bird-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137859/2025/02/14/chicago-cubs-kyle-tucker-contrac
 **California Bill Would Force Insurers to Pay Full Coverage Without Requiring Itemization**\
 `A proposed new law would release homeowners from the onerous process of listing every object lost in a destroyed home.`\
 https://nytimes.com/2025/02/14/realestate/la-fire-home-insurance-legislation.html
-
-**With Trump’s Help, Intel Could Hand Control of Chip Plants to TSMC**\
-`The Silicon Valley giant is trying to cut a deal it hopes would help it pull out of a yearslong slump.`\
-https://nytimes.com/2025/02/14/technology/intel-tsmc-talks-trump.html
 

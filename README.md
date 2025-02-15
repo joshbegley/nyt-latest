@@ -1,3 +1,7 @@
+**Prominent Cryptocurrency Investor Faces Senate Tax Inquiry**\
+`The Finance Committee’s top Democrat sent a letter last month to Dan Morehead, the founder of Pantera Capital, about the investigation.`\
+https://nytimes.com/2025/02/14/technology/dan-morehead-crypto-senate-taxes.html
+
 **Fiery Pileup in Wyoming Highway Tunnel Kills at Least 2**\
 `The crash caused a fire that raged for hours, and the tunnel remained closed on Friday evening.`\
 https://nytimes.com/2025/02/14/us/wyoming-tunnel-fire-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
 **Why a Cubs-Kyle Tucker extension looks doubtful after unsuccessful Alex Bregman pursuit**\
 `In a pivotal year, the Cubs are more than $30 million beneath the $241 million luxury-tax threshold, according to FanGraphs.`\
 https://nytimes.com/athletic/6137859/2025/02/14/chicago-cubs-kyle-tucker-contract-extension/
-
-**California Bill Would Force Insurers to Pay Full Coverage Without Requiring Itemization**\
-`A proposed new law would release homeowners from the onerous process of listing every object lost in a destroyed home.`\
-https://nytimes.com/2025/02/14/realestate/la-fire-home-insurance-legislation.html
 
