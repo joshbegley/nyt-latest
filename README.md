@@ -1,3 +1,7 @@
+**Love Letters**\
+`Mail and phone calls may be archaic, but they have lessons for us on how to be better communicators.`\
+https://nytimes.com/2025/02/15/briefing/love-letters.html
+
 **Inside Jasson Domínguez's crash course in left field: 'He wants it'**\
 `Domínguez is busy practicing everything he'd have to handle as a left fielder, from high fly balls to shoestring catches.`\
 https://nytimes.com/athletic/6137746/2025/02/15/yankees-jasson-dominguez-left-field-crash-course/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-freed-hamas.html
 **Senator Ruben Gallego on the Democrats’ Problem: ‘We’re Always Afraid’**\
 `The Arizona lawmaker diagnoses what he thinks needs to change in the way his party communicates with men, Latinos and Trump voters.`\
 https://nytimes.com/2025/02/15/magazine/ruben-gallego-interview.html
-
-**Why the Phillies are eyeing more positional flexibility for Realmuto, Schwarber, others**\
-`The Phillies need to squeeze as much as they can from their aging star players. This whole thing will be a balancing act for Rob Thomson.`\
-https://nytimes.com/athletic/6137439/2025/02/15/phillies-positional-flexibility-realmuto-schwarber/
 
