@@ -1,3 +1,7 @@
+**Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
+`Five takeaways from the inaugural event, including the importance of a monetary incentive.`\
+https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
+
 **Swallow**\
 `David P. Williams feathers our nests with a new installment of his themeless series.`\
 https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
