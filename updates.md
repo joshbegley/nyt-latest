@@ -1,3 +1,7 @@
+**How Finland stunned Sweden in OT thriller: Takeaways**\
+`Finland wins 4-3 OT thriller over rivals from Sweden in 4 Nations Face-Off matchup.`\
+https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
+
 **Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
 `With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely that the Yankees will extend Boone before Opening Day.`\
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
