@@ -1,3 +1,7 @@
+**An Unchecked Trump Rapidly Remakes U.S. Government and Foreign Policy**\
+`The president’s swift moves underscore the confidence of an administration with a much firmer grip on the levers of government than during his first term.`\
+https://nytimes.com/2025/02/15/us/politics/trump-foreign-policy-government-firings.html
+
 **Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
 `An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
 https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html

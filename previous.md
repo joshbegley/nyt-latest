@@ -1,3 +1,7 @@
+**An Unchecked Trump Rapidly Remakes U.S. Government and Foreign Policy**\
+`The president’s swift moves underscore the confidence of an administration with a much firmer grip on the levers of government than during his first term.`\
+https://nytimes.com/2025/02/15/us/politics/trump-foreign-policy-government-firings.html
+
 **Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
 `An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
 https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/hegseth-ukraine-russia.html
 **Map: 5.0-Magnitude Earthquake Strikes Texas**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/02/15/us/earthquake-texas.html
-
-**Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
-`"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
-https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
 
