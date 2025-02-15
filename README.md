@@ -1,3 +1,7 @@
+**Amorim says Man Utd first team can 'not ignore' redundancies**\
+`Sir Jim Ratcliffe is set to continue his drive to cut costs as part-owner of United by making more than 100 members of staff redundant.`\
+https://nytimes.com/athletic/6138937/2025/02/15/ruben-amorim-manchester-united-redundancies/
+
 **A look at Alex Bregman's first day in Red Sox camp, where he might play and more notes**\
 `Bregman spent Saturday working on the back fields and watching prospects Kristian Campbell and Marcelo Mayer take infield practice.`\
 https://nytimes.com/athletic/6138803/2025/02/15/red-sox-alex-bregman-position-first-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/arts/music/edith-mathis-dead.html
 **Bryce Harper, Kyle Schwarber embrace October sting, plus notes on Schwarber's contract and more**\
 `Additional camp observations include Cristopher Sánchez's increased strength, Edmundo Sosa's outfield work and Harper's TikTok exploits.`\
 https://nytimes.com/athletic/6138685/2025/02/15/phillies-bryce-harper-kyle-schwarber-contract/
-
-**Trans Man Killed in New York Was Tortured for More Than a Month, Police Say**\
-`The body of Sam Nordquist, 24, was found in a field after he had been reported missing. The district attorney in Ontario County, N.Y., called the circumstances surrounding the death “beyond depraved.”`\
-https://nytimes.com/2025/02/15/nyregion/ny-arrests-sam-nordquist-murder.html
 
