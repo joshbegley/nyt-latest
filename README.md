@@ -1,3 +1,15 @@
+**Woman Pleads Guilty in Covid Tax Credit Scheme That Netted $33 Million**\
+`A Nevada business owner prepared and filed false tax returns to fraudulently obtain Covid relief money for her businesses and others, prosecutors said.`\
+https://nytimes.com/2025/02/14/us/covid-tax-fraud-woman-guilty.html
+
+**Why a Cubs-Kyle Tucker extension looks doubtful after unsuccessful Alex Bregman pursuit**\
+`In a pivotal year, the Cubs are more than $30 million beneath the $241 million luxury-tax threshold, according to FanGraphs.`\
+https://nytimes.com/athletic/6137859/2025/02/14/chicago-cubs-kyle-tucker-contract-extension/
+
+**California Bill Would Force Insurers to Pay Full Coverage Without Requiring Itemization**\
+`A proposed new law would release homeowners from the onerous process of listing every object lost in a destroyed home.`\
+https://nytimes.com/2025/02/14/realestate/la-fire-home-insurance-legislation.html
+
 **With Trump’s Help, Intel Could Hand Control of Chip Plants to TSMC**\
 `The Silicon Valley giant is trying to cut a deal it hopes would help it pull out of a yearslong slump.`\
 https://nytimes.com/2025/02/14/technology/intel-tsmc-talks-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
 **Slash Now, Fix Later**\
 `Elon Musk is using the same tactics to cut the government that he used to overhaul Twitter. But there are important differences.`\
 https://nytimes.com/2025/02/14/us/politics/slash-now-fix-later.html
-
-**Vance Shocks Europe With a Message That He Has Long Promoted at Home**\
-`The vice president’s speech in Munich, expressing support for far-right, anti-immigration parties and criticizing suppression of conservative voices, was a global extension of his core political themes.`\
-https://nytimes.com/2025/02/14/us/politics/vance-far-right-germany-munich-afd.html
-
-**Protesters Rally Against Deletion of ‘Transgender’ on Stonewall Website**\
-`Hundreds of people gathered at the Greenwich Village site to condemn what they saw as a chilling strike against the symbolic heart of the gay rights movement.`\
-https://nytimes.com/2025/02/14/nyregion/stonewall-monument-transgender-rally.html
-
-**Dave Roberts enters Dodgers spring 'very hopeful' for contract extension**\
-`Dodgers' plans for a 6-man rotation might wait until Shohei Ohtani returns. Until then, Dustin May and Tony Gonsolin could vie for 5th spot.`\
-https://nytimes.com/athletic/6137818/2025/02/14/dodgers-dave-roberts-contract-talks/
 
