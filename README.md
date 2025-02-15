@@ -1,3 +1,7 @@
+**Yankees’ under-the-radar pitching prospect turning heads early in camp**\
+`Yerry De Los Santos signed a minor-league deal with the Yankees in 2023 and spent last season with Triple-A Scranton/Wilkes-Barre.`\
+https://nytimes.com/athletic/6138807/2025/02/15/yankees-prospect-yerry-de-los-santos/
+
 **Edith Mathis, Radiant Swiss Soprano, Is Dead at 86**\
 `Known for her interpretations of Bach, Mozart and Weber, she was praised for her clear, bright voice and her perfect intonation even on the highest notes.`\
 https://nytimes.com/2025/02/15/arts/music/edith-mathis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
 **SEC dominates men’s NCAA Tournament top 16 seed bracket preview**\
 `The SEC secured three of the top four seeds in the NCAA selection committee's reveal.`\
 https://nytimes.com/athletic/6138324/2025/02/15/ncaa-tournament-top-16-seeds-preview-show/
-
-**In Seeking Adams Dismissal, Trump’s Appointees Use Legal System to Their Advantage**\
-`The demand for dismissal underlines the degree to which President Trump has long viewed the justice system as a battleground on which power is deployed for transactional political or personal ends.`\
-https://nytimes.com/2025/02/15/us/politics/adams-dismissal-trump-justice-department.html
 
