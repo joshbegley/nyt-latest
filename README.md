@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6137871/2025/02/15/enzo-maresca-chelsea-potter/
 `By Patrick Kingsley and Aaron Boxerman`\
 https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/heres-the-latest
 
+**Live Updates: Hamas Releases 3 More Israeli Hostages**\
+`In return, Israel is expected to free hundreds of Palestinian prisoners. The exchange would extend a fragile cease-fire that appeared on the brink of collapse earlier this week.`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages
+
 **Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
 `Candace Parker will coach the fourth and final team in the All-Star tournament.`\
 https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html
 **Analysing every major tactical tweak Guardiola has made during City's bad run**\
 `City's manager has adjusted many things to try to jolt his side out of this season's slump - but which ones have been the most effective?`\
 https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical-tweaks/
-
-**Ward-Prowse's West Ham return: Why Potter has brought midfielder back**\
-`James Ward-Prowse returned to West Ham from his loan spell at the end of the January window`\
-https://nytimes.com/athletic/6129262/2025/02/15/james-ward-prowse-west-ham-return-why/
 
