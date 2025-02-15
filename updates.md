@@ -1,3 +1,7 @@
+**Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss at Brighton**\
+`Chelsea's talisman looked at the end of his tether against Brighton and his team aren't getting the best from him right now`\
+https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustration-palmer/
+
 **Man United could be without injured midfield trio at Spurs**\
 `Mainoo's injury is expected to keep him out for more than a couple of weeks, with Ugarte and Collyer also major doubts for Sunday's game.`\
 https://nytimes.com/athletic/6138247/2025/02/15/manchester-united-team-news-mainoo-ugarte/
