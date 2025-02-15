@@ -1,3 +1,7 @@
+**Greg Sharpe, longtime radio voice of Nebraska football, dies at 61**\
+`Sharpe began calling Nebraska football games on the school’s radio network late in the 2007 season.`\
+https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-radio-dies/
+
 **Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
 `Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
 https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
