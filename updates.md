@@ -1,3 +1,11 @@
+**Emil Bove’s Collective Punishment Test and Our Collective Choices**\
+`How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
+
+**JD Vance Has a TikTok Problem. Can He Find a Solution?**\
+`The vice president is in a tricky position as he looks for a deal to save the popular short-form video app, which is subject to being banned in the U.S. if it is not sold to a non-Chinese owner.`\
+https://nytimes.com/2025/02/14/business/jd-vance-tiktok.html
+
 **Judge Refuses to Immediately Reinstate Inspectors General Fired by Trump**\
 `Judge Ana C. Reyes, a Biden appointee, excoriated lawyers representing the former government watchdogs for how they handled their emergency request, but let the lawsuit proceed on a slower timeline.`\
 https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
