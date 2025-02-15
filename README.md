@@ -1,3 +1,11 @@
+**Wisconsin dismantles Purdue, proving the Badgers aren't just good — they might be Final 4 good**\
+`Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
+https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
+
+**Trump’s First Month: Dizzying Workweeks and a Side of Sports on the Weekend**\
+`President Trump has been on the golf course and to the Super Bowl and could make an appearance at the Daytona 500 on Sunday.`\
+https://nytimes.com/2025/02/15/us/politics/trump-daytona-500-super-bowl.html
+
 **Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
 `With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely that the Yankees will extend Boone before Opening Day.`\
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/nyregion/ny-arrests-sam-nordquist-murder.html
 **Returning from second elbow surgery, Braves' Spencer Strider is motivated and, yes, stoic**\
 `Strider, who underwent an internal brace procedure 10 months ago, should return to the Braves' rotation by late April or early May.`\
 https://nytimes.com/athletic/6138651/2025/02/15/braves-spencer-strider-return-stoic/
-
-**British Couple on World Motorcycle Tour Is Detained in Iran**\
-`The couple last posted online from Iran in early January. Britain’s foreign office confirmed their detention after Iranian reports about British nationals accused of “security crimes.”`\
-https://nytimes.com/2025/02/15/world/europe/british-couple-detained-iran.html
-
-**Trump Officials Attack a German Consensus on Nazis and Speech**\
-`Vice President JD Vance and Elon Musk have challenged decades-long approaches to political extremism that were designed to prevent another Hitler.`\
-https://nytimes.com/2025/02/15/world/europe/vance-musk-nazis-afd-munich.html
 
