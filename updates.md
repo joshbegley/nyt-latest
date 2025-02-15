@@ -1,3 +1,7 @@
+**Live Updates: Hamas Releases 3 More Israeli Hostages**\
+`In return, Israel is expected to free hundreds of Palestinian prisoners. The exchange would extend a fragile cease-fire that appeared on the brink of collapse earlier this week.`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages
+
 **Verbruggen, redemption, and Brighton's goalkeeping situation**\
 `Brighton have young goalkeepers of high calibre, but Verbruggen showed second time around against Chelsea why he is top of the pile.`\
 https://nytimes.com/athletic/6129220/2025/02/15/bart-verbruggen-brighton-chelsea/
