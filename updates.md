@@ -1,3 +1,7 @@
+**Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
+`Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
+https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
+
 **Cottage Pie, Sweet and Spicy Meatballs, Salmon Burgers and Miso Chocolate Chip Cookies**\
 `Easy, cozy dishes that lean into winter.`\
 https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
