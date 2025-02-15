@@ -1,3 +1,11 @@
+**Swallow**\
+`David P. Williams feathers our nests with a new installment of his themeless series.`\
+https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
+
+**Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
+`Five takeaways from the event, including the importance of a monetary incentive.`\
+https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
+
 **Corrections: Feb. 15, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 15, 2025.`\
 https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6137931/2025/02/14/detroit-tigers-alex-bregman-purs
 **Hagan Scotten, Emil Bove and the Collective Punishment Test**\
 `How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
-
-**JD Vance Has a TikTok Problem. Can He Find a Solution?**\
-`The vice president is in a tricky position as he looks for a deal to save the popular short-form video app, which is subject to being banned in the U.S. if it is not sold to a non-Chinese owner.`\
-https://nytimes.com/2025/02/14/business/jd-vance-tiktok.html
-
-**Judge Refuses to Immediately Reinstate Inspectors General Fired by Trump**\
-`Judge Ana C. Reyes, a Biden appointee, excoriated lawyers representing the former government watchdogs for how they handled their emergency request, but let the lawsuit proceed on a slower timeline.`\
-https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
 
