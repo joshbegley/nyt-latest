@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg
 https://nytimes.com/2025/02/15/us/politics/trump-daytona-500-super-bowl.html
 
 **Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
-`With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely that the Yankees will extend Boone before Opening Day.`\
+`With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely the Yankees will extend Boone before Opening Day.`\
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
 

@@ -1,3 +1,11 @@
+**Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
+`White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
+https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
+
+**Square to Begin**\
+`John Kugelman’s puzzle will make solvers say “squee!”`\
+https://nytimes.com/2025/02/15/crosswords/daily-puzzle-2025-02-16.html
+
 **15 Hindu Pilgrims Reported Dead in Stampede at New Delhi Rail Station**\
 `Crowds had swelled because trains bound for the Kumbh Mela, the world’s largest religious festival, had been delayed, according to local media.`\
 https://nytimes.com/2025/02/15/world/asia/kumbh-mela-stampede-delhi-station.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/trump-daytona-500-super-bowl.html
 **Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
 `With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely that the Yankees will extend Boone before Opening Day.`\
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
-
-**Bayern Munich sporting director confirms Kimmich contract talks**\
-`The 30-year-old's existing contract expires in June 2025.`\
-https://nytimes.com/athletic/6138861/2025/02/15/joshua-kimmich-bayern-munich-contract/
-
-**How Finland stunned Sweden in 4 Nations OT thriller: Takeaways**\
-`Mikael Granlund scored the winner as Finland defeated Sweden in the rivalry matchup 4-3 on Saturday.`\
-https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
 

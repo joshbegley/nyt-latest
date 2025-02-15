@@ -1,3 +1,11 @@
+**Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
+`White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
+https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
+
+**Square to Begin**\
+`John Kugelman’s puzzle will make solvers say “squee!”`\
+https://nytimes.com/2025/02/15/crosswords/daily-puzzle-2025-02-16.html
+
 **15 Hindu Pilgrims Reported Dead in Stampede at New Delhi Rail Station**\
 `Crowds had swelled because trains bound for the Kumbh Mela, the world’s largest religious festival, had been delayed, according to local media.`\
 https://nytimes.com/2025/02/15/world/asia/kumbh-mela-stampede-delhi-station.html
