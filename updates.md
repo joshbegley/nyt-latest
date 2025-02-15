@@ -1,3 +1,7 @@
+**Love Letters**\
+`Mail and phone calls may be archaic, but they have lessons for us on how to be better communicators.`\
+https://nytimes.com/2025/02/15/briefing/love-letters.html
+
 **Inside Jasson Domínguez's crash course in left field: 'He wants it'**\
 `Domínguez is busy practicing everything he'd have to handle as a left fielder, from high fly balls to shoestring catches.`\
 https://nytimes.com/athletic/6137746/2025/02/15/yankees-jasson-dominguez-left-field-crash-course/
