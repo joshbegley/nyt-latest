@@ -1,3 +1,11 @@
+**Analysing every major tactical tweak Guardiola has made during City's bad run**\
+`City's manager has adjusted many things to try to jolt his side out of this season's slump - but which ones have been the most effective?`\
+https://nytimes.com/athletic/6136785/2025/02/15/manchester-city-bad-run-tactical-tweaks/
+
+**Ward-Prowse's West Ham return: Why Potter has brought midfielder back**\
+`James Ward-Prowse returned to West Ham from his loan spell at the end of the January window`\
+https://nytimes.com/athletic/6129262/2025/02/15/james-ward-prowse-west-ham-return-why/
+
 **The making of Mathys Tel: starting at centre-back, getting kicked out of Clairefontaine and idolising Thierry Henry**\
 `The 19-year-old has swapped Bayern for Tottenham in search of regular playing time. His former coaches and those close to him tell his story`\
 https://nytimes.com/athletic/6130985/2025/02/15/mathys-tel-tottenham-signing-background-bayern-man-united/
