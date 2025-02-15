@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Patrick Kingsley and Aaron Boxerman`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/heres-the-latest
+
 **Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
 `Candace Parker will coach the fourth and final team in the All-Star tournament.`\
 https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
