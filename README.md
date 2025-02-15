@@ -1,3 +1,7 @@
+**German Chancellor Rebukes Vance for Supporting Party That Downplays Nazis**\
+`At the Munich Security Conference, Olaf Scholz accused the U.S. vice president of unacceptable interference in Germany’s coming elections.`\
+https://nytimes.com/2025/02/15/world/europe/scholz-vance-munich-germany.html
+
 **Verbruggen, redemption, and Brighton's goalkeeping situation**\
 `Brighton have young goalkeepers of high calibre, but Verbruggen showed second time around against Chelsea why he is top of the pile.`\
 https://nytimes.com/athletic/6129220/2025/02/15/bart-verbruggen-brighton-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages
 **Castle, Knecht lead team to Rising Stars championship, All-Star tournament**\
 `Candace Parker will coach the fourth and final team in the All-Star tournament.`\
 https://nytimes.com/athletic/6138106/2025/02/15/rising-stars-tournament-nba-all-star-weekend/
-
-**Judge Lets Musk’s Team Keep Access to Records at Some Agencies, for Now**\
-`Judge John D. Bates ruled that he had grave concerns about the privacy issues raised but that the case did not meet the high legal bar for immediately blocking access.`\
-https://nytimes.com/2025/02/14/us/politics/doge-musk-cfpb-labor-hhs.html
 
