@@ -1,3 +1,7 @@
+**Argentine Leader Draws Fire After Cratering of Crypto Coin He Promoted**\
+`The move, quickly seized upon by his political rivals, was the latest in a series that Javier Milei has made that seem to mirror President Trump.`\
+https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
+
 **Yrjo Kukkapuro, Who Made the Easiest of Easy Chairs, Dies at 91**\
 `A celebrated Finnish modernist, he designed a variety of furnishings but was best known for his seating — which, his company said, “almost every Finn has sat on.”`\
 https://nytimes.com/2025/02/15/arts/design/yrjo-kukkapuro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/crosswords/daily-puzzle-2025-02-16.html
 **15 Hindu Pilgrims Reported Dead in Stampede at New Delhi Rail Station**\
 `Crowds had swelled because trains bound for the Kumbh Mela, the world’s largest religious festival, had been delayed, according to local media.`\
 https://nytimes.com/2025/02/15/world/asia/kumbh-mela-stampede-delhi-station.html
-
-**Did Sweden start the wrong goalie in 4 Nations matchup vs. Finland?**\
-`Filip Gustavsson allowed two goals on four shots but was pulled after the first period in favor of Linus Ullmark because of illness.`\
-https://nytimes.com/athletic/6138963/2025/02/15/sweden-4-nations-face-off-filip-gustavsson/
 
