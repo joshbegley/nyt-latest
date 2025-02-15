@@ -1,3 +1,11 @@
+**The swap went smoothly, but the cease-fire in Gaza still looks shaky.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/the-swap-went-smoothly-but-the-cease-fire-in-gaza-still-looks-shaky
+
+**Newly released from jail, one Palestinian has no home to return to.**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/newly-released-from-jail-one-palestinian-has-no-home-to-return-to
+
 **Mikaela Shiffrin, vying for Alpine world championship record, misses slalom medal by 0.05**\
 `"I'm definitely getting closer," Shiffrin said Saturday of her ongoing recovery after just missing a historic 16th world championship medal.`\
 https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/hamas-tones
 **What does Premier League losing APT ruling mean for Man City and other clubs?**\
 `What has happened? How might other clubs react? Does this impact the charges against Man City?`\
 https://nytimes.com/athletic/6138205/2025/02/15/premier-league-apt-ruling-man-city/
-
-**Breaking down why Cole Palmer cut such a frustrated figure in Chelsea's loss at Brighton**\
-`Chelsea's talisman looked at the end of his tether against Brighton and his team aren't getting the best from him right now`\
-https://nytimes.com/athletic/6138219/2025/02/15/cole-palmer-chelsea-form-frustration-palmer/
-
-**Relief in Israel as Newly Released Hostages Appear to Be in Better Shape**\
-`The emaciated condition of the three men released last week horrified Israelis. A crowd that gathered in Tel Aviv on Saturday to watch video of the latest handover in Gaza reacted more positively.`\
-https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-square-reaction.html
 
