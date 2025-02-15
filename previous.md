@@ -1,4 +1,8 @@
-**The Briefing: Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
+**Amad suffers ankle ligament injury, could miss rest of season**\
+`The 22-year-old has been one of the few bright spots in a bleak season for United.`\
+https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
+
+**The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record and Newcastle's Etihad curse remains**\
 `Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush - and yet another Ederson assist`\
 https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-gl
 **Barcelona goalkeeper Roebuck sidelined with head injury**\
 `Barca confirmed she will miss Sunday's Liga F fixture against Madrid CFF.`\
 https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcelona/
-
-**Jannik Sinner's doping case explained: What three-month ban, WADA settlement mean for tennis**\
-`The men's world No. 1 will miss several tournaments, but no Grand Slams. Here's what to know about the doping proceedings against him.`\
-https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-tennis-explained/
 
