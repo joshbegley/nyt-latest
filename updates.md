@@ -1,3 +1,7 @@
+**Bryce Harper, Kyle Schwarber embrace October sting, plus notes on Schwarber's contract and more**\
+`Additional camp observations include Cristopher Sánchez's increased strength, Edmundo Sosa's outfield work and Harper's TikTok exploits.`\
+https://nytimes.com/athletic/6138685/2025/02/15/phillies-bryce-harper-kyle-schwarber-contract/
+
 **Wisconsin dismantles Purdue, proving the Badgers might be Final 4 good**\
 `Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
 https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
