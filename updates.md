@@ -1,3 +1,7 @@
+**Corrections: Feb. 15, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 15, 2025.`\
+https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
+
 **Zelensky Says Ukraine Unlikely to Survive Its War Without U.S. Support**\
 `His comments came on the first day of the Munich Security Conference, where anxious European officials had hoped to learn more about U.S. plans to broker peace talks.`\
 https://nytimes.com/2025/02/14/world/europe/zelensky-nbc-meet-the-press.html
