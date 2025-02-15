@@ -1,3 +1,15 @@
+**Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
+`With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely that the Yankees will extend Boone before Opening Day.`\
+https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
+
+**Bayern Munich sporting director confirms Kimmich contract talks**\
+`The 30-year-old's existing contract expires in June 2025.`\
+https://nytimes.com/athletic/6138861/2025/02/15/joshua-kimmich-bayern-munich-contract/
+
+**How Finland stunned Sweden with huge OT win: takeaways**\
+`Finland wins 4-3 OT thriller over rivals from Sweden in 4 Nations Face-Off matchup.`\
+https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
+
 **Yankees’ under-the-radar pitching prospect turning heads early in camp**\
 `Yerry De Los Santos signed a minor-league deal with the Yankees in 2023 and spent last season with Triple-A Scranton/Wilkes-Barre.`\
 https://nytimes.com/athletic/6138807/2025/02/15/yankees-prospect-yerry-de-los-santos/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/15/world/europe/british-couple-detained-iran.html
 **Trump Officials Attack a German Consensus on Nazis and Speech**\
 `Vice President JD Vance and Elon Musk have challenged decades-long approaches to political extremism that were designed to prevent another Hitler.`\
 https://nytimes.com/2025/02/15/world/europe/vance-musk-nazis-afd-munich.html
-
-**Bellingham sent off for swearing at referee: What happened, was it a 'miscommunication'?**\
-`Bellingham was shown a red card in Real Madrid's 1-1 draw with Osasuna on Saturday.`\
-https://nytimes.com/athletic/6138417/2025/02/15/jude-bellingham-red-card-real-madrid-swearing/
-
-**He Nearly Ended Cuomo’s Career. Now He Says His Ex-Rival Should Be Mayor.**\
-`H. Carl McCall, whose 2002 primary race with Andrew M. Cuomo became a racially charged clash, is urging the former governor to run for mayor of New York City.`\
-https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
-
-**SEC dominates men’s NCAA Tournament top 16 seed bracket preview**\
-`The SEC secured three of the top four seeds in the NCAA selection committee's reveal.`\
-https://nytimes.com/athletic/6138324/2025/02/15/ncaa-tournament-top-16-seeds-preview-show/
 
