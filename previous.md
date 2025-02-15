@@ -1,3 +1,7 @@
+**Bellingham sent off for swearing at referee: What happened, was it a 'miscommunication'?**\
+`Bellingham was shown a red card in Real Madrid's 1-1 draw with Osasuna on Saturday.`\
+https://nytimes.com/athletic/6138417/2025/02/15/jude-bellingham-red-card-real-madrid-swearing/
+
 **He Nearly Ended Cuomo’s Career. Now He Says His Ex-Rival Should Be Mayor.**\
 `H. Carl McCall, whose 2002 primary race with Andrew M. Cuomo became a racially charged clash, is urging the former governor to run for mayor of New York City.`\
 https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
 **The Briefing - Man City 4 Newcastle 0: Marmoush hat-trick, Ederson's assist record, and Newcastle's Etihad curse remains**\
 `Our writers analyse the key talking points as Manchester City won 4-0 thanks to a hat-trick from Marmoush — and yet another Ederson assist`\
 https://nytimes.com/athletic/6126172/2025/02/15/manchester-city-newcastle-premier-league-marmoush-ederson/
-
-**Greg Sharpe, longtime radio voice of Nebraska football, dies at 61**\
-`Sharpe began calling Nebraska football games on the school’s radio network late in the 2007 season.`\
-https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-radio-dies/
 

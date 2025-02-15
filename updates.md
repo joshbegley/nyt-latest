@@ -1,3 +1,7 @@
+**Bellingham sent off for swearing at referee: What happened, was it a 'miscommunication'?**\
+`Bellingham was shown a red card in Real Madrid's 1-1 draw with Osasuna on Saturday.`\
+https://nytimes.com/athletic/6138417/2025/02/15/jude-bellingham-red-card-real-madrid-swearing/
+
 **He Nearly Ended Cuomo’s Career. Now He Says His Ex-Rival Should Be Mayor.**\
 `H. Carl McCall, whose 2002 primary race with Andrew M. Cuomo became a racially charged clash, is urging the former governor to run for mayor of New York City.`\
 https://nytimes.com/2025/02/15/nyregion/cuomo-mccall-mayor-nyc.html
