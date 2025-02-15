@@ -1,3 +1,11 @@
+**Under Pressure to Dismiss Charges, Career Prosecutors Weighed Stark Options**\
+`Lawyers in the Justice Department’s public integrity section came to believe that to save their jobs, one of them would have to sign the official request to dismiss corruption charges against Mayor Eric Adams.`\
+https://nytimes.com/2025/02/14/us/politics/eric-adams-doj-lawyers.html
+
+**Hurts toasts Philly fans at Super Bowl parade: 'I know about this city ... we fight**\
+`Saquon Barkley, A.J. Brown and more also addressed the crowd at Friday's parade.`\
+https://nytimes.com/athletic/6137139/2025/02/14/jalen-hurts-eagles-super-bowl-parade-speeches/
+
 **Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
 `Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
 https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
