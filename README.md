@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-ext
 `The 30-year-old's existing contract expires in June 2025.`\
 https://nytimes.com/athletic/6138861/2025/02/15/joshua-kimmich-bayern-munich-contract/
 
-**How Finland stunned Sweden in OT thriller: Takeaways**\
+**How Finland stunned Sweden in 4 Nations OT thriller: Takeaways**\
 `Finland wins 4-3 OT thriller over rivals from Sweden in 4 Nations Face-Off matchup.`\
 https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
 
