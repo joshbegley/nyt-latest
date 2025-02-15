@@ -1,3 +1,7 @@
+**Hamas tones the theatrics down a notch at the latest hostage release.**\
+`By Aaron Boxerman and Saher Alghorra`\
+https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/hamas-tones-the-theatrics-down-a-notch-at-the-latest-hostage-release
+
 **What does Premier League losing APT ruling mean for Man City and other clubs?**\
 `What has happened? How might other clubs react? Does this impact the charges against Man City?`\
 https://nytimes.com/athletic/6138205/2025/02/15/premier-league-apt-ruling-man-city/
