@@ -1,3 +1,11 @@
+**A National Park Guide Was Flying Home From a Work Trip. She Was Fired Midair.**\
+`Helen Dhue was one of 1,000 National Park Service employees affected by the Trump administration’s federal job cuts. “Parks build community,” she said. “I’m sad to see that that’s being threatened.”`\
+https://nytimes.com/2025/02/15/us/politics/national-park-service-firings.html
+
+**'Unique': How the Dodgers will have to get 'very creative' with Shohei Ohtani's rehab**\
+`Ohtani threw a bullpen session on Saturday and could face live hitters before the Dodgers face the Cubs in Japan in mid-March.`\
+https://nytimes.com/athletic/6139095/2025/02/15/dodgers-shohei-ohtani-pitching-rehab/
+
 **UConn falls to Seton Hall, suffering one of worst losses ever by defending champ**\
 `It is the second worst loss in the KenPom era, which dates back to 1997. The worst also belongs to the Huskies (2015 UConn to Houston).`\
 https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball-upset-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6138963/2025/02/15/sweden-4-nations-face-off-filip-
 **Amazon Union Push Falls Short at North Carolina Warehouse**\
 `The outcome was a setback for workers trying to score a second election success at an Amazon facility. The union vowed to keep trying to organize.`\
 https://nytimes.com/2025/02/15/business/economy/amazon-union-garner-warehouse.html
-
-**Amorim says Man Utd first team can 'not ignore' redundancies**\
-`Sir Jim Ratcliffe is set to continue his drive to cut costs as part-owner of United by making more than 100 members of staff redundant.`\
-https://nytimes.com/athletic/6138937/2025/02/15/ruben-amorim-manchester-united-redundancies/
-
-**A look at Alex Bregman's first day in Red Sox camp, where he might play and more notes**\
-`Bregman spent Saturday working on the back fields and watching prospects Kristian Campbell and Marcelo Mayer take infield practice.`\
-https://nytimes.com/athletic/6138803/2025/02/15/red-sox-alex-bregman-position-first-day/
 
