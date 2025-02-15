@@ -1,3 +1,11 @@
+**Swallow**\
+`David P. Williams feathers our nests with a new installment of his themeless series.`\
+https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
+
+**Who won Unrivaled's first one-on-one tournament? What can the WNBA learn from the event?**\
+`Five takeaways from the event, including the importance of a monetary incentive.`\
+https://nytimes.com/athletic/6138036/2025/02/14/who-won-unrivaleds-first-one-on-one-tournament-what-can-the-wnba-learn-from-the-event/
+
 **Corrections: Feb. 15, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 15, 2025.`\
 https://nytimes.com/2025/02/14/pageoneplus/corrections-feb-15-2025.html
