@@ -1,3 +1,7 @@
+**Wrexham's away form analysed and why an improvement will likely be needed to secure promotion**\
+`Wrexham's win at Northampton was a step in the right direction. They'll need more good results on the road to power their promotion push`\
+https://nytimes.com/athletic/6136265/2025/02/15/wrexham-away-form-promotion-league-one/
+
 **The making of Omar Marmoush: Inside the Cairo club that formed him**\
 `His former coaches on the player they helped create`\
 https://nytimes.com/athletic/6118542/2025/02/15/making-of-omar-marmoush-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
 **Map: 3.5-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/02/15/us/malibu-california-earthquake.html
-
-**Hegseth’s Bruising 72-Hour Debut Overseas**\
-`It was a crash course in geopolitical realities as the new defense secretary stepped onto the world stage.`\
-https://nytimes.com/2025/02/15/us/politics/hegseth-ukraine-russia.html
 
