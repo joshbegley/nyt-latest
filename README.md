@@ -1,3 +1,15 @@
+**The making of Mathys Tel: starting at centre-back, getting kicked out of Clairefontaine and idolising Thierry Henry**\
+`The 19-year-old has swapped Bayern for Tottenham in search of regular playing time. His former coaches and those close to him tell his story`\
+https://nytimes.com/athletic/6130985/2025/02/15/mathys-tel-tottenham-signing-background-bayern-man-united/
+
+**The impact of being only player from your country to play in the Premier League**\
+`There are 18 players who are the only representatives from their country to feature in the Premier League. What has their impact been?`\
+https://nytimes.com/athletic/6091194/2025/02/15/sole-country-representatives-premier-league/
+
+**The Premier League's top three are proving centre-back partnerships matter again**\
+`Despite the tactical differences between the Premier League’s top three centre-back partnerships, they share one thing: their importance`\
+https://nytimes.com/athletic/6135133/2025/02/15/van-dijk-konate-gabriel-saliba-murillo-milenkovic-centre-backs/
+
 **Swallow**\
 `David P. Williams feathers our nests with a new installment of his themeless series.`\
 https://nytimes.com/2025/02/14/crosswords/daily-puzzle-2025-02-15.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/14/us/wyoming-tunnel-fire-crash.html
 **Carmelo Anthony, Sue Bird headline 2025 Hall of Fame nominees**\
 `Anthony is a 10-time All-Star with the Denver Nuggets and New York Knicks who scored more than 28,000 points in his 19-year pro career.`\
 https://nytimes.com/athletic/6137656/2025/02/14/nba-naismith-hall-of-fame-nominees-carmelo-anthony-sue-bird-2025/
-
-**Scottie Scheffler's driver is off at Torrey Pines. It does not matter**\
-`Scheffler is still rounding into tournament form. The best are still playing catch-up.`\
-https://nytimes.com/athletic/6137951/2025/02/14/scottie-scheffler-driver-off-torrey-pines-genesis-invitational/
-
-**Tigers' Scott Harris on Alex Bregman pursuit: ‘We want players who want to be here’**\
-`The mere fact the Tigers pursued Bregman so aggressively tells you how badly they wanted and needed the All-Star third baseman. `\
-https://nytimes.com/athletic/6137931/2025/02/14/detroit-tigers-alex-bregman-pursuit/
-
-**Hagan Scotten, Emil Bove and the Collective Punishment Test**\
-`How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
-https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
 
