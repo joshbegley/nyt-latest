@@ -1,3 +1,15 @@
+**Wisconsin dismantles Purdue, proving the Badgers aren't just good — they might be Final 4 good**\
+`Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
+https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
+
+**Trump’s First Month: Dizzying Workweeks and a Side of Sports on the Weekend**\
+`President Trump has been on the golf course and to the Super Bowl and could make an appearance at the Daytona 500 on Sunday.`\
+https://nytimes.com/2025/02/15/us/politics/trump-daytona-500-super-bowl.html
+
+**How Finland stunned Sweden in 4 Nations OT thriller: Takeaways**\
+`Finland wins 4-3 OT thriller over rivals from Sweden in 4 Nations Face-Off matchup.`\
+https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
+
 **How Finland stunned Sweden in OT thriller: Takeaways**\
 `Finland wins 4-3 OT thriller over rivals from Sweden in 4 Nations Face-Off matchup.`\
 https://nytimes.com/athletic/6138639/2025/02/15/sweden-finland-4-nations-faceoff-score/
