@@ -1,3 +1,15 @@
+**UConn falls to Seton Hall, suffering one of worst losses ever by defending champ**\
+`It is the second worst loss in the KenPom era, which dates back to 1997. The worst also belongs to the Huskies (2015 UConn to Houston).`\
+https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball-upset-analysis/
+
+**Adams to Sue Trump Administration Over Clawback of Migrant Shelter Funds**\
+`The decision to sue over the $80 million in seized funds comes as the New York City mayor has been accused of supporting the White House’s immigration agenda in exchange for legal leniency.`\
+https://nytimes.com/2025/02/15/nyregion/adams-trump-migrant-shelter-funds.html
+
+**Trump Suggests No Laws Are Broken if He’s ‘Saving His Country’**\
+`President Trump shared a quotation on social media, making it clear it was one he wanted people to absorb: “He who saves his Country does not violate any Law.”`\
+https://nytimes.com/2025/02/15/us/politics/trump-saves-country-quote.html
+
 **Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
 `With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely the Yankees will extend Boone before Opening Day.`\
 https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/

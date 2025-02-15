@@ -1,3 +1,15 @@
+**UConn falls to Seton Hall, suffering one of worst losses ever by defending champ**\
+`It is the second worst loss in the KenPom era, which dates back to 1997. The worst also belongs to the Huskies (2015 UConn to Houston).`\
+https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball-upset-analysis/
+
+**Adams to Sue Trump Administration Over Clawback of Migrant Shelter Funds**\
+`The decision to sue over the $80 million in seized funds comes as the New York City mayor has been accused of supporting the White House’s immigration agenda in exchange for legal leniency.`\
+https://nytimes.com/2025/02/15/nyregion/adams-trump-migrant-shelter-funds.html
+
+**Trump Suggests No Laws Are Broken if He’s ‘Saving His Country’**\
+`President Trump shared a quotation on social media, making it clear it was one he wanted people to absorb: “He who saves his Country does not violate any Law.”`\
+https://nytimes.com/2025/02/15/us/politics/trump-saves-country-quote.html
+
 **Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
 `White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
 https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6138937/2025/02/15/ruben-amorim-manchester-united-r
 **A look at Alex Bregman's first day in Red Sox camp, where he might play and more notes**\
 `Bregman spent Saturday working on the back fields and watching prospects Kristian Campbell and Marcelo Mayer take infield practice.`\
 https://nytimes.com/athletic/6138803/2025/02/15/red-sox-alex-bregman-position-first-day/
-
-**Wisconsin dismantles Purdue, proving the Badgers might be Final 4 good**\
-`Wisconsin’s 94 points were the most Purdue has allowed in a game since its 2019 Sweet 16 victory over Tennessee.`\
-https://nytimes.com/athletic/6138796/2025/02/15/wisconsin-purdue-john-tonje-greg-gard/
-
-**Trump’s First Month: Dizzying Workweeks and a Side of Sports on the Weekend**\
-`President Trump has been on the golf course and to the Super Bowl and could make an appearance at the Daytona 500 on Sunday.`\
-https://nytimes.com/2025/02/15/us/politics/trump-daytona-500-super-bowl.html
-
-**Yankees' Aaron Boone: 'No place I'd rather be' as contract extension talks heat up**\
-`With support from owner Hal Steinbrenner and GM Brian Cashman, it appears likely the Yankees will extend Boone before Opening Day.`\
-https://nytimes.com/athletic/6138712/2025/02/15/yankees-aaron-boone-contract-extension-talks/
 
