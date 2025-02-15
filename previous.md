@@ -1,3 +1,7 @@
+**Daily 'backyard catch' program has Twins' Chris Paddack hoping to simplify, make 35 starts**\
+`Paddack began the program after the season ended and never slowed down. The one constant was throwing every day. Now he's eyeing 35 starts.`\
+https://nytimes.com/athletic/6137669/2025/02/15/chris-paddack-twins-35-starts-goal/
+
 **Love Letters**\
 `Mail and phone calls may be archaic, but they have lessons for us on how to be better communicators.`\
 https://nytimes.com/2025/02/15/briefing/love-letters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138029/2025/02/15/nba-all-star-format-explained-20
 **A Closer Look at the 3 Hostages Freed by Hamas**\
 `The release of the men, who include an American, was the sixth in a hostage-for-prisoner exchange laid out in a cease-fire deal between Hamas and Israel.`\
 https://nytimes.com/2025/02/15/world/middleeast/israel-hostages-freed-hamas.html
-
-**Senator Ruben Gallego on the Democrats’ Problem: ‘We’re Always Afraid’**\
-`The Arizona lawmaker diagnoses what he thinks needs to change in the way his party communicates with men, Latinos and Trump voters.`\
-https://nytimes.com/2025/02/15/magazine/ruben-gallego-interview.html
 

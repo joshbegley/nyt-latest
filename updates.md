@@ -1,3 +1,7 @@
+**Daily 'backyard catch' program has Twins' Chris Paddack hoping to simplify, make 35 starts**\
+`Paddack began the program after the season ended and never slowed down. The one constant was throwing every day. Now he's eyeing 35 starts.`\
+https://nytimes.com/athletic/6137669/2025/02/15/chris-paddack-twins-35-starts-goal/
+
 **Love Letters**\
 `Mail and phone calls may be archaic, but they have lessons for us on how to be better communicators.`\
 https://nytimes.com/2025/02/15/briefing/love-letters.html
