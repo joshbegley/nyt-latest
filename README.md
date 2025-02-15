@@ -1,3 +1,11 @@
+**Emil Bove’s Collective Punishment Test and Our Collective Choices**\
+`How Hagan Scotten, Emil Bove and the prosecutors who filed motions in the Eric Adams case demonstrate the tool of collective punishment.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/emil-bove-hagan-scotten-eric-adams
+
+**JD Vance Has a TikTok Problem. Can He Find a Solution?**\
+`The vice president is in a tricky position as he looks for a deal to save the popular short-form video app, which is subject to being banned in the U.S. if it is not sold to a non-Chinese owner.`\
+https://nytimes.com/2025/02/14/business/jd-vance-tiktok.html
+
 **Judge Refuses to Immediately Reinstate Inspectors General Fired by Trump**\
 `Judge Ana C. Reyes, a Biden appointee, excoriated lawyers representing the former government watchdogs for how they handled their emergency request, but let the lawsuit proceed on a slower timeline.`\
 https://nytimes.com/2025/02/14/us/politics/trump-inspectors-general-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6137139/2025/02/14/jalen-hurts-eagles-super-bowl-pa
 **Previewing Sweden-Finland: A rivalry with much more than national pride on the line**\
 `Both teams enter the matchup with knowledge of the historic rivalry but also know the importance of staying alive in the tournament. `\
 https://nytimes.com/athletic/6137742/2025/02/14/sweden-finland-4-nations-face-off-preview/
-
-**Senior officials could be forced to resign at C.D.C. and N.I.H.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2025/02/14/us/trump-news-tariffs-federal/senior-officials-could-be-forced-to-resign-at-cdc-and-nih
-
-**Army Helicopter Might Have Missed Critical Instruction Before Midair Crash**\
-`Investigators said that an air traffic controller had instructed the Black Hawk crew to pass behind a nearby passenger jet, but that information might have got lost.`\
-https://nytimes.com/2025/02/14/us/politics/ntsb-potomac-crash.html
 
