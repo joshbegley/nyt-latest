@@ -1,3 +1,7 @@
+**Wrexham's away form analysed and why an improvement will likely be needed to secure promotion**\
+`Wrexham's win at Northampton was a step in the right direction. They'll need more good results on the road to power their promotion push`\
+https://nytimes.com/athletic/6136265/2025/02/15/wrexham-away-form-promotion-league-one/
+
 **The making of Omar Marmoush: Inside the Cairo club that formed him**\
 `His former coaches on the player they helped create`\
 https://nytimes.com/athletic/6118542/2025/02/15/making-of-omar-marmoush-man-city/
