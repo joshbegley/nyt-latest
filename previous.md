@@ -1,3 +1,7 @@
+**Returning from second elbow surgery, Braves' Spencer Strider is motivated and, yes, stoic**\
+`Strider, who underwent an internal brace procedure 10 months ago, should return to the Braves' rotation by late April or early May.`\
+https://nytimes.com/athletic/6138651/2025/02/15/braves-spencer-strider-return-stoic/
+
 **British Couple on World Motorcycle Tour Is Detained in Iran**\
 `The couple last posted online from Iran in early January. Britain’s foreign office confirmed their detention after Iranian reports about British nationals accused of “security crimes.”`\
 https://nytimes.com/2025/02/15/world/europe/british-couple-detained-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6118542/2025/02/15/making-of-omar-marmoush-man-city
 **An Unchecked Trump Rapidly Remakes U.S. Government and Foreign Policy**\
 `The president’s swift moves underscore the confidence of an administration with a much firmer grip on the levers of government than during his first term.`\
 https://nytimes.com/2025/02/15/us/politics/trump-foreign-policy-government-firings.html
-
-**Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
-`An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
-https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
 

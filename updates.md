@@ -1,3 +1,7 @@
+**Returning from second elbow surgery, Braves' Spencer Strider is motivated and, yes, stoic**\
+`Strider, who underwent an internal brace procedure 10 months ago, should return to the Braves' rotation by late April or early May.`\
+https://nytimes.com/athletic/6138651/2025/02/15/braves-spencer-strider-return-stoic/
+
 **British Couple on World Motorcycle Tour Is Detained in Iran**\
 `The couple last posted online from Iran in early January. Britain’s foreign office confirmed their detention after Iranian reports about British nationals accused of “security crimes.”`\
 https://nytimes.com/2025/02/15/world/europe/british-couple-detained-iran.html
