@@ -1,3 +1,11 @@
+**'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
+`What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
+https://nytimes.com/athletic/6128683/2025/02/15/vince-carters-2000-nba-dunk-contest-masterpiece-i-wanted-to-go-out-there-and-give-you-a-show/
+
+**The Briefing: Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stand out; Lewis Skelly's composure**\
+`Jordan Campbell breaks down the talking points from a late victory at the King Power Stadium.`\
+https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-league/
+
 **The swap went smoothly, but the cease-fire in Gaza still looks shaky.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/the-swap-went-smoothly-but-the-cease-fire-in-gaza-still-looks-shaky
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6122828/2025/02/15/hockey-hometowns-forward-lines-r
 **Why Trump’s Takedown of an Anti-Bribery Law Could Backfire**\
 `The president has said the law is unfair to U.S. businesses. But lawyers say weakening it could end up costing corporate America big.`\
 https://nytimes.com/2025/02/15/business/dealbook/why-trumps-takedown-of-an-anti-bribery-law-could-backfire.html
-
-**Hamas tones the theatrics down a notch at the latest hostage release.**\
-`By Aaron Boxerman and Saher Alghorra`\
-https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/hamas-tones-the-theatrics-down-a-notch-at-the-latest-hostage-release
-
-**What does Premier League losing APT ruling mean for Man City and other clubs?**\
-`What has happened? How might other clubs react? Does this impact the charges against Man City?`\
-https://nytimes.com/athletic/6138205/2025/02/15/premier-league-apt-ruling-man-city/
 
