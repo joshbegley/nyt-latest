@@ -1,3 +1,7 @@
+**Greg Sharpe, longtime radio voice of Nebraska football, dies at 61**\
+`Sharpe began calling Nebraska football games on the school’s radio network late in the 2007 season.`\
+https://nytimes.com/athletic/6138365/2025/02/15/greg-sharpe-nebraska-football-radio-dies/
+
 **Grant Fisher breaks world indoor 5000m record, his second WR in 6 days**\
 `Fisher broke Kenenisa Bekele's 21-year-old indoor world record Friday night in Boston.`\
 https://nytimes.com/athletic/6138359/2025/02/15/grant-fisher-world-indoor-track-record-5000m/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806315/2025/02/15/jannik-sinner-doping-ban-case-te
 **'I wanted to go out there and give you a show': Vince Carter's 2000 NBA dunk contest masterpiece**\
 `What Carter did 25 years ago during a rain-soaked weekend in the Bay looked like, and felt like, the apogee of the competition.`\
 https://nytimes.com/athletic/6128683/2025/02/15/slam-dunk-contest-vince-carter-nba/
-
-**The Briefing - Leicester 0 Arsenal 2: Is Merino the answer? Nwaneri stands out; Lewis-Skelly's composure**\
-`Jordan Campbell breaks down the talking points from a late victory at the King Power Stadium.`\
-https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-league/
 
