@@ -1,3 +1,7 @@
+**Graham Nickson, 78, Dies; Passionate Steward of the New York Studio School**\
+`An artist known for his lush, large-scale oil paintings, he also created the Drawing Marathon, a two-week boot camp that transformed the lives of participants.`\
+https://nytimes.com/2025/02/15/arts/graham-nickson-dead.html
+
 **Amad suffers ankle ligament injury, could miss rest of season**\
 `The 22-year-old has been one of the few bright spots in a bleak season for United.`\
 https://nytimes.com/athletic/6138511/2025/02/15/manchester-united-amad-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/15/us/earthquake-texas.html
 **Steph Curry's fans include Harlem Globetrotters alumni: 3 showmen weigh in**\
 `"He creates an entertainment value with his talent and his gifts," former Harlem Globetrotter Charles "Choo" Smith said of Curry.`\
 https://nytimes.com/athletic/6138061/2025/02/15/stephen-curry-all-star-harlem-globetrotters/
-
-**Barcelona goalkeeper Roebuck sidelined with head injury**\
-`Barca confirmed she will miss Sunday's Liga F fixture against Madrid CFF.`\
-https://nytimes.com/athletic/6138345/2025/02/15/ellie-roebuck-head-injury-barcelona/
 
