@@ -1,3 +1,11 @@
+**Trump administration continues immigration court crackdown with judge firings.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2025/02/15/us/trump-news-federal/trump-administration-continues-immigration-court-crackdown-with-judge-firings
+
+**Meet Antti Pennanen, the under-the-radar coach pulling all the right strings for Finland**\
+`Everything Pennanen touched turned to gold, and now Finland remains alive in the 4 Nations tournament and has a chance to play in the final.`\
+https://nytimes.com/athletic/6139123/2025/02/15/finland-4-nations-face-off-antti-pennanen/
+
 **Argentine Leader Draws Fire After Cratering of Crypto Coin He Promoted**\
 `The move, quickly seized upon by his political rivals, was the latest in a series that Javier Milei has made that seem to mirror President Trump.`\
 https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/trump-saves-country-quote.html
 **Nelson Johnson, Labor Leader Wounded in Greensboro Massacre, Dies at 81**\
 `White supremacists killed five people in a 1979 shootout in North Carolina. Mr. Johnson later led a commission that investigated the attack.`\
 https://nytimes.com/2025/02/15/us/nelson-johnson-dead.html
-
-**Square to Begin**\
-`John Kugelman’s puzzle will make solvers say “squee!”`\
-https://nytimes.com/2025/02/15/crosswords/daily-puzzle-2025-02-16.html
-
-**15 Hindu Pilgrims Reported Dead in Stampede at New Delhi Rail Station**\
-`Crowds had swelled because trains bound for the Kumbh Mela, the world’s largest religious festival, had been delayed, according to local media.`\
-https://nytimes.com/2025/02/15/world/asia/kumbh-mela-stampede-delhi-station.html
 
