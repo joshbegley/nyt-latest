@@ -1,3 +1,11 @@
+**Cottage Pie, Sweet and Spicy Meatballs, Salmon Burgers and Miso Chocolate Chip Cookies**\
+`Easy, cozy dishes that lean into winter.`\
+https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
+
+**Map: 3.5-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/15/us/malibu-california-earthquake.html
+
 **Hegseth’s Bruising 72-Hour Debut Overseas**\
 `It was a crash course in geopolitical realities as the new defense secretary stepped onto the world stage.`\
 https://nytimes.com/2025/02/15/us/politics/hegseth-ukraine-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6126139/2025/02/15/leicester-city-arsenal-premier-l
 **The swap went smoothly, but the cease-fire in Gaza still looks shaky.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/the-swap-went-smoothly-but-the-cease-fire-in-gaza-still-looks-shaky
-
-**Newly released from jail, one Palestinian has no home to return to.**\
-`By Fatima AbdulKarim`\
-https://nytimes.com/live/2025/02/15/world/israel-hamas-gaza-hostages/newly-released-from-jail-one-palestinian-has-no-home-to-return-to
-
-**Mikaela Shiffrin, vying for Alpine world championship record, misses slalom medal by 0.05**\
-`"I'm definitely getting closer," Shiffrin said Saturday of her ongoing recovery after just missing a historic 16th world championship medal.`\
-https://nytimes.com/athletic/6138273/2025/02/15/mikaela-shiffrin-world-championship-slalom-medal-record/
 

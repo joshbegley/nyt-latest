@@ -1,3 +1,11 @@
+**Cottage Pie, Sweet and Spicy Meatballs, Salmon Burgers and Miso Chocolate Chip Cookies**\
+`Easy, cozy dishes that lean into winter.`\
+https://nytimes.com/2025/02/15/dining/easy-cozy-dishes.html
+
+**Map: 3.5-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/02/15/us/malibu-california-earthquake.html
+
 **Hegseth’s Bruising 72-Hour Debut Overseas**\
 `It was a crash course in geopolitical realities as the new defense secretary stepped onto the world stage.`\
 https://nytimes.com/2025/02/15/us/politics/hegseth-ukraine-russia.html
