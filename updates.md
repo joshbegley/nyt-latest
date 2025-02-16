@@ -1,3 +1,7 @@
+**Mac McClung flashes perfect score to win third straight NBA dunk contest**\
+`Only Nate Robinson had won three dunk contests before McClung, but Robinson’s wins were not all consecutive.`\
+https://nytimes.com/athletic/6139406/2025/02/15/mac-mcclung-nba-dunk-contest-third-straight-win/
+
 **In another example of SEC’s strength, Texas knocks off No. 15 Kentucky**\
 `The win gives the Longhorns their fourth Quad 1 win of the season and snaps a three-game losing streak`\
 https://nytimes.com/athletic/6139404/2025/02/15/texas-kentucky-mens-basketball-upset-analysis/
