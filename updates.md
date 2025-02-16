@@ -1,3 +1,7 @@
+**In Latest Advance, Rebels in Congo Say They Have Entered a Key City**\
+`Last month, M23 rebels backed by Rwanda took the city of Goma in a bloody battle. This weekend, the group entered the gold-trading center of Bukavu in eastern Congo after government soldiers fled.`\
+https://nytimes.com/2025/02/16/world/africa/in-latest-advance-rebels-in-congo-say-they-have-entered-a-key-city.html
+
 **Gold Mine Collapse in Mali Kills at Least 43**\
 `The accident took place in an open-pit area people had gone into in search of gold. Informal mining is a common and dangerous practice in much of West Africa.`\
 https://nytimes.com/2025/02/16/world/africa/mali-gold-mine-collapse.html
