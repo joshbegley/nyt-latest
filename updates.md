@@ -1,3 +1,7 @@
+**When Liam Delap dominates, people notice - no wonder big clubs are keeping tabs on him**\
+`One of the breakout stars of the season in the Premier League, the 22-year-old striker looks certain to be hot property next summer`\
+https://nytimes.com/athletic/6138610/2025/02/16/liam-delap-ipswich-manchester-united-chelsea/
+
 **Putin Has Long Wanted More Power in Europe. Trump Could Grant It.**\
 `Remarks by Vice President JD Vance and Defense Secretary Pete Hegseth are fueling concerns that the U.S. will move away from Europe and align with Moscow.`\
 https://nytimes.com/2025/02/16/world/europe/vance-europe-putin-russia.html
