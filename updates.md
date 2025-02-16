@@ -1,3 +1,7 @@
+**Why Andre Agassi and Steffi Graf have brought their 30 Grand Slam singles titles to pickleball**\
+`With 30 Grand Slam singles titles between them, Graf and Agassi illustrate the growth — and limits — of pickleball's popularity.`\
+https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
+
 **Left Out of Ukraine Talks, Europe Races to Organize a Response**\
 `The Trump administration’s push for negotiations without Ukrainian involvement leaves European allies with no clear role.`\
 https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
