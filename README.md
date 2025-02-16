@@ -1,3 +1,7 @@
+**Why Amad's injury will be the one that really hurts Manchester United**\
+`Amad has been a ray of light in a desolate season for the club, on and off the pitch. His goals, assists and energy will be hugely missed`\
+https://nytimes.com/athletic/6138621/2025/02/16/amad-manchester-united-injury-analysis/
+
 **'Girls can have short hair, get over it': How a youth team campaigned against prejudice**\
 `Fed up with ugly accusations from their opponents' parents, an under-12s side in Yorkshire took action`\
 https://nytimes.com/athletic/6136562/2025/02/16/girls-football-short-hair-campaign-prejudice/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/pageoneplus/quote-of-the-day-in-his-search-for-lo
 **The Growing Pains of Asia’s Newest Country**\
 `East Timor has become a stable democracy after securing independence in 2002. But its finances are precarious, and nearly half of its people live in poverty.`\
 https://nytimes.com/2025/02/16/world/asia/east-timor-challenges.html
-
-**Rubio Visits Israel as Trump Pushes Plan to Expel Palestinians From Gaza**\
-`Scholars of international law say President Trump’s proposal for American control of a Gaza without Palestinians would be ethnic cleansing and a war crime.`\
-https://nytimes.com/2025/02/16/us/politics/marco-rubio-israel-gaza.html
 
