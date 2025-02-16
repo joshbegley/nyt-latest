@@ -1,3 +1,7 @@
+**Corrections: Feb. 16, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 16, 2025.`\
+https://nytimes.com/2025/02/15/pageoneplus/corrections-feb-16-2025.html
+
 **Trump Aides to Meet With Russian Officials About Ukraine Next Week**\
 `Talks involving Secretary of State Marco Rubio and two other senior Trump officials would be the first between American and Russian delegations since the start of Russia’s full-scale invasion of Ukraine in February 2022.`\
 https://nytimes.com/2025/02/15/us/politics/trump-russia-ukraine-war-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139038/2025/02/15/auburn-holds-off-alabama-in-secs
 **Lowetide: Has Noah Philp done enough to win NHL job with Oilers?**\
 `The Oilers have a job opportunity at fourth-line centre, and first-year player Philp is trying to fill that role as the season rolls along.`\
 https://nytimes.com/athletic/6138285/2025/02/15/edmonton-oilers-noah-philp-nhl-job/
-
-**Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\
-`"Sometimes, the language barrier makes you lazy, unfortunately," Counsell said. "That’s on me. I got to get way better at that. And will."`\
-https://nytimes.com/athletic/6139136/2025/02/15/cubs-craig-counsell-seiya-suzuki-communication-issues/
 
