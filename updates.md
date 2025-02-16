@@ -1,3 +1,7 @@
+**Tom Izzo breaks Bob Knight's Big Ten wins record with 354th victory**\
+`Izzo now stands alone atop the Big Ten mountaintop.`\
+https://nytimes.com/athletic/6129737/2025/02/15/tom-izzo-big-ten-wins-record-bob-knight/
+
 **Adam Silver talks NBA trade deadline: 'I'm empathetic' for Mavericks fans**\
 `On Saturday during his annual news conference for All-Star weekend, Silver defended the Mavericks for the trade they made.`\
 https://nytimes.com/athletic/6139127/2025/02/15/adam-silver-nba-all-star-weekend-comments-2025/

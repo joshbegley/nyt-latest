@@ -1,3 +1,7 @@
+**Tom Izzo breaks Bob Knight's Big Ten wins record with 354th victory**\
+`Izzo now stands alone atop the Big Ten mountaintop.`\
+https://nytimes.com/athletic/6129737/2025/02/15/tom-izzo-big-ten-wins-record-bob-knight/
+
 **Adam Silver talks NBA trade deadline: 'I'm empathetic' for Mavericks fans**\
 `On Saturday during his annual news conference for All-Star weekend, Silver defended the Mavericks for the trade they made.`\
 https://nytimes.com/athletic/6139127/2025/02/15/adam-silver-nba-all-star-weekend-comments-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.h
 **Ukraine Rejects U.S. Demand for Half of Its Mineral Resources**\
 `President Volodymyr Zelensky publicly faulted the American offer, which is tied to continued aid, because it did not include security guarantees.`\
 https://nytimes.com/2025/02/15/world/europe/ukraine-minerals-us-deal-rejected.html
-
-**Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
-`Makar was a late scratch for Canada before its matchup against the United States because of an illness and is considered day to day.`\
-https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
 
