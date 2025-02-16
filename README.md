@@ -1,3 +1,7 @@
+**Knife Attack in Austria Kills One and Injures Four**\
+`The suspect, a Syrian national, was detained after stabbing several people in the city of Villach.`\
+https://nytimes.com/2025/02/16/world/asia/knife-attack-in-austria-kills-one-and-injures-four.html
+
 **No. 17 Kansas stumbles at unranked Utah as Jayhawks pick up tough loss**\
 `The Jayhawks top-16 seeding Saturday in the NCAA selection committee's seed reveal is now bound to change.`\
 https://nytimes.com/athletic/6139474/2025/02/16/utah-kansas-mens-basketball-upset-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136395/2025/02/16/tottenham-manchester-united-euro
 **A simple, brutal lesson for Newcastle: Be relentless or get nothing**\
 `Newcastle have lost 16 consecutive Premier League games away to Man City. It was supposed to be different this time, but they were anonymous`\
 https://nytimes.com/athletic/6138625/2025/02/16/newcastle-man-city-analysis-howe/
-
-**Ethan Nwaneri, the Arsenal 17-year-old who makes things happen**\
-`Nwaneri was Arsenal's outstanding player as they beat Leicester and he provided his first Premier League assist to break the deadlock`\
-https://nytimes.com/athletic/6138360/2025/02/16/ethan-nwaneri-arsenal-leicester/
 
