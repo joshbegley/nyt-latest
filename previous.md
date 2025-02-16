@@ -1,3 +1,7 @@
+**Trump Aides to Meet With Russian Officials About Ukraine Next Week**\
+`Talks involving Secretary of State Marco Rubio and two other senior Trump officials would be the first between American and Russian delegations since the start of Russia’s full-scale invasion of Ukraine in February 2022.`\
+https://nytimes.com/2025/02/15/us/politics/trump-russia-ukraine-war-saudi-arabia.html
+
 **Shark Bites Tourist Who Was Trying to Take Photo With It**\
 `The woman was flown off the island to receive medical care, according to the Turks and Caicos government.`\
 https://nytimes.com/2025/02/15/world/shark-bite-turks-caicos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138285/2025/02/15/edmonton-oilers-noah-philp-nhl-j
 **Cubs manager Craig Counsell and Seiya Suzuki are working on their communication issues**\
 `"Sometimes, the language barrier makes you lazy, unfortunately," Counsell said. "That’s on me. I got to get way better at that. And will."`\
 https://nytimes.com/athletic/6139136/2025/02/15/cubs-craig-counsell-seiya-suzuki-communication-issues/
-
-**Trump administration continues immigration court crackdown with judge firings.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2025/02/15/us/trump-news-federal/trump-administration-continues-immigration-court-crackdown-with-judge-firings
 

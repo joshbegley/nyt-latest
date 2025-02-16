@@ -1,3 +1,7 @@
+**Trump Aides to Meet With Russian Officials About Ukraine Next Week**\
+`Talks involving Secretary of State Marco Rubio and two other senior Trump officials would be the first between American and Russian delegations since the start of Russia’s full-scale invasion of Ukraine in February 2022.`\
+https://nytimes.com/2025/02/15/us/politics/trump-russia-ukraine-war-saudi-arabia.html
+
 **Shark Bites Tourist Who Was Trying to Take Photo With It**\
 `The woman was flown off the island to receive medical care, according to the Turks and Caicos government.`\
 https://nytimes.com/2025/02/15/world/shark-bite-turks-caicos.html
