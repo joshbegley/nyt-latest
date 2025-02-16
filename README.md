@@ -1,3 +1,7 @@
+**Mac McClung proves the NBA Slam Dunk Contest doesn't need stars, just passionate showmen**\
+`McClung captured the crowd with each dunk, and won the competition for the third straight year. That he’s not a star shouldn’t be a factor.`\
+https://nytimes.com/athletic/6139472/2025/02/16/mac-mcclung-nba-slam-dunk-contest/
+
 **Knife Attack in Austria Kills One and Injures Four**\
 `The suspect, a Syrian national, was detained after stabbing several people in the city of Villach.`\
 https://nytimes.com/2025/02/16/world/asia/knife-attack-austria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136289/2025/02/16/gary-neville-business-interests/
 **Spurs vs Man Utd: Who is further from a return to the top?**\
 `As they face off in north London on Sunday, it's safe to say this has so far not been a vintage season for either Spurs or United`\
 https://nytimes.com/athletic/6136395/2025/02/16/tottenham-manchester-united-europa-league-premier-league/
-
-**A simple, brutal lesson for Newcastle: Be relentless or get nothing**\
-`Newcastle have lost 16 consecutive Premier League games away to Man City. It was supposed to be different this time, but they were anonymous`\
-https://nytimes.com/athletic/6138625/2025/02/16/newcastle-man-city-analysis-howe/
 
