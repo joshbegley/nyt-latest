@@ -1,3 +1,7 @@
+**Thompson: Stephen Curry, for one night, returned to old Oracle Arena, where the soul lives on**\
+`The Warriors moved into their glitzy new San Francisco home in 2019. But the franchise's soul stayed behind at what's now Oakland Arena.`\
+https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-arena-all-star-practice/
+
 **USMNT's Sands undergoes surgery on 'complex ankle injury', out indefinitely**\
 `The midfielder, 24, is on loan from New York City FC to Bundesliga side St Pauli.`\
 https://nytimes.com/athletic/6139562/2025/02/16/james-sands-injury-usmnt-st-pauli/
