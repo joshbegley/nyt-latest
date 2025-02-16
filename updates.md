@@ -1,3 +1,7 @@
+**No. 17 Kansas stumbles at unranked Utah as Jayhawks pick up tough loss**\
+`The Jayhawks top-16 seeding Saturday in the NCAA selection committee's seed reveal is now bound to change.`\
+https://nytimes.com/athletic/6139474/2025/02/16/utah-kansas-mens-basketball-upset-analysis/
+
 **The Republican Party’s NPC Problem — and Ours**\
 `What happens when ambition no longer checks ambition?`\
 https://nytimes.com/video/opinion/100000009992539/the-republican-partys-npc-problem-and-ours.html
