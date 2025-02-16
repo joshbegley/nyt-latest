@@ -1,3 +1,7 @@
+**Emotion, skill and TV ratings: How the 4 Nations Face-Off has smashed expectations**\
+`The tournament has been a spellbinding, spine-tingling display of what hockey can be when given the proper conditions to pop.`\
+https://nytimes.com/athletic/6140554/2025/02/16/4-nations-face-off-nhl-hockey-canada-usa/
+
 **Buckley: With Red Sox, Alex Bregman and Rafael Devers, it's about what isn't being said**\
 `Until we find out who's playing third and what Devers is thinking about it, it’s hard to say what’s going on with Boston's infield.`\
 https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafael-devers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-dei
 **For the Mets, Juan Soto checks every box**\
 `The novel pressure this season for Soto comes with signing the largest contract in sports history.`\
 https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-training/
-
-**German Election Spotlight Turns to Trump**\
-`The American president’s foreign policy, and a divisive speech by his vice president, drew attention away from an attack by a refugee that some expected would fan political tensions over migration.`\
-https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
 
