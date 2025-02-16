@@ -1,3 +1,11 @@
+**Israel and Hamas Make 6th Exchange, Keeping Cease-Fire Intact for Now**\
+`Days after the fragile truce appeared to be teetering, Hamas freed three Israeli hostages as Israel released 369 Palestinian prisoners. But it is far from clear whether the deal will reach a second phase.`\
+https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.html
+
+**Ukraine Rejects U.S. Demand for Half of Its Mineral Resources**\
+`President Volodymyr Zelensky publicly faulted the American offer, which is tied to continued aid, because it did not include security guarantees.`\
+https://nytimes.com/2025/02/15/world/europe/ukraine-minerals-us-deal-rejected.html
+
 **Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
 `Makar was a late scratch for Canada before its matchup against the United States because of an illness and is considered day to day.`\
 https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/

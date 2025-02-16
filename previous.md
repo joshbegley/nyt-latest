@@ -1,3 +1,11 @@
+**Israel and Hamas Make 6th Exchange, Keeping Cease-Fire Intact for Now**\
+`Days after the fragile truce appeared to be teetering, Hamas freed three Israeli hostages as Israel released 369 Palestinian prisoners. But it is far from clear whether the deal will reach a second phase.`\
+https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.html
+
+**Ukraine Rejects U.S. Demand for Half of Its Mineral Resources**\
+`President Volodymyr Zelensky publicly faulted the American offer, which is tied to continued aid, because it did not include security guarantees.`\
+https://nytimes.com/2025/02/15/world/europe/ukraine-minerals-us-deal-rejected.html
+
 **Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
 `Makar was a late scratch for Canada before its matchup against the United States because of an illness and is considered day to day.`\
 https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
 **Yrjo Kukkapuro, Who Made the Easiest of Easy Chairs, Dies at 91**\
 `A celebrated Finnish modernist, he designed a variety of furnishings but was best known for his seating — which, his company said, “almost every Finn has sat on.”`\
 https://nytimes.com/2025/02/15/arts/design/yrjo-kukkapuro-dead.html
-
-**A National Park Guide Was Flying Home From a Work Trip. She Was Fired Midair.**\
-`Helen Dhue was one of 1,000 National Park Service employees affected by the Trump administration’s federal job cuts. “Parks build community,” she said. “I’m sad to see that that’s being threatened.”`\
-https://nytimes.com/2025/02/15/us/politics/national-park-service-firings.html
-
-**'Unique': How the Dodgers will have to get 'very creative' with Shohei Ohtani's rehab**\
-`Ohtani threw a bullpen session Saturday and could face live hitters before the Dodgers face the Cubs in Japan in mid-March.`\
-https://nytimes.com/athletic/6139095/2025/02/15/dodgers-shohei-ohtani-pitching-rehab/
 
