@@ -1,3 +1,15 @@
+**The Republican Party’s NPC Problem — and Ours**\
+`What happens when ambition no longer checks ambition?`\
+https://nytimes.com/2025/02/16/opinion/ezra-klein-podcast-congress-audio-essay.html
+
+**What America Can Gain if Trump Goes to China**\
+`A presidential visit to Beijing is an opportunity to make real progress in achieving a more balanced, stable relationship with China.`\
+https://nytimes.com/2025/02/16/opinion/trump-china-summit.html
+
+**The Republican Party’s N.P.C. Problem — and Ours**\
+`Congress was intended to be the most powerful branch of government. But it is supine now — with many congressional Republicans serving Trump’s ambitions first.`\
+https://nytimes.com/video/opinion/100000009992539/the-republican-partys-npc-problem-and-ours.html
+
 **Why Amad's injury will be the one that really hurts Manchester United**\
 `Amad has been a ray of light in a desolate season for the club, on and off the pitch. His goals, assists and energy will be hugely missed`\
 https://nytimes.com/athletic/6138621/2025/02/16/amad-manchester-united-injury-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6138360/2025/02/16/ethan-nwaneri-arsenal-leicester/
 **When Liam Delap dominates, people notice - no wonder big clubs are keeping tabs on him**\
 `One of the breakout stars of the season in the Premier League, the 22-year-old striker looks certain to be hot property next summer`\
 https://nytimes.com/athletic/6138610/2025/02/16/liam-delap-ipswich-manchester-united-chelsea/
-
-**Putin Has Long Wanted More Power in Europe. Trump Could Grant It.**\
-`Remarks by Vice President JD Vance and Defense Secretary Pete Hegseth are fueling concerns that the U.S. will move away from Europe and align with Moscow.`\
-https://nytimes.com/2025/02/16/world/europe/vance-europe-putin-russia.html
-
-**Quote of the Day: In His Search for Lost $800 Million, a Desperate Plea to Sell Him a Landfill**\
-`Quotation of the Day for Sunday, February 16, 2025.`\
-https://nytimes.com/2025/02/16/pageoneplus/quote-of-the-day-in-his-search-for-lost-800-million-a-desperate-plea-to-sell-him-a-landfill.html
-
-**The Growing Pains of Asia’s Newest Country**\
-`East Timor has become a stable democracy after securing independence in 2002. But its finances are precarious, and nearly half of its people live in poverty.`\
-https://nytimes.com/2025/02/16/world/asia/east-timor-challenges.html
 

@@ -1,3 +1,15 @@
+**The Republican Party’s NPC Problem — and Ours**\
+`What happens when ambition no longer checks ambition?`\
+https://nytimes.com/2025/02/16/opinion/ezra-klein-podcast-congress-audio-essay.html
+
+**What America Can Gain if Trump Goes to China**\
+`A presidential visit to Beijing is an opportunity to make real progress in achieving a more balanced, stable relationship with China.`\
+https://nytimes.com/2025/02/16/opinion/trump-china-summit.html
+
+**The Republican Party’s N.P.C. Problem — and Ours**\
+`Congress was intended to be the most powerful branch of government. But it is supine now — with many congressional Republicans serving Trump’s ambitions first.`\
+https://nytimes.com/video/opinion/100000009992539/the-republican-partys-npc-problem-and-ours.html
+
 **Why Amad's injury will be the one that really hurts Manchester United**\
 `Amad has been a ray of light in a desolate season for the club, on and off the pitch. His goals, assists and energy will be hugely missed`\
 https://nytimes.com/athletic/6138621/2025/02/16/amad-manchester-united-injury-analysis/
