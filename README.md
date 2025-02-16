@@ -1,3 +1,7 @@
+**Significant Winter Storm Continues to Sweep the East Coast**\
+`Heavy snow, sleet, freezing rain, and damaging winds of up to 70 miles per hour are all in the mix for Sunday into Monday.`\
+https://nytimes.com/2025/02/16/weather/snow-rain-rain-forecast-northeast.html
+
 **Like Bingo, but With Beef: Why Meat Raffles Are Blowing Up**\
 `Spinning the wheel to raise money for youth sports and, maybe, win a  steak, sausage or bone-in pork butt.`\
 https://nytimes.com/2025/02/16/nyregion/meat-raffles-buffalo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/world/asia/knife-attack-austria.html
 **No. 17 Kansas stumbles at unranked Utah as Jayhawks pick up tough loss**\
 `The Jayhawks top-16 seeding Saturday in the NCAA selection committee's seed reveal is now bound to change.`\
 https://nytimes.com/athletic/6139474/2025/02/16/utah-kansas-mens-basketball-upset-analysis/
-
-**The Republican Party’s NPC Problem — and Ours**\
-`What happens when ambition no longer checks ambition?`\
-https://nytimes.com/2025/02/16/opinion/ezra-klein-podcast-congress-audio-essay.html
 
