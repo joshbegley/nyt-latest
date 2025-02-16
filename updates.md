@@ -1,3 +1,7 @@
+**Ron Travisano, Adman Behind Singing Cats and Joe Isuzu, Dies at 86**\
+`The art director for Meow Mix and other memorable commercials, he began his career at the dawn of a creative revolution on Madison Avenue.`\
+https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html
+
 **BAFTAs: ‘Conclave’ Wins Best Film in the Latest Awards Season Shake-up**\
 `“Anora” and “The Brutalist” also took home major prizes at the British equivalent of the Oscars, tipping the scales again.`\
 https://nytimes.com/2025/02/16/movies/baftas-winners-conclave-brutalist.html
