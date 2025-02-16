@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
 https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
 
 **Left Out of Ukraine Talks, Europe Races to Organize a Response**\
-`The Trump administration’s push for negotiations without Ukrainian involvement leaves European allies with no clear role.`\
+`The Trump administration’s push for direct negotiations with Russia without Ukraine’s involvement leaves the European allies with no clear role.`\
 https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
 
 **Hot Potatoes**\
