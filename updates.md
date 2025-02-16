@@ -1,3 +1,7 @@
+**How USA beat Canada to clinch berth in 4 Nations final: Takeaways**\
+`The Americans claimed a 3-1 win over Canada on Saturday at the Bell Centre, and with 6 points, they've earned a spot in the 4 Nations final.`\
+https://nytimes.com/athletic/6139397/2025/02/15/usa-canada-4-nations-face-off-score/
+
 **Mac McClung flashes perfect score to win third straight NBA dunk contest**\
 `Only Nate Robinson had won three dunk contests before McClung, but Robinson’s wins were not all consecutive.`\
 https://nytimes.com/athletic/6139406/2025/02/15/mac-mcclung-nba-dunk-contest-third-straight-win/

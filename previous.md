@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6139406/2025/02/15/mac-mcclung-nba-dunk-contest-thi
 `The win gives the Longhorns their fourth Quad 1 win of the season and snaps a three-game losing streak`\
 https://nytimes.com/athletic/6139404/2025/02/15/texas-kentucky-mens-basketball-upset-analysis/
 
-**How Team USA beat Canada to clinch berth in 4 Nations Face-Off final: Takeaways**\
+**How USA beat Canada to clinch berth in 4 Nations final: Takeaways**\
 `The Americans claimed a 3-1 win over Canada on Saturday at the Bell Centre, and with 6 points, they've earned a spot in the 4 Nations final.`\
 https://nytimes.com/athletic/6139397/2025/02/15/usa-canada-4-nations-face-off-score/
 
