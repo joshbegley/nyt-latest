@@ -1,3 +1,7 @@
+**Why Amad's injury will be the one that really hurts Manchester United**\
+`Amad has been a ray of light in a desolate season for the club, on and off the pitch. His goals, assists and energy will be hugely missed`\
+https://nytimes.com/athletic/6138621/2025/02/16/amad-manchester-united-injury-analysis/
+
 **'Girls can have short hair, get over it': How a youth team campaigned against prejudice**\
 `Fed up with ugly accusations from their opponents' parents, an under-12s side in Yorkshire took action`\
 https://nytimes.com/athletic/6136562/2025/02/16/girls-football-short-hair-campaign-prejudice/
