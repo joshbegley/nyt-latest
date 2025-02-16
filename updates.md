@@ -1,3 +1,7 @@
+**Creighton survives Kalkbrenner injury scare, but falls to No. 9 St. John's**\
+`Red Storm bounces back from loss to Villanova, stands atop Big East standings.`\
+https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbrenner-injury-scare-but-falls-to-no-9-st-johns/
+
 **Why Canada should make a change in goal for matchup with Finland**\
 `Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
 https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/

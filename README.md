@@ -1,3 +1,7 @@
+**Pen Filler**\
+`Kate Hawkins and Erica Hsiung Wojcik make their collaboration debut.`\
+https://nytimes.com/2025/02/16/crosswords/daily-puzzle-2025-02-17.html
+
 **Creighton survives Kalkbrenner injury scare, but falls to No. 9 St. John's**\
 `Red Storm bounces back from loss to Villanova, stands atop Big East standings.`\
 https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbrenner-injury-scare-but-falls-to-no-9-st-johns/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbren
 https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
 
 **UConn finally jelled to upset South Carolina and put women's college basketball on alert**\
-`Paige Buckers and Azzi Fudd combined for 40 points and their best game together.`\
+`Paige Bueckers and Azzi Fudd combined for 40 points and their best game together.`\
 https://nytimes.com/athletic/6140706/2025/02/16/uconn-south-carolina-upset-womens-college-basketball/
 
 **Emotion, skill and TV ratings: How the 4 Nations Face-Off has smashed expectations**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140588/2025/02/16/mets-starling-marte-juan-soto/
 **Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
 `Plus, searching for ISIS’s forgotten victims.`\
 https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
-
-**Ron Travisano, Adman Behind Singing Cats and Joe Isuzu, Dies at 86**\
-`The art director for Meow Mix and other memorable commercials, he began his career at the dawn of a creative revolution on Madison Avenue.`\
-https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html
 
