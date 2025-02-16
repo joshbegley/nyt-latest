@@ -1,3 +1,7 @@
+**Life, from New York**\
+`Our comedy columnist reflects on 50 years of “Saturday Night Live.”`\
+https://nytimes.com/2025/02/16/briefing/saturday-night-live-50-anniversary.html
+
 **Trump Team Leaves Behind an Alliance in Crisis**\
 `European leaders felt certain about one thing after a whirlwind tour by Trump officials — they were entering a new world where it was harder to depend on the United States.`\
 https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
