@@ -1,3 +1,7 @@
+**Gold Mine Collapse in Mali Kills at Least 43**\
+`The accident took place in an open-pit area people had gone into in search of gold. Informal mining is a common and dangerous practice in much of West Africa.`\
+https://nytimes.com/2025/02/16/world/africa/mali-gold-mine-collapse.html
+
 **Remembering Dikembe Mutombo: All-Star record setter and 'phenomenal human being'**\
 `"If you were with him, you had nothing to worry about." Jerome Williams, a former Georgetown big said about Mutombo, another Hoyas alum.`\
 https://nytimes.com/athletic/6138672/2025/02/16/nba-dikembe-mutombo-all-star-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/world/europe/trump-redraw-world-map.html
 **How to Watch the ‘S.N.L.’ 50th Anniversary Special**\
 `The venerable sketch show is throwing itself a big star-studded party on Sunday night. Here’s everything you need to know about it.`\
 https://nytimes.com/2025/02/16/arts/television/snl-50th-anniversary-special.html
-
-**Marvel’s New ‘Captain America’ Is No. 1, Despite Poor Reviews**\
-`“Captain America: Brave New World” was expected to take in $84 million from Thursday through Sunday in North America.`\
-https://nytimes.com/2025/02/16/business/captain-america-marvel-box-office.html
 
