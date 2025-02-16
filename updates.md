@@ -1,3 +1,11 @@
+**Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
+`Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
+https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
+
+**Maddison revels in match-winning role in response to 'outside noise'**\
+`The Tottenham midfielder scored the game's only goal against Manchester United.`\
+https://nytimes.com/athletic/6140330/2025/02/16/james-maddison-tottenham-manchester-united/
+
 **Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
 `There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
 https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
