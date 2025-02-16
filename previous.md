@@ -1,3 +1,11 @@
+**Journalists Share Short Sketches of ‘S.N.L.’ Memories**\
+`“Saturday Night Live” has been on the air for 50 seasons. Times Culture journalists covering the milestone wrote about their own memories of watching the show, late at night and the morning after.`\
+https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
+
+**Where’s Elias Pettersson? Sweden is on the ropes without center’s offense**\
+`Pettersson’s absence of offensive presence is a big reason the Swedes are on the back foot heading into Monday's game against Team USA.`\
+https://nytimes.com/athletic/6140379/2025/02/16/4-nations-face-off-sweden-elias-pettersson/
+
 **Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
 `Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
 https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/16/us/politics/justice-department-trump-eric-adams.h
 **Ukraine Won’t Accept a Deal It Didn’t Help Negotiate, Zelensky Says**\
 `Volodymyr Zelensky, the president of Ukraine, told NBC News that he’d warned President Trump that Russia’s president, Vladimir Putin, is a “liar.”`\
 https://nytimes.com/2025/02/16/us/politics/ukraine-zelensky-trump-russia.html
-
-**The Pulse: A new dunk contest GOAT?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the-pulse/
-
-**Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
-`With the offseason drama over, Arenado remains motivated as ever to return to form.`\
-https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
 

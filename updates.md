@@ -1,3 +1,11 @@
+**Journalists Share Short Sketches of ‘S.N.L.’ Memories**\
+`“Saturday Night Live” has been on the air for 50 seasons. Times Culture journalists covering the milestone wrote about their own memories of watching the show, late at night and the morning after.`\
+https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
+
+**Where’s Elias Pettersson? Sweden is on the ropes without center’s offense**\
+`Pettersson’s absence of offensive presence is a big reason the Swedes are on the back foot heading into Monday's game against Team USA.`\
+https://nytimes.com/athletic/6140379/2025/02/16/4-nations-face-off-sweden-elias-pettersson/
+
 **Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
 `Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
 https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
