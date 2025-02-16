@@ -1,3 +1,19 @@
+**Gary Neville at 50: Charting his ever-evolving business empire**\
+`The former Manchester United defender made his name as a footballer but even since his playing days he has had an eye for business`\
+https://nytimes.com/athletic/6136289/2025/02/16/gary-neville-business-interests/
+
+**Spurs vs Man Utd: Who is further from a return to the top?**\
+`As they face off in north London on Sunday, it's safe to say this has so far not been a vintage season for either Spurs or United`\
+https://nytimes.com/athletic/6136395/2025/02/16/tottenham-manchester-united-europa-league-premier-league/
+
+**A simple, brutal lesson for Newcastle: Be relentless or get nothing**\
+`Newcastle have lost 16 consecutive Premier League games away to Man City. It was supposed to be different this time, but they were anonymous`\
+https://nytimes.com/athletic/6138625/2025/02/16/newcastle-man-city-analysis-howe/
+
+**Ethan Nwaneri, the Arsenal 17-year-old who makes things happen**\
+`Nwaneri was Arsenal's outstanding player as they beat Leicester and he provided his first Premier League assist to break the deadlock`\
+https://nytimes.com/athletic/6138360/2025/02/16/ethan-nwaneri-arsenal-leicester/
+
 **When Liam Delap dominates, people notice - no wonder big clubs are keeping tabs on him**\
 `One of the breakout stars of the season in the Premier League, the 22-year-old striker looks certain to be hot property next summer`\
 https://nytimes.com/athletic/6138610/2025/02/16/liam-delap-ipswich-manchester-united-chelsea/
