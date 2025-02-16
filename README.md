@@ -1,3 +1,7 @@
+**Makar out for Canada vs. USA, Harley to make 4 Nations debut**\
+`Makar was a late scratch for Canada ahead of its matchup against USA because of an illness and is considered day to day.`\
+https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
+
 **Iron Bowl on the hardwood lives up to the hype as Auburn holds off Alabama in clash of the elite**\
 `Auburn seized control of the SEC race and solidified its already strong resume with a 94-85 win at Alabama. `\
 https://nytimes.com/athletic/6139038/2025/02/15/auburn-holds-off-alabama-in-secs-first-no-1-vs-no-2-showdown/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/15/us/politics/national-park-service-firings.html
 **'Unique': How the Dodgers will have to get 'very creative' with Shohei Ohtani's rehab**\
 `Ohtani threw a bullpen session Saturday and could face live hitters before the Dodgers face the Cubs in Japan in mid-March.`\
 https://nytimes.com/athletic/6139095/2025/02/15/dodgers-shohei-ohtani-pitching-rehab/
-
-**UConn falls to Seton Hall, suffering one of worst losses ever by defending champ**\
-`It is the second worst loss in the KenPom era, which dates back to 1997. The worst also belongs to the Huskies (2015 UConn to Houston).`\
-https://nytimes.com/athletic/6139022/2025/02/15/uconn-seton-hall-mens-basketball-upset-analysis/
 
