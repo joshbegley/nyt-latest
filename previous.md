@@ -1,3 +1,7 @@
+**As he looks forward, Angels' Yoán Moncada reflects on injury-riddled end to White Sox tenure**\
+`Moncada played minimally the last two seasons, and he's looking to prove himself on a one-year contract with the Angels.`\
+https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-tenure/
+
 **First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
 `The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
 https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
 **Braves' Jarred Kelenic went from big story to overshadowed in under 12 months**\
 `Kelenic’s performance hasn’t matched once-soaring expectations for the 2018 first-round draft selection.`\
 https://nytimes.com/athletic/6140368/2025/02/16/braves-jarred-kelenic-went-from-big-story-to-overshadowed-in-under-12-months/
-
-**No. 7 UConn trounces No. 4 South Carolina to snap 71-game home win streak**\
-`After Paige Bueckers and Azzi Fudd came out of the game, they sat on the bench, towels draped around their shoulders, with wide smiles.`\
-https://nytimes.com/athletic/6140436/2025/02/16/uconn-south-carolina-score-takeaways-womens-basketball/
 

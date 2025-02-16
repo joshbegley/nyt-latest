@@ -1,3 +1,7 @@
+**As he looks forward, Angels' Yoán Moncada reflects on injury-riddled end to White Sox tenure**\
+`Moncada played minimally the last two seasons, and he's looking to prove himself on a one-year contract with the Angels.`\
+https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-tenure/
+
 **First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
 `The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
 https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
