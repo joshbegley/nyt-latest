@@ -1,3 +1,31 @@
+**Should three at the back become Nottingham Forest's Plan B again?**\
+`Forest lost to Fulham for the second time this season - are they better playing three at the back only when holding onto a lead?`\
+https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-santo-three-at-the-back/
+
+**The five incidents that led to Jude Bellingham's red card for Real Madrid**\
+`Real Madrid's trip to Osasuna was packed with incidents - the champions returned home with a red card and more anger towards officials`\
+https://nytimes.com/athletic/6138978/2025/02/16/jude-bellingham-red-card-real-madrid/
+
+**Jannik Sinner's case again inflames the resentment at the heart of a two-tiered sport**\
+`Tennis faces a new crisis of perception despite following its own rules on integrity. The two-tiered resentment is not going to fade away.`\
+https://nytimes.com/athletic/6138971/2025/02/16/jannik-sinner-tennis-ban-wada-agreement/
+
+**All the President’s Sock Puppets**\
+`The Justice Department’s loyalty game is new, dangerous and self-defeating.`\
+https://nytimes.com/2025/02/16/opinion/bove-sassoon-trump-adams.html
+
+**The Disrupter in Chief Can’t End a War Like This**\
+`The Trump team’s vacillations may not just cost Ukraine its independence; it could set the stage for a cataclysm.`\
+https://nytimes.com/2025/02/16/opinion/trump-ukraine-nukes.html
+
+**Let Students Finish the Whole Book. It Could Change Their Lives.**\
+`Had they merely read the summary, my students would have seen many of the same words, but they’d have lacked the feeling part.`\
+https://nytimes.com/2025/02/16/opinion/read-books-learning.html
+
+**This Is What the Courts Can Do if Trump Defies Them**\
+`How the escalating measures available to courts would work.`\
+https://nytimes.com/2025/02/16/opinion/what-if-trump-defies-courts.html
+
 **In Latest Advance, Rebels in Congo Say They Have Entered a Key City**\
 `Last month, M23 rebels backed by Rwanda took the city of Goma in a bloody battle. This weekend, the group entered the gold-trading center of Bukavu in eastern Congo after government soldiers fled.`\
 https://nytimes.com/2025/02/16/world/africa/in-latest-advance-rebels-in-congo-say-they-have-entered-a-key-city.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/02/16/world/africa/mali-gold-mine-collapse.html
 **Remembering Dikembe Mutombo: All-Star record setter and 'phenomenal human being'**\
 `"If you were with him, you had nothing to worry about." Jerome Williams, a former Georgetown big said about Mutombo, another Hoyas alum.`\
 https://nytimes.com/athletic/6138672/2025/02/16/nba-dikembe-mutombo-all-star-game/
-
-**In must-win mode at 4 Nations Face-Off, how much can Canada expect out of Sidney Crosby?**\
-`Canada must beat Finland on Monday to set up a rematch with the U.S. in the 4 Nations final. Can Crosby be golden again?`\
-https://nytimes.com/athletic/6139504/2025/02/16/canada-4-nations-face-off-sidney-crosby/
-
-**The best Victor Wembanyama cards to collect**\
-`Our picks for the Victor Wembanyama cards for collectors to target`\
-https://nytimes.com/athletic/6103307/2025/02/16/victor-wembanyama-rookie-cards/
-
-**Ty France heeds college coach Tony Gwynn's advice to simplify his approach**\
-`Plus, notes on how the Twins landed Danny Coulombe, Justin Topa's approach and the addition of a new reliever.`\
-https://nytimes.com/athletic/6138820/2025/02/16/minnesota-twins-ty-france-tony-gwynn-advice/
-
-**Wordle Review No. 1,339**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 17, 2025.`\
-https://nytimes.com/2025/02/16/crosswords/wordle-review-1339.html
-
-**Connections Companion No. 617**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 17, 2025.`\
-https://nytimes.com/2025/02/16/crosswords/connections-companion-617.html
-
-**LeBrun: USA-Canada rivalry leads to ‘mayhem’ and ‘bad blood’ in 4 Nations Face-Off**\
-`A Canada-USA rematch Thursday in Boston? We cannot be deprived of it.`\
-https://nytimes.com/athletic/6139508/2025/02/16/usa-canada-fight-4-nations-face-off/
-
-**Trump’s Ambition to Redraw the World Map Ignores Those Affected Most**\
-`President Trump’s approach to foreign policy deals is reviving a bygone imperial approach that may backfire, experts say.`\
-https://nytimes.com/2025/02/16/world/europe/trump-redraw-world-map.html
 
