@@ -1,3 +1,7 @@
+**Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
+`With the offseason drama over, Arenado remains motivated as ever to return to form.`\
+https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
+
 **Why Andre Agassi and Steffi Graf have brought their 30 Grand Slam singles titles to pickleball**\
 `With 30 Grand Slam singles titles between them, Graf and Agassi illustrate the growth — and limits — of pickleball's popularity.`\
 https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
 **Thompson: Stephen Curry, for one night, returned to old Oracle Arena, where the soul lives on**\
 `The Warriors moved into their glitzy new San Francisco home in 2019. But the franchise's soul stayed behind at what's now Oakland Arena.`\
 https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-arena-all-star-practice/
-
-**USMNT's Sands undergoes surgery on 'complex ankle injury', out indefinitely**\
-`The midfielder, 24, is on loan from New York City FC to Bundesliga side St Pauli.`\
-https://nytimes.com/athletic/6139562/2025/02/16/james-sands-injury-usmnt-st-pauli/
 
