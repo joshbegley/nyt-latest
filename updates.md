@@ -1,3 +1,7 @@
+**NCAA women's hoops top 16 first look: UCLA top seed ahead of South Carolina**\
+`The Bruins are 8-1 in Quad 1 games while South Carolina and Texas are both 10-2.`\
+https://nytimes.com/athletic/6140238/2025/02/16/ncaa-womens-basketball-tournament-top-16-preview/
+
 **The Briefing: Tottenham 1 Man Utd 0 - Maddison wins it, Garnacho's profligacy and Casemiro creaks**\
 `Jack Pitt-Brooke, Carl Anka, Stuart James and Anantaajith Raghuraman break down Spurs' 1-0 win over Manchester United`\
 https://nytimes.com/athletic/6134083/2025/02/16/tottenham-1-man-utd-0-maddison-garnacho-casemiro/
