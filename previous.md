@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Have a question for Richard Deitsch’s next mailbag? Submit it here.`\
+https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
+
+**For the Mets, Juan Soto checks every box**\
+`The novel pressure this season for Soto comes with signing the largest contract in sports history.`\
+https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-training/
+
 **German Election Spotlight Turns to Trump**\
 `The American president’s foreign policy, and a divisive speech by his vice president, drew attention away from an attack by a refugee that some expected would fan political tensions over migration.`\
 https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140379/2025/02/16/4-nations-face-off-sweden-elias-
 **Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
 `Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
 https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
-
-**Maddison revels in match-winning role in response to 'outside noise'**\
-`The Tottenham midfielder scored the game's only goal against Manchester United.`\
-https://nytimes.com/athletic/6140330/2025/02/16/james-maddison-tottenham-manchester-united/
-
-**Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
-`There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
-https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
 

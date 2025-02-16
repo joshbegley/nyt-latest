@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Have a question for Richard Deitsch’s next mailbag? Submit it here.`\
+https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
+
+**For the Mets, Juan Soto checks every box**\
+`The novel pressure this season for Soto comes with signing the largest contract in sports history.`\
+https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-training/
+
 **German Election Spotlight Turns to Trump**\
 `The American president’s foreign policy, and a divisive speech by his vice president, drew attention away from an attack by a refugee that some expected would fan political tensions over migration.`\
 https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
