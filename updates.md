@@ -1,4 +1,8 @@
 **Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
+https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
+
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
 `Have a question for Richard Deitsch’s next mailbag? Submit it here.`\
 https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
 
