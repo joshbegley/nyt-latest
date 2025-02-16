@@ -1,3 +1,7 @@
+**Europe Scrambles as U.S. and Russia Prepare to Meet on Ukraine**\
+`The Trump administration’s push for negotiations without Ukrainian involvement leaves European allies with no clear role.`\
+https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
+
 **Hot Potatoes**\
 `Use my recipe to bake a batch of perfect potatoes, then let your family load them up however they like. Dinner, done.`\
 https://nytimes.com/2025/02/16/dining/baked-potatoes.html
