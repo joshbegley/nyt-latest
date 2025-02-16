@@ -1,3 +1,7 @@
+**Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
+`There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
+https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
+
 **NCAA women's hoops top 16 first look: UCLA top seed ahead of South Carolina**\
 `The Bruins are 8-1 in Quad 1 games while South Carolina and Texas are both 10-2.`\
 https://nytimes.com/athletic/6140238/2025/02/16/ncaa-womens-basketball-tournament-top-16-preview/

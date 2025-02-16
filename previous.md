@@ -1,3 +1,7 @@
+**Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
+`There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
+https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
+
 **NCAA women's hoops top 16 first look: UCLA top seed ahead of South Carolina**\
 `The Bruins are 8-1 in Quad 1 games while South Carolina and Texas are both 10-2.`\
 https://nytimes.com/athletic/6140238/2025/02/16/ncaa-womens-basketball-tournament-top-16-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agas
 **Left Out of Ukraine Talks, Europe Races to Organize a Response**\
 `The Trump administration’s push for direct negotiations with Russia without Ukraine’s involvement leaves the European allies with no clear role.`\
 https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
-
-**Hot Potatoes**\
-`Use my recipe to bake a batch of perfect potatoes, then let your family load them up however they like. Dinner, done.`\
-https://nytimes.com/2025/02/16/dining/baked-potatoes.html
 
