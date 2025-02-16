@@ -1,3 +1,7 @@
+**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
+`Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
+https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
+
 **For the Mets, Juan Soto checks every box**\
 `The novel pressure this season for Soto comes with signing the largest contract in sports history.`\
 https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140379/2025/02/16/4-nations-face-off-sweden-elias-
 **Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
 `Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
 https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
-
-**Maddison revels in match-winning role in response to 'outside noise'**\
-`The Tottenham midfielder scored the game's only goal against Manchester United.`\
-https://nytimes.com/athletic/6140330/2025/02/16/james-maddison-tottenham-manchester-united/
 
