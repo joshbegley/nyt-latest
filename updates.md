@@ -1,3 +1,7 @@
+**USMNT's Sands undergoes surgery on 'complex ankle injury', out indefinitely**\
+`The midfielder, 24, is on loan from New York City FC to Bundesliga side St Pauli.`\
+https://nytimes.com/athletic/6139562/2025/02/16/james-sands-injury-usmnt-st-pauli/
+
 **The 1980s Are Back, and Not in a Good Way**\
 `I worshiped Ronald Reagan and big hair in the 1980s. The MAGA youth of today remind me of myself.`\
 https://nytimes.com/2025/02/16/opinion/maga-party-reagan-revival.html
