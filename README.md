@@ -1,3 +1,11 @@
+**Yankees' Giancarlo Stanton injured, Opening Day status unclear**\
+`The pain in both of Stanton's arms is "probably something that's chronic," according to Yankees manager Aaron Boone.`\
+https://nytimes.com/athletic/6140321/2025/02/16/yankees-giancarlo-stanton-injury-arms/
+
+**Amorim on lack of subs in Spurs loss: 'I didn’t feel the need to change'**\
+`Chido Obi's introduction in the 91st minute in place of Casemiro was the only change United made.`\
+https://nytimes.com/athletic/6140384/2025/02/16/ruben-amorim-manchester-united-subs-spurs/
+
 **Journalists Share Short Sketches of ‘S.N.L.’ Memories**\
 `“Saturday Night Live” has been on the air for 50 seasons. Times Culture journalists covering the milestone wrote about their own memories of watching the show, late at night and the morning after.`\
 https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6134083/2025/02/16/tottenham-1-man-utd-0-maddison-g
 **The Tipping Point**\
 `These Americans are upending preconceptions about who buys a gun and why.`\
 https://nytimes.com/interactive/2025/02/16/us/new-gun-owners.html
-
-**In Moving to Stop Adams Case, Career Lawyer Sought to Stave Off Deeper Crisis**\
-`A high-stakes decision for public corruption prosecutors at the Justice Department revealed a generational difference.`\
-https://nytimes.com/2025/02/16/us/politics/justice-department-trump-eric-adams.html
-
-**Ukraine Won’t Accept a Deal It Didn’t Help Negotiate, Zelensky Says**\
-`Volodymyr Zelensky, the president of Ukraine, told NBC News that he’d warned President Trump that Russia’s president, Vladimir Putin, is a “liar.”`\
-https://nytimes.com/2025/02/16/us/politics/ukraine-zelensky-trump-russia.html
 
