@@ -1,3 +1,7 @@
+**'Girls can have short hair, get over it': How a youth team campaigned against prejudice**\
+`Fed up with ugly accusations from their opponents' parents, an under-12s side in Yorkshire took action`\
+https://nytimes.com/athletic/6136562/2025/02/16/girls-football-short-hair-campaign-prejudice/
+
 **Gary Neville at 50: Charting his ever-evolving business empire**\
 `The former Manchester United defender made his name as a footballer but even since his playing days he has had an eye for business`\
 https://nytimes.com/athletic/6136289/2025/02/16/gary-neville-business-interests/
