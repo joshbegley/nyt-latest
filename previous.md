@@ -1,3 +1,11 @@
+**In another example of SEC’s strength, Texas knocks off No. 15 Kentucky**\
+`The win gives the Longhorns their fourth Quad 1 win of the season and snaps a three-game losing streak`\
+https://nytimes.com/athletic/6139404/2025/02/15/texas-kentucky-mens-basketball-upset-analysis/
+
+**How Team USA beat Canada to clinch berth in 4 Nations Face-Off final: Takeaways**\
+`The Americans claimed a 3-1 win over Canada on Saturday at the Bell Centre, and with 6 points, they've earned a spot in the 4 Nations final.`\
+https://nytimes.com/athletic/6139397/2025/02/15/usa-canada-4-nations-face-off-score/
+
 **One Dead in Kentucky as Rainstorm Pounds the State**\
 `A powerful storm moved through Kentucky and other parts of the South, creating a risk of flash flooding through Sunday morning.`\
 https://nytimes.com/2025/02/15/us/kentucky-flooding-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/world/shark-bite-turks-caicos.html
 **Canada vs. USA 4 Nations game begins with 3 fights in first 9 seconds**\
 `It didn’t take long for the mayhem to start when Canada faced the U.S. in the 4 Nations Face-Off on Saturday night.`\
 https://nytimes.com/athletic/6139289/2025/02/15/canada-usa-4-nations-face-off-fight-tkachuk/
-
-**Utah Bans Collective Bargaining for Public Workers**\
-`Utah joined two other states in prohibiting collective bargaining for teachers, police officers and other public employees in a move that was seen as a possible blow to the country’s labor movement.`\
-https://nytimes.com/2025/02/15/us/utah-public-workers-collective-bargaining.html
-
-**Israel and Hamas Make 6th Exchange, Keeping Cease-Fire Intact for Now**\
-`Days after the fragile truce appeared to be teetering, Hamas freed three Israeli hostages as Israel released 369 Palestinian prisoners. But it is far from clear whether the deal will reach a second phase.`\
-https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.html
 
