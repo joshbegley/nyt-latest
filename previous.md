@@ -1,3 +1,7 @@
+**The Pulse: A new dunk contest GOAT?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the-pulse/
+
 **Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
 `With the offseason drama over, Arenado remains motivated as ever to return to form.`\
 https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moor
 **Kelly ready to 'fight for my shirt' after second Arsenal debut**\
 `The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
 https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
-
-**Thompson: Stephen Curry, for one night, returned to old Oracle Arena, where the soul lives on**\
-`The Warriors moved into their glitzy new San Francisco home in 2019. But the franchise's soul stayed behind at what's now Oakland Arena.`\
-https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-arena-all-star-practice/
 

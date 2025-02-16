@@ -1,3 +1,7 @@
+**The Pulse: A new dunk contest GOAT?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the-pulse/
+
 **Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
 `With the offseason drama over, Arenado remains motivated as ever to return to form.`\
 https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
