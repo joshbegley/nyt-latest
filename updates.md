@@ -1,3 +1,7 @@
+**Emotion, skill and TV ratings: How the 4 Nations Face-Off has smashed expectations**\
+`The tournament has been a spellbinding, spine-tingling display of what hockey can be when given the proper conditions to pop.`\
+https://nytimes.com/athletic/6140554/2025/02/16/4-nations-face-off-nhl-hockey-canada-usa/
+
 **Buckley: With Red Sox, Alex Bregman and Rafael Devers, it's about what isn't being said**\
 `Until we find out who's playing third and what Devers is thinking about it, it’s hard to say what’s going on with Boston's infield.`\
 https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafael-devers/
