@@ -1,3 +1,11 @@
+**Pen Filler**\
+`Kate Hawkins and Erica Hsiung Wojcik make their collaboration debut.`\
+https://nytimes.com/2025/02/16/crosswords/daily-puzzle-2025-02-17.html
+
+**UConn finally jelled to upset South Carolina and put women's college basketball on alert**\
+`Paige Bueckers and Azzi Fudd combined for 40 points and their best game together.`\
+https://nytimes.com/athletic/6140706/2025/02/16/uconn-south-carolina-upset-womens-college-basketball/
+
 **Creighton survives Kalkbrenner injury scare, but falls to No. 9 St. John's**\
 `Red Storm bounces back from loss to Villanova, stands atop Big East standings.`\
 https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbrenner-injury-scare-but-falls-to-no-9-st-johns/
