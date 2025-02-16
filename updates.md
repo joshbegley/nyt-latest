@@ -1,3 +1,7 @@
+**Left Out of Ukraine Talks, Europe Races to Organize a Response**\
+`The Trump administration’s push for direct negotiations with Russia without Ukraine’s involvement leaves the European allies with no clear role.`\
+https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
+
 **In Moving to Stop Adams Case, Career Lawyer Sought to Stave Off Deeper Crisis**\
 `A high-stakes decision for public corruption prosecutors at the Justice Department revealed a generational difference.`\
 https://nytimes.com/2025/02/16/us/politics/justice-department-trump-eric-adams.html
