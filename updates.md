@@ -1,3 +1,7 @@
+**Niko Mikkola has quietly helped Finland survive on defense, but his biggest test awaits**\
+`Mikkola helped the Florida Panthers win a Stanley Cup last year, and now he's hoping to bring similar success to Team Finland.`\
+https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-face-off/
+
 **LeBron James out for Sunday's All-Star tournament to rest nagging injuries**\
 `James' absence marks the end to a league record of 20 consecutive starts in the league’s annual midseason classic.`\
 https://nytimes.com/athletic/6140863/2025/02/16/nba-lebron-james-all-star-tournament/
