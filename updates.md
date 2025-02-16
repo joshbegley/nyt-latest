@@ -1,3 +1,7 @@
+**No. 7 UConn trounces No. 4 South Carolina to snap 71-game home win streak**\
+`After Paige Bueckers and Azzi Fudd came out of the game, they sat on the bench, towels draped around their shoulders, with wide smiles.`\
+https://nytimes.com/athletic/6140436/2025/02/16/uconn-south-carolina-score-takeaways-womens-basketball/
+
 **Yankees' Giancarlo Stanton injured, Opening Day status unclear**\
 `The pain in both of Stanton's arms is "probably something that's chronic," according to Yankees manager Aaron Boone.`\
 https://nytimes.com/athletic/6140321/2025/02/16/yankees-giancarlo-stanton-injury-arms/
