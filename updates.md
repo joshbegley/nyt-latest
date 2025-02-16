@@ -1,3 +1,7 @@
+**Who are the seven Manchester United academy kids that could face Tottenham?**\
+`From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
+https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
+
 **Kelly ready to 'fight for my shirt' after second Arsenal debut**\
 `The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
 https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/

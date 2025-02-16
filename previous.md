@@ -1,3 +1,7 @@
+**Who are the seven Manchester United academy kids that could face Tottenham?**\
+`From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
+https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
+
 **Kelly ready to 'fight for my shirt' after second Arsenal debut**\
 `The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
 https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
 **Should three at the back become Nottingham Forest's Plan B again?**\
 `Forest lost to Fulham for the second time this season - are they better playing three at the back only when holding onto a lead?`\
 https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-santo-three-at-the-back/
-
-**The five incidents that led to Jude Bellingham's red card for Real Madrid**\
-`Real Madrid's trip to Osasuna was packed with incidents - the champions returned home with a red card and more anger towards officials`\
-https://nytimes.com/athletic/6138978/2025/02/16/jude-bellingham-red-card-real-madrid/
 
