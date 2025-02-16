@@ -1,3 +1,11 @@
+**The 1980s Are Back, and Not in a Good Way**\
+`I worshiped Ronald Reagan and big hair in the 1980s. The MAGA youth of today remind me of myself.`\
+https://nytimes.com/2025/02/16/opinion/maga-party-reagan-revival.html
+
+**Sorry, Mr. Kennedy, Most Americans Want to Get Their Shots**\
+`Threatening vaccine access is not only bad science, it’s bad politics.`\
+https://nytimes.com/2025/02/16/opinion/kennedy-vaccines-children-immunization.html
+
 **Flick: Barcelona 'want to show how good they are' with chance to go top**\
 `Both Real Madrid and Atletico Madrid dropped points on Saturday.`\
 https://nytimes.com/athletic/6139780/2025/02/16/barcelona-vallecano-la-liga-top-hansi-flick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/16/opinion/bove-sassoon-trump-adams.html
 **The Disrupter in Chief Can’t End a War Like This**\
 `The Trump team’s vacillations may not just cost Ukraine its independence; it could set the stage for a cataclysm.`\
 https://nytimes.com/2025/02/16/opinion/trump-ukraine-nukes.html
-
-**Let Students Finish the Whole Book. It Could Change Their Lives.**\
-`Had they merely read the summary, my students would have seen many of the same words, but they’d have lacked the feeling part.`\
-https://nytimes.com/2025/02/16/opinion/read-books-learning.html
-
-**This Is What the Courts Can Do if Trump Defies Them**\
-`How the escalating measures available to courts would work.`\
-https://nytimes.com/2025/02/16/opinion/what-if-trump-defies-courts.html
 

@@ -1,3 +1,11 @@
+**The 1980s Are Back, and Not in a Good Way**\
+`I worshiped Ronald Reagan and big hair in the 1980s. The MAGA youth of today remind me of myself.`\
+https://nytimes.com/2025/02/16/opinion/maga-party-reagan-revival.html
+
+**Sorry, Mr. Kennedy, Most Americans Want to Get Their Shots**\
+`Threatening vaccine access is not only bad science, it’s bad politics.`\
+https://nytimes.com/2025/02/16/opinion/kennedy-vaccines-children-immunization.html
+
 **Flick: Barcelona 'want to show how good they are' with chance to go top**\
 `Both Real Madrid and Atletico Madrid dropped points on Saturday.`\
 https://nytimes.com/athletic/6139780/2025/02/16/barcelona-vallecano-la-liga-top-hansi-flick/
