@@ -1,3 +1,11 @@
+**German Election Spotlight Turns to Trump**\
+`The American president’s foreign policy, and a divisive speech by his vice president, drew attention away from an attack by a refugee that some expected would fan political tensions over migration.`\
+https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
+
+**Braves' Jarred Kelenic went from big story to overshadowed in under 12 months**\
+`Kelenic’s performance hasn’t matched once-soaring expectations for the 2018 first-round draft selection.`\
+https://nytimes.com/athletic/6140368/2025/02/16/braves-jarred-kelenic-went-from-big-story-to-overshadowed-in-under-12-months/
+
 **No. 7 UConn trounces No. 4 South Carolina to snap 71-game home win streak**\
 `After Paige Bueckers and Azzi Fudd came out of the game, they sat on the bench, towels draped around their shoulders, with wide smiles.`\
 https://nytimes.com/athletic/6140436/2025/02/16/uconn-south-carolina-score-takeaways-womens-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140330/2025/02/16/james-maddison-tottenham-manches
 **Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
 `There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
 https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
-
-**NCAA women's hoops top 16 first look: UCLA top seed ahead of South Carolina**\
-`The Bruins are 8-1 in Quad 1 games while South Carolina and Texas are both 10-2.`\
-https://nytimes.com/athletic/6140238/2025/02/16/ncaa-womens-basketball-tournament-top-16-preview/
-
-**The Briefing: Tottenham 1 Man Utd 0 - Maddison wins it, Garnacho's profligacy and Casemiro creaks**\
-`Jack Pitt-Brooke, Carl Anka, Stuart James and Anantaajith Raghuraman break down Spurs' 1-0 win over Manchester United`\
-https://nytimes.com/athletic/6134083/2025/02/16/tottenham-1-man-utd-0-maddison-garnacho-casemiro/
 
