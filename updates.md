@@ -1,3 +1,7 @@
+**Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
+`With the offseason drama over, Arenado remains motivated as ever to return to form.`\
+https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
+
 **Why Andre Agassi and Steffi Graf have brought their 30 Grand Slam singles titles to pickleball**\
 `With 30 Grand Slam singles titles between them, Graf and Agassi illustrate the growth — and limits — of pickleball's popularity.`\
 https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
