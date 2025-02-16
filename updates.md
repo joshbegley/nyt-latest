@@ -1,3 +1,11 @@
+**Adam Silver talks NBA trade deadline: 'I'm empathetic' for Mavericks fans**\
+`On Saturday during his annual news conference for All-Star weekend, Silver defended the Mavericks for the trade they made.`\
+https://nytimes.com/athletic/6139127/2025/02/15/adam-silver-nba-all-star-weekend-comments-2025/
+
+**Houston wears down Arizona, giving Kelvin Sampson a win he has lacked his entire career**\
+`Once upon a time, Arizona torched the teams Sampson brought into this building. Saturday painted a different picture.`\
+https://nytimes.com/athletic/6139150/2025/02/15/houston-beats-arizona-basketball-kelvin-sampson/
+
 **Corrections: Feb. 16, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 16, 2025.`\
 https://nytimes.com/2025/02/15/pageoneplus/corrections-feb-16-2025.html

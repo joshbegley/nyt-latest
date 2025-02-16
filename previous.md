@@ -1,3 +1,11 @@
+**Adam Silver talks NBA trade deadline: 'I'm empathetic' for Mavericks fans**\
+`On Saturday during his annual news conference for All-Star weekend, Silver defended the Mavericks for the trade they made.`\
+https://nytimes.com/athletic/6139127/2025/02/15/adam-silver-nba-all-star-weekend-comments-2025/
+
+**Houston wears down Arizona, giving Kelvin Sampson a win he has lacked his entire career**\
+`Once upon a time, Arizona torched the teams Sampson brought into this building. Saturday painted a different picture.`\
+https://nytimes.com/athletic/6139150/2025/02/15/houston-beats-arizona-basketball-kelvin-sampson/
+
 **Corrections: Feb. 16, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 16, 2025.`\
 https://nytimes.com/2025/02/15/pageoneplus/corrections-feb-16-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/15/world/europe/ukraine-minerals-us-deal-rejected.ht
 **Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
 `Makar was a late scratch for Canada before its matchup against the United States because of an illness and is considered day to day.`\
 https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
-
-**Iron Bowl on the hardwood lives up to the hype as Auburn holds off Alabama in clash of the elite**\
-`Auburn seized control of the SEC race and solidified its already strong resume with a 94-85 win at Alabama. `\
-https://nytimes.com/athletic/6139038/2025/02/15/auburn-holds-off-alabama-in-secs-first-no-1-vs-no-2-showdown/
-
-**Lowetide: Has Noah Philp done enough to win NHL job with Oilers?**\
-`The Oilers have a job opportunity at fourth-line centre, and first-year player Philp is trying to fill that role as the season rolls along.`\
-https://nytimes.com/athletic/6138285/2025/02/15/edmonton-oilers-noah-philp-nhl-job/
 
