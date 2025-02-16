@@ -1,3 +1,7 @@
+**Half marathon world record shattered: Kiplimo first to break 57 minutes**\
+`Kiplimo's overall pace Sunday came out to 4 minutes 19.5 seconds per mile.`\
+https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob-kiplimo/
+
 **Who are the seven Manchester United academy kids that could face Tottenham?**\
 `From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
 https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/briefing/saturday-night-live-50-anniversary.html
 **Trump Team Leaves Behind an Alliance in Crisis**\
 `European leaders felt certain about one thing after a whirlwind tour by Trump officials — they were entering a new world where it was harder to depend on the United States.`\
 https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
-
-**Should three at the back become Nottingham Forest's Plan B again?**\
-`Forest lost to Fulham for the second time this season - are they better playing three at the back only when holding onto a lead?`\
-https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-santo-three-at-the-back/
 
