@@ -1,3 +1,7 @@
+**Trump’s Ambition to Redraw the World Map Ignores Those Affected Most**\
+`President Trump’s approach to foreign policy deals is reviving a bygone imperial approach that may backfire, experts say.`\
+https://nytimes.com/2025/02/16/world/europe/trump-redraw-world-map.html
+
 **How to Watch the ‘S.N.L.’ 50th Anniversary Special**\
 `The venerable sketch show is throwing itself a big star-studded party on Sunday night. Here’s everything you need to know about it.`\
 https://nytimes.com/2025/02/16/arts/television/snl-50th-anniversary-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/business/nyc-apartment-dispute-parrots.html
 **A Mandate for Boston’s Suburbs: Make Room for More Apartments**\
 `The state required 177 cities and towns served by public transit to loosen their zoning rules so that more multifamily housing can be built. A number of them resisted.`\
 https://nytimes.com/2025/02/16/us/boston-zoning-housing-apartments.html
-
-**LSU at Texas women's basketball: How to watch, storylines for top-5 SEC matchup**\
-`Flau'jae Johnson and LSU travel to duel with Madison Booker and Texas.`\
-https://nytimes.com/athletic/6137197/2025/02/16/lsu-texas-how-to-watch-womens-basketball/
 
