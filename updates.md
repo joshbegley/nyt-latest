@@ -1,3 +1,7 @@
+**No. 3 Texas defeats No. 5 LSU, pushing winning streak to 10 games**\
+`Texas is now atop the SEC standings at 12-1, half a game ahead of the Gamecocks.`\
+https://nytimes.com/athletic/6140751/2025/02/16/texas-lsu-womens-basketball-analysis/
+
 **Pen Filler**\
 `Kate Hawkins and Erica Hsiung Wojcik make their collaboration debut.`\
 https://nytimes.com/2025/02/16/crosswords/daily-puzzle-2025-02-17.html

@@ -1,3 +1,7 @@
+**No. 3 Texas defeats No. 5 LSU, pushing winning streak to 10 games**\
+`Texas is now atop the SEC standings at 12-1, half a game ahead of the Gamecocks.`\
+https://nytimes.com/athletic/6140751/2025/02/16/texas-lsu-womens-basketball-analysis/
+
 **Pen Filler**\
 `Kate Hawkins and Erica Hsiung Wojcik make their collaboration debut.`\
 https://nytimes.com/2025/02/16/crosswords/daily-puzzle-2025-02-17.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
 **Mets notes: Starling Marte appreciates blunt trade talk, Juan Soto delivers and more**\
 `Manager Carlos Mendoza keeps Marte updated with refreshing transparency: “He wants to be here and we want him here.”`\
 https://nytimes.com/athletic/6140588/2025/02/16/mets-starling-marte-juan-soto/
-
-**Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
-`Plus, searching for ISIS’s forgotten victims.`\
-https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
 
