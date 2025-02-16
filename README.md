@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 2 Wolves 1 - A vital win but why did Slot's team look so nervy?**\
+`The major talking points analysed at Anfield as Liverpool returned to winning ways`\
+https://nytimes.com/athletic/6134081/2025/02/16/liverpool-wolves-premier-league-result-analysis/
+
+**As Trump Targets Research, Scientists Share Grief and Resolve to Fight**\
+`At a conference in Boston, the nation’s scientists commiserated and strategized as funding cuts and federal layoffs throw their world into turmoil.`\
+https://nytimes.com/2025/02/16/climate/trump-science-funding-cuts.html
+
 **Half marathon world record shattered: Kiplimo first to break 57 minutes**\
 `Kiplimo's overall pace Sunday came out to 4 minutes 19.5 seconds per mile.`\
 https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob-kiplimo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/16/opinion/kennedy-vaccines-children-immunization.ht
 **Flick: Barcelona 'want to show how good they are' with chance to go top**\
 `Both Real Madrid and Atletico Madrid dropped points on Saturday.`\
 https://nytimes.com/athletic/6139780/2025/02/16/barcelona-vallecano-la-liga-top-hansi-flick/
-
-**Life, from New York**\
-`Our comedy columnist reflects on 50 years of “Saturday Night Live.”`\
-https://nytimes.com/2025/02/16/briefing/saturday-night-live-50-anniversary.html
-
-**Trump Team Leaves Behind an Alliance in Crisis**\
-`European leaders felt certain about one thing after a whirlwind tour by Trump officials — they were entering a new world where it was harder to depend on the United States.`\
-https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
 
