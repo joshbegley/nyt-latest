@@ -1,3 +1,31 @@
+**Remembering Dikembe Mutombo: All-Star record setter and 'phenomenal human being'**\
+`"If you were with him, you had nothing to worry about." Jerome Williams, a former Georgetown big said about Mutombo, another Hoyas alum.`\
+https://nytimes.com/athletic/6138672/2025/02/16/nba-dikembe-mutombo-all-star-game/
+
+**In must-win mode at 4 Nations Face-Off, how much can Canada expect out of Sidney Crosby?**\
+`Canada must beat Finland on Monday to set up a rematch with the U.S. in the 4 Nations final. Can Crosby be golden again?`\
+https://nytimes.com/athletic/6139504/2025/02/16/canada-4-nations-face-off-sidney-crosby/
+
+**The best Victor Wembanyama cards to collect**\
+`Our picks for the Victor Wembanyama cards for collectors to target`\
+https://nytimes.com/athletic/6103307/2025/02/16/victor-wembanyama-rookie-cards/
+
+**Ty France heeds college coach Tony Gwynn's advice to simplify his approach**\
+`Plus, notes on how the Twins landed Danny Coulombe, Justin Topa's approach and the addition of a new reliever.`\
+https://nytimes.com/athletic/6138820/2025/02/16/minnesota-twins-ty-france-tony-gwynn-advice/
+
+**Wordle Review No. 1,339**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 17, 2025.`\
+https://nytimes.com/2025/02/16/crosswords/wordle-review-1339.html
+
+**Connections Companion No. 617**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 17, 2025.`\
+https://nytimes.com/2025/02/16/crosswords/connections-companion-617.html
+
+**LeBrun: USA-Canada rivalry leads to ‘mayhem’ and ‘bad blood’ in 4 Nations Face-Off**\
+`A Canada-USA rematch Thursday in Boston? We cannot be deprived of it.`\
+https://nytimes.com/athletic/6139508/2025/02/16/usa-canada-fight-4-nations-face-off/
+
 **Trump’s Ambition to Redraw the World Map Ignores Those Affected Most**\
 `President Trump’s approach to foreign policy deals is reviving a bygone imperial approach that may backfire, experts say.`\
 https://nytimes.com/2025/02/16/world/europe/trump-redraw-world-map.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/02/16/arts/television/snl-50th-anniversary-special.html
 **Marvel’s New ‘Captain America’ Is No. 1, Despite Poor Reviews**\
 `“Captain America: Brave New World” was expected to take in $84 million from Thursday through Sunday in North America.`\
 https://nytimes.com/2025/02/16/business/captain-america-marvel-box-office.html
-
-**How Trump’s One-for-One Tariff Plan Threatens the Global Economy**\
-`In starting a process to impose reciprocal tariffs on American trading partners, the White House is sowing uncertainty and risking inflation.`\
-https://nytimes.com/2025/02/16/business/trump-tariffs-global-economy.html
-
-**Venting at Democrats and Fearing Trump, Liberal Donors Pull Back Cash**\
-`Demoralized donors are frustrated with Democrats’ failings and worried about retribution from the president. Their frugality has left liberal groups struggling to fight the new administration.`\
-https://nytimes.com/2025/02/16/us/politics/donors-democrats-trump.html
-
-**Lea Salonga Is Never Getting Tired of Sondheim**\
-`The Tony-winning actress co-stars with Bernadette Peters in “Stephen Sondheim’s Old Friends,” a show that is letting her surprise audiences with her comedy chops.`\
-https://nytimes.com/2025/02/16/theater/lea-salonga-old-friends-broadway-sondheim.html
-
-**How Trump Is Using Leverage to Reshape Policy**\
-`President Trump is all about using whatever leverage he can to try to get the best deal for himself — or, he would argue, for the country. Maggie Haberman, a White House correspondent for The New York Times, explains some of his recent transactions, and how he’s defied norms to get his way.`\
-https://nytimes.com/video/us/politics/100000009986642/trump-using-leverage.html
-
-**An Effective Treatment for Opioid Addiction Exists. Why Isn’t It Used More?**\
-`A drug called buprenorphine may be the best tool doctors have to fight the fentanyl crisis. Why hasn’t it been more widely adopted?`\
-https://nytimes.com/2025/02/16/magazine/buprenorphine-opioid-addiction-treatment.html
-
-**3 Parrots, 1 Shared Wall, 2 Ruptured Lives**\
-`How noise complaints in a Manhattan co-op led to a $750,000 legal settlement and shattered a friendship.`\
-https://nytimes.com/2025/02/16/business/nyc-apartment-dispute-parrots.html
-
-**A Mandate for Boston’s Suburbs: Make Room for More Apartments**\
-`The state required 177 cities and towns served by public transit to loosen their zoning rules so that more multifamily housing can be built. A number of them resisted.`\
-https://nytimes.com/2025/02/16/us/boston-zoning-housing-apartments.html
 
