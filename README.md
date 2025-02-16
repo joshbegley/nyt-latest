@@ -1,3 +1,7 @@
+**No. 17 Kansas stumbles at unranked Utah as Jayhawks pick up tough loss**\
+`The Jayhawks top-16 seeding Saturday in the NCAA selection committee's seed reveal is now bound to change.`\
+https://nytimes.com/athletic/6139474/2025/02/16/utah-kansas-mens-basketball-upset-analysis/
+
 **The Republican Party’s NPC Problem — and Ours**\
 `What happens when ambition no longer checks ambition?`\
 https://nytimes.com/2025/02/16/opinion/ezra-klein-podcast-congress-audio-essay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138625/2025/02/16/newcastle-man-city-analysis-howe
 **Ethan Nwaneri, the Arsenal 17-year-old who makes things happen**\
 `Nwaneri was Arsenal's outstanding player as they beat Leicester and he provided his first Premier League assist to break the deadlock`\
 https://nytimes.com/athletic/6138360/2025/02/16/ethan-nwaneri-arsenal-leicester/
-
-**When Liam Delap dominates, people notice - no wonder big clubs are keeping tabs on him**\
-`One of the breakout stars of the season in the Premier League, the 22-year-old striker looks certain to be hot property next summer`\
-https://nytimes.com/athletic/6138610/2025/02/16/liam-delap-ipswich-manchester-united-chelsea/
 
