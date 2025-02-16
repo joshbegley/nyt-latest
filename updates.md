@@ -1,3 +1,15 @@
+**The Briefing: Liverpool 2 Wolves 1 - A vital win but why did Slot's team look so nervy?**\
+`The major talking points analysed at Anfield as Liverpool returned to winning ways`\
+https://nytimes.com/athletic/6134081/2025/02/16/liverpool-wolves-premier-league-result-analysis/
+
+**As Trump Targets Research, Scientists Share Grief and Resolve to Fight**\
+`At a conference in Boston, the nation’s scientists commiserated and strategized as funding cuts and federal layoffs throw their world into turmoil.`\
+https://nytimes.com/2025/02/16/climate/trump-science-funding-cuts.html
+
+**Half marathon world record shattered: Kiplimo first to break 57 minutes**\
+`Kiplimo's overall pace Sunday came out to 4 minutes 19.5 seconds per mile.`\
+https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob-kiplimo/
+
 **Who are the seven Manchester United academy kids that could face Tottenham?**\
 `From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
 https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
