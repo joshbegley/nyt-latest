@@ -1,3 +1,7 @@
+**Knife Attack in Austria Kills One and Injures Four**\
+`The suspect, a Syrian national, was detained after stabbing several people in the city of Villach.`\
+https://nytimes.com/2025/02/16/world/asia/knife-attack-in-austria-kills-one-and-injures-four.html
+
 **No. 17 Kansas stumbles at unranked Utah as Jayhawks pick up tough loss**\
 `The Jayhawks top-16 seeding Saturday in the NCAA selection committee's seed reveal is now bound to change.`\
 https://nytimes.com/athletic/6139474/2025/02/16/utah-kansas-mens-basketball-upset-analysis/
