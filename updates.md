@@ -1,3 +1,7 @@
+**Flick: Barcelona 'want to show how good they are' with chance to go top**\
+`Both Real Madrid and Atletico Madrid dropped points on Saturday.`\
+https://nytimes.com/athletic/6139780/2025/02/16/barcelona-vallecano-la-liga-top-hansi-flick/
+
 **Life, from New York**\
 `Our comedy columnist reflects on 50 years of “Saturday Night Live.”`\
 https://nytimes.com/2025/02/16/briefing/saturday-night-live-50-anniversary.html

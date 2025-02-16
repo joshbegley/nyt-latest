@@ -1,3 +1,7 @@
+**Flick: Barcelona 'want to show how good they are' with chance to go top**\
+`Both Real Madrid and Atletico Madrid dropped points on Saturday.`\
+https://nytimes.com/athletic/6139780/2025/02/16/barcelona-vallecano-la-liga-top-hansi-flick/
+
 **Life, from New York**\
 `Our comedy columnist reflects on 50 years of “Saturday Night Live.”`\
 https://nytimes.com/2025/02/16/briefing/saturday-night-live-50-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/opinion/read-books-learning.html
 **This Is What the Courts Can Do if Trump Defies Them**\
 `How the escalating measures available to courts would work.`\
 https://nytimes.com/2025/02/16/opinion/what-if-trump-defies-courts.html
-
-**In Latest Advance, Rebels in Congo Say They Have Entered a Key City**\
-`Last month, M23 rebels backed by Rwanda took the city of Goma in a bloody battle. This weekend, the group entered the gold-trading center of Bukavu in eastern Congo after government soldiers fled.`\
-https://nytimes.com/2025/02/16/world/africa/in-latest-advance-rebels-in-congo-say-they-have-entered-a-key-city.html
 
