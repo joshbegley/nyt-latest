@@ -1,4 +1,8 @@
 **Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
+`Makar was a late scratch for Canada before its matchup against the United States because of an illness and is considered day to day.`\
+https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
+
+**Cale Makar out for Canada vs. USA, Thomas Harley to make 4 Nations debut**\
 `Makar was a late scratch for Canada ahead of its matchup against the USA because of an illness and is considered day to day.`\
 https://nytimes.com/athletic/6139217/2025/02/15/canada-usa-cale-makar-4-nations-face-off/
 
