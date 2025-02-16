@@ -1,3 +1,7 @@
+**Trump Team Leaves Behind an Alliance in Crisis**\
+`European leaders felt certain about one thing after a whirlwind tour by Trump officials — they were entering a new world where it was harder to depend on the United States.`\
+https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
+
 **Should three at the back become Nottingham Forest's Plan B again?**\
 `Forest lost to Fulham for the second time this season - are they better playing three at the back only when holding onto a lead?`\
 https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-santo-three-at-the-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/world/africa/in-latest-advance-rebels-in-congo-sa
 **Gold Mine Collapse in Mali Kills at Least 43**\
 `The accident took place in an open-pit area people had gone into in search of gold. Informal mining is a common and dangerous practice in much of West Africa.`\
 https://nytimes.com/2025/02/16/world/africa/mali-gold-mine-collapse.html
-
-**Remembering Dikembe Mutombo: All-Star record setter and 'phenomenal human being'**\
-`"If you were with him, you had nothing to worry about." Jerome Williams, a former Georgetown big said about Mutombo, another Hoyas alum.`\
-https://nytimes.com/athletic/6138672/2025/02/16/nba-dikembe-mutombo-all-star-game/
 

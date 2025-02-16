@@ -1,3 +1,7 @@
+**Trump Team Leaves Behind an Alliance in Crisis**\
+`European leaders felt certain about one thing after a whirlwind tour by Trump officials — they were entering a new world where it was harder to depend on the United States.`\
+https://nytimes.com/2025/02/16/us/politics/trump-europe-alliance-crisis.html
+
 **Should three at the back become Nottingham Forest's Plan B again?**\
 `Forest lost to Fulham for the second time this season - are they better playing three at the back only when holding onto a lead?`\
 https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-santo-three-at-the-back/
