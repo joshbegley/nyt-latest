@@ -1,3 +1,7 @@
+**Canada vs. USA 4 Nations game begins with 3 fights in first 9 seconds**\
+`It didn’t take long for the mayhem to start when Canada faced the U.S. in the 4 Nations Face-Off on Saturday night.`\
+https://nytimes.com/athletic/6139289/2025/02/15/canada-usa-4-nations-face-off-fight-tkachuk/
+
 **Utah Bans Collective Bargaining for Public Workers**\
 `Utah joined two other states in prohibiting collective bargaining for teachers, police officers and other public employees in a move that was seen as a possible blow to the country’s labor movement.`\
 https://nytimes.com/2025/02/15/us/utah-public-workers-collective-bargaining.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/15/us/trump-news-federal/trump-administration-c
 **Meet Antti Pennanen, the under-the-radar coach pulling all the right strings for Finland**\
 `Everything Pennanen touched turned to gold, and now Finland remains alive in the 4 Nations tournament and has a chance to play in the final.`\
 https://nytimes.com/athletic/6139123/2025/02/15/finland-4-nations-face-off-antti-pennanen/
-
-**Argentine Leader Draws Fire After Cratering of Crypto Coin He Promoted**\
-`The move, quickly seized upon by his political rivals, was the latest in a series that Javier Milei has made that seem to mirror President Trump.`\
-https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
 
