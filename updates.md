@@ -1,3 +1,11 @@
+**Yankees' Giancarlo Stanton injured, Opening Day status unclear**\
+`The pain in both of Stanton's arms is "probably something that's chronic," according to Yankees manager Aaron Boone.`\
+https://nytimes.com/athletic/6140321/2025/02/16/yankees-giancarlo-stanton-injury-arms/
+
+**Amorim on lack of subs in Spurs loss: 'I didn’t feel the need to change'**\
+`Chido Obi's introduction in the 91st minute in place of Casemiro was the only change United made.`\
+https://nytimes.com/athletic/6140384/2025/02/16/ruben-amorim-manchester-united-subs-spurs/
+
 **Journalists Share Short Sketches of ‘S.N.L.’ Memories**\
 `“Saturday Night Live” has been on the air for 50 seasons. Times Culture journalists covering the milestone wrote about their own memories of watching the show, late at night and the morning after.`\
 https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
