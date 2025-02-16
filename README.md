@@ -1,3 +1,7 @@
+**Niko Mikkola has quietly helped Finland survive on defense, but his biggest test awaits**\
+`Mikkola helped the Florida Panthers win a Stanley Cup last year, and now he's hoping to bring similar success to Team Finland.`\
+https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-face-off/
+
 **LeBron James out for Sunday's All-Star tournament to rest nagging injuries**\
 `James' absence marks the end to a league record of 20 consecutive starts in the league’s annual midseason classic.`\
 https://nytimes.com/athletic/6140863/2025/02/16/nba-lebron-james-all-star-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafa
 **As he looks forward, Angels' Yoán Moncada reflects on injury-riddled end to White Sox tenure**\
 `Moncada played minimally the last two seasons, and he's looking to prove himself on a one-year contract with the Angels.`\
 https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-tenure/
-
-**First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
-`The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
-https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
 
