@@ -1,3 +1,7 @@
+**Shark Bites Tourist Who Was Trying to Take Photo With It**\
+`The woman was flown off the island to receive medical care, according to the Turks and Caicos government.`\
+https://nytimes.com/2025/02/15/world/shark-bite-turks-caicos.html
+
 **Canada vs. USA 4 Nations game begins with 3 fights in first 9 seconds**\
 `It didn’t take long for the mayhem to start when Canada faced the U.S. in the 4 Nations Face-Off on Saturday night.`\
 https://nytimes.com/athletic/6139289/2025/02/15/canada-usa-4-nations-face-off-fight-tkachuk/
