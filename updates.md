@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Man Utd 0 - Maddison wins it, Garnacho's profligacy and Casemiro creaks**\
+`Jack Pitt-Brooke, Carl Anka, Stuart James and Anantaajith Raghuraman break down Spurs' 1-0 win over Manchester United`\
+https://nytimes.com/athletic/6134083/2025/02/16/tottenham-1-man-utd-0-maddison-garnacho-casemiro/
+
+**The Tipping Point**\
+`These Americans are upending preconceptions about who buys a gun and why.`\
+https://nytimes.com/interactive/2025/02/16/us/new-gun-owners.html
+
 **Left Out of Ukraine Talks, Europe Races to Organize a Response**\
 `The Trump administration’s push for direct negotiations with Russia without Ukraine’s involvement leaves the European allies with no clear role.`\
 https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html

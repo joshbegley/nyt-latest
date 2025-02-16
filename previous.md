@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Man Utd 0 - Maddison wins it, Garnacho's profligacy and Casemiro creaks**\
+`Jack Pitt-Brooke, Carl Anka, Stuart James and Anantaajith Raghuraman break down Spurs' 1-0 win over Manchester United`\
+https://nytimes.com/athletic/6134083/2025/02/16/tottenham-1-man-utd-0-maddison-garnacho-casemiro/
+
+**The Tipping Point**\
+`These Americans are upending preconceptions about who buys a gun and why.`\
+https://nytimes.com/interactive/2025/02/16/us/new-gun-owners.html
+
 **In Moving to Stop Adams Case, Career Lawyer Sought to Stave Off Deeper Crisis**\
 `A high-stakes decision for public corruption prosecutors at the Justice Department revealed a generational difference.`\
 https://nytimes.com/2025/02/16/us/politics/justice-department-trump-eric-adams.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/16/dining/baked-potatoes.html
 **The Briefing: Liverpool 2 Wolves 1 - A vital win but why did Slot's team look so nervy?**\
 `The major talking points analysed at Anfield as Liverpool returned to winning ways`\
 https://nytimes.com/athletic/6134081/2025/02/16/liverpool-wolves-premier-league-result-analysis/
-
-**As Trump Targets Research, Scientists Share Grief and Resolve to Fight**\
-`At a conference in Boston, the nation’s scientists commiserated and strategized as funding cuts and federal layoffs throw their world into turmoil.`\
-https://nytimes.com/2025/02/16/climate/trump-science-funding-cuts.html
-
-**Half marathon world record shattered: Kiplimo first to break 57 minutes**\
-`Kiplimo's overall pace Sunday came out to 4 minutes 19.5 seconds per mile.`\
-https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob-kiplimo/
 
