@@ -1,3 +1,7 @@
+**Buckley: With Red Sox, Alex Bregman and Rafael Devers, it's about what isn't being said**\
+`Until we find out who's playing third and what Devers is thinking about it, it’s hard to say what’s going on with Boston's infield.`\
+https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafael-devers/
+
 **As he looks forward, Angels' Yoán Moncada reflects on injury-riddled end to White Sox tenure**\
 `Moncada played minimally the last two seasons, and he's looking to prove himself on a one-year contract with the Angels.`\
 https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-tenure/

@@ -1,3 +1,7 @@
+**Buckley: With Red Sox, Alex Bregman and Rafael Devers, it's about what isn't being said**\
+`Until we find out who's playing third and what Devers is thinking about it, it’s hard to say what’s going on with Boston's infield.`\
+https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafael-devers/
+
 **As he looks forward, Angels' Yoán Moncada reflects on injury-riddled end to White Sox tenure**\
 `Moncada played minimally the last two seasons, and he's looking to prove himself on a one-year contract with the Angels.`\
 https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-tenure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-tr
 **German Election Spotlight Turns to Trump**\
 `The American president’s foreign policy, and a divisive speech by his vice president, drew attention away from an attack by a refugee that some expected would fan political tensions over migration.`\
 https://nytimes.com/2025/02/16/world/europe/germany-election-trump.html
-
-**Braves' Jarred Kelenic went from big story to overshadowed in under 12 months**\
-`Kelenic’s performance hasn’t matched once-soaring expectations for the 2018 first-round draft selection.`\
-https://nytimes.com/athletic/6140368/2025/02/16/braves-jarred-kelenic-went-from-big-story-to-overshadowed-in-under-12-months/
 
