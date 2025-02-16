@@ -1,3 +1,11 @@
+**Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
+`Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
+https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
+
+**Maddison revels in match-winning role in response to 'outside noise'**\
+`The Tottenham midfielder scored the game's only goal against Manchester United.`\
+https://nytimes.com/athletic/6140330/2025/02/16/james-maddison-tottenham-manchester-united/
+
 **Seven more massage therapists accuse Justin Tucker of inappropriate behavior**\
 `There are now 16 women in total who have come forward across eight spas in the Baltimore area, according to The Baltimore Banner.`\
 https://nytimes.com/athletic/6140120/2025/02/16/justin-tucker-news-accusations-ravens-sexual-misconduct/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the
 **Nolan Arenado arrives at Cardinals camp: 'If I'm here, I'm going to give everything I got'**\
 `With the offseason drama over, Arenado remains motivated as ever to return to form.`\
 https://nytimes.com/athletic/6138594/2025/02/16/cardinals-nolan-arenado-arrives/
-
-**Why Andre Agassi and Steffi Graf have brought their 30 Grand Slam singles titles to pickleball**\
-`With 30 Grand Slam singles titles between them, Graf and Agassi illustrate the growth — and limits — of pickleball's popularity.`\
-https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
-
-**Left Out of Ukraine Talks, Europe Races to Organize a Response**\
-`The Trump administration’s push for direct negotiations with Russia without Ukraine’s involvement leaves the European allies with no clear role.`\
-https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
 
