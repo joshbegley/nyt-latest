@@ -1,3 +1,7 @@
+**BAFTAs: ‘Conclave’ Wins Best Film in the Latest Awards Season Shake-up**\
+`“Anora” and “The Brutalist” also took home major prizes at the British equivalent of the Oscars, tipping the scales again.`\
+https://nytimes.com/2025/02/16/movies/baftas-winners-conclave-brutalist.html
+
 **Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
 `Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
 https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/

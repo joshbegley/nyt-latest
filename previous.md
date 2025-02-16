@@ -1,3 +1,7 @@
+**BAFTAs: ‘Conclave’ Wins Best Film in the Latest Awards Season Shake-up**\
+`“Anora” and “The Brutalist” also took home major prizes at the British equivalent of the Oscars, tipping the scales again.`\
+https://nytimes.com/2025/02/16/movies/baftas-winners-conclave-brutalist.html
+
 **Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
 `Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
 https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
 **Where’s Elias Pettersson? Sweden is on the ropes without center’s offense**\
 `Pettersson’s absence of offensive presence is a big reason the Swedes are on the back foot heading into Monday's game against Team USA.`\
 https://nytimes.com/athletic/6140379/2025/02/16/4-nations-face-off-sweden-elias-pettersson/
-
-**Adams Forcefully Resists Calls to Resign: ‘I Am Going Nowhere’**\
-`Mayor Eric Adams spoke at two Black churches in Queens and pushed back at those who “are dancing on my grave.”`\
-https://nytimes.com/2025/02/16/nyregion/eric-adams-resign.html
 
