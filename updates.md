@@ -1,3 +1,7 @@
+**Vandy's Mikayla Blakes scores 55 points to break SEC, DI freshman records**\
+`Commodores freshman leads OT win over Auburn as she continues one of the best rookie campaigns ever.`\
+https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record-55-points/
+
 **Niko Mikkola has quietly helped Finland survive on defense, but his biggest test awaits**\
 `Mikkola helped the Florida Panthers win a Stanley Cup last year, and now he's hoping to bring similar success to Team Finland.`\
 https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-face-off/
