@@ -1,3 +1,7 @@
+**Kelly ready to 'fight for my shirt' after second Arsenal debut**\
+`The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
+https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
+
 **Thompson: Stephen Curry, for one night, returned to old Oracle Arena, where the soul lives on**\
 `The Warriors moved into their glitzy new San Francisco home in 2019. But the franchise's soul stayed behind at what's now Oakland Arena.`\
 https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-arena-all-star-practice/

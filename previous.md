@@ -1,3 +1,7 @@
+**Kelly ready to 'fight for my shirt' after second Arsenal debut**\
+`The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
+https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
+
 **Thompson: Stephen Curry, for one night, returned to old Oracle Arena, where the soul lives on**\
 `The Warriors moved into their glitzy new San Francisco home in 2019. But the franchise's soul stayed behind at what's now Oakland Arena.`\
 https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-arena-all-star-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139597/2025/02/16/nottingham-forest-nuno-espirito-
 **The five incidents that led to Jude Bellingham's red card for Real Madrid**\
 `Real Madrid's trip to Osasuna was packed with incidents - the champions returned home with a red card and more anger towards officials`\
 https://nytimes.com/athletic/6138978/2025/02/16/jude-bellingham-red-card-real-madrid/
-
-**Jannik Sinner's case again inflames the resentment at the heart of a two-tiered sport**\
-`Tennis faces a new crisis of perception despite following its own rules on integrity. The two-tiered resentment is not going to fade away.`\
-https://nytimes.com/athletic/6138971/2025/02/16/jannik-sinner-tennis-ban-wada-agreement/
 
