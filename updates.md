@@ -1,3 +1,7 @@
+**Hot Potatoes**\
+`Use my recipe to bake a batch of perfect potatoes, then let your family load them up however they like. Dinner, done.`\
+https://nytimes.com/2025/02/16/dining/baked-potatoes.html
+
 **The Briefing: Liverpool 2 Wolves 1 - A vital win but why did Slot's team look so nervy?**\
 `The major talking points analysed at Anfield as Liverpool returned to winning ways`\
 https://nytimes.com/athletic/6134081/2025/02/16/liverpool-wolves-premier-league-result-analysis/
