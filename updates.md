@@ -1,5 +1,9 @@
 **The Republican Party’s NPC Problem — and Ours**\
 `What happens when ambition no longer checks ambition?`\
+https://nytimes.com/video/opinion/100000009992539/the-republican-partys-npc-problem-and-ours.html
+
+**The Republican Party’s NPC Problem — and Ours**\
+`What happens when ambition no longer checks ambition?`\
 https://nytimes.com/2025/02/16/opinion/ezra-klein-podcast-congress-audio-essay.html
 
 **What America Can Gain if Trump Goes to China**\
