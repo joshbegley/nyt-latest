@@ -1,3 +1,7 @@
+**Corrections: Feb. 16, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 16, 2025.`\
+https://nytimes.com/2025/02/15/pageoneplus/corrections-feb-16-2025.html
+
 **Trump Aides to Meet With Russian Officials About Ukraine Next Week**\
 `Talks involving Secretary of State Marco Rubio and two other senior Trump officials would be the first between American and Russian delegations since the start of Russia’s full-scale invasion of Ukraine in February 2022.`\
 https://nytimes.com/2025/02/15/us/politics/trump-russia-ukraine-war-saudi-arabia.html
