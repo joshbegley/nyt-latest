@@ -1,3 +1,7 @@
+**LeBron James out for Sunday's All-Star tournament to rest nagging injuries**\
+`James' absence marks the end to a league record of 20 consecutive starts in the league’s annual midseason classic.`\
+https://nytimes.com/athletic/6140863/2025/02/16/nba-lebron-james-all-star-tournament/
+
 **No. 3 Texas defeats No. 5 LSU, pushing winning streak to 10 games**\
 `Texas is now atop the SEC standings at 12-1, half a game ahead of the Gamecocks.`\
 https://nytimes.com/athletic/6140751/2025/02/16/texas-lsu-womens-basketball-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140629/2025/02/16/yoan-moncada-angels-white-sox-te
 **First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
 `The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
 https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
-
-**Mets notes: Starling Marte appreciates blunt trade talk, Juan Soto delivers and more**\
-`Manager Carlos Mendoza keeps Marte updated with refreshing transparency: “He wants to be here and we want him here.”`\
-https://nytimes.com/athletic/6140588/2025/02/16/mets-starling-marte-juan-soto/
 
