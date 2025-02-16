@@ -1,3 +1,7 @@
+**Utah Bans Collective Bargaining for Public Workers**\
+`Utah joined two other states in prohibiting collective bargaining for teachers, police officers and other public employees in a move that was seen as a possible blow to the country’s labor movement.`\
+https://nytimes.com/2025/02/15/us/utah-public-workers-collective-bargaining.html
+
 **Israel and Hamas Make 6th Exchange, Keeping Cease-Fire Intact for Now**\
 `Days after the fragile truce appeared to be teetering, Hamas freed three Israeli hostages as Israel released 369 Palestinian prisoners. But it is far from clear whether the deal will reach a second phase.`\
 https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139123/2025/02/15/finland-4-nations-face-off-antti
 **Argentine Leader Draws Fire After Cratering of Crypto Coin He Promoted**\
 `The move, quickly seized upon by his political rivals, was the latest in a series that Javier Milei has made that seem to mirror President Trump.`\
 https://nytimes.com/2025/02/15/world/americas/argentina-milei-crypto-trump.html
-
-**Yrjo Kukkapuro, Who Made the Easiest of Easy Chairs, Dies at 91**\
-`A celebrated Finnish modernist, he designed a variety of furnishings but was best known for his seating — which, his company said, “almost every Finn has sat on.”`\
-https://nytimes.com/2025/02/15/arts/design/yrjo-kukkapuro-dead.html
 

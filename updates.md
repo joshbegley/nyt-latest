@@ -1,3 +1,7 @@
+**Utah Bans Collective Bargaining for Public Workers**\
+`Utah joined two other states in prohibiting collective bargaining for teachers, police officers and other public employees in a move that was seen as a possible blow to the country’s labor movement.`\
+https://nytimes.com/2025/02/15/us/utah-public-workers-collective-bargaining.html
+
 **Israel and Hamas Make 6th Exchange, Keeping Cease-Fire Intact for Now**\
 `Days after the fragile truce appeared to be teetering, Hamas freed three Israeli hostages as Israel released 369 Palestinian prisoners. But it is far from clear whether the deal will reach a second phase.`\
 https://nytimes.com/2025/02/15/world/middleeast/israel-hamas-hostage-ceasefire.html
