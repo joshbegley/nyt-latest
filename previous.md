@@ -1,3 +1,11 @@
+**First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
+`The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
+https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
+
+**Mets notes: Starling Marte appreciates blunt trade talk, Juan Soto delivers and more**\
+`Manager Carlos Mendoza keeps Marte updated with refreshing transparency: “He wants to be here and we want him here.”`\
+https://nytimes.com/athletic/6140588/2025/02/16/mets-starling-marte-juan-soto/
+
 **Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
 `Plus, searching for ISIS’s forgotten victims.`\
 https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140368/2025/02/16/braves-jarred-kelenic-went-from-
 **No. 7 UConn trounces No. 4 South Carolina to snap 71-game home win streak**\
 `After Paige Bueckers and Azzi Fudd came out of the game, they sat on the bench, towels draped around their shoulders, with wide smiles.`\
 https://nytimes.com/athletic/6140436/2025/02/16/uconn-south-carolina-score-takeaways-womens-basketball/
-
-**Yankees' Giancarlo Stanton injured, Opening Day status unclear**\
-`The pain in both of Stanton's arms is "probably something that's chronic," according to Yankees manager Aaron Boone.`\
-https://nytimes.com/athletic/6140321/2025/02/16/yankees-giancarlo-stanton-injury-arms/
-
-**Amorim on lack of subs in Spurs loss: 'I didn’t feel the need to change'**\
-`Chido Obi's introduction in the 91st minute in place of Casemiro was the only change United made.`\
-https://nytimes.com/athletic/6140384/2025/02/16/ruben-amorim-manchester-united-subs-spurs/
 

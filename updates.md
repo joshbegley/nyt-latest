@@ -1,3 +1,11 @@
+**First Test of Trump’s Power to Fire Officials Reaches Supreme Court**\
+`The court’s conservative majority may be receptive to the argument that presidents have unlimited power to remove leaders of independent agencies.`\
+https://nytimes.com/2025/02/16/us/trump-supreme-court-special-counsel.html
+
+**Mets notes: Starling Marte appreciates blunt trade talk, Juan Soto delivers and more**\
+`Manager Carlos Mendoza keeps Marte updated with refreshing transparency: “He wants to be here and we want him here.”`\
+https://nytimes.com/athletic/6140588/2025/02/16/mets-starling-marte-juan-soto/
+
 **Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
 `Plus, searching for ISIS’s forgotten victims.`\
 https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
