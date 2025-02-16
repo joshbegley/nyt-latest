@@ -1,3 +1,7 @@
+**In Moving to Stop Adams Case, Career Lawyer Sought to Stave Off Deeper Crisis**\
+`A high-stakes decision for public corruption prosecutors at the Justice Department revealed a generational difference.`\
+https://nytimes.com/2025/02/16/us/politics/justice-department-trump-eric-adams.html
+
 **Ukraine Won’t Accept a Deal It Didn’t Help Negotiate, Zelensky Says**\
 `Volodymyr Zelensky, the president of Ukraine, told NBC News that he’d warned President Trump that Russia’s president, Vladimir Putin, is a “liar.”`\
 https://nytimes.com/2025/02/16/us/politics/ukraine-zelensky-trump-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/climate/trump-science-funding-cuts.html
 **Half marathon world record shattered: Kiplimo first to break 57 minutes**\
 `Kiplimo's overall pace Sunday came out to 4 minutes 19.5 seconds per mile.`\
 https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob-kiplimo/
-
-**Who are the seven Manchester United academy kids that could face Tottenham?**\
-`From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
-https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
 
