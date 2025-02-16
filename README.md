@@ -1,3 +1,7 @@
+**'Girls can have short hair, get over it': How a youth team campaigned against prejudice**\
+`Fed up with ugly accusations from their opponents' parents, an under-12s side in Yorkshire took action`\
+https://nytimes.com/athletic/6136562/2025/02/16/girls-football-short-hair-campaign-prejudice/
+
 **Gary Neville at 50: Charting his ever-evolving business empire**\
 `The former Manchester United defender made his name as a footballer but even since his playing days he has had an eye for business`\
 https://nytimes.com/athletic/6136289/2025/02/16/gary-neville-business-interests/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/world/asia/east-timor-challenges.html
 **Rubio Visits Israel as Trump Pushes Plan to Expel Palestinians From Gaza**\
 `Scholars of international law say President Trump’s proposal for American control of a Gaza without Palestinians would be ethnic cleansing and a war crime.`\
 https://nytimes.com/2025/02/16/us/politics/marco-rubio-israel-gaza.html
-
-**A Grandmother and Activist Faces an Unlikely Accusation: Coup Plotter**\
-`A woman who runs a pro-Ukraine group has been accused by Prime Minister Robert Fico of Slovakia of plotting to topple him as part of his campaign against organizations he says are funded from abroad.`\
-https://nytimes.com/2025/02/16/world/europe/slovakia-activist-fico.html
 
