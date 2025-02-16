@@ -1,3 +1,7 @@
+**Trump’s Ambition to Redraw the World Map Ignores Those Affected Most**\
+`President Trump’s approach to foreign policy deals is reviving a bygone imperial approach that may backfire, experts say.`\
+https://nytimes.com/2025/02/16/world/europe/trump-redraw-world-map.html
+
 **How to Watch the ‘S.N.L.’ 50th Anniversary Special**\
 `The venerable sketch show is throwing itself a big star-studded party on Sunday night. Here’s everything you need to know about it.`\
 https://nytimes.com/2025/02/16/arts/television/snl-50th-anniversary-special.html
