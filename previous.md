@@ -1,3 +1,11 @@
+**Why Canada should make a change in goal for matchup with Finland**\
+`Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
+https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
+
+**UConn finally jelled to upset South Carolina and put women's college basketball on alert**\
+`Paige Buckers and Azzi Fudd combined for 40 points and their best game together.`\
+https://nytimes.com/athletic/6140706/2025/02/16/uconn-south-carolina-upset-womens-college-basketball/
+
 **Emotion, skill and TV ratings: How the 4 Nations Face-Off has smashed expectations**\
 `The tournament has been a spellbinding, spine-tingling display of what hockey can be when given the proper conditions to pop.`\
 https://nytimes.com/athletic/6140554/2025/02/16/4-nations-face-off-nhl-hockey-canada-usa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html
 **BAFTAs: ‘Conclave’ Wins Best Film in the Latest Awards Season Shake-up**\
 `“Anora” and “The Brutalist” also took home major prizes at the British equivalent of the Oscars, tipping the scales again.`\
 https://nytimes.com/2025/02/16/movies/baftas-winners-conclave-brutalist.html
-
-**Submit questions for Richard Deitsch’s next Sports Media Mailbag**\
-`Have questions about anything in sports media? Leave them below and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
-https://nytimes.com/athletic/6140532/2025/02/16/submit-questions-for-richard-deitschs-next-sports-media-mailbag/
-
-**For the Mets, Juan Soto checks every box**\
-`The novel pressure this season for Soto comes with signing the largest contract in sports history.`\
-https://nytimes.com/athletic/6140407/2025/02/16/mets-juan-soto-reports-spring-training/
 

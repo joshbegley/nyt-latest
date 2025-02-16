@@ -1,3 +1,7 @@
+**Creighton survives Kalkbrenner injury scare, but falls to No. 9 St. John's**\
+`Red Storm bounces back from loss to Villanova, stands atop Big East standings.`\
+https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbrenner-injury-scare-but-falls-to-no-9-st-johns/
+
 **Why Canada should make a change in goal for matchup with Finland**\
 `Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
 https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.h
 **Ron Travisano, Adman Behind Singing Cats and Joe Isuzu, Dies at 86**\
 `The art director for Meow Mix and other memorable commercials, he began his career at the dawn of a creative revolution on Madison Avenue.`\
 https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html
-
-**BAFTAs: ‘Conclave’ Wins Best Film in the Latest Awards Season Shake-up**\
-`“Anora” and “The Brutalist” also took home major prizes at the British equivalent of the Oscars, tipping the scales again.`\
-https://nytimes.com/2025/02/16/movies/baftas-winners-conclave-brutalist.html
 
