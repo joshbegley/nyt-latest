@@ -1,3 +1,11 @@
+**Why Andre Agassi and Steffi Graf bring their 30 Grand Slam singles titles to pickleball**\
+`With 30 Grand Slam singles titles between them, Graf and Agassi illustrate the growth — and limits — of pickleball's popularity.`\
+https://nytimes.com/athletic/6134503/2025/02/16/pickleball-slam-3-las-vegas-agassi-graf-tennis/
+
+**Europe Scrambles as U.S. and Russia Prepare to Meet on Ukraine**\
+`The Trump administration’s push for negotiations without Ukrainian involvement leaves European allies with no clear role.`\
+https://nytimes.com/2025/02/16/world/europe/europe-us-russia-ukraine-talks.html
+
 **Hot Potatoes**\
 `Use my recipe to bake a batch of perfect potatoes, then let your family load them up however they like. Dinner, done.`\
 https://nytimes.com/2025/02/16/dining/baked-potatoes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6139700/2025/02/16/stephen-curry-oakland-oracle-are
 **USMNT's Sands undergoes surgery on 'complex ankle injury', out indefinitely**\
 `The midfielder, 24, is on loan from New York City FC to Bundesliga side St Pauli.`\
 https://nytimes.com/athletic/6139562/2025/02/16/james-sands-injury-usmnt-st-pauli/
-
-**The 1980s Are Back, and Not in a Good Way**\
-`I worshiped Ronald Reagan and big hair in the 1980s. The MAGA youth of today remind me of myself.`\
-https://nytimes.com/2025/02/16/opinion/maga-party-reagan-revival.html
-
-**Sorry, Mr. Kennedy, Most Americans Want to Get Their Shots**\
-`Threatening vaccine access is not only bad science, it’s bad politics.`\
-https://nytimes.com/2025/02/16/opinion/kennedy-vaccines-children-immunization.html
 
