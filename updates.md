@@ -1,3 +1,7 @@
+**Canada vs. USA 4 Nations game begins with 3 fights in first 9 seconds**\
+`It didn’t take long for the mayhem to start when Canada faced the U.S. in the 4 Nations Face-Off on Saturday night.`\
+https://nytimes.com/athletic/6139289/2025/02/15/canada-usa-4-nations-face-off-fight-tkachuk/
+
 **Utah Bans Collective Bargaining for Public Workers**\
 `Utah joined two other states in prohibiting collective bargaining for teachers, police officers and other public employees in a move that was seen as a possible blow to the country’s labor movement.`\
 https://nytimes.com/2025/02/15/us/utah-public-workers-collective-bargaining.html
