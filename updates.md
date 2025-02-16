@@ -1,3 +1,7 @@
+**Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
+`Plus, searching for ISIS’s forgotten victims.`\
+https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
+
 **Ron Travisano, Adman Behind Singing Cats and Joe Isuzu, Dies at 86**\
 `The art director for Meow Mix and other memorable commercials, he began his career at the dawn of a creative revolution on Madison Avenue.`\
 https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html

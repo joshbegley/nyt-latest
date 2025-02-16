@@ -1,3 +1,7 @@
+**Monday Briefing: E.U. Leaders Set to Meet on Ukraine**\
+`Plus, searching for ISIS’s forgotten victims.`\
+https://nytimes.com/2025/02/16/briefing/europe-ukraine-israel-hamas-east-timor.html
+
 **Ron Travisano, Adman Behind Singing Cats and Joe Isuzu, Dies at 86**\
 `The art director for Meow Mix and other memorable commercials, he began his career at the dawn of a creative revolution on Madison Avenue.`\
 https://nytimes.com/2025/02/16/obituaries/ron-travisano-adman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140321/2025/02/16/yankees-giancarlo-stanton-injury
 **Amorim on lack of subs in Spurs loss: 'I didn’t feel the need to change'**\
 `Chido Obi's introduction in the 91st minute in place of Casemiro was the only change United made.`\
 https://nytimes.com/athletic/6140384/2025/02/16/ruben-amorim-manchester-united-subs-spurs/
-
-**Journalists Share Short Sketches of ‘S.N.L.’ Memories**\
-`“Saturday Night Live” has been on the air for 50 seasons. Times Culture journalists covering the milestone wrote about their own memories of watching the show, late at night and the morning after.`\
-https://nytimes.com/2025/02/16/pageoneplus/snl-childhood.html
 
