@@ -1,3 +1,7 @@
+**USMNT's Sands undergoes surgery on 'complex ankle injury', out indefinitely**\
+`The midfielder, 24, is on loan from New York City FC to Bundesliga side St Pauli.`\
+https://nytimes.com/athletic/6139562/2025/02/16/james-sands-injury-usmnt-st-pauli/
+
 **The 1980s Are Back, and Not in a Good Way**\
 `I worshiped Ronald Reagan and big hair in the 1980s. The MAGA youth of today remind me of myself.`\
 https://nytimes.com/2025/02/16/opinion/maga-party-reagan-revival.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138971/2025/02/16/jannik-sinner-tennis-ban-wada-ag
 **All the President’s Sock Puppets**\
 `The Justice Department’s loyalty game is new, dangerous and self-defeating.`\
 https://nytimes.com/2025/02/16/opinion/bove-sassoon-trump-adams.html
-
-**The Disrupter in Chief Can’t End a War Like This**\
-`The Trump team’s vacillations may not just cost Ukraine its independence; it could set the stage for a cataclysm.`\
-https://nytimes.com/2025/02/16/opinion/trump-ukraine-nukes.html
 
