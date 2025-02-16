@@ -1,3 +1,7 @@
+**Significant Winter Storm Continues to Sweep the East Coast**\
+`Heavy snow, sleet, freezing rain, and damaging winds of up to 70 miles per hour are all in the mix for Sunday into Monday.`\
+https://nytimes.com/2025/02/16/weather/snow-rain-rain-forecast-northeast.html
+
 **Like Bingo, but With Beef: Why Meat Raffles Are Blowing Up**\
 `Spinning the wheel to raise money for youth sports and, maybe, win a  steak, sausage or bone-in pork butt.`\
 https://nytimes.com/2025/02/16/nyregion/meat-raffles-buffalo.html
