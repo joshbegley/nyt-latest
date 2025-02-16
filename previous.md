@@ -1,3 +1,23 @@
+**Putin Has Long Wanted More Power in Europe. Trump Could Grant It.**\
+`Remarks by Vice President JD Vance and Defense Secretary Pete Hegseth are fueling concerns that the U.S. will move away from Europe and align with Moscow.`\
+https://nytimes.com/2025/02/16/world/europe/vance-europe-putin-russia.html
+
+**Quote of the Day: In His Search for Lost $800 Million, a Desperate Plea to Sell Him a Landfill**\
+`Quotation of the Day for Sunday, February 16, 2025.`\
+https://nytimes.com/2025/02/16/pageoneplus/quote-of-the-day-in-his-search-for-lost-800-million-a-desperate-plea-to-sell-him-a-landfill.html
+
+**The Growing Pains of Asia’s Newest Country**\
+`East Timor has become a stable democracy after securing independence in 2002. But its finances are precarious, and nearly half of its people live in poverty.`\
+https://nytimes.com/2025/02/16/world/asia/east-timor-challenges.html
+
+**Rubio Visits Israel as Trump Pushes Plan to Expel Palestinians From Gaza**\
+`Scholars of international law say President Trump’s proposal for American control of a Gaza without Palestinians would be ethnic cleansing and a war crime.`\
+https://nytimes.com/2025/02/16/us/politics/marco-rubio-israel-gaza.html
+
+**A Grandmother and Activist Faces an Unlikely Accusation: Coup Plotter**\
+`A woman who runs a pro-Ukraine group has been accused by Prime Minister Robert Fico of Slovakia of plotting to topple him as part of his campaign against organizations he says are funded from abroad.`\
+https://nytimes.com/2025/02/16/world/europe/slovakia-activist-fico.html
+
 **Mac McClung flashes perfect score to win third straight NBA dunk contest**\
 `Only Nate Robinson had won three dunk contests before McClung, but Robinson’s wins were not all consecutive.`\
 https://nytimes.com/athletic/6139406/2025/02/15/mac-mcclung-nba-dunk-contest-third-straight-win/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/02/15/us/kentucky-flooding-death.html
 **Tom Izzo breaks Bob Knight's Big Ten wins record with 354th victory**\
 `Izzo now stands alone atop the Big Ten mountaintop.`\
 https://nytimes.com/athletic/6129737/2025/02/15/tom-izzo-big-ten-wins-record-bob-knight/
-
-**Adam Silver talks NBA trade deadline: 'I'm empathetic' for Mavericks fans**\
-`On Saturday during his annual news conference for All-Star weekend, Silver defended the Mavericks for the trade they made.`\
-https://nytimes.com/athletic/6139127/2025/02/15/adam-silver-nba-all-star-weekend-comments-2025/
-
-**Houston wears down Arizona, giving Kelvin Sampson a win he has lacked his entire career**\
-`Once upon a time, Arizona torched the teams Sampson brought into this building. Saturday painted a different picture.`\
-https://nytimes.com/athletic/6139150/2025/02/15/houston-beats-arizona-basketball-kelvin-sampson/
-
-**Corrections: Feb. 16, 2025**\
-`Corrections that appeared in print on Sunday, Feb. 16, 2025.`\
-https://nytimes.com/2025/02/15/pageoneplus/corrections-feb-16-2025.html
-
-**Trump Aides to Meet With Russian Officials About Ukraine Next Week**\
-`Talks involving Secretary of State Marco Rubio and two other senior Trump officials would be the first between American and Russian delegations since the start of Russia’s full-scale invasion of Ukraine in February 2022.`\
-https://nytimes.com/2025/02/15/us/politics/trump-russia-ukraine-war-saudi-arabia.html
-
-**Shark Bites Tourist Who Was Trying to Take Photo With It**\
-`The woman was flown off the island to receive medical care, according to the Turks and Caicos government.`\
-https://nytimes.com/2025/02/15/world/shark-bite-turks-caicos.html
 
