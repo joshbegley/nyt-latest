@@ -1,3 +1,7 @@
+**Ukraine Won’t Accept a Deal It Didn’t Help Negotiate, Zelensky Says**\
+`Volodymyr Zelensky, the president of Ukraine, told NBC News that he’d warned President Trump that Russia’s president, Vladimir Putin, is a “liar.”`\
+https://nytimes.com/2025/02/16/us/politics/ukraine-zelensky-trump-russia.html
+
 **The Pulse: A new dunk contest GOAT?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140018/2025/02/16/half-marathon-world-record-jacob
 **Who are the seven Manchester United academy kids that could face Tottenham?**\
 `From prolific under-18s striker Chido Obi to Darren Fletcher's son, seven academy players are part of Ruben Amorim's squad against Spurs`\
 https://nytimes.com/athletic/6139629/2025/02/16/manchester-united-obi-amass-moorhouse-kone/
-
-**Kelly ready to 'fight for my shirt' after second Arsenal debut**\
-`The 27-year-old winger was introduced as a 61st-minute substitute at the Emirates during Sunday's 5-0 win over Tottenham Hotspur.`\
-https://nytimes.com/athletic/6139936/2025/02/16/chloe-kelly-arsenal-debut/
 

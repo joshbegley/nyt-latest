@@ -1,3 +1,7 @@
+**Ukraine Won’t Accept a Deal It Didn’t Help Negotiate, Zelensky Says**\
+`Volodymyr Zelensky, the president of Ukraine, told NBC News that he’d warned President Trump that Russia’s president, Vladimir Putin, is a “liar.”`\
+https://nytimes.com/2025/02/16/us/politics/ukraine-zelensky-trump-russia.html
+
 **The Pulse: A new dunk contest GOAT?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6140163/2025/02/16/dunk-contest-mac-mcclung-nba-the-pulse/
