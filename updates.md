@@ -1,3 +1,7 @@
+**Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
+`The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
+https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/
+
 **Mandel: Big Ten, SEC leaders set to light college football aflame**\
 `Two ruling parties are controlling college football: the Big Ten and SEC. And they’re about to light the whole thing aflame.`\
 https://nytimes.com/athletic/6142361/2025/02/17/sec-big-ten-meetings-college-football-playoff-future/
