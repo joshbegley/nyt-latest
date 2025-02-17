@@ -1,3 +1,11 @@
+**The Pulse: What the NBA could learn from the NHL**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6141024/2025/02/17/nba-all-star-game-steph-curry-the-pulse/
+
+**South Korea Bans Downloads of DeepSeek, the Chinese A.I. App**\
+`Regulators said they would suspend the app until they could be sure it complied with the country’s data protection laws.`\
+https://nytimes.com/2025/02/17/business/south-korea-deepseek-china-ai.html
+
 **Twins roster projection 2.0: After late moves, where things stand as spring training begins**\
 `After a late flurry of acquisitions, the Twins’ Opening Day roster is starting to round into form. How will it look on March 27?`\
 https://nytimes.com/athletic/6140374/2025/02/17/twins-roster-opening-day-spring-training/
