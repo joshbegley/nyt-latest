@@ -1,3 +1,7 @@
+**‘Here We Go Again’: Kentucky Residents Face More Destruction and Anxiety From Storms**\
+`The flood damage over the weekend was not as catastrophic as some previous climate disasters in the state. But the rains still brought widespread havoc, and painful reminders of trauma.`\
+https://nytimes.com/2025/02/16/us/kentucky-storm-damage.html
+
 **From Japan, a Hard Lesson About a Weak Currency**\
 `Though it recovered in the second half of the year, Japan’s economy barely grew in 2024 as a depreciated yen fueled inflation and strained households.`\
 https://nytimes.com/2025/02/16/business/japan-2024-gdp-yen.html
