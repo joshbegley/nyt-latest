@@ -1,3 +1,7 @@
+**Making an impact: Isaiah Stewart's off-court contributions complement his NBA success**\
+`Stewart is giving back to Rochester, N.Y., because of the help people there gave to him and his family.`\
+https://nytimes.com/athletic/6052862/2025/02/17/isaiah-stewart-contributions-pistons-nba/
+
 **Bentaleb scores four minutes into return from cardiac arrest**\
 `Bentaleb collapsed in June during a game of five-a-side football, according to media reports in France.`\
 https://nytimes.com/athletic/6140771/2025/02/17/nabil-bentaleb-cardiac-arrest-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
 **‘Suits L.A.,’ Plus 7 Things to Watch on TV This Week**\
 `A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
 https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html
-
-**The U.S. Can No Longer Ignore the Threat Arising in Afghanistan**\
-`Engaging directly with the Taliban may be the only way to protect Americans from the jihadist threat that stirs once again in Afghanistan.`\
-https://nytimes.com/2025/02/17/opinion/trump-afghanistan.html
 

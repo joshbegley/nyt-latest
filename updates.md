@@ -1,3 +1,7 @@
+**Making an impact: Isaiah Stewart's off-court contributions complement his NBA success**\
+`Stewart is giving back to Rochester, N.Y., because of the help people there gave to him and his family.`\
+https://nytimes.com/athletic/6052862/2025/02/17/isaiah-stewart-contributions-pistons-nba/
+
 **Bentaleb scores four minutes into return from cardiac arrest**\
 `Bentaleb collapsed in June during a game of five-a-side football, according to media reports in France.`\
 https://nytimes.com/athletic/6140771/2025/02/17/nabil-bentaleb-cardiac-arrest-goal/
