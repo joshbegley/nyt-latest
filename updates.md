@@ -1,3 +1,11 @@
+**Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
+`The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
+https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
+
+**$4,400 Rentals in Los Angeles**\
+`A Craftsman house near Culver City, a 1970s condo in West Hollywood and a 1920s bungalow in Hollywood.`\
+https://nytimes.com/2025/02/17/realestate/4400-dollar-rentals-in-los-angeles.html
+
 **The New York Times Wins 3 Polk Awards**\
 `The Times was honored for an investigation into extremism in Israel, coverage of the civil war in Sudan and a narrative about a Russian soldier who defected from the war in Ukraine.`\
 https://nytimes.com/2025/02/17/business/media/polk-award-winners.html

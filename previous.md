@@ -1,3 +1,11 @@
+**Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
+`The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
+https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
+
+**$4,400 Rentals in Los Angeles**\
+`A Craftsman house near Culver City, a 1970s condo in West Hollywood and a 1920s bungalow in Hollywood.`\
+https://nytimes.com/2025/02/17/realestate/4400-dollar-rentals-in-los-angeles.html
+
 **The New York Times Wins 3 Polk Awards**\
 `The Times was honored for an investigation into extremism in Israel, coverage of the civil war in Sudan and a narrative about a Russian soldier who defected from the war in Ukraine.`\
 https://nytimes.com/2025/02/17/business/media/polk-award-winners.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6141391/2025/02/17/real-madrid-var-meeting/
 **Republicans Want Lower Taxes. The Hard Part Is Choosing What to Cut.**\
 `House Republicans are preparing to adopt a plan that puts a $4.5 trillion limit on the size of the tax cut, but even that will not be enough for some of President Trump’s promises.`\
 https://nytimes.com/2025/02/17/us/politics/republican-tax-cuts-trump.html
-
-**How Juventus' centre-backs changed the game in the second half against Inter**\
-`Federico Gatti and Renato Veiga's dubious first-half positioning initially handed Inter an advantage, but Juventus tweaked things to prevail`\
-https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter/
-
-**Let’s Argue About Our Phones (and Tech in General)**\
-`Phones, smart and dumb, and tech in general. Also: Calling people stupid; Elon Musk and “state capture”; the autocrats’ playbook.`\
-https://nytimes.com/2025/02/17/opinion/phones-tech.html
 
