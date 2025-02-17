@@ -1,3 +1,7 @@
+**Mandel: Big Ten, SEC leaders set to light college football aflame**\
+`Two ruling parties are controlling college football: the Big Ten and SEC. And they’re about to light the whole thing aflame.`\
+https://nytimes.com/athletic/6142361/2025/02/17/sec-big-ten-meetings-college-football-playoff-future/
+
 **Canada as the 51st State? In Electoral Terms, Trump’s Idea Favors Democrats.**\
 `Bringing Canada into the United States, however farcical the prospect may seem, would alter the political map in a way likely to cost Republicans.`\
 https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
