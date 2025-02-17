@@ -1,3 +1,7 @@
+**Real Madrid meet with Spanish refereeing body over VAR audio from Espanyol match**\
+`VAR audio tapes from La Liga matches are available to all participating clubs but this was Madrid's first attendance at such a meeting.`\
+https://nytimes.com/athletic/6141391/2025/02/17/real-madrid-var-meeting/
+
 **Republicans Want Lower Taxes. The Hard Part Is Choosing What to Cut.**\
 `House Republicans are preparing to adopt a plan that puts a $4.5 trillion limit on the size of the tax cut, but even that will not be enough for some of President Trump’s promises.`\
 https://nytimes.com/2025/02/17/us/politics/republican-tax-cuts-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141138/2025/02/17/sf-giants-spring-training-injury
 **Padres 2025 roster projection 1.0: Who makes it to Opening Day?**\
 `Here's who you should expect to see on the active roster when the season starts on March 27.`\
 https://nytimes.com/athletic/6137456/2025/02/17/padres-opening-day-roster-projection-2025/
-
-**Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
-`Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
-https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
 
