@@ -1,3 +1,11 @@
+**‘Suits L.A.,’ Plus 7 Things to Watch on TV This Week**\
+`A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
+https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html
+
+**Some Trumpian Realpolitik Is Needed With Afghanistan**\
+`Engaging directly with the Taliban may be the only way to protect Americans from the jihadist threat that stirs once again in Afghanistan.`\
+https://nytimes.com/2025/02/17/opinion/some-trumpian-realpolitik-is-needed-with-afghanistan.html
+
 **What's happening with Nottingham Forest's stadium redevelopment plans?**\
 `Progress has been slow but is happening — the question now is how ambitious do Forest want to be about their new home?`\
 https://nytimes.com/athletic/6043857/2025/02/17/nottingham-forest-city-ground-redevelopment-latest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6139613/2025/02/17/leicester-reset-supporters-rudki
 **Bayern Munich leave Leverkusen deflated as the Bundesliga title race reverts to type**\
 `A goalless stalemate on Saturday has left Vincent Kompany's side eight points clear of the champions and on course for the meisterschale`\
 https://nytimes.com/athletic/6139687/2025/02/17/bayern-munich-bayer-leverkusen-bundesliga-title/
-
-**Crystal Palace's makeshift midfield has been superb - but Adam Wharton is its leading light**\
-`Will Hughes and Jefferson Lerma have impressed but Wharton's cameo against Everton showed off his undoubted quality`\
-https://nytimes.com/athletic/6131347/2025/02/17/adam-wharton-crystal-palace-midfield/
-
-**Welcome to West Ham - the club the 2024-25 season forgot**\
-`Graham Potter's side are out of the cups, nowhere near the European places, clear of relegation but stuck in the division's no-man's land`\
-https://nytimes.com/athletic/6139552/2025/02/17/welcome-to-west-ham-the-club-the-2024-25-season-forgot/
 
