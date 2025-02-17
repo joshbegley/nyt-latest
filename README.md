@@ -1,3 +1,11 @@
+**From Japan, a Hard Lesson About a Weak Currency**\
+`Though it recovered in the second half of the year, Japan’s economy barely grew in 2024 as a depreciated yen fueled inflation and strained households.`\
+https://nytimes.com/2025/02/16/business/japan-2024-gdp-yen.html
+
+**Talking While Black**\
+`Stories of people who got caught in the backlash to the national movement to eradicate racism.`\
+https://nytimes.com/2025/02/16/podcasts/talking-while-black-this-american-life-nyt-audio.html
+
 **Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
 `Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
 https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140751/2025/02/16/texas-lsu-womens-basketball-anal
 **Pen Filler**\
 `Kate Hawkins and Erica Hsiung Wojcik make their collaboration debut.`\
 https://nytimes.com/2025/02/16/crosswords/daily-puzzle-2025-02-17.html
-
-**Creighton survives Kalkbrenner injury scare, but falls to No. 9 St. John's**\
-`Red Storm bounces back from loss to Villanova, stands atop Big East standings.`\
-https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbrenner-injury-scare-but-falls-to-no-9-st-johns/
-
-**Why Canada should make a change in goal for matchup with Finland**\
-`Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
-https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
 
