@@ -1,3 +1,7 @@
+**Scouting Cam Cannarella and the Shriners College Classic to kick off the 2025 MLB Draft season: Law**\
+`Several potential first-round picks competed in the Shriners College Classic, which served as a kick-off to our 2025 MLB Draft coverage.`\
+https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
+
 **South African Imam and Gay Rights Advocate Is Shot Dead**\
 `Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual identity.`\
 https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
