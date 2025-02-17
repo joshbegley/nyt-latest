@@ -1,5 +1,5 @@
 **Deadly Storm Hits the South With Floods and Heavy Snow**\
-`Floods forced a town to evacuate, heavy snowfall made it hard to drive, strong winds toppled trees and crushed homes, all battering the South, which expects another wave of extreme weather.`\
+`Heavy snowfall made it hard to drive in Kentucky and floods forced a town in Tennessee to evacuate.`\
 https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
 
 **Draymond Green hates the NBA All-Star Game format. What do you think?**\
