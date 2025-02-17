@@ -1,3 +1,11 @@
+**The Pulse: What the NBA could learn from the NHL**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6141024/2025/02/17/nba-all-star-game-steph-curry-the-pulse/
+
+**South Korea Bans Downloads of DeepSeek, the Chinese A.I. App**\
+`Regulators said they would suspend the app until they could be sure it complied with the country’s data protection laws.`\
+https://nytimes.com/2025/02/17/business/south-korea-deepseek-china-ai.html
+
 **Twins roster projection 2.0: After late moves, where things stand as spring training begins**\
 `After a late flurry of acquisitions, the Twins’ Opening Day roster is starting to round into form. How will it look on March 27?`\
 https://nytimes.com/athletic/6140374/2025/02/17/twins-roster-opening-day-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6128705/2025/02/17/arsenal-fans-views-nwaneri-lewis
 **Trump Shocks Europe**\
 `President Trump’s embrace of Russia is a major setback for the relationship between Europe and the U.S.`\
 https://nytimes.com/2025/02/17/podcasts/the-daily/trump-europe-russia-ukraine.html
-
-**Supreme Court Considers Trump’s Power, and Musk’s Team Wants Access to I.R.S. Records**\
-`Plus, how to remember everything.`\
-https://nytimes.com/2025/02/17/podcasts/the-headlines/supreme-court-trump-musk-irs-ukraine.html
-
-**Connections Companion No. 618**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
-https://nytimes.com/2025/02/17/crosswords/connections-companion-618.html
 
