@@ -1,3 +1,7 @@
+**Republicans Want Lower Taxes. The Hard Part Is Choosing What to Cut.**\
+`House Republicans are preparing to adopt a plan that puts a $4.5 trillion limit on the size of the tax cut, but even that will not be enough for some of President Trump’s promises.`\
+https://nytimes.com/2025/02/17/us/politics/republican-tax-cuts-trump.html
+
 **How Juventus' centre-backs changed the game in the second half against Inter**\
 `Federico Gatti and Renato Veiga's dubious first-half positioning initially handed Inter an advantage, but Juventus tweaked things to prevail`\
 https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter/
