@@ -1,3 +1,7 @@
+**The Windup: Ohtani returns to the mound**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6141790/2025/02/17/shohei-ohtani-pitching-the-windup/
+
 **Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
 `The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
 https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/world/asia/trump-usaid-vietnam-agent-orange.html
 **Real Madrid meet with Spanish refereeing body over VAR audio from Espanyol match**\
 `VAR audio tapes from La Liga matches are available to all participating clubs but this was Madrid's first attendance at such a meeting.`\
 https://nytimes.com/athletic/6141391/2025/02/17/real-madrid-var-meeting/
-
-**Republicans Want Lower Taxes. The Hard Part Is Choosing What to Cut.**\
-`House Republicans are preparing to adopt a plan that puts a $4.5 trillion limit on the size of the tax cut, but even that will not be enough for some of President Trump’s promises.`\
-https://nytimes.com/2025/02/17/us/politics/republican-tax-cuts-trump.html
 
