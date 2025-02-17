@@ -1,3 +1,11 @@
+**It’s Now Up to the Judge Whether to Drop Charges in Adams Case**\
+`Judge Dale E. Ho of Federal District Court in Manhattan has yet to respond to the government’s request to dismiss the federal corruption case against Mayor Eric Adams.`\
+https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-eric-adams-case.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/17/crosswords/spelling-bee-forum.html
+
 **‘S.N.L.’ Celebrates 50 Years With Star-Studded Prime-Time Special**\
 `Stage and audience alike at Studio 8H were packed with cast, alumni and other celebrities in a night that was in turns sweet and self-satirizing.`\
 https://nytimes.com/2025/02/17/arts/television/saturday-night-live-50th-anniversary-special.html
