@@ -1,3 +1,15 @@
+**Manchester City hammering Newcastle rebuilt something nostalgic at the Etihad: Hope**\
+`City's 4-0 triumph on Saturday was the perfect tonic ahead of a decisive Champions League game away to Real Madrid`\
+https://nytimes.com/athletic/6138603/2025/02/17/manchester-city-newcastle-champions-league/
+
+**How Newcastle's man-for-man press was undone by bounce passes and long balls**\
+`Eddie Howe bemoaned that his side were 'off on our duels' as they came spectacularly unstuck at Manchester City`\
+https://nytimes.com/athletic/6139149/2025/02/17/manchester-city-newcastle-long-ederson-tactics/
+
+**The Briefing: Should Amorim be doing better, sad Sterling - and why neurotic title races are fun**\
+`Our weekly look at the Premier League weekend action, featuring more Man Utd struggles, a star in decline and jumpy Liverpool`\
+https://nytimes.com/athletic/6140478/2025/02/17/ruben-amorim-manchester-united-results/
+
 **Liverpool need to calm down**\
 `Nerves were everywhere against Wolves at Anfield on Sunday - Arne Slot's side need to chill out and enjoy being title front-runners`\
 https://nytimes.com/athletic/6140166/2025/02/17/liverpool-premier-league-title-calm/
