@@ -1,3 +1,7 @@
+**South African Imam and Gay Rights Advocate Is Shot Dead**\
+`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual orientation.`\
+https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
+
 **Daytona 500 takeaways: Superspeedway woes, NFL encroaches and Pitbull is out**\
 `The state of superspeedway racing was the big topic of the week at Daytona, but there were plenty of other discussions as well.`\
 https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeedway-super-bowl-pitbull/
