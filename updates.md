@@ -1,3 +1,7 @@
+**Palestinian Displacement in the West Bank Is Highest Since 1967, Experts Say**\
+`The Israeli military launched a wide-scale operation last month against militants in several cities in the West Bank. Now, roughly 40,000 Palestinians have fled their homes — the highest since Israel occupied the territory nearly six decades ago, according to researchers.`\
+https://nytimes.com/2025/02/17/world/middleeast/west-bank-palestinian-displacement.html
+
 **Valencia, Villarreal working with authorities after two disabled fans attacked**\
 `The supporters were attacked outside Villarreal’s stadium, the Estadio de la Ceramica, after Saturday's 1-1 draw between the clubs.`\
 https://nytimes.com/athletic/6141355/2025/02/17/villarreal-valencia-fans-attack/
