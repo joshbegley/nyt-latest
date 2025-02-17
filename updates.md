@@ -1,3 +1,11 @@
+**Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
+`Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
+https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6141361/2025/02/17/newcastle-nottingham-forest-nick-pope/
+
 **The WSL’s bottom eight are entertainingly even - but the top four are now in a league of their own**\
 `Fifth-placed Brighton are the ‘best of the rest’ despite no win in six. Is the long-term competitiveness of the WSL in danger?`\
 https://nytimes.com/athletic/6140858/2025/02/17/brighton-womens-super-league-midtable-struggles/

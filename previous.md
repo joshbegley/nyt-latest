@@ -1,3 +1,11 @@
+**Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
+`Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
+https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6141361/2025/02/17/newcastle-nottingham-forest-nick-pope/
+
 **The WSL’s bottom eight are entertainingly even - but the top four are now in a league of their own**\
 `Fifth-placed Brighton are the ‘best of the rest’ despite no win in six. Is the long-term competitiveness of the WSL in danger?`\
 https://nytimes.com/athletic/6140858/2025/02/17/brighton-womens-super-league-midtable-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6132158/2025/02/17/sean-payton-broncos-saints-pipel
 **Oilers player poll: Gym rats, restaurant recommendations, best chirps and more**\
 `You know what the Oilers can do on the ice, but how much do you know about the players away from game action?`\
 https://nytimes.com/athletic/6125592/2025/02/17/edmonton-oilers-player-poll-2025/
-
-**Tottenham look like a team again - now they must sustain it**\
-`Players are returning and a win over Manchester United hinted at better times, but momentum must not be lost now`\
-https://nytimes.com/athletic/6140630/2025/02/17/tottenham-injury-crisis-over/
-
-**Casemiro wants to see out contract at Man United: 'I am happy'**\
-`The 75-time capped Brazil international still has more than a year left on a deal that makes him one of United’s highest earners.`\
-https://nytimes.com/athletic/6141437/2025/02/17/casemiro-manchester-united-contract/
 
