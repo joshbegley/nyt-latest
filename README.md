@@ -1,3 +1,7 @@
+**Rafael Devers has earned right to pout, but it's good business to move him to DH**\
+`Devers replied with a firm "No" when asked if he's willing to give up third base, creating a spring training drama. But it will be resolved.`\
+https://nytimes.com/athletic/6142645/2025/02/17/boston-red-sox-rafael-devers-alex-bregman-2/
+
 **Gavin Lux, now a Cincinnati Red, discusses his Dodgers exit: 'It's a business'**\
 `Lux is eager for a fresh start and has a clear-cut opportunity in front of him at second base.`\
 https://nytimes.com/athletic/6142682/2025/02/17/dodgers-gavin-lux-reds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142431/2025/02/17/detroit-tigers-gleyber-torres-pr
 **Tuesday Briefing: E.U. Discusses Security and Ukraine**\
 `Plus, the jury’s out on meat alternatives.`\
 https://nytimes.com/2025/02/17/briefing/europe-ukraine-us-saudi-gaza-beijing-business.html
-
-**N.Y.C. Council Speaker Calls on Mayor Eric Adams to Resign**\
-`The push by the speaker, Adrienne Adams, a Democrat, signals the mayor’s loss of one of his principal partners in government.`\
-https://nytimes.com/2025/02/17/nyregion/adrienne-adams-mayor-resign.html
 
