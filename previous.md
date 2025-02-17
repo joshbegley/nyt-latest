@@ -1,3 +1,7 @@
+**What Big Ten, SEC leaders will hash out in latest meeting of league leaders**\
+`What league officials discuss and decide at this week’s summit will have a direct bearing on the future of all facets of college sports.`\
+https://nytimes.com/athletic/6141231/2025/02/17/sec-big-ten-meetings-college-football-playoff/
+
 **Making an impact: Isaiah Stewart's off-court contributions complement his NBA success**\
 `Stewart is giving back to Rochester, N.Y., because of the help people there gave to him and his family.`\
 https://nytimes.com/athletic/6052862/2025/02/17/isaiah-stewart-contributions-pistons-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
 **NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
 `Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
 https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
-
-**‘Suits L.A.,’ Plus 7 Things to Watch on TV This Week**\
-`A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
-https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html
 

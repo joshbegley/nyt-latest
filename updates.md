@@ -1,3 +1,7 @@
+**What Big Ten, SEC leaders will hash out in latest meeting of league leaders**\
+`What league officials discuss and decide at this week’s summit will have a direct bearing on the future of all facets of college sports.`\
+https://nytimes.com/athletic/6141231/2025/02/17/sec-big-ten-meetings-college-football-playoff/
+
 **Making an impact: Isaiah Stewart's off-court contributions complement his NBA success**\
 `Stewart is giving back to Rochester, N.Y., because of the help people there gave to him and his family.`\
 https://nytimes.com/athletic/6052862/2025/02/17/isaiah-stewart-contributions-pistons-nba/
