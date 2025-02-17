@@ -1,3 +1,15 @@
+**Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
+`Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
+https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
+
+**Trump Fired, Then Unfired, National Nuclear Security Administration Employees. What Were Their Jobs?**\
+`The administration asked some of the agency’s workers, who were part of last week’s massive layoffs across the federal government, to come back.`\
+https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-administration-employees-firings.html
+
+**U.S.-Canada hockey game draws whopping 4.4 million viewers**\
+`Heated 4 Nations Face-Off contest between rivals drew a hockey audience not seen since Game 7 of the Stanley Cup Final last year.`\
+https://nytimes.com/athletic/6140877/2025/02/16/u-s-canada-hockey-game-draws-huge-audience/
+
 **Vandy's Mikayla Blakes scores 55 points to break SEC, DI freshman records**\
 `Commodores freshman leads OT win over Auburn as she continues one of the best rookie campaigns ever.`\
 https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record-55-points/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbren
 **Why Canada should make a change in goal for matchup with Finland**\
 `Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
 https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
-
-**UConn finally jelled to upset South Carolina and put women's college basketball on alert**\
-`Paige Bueckers and Azzi Fudd combined for 40 points and their best game together.`\
-https://nytimes.com/athletic/6140706/2025/02/16/uconn-south-carolina-upset-womens-college-basketball/
-
-**Emotion, skill and TV ratings: How the 4 Nations Face-Off has smashed expectations**\
-`The tournament has been a spellbinding, spine-tingling display of what hockey can be when given the proper conditions to pop.`\
-https://nytimes.com/athletic/6140554/2025/02/16/4-nations-face-off-nhl-hockey-canada-usa/
-
-**Buckley: With Red Sox, Alex Bregman and Rafael Devers, it's about what isn't being said**\
-`Until we find out who's playing third and what Devers is thinking about it, it’s hard to say what’s going on with Boston's infield.`\
-https://nytimes.com/athletic/6140587/2025/02/16/boston-red-sox-alex-bregman-rafael-devers/
 

@@ -1,3 +1,15 @@
+**Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
+`Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
+https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
+
+**Trump Fired, Then Unfired, National Nuclear Security Administration Employees. What Were Their Jobs?**\
+`The administration asked some of the agency’s workers, who were part of last week’s massive layoffs across the federal government, to come back.`\
+https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-administration-employees-firings.html
+
+**U.S.-Canada hockey game draws whopping 4.4 million viewers**\
+`Heated 4 Nations Face-Off contest between rivals drew a hockey audience not seen since Game 7 of the Stanley Cup Final last year.`\
+https://nytimes.com/athletic/6140877/2025/02/16/u-s-canada-hockey-game-draws-huge-audience/
+
 **Vandy's Mikayla Blakes scores 55 points to break SEC, DI freshman records**\
 `Commodores freshman leads OT win over Auburn as she continues one of the best rookie campaigns ever.`\
 https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record-55-points/
