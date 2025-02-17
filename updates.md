@@ -1,3 +1,11 @@
+**Twins roster projection 2.0: After late moves, where things stand as spring training begins**\
+`After a late flurry of acquisitions, the Twins’ Opening Day roster is starting to round into form. How will it look on March 27?`\
+https://nytimes.com/athletic/6140374/2025/02/17/twins-roster-opening-day-spring-training/
+
+**When will Penguins be contenders again? Buyouts? Mailbag, part 2**\
+`A look at when we can expect the Penguins to be true contenders again, among many other topics such as buyouts, prospects and more.`\
+https://nytimes.com/athletic/6138098/2025/02/17/penguins-nhl-playoff-contenders-buyouts/
+
 **Wordle Review No. 1,340**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
 https://nytimes.com/2025/02/17/crosswords/wordle-review-1340.html

@@ -1,3 +1,7 @@
+**Twins roster projection 2.0: After late moves, where things stand as spring training begins**\
+`After a late flurry of acquisitions, the Twins’ Opening Day roster is starting to round into form. How will it look on March 27?`\
+https://nytimes.com/athletic/6140374/2025/02/17/twins-roster-opening-day-spring-training/
+
 **How the Senators became one of the NHL's best defensive teams**\
 `Ottawa hasn't had a top-10 defence since 2017, the last year it made the playoffs. Diving into the team's defensive improvements.`\
 https://nytimes.com/athletic/6099067/2025/02/17/senators-defence-nhl-sanderson-jensen-tkachuk/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6099067/2025/02/17/senators-defence-nhl-sanderson-j
 **Matt Shaw, a student of the game, knows to listen to Cubs legend Ryne Sandberg**\
 `Shaw may have been born after Sandberg's final game, but he felt comfortable engaging with the Hall of Famer.`\
 https://nytimes.com/athletic/6140809/2025/02/17/cubs-matt-shaw-ryne-sandberg/
+
+**When will Penguins be contenders again? Buyouts? Mailbag, part 2**\
+`A look at when we can expect the Penguins to be true contenders again, among many other topics such as buyouts, prospects and more.`\
+https://nytimes.com/athletic/6138098/2025/02/17/penguins-nhl-playoff-contenders-buyouts/
 
 **Who would trade Luka Dončić?! This guy — and here's why**\
 `The decision to trade Dončić remains viewed as irrational and impulsive. But those who know the Mavs' GM best paint a far different picture.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/podcasts/the-headlines/supreme-court-trump-musk-i
 **Connections Companion No. 618**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
 https://nytimes.com/2025/02/17/crosswords/connections-companion-618.html
-
-**Wordle Review No. 1,340**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
-https://nytimes.com/2025/02/17/crosswords/wordle-review-1340.html
-
-**Liverpool announce price freeze on general admission and season tickets**\
-`The club say the decision follows 'meaningful engagement' with the official supporters' board.`\
-https://nytimes.com/athletic/6141401/2025/02/17/liverpool-ticket-prices-freeze/
 
