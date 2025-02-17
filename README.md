@@ -1,3 +1,7 @@
+**Republicans Want Lower Taxes. The Hard Part Is Choosing What to Cut.**\
+`House Republicans are preparing to adopt a plan that puts a $4.5 trillion limit on the size of the tax cut, but even that will not be enough for some of President Trump’s promises.`\
+https://nytimes.com/2025/02/17/us/politics/republican-tax-cuts-trump.html
+
 **How Juventus' centre-backs changed the game in the second half against Inter**\
 `Federico Gatti and Renato Veiga's dubious first-half positioning initially handed Inter an advantage, but Juventus tweaked things to prevail`\
 https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137456/2025/02/17/padres-opening-day-roster-projec
 **Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
 `Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
 https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6141361/2025/02/17/newcastle-nottingham-forest-nick-pope/
 
