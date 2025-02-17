@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeed
 https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
 
 **South African Imam and Gay Rights Advocate Is Shot Dead**\
-`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual identity.`\
+`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual orientation.`\
 https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
 
 **Canada's Cale Makar returns for must-in 4 Nations Face-Off game vs. Finland**\
