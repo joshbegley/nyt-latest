@@ -1,3 +1,19 @@
+**Giants notes: Tyler Rogers searching for a new catch partner**\
+`Plus: Justin Verlander and Willy Adames are already taking on leadership roles with their new team.`\
+https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-notes/
+
+**Killing of Transgender Man Is Not Ruled a Hate Crime, Investigators Say**\
+`Law enforcement officials in upstate New York say that the torture and killing of Sam Norquist, 24, did not appear to be a hate crime.`\
+https://nytimes.com/2025/02/17/nyregion/sam-norquist-killing-transgender-hate-crime.html
+
+**4 Nations takeaways: How Canada beat Finland to reach the final vs. USA**\
+`Canada took a 4-0 lead, then held on to beat Finland.`\
+https://nytimes.com/athletic/6142415/2025/02/17/4-nations-canada-finland-takeaways/
+
+**Braves top prospect Drake Baldwin seems destined to be a starting catcher soon**\
+`Baldwin was the No. 27 prospect in Keith Law’s Top 100 preseason list and his stock only continues to rise.`\
+https://nytimes.com/athletic/6142413/2025/02/17/braves-drake-baldwin-prospect/
+
 **What We Know About the Storms That Keep Flooding Kentucky**\
 `Storms have overwhelmed the state in recent years. On top of the floods, snow is expected soon.`\
 https://nytimes.com/2025/02/17/us/kentucky-storm-flooding.html

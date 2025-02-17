@@ -1,3 +1,19 @@
+**Giants notes: Tyler Rogers searching for a new catch partner**\
+`Plus: Justin Verlander and Willy Adames are already taking on leadership roles with their new team.`\
+https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-notes/
+
+**Killing of Transgender Man Is Not Ruled a Hate Crime, Investigators Say**\
+`Law enforcement officials in upstate New York say that the torture and killing of Sam Norquist, 24, did not appear to be a hate crime.`\
+https://nytimes.com/2025/02/17/nyregion/sam-norquist-killing-transgender-hate-crime.html
+
+**4 Nations takeaways: How Canada beat Finland to reach the final vs. USA**\
+`Canada took a 4-0 lead, then held on to beat Finland.`\
+https://nytimes.com/athletic/6142415/2025/02/17/4-nations-canada-finland-takeaways/
+
+**Braves top prospect Drake Baldwin seems destined to be a starting catcher soon**\
+`Baldwin was the No. 27 prospect in Keith Law’s Top 100 preseason list and his stock only continues to rise.`\
+https://nytimes.com/athletic/6142413/2025/02/17/braves-drake-baldwin-prospect/
+
 **What We Know About the Storms That Keep Flooding Kentucky**\
 `Storms have overwhelmed the state in recent years. On top of the floods, snow is expected soon.`\
 https://nytimes.com/2025/02/17/us/kentucky-storm-flooding.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
 **Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
 `The newspaper told Common Cause, an advocacy group, that it was pulling its special ad, which would have covered the front and back pages of some Tuesday editions.`\
 https://nytimes.com/2025/02/17/business/washington-post-ad-trump-musk.html
-
-**Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
-`The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
-https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/
-
-**Mandel: Big Ten, SEC leaders set to light college football aflame**\
-`Two ruling parties are controlling college football: the Big Ten and SEC. And they’re about to light the whole thing aflame.`\
-https://nytimes.com/athletic/6142361/2025/02/17/sec-big-ten-meetings-college-football-playoff-future/
-
-**Canada as the 51st State? In Electoral Terms, Trump’s Idea Favors Democrats.**\
-`Bringing Canada into the United States, however farcical the prospect may seem, would alter the political map in a way likely to cost Republicans.`\
-https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
-
-**Read the Letter**\
-`Letter from former prosecutor`\
-https://nytimes.com/interactive/2025/02/17/nyregion/govuscourtsnysd6289161240.html
 
