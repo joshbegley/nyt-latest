@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Captain McKennie, scoring Sargent and Sands misfortune**\
+`Our weekly roundup of the Europe-based U.S. contingent's weekend contributions also includes Daryl Dike's West Bromwich Albion return`\
+https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-sands-tracker/
+
 **Watching ‘Shoah’ in Berlin, 80 Years After Auschwitz**\
 `A commemorative screening of the monumental documentary came as some artists are questioning whether Germany’s Holocaust remembrance culture stifles free speech.`\
 https://nytimes.com/2025/02/17/movies/shoah-berlin-film-festival-claude-lanzmann.html
