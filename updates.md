@@ -1,3 +1,7 @@
+**Deadly Storm Hits the South With Floods and Heavy Snow**\
+`Floods forced a town to evacuate, heavy snowfall made it hard to drive, strong winds toppled trees and crushed homes, all battering the South, which expects another wave of extreme weather.`\
+https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
+
 **Draymond Green hates the NBA All-Star Game format. What do you think?**\
 `The NBA once again attempted to inject life into the All-Star Game with a radical overhaul of its format.`\
 https://nytimes.com/athletic/6141086/2025/02/16/nba-all-star-game-format-draymond-green/

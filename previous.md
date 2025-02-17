@@ -1,3 +1,7 @@
+**Deadly Storm Hits the South With Floods and Heavy Snow**\
+`Floods forced a town to evacuate, heavy snowfall made it hard to drive, strong winds toppled trees and crushed homes, all battering the South, which expects another wave of extreme weather.`\
+https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
+
 **Draymond Green hates the NBA All-Star Game format. What do you think?**\
 `The NBA once again attempted to inject life into the All-Star Game with a radical overhaul of its format.`\
 https://nytimes.com/athletic/6141086/2025/02/16/nba-all-star-game-format-draymond-green/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/podcasts/talking-while-black-this-american-life-n
 **Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
 `Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
 https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
-
-**Trump Fired, Then Unfired, National Nuclear Security Administration Employees. What Were Their Jobs?**\
-`The administration asked some of the agency’s workers, who were part of last week’s massive layoffs across the federal government, to come back.`\
-https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-administration-employees-firings.html
 
