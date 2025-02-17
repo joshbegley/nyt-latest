@@ -1,3 +1,7 @@
+**Mike Trout moving to right field as Angels star looks to preserve health**\
+`Jo Adell and Mickey Moniak are expected to get the majority of reps in center field.`\
+https://nytimes.com/athletic/6141841/2025/02/17/angels-mike-trout-right-field/
+
 **Arsenal fined £65k over players' reaction to Lewis-Skelly red card at Wolves**\
 `The full-back was shown a straight red card for ‘serious foul play’ by referee Michael Oliver in the 43rd minute of the game on January 25.`\
 https://nytimes.com/athletic/6141924/2025/02/17/arsenal-players-referee-wolves-fined/
