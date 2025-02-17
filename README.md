@@ -1,3 +1,15 @@
+**How Juventus' centre-backs changed the game in the second half against Inter**\
+`Federico Gatti and Renato Veiga's dubious first-half positioning initially handed Inter an advantage, but Juventus tweaked things to prevail`\
+https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter/
+
+**Let’s Argue About Our Phones (and Tech in General)**\
+`Phones, smart and dumb, and tech in general. Also: Calling people stupid; Elon Musk and “state capture”; the autocrats’ playbook.`\
+https://nytimes.com/2025/02/17/opinion/phones-tech.html
+
+**Zakia Jafri, Who Sought Justice for Victims of Indian Riots, Dies at 86**\
+`For two decades, she waged a legal battle against government officials in India after her husband was brutally killed in Gujarati in 2002.`\
+https://nytimes.com/2025/02/17/world/asia/zakia-jafri-dead.html
+
 **The Athletic FC: Bellingham's F-bomb lands him in bother and Spurs' Maddison talks his talk**\
 `Today in TAFC: Bellingham's sweary outburst lands him in hot water while James Maddison gets his point across - on the pitch and online`\
 https://nytimes.com/athletic/6141468/2025/02/17/bellingham-maddison-bentaleb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
 https://nytimes.com/athletic/6141361/2025/02/17/newcastle-nottingham-forest-nick-pope/
-
-**The WSL’s bottom eight are entertainingly even - but the top four are now in a league of their own**\
-`Fifth-placed Brighton are the ‘best of the rest’ despite no win in six. Is the long-term competitiveness of the WSL in danger?`\
-https://nytimes.com/athletic/6140858/2025/02/17/brighton-womens-super-league-midtable-struggles/
-
-**Submit your questions for Until Saturday’s podcast mailbag**\
-`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
-https://nytimes.com/athletic/6141464/2025/02/17/college-football-questions-mailbag-until-saturday-51/
-
-**Chloe Kelly added to England squad for Nations League fixtures**\
-`Arsenal's Beth Mead and Lotte Wubben-Moy have withdrawn due to injuries.`\
-https://nytimes.com/athletic/6141458/2025/02/17/chloe-kelly-england-squad/
 
