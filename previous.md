@@ -1,3 +1,7 @@
+**‘S.N.L.’ Celebrates 50 Years With Star-Studded Prime-Time Special**\
+`Stage and audience alike at Studio 8H were packed with cast, alumni and other celebrities in a night that was in turns sweet and self-satirizing.`\
+https://nytimes.com/2025/02/17/arts/television/saturday-night-live-50th-anniversary-special.html
+
 **Manchester United have sunk to a new Premier League low, so at what point does patience snap?**\
 `United are now 15th, have failed to score in 10 of their 25 top-flight games and included eight teenagers on the bench in the loss at Spurs`\
 https://nytimes.com/athletic/6140983/2025/02/17/manchester-united-amorim-ratcliffe-patience/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/business/musk-irs-doge.html
 **Beto: Everton's latest cult hero is channeling his inner LeBron James**\
 `Beto is a striker transformed in recent weeks - and he is loving every second of the Everton adulation coming his way`\
 https://nytimes.com/athletic/6139093/2025/02/17/beto-everton-cult-hero-lebron-james-silencer/
-
-**Aston Villa's need to win. Now**\
-`After the arrivals of Rashford, Asensio and Disasi in January there is pressure on Villa to sustain Emery's progress - and their finances`\
-https://nytimes.com/athletic/6138727/2025/02/17/aston-villas-need-to-win-unai-emery/
 

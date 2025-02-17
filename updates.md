@@ -1,3 +1,7 @@
+**‘S.N.L.’ Celebrates 50 Years With Star-Studded Prime-Time Special**\
+`Stage and audience alike at Studio 8H were packed with cast, alumni and other celebrities in a night that was in turns sweet and self-satirizing.`\
+https://nytimes.com/2025/02/17/arts/television/saturday-night-live-50th-anniversary-special.html
+
 **The U.S. Can No Longer Ignore the Threat Arising in Afghanistan**\
 `Engaging directly with the Taliban may be the only way to protect Americans from the jihadist threat that stirs once again in Afghanistan.`\
 https://nytimes.com/2025/02/17/opinion/trump-afghanistan.html
