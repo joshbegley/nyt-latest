@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6141924/2025/02/17/arsenal-players-referee-wolves-f
 https://nytimes.com/athletic/6141857/2025/02/17/harry-kane-bayern-champions-league/
 
 **Swansea set to sack head coach Williams**\
-`Swansea have lost seven of their last nine Championship games since and dropped to 17th place.`\
+`Swansea have lost seven of their last nine Championship games and dropped to 17th place.`\
 https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
 
 **The Athletic college baseball Top 25: Texas A&M holds top spot after opening weekend**\
