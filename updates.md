@@ -1,3 +1,11 @@
+**European Leaders Meet in Paris as U.S. Pushes Ahead With Ukraine Plan**\
+`The hastily called gathering was part of a flurry of diplomacy expected to center on Ukraine this week as Trump officials prepare to start talks with Russia on their own.`\
+https://nytimes.com/2025/02/17/world/europe/europe-paris-ukraine-talks.html
+
+**Q&A with Phillies hitting coach Kevin Long: 'We need to have better at-bats'**\
+`Long discussed the team's mission to use more of an all-fields approach, his goals for Trea Turner and much more.`\
+https://nytimes.com/athletic/6140269/2025/02/17/phillies-hitting-kevin-long-better-at-bats/
+
 **The Pulse: What the NBA could learn from the NHL**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6141024/2025/02/17/nba-all-star-game-steph-curry-the-pulse/
