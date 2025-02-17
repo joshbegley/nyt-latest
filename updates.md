@@ -1,3 +1,7 @@
+**Scoop City: Early offseason risers and fallers**\
+`Inside: Early 2025 trends, the uncertain future of Matthew Stafford and cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
+https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-2025-scoop-city/
+
 **USMNT Player Tracker: Captain McKennie, scoring Sargent and Sands misfortune**\
 `Our weekly roundup of the Europe-based U.S. contingent's weekend contributions also includes Daryl Dike's West Bromwich Albion return`\
 https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-sands-tracker/
