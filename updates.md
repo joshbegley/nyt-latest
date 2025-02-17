@@ -1,3 +1,15 @@
+**The Briefing: How does Iga Swiatek solve a problem like Jelena Ostapenko?**\
+`Swiatek has an equal-or-better record against every active WTA player... except Ostapenko, who she's never beaten in five attempts.`\
+https://nytimes.com/athletic/6140815/2025/02/17/iga-swiatek-jelena-ostapenko-head-to-head-matchup/
+
+**Giants are starting from an especially healthy place as spring camp fully opens**\
+`The Giants are not planning on slow-playing anyone this spring. They've got good news on Jung Hoo Lee, Jordan Hicks, Kyle Harrison and more.`\
+https://nytimes.com/athletic/6141138/2025/02/17/sf-giants-spring-training-injury-updates/
+
+**Padres 2025 roster projection 1.0: Who makes it to Opening Day?**\
+`Here's who you should expect to see on the active roster when the season starts on March 27.`\
+https://nytimes.com/athletic/6137456/2025/02/17/padres-opening-day-roster-projection-2025/
+
 **Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
 `Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
 https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
