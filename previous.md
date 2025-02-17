@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-mi
 `Norms recognized for decades in Washington by both parties no longer appear to apply to the Trump White House, former prosecutors and ethics lawyers say.`\
 https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams.html
 
-**Extreme conditions loom for Messi and Inter Miami vs. Sporting KC**\
+**Messi 'will play' as Miami prepares for frigid match in K.C.**\
 `Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
 https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
 
