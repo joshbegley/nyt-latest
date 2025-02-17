@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3 Premiere Recap: Thai Up**\
+`The premiere of the new season of the HBO anthology drama, set in Thailand, suggests that Mike White’s formula retains plenty of pop.`\
+https://nytimes.com/2025/02/16/arts/television/the-white-lotus-season-3-premiere-recap.html
+
 **Starmer Offers to Send U.K. Troops to Ukraine as Part of Peace Deal**\
 `Prime Minister Keir Starmer said for the first time on Sunday that he was “ready and willing” to deploy troops to help guarantee Ukraine’s security.`\
 https://nytimes.com/2025/02/16/world/europe/uk-keir-starmer-troops-ukraine.html
