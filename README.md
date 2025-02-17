@@ -1,3 +1,11 @@
+**Reds notes: 'Hope' is that Matt McLain plays one spot — second base**\
+`While McLain won't move much if at all, there's a big group playing at third base this spring, including Gavin Lux.`\
+https://nytimes.com/athletic/6140744/2025/02/17/reds-matt-mclain-second-base/
+
+**Assessing Matthew Stafford's and Cooper Kupp's situations with the Rams**\
+`Will the Rams move forward with Stafford at QB for another season or look for a long-term answer at the position?`\
+https://nytimes.com/athletic/6137806/2025/02/17/rams-matthew-stafford-cooper-kupp-future/
+
 **Don’t Surrender to the Coercion Presidency**\
 `The Trump administration is trying to bake quid pro quo deal making, coercive tactics, loyalty tests and other dishonorable practices into American government.`\
 https://nytimes.com/2025/02/17/opinion/eric-adams-trump-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/opinion/trump-doge-republicans-democrats.html
 **Democrats Fear They Are Missing the Moment to Remake the Party**\
 `As President Trump steamrolls over their priorities, Democrats say they could miss the opportunity to learn lessons from their defeat and undertake needed reform.`\
 https://nytimes.com/2025/02/17/us/politics/democrats-trump-future.html
-
-**Here’s What to See This Spring in New York**\
-`Onstage, Denzel Washington is Othello, and Paul Mescal is Stanley Kowalski as stars illuminate the theater marquees. Plus: FKA twigs takes “Eusexua” on tour. Bang on a Can, Twyla Tharp, and much more.`\
-https://nytimes.com/2025/02/17/theater/live-performances-nyc-spring.html
-
-**Why Is an Entire Age of American Opera Missing at the Met?**\
-`A concert performance of “Vanessa” freshly argued for the vitality of a work that deserves to be staged but languishes with its midcentury peers.`\
-https://nytimes.com/2025/02/17/arts/music/samuel-barber-vanessa-opera.html
 
