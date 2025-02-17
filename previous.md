@@ -2,7 +2,7 @@
 `Today in TAFC: Bellingham's sweary outburst lands him in hot water while James Maddison gets his point across - on the pitch and online`\
 https://nytimes.com/athletic/6141468/2025/02/17/bellingham-maddison-bentaleb/
 
-**What to Know About Buprenorphine**\
+**What to Know About Buprenorphine, a Proven Treatment for Opioid Addiction**\
 `This medicine may be one of the best tools doctors have to fight the fentanyl crisis.`\
 https://nytimes.com/2025/02/17/magazine/buprenorphine-addiction-treatment-takeaways.html
 
