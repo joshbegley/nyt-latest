@@ -1,3 +1,7 @@
+**LeBrun: A Canada-U.S. 4 Nations rematch had to happen — now here's what's at stake**\
+`Dominance for the Americans? Redemption for the Canadians? It's all on the line Thursday in the final.`\
+https://nytimes.com/athletic/6142448/2025/02/17/4-nations-usa-canada-final/
+
 **LeBrun: A Canada-U.S. 4 Nations rematch had to happen — now here's what is at stake**\
 `Dominance for the Americans? Redemption for the Canadians? It's all on the line Thursday in the final.`\
 https://nytimes.com/athletic/6142448/2025/02/17/4-nations-usa-canada-final/
