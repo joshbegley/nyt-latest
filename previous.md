@@ -1,3 +1,7 @@
+**Sheet-Pan Chicken, but Make It Ottolenghi**\
+`Soft potatoes, silky-sweet peppers and good ol’ chickpeas line the pan beneath the chicken, primed to absorb all the fragrant, meaty juices.`\
+https://nytimes.com/2025/02/17/dining/ottolenghi-sheet-pan-chicken-recipe.html
+
 **Ed Martin, Trump Loyalist, Is Nominated as U.S. Attorney in Washington**\
 `The nomination of Mr. Martin, who stood in the crowd outside the Capitol on Jan. 6, is a full reversal for an office that formed the core of one of the Justice Department’s most complex investigations.`\
 https://nytimes.com/2025/02/17/us/politics/ed-martin-us-attorney-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/world/europe/pope-francis-hospital-clinical-issue
 **College baseball week in review: Fast start for Stanford slugger Rintaro Sasaki**\
 `Duke stumbles at home. A big return for Ole Miss' ace. A (rare) fast start for Northwestern. A dominant outing from Jamie Arnold. `\
 https://nytimes.com/athletic/6141037/2025/02/17/college-baseball-week-rintaro-sasaki-texas-am-lsu/
-
-**Agent Orange Twisted Her Limbs. The U.S. Is Abandoning a Vow to Help.**\
-`Fifty years after the Vietnam War ended, President Trump’s gutting of foreign aid has halted American efforts to address a toxic legacy and build a strategic partnership.`\
-https://nytimes.com/2025/02/17/world/asia/trump-usaid-vietnam-agent-orange.html
 

@@ -1,3 +1,7 @@
+**Sheet-Pan Chicken, but Make It Ottolenghi**\
+`Soft potatoes, silky-sweet peppers and good ol’ chickpeas line the pan beneath the chicken, primed to absorb all the fragrant, meaty juices.`\
+https://nytimes.com/2025/02/17/dining/ottolenghi-sheet-pan-chicken-recipe.html
+
 **Ed Martin, Trump Loyalist, Is Nominated as U.S. Attorney in Washington**\
 `The nomination of Mr. Martin, who stood in the crowd outside the Capitol on Jan. 6, is a full reversal for an office that formed the core of one of the Justice Department’s most complex investigations.`\
 https://nytimes.com/2025/02/17/us/politics/ed-martin-us-attorney-washington.html
