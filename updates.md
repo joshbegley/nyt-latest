@@ -1,3 +1,15 @@
+**Valencia, Villarreal working with authorities after two disabled fans attacked**\
+`The supporters were attacked outside Villarreal’s stadium, the Estadio de la Ceramica, after Saturday's 1-1 draw between the clubs.`\
+https://nytimes.com/athletic/6141355/2025/02/17/villarreal-valencia-fans-attack/
+
+**Rubio Lands in Saudi Arabia for Talks on Gaza and Ukraine**\
+`Marco Rubio’s visit to Riyadh, his first as secretary of state, came amid uncertainty about the future of Gaza and Ukraine and criticism of unilateral U.S. moves over the wars in both places.`\
+https://nytimes.com/2025/02/17/world/middleeast/rubio-saudi-arabia-gaza-ukraine.html
+
+**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal.**\
+`Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
+https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
+
 **How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal**\
 `Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
 https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
