@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6142412/2025/02/17/houston-astros-jose-altuve-posit
 `Read the email that Maria Torres-Springer, the first deputy mayor of New York City, sent to her staff to tell them she was resigning from the Eric Adams administration, along with deputy mayors Meera Joshi and Anne Williams-Isom.`\
 https://nytimes.com/interactive/2025/02/17/nyregion/maria-torres-springer-resignation.html
 
-**Delta Plane Overturns on Landing at Toronto Airport**\
-`The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for. There was no immediate word on injuries.`\
+**Delta Plane Overturns at Toronto Airport While Landing**\
+`The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for.`\
 https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
 
 **Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
