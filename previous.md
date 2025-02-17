@@ -1,5 +1,5 @@
 **Scoop City: Early offseason risers and fallers**\
-`Inside: Early 2025 trends, the uncertain future of Matthew Stafford and cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
+`Inside: Early 2025 trends, the uncertain future of Matthew Stafford, Derek Carr and other cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
 https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-2025-scoop-city/
 
 **Watching ‘Shoah’ in Berlin, 80 Years After Auschwitz**\
