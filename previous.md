@@ -1,3 +1,7 @@
+**Daytona 500 takeaways: Superspeedway woes, NFL encroaches and Pitbull is out**\
+`The state of superspeedway racing was the big topic of the week at Daytona, but there were plenty of other discussions as well.`\
+https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeedway-super-bowl-pitbull/
+
 **Scouting Cam Cannarella and the Shriners College Classic to kick off the 2025 MLB Draft season: Law**\
 `Several potential first-round picks competed in the Shriners College Classic, which served as a kick-off to our 2025 MLB Draft coverage.`\
 https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams
 **USMNT Player Tracker: Captain McKennie, scoring Sargent and Sands misfortune**\
 `Our weekly roundup of the Europe-based U.S. contingent's weekend contributions also includes Daryl Dike's West Bromwich Albion return`\
 https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-sands-tracker/
-
-**Messi 'will play' as Miami prepares for sub-zero match in K.C.**\
-`Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
-https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
 
