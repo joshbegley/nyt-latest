@@ -1,3 +1,7 @@
+**What We Know About the Storms That Keep Flooding Kentucky**\
+`Storms have overwhelmed the state in recent years. On top of the floods, snow is expected soon.`\
+https://nytimes.com/2025/02/17/us/kentucky-storm-flooding.html
+
 **Jaguars QB Trevor Lawrence shoots down Steelers trade rumor**\
 `The Jacksonville quarterback is excited about what first-year head coach Liam Coen brings to the team. `\
 https://nytimes.com/athletic/6142340/2025/02/17/jaguars-trevor-lawrence-steelers-trade-rumor/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
 **Read the Letter**\
 `Letter from former prosecutor`\
 https://nytimes.com/interactive/2025/02/17/nyregion/govuscourtsnysd6289161240.html
-
-**Pete Alonso on reunion with Mets: ‘For me, this was it’**\
-`Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
-https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
 

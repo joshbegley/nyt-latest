@@ -1,3 +1,7 @@
+**What We Know About the Storms That Keep Flooding Kentucky**\
+`Storms have overwhelmed the state in recent years. On top of the floods, snow is expected soon.`\
+https://nytimes.com/2025/02/17/us/kentucky-storm-flooding.html
+
 **Jaguars QB Trevor Lawrence shoots down Steelers trade rumor**\
 `The Jacksonville quarterback is excited about what first-year head coach Liam Coen brings to the team. `\
 https://nytimes.com/athletic/6142340/2025/02/17/jaguars-trevor-lawrence-steelers-trade-rumor/
