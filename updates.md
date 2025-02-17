@@ -1,3 +1,7 @@
+**The Windup: Ohtani returns to the mound**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6141790/2025/02/17/shohei-ohtani-pitching-the-windup/
+
 **Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
 `The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
 https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
