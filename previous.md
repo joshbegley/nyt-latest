@@ -1,3 +1,7 @@
+**William Byron avoids final-lap crash to take Daytona 500**\
+`The Hendrick Motorsports driver became the first to win consecutive 500s since Denny Hamlin did it in 2019-20`\
+https://nytimes.com/athletic/6140825/2025/02/16/william-byron-daytona-500-crashes/
+
 **‘The White Lotus’ Season 3 Premiere Recap: Thai Up**\
 `The premiere of the new season of the HBO anthology drama, set in Thailand, suggests that Mike White’s formula retains plenty of pop.`\
 https://nytimes.com/2025/02/16/arts/television/the-white-lotus-season-3-premiere-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-admin
 **U.S.-Canada hockey game draws whopping 4.4 million viewers**\
 `Heated 4 Nations Face-Off contest between rivals drew a hockey audience not seen since Game 7 of the Stanley Cup Final last year.`\
 https://nytimes.com/athletic/6140877/2025/02/16/u-s-canada-hockey-game-draws-huge-audience/
-
-**Vandy's Mikayla Blakes scores 55 points to break SEC, DI freshman records**\
-`Commodores freshman leads OT win over Auburn as she continues one of the best rookie campaigns ever.`\
-https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record-55-points/
 
