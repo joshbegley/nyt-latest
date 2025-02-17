@@ -1,3 +1,7 @@
+**Astros notes: The future at second base, Forrest Whitley's role and more**\
+`The Astros hope Brice Matthews can become an option at second base, and Lance McCullers Jr. gave his thoughts on a salary cap.`\
+https://nytimes.com/athletic/6140369/2025/02/17/astros-second-base-forrest-whitley/
+
 **European Leaders Meet in Paris as U.S. Pushes Ahead With Ukraine Plan**\
 `The hastily called gathering was part of a flurry of diplomacy expected to center on Ukraine this week as Trump officials prepare to start talks with Russia on their own.`\
 https://nytimes.com/2025/02/17/world/europe/europe-paris-ukraine-talks.html
