@@ -1,3 +1,15 @@
+**Canada as the 51st State? In Electoral Terms, Trump’s Idea Favors Democrats.**\
+`Bringing Canada into the United States, however farcical the prospect may seem, would alter the political map in a way likely to cost Republicans.`\
+https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
+
+**Read the Letter**\
+`Letter from former prosecutor`\
+https://nytimes.com/interactive/2025/02/17/nyregion/govuscourtsnysd6289161240.html
+
+**Pete Alonso on reunion with Mets: ‘For me, this was it’**\
+`Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
+https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
+
 **AP men’s basketball Top 25: Auburn's win over Alabama keeps Tigers on top**\
 `Auburn is still No. 1 after beating rival Alabama, receiving 59 of 60 first-place votes this week.`\
 https://nytimes.com/athletic/6142358/2025/02/17/ap-mens-basketball-top-25-auburn-wisconsin-michigan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeed
 **Scouting Cam Cannarella and the Shriners College Classic to kick off the 2025 MLB Draft season: Law**\
 `Several potential first-round picks competed in the Shriners College Classic, which served as a kick-off to our 2025 MLB Draft coverage.`\
 https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
-
-**South African Imam and Gay Rights Advocate Is Shot Dead**\
-`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual orientation.`\
-https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
-
-**Canada's Cale Makar returns for must-in 4 Nations Face-Off game vs. Finland**\
-`Makar missed the second game of the tournament because of what the team called an illness.`\
-https://nytimes.com/athletic/6142205/2025/02/17/cale-makar-canada-finland/
-
-**Scoop City: Early offseason risers and fallers**\
-`Inside: Early 2025 trends, the uncertain future of Matthew Stafford, Derek Carr and other cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
-https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-2025-scoop-city/
 

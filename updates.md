@@ -1,3 +1,15 @@
+**Canada as the 51st State? In Electoral Terms, Trump’s Idea Favors Democrats.**\
+`Bringing Canada into the United States, however farcical the prospect may seem, would alter the political map in a way likely to cost Republicans.`\
+https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
+
+**Read the Letter**\
+`Letter from former prosecutor`\
+https://nytimes.com/interactive/2025/02/17/nyregion/govuscourtsnysd6289161240.html
+
+**Pete Alonso on reunion with Mets: ‘For me, this was it’**\
+`Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
+https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
+
 **AP men’s basketball Top 25: Auburn's win over Alabama keeps Tigers on top**\
 `Auburn is still No. 1 after beating rival Alabama, receiving 59 of 60 first-place votes this week.`\
 https://nytimes.com/athletic/6142358/2025/02/17/ap-mens-basketball-top-25-auburn-wisconsin-michigan/
