@@ -1,3 +1,7 @@
+**Canada's Cale Makar returns for must-in 4 Nations Face-Off game vs. Finland**\
+`Makar missed the second game of the tournament because of what the team called an illness.`\
+https://nytimes.com/athletic/6142205/2025/02/17/cale-makar-canada-finland/
+
 **Scoop City: Early offseason risers and fallers**\
 `Inside: Early 2025 trends, the uncertain future of Matthew Stafford, Derek Carr and other cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
 https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-2025-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-po
 **Jimmy Butler's fantasy basketball impact, Donovan Clingan, and Dallas' downfall**\
 `Stan Son gives fantasy basketball advice for the stretch run, including his thoughts on Jimmy Butler's fit with the Warriors.`\
 https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-butler-donovan-clingan/
-
-**'F*** off', 'f*** you' and TV language lessons: How the Bellingham red-card debate took over Spain**\
-`The controversy over Bellingham's F-bomb in Madrid's game against Osasuna shows no signs of dying down`\
-https://nytimes.com/athletic/6141540/2025/02/17/jude-bellingham-red-card-swearing/
 
