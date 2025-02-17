@@ -1,3 +1,7 @@
+**Singapore Opposition Leader Gets Guilty Verdict but Can Run in Election**\
+`In a blow to the Workers’ Party, its leader, Pritam Singh, was fined for lying under oath to Parliament.`\
+https://nytimes.com/2025/02/17/world/asia/singapore-opposition-pritam-singh.html
+
 **Palestinian Displacement in the West Bank Is Highest Since 1967, Experts Say**\
 `The Israeli military launched a wide-scale operation last month against militants in several cities in the West Bank. Now, roughly 40,000 Palestinians have fled their homes — the highest since Israel occupied the territory nearly six decades ago, according to researchers.`\
 https://nytimes.com/2025/02/17/world/middleeast/west-bank-palestinian-displacement.html

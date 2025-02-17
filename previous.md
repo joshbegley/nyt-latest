@@ -1,3 +1,7 @@
+**Singapore Opposition Leader Gets Guilty Verdict but Can Run in Election**\
+`In a blow to the Workers’ Party, its leader, Pritam Singh, was fined for lying under oath to Parliament.`\
+https://nytimes.com/2025/02/17/world/asia/singapore-opposition-pritam-singh.html
+
 **Palestinian Displacement in the West Bank Is Highest Since 1967, Experts Say**\
 `The Israeli military launched a wide-scale operation last month against militants in several cities in the West Bank. Now, roughly 40,000 Palestinians have fled their homes — the highest since Israel occupied the territory nearly six decades ago, according to researchers.`\
 https://nytimes.com/2025/02/17/world/middleeast/west-bank-palestinian-displacement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/opinion/eric-adams-trump-justice-department.html
 **Why Don’t People Dress Up to Go Out Anymore?**\
 `The informality that dominates in most public spaces today has been brewing for quite some time, our critic explains, and speaks to a broader cultural shift.`\
 https://nytimes.com/2025/02/17/style/casual-formal-dress-restaurant.html
-
-**Praise Song for a False Spring**\
-`Any sign that nature is working as it ought to reminds me to keep faith in the future.`\
-https://nytimes.com/2025/02/17/opinion/nature-false-spring.html
 
