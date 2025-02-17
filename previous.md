@@ -1,3 +1,7 @@
+**Xi Meets With Chinese Business Leaders, Including Jack Ma**\
+`The once-sidelined Alibaba founder was among the executives who met with China’s top leader, in what was seen as a show of support for private enterprise by Beijing.`\
+https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
+
 **NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
 `Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
 https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139719/2025/02/17/dean-huijsen-bournemouth-andoni-
 **Perfect timing, scanning and positioning - how Merino's centre-forward cameo swung the game**\
 `Analysing the Spaniard's superb performance off the bench against Leicester as a makeshift attacker for Mikel Arteta's injury-hit side`\
 https://nytimes.com/athletic/6139804/2025/02/17/merino-centre-forward-arsenal/
-
-**Leicester fans called for change off the pitch - but there was a familiar story to endure on it**\
-`Recrimination gave way to resignation at the King Power Stadium as Ruud van Nistelrooy's side succumbed late and in familiar fashion`\
-https://nytimes.com/athletic/6139613/2025/02/17/leicester-reset-supporters-rudkin-arsenal/
 

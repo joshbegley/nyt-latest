@@ -1,3 +1,7 @@
+**Xi Meets With Chinese Business Leaders, Including Jack Ma**\
+`The once-sidelined Alibaba founder was among the executives who met with China’s top leader, in what was seen as a show of support for private enterprise by Beijing.`\
+https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
+
 **NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
 `Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
 https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
