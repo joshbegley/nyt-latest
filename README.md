@@ -1,3 +1,7 @@
+**Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
+`The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
+https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/
+
 **Mandel: Big Ten, SEC leaders set to light college football aflame**\
 `Two ruling parties are controlling college football: the Big Ten and SEC. And they’re about to light the whole thing aflame.`\
 https://nytimes.com/athletic/6142361/2025/02/17/sec-big-ten-meetings-college-football-playoff-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141547/2025/02/17/boubacar-kamara-injury-update-as
 **Rafael Devers not looking to DH after Red Sox sign Alex Bregman**\
 `Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
 https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
-
-**Daytona 500 takeaways: Superspeedway woes, NFL encroaches and Pitbull is out**\
-`The state of superspeedway racing was the big topic of the week at Daytona, but there were plenty of other discussions as well.`\
-https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeedway-super-bowl-pitbull/
 
