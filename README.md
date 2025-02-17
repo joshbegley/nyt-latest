@@ -1,3 +1,7 @@
+**Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
+`In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
+https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
+
 **'Let's go make the country proud': Still-improving Canada rises to meet 4 Nations pressure**\
 `Canada is one step away from extending its dominance in best-on-best hockey play.`\
 https://nytimes.com/athletic/6142441/2025/02/17/canada-4-nations-usa-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142500/2025/02/17/mark-kotsay-extension-athletics-
 **Giants notes: Tyler Rogers searching for a new catch partner**\
 `Plus: Justin Verlander and Willy Adames are already taking on leadership roles with their new team.`\
 https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-notes/
-
-**Killing of Transgender Man Is Not Ruled a Hate Crime, Investigators Say**\
-`Law enforcement officials in upstate New York say that the torture and killing of Sam Norquist, 24, did not appear to be a hate crime.`\
-https://nytimes.com/2025/02/17/nyregion/sam-norquist-killing-transgender-hate-crime.html
 
