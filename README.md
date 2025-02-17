@@ -1,3 +1,7 @@
+**Giants notes: Tyler Rogers searching for a new catch partner**\
+`Plus: Justin Verlander and Willy Adames are already taking on leadership roles with their new team.`\
+https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-notes/
+
 **Killing of Transgender Man Is Not Ruled a Hate Crime, Investigators Say**\
 `Law enforcement officials in upstate New York say that the torture and killing of Sam Norquist, 24, did not appear to be a hate crime.`\
 https://nytimes.com/2025/02/17/nyregion/sam-norquist-killing-transgender-hate-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
 **Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
 `The newspaper told Common Cause, an advocacy group, that it was pulling its special ad, which would have covered the front and back pages of some Tuesday editions.`\
 https://nytimes.com/2025/02/17/business/washington-post-ad-trump-musk.html
-
-**Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
-`The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
-https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/
 
