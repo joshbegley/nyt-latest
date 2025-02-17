@@ -1,3 +1,7 @@
+**South African Imam and Gay Rights Advocate Is Shot Dead**\
+`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual identity.`\
+https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
+
 **Canada's Cale Makar returns for must-in 4 Nations Face-Off game vs. Finland**\
 `Makar missed the second game of the tournament because of what the team called an illness.`\
 https://nytimes.com/athletic/6142205/2025/02/17/cale-makar-canada-finland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-cham
 **Talk of the Devils roundtable: Can Man Utd accept being this bad for much longer?**\
 `On the latest episode, Andy Mitten, Carl Anka, Laurie Whitwell and Ian Irving judge the mood and how the stuttering project is being viewed`\
 https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-podcast-amorim-patience/
-
-**Jimmy Butler's fantasy basketball impact, Donovan Clingan, and Dallas' downfall**\
-`Stan Son gives fantasy basketball advice for the stretch run, including his thoughts on Jimmy Butler's fit with the Warriors.`\
-https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-butler-donovan-clingan/
 
