@@ -1,3 +1,11 @@
+**Monday Briefing**\
+`A diplomatic scramble over Ukraine.`\
+https://nytimes.com/2025/02/17/briefing/ukraine-europe-trump-gaza.html
+
+**Why Porsche Is No Longer a ‘Premium’ Sports Car in China**\
+`Chinese drivers are buying affordable electric vehicles loaded with new technology, a trend that is redefining high-end vehicles and hurting German automakers.`\
+https://nytimes.com/2025/02/17/business/porsche-china-germany.html
+
 **Draymond Green predicts Warriors will NBA title this year, a message he's been spreading**\
 `Before making his proclamation on national TV, Draymond Green had been telling many around him how confident he is in this Warriors team.`\
 https://nytimes.com/athletic/6141143/2025/02/16/draymond-green-jimmy-butler-warriors-nba-championship/
