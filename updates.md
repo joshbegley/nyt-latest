@@ -1,3 +1,7 @@
+**Watch: Would you rather be the Bills or Ravens over the next three years?**\
+`The Athletic Football Show discuss whether the Buffalo Bills or Baltimore Ravens are closer to Super Bowl contention.`\
+https://nytimes.com/athletic/6141760/2025/02/17/bills-ravens-athletic-football-show/
+
 **Nebraska pitcher Tucker Timmerman poised for quick return after getting hit in the face**\
 `Timmerman suffered a fractured bone near his eye socket after getting hit by a one-hopper in the Huskers' win over Vanderbilt. `\
 https://nytimes.com/athletic/6142266/2025/02/17/nebraska-pitcher-tucker-timmerm-face/

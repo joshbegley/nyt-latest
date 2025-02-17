@@ -1,3 +1,7 @@
+**Watch: Would you rather be the Bills or Ravens over the next three years?**\
+`The Athletic Football Show discuss whether the Buffalo Bills or Baltimore Ravens are closer to Super Bowl contention.`\
+https://nytimes.com/athletic/6141760/2025/02/17/bills-ravens-athletic-football-show/
+
 **Nebraska pitcher Tucker Timmerman poised for quick return after getting hit in the face**\
 `Timmerman suffered a fractured bone near his eye socket after getting hit by a one-hopper in the Huskers' win over Vanderbilt. `\
 https://nytimes.com/athletic/6142266/2025/02/17/nebraska-pitcher-tucker-timmerm-face/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-202
 **Watching ‘Shoah’ in Berlin, 80 Years After Auschwitz**\
 `A commemorative screening of the monumental documentary came as some artists are questioning whether Germany’s Holocaust remembrance culture stifles free speech.`\
 https://nytimes.com/2025/02/17/movies/shoah-berlin-film-festival-claude-lanzmann.html
-
-**4 Top Officials Expected to Resign Over Adams’s Cooperation with Trump**\
-`Four deputy mayors to Eric Adams are planning to leave in coming days after Eric Adams embraced President Trump’s immigration crackdown.`\
-https://nytimes.com/2025/02/17/nyregion/adams-deputy-mayors-resign-trump-immigration.html
 
