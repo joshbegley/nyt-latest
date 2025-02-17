@@ -1,3 +1,7 @@
+**Delta Plane Overturns on Landing at Toronto Airport**\
+`The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for. There was no immediate word on injuries.`\
+https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
+
 **Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
 `The newspaper told Common Cause, an advocacy group, that it was pulling its special ad, which would have covered the front and back pages of some Tuesday editions.`\
 https://nytimes.com/2025/02/17/business/washington-post-ad-trump-musk.html
