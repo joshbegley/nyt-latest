@@ -1,3 +1,11 @@
+**Jose Altuve's new position prompts his same selflessness: ‘I think that's honorable’**\
+`On Monday, Altuve tracked fly balls from a fungo bat, caught popups over his shoulder and practiced his first step. `\
+https://nytimes.com/athletic/6142412/2025/02/17/houston-astros-jose-altuve-position-swap/
+
+**Read Maria Torres-Springer’s resignation announcement to her staff.**\
+`Read the email that Maria Torres-Springer, the first deputy mayor of New York City, sent to her staff to tell them she was resigning from the Eric Adams administration, along with deputy mayors Meera Joshi and Anne Williams-Isom.`\
+https://nytimes.com/interactive/2025/02/17/nyregion/maria-torres-springer-resignation.html
+
 **Delta Plane Overturns on Landing at Toronto Airport**\
 `The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for. There was no immediate word on injuries.`\
 https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html

@@ -1,3 +1,11 @@
+**Jose Altuve's new position prompts his same selflessness: ‘I think that's honorable’**\
+`On Monday, Altuve tracked fly balls from a fungo bat, caught popups over his shoulder and practiced his first step. `\
+https://nytimes.com/athletic/6142412/2025/02/17/houston-astros-jose-altuve-position-swap/
+
+**Read Maria Torres-Springer’s resignation announcement to her staff.**\
+`Read the email that Maria Torres-Springer, the first deputy mayor of New York City, sent to her staff to tell them she was resigning from the Eric Adams administration, along with deputy mayors Meera Joshi and Anne Williams-Isom.`\
+https://nytimes.com/interactive/2025/02/17/nyregion/maria-torres-springer-resignation.html
+
 **Delta Plane Overturns on Landing at Toronto Airport**\
 `The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for. There was no immediate word on injuries.`\
 https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-
 **AP men’s basketball Top 25: Auburn's win over Alabama keeps Tigers on top**\
 `Auburn is still No. 1 after beating rival Alabama, receiving 59 of 60 first-place votes this week.`\
 https://nytimes.com/athletic/6142358/2025/02/17/ap-mens-basketball-top-25-auburn-wisconsin-michigan/
-
-**Watch: Would you rather be the Bills or Ravens over the next three years?**\
-`The Athletic Football Show discuss whether the Buffalo Bills or Baltimore Ravens are closer to Super Bowl contention.`\
-https://nytimes.com/athletic/6141760/2025/02/17/bills-ravens-athletic-football-show/
-
-**Nebraska pitcher Tucker Timmerman poised for quick return after getting hit in the face**\
-`Timmerman suffered a fractured bone near his eye socket after getting hit by a one-hopper in the Huskers' win over Vanderbilt. `\
-https://nytimes.com/athletic/6142266/2025/02/17/nebraska-pitcher-tucker-timmerm-face/
 
