@@ -1,3 +1,11 @@
+**Reds notes: 'Hope' is that Matt McLain plays one spot — second base**\
+`While McLain won't move much if at all, there's a big group playing at third base this spring, including Gavin Lux.`\
+https://nytimes.com/athletic/6140744/2025/02/17/reds-matt-mclain-second-base/
+
+**Assessing Matthew Stafford's and Cooper Kupp's situations with the Rams**\
+`Will the Rams move forward with Stafford at QB for another season or look for a long-term answer at the position?`\
+https://nytimes.com/athletic/6137806/2025/02/17/rams-matthew-stafford-cooper-kupp-future/
+
 **Don’t Surrender to the Coercion Presidency**\
 `The Trump administration is trying to bake quid pro quo deal making, coercive tactics, loyalty tests and other dishonorable practices into American government.`\
 https://nytimes.com/2025/02/17/opinion/eric-adams-trump-justice-department.html
