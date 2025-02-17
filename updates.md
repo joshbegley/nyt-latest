@@ -1,3 +1,7 @@
+**NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
+`Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
+https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
+
 **‘Suits L.A.,’ Plus 7 Things to Watch on TV This Week**\
 `A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
 https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html

@@ -1,3 +1,7 @@
+**NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
+`Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
+https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
+
 **‘Suits L.A.,’ Plus 7 Things to Watch on TV This Week**\
 `A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
 https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139804/2025/02/17/merino-centre-forward-arsenal/
 **Leicester fans called for change off the pitch - but there was a familiar story to endure on it**\
 `Recrimination gave way to resignation at the King Power Stadium as Ruud van Nistelrooy's side succumbed late and in familiar fashion`\
 https://nytimes.com/athletic/6139613/2025/02/17/leicester-reset-supporters-rudkin-arsenal/
-
-**Bayern Munich leave Leverkusen deflated as the Bundesliga title race reverts to type**\
-`A goalless stalemate on Saturday has left Vincent Kompany's side eight points clear of the champions and on course for the meisterschale`\
-https://nytimes.com/athletic/6139687/2025/02/17/bayern-munich-bayer-leverkusen-bundesliga-title/
 
