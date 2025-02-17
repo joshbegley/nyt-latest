@@ -1,3 +1,11 @@
+**Villa's Kamara out for at least two weeks with muscle injury**\
+`Kamara, a central midfielder by trade, has been deployed as a centre-back by Unai Emery in recent weeks due to a defensive shortage.`\
+https://nytimes.com/athletic/6141547/2025/02/17/boubacar-kamara-injury-update-aston-villa/
+
+**Rafael Devers says he won't DH full time after Red Sox sign Alex Bregman**\
+`Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
+https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
+
 **South African Imam and Gay Rights Advocate Is Shot Dead**\
 `Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual orientation.`\
 https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html

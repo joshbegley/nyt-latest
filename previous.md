@@ -1,3 +1,11 @@
+**Villa's Kamara out for at least two weeks with muscle injury**\
+`Kamara, a central midfielder by trade, has been deployed as a centre-back by Unai Emery in recent weeks due to a defensive shortage.`\
+https://nytimes.com/athletic/6141547/2025/02/17/boubacar-kamara-injury-update-aston-villa/
+
+**Rafael Devers says he won't DH full time after Red Sox sign Alex Bregman**\
+`Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
+https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
+
 **Daytona 500 takeaways: Superspeedway woes, NFL encroaches and Pitbull is out**\
 `The state of superspeedway racing was the big topic of the week at Daytona, but there were plenty of other discussions as well.`\
 https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeedway-super-bowl-pitbull/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/nyregion/adams-deputy-mayors-resign-trump-immigra
 **Heat Today: Tyler Herro's NBA All-Star recap, A 'great experience all weekend'**\
 `Tyler Herro's first weekend as an NBA All-Star was full of highlights. Here is a recap of his most notable moments from the Bay Area.`\
 https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-miami-heat/
-
-**With Congress Pliant, an Emboldened Trump Pushes His Business Interests**\
-`Norms recognized for decades in Washington by both parties no longer appear to apply to the Trump White House, former prosecutors and ethics lawyers say.`\
-https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams.html
-
-**USMNT Player Tracker: Captain McKennie, scoring Sargent and Sands misfortune**\
-`Our weekly roundup of the Europe-based U.S. contingent's weekend contributions also includes Daryl Dike's West Bromwich Albion return`\
-https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-sands-tracker/
 
