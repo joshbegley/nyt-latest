@@ -1,3 +1,11 @@
+**How a 2-time Cy Young winner could help Bobby Miller reach new heights for Dodgers**\
+`Snell's take on Miller: “I can see it in the way that he looks at the game, views the game. I see how he wants to be great."`\
+https://nytimes.com/athletic/6140762/2025/02/17/dodgers-blake-snell-bobby-miller/
+
+**Mike Trout moving to right field as Angels star looks to preserve health**\
+`Jo Adell and Mickey Moniak are expected to get the majority of reps for the center field spot now.`\
+https://nytimes.com/athletic/6141841/2025/02/17/angels-mike-trout-right-field/
+
 **The Bounce: NBA All-Star 2025 is over. Should the league stick with its new format?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6141797/2025/02/17/nba-all-star-game-lebron-james-steph-curry-draymond-green-charles-barkley-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/business/media/polk-award-winners.html
 **California’s Push for Electric Trucks Sputters Under Trump**\
 `The state will no longer require some truckers to shift away from diesel semis but hopes that subsidies can keep dreams of pollution-free big rigs alive.`\
 https://nytimes.com/2025/02/17/business/energy-environment/electric-trucks-california-trump.html
-
-**Ryan Preece, after Daytona 500 crash, warns NASCAR getting close to tragedy**\
-`Ryan Preece's crash Sunday was the latest in an uptick of cars flipping after wrecks and the second such incident for Preece in two years.`\
-https://nytimes.com/athletic/6141532/2025/02/17/ryan-preece-daytona-500-crash-nascar-safety/
-
-**Pope to Stay in Hospital to Address ‘Complex’ Clinical Issue, Vatican Says**\
-`Pope Francis was admitted on Friday with a respiratory infection. The announcement on Monday did not provide further detail, but raised fresh concerns about the pontiff’s health.`\
-https://nytimes.com/2025/02/17/world/europe/pope-francis-hospital-clinical-issue.html
 
