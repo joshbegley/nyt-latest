@@ -1,3 +1,7 @@
+**Cutting Red Tape**\
+`We’re covering a major policy challenge for Democrats.`\
+https://nytimes.com/2025/02/17/briefing/cutting-red-tape.html
+
 **Astros notes: The future at second base, Forrest Whitley's role and more**\
 `The Astros hope Brice Matthews can become an option at second base, and Lance McCullers Jr. gave his thoughts on a salary cap.`\
 https://nytimes.com/athletic/6140369/2025/02/17/astros-second-base-forrest-whitley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140809/2025/02/17/cubs-matt-shaw-ryne-sandberg/
 **When will Penguins be contenders again? Buyouts? Mailbag, part 2**\
 `A look at when we can expect the Penguins to be true contenders again, among many other topics such as buyouts, prospects and more.`\
 https://nytimes.com/athletic/6138098/2025/02/17/penguins-nhl-playoff-contenders-buyouts/
-
-**Who would trade Luka Dončić?! This guy — and here's why**\
-`The decision to trade Dončić remains viewed as irrational and impulsive. But those who know the Mavs' GM best paint a far different picture.`\
-https://nytimes.com/athletic/6137644/2025/02/17/luka-doncic-trade-lakers-mavericks-nico-harrison/
 
