@@ -1,4 +1,8 @@
 **Deadly Storm Hits the South With Floods and Heavy Snow**\
+`Heavy snowfall made it hard to drive in Kentucky and floods forced a town in Tennessee to evacuate.`\
+https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
+
+**Deadly Storm Hits the South With Floods and Heavy Snow**\
 `Floods forced a town to evacuate, heavy snowfall made it hard to drive, strong winds toppled trees and crushed homes, all battering the South, which expects another wave of extreme weather.`\
 https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
 
