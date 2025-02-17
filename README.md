@@ -1,40 +1,40 @@
-**What Big Ten, SEC leaders will hash out in latest meeting of league leaders**\
-`What league officials discuss and decide at this week’s summit will have a direct bearing on the future of all facets of college sports.`\
-https://nytimes.com/athletic/6141231/2025/02/17/sec-big-ten-meetings-college-football-playoff/
+**Don’t Surrender to the Coercion Presidency**\
+`The Trump administration is trying to bake quid pro quo deal making, coercive tactics, loyalty tests and other dishonorable practices into American government.`\
+https://nytimes.com/2025/02/17/opinion/eric-adams-trump-justice-department.html
 
-**Making an impact: Isaiah Stewart's off-court contributions complement his NBA success**\
-`Stewart is giving back to Rochester, N.Y., because of the help people there gave to him and his family.`\
-https://nytimes.com/athletic/6052862/2025/02/17/isaiah-stewart-contributions-pistons-nba/
+**Why Don’t People Dress Up to Go Out Anymore?**\
+`The informality that dominates in most public spaces today has been brewing for quite some time, our critic explains, and speaks to a broader cultural shift.`\
+https://nytimes.com/2025/02/17/style/casual-formal-dress-restaurant.html
 
-**Bentaleb scores four minutes into return from cardiac arrest**\
-`Bentaleb collapsed in June during a game of five-a-side football, according to media reports in France.`\
-https://nytimes.com/athletic/6140771/2025/02/17/nabil-bentaleb-cardiac-arrest-goal/
+**Praise Song for a False Spring**\
+`Any sign that nature is working as it ought to reminds me to keep faith in the future.`\
+https://nytimes.com/2025/02/17/opinion/nature-false-spring.html
 
-**It’s Now Up to the Judge Whether to Drop Charges in Adams Case**\
-`Judge Dale E. Ho of Federal District Court in Manhattan has yet to respond to the government’s request to dismiss the federal corruption case against Mayor Eric Adams.`\
-https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-eric-adams-case.html
+**Trump’s Threats Against Canada Upend Conservative’s Playbook**\
+`A darling of the American right, Pierre Poilievre, the Conservative leader, is facing an electorate worried about Trump’s vow to annex Canada.`\
+https://nytimes.com/2025/02/17/world/americas/trump-canada-pierre-poilievre.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/17/crosswords/spelling-bee-forum.html
+**My Values ‘Can’t Be Nullified by an Executive Order’**\
+`A former U.S.A.I.D. worker talks with the columnist Lydia Polgreen about enduring the second Trump administration.`\
+https://nytimes.com/2025/02/17/opinion/refugees-executive-orders-trump.html
 
-**‘S.N.L.’ Celebrates 50 Years With Star-Studded Prime-Time Special**\
-`Stage and audience alike at Studio 8H were packed with cast, alumni and other celebrities in a night that was in turns sweet and self-satirizing.`\
-https://nytimes.com/2025/02/17/arts/television/saturday-night-live-50th-anniversary-special.html
+**How a Runaway Dog Became a Hero for New Orleans**\
+`For months, Scrim ran wild around the city, eluding capture and developing a giant fan base. His saga has inspired tattoos, murals and Mardi Gras floats.`\
+https://nytimes.com/2025/02/17/us/runaway-dog-scrim-new-orleans-hero.html
 
-**Manchester United have sunk to a new Premier League low, so at what point does patience snap?**\
-`United are now 15th, have failed to score in 10 of their 25 top-flight games and included eight teenagers on the bench in the loss at Spurs`\
-https://nytimes.com/athletic/6140983/2025/02/17/manchester-united-amorim-ratcliffe-patience/
+**Trump’s First Four Weeks Felt Like Four Years**\
+`The problem is that if we have another three years and 11 months of this, there won’t be a rule of law left in the United States.`\
+https://nytimes.com/2025/02/17/opinion/trump-doge-republicans-democrats.html
 
-**Kim Sae-ron, a Young South Korean Actress, Is Found Dead**\
-`The 24-year-old star, once a prolific child actor, appeared at the Cannes Film Festival and on Netflix, until a drunk-driving incident in 2022 derailed her career.`\
-https://nytimes.com/2025/02/17/world/asia/south-korea-actress-dead.html
+**Democrats Fear They Are Missing the Moment to Remake the Party**\
+`As President Trump steamrolls over their priorities, Democrats say they could miss the opportunity to learn lessons from their defeat and undertake needed reform.`\
+https://nytimes.com/2025/02/17/us/politics/democrats-trump-future.html
 
-**Xi Meets With Chinese Business Leaders, Including Jack Ma**\
-`The once-sidelined Alibaba founder was among the executives who met with China’s top leader, in what was seen as a show of support for private enterprise by Beijing.`\
-https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
+**Here’s What to See This Spring in New York**\
+`Onstage, Denzel Washington is Othello, and Paul Mescal is Stanley Kowalski as stars illuminate the theater marquees. Plus: FKA twigs takes “Eusexua” on tour. Bang on a Can, Twyla Tharp, and much more.`\
+https://nytimes.com/2025/02/17/theater/live-performances-nyc-spring.html
 
-**NBA All-Star Sunday was slightly better than last year, but biggest issues remain**\
-`Money is the lifeblood of the league and there are, nonetheless, costs to having so much of it flowing through the system.`\
-https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
+**Why Is an Entire Age of American Opera Missing at the Met?**\
+`A concert performance of “Vanessa” freshly argued for the vitality of a work that deserves to be staged but languishes with its midcentury peers.`\
+https://nytimes.com/2025/02/17/arts/music/samuel-barber-vanessa-opera.html
 
