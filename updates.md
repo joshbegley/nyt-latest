@@ -1,3 +1,7 @@
+**Manchester United have sunk to a new Premier League low, so at what point does patience snap?**\
+`United are now 15th, have failed to score in 10 of their 25 top-flight games and included eight teenagers on the bench in the loss at Spurs`\
+https://nytimes.com/athletic/6140983/2025/02/17/manchester-united-amorim-ratcliffe-patience/
+
 **Kim Sae-ron, a Young South Korean Actress, Is Found Dead**\
 `The 24-year-old star, once a prolific child actor, appeared at the Cannes Film Festival and on Netflix, until a drunk-driving incident in 2022 derailed her career.`\
 https://nytimes.com/2025/02/17/world/asia/south-korea-actress-dead.html
