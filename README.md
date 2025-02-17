@@ -1,3 +1,7 @@
+**Sidney Crosby is passing a torch that will benefit Team Canada for years**\
+`A new generation of Canadian stars take their cues from the team's captain, who sets the culture even while playing injured.`\
+https://nytimes.com/athletic/6142888/2025/02/17/sidney-crosby-team-canada-4-nations-face-off-finland/
+
 **Raiders, assistant GM Champ Kelly agree to part ways: Sources**\
 `Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
 https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-
 **Juuse Saros was perfect. Kevin Lankinen was not. Finland goes home**\
 `Finland, in retrospect, started the wrong goalie in its 5-3 tournament-ending loss to Canada.`\
 https://nytimes.com/athletic/6142737/2025/02/17/finland-canada-saros-lankinen-4-nations-face-off/
-
-**Guardians to ink veteran lefty John Means to 1-year deal: Source**\
-`Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
-https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
 
