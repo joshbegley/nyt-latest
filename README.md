@@ -1,3 +1,7 @@
+**The New York Times Wins 3 Polk Awards**\
+`The Times was honored for an investigation into extremism in Israel, coverage of the civil war in Sudan and a narrative about a Russian soldier who defected from the war in Ukraine.`\
+https://nytimes.com/2025/02/17/business/media/polk-award-winners.html
+
 **California’s Push for Electric Trucks Sputters Under Trump**\
 `The state will no longer require some truckers to shift away from diesel semis but hopes that subsidies can keep dreams of pollution-free big rigs alive.`\
 https://nytimes.com/2025/02/17/business/energy-environment/electric-trucks-california-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter
 **Let’s Argue About Our Phones (and Tech in General)**\
 `Phones, smart and dumb, and tech in general. Also: Calling people stupid; Elon Musk and “state capture”; the autocrats’ playbook.`\
 https://nytimes.com/2025/02/17/opinion/phones-tech.html
-
-**Zakia Jafri, Who Sought Justice for Victims of Indian Riots, Dies at 86**\
-`For two decades, she waged a legal battle against government officials in India after her husband was brutally killed in Gujarati in 2002.`\
-https://nytimes.com/2025/02/17/world/asia/zakia-jafri-dead.html
 
