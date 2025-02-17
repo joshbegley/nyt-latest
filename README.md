@@ -1,3 +1,7 @@
+**Scoop City: Early offseason risers and fallers**\
+`Inside: Early 2025 trends, the uncertain future of Matthew Stafford and cut candidates, plus the latest on Justin Tucker, Tyreek Hill and the parade shooting in Philly.`\
+https://nytimes.com/athletic/6141967/2025/02/17/nfl-risers-fallers-offseason-2025-scoop-city/
+
 **Watching ‘Shoah’ in Berlin, 80 Years After Auschwitz**\
 `A commemorative screening of the monumental documentary came as some artists are questioning whether Germany’s Holocaust remembrance culture stifles free speech.`\
 https://nytimes.com/2025/02/17/movies/shoah-berlin-film-festival-claude-lanzmann.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-but
 **'F*** off', 'f*** you' and TV language lessons: How the Bellingham red-card debate took over Spain**\
 `The controversy over Bellingham's F-bomb in Madrid's game against Osasuna shows no signs of dying down`\
 https://nytimes.com/athletic/6141540/2025/02/17/jude-bellingham-red-card-swearing/
-
-**The Land Ukraine Could Be Forced to Give Up to End the War**\
-`President Trump has promised to bring a quick end to the war in Ukraine, suggesting that Russia could keep at least some of the Ukrainian territory it had captured.`\
-https://nytimes.com/video/world/europe/100000009988658/ukraine-war-peace-talks-land.html
 
