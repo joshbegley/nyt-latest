@@ -1,4 +1,4 @@
-**Raiders part ways with assistant GM Champ Kelly: Sources**\
+**Raiders, assistant GM Champ Kelly agree to part ways: Sources**\
 `Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
 https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
 
