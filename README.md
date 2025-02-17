@@ -1,3 +1,19 @@
+**Arsenal fined £65k over players' reaction to Lewis-Skelly red card at Wolves**\
+`The full-back was shown a straight red card for ‘serious foul play’ by referee Michael Oliver in the 43rd minute of the game on January 25.`\
+https://nytimes.com/athletic/6141924/2025/02/17/arsenal-players-referee-wolves-fined/
+
+**Bayern to make late decision on Kane before Celtic tie**\
+`The 31-year-old England forward suffered a facial injury in the 0-0 Bundesliga draw with Bayer Leverkusen on Saturday.`\
+https://nytimes.com/athletic/6141857/2025/02/17/harry-kane-bayern-champions-league/
+
+**Swansea set to sack head coach Williams**\
+`Swansea have lost seven of their last nine Championship games since and dropped to 17th place.`\
+https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
+
+**The Athletic college baseball Top 25: Texas A&M holds top spot after opening weekend**\
+`Duke dropped from No. 11 to No. 22 after losing two of three at home to Cincinnati while Arizona and Indiana fell out of the rankings. `\
+https://nytimes.com/athletic/6141741/2025/02/17/college-baseball-rankings-texas-am-virginia-arkansas/
+
 **NBA Rewind: NBA Rewind: Early reviews of All-Star format: 'This is so unfair to Victor Wembanyama'**\
 `The NBA debuted a new All-Star format over the weekend. After early reviews, is it here to stay?`\
 https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembanyama-steph-curry-lebron-james/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6141841/2025/02/17/angels-mike-trout-right-field/
 **The Bounce: NBA All-Star 2025 is over. Should the league stick with its new format?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6141797/2025/02/17/nba-all-star-game-lebron-james-steph-curry-draymond-green-charles-barkley-the-bounce/
-
-**Sheet-Pan Chicken, but Make It Ottolenghi**\
-`Soft potatoes, silky-sweet peppers and good ol’ chickpeas line the pan beneath the chicken, primed to absorb all the fragrant, meaty juices.`\
-https://nytimes.com/2025/02/17/dining/ottolenghi-sheet-pan-chicken-recipe.html
-
-**Ed Martin, Trump Loyalist, Is Nominated as U.S. Attorney in Washington**\
-`The nomination of Mr. Martin, who stood in the crowd outside the Capitol on Jan. 6, is a full reversal for an office that formed the core of one of the Justice Department’s most complex investigations.`\
-https://nytimes.com/2025/02/17/us/politics/ed-martin-us-attorney-washington.html
-
-**The Windup: Ohtani returns to the mound**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6141790/2025/02/17/shohei-ohtani-pitching-the-windup/
-
-**Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
-`The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
-https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
 
