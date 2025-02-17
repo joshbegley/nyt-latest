@@ -1,3 +1,7 @@
+**'Respect the badge': Welcome to one of football's daftest new traditions**\
+`Real Madrid's players made a point to not step on Manchester City's badge at the Etihad stadium last week - so what was that all about?`\
+https://nytimes.com/athletic/6136761/2025/02/17/badge-walking-real-madrid-city-ferdinand/
+
 **Monday Briefing**\
 `A diplomatic scramble over Ukraine.`\
 https://nytimes.com/2025/02/17/briefing/ukraine-europe-trump-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/arts/television/the-white-lotus-season-3-premiere
 **Starmer Offers to Send U.K. Troops to Ukraine as Part of Peace Deal**\
 `Prime Minister Keir Starmer said for the first time on Sunday that he was “ready and willing” to deploy troops to help guarantee Ukraine’s security.`\
 https://nytimes.com/2025/02/16/world/europe/uk-keir-starmer-troops-ukraine.html
-
-**If Ludvig Åberg hadn't already arrived, he's officially taking over**\
-`Åberg overcame a three-shot deficit over six holes to steal a signature win at the Genesis Invitational and is hungry for the next one.`\
-https://nytimes.com/athletic/6140953/2025/02/16/ludvig-aberg-wins-genesis-invitational/
 
