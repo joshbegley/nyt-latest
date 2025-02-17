@@ -1,3 +1,15 @@
+**Heat Today: Tyler Herro's NBA All-Star recap, A 'great experience all weekend'**\
+`Tyler Herro's first weekend as an NBA All-Star was full of highlights. Here is a recap of his most notable moments from the Bay Area.`\
+https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-miami-heat/
+
+**With Congress Pliant, an Emboldened Trump Pushes His Business Interests**\
+`Norms recognized for decades in Washington by both parties no longer appear to apply to the Trump White House, former prosecutors and ethics lawyers say.`\
+https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams.html
+
+**Extreme conditions loom for Messi and Inter Miami vs. Sporting KC**\
+`Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
+https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
+
 **Talk of the Devils roundtable: Can Man Utd accept being this bad for much longer?**\
 `On the latest episode, Andy Mitten, Carl Anka, Laurie Whitwell and Ian Irving judge the mood and how the stuttering project is being viewed`\
 https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-podcast-amorim-patience/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6141857/2025/02/17/harry-kane-bayern-champions-leag
 **Swansea sack head coach Williams**\
 `Swansea have lost seven of their last nine Championship games and dropped to 17th place.`\
 https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
-
-**The Athletic college baseball Top 25: Texas A&M holds top spot after opening weekend**\
-`Duke dropped from No. 11 to No. 22 after losing two of three at home to Cincinnati while Arizona and Indiana fell out of the rankings. `\
-https://nytimes.com/athletic/6141741/2025/02/17/college-baseball-rankings-texas-am-virginia-arkansas/
-
-**NBA Rewind: Early reviews of All-Star format — 'This is so unfair to Victor Wembanyama'**\
-`The NBA debuted a new All-Star format over the weekend. After early reviews, is it here to stay?`\
-https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembanyama-steph-curry-lebron-james/
-
-**DAZN: Saudi Arabian investment firm buys minority stake in sports broadcaster**\
-`In October, a PIF spokesperson said it had “no current plans to invest" in DAZN, which has bought the rights to FIFA's Club World Cup.`\
-https://nytimes.com/athletic/6141769/2025/02/17/dazn-investment-pif-surj/
 
