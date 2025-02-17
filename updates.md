@@ -1,3 +1,7 @@
+**South African Imam and Gay Rights Advocate Is Shot Dead**\
+`Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual identity.`\
+https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
+
 **Canada's Cale Makar returns for must-in 4 Nations Face-Off game vs. Finland**\
 `Makar missed the second game of the tournament because of what the team called an illness.`\
 https://nytimes.com/athletic/6142205/2025/02/17/cale-makar-canada-finland/
