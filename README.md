@@ -1,3 +1,11 @@
+**Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
+`Thousands of protesters opposing broad swaths of President Trump’s agenda took the streets across the country, including outside the U.S. Capitol.`\
+https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html
+
+**Juuse Saros was perfect. Kevin Lankinen was not. Finland goes home**\
+`Finland, in retrospect, started the wrong goalie in its 5-3 tournament-ending loss to Canada.`\
+https://nytimes.com/athletic/6142737/2025/02/17/finland-canada-saros-lankinen-4-nations-face-off/
+
 **Guardians to ink veteran lefty John Means to one-year deal (Source)**\
 `Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
 https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6142441/2025/02/17/canada-4-nations-usa-final/
 **Pete Alonso on reunion with Mets: ‘For me, this was it’**\
 `Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
 https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
-
-**LeBrun: A Canada-U.S. 4 Nations rematch had to happen — now here's what's at stake**\
-`Dominance for the Americans? Redemption for the Canadians? It's all on the line Thursday in the final.`\
-https://nytimes.com/athletic/6142448/2025/02/17/4-nations-usa-canada-final/
-
-**Tigers' Gleyber Torres turns the page on way to prove-it season in Detroit**\
-`“I’m just focusing on my goals this year, how to get better and help my team,” Torres said from his new locker in Detroit's clubhouse.`\
-https://nytimes.com/athletic/6142431/2025/02/17/detroit-tigers-gleyber-torres-prove-it-season/
 
