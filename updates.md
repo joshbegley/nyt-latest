@@ -1,3 +1,11 @@
+**Can the Fed Look Past Trump’s Tariffs?**\
+`Top officials are grappling with how to handle potential price increases caused by the administration’s policies.`\
+https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
+
+**Education Dept. Gives Schools Two Weeks to Eliminate Race-Based Programs**\
+`The department’s Office for Civil Rights warned that it would penalize schools that consider race in scholarships, hiring and an array of other activities.`\
+https://nytimes.com/2025/02/17/us/politics/education-dept-race-based-programs.html
+
 **Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
 `Thousands of protesters opposing broad swaths of President Trump’s agenda took the streets across the country, including outside the U.S. Capitol.`\
 https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html

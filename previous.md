@@ -1,3 +1,11 @@
+**Can the Fed Look Past Trump’s Tariffs?**\
+`Top officials are grappling with how to handle potential price increases caused by the administration’s policies.`\
+https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
+
+**Education Dept. Gives Schools Two Weeks to Eliminate Race-Based Programs**\
+`The department’s Office for Civil Rights warned that it would penalize schools that consider race in scholarships, hiring and an array of other activities.`\
+https://nytimes.com/2025/02/17/us/politics/education-dept-race-based-programs.html
+
 **Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
 `Thousands of protesters opposing broad swaths of President Trump’s agenda took the streets across the country, including outside the U.S. Capitol.`\
 https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star
 **Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
 `In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
 https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
-
-**'Let's go make the country proud': Still-improving Canada rises to meet 4 Nations pressure**\
-`Canada is one step away from extending its dominance in best-on-best hockey play.`\
-https://nytimes.com/athletic/6142441/2025/02/17/canada-4-nations-usa-final/
-
-**Pete Alonso on reunion with Mets: ‘For me, this was it’**\
-`Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
-https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
 
