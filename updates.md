@@ -1,3 +1,7 @@
+**Bentaleb scores four minutes into return from cardiac arrest**\
+`Bentaleb collapsed in June during a game of five-a-side football, according to media reports in France.`\
+https://nytimes.com/athletic/6140771/2025/02/17/nabil-bentaleb-cardiac-arrest-goal/
+
 **It’s Now Up to the Judge Whether to Drop Charges in Adams Case**\
 `Judge Dale E. Ho of Federal District Court in Manhattan has yet to respond to the government’s request to dismiss the federal corruption case against Mayor Eric Adams.`\
 https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-eric-adams-case.html
