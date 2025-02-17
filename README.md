@@ -1,3 +1,7 @@
+**Nebraska pitcher Tucker Timmerman poised for quick return after getting hit in the face**\
+`Timmerman suffered a fractured bone near his eye socket after getting hit by a one-hopper in the Huskers' win over Vanderbilt. `\
+https://nytimes.com/athletic/6142266/2025/02/17/nebraska-pitcher-tucker-timmerm-face/
+
 **Villa's Kamara out for at least two weeks with muscle injury**\
 `Kamara, a central midfielder by trade, has been deployed as a centre-back by Unai Emery in recent weeks due to a defensive shortage.`\
 https://nytimes.com/athletic/6141547/2025/02/17/boubacar-kamara-injury-update-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/movies/shoah-berlin-film-festival-claude-lanzmann
 **4 Top Officials Expected to Resign Over Adams’s Cooperation with Trump**\
 `Four deputy mayors to Eric Adams are planning to leave in coming days after Eric Adams embraced President Trump’s immigration crackdown.`\
 https://nytimes.com/2025/02/17/nyregion/adams-deputy-mayors-resign-trump-immigration.html
-
-**Heat Today: Tyler Herro's NBA All-Star recap, A 'great experience all weekend'**\
-`Tyler Herro's first weekend as an NBA All-Star was full of highlights. Here is a recap of his most notable moments from the Bay Area.`\
-https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-miami-heat/
 
