@@ -1,3 +1,7 @@
+**Casemiro wants to see out contract at Man United: 'I am happy'**\
+`The 75-time capped Brazil international still has more than a year left on a deal that makes him one of United’s highest earners.`\
+https://nytimes.com/athletic/6141437/2025/02/17/casemiro-manchester-united-contract/
+
 **Cutting Red Tape**\
 `We’re covering a major policy challenge for Democrats.`\
 https://nytimes.com/2025/02/17/briefing/cutting-red-tape.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6099067/2025/02/17/senators-defence-nhl-sanderson-j
 **Matt Shaw, a student of the game, knows to listen to Cubs legend Ryne Sandberg**\
 `Shaw may have been born after Sandberg's final game, but he felt comfortable engaging with the Hall of Famer.`\
 https://nytimes.com/athletic/6140809/2025/02/17/cubs-matt-shaw-ryne-sandberg/
-
-**When will Penguins be contenders again? Buyouts? Mailbag, part 2**\
-`A look at when we can expect the Penguins to be true contenders again, among many other topics such as buyouts, prospects and more.`\
-https://nytimes.com/athletic/6138098/2025/02/17/penguins-nhl-playoff-contenders-buyouts/
 
