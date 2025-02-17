@@ -1,3 +1,11 @@
+**What's happening with Nottingham Forest's stadium redevelopment plans?**\
+`Progress has been slow but is happening — the question now is how ambitious do Forest want to be about their new home?`\
+https://nytimes.com/athletic/6043857/2025/02/17/nottingham-forest-city-ground-redevelopment-latest/
+
+**Dean Huijsen and the pass that proves how valuable he is to Bournemouth**\
+`Huijsen is just 19 but becoming an integral part of Andoni Iraola's Bournemouth. Meet a centre-back making an art-form of passing...`\
+https://nytimes.com/athletic/6139719/2025/02/17/dean-huijsen-bournemouth-andoni-iraola-passing/
+
 **Musk Team Seeks Access to I.R.S. System With Taxpayers’ Records**\
 `A White House spokesman said that the initiative called the Department of Government Efficiency needed to review data to fix waste within the agency.`\
 https://nytimes.com/2025/02/17/business/musk-irs-doge.html
