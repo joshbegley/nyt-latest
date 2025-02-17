@@ -1,3 +1,11 @@
+**Raiders part ways with assistant GM Champ Kelly: Sources**\
+`Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
+https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
+
+**Southwest Airlines Plans to Cut 15% of Its Work Force**\
+`The company said the cuts, the first round of broad layoffs in the airline’s 53-year history, would affect mostly corporate employees.`\
+https://nytimes.com/2025/02/17/business/17southwest-airlines-layoffs.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Leave your questions here for my February 19 edition. Please include your city.</p>
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6142737/2025/02/17/finland-canada-saros-lankinen-4-
 **Guardians to ink veteran lefty John Means to 1-year deal: Source**\
 `Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
 https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
-
-**Rafael Devers has earned right to pout, but it's good business to move him to DH**\
-`Devers replied with a firm "No" when asked if he's willing to give up third base, creating a spring training drama. But it will be resolved.`\
-https://nytimes.com/athletic/6142645/2025/02/17/boston-red-sox-rafael-devers-alex-bregman-2/
-
-**Gavin Lux, now a Cincinnati Red, discusses his Dodgers exit: 'It's a business'**\
-`Lux is eager for a fresh start and has a clear-cut opportunity in front of him at second base.`\
-https://nytimes.com/athletic/6142682/2025/02/17/dodgers-gavin-lux-reds/
 

@@ -1,3 +1,11 @@
+**Raiders part ways with assistant GM Champ Kelly: Sources**\
+`Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
+https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
+
+**Southwest Airlines Plans to Cut 15% of Its Work Force**\
+`The company said the cuts, the first round of broad layoffs in the airline’s 53-year history, would affect mostly corporate employees.`\
+https://nytimes.com/2025/02/17/business/17southwest-airlines-layoffs.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Leave your questions here for my February 19 edition. Please include your city.</p>
 `\
