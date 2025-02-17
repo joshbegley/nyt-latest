@@ -1,3 +1,7 @@
+**The WSL’s bottom eight are entertainingly even - but the top four are now in a league of their own**\
+`Fifth-placed Brighton are the ‘best of the rest’ despite no win in six. Is the long-term competitiveness of the WSL in danger?`\
+https://nytimes.com/athletic/6140858/2025/02/17/brighton-womens-super-league-midtable-struggles/
+
 **Submit your questions for Until Saturday’s podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/6141464/2025/02/17/college-football-questions-mailbag-until-saturday-51/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140630/2025/02/17/tottenham-injury-crisis-over/
 **Casemiro wants to see out contract at Man United: 'I am happy'**\
 `The 75-time capped Brazil international still has more than a year left on a deal that makes him one of United’s highest earners.`\
 https://nytimes.com/athletic/6141437/2025/02/17/casemiro-manchester-united-contract/
-
-**Cutting Red Tape**\
-`We’re covering a major policy challenge for Democrats.`\
-https://nytimes.com/2025/02/17/briefing/cutting-red-tape.html
 

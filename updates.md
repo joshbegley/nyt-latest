@@ -1,3 +1,7 @@
+**The WSL’s bottom eight are entertainingly even - but the top four are now in a league of their own**\
+`Fifth-placed Brighton are the ‘best of the rest’ despite no win in six. Is the long-term competitiveness of the WSL in danger?`\
+https://nytimes.com/athletic/6140858/2025/02/17/brighton-womens-super-league-midtable-struggles/
+
 **Submit your questions for Until Saturday’s podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/6141464/2025/02/17/college-football-questions-mailbag-until-saturday-51/
