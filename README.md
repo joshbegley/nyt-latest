@@ -1,3 +1,11 @@
+**DAZN: Saudi Arabian investment firm buys minority stake in sports broadcaster**\
+`In October, a PIF spokesperson said it had “no current plans to invest" in DAZN, which has bought the rights to FIFA's Club World Cup.`\
+https://nytimes.com/athletic/6141769/2025/02/17/dazn-investment-pif-surj/
+
+**Matthew Tkachuk out for U.S. 4 Nations game Monday vs. Sweden, expected to return for Thursday final**\
+`Tkachuk's brother, U.S. forward Brady Tkachuk: “Smart for him to rest up, knowing we’re already in for Thursday. He’ll be good to go."`\
+https://nytimes.com/athletic/6141906/2025/02/17/matthew-tkachuk-injury-update-4-nations/
+
 **How a 2-time Cy Young winner could help Bobby Miller reach new heights for Dodgers**\
 `Snell's take on Miller: “I can see it in the way that he looks at the game, views the game. I see how he wants to be great."`\
 https://nytimes.com/athletic/6140762/2025/02/17/dodgers-blake-snell-bobby-miller/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
 **$4,400 Rentals in Los Angeles**\
 `A Craftsman house near Culver City, a 1970s condo in West Hollywood and a 1920s bungalow in Hollywood.`\
 https://nytimes.com/2025/02/17/realestate/4400-dollar-rentals-in-los-angeles.html
-
-**The New York Times Wins 3 Polk Awards**\
-`The Times was honored for an investigation into extremism in Israel, coverage of the civil war in Sudan and a narrative about a Russian soldier who defected from the war in Ukraine.`\
-https://nytimes.com/2025/02/17/business/media/polk-award-winners.html
-
-**California’s Push for Electric Trucks Sputters Under Trump**\
-`The state will no longer require some truckers to shift away from diesel semis but hopes that subsidies can keep dreams of pollution-free big rigs alive.`\
-https://nytimes.com/2025/02/17/business/energy-environment/electric-trucks-california-trump.html
 

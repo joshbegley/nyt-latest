@@ -1,3 +1,11 @@
+**How a 2-time Cy Young winner could help Bobby Miller reach new heights for Dodgers**\
+`Snell's take on Miller: “I can see it in the way that he looks at the game, views the game. I see how he wants to be great."`\
+https://nytimes.com/athletic/6140762/2025/02/17/dodgers-blake-snell-bobby-miller/
+
+**Mike Trout moving to right field as Angels star looks to preserve health**\
+`Jo Adell and Mickey Moniak are expected to get the majority of reps for the center field spot now.`\
+https://nytimes.com/athletic/6141841/2025/02/17/angels-mike-trout-right-field/
+
 **The Bounce: NBA All-Star 2025 is over. Should the league stick with its new format?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6141797/2025/02/17/nba-all-star-game-lebron-james-steph-curry-draymond-green-charles-barkley-the-bounce/
