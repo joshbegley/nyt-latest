@@ -1,3 +1,11 @@
+**Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
+`Thousands of protesters opposing broad swaths of President Trump’s agenda took to the streets across the country, including outside the U.S. Capitol.`\
+https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html
+
+**Guardians to ink veteran lefty John Means to 1-year deal: Source**\
+`Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
+https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
+
 **Can the Fed Look Past Trump’s Tariffs?**\
 `Top officials are grappling with how to handle potential price increases caused by the administration’s policies.`\
 https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
