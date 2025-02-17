@@ -1,3 +1,7 @@
+**If Ludvig Åberg hadn't already arrived, he's officially taking over**\
+`Åberg overcame a three-shot deficit over six holes to steal a signature win at the Genesis Invitational and is hungry for the next one.`\
+https://nytimes.com/athletic/6140953/2025/02/16/ludvig-aberg-wins-genesis-invitational/
+
 **‘Here We Go Again’: Kentucky Residents Face More Destruction and Anxiety From Storms**\
 `The flood damage over the weekend was not as catastrophic as some previous climate disasters in the state. But the rains still brought widespread havoc, and painful reminders of trauma.`\
 https://nytimes.com/2025/02/16/us/kentucky-storm-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-f
 **LeBron James out for Sunday's All-Star tournament to rest nagging injuries**\
 `James' absence marks the end to a league record of 20 consecutive starts in the league’s annual midseason classic.`\
 https://nytimes.com/athletic/6140863/2025/02/16/nba-lebron-james-all-star-tournament/
-
-**No. 3 Texas defeats No. 5 LSU, pushing winning streak to 10 games**\
-`Texas is now atop the SEC standings at 12-1, half a game ahead of the Gamecocks.`\
-https://nytimes.com/athletic/6140751/2025/02/16/texas-lsu-womens-basketball-analysis/
 
