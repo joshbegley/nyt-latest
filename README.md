@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3 Premiere Recap: Thai Up**\
+`The premiere of the new season of the HBO anthology drama, set in Thailand, suggests that Mike White’s formula retains plenty of pop.`\
+https://nytimes.com/2025/02/16/arts/television/the-white-lotus-season-3-premiere-recap.html
+
 **Starmer Offers to Send U.K. Troops to Ukraine as Part of Peace Deal**\
 `Prime Minister Keir Starmer said for the first time on Sunday that he was “ready and willing” to deploy troops to help guarantee Ukraine’s security.`\
 https://nytimes.com/2025/02/16/world/europe/uk-keir-starmer-troops-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140877/2025/02/16/u-s-canada-hockey-game-draws-hug
 **Vandy's Mikayla Blakes scores 55 points to break SEC, DI freshman records**\
 `Commodores freshman leads OT win over Auburn as she continues one of the best rookie campaigns ever.`\
 https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record-55-points/
-
-**Niko Mikkola has quietly helped Finland survive on defense, but his biggest test awaits**\
-`Mikkola helped the Florida Panthers win a Stanley Cup last year, and now he's hoping to bring similar success to Team Finland.`\
-https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-face-off/
 
