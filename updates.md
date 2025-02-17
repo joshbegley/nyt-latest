@@ -1,3 +1,19 @@
+**Jimmy Butler's fantasy basketball impact, Donovan Clingan, and Dallas' downfall**\
+`Stan Son gives fantasy basketball advice for the stretch run, including his thoughts on Jimmy Butler's fit with the Warriors.`\
+https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-butler-donovan-clingan/
+
+**'F*** off', 'f*** you' and TV language lessons: How the Bellingham red-card debate took over Spain**\
+`The controversy over Bellingham's F-bomb in Madrid's game against Osasuna shows no signs of dying down`\
+https://nytimes.com/athletic/6141540/2025/02/17/jude-bellingham-red-card-swearing/
+
+**The Land Ukraine Could Be Forced to Give Up to End the War**\
+`President Trump has promised to bring a quick end to the war in Ukraine, suggesting that Russia could keep at least some of the Ukrainian territory it had captured.`\
+https://nytimes.com/video/world/europe/100000009988658/ukraine-war-peace-talks-land.html
+
+**NBA Rewind: Early reviews of All-Star format — 'This is so unfair to Victor Wembanyama'**\
+`The NBA debuted a new All-Star format over the weekend. After early reviews, is it here to stay?`\
+https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembanyama-steph-curry-lebron-james/
+
 **Mike Trout moving to right field as Angels star looks to preserve health**\
 `Jo Adell and Mickey Moniak are expected to get the majority of reps in center field.`\
 https://nytimes.com/athletic/6141841/2025/02/17/angels-mike-trout-right-field/
