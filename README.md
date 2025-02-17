@@ -1,3 +1,11 @@
+**California’s Push for Electric Trucks Sputters Under Trump**\
+`The state will no longer require some truckers to shift away from diesel semis but hopes that subsidies can keep dreams of pollution-free big rigs alive.`\
+https://nytimes.com/2025/02/17/business/energy-environment/electric-trucks-california-trump.html
+
+**Ryan Preece, after Daytona 500 crash, warns NASCAR getting close to tragedy**\
+`Ryan Preece's crash Sunday was the latest in an uptick of cars flipping after wrecks and the second such incident for Preece in two years.`\
+https://nytimes.com/athletic/6141532/2025/02/17/ryan-preece-daytona-500-crash-nascar-safety/
+
 **Pope to Stay in Hospital to Address ‘Complex’ Clinical Issue, Vatican Says**\
 `Pope Francis was admitted on Friday with a respiratory infection. The announcement on Monday did not provide further detail, but raised fresh concerns about the pontiff’s health.`\
 https://nytimes.com/2025/02/17/world/europe/pope-francis-hospital-clinical-issue.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/opinion/phones-tech.html
 **Zakia Jafri, Who Sought Justice for Victims of Indian Riots, Dies at 86**\
 `For two decades, she waged a legal battle against government officials in India after her husband was brutally killed in Gujarati in 2002.`\
 https://nytimes.com/2025/02/17/world/asia/zakia-jafri-dead.html
-
-**The Athletic FC: Bellingham's F-bomb lands him in bother and Spurs' Maddison talks his talk**\
-`Today in TAFC: Bellingham's sweary outburst lands him in hot water while James Maddison gets his point across - on the pitch and online`\
-https://nytimes.com/athletic/6141468/2025/02/17/bellingham-maddison-bentaleb/
-
-**What to Know About Buprenorphine, a Proven Treatment for Opioid Addiction**\
-`This medicine may be one of the best tools doctors have to fight the fentanyl crisis.`\
-https://nytimes.com/2025/02/17/magazine/buprenorphine-addiction-treatment-takeaways.html
 
