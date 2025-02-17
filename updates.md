@@ -1,3 +1,11 @@
+**The Athletic FC: Bellingham's F-bomb lands him in bother and Spurs' Maddison talks his talk**\
+`Today in TAFC: Bellingham's sweary outburst lands him in hot water while James Maddison gets his point across - on the pitch and online`\
+https://nytimes.com/athletic/6141468/2025/02/17/bellingham-maddison-bentaleb/
+
+**How does Iga Swiatek solve a problem like Jelena Ostapenko?**\
+`Swiatek has an equal-or-better record against every active WTA player... except Ostapenko, who she's never beaten in five attempts.`\
+https://nytimes.com/athletic/6140815/2025/02/17/iga-swiatek-jelena-ostapenko-head-to-head-matchup/
+
 **What to Know About Buprenorphine**\
 `This medicine may be one of the best tools doctors have to fight the fentanyl crisis.`\
 https://nytimes.com/2025/02/17/magazine/buprenorphine-addiction-treatment-takeaways.html
