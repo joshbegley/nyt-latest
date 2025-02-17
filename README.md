@@ -1,4 +1,12 @@
-**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal**\
+**Valencia, Villarreal working with authorities after two disabled fans attacked**\
+`The supporters were attacked outside Villarreal’s stadium, the Estadio de la Ceramica, after Saturday's 1-1 draw between the clubs.`\
+https://nytimes.com/athletic/6141355/2025/02/17/villarreal-valencia-fans-attack/
+
+**Rubio Lands in Saudi Arabia for Talks on Gaza and Ukraine**\
+`Marco Rubio’s visit to Riyadh, his first as secretary of state, came amid uncertainty about the future of Gaza and Ukraine and criticism of unilateral U.S. moves over the wars in both places.`\
+https://nytimes.com/2025/02/17/world/middleeast/rubio-saudi-arabia-gaza-ukraine.html
+
+**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal.**\
 `Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
 https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/opinion/nature-false-spring.html
 **Trump’s Threats Against Canada Upend Conservative’s Playbook**\
 `A darling of the American right, Pierre Poilievre, the Conservative leader, is facing an electorate worried about Trump’s vow to annex Canada.`\
 https://nytimes.com/2025/02/17/world/americas/trump-canada-pierre-poilievre.html
-
-**My Values ‘Can’t Be Nullified by an Executive Order’**\
-`A former U.S.A.I.D. worker talks with the columnist Lydia Polgreen about enduring the second Trump administration.`\
-https://nytimes.com/2025/02/17/opinion/refugees-executive-orders-trump.html
-
-**How a Runaway Dog Became a Hero for New Orleans**\
-`For months, Scrim ran wild around the city, eluding capture and developing a giant fan base. His saga has inspired tattoos, murals and Mardi Gras floats.`\
-https://nytimes.com/2025/02/17/us/runaway-dog-scrim-new-orleans-hero.html
 
