@@ -1,3 +1,7 @@
+**Swansea sack head coach Williams**\
+`Swansea have lost seven of their last nine Championship games and dropped to 17th place.`\
+https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
+
 **Jimmy Butler's fantasy basketball impact, Donovan Clingan, and Dallas' downfall**\
 `Stan Son gives fantasy basketball advice for the stretch run, including his thoughts on Jimmy Butler's fit with the Warriors.`\
 https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-butler-donovan-clingan/
