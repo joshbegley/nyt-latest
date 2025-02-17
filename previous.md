@@ -1,3 +1,7 @@
+**4 Top Officials Expected to Resign Over Adams’s Cooperation with Trump**\
+`Four deputy mayors to Eric Adams are planning to leave in coming days after Eric Adams embraced President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/02/17/nyregion/adams-deputy-mayors-resign-trump-immigration.html
+
 **Heat Today: Tyler Herro's NBA All-Star recap, A 'great experience all weekend'**\
 `Tyler Herro's first weekend as an NBA All-Star was full of highlights. Here is a recap of his most notable moments from the Bay Area.`\
 https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-miami-heat/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-mi
 `Norms recognized for decades in Washington by both parties no longer appear to apply to the Trump White House, former prosecutors and ethics lawyers say.`\
 https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams.html
 
-**Messi 'will play' as Miami prepares for frigid match in K.C.**\
+**Messi 'will play' as Miami prepares for sub-zero match in K.C.**\
 `Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
 https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141924/2025/02/17/arsenal-players-referee-wolves-f
 **Bayern to make late decision on Kane before Celtic tie**\
 `The 31-year-old England forward suffered a facial injury in the 0-0 Bundesliga draw with Bayer Leverkusen on Saturday.`\
 https://nytimes.com/athletic/6141857/2025/02/17/harry-kane-bayern-champions-league/
-
-**Swansea sack head coach Williams**\
-`Swansea have lost seven of their last nine Championship games and dropped to 17th place.`\
-https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
 

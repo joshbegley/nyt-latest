@@ -1,3 +1,11 @@
+**4 Top Officials Expected to Resign Over Adams’s Cooperation with Trump**\
+`Four deputy mayors to Eric Adams are planning to leave in coming days after Eric Adams embraced President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/02/17/nyregion/adams-deputy-mayors-resign-trump-immigration.html
+
+**Messi 'will play' as Miami prepares for sub-zero match in K.C.**\
+`Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
+https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
+
 **Messi 'will play' as Miami prepares for frigid match in K.C.**\
 `Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
 https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
