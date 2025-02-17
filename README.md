@@ -1,3 +1,7 @@
+**Steph Curry, Jayson Tatum lead team to win in first-ever All-Star tourney**\
+`Curry named MVP of the event as his squad defeated a team of mostly international players, including Victor Wembanyama, 41-25.`\
+https://nytimes.com/athletic/6141068/2025/02/16/all-star-tournament-steph-curry-jayson-tatum/
+
 **Deadly Storm Hits the South With Floods and Heavy Snow**\
 `Heavy snowfall made it hard to drive in Kentucky and floods forced a town in Tennessee to evacuate.`\
 https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/16/business/japan-2024-gdp-yen.html
 **Talking While Black**\
 `Stories of people who got caught in the backlash to the national movement to eradicate racism.`\
 https://nytimes.com/2025/02/16/podcasts/talking-while-black-this-american-life-nyt-audio.html
-
-**Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
-`Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
-https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
 
