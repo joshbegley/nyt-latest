@@ -1,3 +1,7 @@
+**Kim Sae-ron, a Young South Korean Actress, Is Found Dead**\
+`The 24-year-old star, once a prolific child actor, appeared at the Cannes Film Festival and on Netflix, until a drunk-driving incident in 2022 derailed her career.`\
+https://nytimes.com/2025/02/17/world/asia/south-korea-actress-dead.html
+
 **Xi Meets With Chinese Business Leaders, Including Jack Ma**\
 `The once-sidelined Alibaba founder was among the executives who met with China’s top leader, in what was seen as a show of support for private enterprise by Beijing.`\
 https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138727/2025/02/17/aston-villas-need-to-win-unai-em
 **Dean Huijsen and the pass that proves how valuable he is to Bournemouth**\
 `Huijsen is just 19 but becoming an integral part of Andoni Iraola's Bournemouth. Meet a centre-back making an art-form of passing...`\
 https://nytimes.com/athletic/6139719/2025/02/17/dean-huijsen-bournemouth-andoni-iraola-passing/
-
-**Perfect timing, scanning and positioning - how Merino's centre-forward cameo swung the game**\
-`Analysing the Spaniard's superb performance off the bench against Leicester as a makeshift attacker for Mikel Arteta's injury-hit side`\
-https://nytimes.com/athletic/6139804/2025/02/17/merino-centre-forward-arsenal/
 

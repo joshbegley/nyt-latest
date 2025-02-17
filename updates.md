@@ -1,3 +1,7 @@
+**Kim Sae-ron, a Young South Korean Actress, Is Found Dead**\
+`The 24-year-old star, once a prolific child actor, appeared at the Cannes Film Festival and on Netflix, until a drunk-driving incident in 2022 derailed her career.`\
+https://nytimes.com/2025/02/17/world/asia/south-korea-actress-dead.html
+
 **Xi Meets With Chinese Business Leaders, Including Jack Ma**\
 `The once-sidelined Alibaba founder was among the executives who met with China’s top leader, in what was seen as a show of support for private enterprise by Beijing.`\
 https://nytimes.com/2025/02/17/business/china-xi-jinping-jack-ma.html
