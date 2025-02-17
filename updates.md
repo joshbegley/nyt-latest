@@ -1,3 +1,15 @@
+**How Juventus' centre-backs changed the game in the second half against Inter**\
+`Federico Gatti and Renato Veiga's dubious first-half positioning initially handed Inter an advantage, but Juventus tweaked things to prevail`\
+https://nytimes.com/athletic/6141318/2025/02/17/juventus-motta-veiga-gatti-inter/
+
+**Let’s Argue About Our Phones (and Tech in General)**\
+`Phones, smart and dumb, and tech in general. Also: Calling people stupid; Elon Musk and “state capture”; the autocrats’ playbook.`\
+https://nytimes.com/2025/02/17/opinion/phones-tech.html
+
+**Zakia Jafri, Who Sought Justice for Victims of Indian Riots, Dies at 86**\
+`For two decades, she waged a legal battle against government officials in India after her husband was brutally killed in Gujarati in 2002.`\
+https://nytimes.com/2025/02/17/world/asia/zakia-jafri-dead.html
+
 **What to Know About Buprenorphine, a Proven Treatment for Opioid Addiction**\
 `This medicine may be one of the best tools doctors have to fight the fentanyl crisis.`\
 https://nytimes.com/2025/02/17/magazine/buprenorphine-addiction-treatment-takeaways.html
