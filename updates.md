@@ -1,3 +1,7 @@
+**Steph Curry, Jayson Tatum lead team to win in first-ever All-Star tourney**\
+`Curry named MVP of the event as his squad defeated a team of mostly international players, including Victor Wembanyama, 41-25.`\
+https://nytimes.com/athletic/6141068/2025/02/16/all-star-tournament-steph-curry-jayson-tatum/
+
 **Deadly Storm Hits the South With Floods and Heavy Snow**\
 `Heavy snowfall made it hard to drive in Kentucky and floods forced a town in Tennessee to evacuate.`\
 https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
