@@ -1,3 +1,7 @@
+**Rafael Devers not looking to DH after Red Sox sign Alex Bregman**\
+`Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
+https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
+
 **Watch: Would you rather be the Bills or Ravens over the next three years?**\
 `The Athletic Football Show discuss whether the Buffalo Bills or Baltimore Ravens are closer to Super Bowl contention.`\
 https://nytimes.com/athletic/6141760/2025/02/17/bills-ravens-athletic-football-show/
