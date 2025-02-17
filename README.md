@@ -1,3 +1,11 @@
+**An Invisible Medical Shortage: Oxygen**\
+`Oxygen is vital to many medical procedures. But a safe, affordable supply is severely lacking around the world, according to a new report.`\
+https://nytimes.com/2025/02/17/health/medical-oxygen-shortage.html
+
+**Who Are the 4 Key Officials Leaving City Hall?**\
+`Four deputy mayors in the Eric Adams administration — all respected veteran public servants — are resigning.`\
+https://nytimes.com/2025/02/17/nyregion/new-york-deputy-mayors-resignations.html
+
 **Can the Fed Look Past Trump’s Tariffs?**\
 `Top officials are grappling with how to handle potential price increases caused by the administration’s policies.`\
 https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6142682/2025/02/17/dodgers-gavin-lux-reds/
 **Why the Yankees gave Jasson Domínguez a special locker inside their clubhouse**\
 `Expectations for Domínguez are high and the Yankees hope The Martian's locker is in the back right corner for the next decade-plus.`\
 https://nytimes.com/athletic/6142733/2025/02/17/yankees-jasson-dominguez-locker-aaron-judge/
-
-**Cade Cunningham makes his mark for Pistons with All-Star debut**\
-`Cunningham became the first Pistons player since 2019 to represent Detroit at the All-Star Game. `\
-https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star-game/
-
-**Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
-`In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
-https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
 
