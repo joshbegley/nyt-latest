@@ -1,3 +1,7 @@
+**Scouting Cam Cannarella and the Shriners College Classic to kick off the 2025 MLB Draft season: Law**\
+`Several potential first-round picks competed in the Shriners College Classic, which served as a kick-off to our 2025 MLB Draft coverage.`\
+https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
+
 **South African Imam and Gay Rights Advocate Is Shot Dead**\
 `Muhsin Hendricks was credited by some as being the world’s first openly gay imam and helped Muslims reconcile their faith with their sexual identity.`\
 https://nytimes.com/2025/02/17/world/africa/south-african-imam-gay-rights-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-
 **Messi 'will play' as Miami prepares for sub-zero match in K.C.**\
 `Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
 https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
-
-**Talk of the Devils roundtable: Can Man Utd accept being this bad for much longer?**\
-`On the latest episode, Andy Mitten, Carl Anka, Laurie Whitwell and Ian Irving judge the mood and how the stuttering project is being viewed`\
-https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-podcast-amorim-patience/
 
