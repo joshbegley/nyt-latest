@@ -1,3 +1,7 @@
+**If Ludvig Åberg hadn't already arrived, he's officially taking over**\
+`Åberg overcame a three-shot deficit over six holes to steal a signature win at the Genesis Invitational and is hungry for the next one.`\
+https://nytimes.com/athletic/6140953/2025/02/16/ludvig-aberg-wins-genesis-invitational/
+
 **‘Here We Go Again’: Kentucky Residents Face More Destruction and Anxiety From Storms**\
 `The flood damage over the weekend was not as catastrophic as some previous climate disasters in the state. But the rains still brought widespread havoc, and painful reminders of trauma.`\
 https://nytimes.com/2025/02/16/us/kentucky-storm-damage.html
