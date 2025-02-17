@@ -1,3 +1,7 @@
+**Talk of the Devils roundtable: Can Man Utd accept being this bad for much longer?**\
+`On the latest episode, Andy Mitten, Carl Anka, Laurie Whitwell and Ian Irving judge the mood and how the stuttering project is being viewed`\
+https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-podcast-amorim-patience/
+
 **Jimmy Butler's fantasy basketball impact, Donovan Clingan, and Dallas' downfall**\
 `Stan Son gives fantasy basketball advice for the stretch run, including his thoughts on Jimmy Butler's fit with the Warriors.`\
 https://nytimes.com/athletic/6141602/2025/02/17/fantasy-basketball-nba-jimmy-butler-donovan-clingan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembany
 **DAZN: Saudi Arabian investment firm buys minority stake in sports broadcaster**\
 `In October, a PIF spokesperson said it had “no current plans to invest" in DAZN, which has bought the rights to FIFA's Club World Cup.`\
 https://nytimes.com/athletic/6141769/2025/02/17/dazn-investment-pif-surj/
-
-**Matthew Tkachuk out for U.S. 4 Nations game Monday vs. Sweden, expected to return for Thursday final**\
-`Tkachuk's brother, U.S. forward Brady Tkachuk: “Smart for him to rest up, knowing we’re already in for Thursday. He’ll be good to go."`\
-https://nytimes.com/athletic/6141906/2025/02/17/matthew-tkachuk-injury-update-4-nations/
 

@@ -1,3 +1,7 @@
+**Talk of the Devils roundtable: Can Man Utd accept being this bad for much longer?**\
+`On the latest episode, Andy Mitten, Carl Anka, Laurie Whitwell and Ian Irving judge the mood and how the stuttering project is being viewed`\
+https://nytimes.com/athletic/6141322/2025/02/17/talk-of-the-devils-man-united-podcast-amorim-patience/
+
 **Swansea sack head coach Williams**\
 `Swansea have lost seven of their last nine Championship games and dropped to 17th place.`\
 https://nytimes.com/athletic/6140300/2025/02/17/luke-williams-swansea/
