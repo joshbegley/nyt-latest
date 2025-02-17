@@ -1,3 +1,7 @@
+**Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
+`The newspaper told Common Cause, an advocacy group, that it was pulling its special ad, which would have covered the front and back pages of some Tuesday editions.`\
+https://nytimes.com/2025/02/17/business/washington-post-ad-trump-musk.html
+
 **Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
 `The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
 https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/

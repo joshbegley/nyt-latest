@@ -1,3 +1,7 @@
+**Washington Post Cancels Ad From Groups Calling for Trump to Fire Musk**\
+`The newspaper told Common Cause, an advocacy group, that it was pulling its special ad, which would have covered the front and back pages of some Tuesday editions.`\
+https://nytimes.com/2025/02/17/business/washington-post-ad-trump-musk.html
+
 **Mets' Frankie Montas shut down, diagnosed with a high-grade lat strain**\
 `The Mets signed the 31-year-old right-hander this past winter to a two-year, $34 million contract.`\
 https://nytimes.com/athletic/6142420/2025/02/17/new-york-mets-frankie-montas-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142266/2025/02/17/nebraska-pitcher-tucker-timmerm-
 **Villa's Kamara out for at least two weeks with muscle injury**\
 `Kamara, a central midfielder by trade, has been deployed as a centre-back by Unai Emery in recent weeks due to a defensive shortage.`\
 https://nytimes.com/athletic/6141547/2025/02/17/boubacar-kamara-injury-update-aston-villa/
-
-**Rafael Devers not looking to DH after Red Sox sign Alex Bregman**\
-`Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
-https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
 
