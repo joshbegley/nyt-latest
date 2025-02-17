@@ -1,3 +1,7 @@
+**Draymond Green predicts Warriors will NBA title this year, a message he's been spreading**\
+`Before making his proclamation on national TV, Draymond Green had been telling many around him how confident he is in this Warriors team.`\
+https://nytimes.com/athletic/6141143/2025/02/16/draymond-green-jimmy-butler-warriors-nba-championship/
+
 **Steph Curry, Jayson Tatum lead team to win in first-ever All-Star tourney**\
 `Curry named MVP of the event as his squad defeated a team of mostly international players, including Victor Wembanyama, 41-25.`\
 https://nytimes.com/athletic/6141068/2025/02/16/all-star-tournament-steph-curry-jayson-tatum/
