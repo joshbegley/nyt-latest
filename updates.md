@@ -1,3 +1,7 @@
+**Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
+`In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
+https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
+
 **'Let's go make the country proud': Still-improving Canada rises to meet 4 Nations pressure**\
 `Canada is one step away from extending its dominance in best-on-best hockey play.`\
 https://nytimes.com/athletic/6142441/2025/02/17/canada-4-nations-usa-final/
