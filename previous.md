@@ -1,40 +1,40 @@
-**Singapore Opposition Leader Gets Guilty Verdict but Can Run in Election**\
-`In a blow to the Workers’ Party, its leader, Pritam Singh, was fined for lying under oath to Parliament.`\
-https://nytimes.com/2025/02/17/world/asia/singapore-opposition-pritam-singh.html
+**How the Senators became one of the NHL's best defensive teams**\
+`Ottawa hasn't had a top-10 defence since 2017, the last year it made the playoffs. Diving into the team's defensive improvements.`\
+https://nytimes.com/athletic/6099067/2025/02/17/senators-defence-nhl-sanderson-jensen-tkachuk/
 
-**Palestinian Displacement in the West Bank Is Highest Since 1967, Experts Say**\
-`The Israeli military launched a wide-scale operation last month against militants in several cities in the West Bank. Now, roughly 40,000 Palestinians have fled their homes — the highest since Israel occupied the territory nearly six decades ago, according to researchers.`\
-https://nytimes.com/2025/02/17/world/middleeast/west-bank-palestinian-displacement.html
+**Matt Shaw, a student of the game, knows to listen to Cubs legend Ryne Sandberg**\
+`Shaw may have been born after Sandberg's final game, but he felt comfortable engaging with the Hall of Famer.`\
+https://nytimes.com/athletic/6140809/2025/02/17/cubs-matt-shaw-ryne-sandberg/
 
-**Valencia, Villarreal working with authorities after two disabled fans attacked**\
-`The supporters were attacked outside Villarreal’s stadium, the Estadio de la Ceramica, after Saturday's 1-1 draw between the clubs.`\
-https://nytimes.com/athletic/6141355/2025/02/17/villarreal-valencia-fans-attack/
+**Who would trade Luka Dončić?! This guy — and here's why**\
+`The decision to trade Dončić remains viewed as irrational and impulsive. But those who know the Mavs' GM best paint a far different picture.`\
+https://nytimes.com/athletic/6137644/2025/02/17/luka-doncic-trade-lakers-mavericks-nico-harrison/
 
-**Rubio Lands in Saudi Arabia for Talks on Gaza and Ukraine**\
-`Marco Rubio’s visit to Riyadh, his first as secretary of state, came amid uncertainty about the future of Gaza and Ukraine and criticism of unilateral U.S. moves over the wars in both places.`\
-https://nytimes.com/2025/02/17/world/middleeast/rubio-saudi-arabia-gaza-ukraine.html
+**Browns QB tracker: How Myles Garrett's future could alter the team's thinking**\
+`If Cleveland wants to convince Garrett that a quick fix is possible, the upcoming QB decision must help engineer a fast turnaround. `\
+https://nytimes.com/athletic/6140457/2025/02/17/browns-quarterback-tracker-myles-garrett/
 
-**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal.**\
-`Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
-https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
+**Arsenal fans: How do you see Nwaneri and Lewis-Skelly developing at Arsenal?**\
+`Let us know how you think teenage rising stars Nwaneri and Lewis-Skelly will be used at Arsenal going forward`\
+https://nytimes.com/athletic/6128705/2025/02/17/arsenal-fans-views-nwaneri-lewis-skelly/
 
-**Tigers' Colt Keith has a new position and high expectations in Year 2**\
-`Keith's winter was full of changes: marriage, a new truck, a new position and altered swing mechanics.`\
-https://nytimes.com/athletic/6140413/2025/02/17/tigers-colt-keith-first-base-expectations/
+**Trump Shocks Europe**\
+`President Trump’s embrace of Russia is a major setback for the relationship between Europe and the U.S.`\
+https://nytimes.com/2025/02/17/podcasts/the-daily/trump-europe-russia-ukraine.html
 
-**Reds notes: 'Hope' is that Matt McLain plays one spot — second base**\
-`While McLain won't move much if at all, there's a big group playing at third base this spring, including Gavin Lux.`\
-https://nytimes.com/athletic/6140744/2025/02/17/reds-matt-mclain-second-base/
+**Supreme Court Considers Trump’s Power, and Musk’s Team Wants Access to I.R.S. Records**\
+`Plus, how to remember everything.`\
+https://nytimes.com/2025/02/17/podcasts/the-headlines/supreme-court-trump-musk-irs-ukraine.html
 
-**Assessing Matthew Stafford's and Cooper Kupp's situations with the Rams**\
-`Will the Rams move forward with Stafford at QB for another season or look for a long-term answer at the position?`\
-https://nytimes.com/athletic/6137806/2025/02/17/rams-matthew-stafford-cooper-kupp-future/
+**Connections Companion No. 618**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
+https://nytimes.com/2025/02/17/crosswords/connections-companion-618.html
 
-**Don’t Surrender to the Coercion Presidency**\
-`The Trump administration is trying to bake quid pro quo deal making, coercive tactics, loyalty tests and other dishonorable practices into American government.`\
-https://nytimes.com/2025/02/17/opinion/eric-adams-trump-justice-department.html
+**Wordle Review No. 1,340**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 18, 2025.`\
+https://nytimes.com/2025/02/17/crosswords/wordle-review-1340.html
 
-**Why Don’t People Dress Up to Go Out Anymore?**\
-`The informality that dominates in most public spaces today has been brewing for quite some time, our critic explains, and speaks to a broader cultural shift.`\
-https://nytimes.com/2025/02/17/style/casual-formal-dress-restaurant.html
+**Liverpool announce price freeze on general admission and season tickets**\
+`The club say the decision follows 'meaningful engagement' with the official supporters' board.`\
+https://nytimes.com/athletic/6141401/2025/02/17/liverpool-ticket-prices-freeze/
 
