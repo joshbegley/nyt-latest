@@ -1,3 +1,8 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Leave your questions here for my February 19 edition. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6142892/2025/02/17/submit-a-question-for-stewart-mandels-college-football-mailbag-293/
+
 **An Invisible Medical Shortage: Oxygen**\
 `Oxygen is vital to many medical procedures. But a safe, affordable supply is severely lacking around the world, according to a new report.`\
 https://nytimes.com/2025/02/17/health/medical-oxygen-shortage.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6142645/2025/02/17/boston-red-sox-rafael-devers-ale
 **Gavin Lux, now a Cincinnati Red, discusses his Dodgers exit: 'It's a business'**\
 `Lux is eager for a fresh start and has a clear-cut opportunity in front of him at second base.`\
 https://nytimes.com/athletic/6142682/2025/02/17/dodgers-gavin-lux-reds/
-
-**Why the Yankees gave Jasson Domínguez a special locker inside their clubhouse**\
-`Expectations for Domínguez are high and the Yankees hope The Martian's locker is in the back right corner for the next decade-plus.`\
-https://nytimes.com/athletic/6142733/2025/02/17/yankees-jasson-dominguez-locker-aaron-judge/
 

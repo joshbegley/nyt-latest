@@ -1,3 +1,8 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Leave your questions here for my February 19 edition. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6142892/2025/02/17/submit-a-question-for-stewart-mandels-college-football-mailbag-293/
+
 **An Invisible Medical Shortage: Oxygen**\
 `Oxygen is vital to many medical procedures. But a safe, affordable supply is severely lacking around the world, according to a new report.`\
 https://nytimes.com/2025/02/17/health/medical-oxygen-shortage.html
