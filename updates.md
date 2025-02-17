@@ -1,3 +1,7 @@
+**AP men’s basketball Top 25: Auburn's win over Alabama keeps Tigers on top**\
+`Auburn is still No. 1 after beating rival Alabama, receiving 59 of 60 first-place votes this week.`\
+https://nytimes.com/athletic/6142358/2025/02/17/ap-mens-basketball-top-25-auburn-wisconsin-michigan/
+
 **Rafael Devers not looking to DH after Red Sox sign Alex Bregman**\
 `Bregman is a far stronger defender at third base than Devers, but Devers won't cede his place for the Gold Glover.`\
 https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated-hitter-alex-bregman/
