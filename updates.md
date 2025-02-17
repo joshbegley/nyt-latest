@@ -1,3 +1,7 @@
+**Guardians to ink veteran lefty John Means to one-year deal (Source)**\
+`Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
+https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
+
 **Rafael Devers has earned right to pout, but it's good business to move him to DH**\
 `Devers replied with a firm "No" when asked if he's willing to give up third base, creating a spring training drama. But it will be resolved.`\
 https://nytimes.com/athletic/6142645/2025/02/17/boston-red-sox-rafael-devers-alex-bregman-2/

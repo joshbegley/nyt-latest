@@ -1,3 +1,7 @@
+**Guardians to ink veteran lefty John Means to one-year deal (Source)**\
+`Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
+https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
+
 **Rafael Devers has earned right to pout, but it's good business to move him to DH**\
 `Devers replied with a firm "No" when asked if he's willing to give up third base, creating a spring training drama. But it will be resolved.`\
 https://nytimes.com/athletic/6142645/2025/02/17/boston-red-sox-rafael-devers-alex-bregman-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142448/2025/02/17/4-nations-usa-canada-final/
 **Tigers' Gleyber Torres turns the page on way to prove-it season in Detroit**\
 `“I’m just focusing on my goals this year, how to get better and help my team,” Torres said from his new locker in Detroit's clubhouse.`\
 https://nytimes.com/athletic/6142431/2025/02/17/detroit-tigers-gleyber-torres-prove-it-season/
-
-**Tuesday Briefing: E.U. Discusses Security and Ukraine**\
-`Plus, the jury’s out on meat alternatives.`\
-https://nytimes.com/2025/02/17/briefing/europe-ukraine-us-saudi-gaza-beijing-business.html
 
