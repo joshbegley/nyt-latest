@@ -1,3 +1,7 @@
+**Mandel: Big Ten, SEC leaders set to light college football aflame**\
+`Two ruling parties are controlling college football: the Big Ten and SEC. And they’re about to light the whole thing aflame.`\
+https://nytimes.com/athletic/6142361/2025/02/17/sec-big-ten-meetings-college-football-playoff-future/
+
 **Canada as the 51st State? In Electoral Terms, Trump’s Idea Favors Democrats.**\
 `Bringing Canada into the United States, however farcical the prospect may seem, would alter the political map in a way likely to cost Republicans.`\
 https://nytimes.com/2025/02/17/us/politics/canada-trump-51st-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142254/2025/02/17/red-sox-rafael-devers-designated
 **Daytona 500 takeaways: Superspeedway woes, NFL encroaches and Pitbull is out**\
 `The state of superspeedway racing was the big topic of the week at Daytona, but there were plenty of other discussions as well.`\
 https://nytimes.com/athletic/6142066/2025/02/17/daytona-500-takeaways-superspeedway-super-bowl-pitbull/
-
-**Scouting Cam Cannarella and the Shriners College Classic to kick off the 2025 MLB Draft season: Law**\
-`Several potential first-round picks competed in the Shriners College Classic, which served as a kick-off to our 2025 MLB Draft coverage.`\
-https://nytimes.com/athletic/6142163/2025/02/17/mlb-draft-2025-shriners-college-classic/
 
