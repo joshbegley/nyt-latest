@@ -1,3 +1,11 @@
+**College baseball week in review: Fast start for Stanford slugger Rintaro Sasaki**\
+`Duke stumbles at home. A big return for Ole Miss' ace. A (rare) fast start for Northwestern. A dominant outing from Jamie Arnold. `\
+https://nytimes.com/athletic/6141037/2025/02/17/college-baseball-week-rintaro-sasaki-texas-am-lsu/
+
+**Agent Orange Twisted Her Limbs. The U.S. Is Abandoning a Vow to Help.**\
+`Fifty years after the Vietnam War ended, President Trump’s gutting of foreign aid has halted American efforts to address its toxic legacy and build a strategic partnership.`\
+https://nytimes.com/2025/02/17/world/asia/trump-usaid-vietnam-agent-orange.html
+
 **Real Madrid meet with Spanish refereeing body over VAR audio from Espanyol match**\
 `VAR audio tapes from La Liga matches are available to all participating clubs but this was Madrid's first attendance at such a meeting.`\
 https://nytimes.com/athletic/6141391/2025/02/17/real-madrid-var-meeting/

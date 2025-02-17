@@ -1,3 +1,11 @@
+**College baseball week in review: Fast start for Stanford slugger Rintaro Sasaki**\
+`Duke stumbles at home. A big return for Ole Miss' ace. A (rare) fast start for Northwestern. A dominant outing from Jamie Arnold. `\
+https://nytimes.com/athletic/6141037/2025/02/17/college-baseball-week-rintaro-sasaki-texas-am-lsu/
+
+**Agent Orange Twisted Her Limbs. The U.S. Is Abandoning a Vow to Help.**\
+`Fifty years after the Vietnam War ended, President Trump’s gutting of foreign aid has halted American efforts to address its toxic legacy and build a strategic partnership.`\
+https://nytimes.com/2025/02/17/world/asia/trump-usaid-vietnam-agent-orange.html
+
 **Real Madrid meet with Spanish refereeing body over VAR audio from Espanyol match**\
 `VAR audio tapes from La Liga matches are available to all participating clubs but this was Madrid's first attendance at such a meeting.`\
 https://nytimes.com/athletic/6141391/2025/02/17/real-madrid-var-meeting/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/magazine/buprenorphine-addiction-treatment-takeaw
 **How does Iga Swiatek solve a problem like Jelena Ostapenko?**\
 `Swiatek has an equal-or-better record against every active WTA player... except Ostapenko, who she's never beaten in five attempts.`\
 https://nytimes.com/athletic/6140815/2025/02/17/iga-swiatek-jelena-ostapenko-head-to-head-matchup/
-
-**Giants are starting from an especially healthy place as spring camp fully opens**\
-`The Giants are not planning on slow-playing anyone this spring. They've got good news on Jung Hoo Lee, Jordan Hicks, Kyle Harrison and more.`\
-https://nytimes.com/athletic/6141138/2025/02/17/sf-giants-spring-training-injury-updates/
-
-**Padres 2025 roster projection 1.0: Who makes it to Opening Day?**\
-`Here's who you should expect to see on the active roster when the season starts on March 27.`\
-https://nytimes.com/athletic/6137456/2025/02/17/padres-opening-day-roster-projection-2025/
 
