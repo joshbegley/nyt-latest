@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6141464/2025/02/17/college-football-questions-mailbag-until-saturday-51/
+
 **Chloe Kelly added to England squad for Nations League fixtures**\
 `Arsenal's Beth Mead and Lotte Wubben-Moy have withdrawn due to injuries.`\
 https://nytimes.com/athletic/6141458/2025/02/17/chloe-kelly-england-squad/

@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6141464/2025/02/17/college-football-questions-mailbag-until-saturday-51/
+
 **Chloe Kelly added to England squad for Nations League fixtures**\
 `Arsenal's Beth Mead and Lotte Wubben-Moy have withdrawn due to injuries.`\
 https://nytimes.com/athletic/6141458/2025/02/17/chloe-kelly-england-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141437/2025/02/17/casemiro-manchester-united-contr
 **Cutting Red Tape**\
 `We’re covering a major policy challenge for Democrats.`\
 https://nytimes.com/2025/02/17/briefing/cutting-red-tape.html
-
-**Astros notes: The future at second base, Forrest Whitley's role and more**\
-`The Astros hope Brice Matthews can become an option at second base, and Lance McCullers Jr. gave his thoughts on a salary cap.`\
-https://nytimes.com/athletic/6140369/2025/02/17/astros-second-base-forrest-whitley/
 
