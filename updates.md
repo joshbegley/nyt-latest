@@ -1,3 +1,7 @@
+**Pete Alonso on reunion with Mets: ‘For me, this was it’**\
+`Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
+https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
+
 **LeBrun: A Canada-USA 4 Nations rematch had to happen — now here's what is at stake**\
 `Dominance for the Americans? Redemption for the Canadians? It's all on the line Thursday in the final.`\
 https://nytimes.com/athletic/6142448/2025/02/17/4-nations-usa-canada-final/
