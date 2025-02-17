@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-
 `Finland, in retrospect, started the wrong goalie in its 5-3 tournament-ending loss to Canada.`\
 https://nytimes.com/athletic/6142737/2025/02/17/finland-canada-saros-lankinen-4-nations-face-off/
 
-**Guardians to ink veteran lefty John Means to one-year deal (Source)**\
+**Guardians to ink veteran lefty John Means to 1-year deal: Source**\
 `Plus, Carlos Santana is feeling at home in Cleveland. Elsewhere, no longer a youngster, Steven Kwan is stepping into a veteran role. `\
 https://nytimes.com/athletic/6140576/2025/02/17/cleveland-guardians-john-means-deal-notebook/
 
