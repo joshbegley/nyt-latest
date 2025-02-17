@@ -1,3 +1,11 @@
+**Twins roster projection 2.0: After late moves, where things stand as spring training begins**\
+`After a late flurry of acquisitions, the Twins’ Opening Day roster is starting to round into form. How will it look on March 27?`\
+https://nytimes.com/athletic/6140374/2025/02/17/twins-roster-opening-day-spring-training/
+
+**When will Penguins be contenders again? Buyouts? Mailbag, part 2**\
+`A look at when we can expect the Penguins to be true contenders again, among many other topics such as buyouts, prospects and more.`\
+https://nytimes.com/athletic/6138098/2025/02/17/penguins-nhl-playoff-contenders-buyouts/
+
 **How the Senators became one of the NHL's best defensive teams**\
 `Ottawa hasn't had a top-10 defence since 2017, the last year it made the playoffs. Diving into the team's defensive improvements.`\
 https://nytimes.com/athletic/6099067/2025/02/17/senators-defence-nhl-sanderson-jensen-tkachuk/
