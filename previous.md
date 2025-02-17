@@ -1,3 +1,7 @@
+**Starmer Offers to Send U.K. Troops to Ukraine as Part of Peace Deal**\
+`Prime Minister Keir Starmer said for the first time on Sunday that he was “ready and willing” to deploy troops to help guarantee Ukraine’s security.`\
+https://nytimes.com/2025/02/16/world/europe/uk-keir-starmer-troops-ukraine.html
+
 **If Ludvig Åberg hadn't already arrived, he's officially taking over**\
 `Åberg overcame a three-shot deficit over six holes to steal a signature win at the Genesis Invitational and is hungry for the next one.`\
 https://nytimes.com/athletic/6140953/2025/02/16/ludvig-aberg-wins-genesis-invitational/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140792/2025/02/16/vanderbilt-mikayla-blakes-record
 **Niko Mikkola has quietly helped Finland survive on defense, but his biggest test awaits**\
 `Mikkola helped the Florida Panthers win a Stanley Cup last year, and now he's hoping to bring similar success to Team Finland.`\
 https://nytimes.com/athletic/6140845/2025/02/16/niko-mikkola-finland-4-nations-face-off/
-
-**LeBron James out for Sunday's All-Star tournament to rest nagging injuries**\
-`James' absence marks the end to a league record of 20 consecutive starts in the league’s annual midseason classic.`\
-https://nytimes.com/athletic/6140863/2025/02/16/nba-lebron-james-all-star-tournament/
 
