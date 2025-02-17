@@ -1,3 +1,11 @@
+**Pope to Stay in Hospital to Address ‘Complex’ Clinical Issue, Vatican Says**\
+`Pope Francis was admitted on Friday with a respiratory infection. The announcement on Monday did not provide further detail, but raised fresh concerns about the pontiff’s health.`\
+https://nytimes.com/2025/02/17/world/europe/pope-francis-hospital-clinical-issue.html
+
+**Agent Orange Twisted Her Limbs. The U.S. Is Abandoning a Vow to Help.**\
+`Fifty years after the Vietnam War ended, President Trump’s gutting of foreign aid has halted American efforts to address a toxic legacy and build a strategic partnership.`\
+https://nytimes.com/2025/02/17/world/asia/trump-usaid-vietnam-agent-orange.html
+
 **College baseball week in review: Fast start for Stanford slugger Rintaro Sasaki**\
 `Duke stumbles at home. A big return for Ole Miss' ace. A (rare) fast start for Northwestern. A dominant outing from Jamie Arnold. `\
 https://nytimes.com/athletic/6141037/2025/02/17/college-baseball-week-rintaro-sasaki-texas-am-lsu/
