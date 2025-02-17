@@ -1,3 +1,7 @@
+**Why the Yankees gave Jasson Domínguez a special locker inside their clubhouse**\
+`Expectations for Domínguez are high and the Yankees hope The Martian's locker is in the back right corner for the next decade-plus.`\
+https://nytimes.com/athletic/6142733/2025/02/17/yankees-jasson-dominguez-locker-aaron-judge/
+
 **Cade Cunningham makes his mark for Pistons with All-Star debut**\
 `Cunningham became the first Pistons player since 2019 to represent Detroit at the All-Star Game. `\
 https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star-game/

@@ -1,3 +1,7 @@
+**Why the Yankees gave Jasson Domínguez a special locker inside their clubhouse**\
+`Expectations for Domínguez are high and the Yankees hope The Martian's locker is in the back right corner for the next decade-plus.`\
+https://nytimes.com/athletic/6142733/2025/02/17/yankees-jasson-dominguez-locker-aaron-judge/
+
 **Cade Cunningham makes his mark for Pistons with All-Star debut**\
 `Cunningham became the first Pistons player since 2019 to represent Detroit at the All-Star Game. `\
 https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/nyregion/adrienne-adams-mayor-resign.html
 **Chelsea agree to loan Washington to Santos**\
 `Meanwhile, Kendry Paez has arrived at Chelsea’s training base to start a period of acclimatising to European football.`\
 https://nytimes.com/athletic/6142173/2025/02/17/chelsea-deivid-washington-santos-loan/
-
-**With Mark Kotsay extension, Athletics seize a rare chance at stability**\
-`“It was clear that even in the toughest of seasons, which we've had, being able to see how Mark handled it,” A’s owner John Fisher said.`\
-https://nytimes.com/athletic/6142500/2025/02/17/mark-kotsay-extension-athletics-las-vegas/
 
