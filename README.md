@@ -1,3 +1,19 @@
+**Musk Team Seeks Access to I.R.S. System With Taxpayers’ Records**\
+`A White House spokesman said that the initiative called the Department of Government Efficiency needed to review data to fix waste within the agency.`\
+https://nytimes.com/2025/02/17/business/musk-irs-doge.html
+
+**Beto: Everton's latest cult hero is channeling his inner LeBron James**\
+`Beto is a striker transformed in recent weeks - and he is loving every second of the Everton adulation coming his way`\
+https://nytimes.com/athletic/6139093/2025/02/17/beto-everton-cult-hero-lebron-james-silencer/
+
+**Aston Villa's need to win. Now**\
+`After the arrivals of Rashford, Asensio and Disasi in January there is pressure on Villa to sustain Emery's progress - and their finances`\
+https://nytimes.com/athletic/6138727/2025/02/17/aston-villas-need-to-win-unai-emery/
+
+**Perfect timing, scanning and positioning - how Merino's centre-forward cameo swung the game**\
+`Analysing the Spaniard's superb performance off the bench against Leicester as a makeshift attacker for Mikel Arteta's injury-hit side`\
+https://nytimes.com/athletic/6139804/2025/02/17/merino-centre-forward-arsenal/
+
 **Leicester fans called for change off the pitch - but there was a familiar story to endure on it**\
 `Recrimination gave way to resignation at the King Power Stadium as Ruud van Nistelrooy's side succumbed late and in familiar fashion`\
 https://nytimes.com/athletic/6139613/2025/02/17/leicester-reset-supporters-rudkin-arsenal/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6137534/2025/02/17/leeds-united-supporters-atmosphe
 **Wolves showed in 45 minutes at Anfield why they can stay in the Premier League**\
 `The second half of Sunday's loss to Liverpool was Wolves' best display yet under Vitor Pereira and can be a blueprint for their survival bid`\
 https://nytimes.com/athletic/6140201/2025/02/17/wolves-45-minutes-stay-in-premier-league/
-
-**Manchester City hammering Newcastle rebuilt something nostalgic at the Etihad: Hope**\
-`City's 4-0 triumph on Saturday was the perfect tonic ahead of a decisive Champions League game away to Real Madrid`\
-https://nytimes.com/athletic/6138603/2025/02/17/manchester-city-newcastle-champions-league/
-
-**How Newcastle's man-for-man press was undone by bounce passes and long balls**\
-`Eddie Howe bemoaned that his side were 'off on our duels' as they came spectacularly unstuck at Manchester City`\
-https://nytimes.com/athletic/6139149/2025/02/17/manchester-city-newcastle-long-ederson-tactics/
-
-**The Briefing: Should Amorim be doing better, sad Sterling - and why neurotic title races are fun**\
-`Our weekly look at the Premier League weekend action, featuring more Man Utd struggles, a star in decline and jumpy Liverpool`\
-https://nytimes.com/athletic/6140478/2025/02/17/ruben-amorim-manchester-united-results/
-
-**Liverpool need to calm down**\
-`Nerves were everywhere against Wolves at Anfield on Sunday - Arne Slot's side need to chill out and enjoy being title front-runners`\
-https://nytimes.com/athletic/6140166/2025/02/17/liverpool-premier-league-title-calm/
 
