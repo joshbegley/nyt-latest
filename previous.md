@@ -1,3 +1,7 @@
+**Cade Cunningham makes his mark for Pistons with All-Star debut**\
+`Cunningham became the first Pistons player since 2019 to represent Detroit at the All-Star Game. `\
+https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star-game/
+
 **Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
 `In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
 https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142173/2025/02/17/chelsea-deivid-washington-santos
 **With Mark Kotsay extension, Athletics seize a rare chance at stability**\
 `“It was clear that even in the toughest of seasons, which we've had, being able to see how Mark handled it,” A’s owner John Fisher said.`\
 https://nytimes.com/athletic/6142500/2025/02/17/mark-kotsay-extension-athletics-las-vegas/
-
-**Giants notes: Tyler Rogers searching for a new catch partner**\
-`Plus: Justin Verlander and Willy Adames are already taking on leadership roles with their new team.`\
-https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-notes/
 

@@ -1,3 +1,7 @@
+**Cade Cunningham makes his mark for Pistons with All-Star debut**\
+`Cunningham became the first Pistons player since 2019 to represent Detroit at the All-Star Game. `\
+https://nytimes.com/athletic/6142209/2025/02/17/pistons-cade-cunningham-all-star-game/
+
 **Paquita la del Barrio, Whose Songs Empowered Women, Dies at 77**\
 `In unflinching ballads that spoke of the pain men can cause women, the Mexican singer often relied on what she learned in her own relationships.`\
 https://nytimes.com/2025/02/17/arts/music/paquita-la-del-barrio-dead.html
