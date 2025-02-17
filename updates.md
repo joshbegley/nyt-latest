@@ -1,3 +1,7 @@
+**Ed Martin, Trump Loyalist, Is Nominated as U.S. Attorney in Washington**\
+`The nomination of Mr. Martin, who stood in the crowd outside the Capitol on Jan. 6, is a full reversal for an office that formed the core of one of the Justice Department’s most complex investigations.`\
+https://nytimes.com/2025/02/17/us/politics/ed-martin-us-attorney-washington.html
+
 **The Windup: Ohtani returns to the mound**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6141790/2025/02/17/shohei-ohtani-pitching-the-windup/
