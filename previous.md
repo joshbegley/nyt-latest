@@ -1,3 +1,7 @@
+**Jaguars QB Trevor Lawrence shoots down Steelers trade rumor**\
+`The Jacksonville quarterback is excited about what first-year head coach Liam Coen brings to the team. `\
+https://nytimes.com/athletic/6142340/2025/02/17/jaguars-trevor-lawrence-steelers-trade-rumor/
+
 **Jose Altuve's new position prompts his same selflessness: ‘I think that's honorable’**\
 `On Monday, Altuve tracked fly balls from a fungo bat, caught popups over his shoulder and practiced his first step. `\
 https://nytimes.com/athletic/6142412/2025/02/17/houston-astros-jose-altuve-position-swap/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/17/nyregion/govuscourtsnysd6289161240.ht
 **Pete Alonso on reunion with Mets: ‘For me, this was it’**\
 `Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
 https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
-
-**AP men’s basketball Top 25: Auburn's win over Alabama keeps Tigers on top**\
-`Auburn is still No. 1 after beating rival Alabama, receiving 59 of 60 first-place votes this week.`\
-https://nytimes.com/athletic/6142358/2025/02/17/ap-mens-basketball-top-25-auburn-wisconsin-michigan/
 

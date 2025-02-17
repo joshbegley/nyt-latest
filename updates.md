@@ -1,3 +1,7 @@
+**Jaguars QB Trevor Lawrence shoots down Steelers trade rumor**\
+`The Jacksonville quarterback is excited about what first-year head coach Liam Coen brings to the team. `\
+https://nytimes.com/athletic/6142340/2025/02/17/jaguars-trevor-lawrence-steelers-trade-rumor/
+
 **Delta Plane Overturns at Toronto Airport While Landing**\
 `The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for.`\
 https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
