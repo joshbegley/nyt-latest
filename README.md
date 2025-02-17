@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6140319/2025/02/17/tyler-herro-nba-all-star-game-mi
 `Norms recognized for decades in Washington by both parties no longer appear to apply to the Trump White House, former prosecutors and ethics lawyers say.`\
 https://nytimes.com/2025/02/17/us/politics/trump-ethics-conflicts-business-adams.html
 
+**USMNT Player Tracker: Captain McKennie, scoring Sargent and Sands misfortune**\
+`Our weekly roundup of the Europe-based U.S. contingent's weekend contributions also includes Daryl Dike's West Bromwich Albion return`\
+https://nytimes.com/athletic/6141283/2025/02/17/usmnt-mckennie-juventus-sargent-sands-tracker/
+
 **Messi 'will play' as Miami prepares for sub-zero match in K.C.**\
 `Sub-zero wind chill and snow should make for treacherous conditions as Inter Miami and Sporting KC meet in the Concacaf Champions Cup.`\
 https://nytimes.com/athletic/6141930/2025/02/17/messi-status-miami-concacaf-champions-cup-kc-cold-weather/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141540/2025/02/17/jude-bellingham-red-card-swearin
 **The Land Ukraine Could Be Forced to Give Up to End the War**\
 `President Trump has promised to bring a quick end to the war in Ukraine, suggesting that Russia could keep at least some of the Ukrainian territory it had captured.`\
 https://nytimes.com/video/world/europe/100000009988658/ukraine-war-peace-talks-land.html
-
-**Arsenal fined £65k over players' reaction to Lewis-Skelly red card at Wolves**\
-`The full-back was shown a straight red card for ‘serious foul play’ by referee Michael Oliver in the 43rd minute of the game on January 25.`\
-https://nytimes.com/athletic/6141924/2025/02/17/arsenal-players-referee-wolves-fined/
 
