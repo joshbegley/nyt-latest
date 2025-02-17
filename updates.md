@@ -1,3 +1,7 @@
+**Delta Plane Overturns at Toronto Airport While Landing**\
+`The airport said on social media that emergency teams were responding and that all passengers and crew were accounted for.`\
+https://nytimes.com/2025/02/17/world/canada/delta-toronto-plane-crash.html
+
 **Jose Altuve's new position prompts his same selflessness: ‘I think that's honorable’**\
 `On Monday, Altuve tracked fly balls from a fungo bat, caught popups over his shoulder and practiced his first step. `\
 https://nytimes.com/athletic/6142412/2025/02/17/houston-astros-jose-altuve-position-swap/
