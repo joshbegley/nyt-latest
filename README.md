@@ -1,3 +1,15 @@
+**The Briefing: How does Iga Swiatek solve a problem like Jelena Ostapenko?**\
+`Swiatek has an equal-or-better record against every active WTA player... except Ostapenko, who she's never beaten in five attempts.`\
+https://nytimes.com/athletic/6140815/2025/02/17/iga-swiatek-jelena-ostapenko-head-to-head-matchup/
+
+**Giants are starting from an especially healthy place as spring camp fully opens**\
+`The Giants are not planning on slow-playing anyone this spring. They've got good news on Jung Hoo Lee, Jordan Hicks, Kyle Harrison and more.`\
+https://nytimes.com/athletic/6141138/2025/02/17/sf-giants-spring-training-injury-updates/
+
+**Padres 2025 roster projection 1.0: Who makes it to Opening Day?**\
+`Here's who you should expect to see on the active roster when the season starts on March 27.`\
+https://nytimes.com/athletic/6137456/2025/02/17/padres-opening-day-roster-projection-2025/
+
 **Fantasy Premier League: What we have learned from Gameweek 25 - Nwaneri's value and City options**\
 `Abdul Rehman analyses the main talking points from the weekend and the best strategies for Double Gameweek 32`\
 https://nytimes.com/athletic/6140580/2025/02/17/fantasy-premier-league-gameweek-25-nwaneri/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6140292/2025/02/17/oilers-2025-free-agents/
 **Why Florian Wirtz is the world's best player at finding space between the lines**\
 `Not since the rise of Mesut Ozil has European football witnessed a No 10 so intelligent and selfless with his movement as Leverkusen's Wirtz`\
 https://nytimes.com/athletic/6139642/2025/02/17/wirtz-bayer-leverkusen-bayern-munich-analysis/
-
-**As Justin Tucker faces allegations of sexual misconduct, how NFL, Ravens might react**\
-`Sixteen massage therapists have alleged improper sexual conduct by the Ravens kicker. What are the team's and NFL's options at this point?`\
-https://nytimes.com/athletic/6134402/2025/02/17/justin-tucker-sexual-misconduct-allegations-whats-next-nfl/
-
-**Will Sean Payton once again tap Saints pipeline to fill Broncos' roster needs?**\
-`Denver has labeled tight end and linebacker as top offseason priorities. A few of Payton's former players could be reunion candidates.`\
-https://nytimes.com/athletic/6132158/2025/02/17/sean-payton-broncos-saints-pipeline/
-
-**Oilers player poll: Gym rats, restaurant recommendations, best chirps and more**\
-`You know what the Oilers can do on the ice, but how much do you know about the players away from game action?`\
-https://nytimes.com/athletic/6125592/2025/02/17/edmonton-oilers-player-poll-2025/
 
