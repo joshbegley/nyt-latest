@@ -1,3 +1,7 @@
+**NBA Rewind: NBA Rewind: Early reviews of All-Star format: 'This is so unfair to Victor Wembanyama'**\
+`The NBA debuted a new All-Star format over the weekend. After early reviews, is it here to stay?`\
+https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembanyama-steph-curry-lebron-james/
+
 **DAZN: Saudi Arabian investment firm buys minority stake in sports broadcaster**\
 `In October, a PIF spokesperson said it had “no current plans to invest" in DAZN, which has bought the rights to FIFA's Club World Cup.`\
 https://nytimes.com/athletic/6141769/2025/02/17/dazn-investment-pif-surj/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141790/2025/02/17/shohei-ohtani-pitching-the-windu
 **Israel Says It Will Keep Troops ‘Temporarily’ in 5 Points in Lebanon**\
 `The announcement raised the specter of renewed fighting in southern Lebanon between Israel and Hezbollah, the Lebanese militia.`\
 https://nytimes.com/2025/02/17/world/israel-lebanon-troops-remain.html
-
-**$4,400 Rentals in Los Angeles**\
-`A Craftsman house near Culver City, a 1970s condo in West Hollywood and a 1920s bungalow in Hollywood.`\
-https://nytimes.com/2025/02/17/realestate/4400-dollar-rentals-in-los-angeles.html
 

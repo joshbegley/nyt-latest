@@ -1,3 +1,7 @@
+**NBA Rewind: NBA Rewind: Early reviews of All-Star format: 'This is so unfair to Victor Wembanyama'**\
+`The NBA debuted a new All-Star format over the weekend. After early reviews, is it here to stay?`\
+https://nytimes.com/athletic/6141353/2025/02/17/nba-all-star-game-victor-wembanyama-steph-curry-lebron-james/
+
 **DAZN: Saudi Arabian investment firm buys minority stake in sports broadcaster**\
 `In October, a PIF spokesperson said it had “no current plans to invest" in DAZN, which has bought the rights to FIFA's Club World Cup.`\
 https://nytimes.com/athletic/6141769/2025/02/17/dazn-investment-pif-surj/
