@@ -1,3 +1,15 @@
+**Liverpool need to calm down**\
+`Nerves were everywhere against Wolves at Anfield on Sunday - Arne Slot's side need to chill out and enjoy being title front-runners`\
+https://nytimes.com/athletic/6140166/2025/02/17/liverpool-premier-league-title-calm/
+
+**A hardcore of Tottenham's fanbase is in open revolt, but is this really a turning point?**\
+`Fans marched together in protest to Spurs' game against Manchester United but affecting change in the ownership may be easier said than done`\
+https://nytimes.com/athletic/6126774/2025/02/17/tottenham-levy-enic-mutiny-protest/
+
+**F1 75 Live explained: Format, TV schedule, how drivers feel and more**\
+`F1 is gathering all 10 teams to celebrate 75 years and launch the season at The O2. Here’s all you need to know about the event`\
+https://nytimes.com/athletic/6137502/2025/02/17/f1-75-live-anniversary-o2-how-to-watch/
+
 **'Respect the badge': Welcome to one of football's daftest new traditions**\
 `Real Madrid's players made a point to not step on Manchester City's badge at the Etihad stadium last week - so what was that all about?`\
 https://nytimes.com/athletic/6136761/2025/02/17/badge-walking-real-madrid-city-ferdinand/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000009994909/winter-storm-south-flood.html
 **Draymond Green hates the NBA All-Star Game format. What do you think?**\
 `The NBA once again attempted to inject life into the All-Star Game with a radical overhaul of its format.`\
 https://nytimes.com/athletic/6141086/2025/02/16/nba-all-star-game-format-draymond-green/
-
-**William Byron avoids final-lap crash to take Daytona 500**\
-`The Hendrick Motorsports driver became the first to win consecutive 500s since Denny Hamlin did it in 2019-20`\
-https://nytimes.com/athletic/6140825/2025/02/16/william-byron-daytona-500-crashes/
-
-**‘The White Lotus’ Season 3 Premiere Recap: Thai Up**\
-`The premiere of the new season of the HBO anthology drama, set in Thailand, suggests that Mike White’s formula retains plenty of pop.`\
-https://nytimes.com/2025/02/16/arts/television/the-white-lotus-season-3-premiere-recap.html
-
-**Starmer Offers to Send U.K. Troops to Ukraine as Part of Peace Deal**\
-`Prime Minister Keir Starmer said for the first time on Sunday that he was “ready and willing” to deploy troops to help guarantee Ukraine’s security.`\
-https://nytimes.com/2025/02/16/world/europe/uk-keir-starmer-troops-ukraine.html
 
