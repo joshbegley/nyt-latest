@@ -1,3 +1,7 @@
+**The New York Times Wins 3 Polk Awards**\
+`The Times was honored for an investigation into extremism in Israel, coverage of the civil war in Sudan and a narrative about a Russian soldier who defected from the war in Ukraine.`\
+https://nytimes.com/2025/02/17/business/media/polk-award-winners.html
+
 **California’s Push for Electric Trucks Sputters Under Trump**\
 `The state will no longer require some truckers to shift away from diesel semis but hopes that subsidies can keep dreams of pollution-free big rigs alive.`\
 https://nytimes.com/2025/02/17/business/energy-environment/electric-trucks-california-trump.html
