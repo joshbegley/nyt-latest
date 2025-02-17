@@ -1,3 +1,11 @@
+**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal**\
+`Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
+https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
+
+**Tigers' Colt Keith has a new position and high expectations in Year 2**\
+`Keith's winter was full of changes: marriage, a new truck, a new position and altered swing mechanics.`\
+https://nytimes.com/athletic/6140413/2025/02/17/tigers-colt-keith-first-base-expectations/
+
 **Reds notes: 'Hope' is that Matt McLain plays one spot — second base**\
 `While McLain won't move much if at all, there's a big group playing at third base this spring, including Gavin Lux.`\
 https://nytimes.com/athletic/6140744/2025/02/17/reds-matt-mclain-second-base/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/opinion/refugees-executive-orders-trump.html
 **How a Runaway Dog Became a Hero for New Orleans**\
 `For months, Scrim ran wild around the city, eluding capture and developing a giant fan base. His saga has inspired tattoos, murals and Mardi Gras floats.`\
 https://nytimes.com/2025/02/17/us/runaway-dog-scrim-new-orleans-hero.html
-
-**Trump’s First Four Weeks Felt Like Four Years**\
-`The problem is that if we have another three years and 11 months of this, there won’t be a rule of law left in the United States.`\
-https://nytimes.com/2025/02/17/opinion/trump-doge-republicans-democrats.html
-
-**Democrats Fear They Are Missing the Moment to Remake the Party**\
-`As President Trump steamrolls over their priorities, Democrats say they could miss the opportunity to learn lessons from their defeat and undertake needed reform.`\
-https://nytimes.com/2025/02/17/us/politics/democrats-trump-future.html
 
