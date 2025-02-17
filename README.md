@@ -18,9 +18,9 @@ https://nytimes.com/athletic/6140903/2025/02/17/nba-all-star-improvements-money/
 `A reboot of the popular law series airs on NBC. And the second season of the “Yellowstone” prequel “1923” returns to Paramount+.`\
 https://nytimes.com/2025/02/17/arts/television/suits-la-what-to-watch-this-week.html
 
-**Some Trumpian Realpolitik Is Needed With Afghanistan**\
+**The U.S. Can No Longer Ignore the Threat Arising in Afghanistan**\
 `Engaging directly with the Taliban may be the only way to protect Americans from the jihadist threat that stirs once again in Afghanistan.`\
-https://nytimes.com/2025/02/17/opinion/some-trumpian-realpolitik-is-needed-with-afghanistan.html
+https://nytimes.com/2025/02/17/opinion/trump-afghanistan.html
 
 **What's happening with Nottingham Forest's stadium redevelopment plans?**\
 `Progress has been slow but is happening — the question now is how ambitious do Forest want to be about their new home?`\
