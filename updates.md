@@ -1,3 +1,11 @@
+**Raiders, assistant GM Champ Kelly agree to part ways: Sources**\
+`Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
+https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
+
+**Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
+`Protesters opposing broad swaths of President Trump’s agenda took the streets across the country, including outside the U.S. Capitol.`\
+https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html
+
 **Raiders part ways with assistant GM Champ Kelly: Sources**\
 `Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
 https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
