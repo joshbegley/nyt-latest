@@ -1,3 +1,11 @@
+**How Can It End? A Step-by-Step Guide to a Possible Ukraine Deal**\
+`Balancing Ukraine’s sovereignty with Russia’s demand for its own “security guarantees” promises to be the hardest part of any negotiation. But experts see possible compromises.`\
+https://nytimes.com/2025/02/17/world/europe/russia-ukraine-peace-explained.html
+
+**Tigers' Colt Keith has a new position and high expectations in Year 2**\
+`Keith's winter was full of changes: marriage, a new truck, a new position and altered swing mechanics.`\
+https://nytimes.com/athletic/6140413/2025/02/17/tigers-colt-keith-first-base-expectations/
+
 **Reds notes: 'Hope' is that Matt McLain plays one spot — second base**\
 `While McLain won't move much if at all, there's a big group playing at third base this spring, including Gavin Lux.`\
 https://nytimes.com/athletic/6140744/2025/02/17/reds-matt-mclain-second-base/
