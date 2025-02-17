@@ -1,3 +1,7 @@
+**'Let's go make the country proud': Still-improving Canada rises to meet 4 Nations pressure**\
+`Canada is one step away from extending its dominance in best-on-best hockey play.`\
+https://nytimes.com/athletic/6142441/2025/02/17/canada-4-nations-usa-final/
+
 **Pete Alonso on reunion with Mets: ‘For me, this was it’**\
 `Alonso, 30, has spent his entire professional career with the Mets organization and ranks third for the franchise with 226 home runs.`\
 https://nytimes.com/athletic/6142145/2025/02/17/new-york-mets-pete-alonso-press-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141240/2025/02/17/sf-giants-tyler-rogers-spring-no
 **Killing of Transgender Man Is Not Ruled a Hate Crime, Investigators Say**\
 `Law enforcement officials in upstate New York say that the torture and killing of Sam Norquist, 24, did not appear to be a hate crime.`\
 https://nytimes.com/2025/02/17/nyregion/sam-norquist-killing-transgender-hate-crime.html
-
-**4 Nations takeaways: How Canada beat Finland to reach the final vs. USA**\
-`Canada took a 4-0 lead, then held on to beat Finland.`\
-https://nytimes.com/athletic/6142415/2025/02/17/4-nations-canada-finland-takeaways/
 
