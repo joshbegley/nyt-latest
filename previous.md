@@ -1,3 +1,7 @@
+**Draymond Green hates the NBA All-Star Game format. What do you think?**\
+`The NBA once again attempted to inject life into the All-Star Game with a radical overhaul of its format.`\
+https://nytimes.com/athletic/6141086/2025/02/16/nba-all-star-game-format-draymond-green/
+
 **William Byron avoids final-lap crash to take Daytona 500**\
 `The Hendrick Motorsports driver became the first to win consecutive 500s since Denny Hamlin did it in 2019-20`\
 https://nytimes.com/athletic/6140825/2025/02/16/william-byron-daytona-500-crashes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach
 **Trump Fired, Then Unfired, National Nuclear Security Administration Employees. What Were Their Jobs?**\
 `The administration asked some of the agency’s workers, who were part of last week’s massive layoffs across the federal government, to come back.`\
 https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-administration-employees-firings.html
-
-**U.S.-Canada hockey game draws whopping 4.4 million viewers**\
-`Heated 4 Nations Face-Off contest between rivals drew a hockey audience not seen since Game 7 of the Stanley Cup Final last year.`\
-https://nytimes.com/athletic/6140877/2025/02/16/u-s-canada-hockey-game-draws-huge-audience/
 
