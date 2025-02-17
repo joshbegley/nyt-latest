@@ -1,6 +1,10 @@
+**Mavs assistant Darrell Armstrong charged with aggravated assault with weapon**\
+`Armstrong allegedly hit a woman with a gun and threatened to shoot her, the Dallas Police Department told WFAA.`\
+https://nytimes.com/athletic/6140533/2025/02/16/dallas-mavericks-assistant-coach-arrested-darrell-armstrong/
+
 **Trump Fired, Then Unfired, National Nuclear Security Administration Employees. What Were Their Jobs?**\
 `The administration asked some of the agency’s workers, who were part of last week’s massive layoffs across the federal government, to come back.`\
-https://nytimes.com/2025/02/16/us/politics/trump-fired-then-unfired-national-nuclear-security-administration-employees-what-were-their-jobs.html
+https://nytimes.com/2025/02/16/us/politics/trump-national-nuclear-security-administration-employees-firings.html
 
 **U.S.-Canada hockey game draws whopping 4.4 million viewers**\
 `Heated 4 Nations Face-Off contest between rivals drew a hockey audience not seen since Game 7 of the Stanley Cup Final last year.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6140703/2025/02/16/creighton-survives-ryan-kalkbren
 **Why Canada should make a change in goal for matchup with Finland**\
 `Canada needs a regulation win, and Jordan Binnington has been allowing freebies while playing behind a largely airtight Canadian defense.`\
 https://nytimes.com/athletic/6140423/2025/02/16/canada-4-nations-face-off-goalie-binnington/
-
-**UConn finally jelled to upset South Carolina and put women's college basketball on alert**\
-`Paige Bueckers and Azzi Fudd combined for 40 points and their best game together.`\
-https://nytimes.com/athletic/6140706/2025/02/16/uconn-south-carolina-upset-womens-college-basketball/
 
