@@ -1,3 +1,11 @@
+**Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
+`Aaron Judge and Juan Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
+https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
+
+**From conflicted to assured, Canadian Rangers have varying allegiances in 4 Nations final**\
+`The Rangers have four players on Team USA, but none on Team Canada.`\
+https://nytimes.com/athletic/6144932/2025/02/18/rangers-4-nations-face-off-final-canada/
+
 **170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
 `Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
 https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/02/18/climate/landslides-california-storm-m
 **Trump May Name a Woman He Once Pardoned to Be His ‘Pardon Czar’**\
 `Alice Marie Johnson was serving a life sentence for a nonviolent drug conviction when the president commuted her sentence in 2018. Since then, she has become a criminal justice reform activist.`\
 https://nytimes.com/2025/02/18/us/politics/trump-pardon-czar.html
-
-**What to watch in the NBA this week: Knicks-Celts, Lakers-Nuggets highlight loaded week**\
-`The NBA is back from its All-Star hiatus with a loaded weekend. The Knicks, Celtics, Cavs and Timberwolves each get two national TV games.`\
-https://nytimes.com/athletic/6144350/2025/02/18/nba-what-to-watch-lakers-nuggets-knicks-celtics/
-
-**Kansas Lawmakers Override Veto of Ban on Transition Care for Minors**\
-`Gov. Laura Kelly, a Democrat, had vetoed the bill, but the Republican-controlled Legislature overwhelmingly supported it, following the lead of other conservative states.`\
-https://nytimes.com/2025/02/18/us/kansas-transgender-law.html
 
