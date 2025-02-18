@@ -1,3 +1,7 @@
+**Who's on third continues to dominate Red Sox camp as Bregman, Casas weigh in**\
+`Alex Bregman says he's willing to play anywhere. Triston Casas thinks Bregman would fit best at second base. Plus, other news and notes.`\
+https://nytimes.com/athletic/6144984/2025/02/18/red-sox-third-base-alex-bregman-rafael-devers/
+
 **5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
 `Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
 https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html

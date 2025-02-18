@@ -1,3 +1,7 @@
+**Who's on third continues to dominate Red Sox camp as Bregman, Casas weigh in**\
+`Alex Bregman says he's willing to play anywhere. Triston Casas thinks Bregman would fit best at second base. Plus, other news and notes.`\
+https://nytimes.com/athletic/6144984/2025/02/18/red-sox-third-base-alex-bregman-rafael-devers/
+
 **5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
 `Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
 https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
 **Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
 `Fiercely independent, she publicly discussed the long-term effects of gun violence and spoke of forgiveness.`\
 https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.html
-
-**Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
-`Judge and Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
-https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
 
