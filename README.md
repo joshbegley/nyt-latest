@@ -1,3 +1,15 @@
+**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
+`Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
+
+**Chip Kelly's Raiders offense will look different from those of his previous NFL stints**\
+`Las Vegas' new offensive coordinator wouldn’t be back in the NFL if he didn’t adapt as the sport has continued to evolve.`\
+https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-state/
+
+**Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
+`The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
+https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
+
 **EFL assistant referee Gareth Viccars charged with child sex offence**\
 `The 46-year-old has been remanded in custody after appearing at Willesden Magistrates' Court on February 7.`\
 https://nytimes.com/athletic/6142610/2025/02/18/gareth-viccars-child-sex-offence/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/02/18/briefing/a-disagreement-on-tariffs.html
 `The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
 
-**Pope Francis Will Miss Scheduled Events Because of Poor Health**\
-`The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a Mass on Sunday.`\
+**Pope Francis Will Miss Mass on Sunday Because of Poor Health**\
+`The Vatican said the pontiff, who is in the hospital with a “respiratory tract infection,” was resting and had eaten breakfast and read newspapers “as he usually does.”`\
 https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
-
-**Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
-`Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
-https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/
-
-**Red Wings player poll: Best coach and GM? Worst card player?**\
-`Red Wings players assess — and roast — teammates on prompts ranging from the best/worst dressed to who is/isn't fit to be an NHL GM.`\
-https://nytimes.com/athletic/6122736/2025/02/18/red-wings-player-poll/
-
-**Q&A: Stephanie White on handling Caitlin Clark mania, broadcasting and the Fever**\
-`White on Indiana: "Do I think we can be title contenders? Absolutely."`\
-https://nytimes.com/athletic/6135856/2025/02/18/stephanie-white-caitlin-clark-indiana-fever/
 
