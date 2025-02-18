@@ -1,3 +1,7 @@
+**Judge in Adams Case Faces a Flood of Demands to Continue the Prosecution**\
+`As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
+https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
+
 **Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot: Source**\
 `Gurriel could help fill the DH spot.`\
 https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6142892/2025/02/17/submit-a-question-for-stewart-ma
 **An Invisible Medical Shortage: Oxygen**\
 `Oxygen is vital to many medical procedures. But a safe, affordable supply is severely lacking around the world, according to a new report.`\
 https://nytimes.com/2025/02/17/health/medical-oxygen-shortage.html
-
-**Who Are the 4 Key Officials Leaving City Hall?**\
-`Four deputy mayors in the Eric Adams administration — all respected veteran public servants — are resigning.`\
-https://nytimes.com/2025/02/17/nyregion/new-york-deputy-mayors-resignations.html
 

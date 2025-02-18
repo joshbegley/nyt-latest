@@ -1,3 +1,7 @@
+**Judge in Adams Case Faces a Flood of Demands to Continue the Prosecution**\
+`As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
+https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
+
 **Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot: Source**\
 `Gurriel could help fill the DH spot.`\
 https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
