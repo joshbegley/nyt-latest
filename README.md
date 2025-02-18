@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
 
 **Pope Francis Will Miss Scheduled Events Because of Poor Health**\
-`The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a mass on Sunday.`\
+`The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a Mass on Sunday.`\
 https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
 
 **Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
