@@ -1,3 +1,15 @@
+**Webster on Hurzeler, England and injuries: 'That was a real low. It felt like deja vu'**\
+`Following a three-month injury layoff, the defender is rebuilding under his third manager since joining Brighton in 2019`\
+https://nytimes.com/athletic/6139767/2025/02/18/adam-webster-hurzeler-england-injuries/
+
+**Inside Newcastle Q&A: Why the collective collapse? Miley over Longstaff? Has the club stopped communicating?**\
+`Chris Waugh answers subscribers' questions on the PSR plan for summer, where Newcastle could finish, and the Isak rumour in Spain`\
+https://nytimes.com/athletic/6141345/2025/02/18/inside-newcastle-qa-miley-longstaff-isak-eales/
+
+**Mason Melia: The Irish striker Spurs have signed but who can't play until 2026**\
+`How the 17-year-old became a target for Europe's elite clubs`\
+https://nytimes.com/athletic/6136341/2025/02/18/mason-melia-tottenham-ireland/
+
 **Kylian Mbappe's intimate relationship with speed - and why he was told to slow down**\
 `Speed has been a key part of Mbappe's game since he burst onto the scene as a teenager. It has been a vital part of his evolution too...`\
 https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-champions-league/
