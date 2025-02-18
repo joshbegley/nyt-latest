@@ -1,3 +1,7 @@
+**Brazil Charges Bolsonaro With Attempting a Coup**\
+`Brazil’s attorney general charged the former president Jair Bolsonaro with trying to overturn the 2022 elections.`\
+https://nytimes.com/2025/02/18/world/americas/brazil-charges-bolsonaro-with-attempting-a-coup.html
+
 **Pope Francis Has Bilateral Pneumonia**\
 `The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
 https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red
 **Patel clears a procedural hurdle in the Senate, putting him steps closer to a floor vote.**\
 `By Glenn Thrush and Devlin Barrett`\
 https://nytimes.com/live/2025/02/18/us/trump-news/patel-clears-a-procedural-hurdle-in-the-senate-putting-him-steps-closer-to-a-floor-vote
-
-**A judge reinstates a member of a federal disciplinary review board who was fired.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-reinstates-a-member-of-a-federal-disciplinary-review-board-who-was-fired
 

@@ -1,3 +1,7 @@
+**Brazil Charges Bolsonaro With Attempting a Coup**\
+`Brazil’s attorney general charged the former president Jair Bolsonaro with trying to overturn the 2022 elections.`\
+https://nytimes.com/2025/02/18/world/americas/brazil-charges-bolsonaro-with-attempting-a-coup.html
+
 **Pope Francis Has Bilateral Pneumonia**\
 `The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
 https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
