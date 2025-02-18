@@ -1,3 +1,15 @@
+**5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
+`Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
+https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
+
+**Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
+`In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
+https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
+
+**Can This Fish Make You Cry?**\
+`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for intense emotions.`\
+https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
+
 **Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
 `The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
 https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
