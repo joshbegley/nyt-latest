@@ -1,3 +1,11 @@
+**Champions League betting preview: the best markets for Tuesday's action**\
+`Brett Koremenos breaks down the best betting markets around this Tuesday Champions League knockout second-leg clashes.`\
+https://nytimes.com/athletic/6143288/2025/02/18/tuesday-champions-league-betting-preview-predictions-odds/
+
+**Mets' Nick Madrigal has big shoes to fill after last year's utility man hit a high note**\
+`Team officials told Madrigal he doesn’t have to be everything Jose Iglesias was to the Mets in order to win the job.`\
+https://nytimes.com/athletic/6143022/2025/02/18/mets-nick-madrigal-has-big-shoes-to-fill-after-last-years-utility-man-hit-a-high-note/
+
 **Large Fire Erupts at Industrial Complex in Pennsylvania, Closing Schools**\
 `The building was evacuated and nobody was injured, the police said, but heavy smoke and the possibility of burning chemicals led officials to close local schools.`\
 https://nytimes.com/2025/02/18/us/sps-technologies-fire-pennsylvania.html
