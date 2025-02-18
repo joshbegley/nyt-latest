@@ -1,3 +1,11 @@
+**Dickson Despommier, Who Championed Farming in Skyscrapers, Dies at 84**\
+`A microbiologist, he popularized “vertical farming” — raising crops in tall buildings — to remediate climate change and feed more people.`\
+https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
+
+**Can This Fish Make You Cry?**\
+`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for extreme emotions.`\
+https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
+
 **Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
 `Fiercely independent, she publicly discussed the long-term effects of gun violence and spoke of forgiveness.`\
 https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.html
