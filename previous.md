@@ -1,3 +1,15 @@
+**What to Know About Leonard Peltier, Activist Released From Prison by Biden**\
+`Mr. Peltier’s murder conviction and two life sentences, stemming from a 1975 shootout with F.B.I. agents on a reservation, have been widely criticized.`\
+https://nytimes.com/2025/02/18/us/leonard-peltier-prison-release-biden.html
+
+**Arsenal's Tomiyasu undergoes knee surgery; out for rest of 2024-25**\
+`The 26-year-old versatile defender last played for the club in October and has been beset by injury problems.`\
+https://nytimes.com/athletic/6129424/2025/02/18/takehiro-tomiyasu-injury-knee-surgery-arsenal/
+
+**Trump’s Cuts Could Make Parks and Forests More Dangerous, Employees Say**\
+`Thousands of employees who helped oversee vast areas of wilderness have lost their jobs in President Trump’s moves to shrink the federal work force.`\
+https://nytimes.com/2025/02/18/climate/trump-layoffs-park-and-forest-service-workers.html
+
 **Wednesday Briefing: U.S. and Russia Discuss Cooperation**\
 `Plus, the women leading R&B’s new wave.`\
 https://nytimes.com/2025/02/18/briefing/us-russia-hamas-hostages-migrants-panama.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/18/world/middleeast/ukraine-trump-russia-war-peace-t
 **‘Best Interests’ Is a Deeply Empathetic British Series**\
 `Starring Sharon Horgan and Michael Sheen, the four-part series, on Acorn TV, is a heartbreaking look at two parents in an impossible situation.`\
 https://nytimes.com/2025/02/18/arts/television/best-interests-acorn-tv.html
-
-**10-man Milan crash out of Champions League in knockout playoff**\
-`Feyenoord's 2-1 aggregate triumph over Milan spells the end of the 2024-25 Champions League for Christian Pulisic and Yunus Musah.`\
-https://nytimes.com/athletic/6144434/2025/02/18/feyenoord-ac-milan-champions-league-pulisic-musah-usmnt/
-
-**Arsenal's Lewis-Skelly shouldn't have been red carded at Wolves - Webb**\
-`The full-back, 18, was shown a straight red card for ‘serious foul play’ by referee Michael Oliver in the 43rd minute of the game in January`\
-https://nytimes.com/athletic/6144348/2025/02/18/myles-lewis-skelly-red-card-arsenal-webb/
-
-**Commanders add John Madden's grandson, Jesse Madden, to coaching staff**\
-`Washington also hired Brian Schneider as assistant special teams coordinator.`\
-https://nytimes.com/athletic/6144365/2025/02/18/commanders-john-madden-jesse-coaching/
 

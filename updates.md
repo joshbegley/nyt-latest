@@ -1,3 +1,15 @@
+**What to Know About Leonard Peltier, Activist Released From Prison by Biden**\
+`Mr. Peltier’s murder conviction and two life sentences, stemming from a 1975 shootout with F.B.I. agents on a reservation, have been widely criticized.`\
+https://nytimes.com/2025/02/18/us/leonard-peltier-prison-release-biden.html
+
+**Arsenal's Tomiyasu undergoes knee surgery; out for rest of 2024-25**\
+`The 26-year-old versatile defender last played for the club in October and has been beset by injury problems.`\
+https://nytimes.com/athletic/6129424/2025/02/18/takehiro-tomiyasu-injury-knee-surgery-arsenal/
+
+**Trump’s Cuts Could Make Parks and Forests More Dangerous, Employees Say**\
+`Thousands of employees who helped oversee vast areas of wilderness have lost their jobs in President Trump’s moves to shrink the federal work force.`\
+https://nytimes.com/2025/02/18/climate/trump-layoffs-park-and-forest-service-workers.html
+
 **Wednesday Briefing: U.S. and Russia Discuss Cooperation**\
 `Plus, the women leading R&B’s new wave.`\
 https://nytimes.com/2025/02/18/briefing/us-russia-hamas-hostages-migrants-panama.html
