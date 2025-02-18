@@ -1,3 +1,7 @@
+**Champions League Briefing - Dive destroys Milan's hopes, Bayern escape Celtic shock, a cringe red card**\
+`It was a night of drama and embarrassing on-field acts as half of the Champions League's eight play-offs were decided`\
+https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red-card/
+
 **Brazil Charges Bolsonaro With Attempting a Coup**\
 `Brazil’s attorney general charged the former president Jair Bolsonaro with trying to overturn the 2022 elections.`\
 https://nytimes.com/2025/02/18/world/americas/brazil-charges-bolsonaro-with-attempting-a-coup.html
