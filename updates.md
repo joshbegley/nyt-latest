@@ -1,3 +1,7 @@
+**Passengers in Toronto Recount the Moments the Plane Crashed**\
+`All 80 people on board are expected to survive. Two described finding themselves upside down after what had seemed like a routine descent.`\
+https://nytimes.com/2025/02/18/world/canada/delta-plane-crash-toronto.html
+
 **USA suddenly banged up heading into 4 Nations title showdown with Canada**\
 `Brady Tkachuk left Monday's loss to Sweden with his brother, Matthew, already absent. Auston Matthews and Charlie McAvoy are also out.`\
 https://nytimes.com/athletic/6143144/2025/02/18/usa-injuries-tkachuk-matthews-mcavoy-canada/
