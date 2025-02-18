@@ -1,3 +1,7 @@
+**Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
+`Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Leeds achieve promotion`\
+https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
+
 **Word of the Day: aerodynamics**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/18/learning/word-of-the-day-aerodynamics.html

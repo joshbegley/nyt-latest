@@ -1,3 +1,7 @@
+**Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
+`Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Leeds achieve promotion`\
+https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
+
 **Word of the Day: aerodynamics**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/18/learning/word-of-the-day-aerodynamics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
 **Analysing Liverpool's Premier League title run-in - match by match**\
 `Dissecting the final 13 games of what could be an historic campaign at Anfield`\
 https://nytimes.com/athletic/6141685/2025/02/18/liverpool-premier-league-title-run-in/
-
-**Webster on Hurzeler, England and injuries: 'That was a real low. It felt like deja vu'**\
-`Following a three-month injury layoff, the defender is rebuilding under his third manager since joining Brighton in 2019`\
-https://nytimes.com/athletic/6139767/2025/02/18/adam-webster-hurzeler-england-injuries/
 
