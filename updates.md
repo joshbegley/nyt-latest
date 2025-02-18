@@ -1,3 +1,11 @@
+**What We Know About the Toronto Plane Crash**\
+`All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
+https://nytimes.com/2025/02/17/world/canada/what-we-know-about-the-toronto-plane-crash.html
+
+**Federal Judge Declines to Block Musk’s Team From Having Access to Education Data**\
+`The ruling said that the students who sued had failed to show that sensitive information had been illegally disseminated in a way that would justify an emergency restraining order.`\
+https://nytimes.com/2025/02/17/us/politics/doge-education-department-data.html
+
 **Team USA drops 4 Nations finale to Sweden as injuries pile up**\
 `The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
 https://nytimes.com/athletic/6143083/2025/02/17/4-nations-face-off-sweden-usa/
