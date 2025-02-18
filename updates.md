@@ -1,5 +1,9 @@
 **What We Know About the Toronto Plane Crash**\
 `All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
+https://nytimes.com/2025/02/17/world/canada/toronto-plane-crash-delta.html
+
+**What We Know About the Toronto Plane Crash**\
+`All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
 https://nytimes.com/2025/02/17/world/canada/what-we-know-about-the-toronto-plane-crash.html
 
 **Federal Judge Declines to Block Musk’s Team From Having Access to Education Data**\
