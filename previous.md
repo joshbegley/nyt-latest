@@ -1,3 +1,7 @@
+**F.D.A.’s Food Safety Chief Resigns Over Trump Administration Layoffs**\
+`The chief said the loss of critical employees overseeing the nation’s food supply made his work impossible. Robert F. Kennedy Jr., the nation’s new health secretary, has pledged to gut the division.`\
+https://nytimes.com/2025/02/18/us/politics/fda-food-safety-jim-jones-resignation.html
+
 **Kennedy Says ‘Nothing’ Off Limits in Scrutinizing Chronic Disease**\
 `Robert F. Kennedy Jr., laying out his early health agenda, said he would examine childhood vaccines, psychiatric drugs and other “formerly taboo” topics in investigating the causes of chronic disease.`\
 https://nytimes.com/2025/02/18/us/politics/rfk-speaks-hhs.html
