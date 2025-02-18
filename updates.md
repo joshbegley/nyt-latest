@@ -1,3 +1,7 @@
+**Pope Francis Will Miss Scheduled Events Because of Poor Health**\
+`The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a mass on Sunday.`\
+https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
+
 **Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
 `Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
 https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/

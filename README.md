@@ -1,3 +1,7 @@
+**Senior U.S. and Russian Officials Meet for Extensive Talks in Riyadh**\
+`The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
+https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
+
 **Pope Francis Will Miss Scheduled Events Because of Poor Health**\
 `The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a mass on Sunday.`\
 https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/6141811/2025/02/18/nfl-franchise-tag-explainer/
 **Which 2024 NFL Draft prospects could determine how Round 1 plays out?**\
 `Be it the QBs, tight ends, running backs or a few versatile defenders, these are the prospects who will decide the direction of Round 1.`\
 https://nytimes.com/athletic/6141705/2025/02/18/nfl-draft-2025-round-1-prospects-quarterbacks/
-
-**A Conversation With Trump’s Tariff Czar**\
-`How the president’s trade adviser rose to power.`\
-https://nytimes.com/2025/02/18/podcasts/the-daily/trumps-tariff-peter-navarro.html
 
 **Plane Flips Over in Toronto, and Migrants Trapped in Panama Hotel**\
 `Plus, meat raffles: like bingo, but with beef.`\
