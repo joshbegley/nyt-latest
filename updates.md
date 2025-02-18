@@ -1,3 +1,7 @@
+**Is Messi about to play in what could be the coldest soccer match on record?**\
+`Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing`\
+https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/
+
 **A Lonely Holdout Where Republicans Still Resist Trump: Utah**\
 `Bolstered by Mormon voters’ distaste for MAGA politics, the center-right is trying to reassert itself in a ruby-red state.`\
 https://nytimes.com/2025/02/18/us/politics/trump-republicans-utah.html
