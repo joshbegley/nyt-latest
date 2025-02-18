@@ -1,3 +1,11 @@
+**California Bill Seeks Age Minimum on Anti-Aging Skin Care Products**\
+`Revamped legislation would require anyone purchasing the products to provide proof that they are 18 or older.`\
+https://nytimes.com/2025/02/18/style/california-anti-aging-skin-care-bill-age-minimum.html
+
+**Pay Attention to the Words Elon Musk Uses with DOGE**\
+`Elon Musk’s team has only the powers that Congress gives it, or doesn’t give it — explicitly or implicitly, actively or passively.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/elon-musk-doge-congress-name
+
 **Quinn Hughes to join Team USA ahead of 4 Nations final vs. Canada**\
 `Hughes was one of the original six players named to the U.S. roster in June but bowed out due to an oblique injury.`\
 https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/

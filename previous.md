@@ -1,3 +1,11 @@
+**California Bill Seeks Age Minimum on Anti-Aging Skin Care Products**\
+`Revamped legislation would require anyone purchasing the products to provide proof that they are 18 or older.`\
+https://nytimes.com/2025/02/18/style/california-anti-aging-skin-care-bill-age-minimum.html
+
+**Pay Attention to the Words Elon Musk Uses with DOGE**\
+`Elon Musk’s team has only the powers that Congress gives it, or doesn’t give it — explicitly or implicitly, actively or passively.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/elon-musk-doge-congress-name
+
 **Quinn Hughes to join Team USA ahead of 4 Nations final vs. Canada**\
 `Hughes was one of the original six players named to the U.S. roster in June but bowed out due to an oblique injury.`\
 https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143235/2025/02/18/nba-all-star-game-format-dash-da
 **Hundreds of Artists Call on N.E.A. to Roll Back Trump’s Restrictions**\
 `A letter signed by 463 playwrights, poets, dancers, visual artists and others pushes back against new grant requirements that bar the promotion of diversity or “gender ideology.”`\
 https://nytimes.com/2025/02/18/arts/nea-artists-letter-trump-restrictions.html
-
-**Roasted Chicken Thighs With Hot Honey and Lime: Dinner in No Time**\
-`Speedy and simple to make; spectacular to eat.`\
-https://nytimes.com/2025/02/18/dining/roasted-chicken-thighs-with-hot-honey-and-lime-dinner-in-no-time.html
-
-**Bruins defenseman Charlie McAvoy out for Team USA in 4 Nations Face-Off final**\
-`There was no immediate word on if Team USA would bring in an injury replacement. Jake Sanderson skated in McAvoy's place against Sweden.`\
-https://nytimes.com/athletic/6143867/2025/02/18/bruins-usa-charlie-mcavoy-injury/
 
