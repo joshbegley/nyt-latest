@@ -31,7 +31,7 @@ https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orc
 https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
 
 **Champions League Briefing - Dive destroys Milan's hopes, Bayern escape Celtic shock, a cringe red card**\
-`It was a night of drama and embarrassing on-field acts as four of the Champions League play-offs were decided`\
+`It was a night of drama and embarrassing on-field acts as half of the Champions League's eight play-offs were decided`\
 https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red-card/
 
 **Patel clears a procedural hurdle in the Senate, putting him steps closer to a floor vote.**\
