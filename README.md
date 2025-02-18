@@ -1,3 +1,7 @@
+**USA suddenly banged up heading into 4 Nations title showdown with Canada**\
+`Brady Tkachuk left Monday's loss to Sweden with his brother, Matthew, already absent. Auston Matthews and Charlie McAvoy are also out.`\
+https://nytimes.com/athletic/6143144/2025/02/18/usa-injuries-tkachuk-matthews-mcavoy-canada/
+
 **Xi Is Making the World Pay for China’s Mistakes**\
 `Trump’s tariffs are bad enough, but Xi is fundamentally distorting world trade to dig China out of the hole its economic decisions have created.`\
 https://nytimes.com/2025/02/18/opinion/china-xi-jinping-trade-manufacturing-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136341/2025/02/18/mason-melia-tottenham-ireland/
 **Kylian Mbappe's intimate relationship with speed - and why he was told to slow down**\
 `Speed has been a key part of Mbappe's game since he burst onto the scene as a teenager. It has been a vital part of his evolution too...`\
 https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-champions-league/
-
-**Tuesday Briefing**\
-`Talks about Ukraine’s future.`\
-https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
 
