@@ -1,5 +1,5 @@
 **Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
-`Hagel threw some fuel on the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
+`Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
 https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
 
 **Adams Taps Close Associate for Top Public Safety Job**\
