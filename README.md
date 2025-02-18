@@ -1,3 +1,7 @@
+**Pope Francis Will Miss Scheduled Events Because of Poor Health**\
+`The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a mass on Sunday.`\
+https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
+
 **Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
 `Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
 https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/podcasts/the-daily/trumps-tariff-peter-navarro.ht
 **Plane Flips Over in Toronto, and Migrants Trapped in Panama Hotel**\
 `Plus, meat raffles: like bingo, but with beef.`\
 https://nytimes.com/2025/02/18/podcasts/the-headlines/plane-toronto-migrants-panama.html
-
-**What I'm interested in learning throughout the rest of the Blackhawks season**\
-`Will Anders Sorensen remain Blackhawks coach? Will Ryan Donato get traded? Which college prospects will turn pro?`\
-https://nytimes.com/athletic/6141892/2025/02/18/blackhawks-trade-deadline-sorensen-bedard/
 
