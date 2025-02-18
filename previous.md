@@ -1,3 +1,11 @@
+**Trump’s Revenge Now Includes His Takeover of the Kennedy Center**\
+`What will a thin-skinned showman do with an institution central to Washington’s cultural life? One expectation is more country music.`\
+https://nytimes.com/2025/02/18/us/politics/kennedy-center-trump.html
+
+**Why Did the Seal Cross the Road? To Get to Connecticut’s Pizza Haven.**\
+`The police in New Haven, Conn., found a young seal wandering the streets and aided in its rescue. “Maybe we should just start keeping mackerel in the cruisers,” one officer suggested.`\
+https://nytimes.com/2025/02/18/nyregion/seal-new-haven.html
+
 **Hollinger: NBA All-Star Game wasn't weird enough. Plus, scouting Dash Daniels**\
 `The NBA is hardly the only major sport whose All-Star Game seems outdated and irrelevant, so it's time to tinker even more.`\
 https://nytimes.com/athletic/6143235/2025/02/18/nba-all-star-game-format-dash-daniels/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in
 **A Lonely Holdout Where Republicans Still Resist Trump: Utah**\
 `Bolstered by Mormon voters’ distaste for MAGA politics, the center-right is trying to reassert itself in a ruby-red state.`\
 https://nytimes.com/2025/02/18/us/politics/trump-republicans-utah.html
-
-**Trump’s Rift With Europe Adds Fuel to a Rally in Defense Stocks**\
-`A flurry of trading has helped push the Pan-European Stoxx 600 index to a record high as investors expect Europe’s governments to increase military spending.`\
-https://nytimes.com/2025/02/18/business/dealbook/europe-defense-stocks-market.html
-
-**Canada, U.S. ready for 'dream scenario' 4 Nations final: 'A great celebration of hockey'**\
-`For many players, Thursday's Canada-USA 4 Nations final will be the biggest game of their careers.`\
-https://nytimes.com/athletic/6143023/2025/02/18/canada-usa-4-nations-face-off-hockey/
 
