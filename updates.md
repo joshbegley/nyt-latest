@@ -1,3 +1,7 @@
+**Prison Boss Elevated by Hochul Was Accused of Rape by 2 Former Inmates**\
+`The attacks occurred years earlier when Bennie Thorpe worked at a state women’s prison, his accusers said. Now he runs a prison where an inmate was fatally beaten by guards.`\
+https://nytimes.com/2025/02/17/nyregion/marcy-prison-hochul-superintendent-rape.html
+
 **Judge in Adams Case Faces Demands to Continue the Prosecution**\
 `As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
 https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html

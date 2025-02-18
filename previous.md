@@ -1,3 +1,7 @@
+**Prison Boss Elevated by Hochul Was Accused of Rape by 2 Former Inmates**\
+`The attacks occurred years earlier when Bennie Thorpe worked at a state women’s prison, his accusers said. Now he runs a prison where an inmate was fatally beaten by guards.`\
+https://nytimes.com/2025/02/17/nyregion/marcy-prison-hochul-superintendent-rape.html
+
 **Corrections: Feb. 18, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 18, 2025.`\
 https://nytimes.com/2025/02/17/pageoneplus/corrections-feb-18-2025.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
 **Southwest Airlines Plans to Cut 15% of Its Work Force**\
 `The company said the cuts, the first round of broad layoffs in the airline’s 53-year history, would affect mostly corporate employees.`\
 https://nytimes.com/2025/02/17/business/17southwest-airlines-layoffs.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Leave your questions here for my February 19 edition. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6142892/2025/02/17/submit-a-question-for-stewart-mandels-college-football-mailbag-293/
 
