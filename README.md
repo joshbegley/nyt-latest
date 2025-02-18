@@ -1,3 +1,7 @@
+**Hamas Says Remains of Israeli Captives Will Be Handed Over on Thursday**\
+`The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
+https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
+
 **Elon Musk Zeroes In on the I.R.S.**\
 `The tech mogul’s cost-cutting initiative is seeking sensitive taxpayer data, drawing concerns about privacy, potential political retribution and more.`\
 https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142271/2025/02/18/sf-giants-kyle-harrison-analysis
 **Nike Bets Big on Kim Kardashian**\
 `The Skims founder will enter into a rare business deal with the sports apparel company.`\
 https://nytimes.com/2025/02/18/style/nike-skims-kim-kardashian.html
-
-**A breathtless and brilliant first look at Everton's £760m new home**\
-`A bold new dawn awaits for Everton and the sense of anticipation is palpable after the first match at the new stadium`\
-https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-park/
 
