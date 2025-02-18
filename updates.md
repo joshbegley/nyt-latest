@@ -1,3 +1,7 @@
+**170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
+`Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
+https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
+
 **U.S. and Russia Pursue Closer Ties**\
 `Also, Mayor Eric Adams faces political peril. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/02/18/briefing/united-states-russia-closer-ties-mayor-eric-adams.html

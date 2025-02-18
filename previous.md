@@ -1,3 +1,7 @@
+**170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
+`Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
+https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
+
 **U.S. and Russia Pursue Closer Ties**\
 `Also, Mayor Eric Adams faces political peril. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/02/18/briefing/united-states-russia-closer-ties-mayor-eric-adams.html
@@ -29,10 +33,6 @@ https://nytimes.com/2025/02/18/us/politics/trump-pardon-czar.html
 **What to watch in the NBA this week: Knicks-Celts, Lakers-Nuggets highlight loaded week**\
 `The NBA is back from its All-Star hiatus with a loaded weekend. The Knicks, Celtics, Cavs and Timberwolves each get two national TV games.`\
 https://nytimes.com/athletic/6144350/2025/02/18/nba-what-to-watch-lakers-nuggets-knicks-celtics/
-
-**Team USA can get by without McAvoy. The Bruins cannot**\
-`Bruins coach Joe Sacco on losing McAvoy at 4 Nations: "I think every team’s probably a little bit nervous when they send their players."`\
-https://nytimes.com/athletic/6144825/2025/02/18/charlie-mcavoy-injury-united-states-bruins/
 
 **Kansas Lawmakers Override Veto of Ban on Transition Care for Minors**\
 `Gov. Laura Kelly, a Democrat, had vetoed the bill, but the Republican-controlled Legislature overwhelmingly supported it, following the lead of other conservative states.`\
