@@ -1,3 +1,7 @@
+**Pope Francis Has Bilateral Pneumonia**\
+`The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
+https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
+
 **Amid Crashes, What Passengers Should Know About Airplane Safety**\
 `A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
 https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/18/us/trump-news/patel-clears-a-procedural-hurd
 **A judge reinstates a member of a federal disciplinary review board who was fired.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-reinstates-a-member-of-a-federal-disciplinary-review-board-who-was-fired
-
-**Dickson Despommier, Who Championed Farming in Skyscrapers, Dies at 84**\
-`A microbiologist, he popularized “vertical farming” — raising crops in tall buildings — to remediate climate change and feed more people.`\
-https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
 

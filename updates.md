@@ -1,3 +1,7 @@
+**Pope Francis Has Bilateral Pneumonia**\
+`The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
+https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
+
 **Amid Crashes, What Passengers Should Know About Airplane Safety**\
 `A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
 https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
