@@ -1,3 +1,7 @@
+**Costa Rica Will Take Central Asian and Indian Migrants Deported by U.S.**\
+`Costa Rica is the second Central American nation to accept migrants from distant countries as the Trump administration ramps up deportation flights.`\
+https://nytimes.com/2025/02/17/world/americas/costa-rica-deportation-flights.html
+
 **In Buster Posey's clubhouse address to Giants, the subtext was as important as the message**\
 `This year, the Giants shouldn't be a team with an identity crisis. Everyone appears to be on the same page.`\
 https://nytimes.com/athletic/6143019/2025/02/17/sf-giants-buster-posey-team-message/
@@ -22,6 +26,10 @@ https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
 `Gurriel could help fill the DH spot.`\
 https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
 
+**Live Updates: All on Board Survive After Plane Crashes and Overturns at Toronto Airport**\
+`A window-seat passenger described the plane as skidding on its side and finding himself upside-down. At least 18 people were injured, officials said.`\
+https://nytimes.com/live/2025/02/17/world/delta-toronto-plane-crash
+
 **Top Social Security Official Leaves After Musk Team Seeks Data Access**\
 `The departure of the acting commissioner is the latest backlash to the Department of Government Efficiency’s efforts to access sensitive data.`\
 https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
 **Auston Matthews out vs. Sweden in Monday's 4 Nations game**\
 `Matthews is expected to play in Thursday's championship.`\
 https://nytimes.com/athletic/6142940/2025/02/17/auston-matthews-united-states-sweden-4-nations-face-off/
-
-**Russia Frees American Prisoner Before Talks With U.S.**\
-`The release of Kalob Byers Wayne, who was arrested on drug charges on Feb. 7, came on the eve of talks about the war in Ukraine.`\
-https://nytimes.com/2025/02/17/us/politics/russia-american-prisoner-released.html
-
-**Sidney Crosby is passing a torch that will benefit Team Canada for years**\
-`A new generation of Canadian stars take their cues from the team's captain, who sets the culture even while playing injured.`\
-https://nytimes.com/athletic/6142888/2025/02/17/sidney-crosby-team-canada-4-nations-face-off-finland/
 
