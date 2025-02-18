@@ -1,3 +1,7 @@
+**A breathtless and brilliant first look at Everton's £760m new home**\
+`A bold new dawn awaits for Everton and the sense of anticipation is palpable after the first match at the new stadium`\
+https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-park/
+
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
