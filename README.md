@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/18/opinion/china-xi-jinping-trade-manufacturing-tari
 https://nytimes.com/2025/02/18/world/canada/toronto-airport-snow-disruptions-delta.html
 
 **What we’re hearing about the Cubs: Justin Turner, plus the shape of the roster**\
-`Turner, 40, would come at a fraction of the three-year, $120 million deal that Bregman secured from the Boston Red Sox`\
+`Turner, 40, would come at a fraction of the three-year, $120 million deal that Alex Bregman secured from the Boston Red Sox`\
 https://nytimes.com/athletic/6143121/2025/02/18/chicago-cubs-justin-turner-notebook/
 
 **Team USA drops 4 Nations round-robin finale to Sweden as injuries pile up**\
