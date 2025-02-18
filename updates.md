@@ -1,3 +1,15 @@
+**Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
+`Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
+https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/
+
+**Red Wings player poll: Best coach and GM? Worst card player?**\
+`Red Wings players assess — and roast — teammates on prompts ranging from the best/worst dressed to who is/isn't fit to be an NHL GM.`\
+https://nytimes.com/athletic/6122736/2025/02/18/red-wings-player-poll/
+
+**Q&A: Stephanie White on handling Caitlin Clark mania, broadcasting and the Fever**\
+`White on Indiana: "Do I think we can be title contenders? Absolutely."`\
+https://nytimes.com/athletic/6135856/2025/02/18/stephanie-white-caitlin-clark-indiana-fever/
+
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
