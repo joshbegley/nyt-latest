@@ -1,3 +1,7 @@
+**10-man Milan crash out of Champions League in knockout playoff**\
+`Feyenoord's 2-1 aggregate triumph over Milan spells the end of the 2024-25 Champions League for Christian Pulisic and Yunus Musah.`\
+https://nytimes.com/athletic/6144434/2025/02/18/feyenoord-ac-milan-champions-league-pulisic-musah-usmnt/
+
 **Padres CEO Erik Greupner says club has ‘sufficient’ resources for World Series pursuit**\
 `“I think we have a team, like you saw last year, that’s capable of going down and accomplishing our goal,” Greupner said.`\
 https://nytimes.com/athletic/6144476/2025/02/18/sd-padres-ceo-erik-greupner-resources/
