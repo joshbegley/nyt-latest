@@ -1,3 +1,15 @@
+**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
+`Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
+
+**Chip Kelly's Raiders offense will look different from those of his previous NFL stints**\
+`Las Vegas' new offensive coordinator wouldn’t be back in the NFL if he didn’t adapt as the sport has continued to evolve.`\
+https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-state/
+
+**Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
+`The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
+https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
+
 **Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
 `Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
 https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/
