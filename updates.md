@@ -1,3 +1,43 @@
+**Flyers mailbag: Tortorella's effect on free agents, Laughton's value, a list of untouchables**\
+`Plus, could the Flyers sell Andrei Kuzmenko? Does Ivan Fedotov get the harder matchups? Why wasn’t Aleksei Kolosov sent to the AHL?`\
+https://nytimes.com/athletic/6140241/2025/02/18/flyers-nhl-tortorella-laughton-free-agents/
+
+**Red Wings player poll: Best coach and GM? Worst card player?**\
+`Red Wings players assess — and roast — teammates on prompts ranging from the best/worst dressed to who is/isn't fit to be an NHL GM.`\
+https://nytimes.com/athletic/6122736/2025/02/18/red-wings-player-poll/
+
+**Q&A: Stephanie White on handling Caitlin Clark mania, broadcasting and the Fever**\
+`White on Indiana: "Do I think we can be title contenders? Absolutely."`\
+https://nytimes.com/athletic/6135856/2025/02/18/stephanie-white-caitlin-clark-indiana-fever/
+
+**How likely are the Packers to acquire a true No. 1 wide receiver this offseason?**\
+`Green Bay could make a splash addition at one of several positions this offseason. Does adding to its youthful WR room make the most sense?`\
+https://nytimes.com/athletic/6142083/2025/02/18/packers-top-wide-receiver-addition-offseason/
+
+**Twins notes: Harrison Bader 'looking forward' to playing left**\
+`Plus an injury update on top prospect Emmanuel Rodriguez, and Royce Lewis clarifies a viral comment about slumps.`\
+https://nytimes.com/athletic/6143040/2025/02/18/twins-harrison-bader-move-left-field/
+
+**How does the NFL franchise tag work? Five leading candidates to get tagged this offseason**\
+`The tag was first introduced by owners in 1993 as a compromise in the NFL's fourth-ever CBA as the NFLPA sought to create free agency.`\
+https://nytimes.com/athletic/6141811/2025/02/18/nfl-franchise-tag-explainer/
+
+**Which 2024 NFL Draft prospects could determine how Round 1 plays out?**\
+`Be it the QBs, tight ends, running backs or a few versatile defenders, these are the prospects who will decide the direction of Round 1.`\
+https://nytimes.com/athletic/6141705/2025/02/18/nfl-draft-2025-round-1-prospects-quarterbacks/
+
+**A Conversation With Trump’s Tariff Czar**\
+`How the president’s trade adviser rose to power.`\
+https://nytimes.com/2025/02/18/podcasts/the-daily/trumps-tariff-peter-navarro.html
+
+**Plane Flips Over in Toronto, and Migrants Trapped in Panama Hotel**\
+`Plus, meat raffles: like bingo, but with beef.`\
+https://nytimes.com/2025/02/18/podcasts/the-headlines/plane-toronto-migrants-panama.html
+
+**What I'm interested in learning throughout the rest of the Blackhawks season**\
+`Will Anders Sorensen remain Blackhawks coach? Will Ryan Donato get traded? Which college prospects will turn pro?`\
+https://nytimes.com/athletic/6141892/2025/02/18/blackhawks-trade-deadline-sorensen-bedard/
+
 **Champions League betting preview: the best markets for Tuesday's action**\
 `Brett Koremenos breaks down the best betting markets around this Tuesday Champions League knockout second-leg clashes.`\
 https://nytimes.com/athletic/6143288/2025/02/18/tuesday-champions-league-betting-preview-predictions-odds/
