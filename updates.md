@@ -1,3 +1,7 @@
+**Hundreds of Artists Call on N.E.A. to Roll Back Trump’s Restrictions**\
+`A letter signed by 463 playwrights, poets, dancers, visual artists and others pushes back against new grant requirements that bar the promotion of diversity or “gender ideology.”`\
+https://nytimes.com/2025/02/18/arts/nea-artists-letter-trump-restrictions.html
+
 **Roasted Chicken Thighs With Hot Honey and Lime: Dinner in No Time**\
 `Speedy and simple to make; spectacular to eat.`\
 https://nytimes.com/2025/02/18/dining/roasted-chicken-thighs-with-hot-honey-and-lime-dinner-in-no-time.html
