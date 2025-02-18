@@ -1,3 +1,7 @@
+**Word of the Day: aerodynamics**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/18/learning/word-of-the-day-aerodynamics.html
+
 **As U.S. and Russian Officials Meet, Talks Are Set to Go Beyond Ukraine**\
 `The two sides are meeting in Saudi Arabia for their most extensive discussions in years. In addition to Ukraine, business ties are on the table.`\
 https://nytimes.com/2025/02/18/world/europe/us-russia-saudi-ukraine.html

@@ -1,3 +1,7 @@
+**Word of the Day: aerodynamics**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/18/learning/word-of-the-day-aerodynamics.html
+
 **As U.S. and Russian Officials Meet, Talks Are Set to Go Beyond Ukraine**\
 `The two sides are meeting in Saudi Arabia for their most extensive discussions in years. In addition to Ukraine, business ties are on the table.`\
 https://nytimes.com/2025/02/18/world/europe/us-russia-saudi-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141685/2025/02/18/liverpool-premier-league-title-r
 **Webster on Hurzeler, England and injuries: 'That was a real low. It felt like deja vu'**\
 `Following a three-month injury layoff, the defender is rebuilding under his third manager since joining Brighton in 2019`\
 https://nytimes.com/athletic/6139767/2025/02/18/adam-webster-hurzeler-england-injuries/
-
-**Inside Newcastle Q&A: Why the collective collapse? Miley over Longstaff? Has the club stopped communicating?**\
-`Chris Waugh answers subscribers' questions on the PSR plan for summer, where Newcastle could finish, and the Isak rumour in Spain`\
-https://nytimes.com/athletic/6141345/2025/02/18/inside-newcastle-qa-miley-longstaff-isak-eales/
 
