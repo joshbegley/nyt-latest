@@ -1,3 +1,7 @@
+**Yankees' DJ LeMahieu: 'I've definitely lost a lot of sleep' over recent nightmare seasons**\
+`Among all players with at least 200 plate appearances, LeMahieu's 52 wRC+ was the 12th-worst in MLB in 2024.`\
+https://nytimes.com/athletic/6143777/2025/02/18/yankees-dj-lemahieu-sleep-nightmare-seasons/
+
 **Cohen: Mets 'blew through' expected team payroll growth this offseason**\
 `"I've always wanted to be a little more measured in payroll growth, and then we get there and it's never quite there,” Cohen said Tuesday.`\
 https://nytimes.com/athletic/6144071/2025/02/18/mets-payroll-steve-cohen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143745/2025/02/18/nfl-draft-cam-ward-message-to-te
 **Native American Activist Leonard Peltier Released From Prison**\
 `Mr. Peltier was convicted in the killing of two F.B.I. agents. An order from former President Joseph R. Biden Jr. will allow him to serve his remaining time under home confinement.`\
 https://nytimes.com/2025/02/18/us/leonard-peltier-released-prison.html
-
-**Is Messi about to play in what could be the coldest soccer match on record?**\
-`Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing`\
-https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/
 

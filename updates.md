@@ -1,3 +1,7 @@
+**Yankees' DJ LeMahieu: 'I've definitely lost a lot of sleep' over recent nightmare seasons**\
+`Among all players with at least 200 plate appearances, LeMahieu's 52 wRC+ was the 12th-worst in MLB in 2024.`\
+https://nytimes.com/athletic/6143777/2025/02/18/yankees-dj-lemahieu-sleep-nightmare-seasons/
+
 **Cohen: Mets 'blew through' expected team payroll growth this offseason**\
 `"I've always wanted to be a little more measured in payroll growth, and then we get there and it's never quite there,” Cohen said Tuesday.`\
 https://nytimes.com/athletic/6144071/2025/02/18/mets-payroll-steve-cohen/
