@@ -1,3 +1,11 @@
+**Team USA can get by without McAvoy. The Bruins cannot**\
+`Bruins coach Joe Sacco on losing McAvoy at 4 Nations: "I think every team’s probably a little bit nervous when they send their players."`\
+https://nytimes.com/athletic/6144825/2025/02/18/charlie-mcavoy-injury-united-states-bruins/
+
+**Kansas Lawmakers Override Veto of Ban on Transition Care for Minors**\
+`Gov. Laura Kelly, a Democrat, had vetoed the bill, but the Republican-controlled Legislature overwhelmingly supported it, following the lead of other conservative states.`\
+https://nytimes.com/2025/02/18/us/kansas-transgender-law.html
+
 **Britain’s clean energy goal is ‘sinister,’ the U.S. energy secretary says.**\
 `The comments by Chris Wright, a former oil executive, were a highly unusual criticism of one of the United States’ closest allies.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/chris-wright-sinister-goal-energy-britain
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/opinion/vance-munich-germany-afd.html
 **Why Trump’s Bullying Is Going to Backfire**\
 `The scariest thing about what President Trump is doing with his tariffs-for-all strategy is that he has no clue what he is doing.`\
 https://nytimes.com/2025/02/18/opinion/trump-tariffs-economy.html
-
-**Panthers sign QB Andy Dalton to 2-year extension**\
-`In Week 3 of last season, he helped guide the Panthers to their first win of the year after the team benched starter Bryce Young.`\
-https://nytimes.com/athletic/6144802/2025/02/18/andy-dalton-panthers-return-nfl/
-
-**Phillies prospects Aidan Miller and Justin Crawford soak up spring training, side by side**\
-`This is what the Phillies envisioned for two of their best prospects; they wanted them to experience all of the novelties this spring.`\
-https://nytimes.com/athletic/6144683/2025/02/18/aidan-miller-justin-crawford-phillies-spring-training/
 
