@@ -1,3 +1,11 @@
+**Quinn Hughes to join Team USA ahead of 4 Nations final vs. Canada**\
+`Hughes was one of the original six players named to the U.S. roster in June but bowed out due to an oblique injury.`\
+https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/
+
+**F1 considering mandatory extra pit stops for Monaco GP to improve racing**\
+`Monaco has faced heavy criticism in recent years for the poor quality of racing and low number of overtakes on the track.`\
+https://nytimes.com/athletic/6144098/2025/02/18/f1-monaco-mandatory-pit-stops/
+
 **Yankees' DJ LeMahieu: 'I've definitely lost a lot of sleep' over recent nightmare seasons**\
 `Among all players with at least 200 plate appearances, LeMahieu's 52 wRC+ was the 12th-worst in MLB in 2024.`\
 https://nytimes.com/athletic/6143777/2025/02/18/yankees-dj-lemahieu-sleep-nightmare-seasons/
