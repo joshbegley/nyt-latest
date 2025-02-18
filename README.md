@@ -1,3 +1,19 @@
+**Britain’s clean energy goal is ‘sinister,’ the U.S. energy secretary says.**\
+`The comments by Chris Wright, a former oil executive, were a highly unusual criticism of one of the United States’ closest allies.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/chris-wright-sinister-goal-energy-britain
+
+**Tigers prospect Hao-Yu Lee is drawing rave reviews in spring training**\
+`Tigers prospect Hao-Yu Lee hit Lee hit .298 with a 141 wRC+ last season in Double A. He could push to debut sometime this season. `\
+https://nytimes.com/athletic/6144837/2025/02/18/detroit-tigers-hao-yu-lee-prospect/
+
+**Florida Man Blames Mental Health Crisis for Shooting of Israeli Tourists**\
+`The gunman, who is Jewish, told the police that he thought the tourists were Palestinian.`\
+https://nytimes.com/2025/02/18/world/middleeast/florida-shooting-israeli-tourists.html
+
+**Cole Custer defends decisions after criticism over Daytona 500 crashes**\
+`“When it’s five (laps) to go, you’re going to have to push and shove,” Custer said. “It is what it is.”`\
+https://nytimes.com/athletic/6144876/2025/02/18/cole-custer-daytona-500-crashes-comments/
+
 **Texans' Mixon, Anderson have fines for criticizing refs rescinded: Sources**\
 `Mixon was initially fined for comments he didn’t make about the officiating in a divisional-round loss to the Kansas City Chiefs.`\
 https://nytimes.com/athletic/6144886/2025/02/18/texans-joe-mixon-will-anderson-fines/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6144802/2025/02/18/andy-dalton-panthers-return-nfl/
 **Phillies prospects Aidan Miller and Justin Crawford soak up spring training, side by side**\
 `This is what the Phillies envisioned for two of their best prospects; they wanted them to experience all of the novelties this spring.`\
 https://nytimes.com/athletic/6144683/2025/02/18/aidan-miller-justin-crawford-phillies-spring-training/
-
-**National Science Foundation Fires 168 Workers on Trump’s Order**\
-`The cuts at the foundation, which supports cutting-edge research, came as the nation’s health and science agencies were reeling from other significant cuts.`\
-https://nytimes.com/2025/02/18/us/politics/national-science-foundation-firings.html
-
-**A coalition of states had sought to place limits on Elon Musk’s operatives.**\
-`A coalition of states had sought to temporarily block Elon Musk’s operatives from access to sensitive data and involvement in mass firings.`\
-https://nytimes.com/live/2025/02/18/us/trump-news/elon-musk-doge-lawsuit-agencies
-
-**Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
-`Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
-https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
-
-**Adams Taps Close Associate for Top Public Safety Job**\
-`The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
-https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
 
