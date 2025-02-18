@@ -1,3 +1,11 @@
+**Hamas Says Remains of Israeli Captives, Including Bibas Family, Will Be Handed Over on Thursday**\
+`The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
+https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
+
+**All-Star Weekend participants have their say on tourney format, rule changes and more**\
+`Not everyone polled answered every question, but they all had plenty of ideas in the Bay Area over the weekend.`\
+https://nytimes.com/athletic/6142903/2025/02/18/nba-player-poll-all-stars-changes-2025/
+
 **Watch: Does Maresca need to learn to embrace the chaos?**\
 `The Athletic FC Podcast discuss whether Maresca-ball has proved counterproductive for Chelsea`\
 https://nytimes.com/athletic/6143439/2025/02/18/athletic-fc-podcast-chelsea-maresca-tactics/
