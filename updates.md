@@ -1,3 +1,11 @@
+**A Lonely Holdout Where Republicans Still Resist Trump: Utah**\
+`Bolstered by Mormon voters’ distaste for MAGA politics, the center-right is trying to reassert itself in a ruby-red state.`\
+https://nytimes.com/2025/02/18/us/politics/trump-republicans-utah.html
+
+**Trump’s Rift With Europe Adds Fuel to a Rally in Defense Stocks**\
+`A flurry of trading has helped push the Pan-European Stoxx 600 index to a record high as investors expect Europe’s governments to increase military spending.`\
+https://nytimes.com/2025/02/18/business/dealbook/europe-defense-stocks-market.html
+
 **Canada, U.S. ready for 'dream scenario' 4 Nations final: 'A great celebration of hockey'**\
 `For many players, Thursday's Canada-USA 4 Nations final will be the biggest game of their careers.`\
 https://nytimes.com/athletic/6143023/2025/02/18/canada-usa-4-nations-face-off-hockey/
