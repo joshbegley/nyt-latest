@@ -1,5 +1,5 @@
 **Commanders add John Madden's grandson, Jesse Madden, to coaching staff**\
-`The Washington Commanders hired Jesse Madden as an offensive quality control coach, the team announced Tuesday.`\
+`Washington also hired Brian Schneider as assistant special teams coordinator.`\
 https://nytimes.com/athletic/6144365/2025/02/18/commanders-john-madden-jesse-coaching/
 
 **Sudanese Paramilitaries Announce Plan for Breakaway Government**\
