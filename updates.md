@@ -1,3 +1,7 @@
+**Amid Crashes, What Passengers Should Know About Airplane Safety**\
+`A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
+https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
+
 **Senate Confirms Howard Lutnick as Commerce Secretary**\
 `A longtime Wall Street executive, Mr. Lutnick will take on a broad portfolio that includes defending U.S. business interests and overseeing restrictions on technology exports.`\
 https://nytimes.com/2025/02/18/us/politics/howard-lutnick-confirmed-commerce.html

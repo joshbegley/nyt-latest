@@ -1,3 +1,7 @@
+**Amid Crashes, What Passengers Should Know About Airplane Safety**\
+`A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
+https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
+
 **Senate Confirms Howard Lutnick as Commerce Secretary**\
 `A longtime Wall Street executive, Mr. Lutnick will take on a broad portfolio that includes defending U.S. business interests and overseeing restrictions on technology exports.`\
 https://nytimes.com/2025/02/18/us/politics/howard-lutnick-confirmed-commerce.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-reinstates-a-member-of
 **Dickson Despommier, Who Championed Farming in Skyscrapers, Dies at 84**\
 `A microbiologist, he popularized “vertical farming” — raising crops in tall buildings — to remediate climate change and feed more people.`\
 https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
-
-**Can This Fish Make You Cry?**\
-`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for intense emotions.`\
-https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
 
