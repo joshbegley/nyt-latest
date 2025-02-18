@@ -1,3 +1,7 @@
+**Adams Taps Close Associate for Top Public Safety Job**\
+`The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
+https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
+
 **WNBA trading cards selling for more than NBA cards for the first time**\
 `Collectors are snapping up Caitlin Clark's rookie cards`\
 https://nytimes.com/athletic/6141670/2025/02/18/caitlin-clark-wnba-rookie-cards-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/us/politics/fda-food-safety-jim-jones-resignation
 **Kennedy Says ‘Nothing’ Off Limits in Scrutinizing Chronic Disease**\
 `Robert F. Kennedy Jr., laying out his early health agenda, said he would examine childhood vaccines, psychiatric drugs and other “formerly taboo” topics in investigating the causes of chronic disease.`\
 https://nytimes.com/2025/02/18/us/politics/rfk-speaks-hhs.html
-
-**After Walking a Fine Line With Trump, Zelensky Shows His Annoyance**\
-`Left out of a meeting between American and Saudi officials, the Ukrainian leader also canceled a trip to Riyadh.`\
-https://nytimes.com/2025/02/18/world/middleeast/ukraine-trump-russia-war-peace-talks.html
 

@@ -1,3 +1,7 @@
+**Adams Taps Close Associate for Top Public Safety Job**\
+`The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
+https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
+
 **WNBA trading cards selling for more than NBA cards for the first time**\
 `Collectors are snapping up Caitlin Clark's rookie cards`\
 https://nytimes.com/athletic/6141670/2025/02/18/caitlin-clark-wnba-rookie-cards-nba/
