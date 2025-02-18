@@ -1,3 +1,7 @@
+**Bruins defenseman Charlie McAvoy out for Team USA for 4 Nations Face-Off final**\
+`There was no immediate word on if Team USA would bring in an injury replacement. Jake Sanderson skated in McAvoy's place against Sweden.`\
+https://nytimes.com/athletic/6143867/2025/02/18/bruins-usa-charlie-mcavoy-injury/
+
 **NFL Draft's top QB prospect Cam Ward: 'If you don’t draft me, that’s your fault'**\
 `Ward made the comments while addressing the perception that he quit on his team in their December bowl game.`\
 https://nytimes.com/athletic/6143745/2025/02/18/nfl-draft-cam-ward-message-to-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142923/2025/02/18/chicago-cubs-justin-turner-deal/
 **Who Runs Elon Musk’s DOGE? Not Musk, the White House Says.**\
 `A White House official declared that Mr. Musk is not the administrator of the so-called Department of Government Efficiency. So who is?`\
 https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-leader.html
-
-**Arctic Air Mass Expected to Bring Dangerous Temperatures to Parts of the U.S.**\
-`And a winter storm could dump up to a foot of snow from the Central Plains to the East Coast.`\
-https://nytimes.com/2025/02/18/weather/arctic-cold-snow.html
 

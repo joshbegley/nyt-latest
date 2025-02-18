@@ -1,3 +1,7 @@
+**Bruins defenseman Charlie McAvoy out for Team USA for 4 Nations Face-Off final**\
+`There was no immediate word on if Team USA would bring in an injury replacement. Jake Sanderson skated in McAvoy's place against Sweden.`\
+https://nytimes.com/athletic/6143867/2025/02/18/bruins-usa-charlie-mcavoy-injury/
+
 **NFL Draft's top QB prospect Cam Ward: 'If you don’t draft me, that’s your fault'**\
 `Ward made the comments while addressing the perception that he quit on his team in their December bowl game.`\
 https://nytimes.com/athletic/6143745/2025/02/18/nfl-draft-cam-ward-message-to-teams/
