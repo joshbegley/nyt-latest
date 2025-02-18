@@ -1,3 +1,11 @@
+**Dickson Despommier, Who Championed Farming in Skyscrapers, Dies at 84**\
+`A microbiologist, he popularized “vertical farming” — raising crops in tall buildings — to remediate climate change and feed more people.`\
+https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
+
+**Can This Fish Make You Cry?**\
+`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for extreme emotions.`\
+https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
+
 **Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
 `Fiercely independent, she publicly discussed the long-term effects of gun violence and spoke of forgiveness.`\
 https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/18/us/trump-news/chris-lacivita-trump-albania
 **Will That Asteroid Strike Earth? Risk Level Rises to Highest Ever Recorded.**\
 `The threat from space rock 2024 YR4 has surpassed that of Apophis, an asteroid feared by scientists 20 years ago. The danger remains low, but experts are estimating the damage that could be done.`\
 https://nytimes.com/2025/02/18/science/asteroid-2024-yr4-impact.html
-
-**Rashford and Asensio can 'recover their best level' at Villa, says Emery**\
-`Neither have started in the two games since signing, yet both have made positive impressions in their substitute appearances.`\
-https://nytimes.com/athletic/6143781/2025/02/18/marcus-rashford-marco-asensio-aston-villa/
-
-**A Slow-Moving California Landslide Suddenly Speeds Up**\
-`A new map shows where land movement is accelerating, buckling roads and collapsing homes.`\
-https://nytimes.com/interactive/2025/02/18/climate/landslides-california-storm-map.html
 
