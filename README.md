@@ -1,3 +1,7 @@
+**Federal Judge Declines to Block Musk’s Team From Having Access to Education Data**\
+`The ruling said that the students who sued had failed to show that sensitive information had been illegally disseminated in a way that would justify an emergency restraining order.`\
+https://nytimes.com/2025/02/17/us/politics/doge-education-department-data.html
+
 **Team USA drops 4 Nations finale to Sweden as injuries pile up**\
 `The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
 https://nytimes.com/athletic/6143083/2025/02/17/4-nations-face-off-sweden-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league
 **Live Updates: All on Board Survive After Plane Crashes and Overturns at Toronto Airport**\
 `A window-seat passenger described the plane as skidding on its side and finding himself upside-down. At least 18 people were injured, officials said.`\
 https://nytimes.com/live/2025/02/17/world/delta-toronto-plane-crash
-
-**Top Social Security Official Leaves After Musk Team Seeks Data Access**\
-`The departure of the acting commissioner is the latest backlash to the Department of Government Efficiency’s efforts to access sensitive data.`\
-https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
 
