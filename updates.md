@@ -1,3 +1,15 @@
+**Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
+`Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\
+https://nytimes.com/2025/02/18/climate/usaid-climate-social-unrest-terrorism.html
+
+**Trade, keep or extend: What should Canucks do with Brock Boeser, other pending UFAs?**\
+`What factors should the Canucks consider in determining what to do with their pending unrestricted free agents before the trade deadline?`\
+https://nytimes.com/athletic/6143162/2025/02/18/canucks-trade-brock-boeser-free-agent/
+
+**NBA Power Rankings: All-Star highs and lows for (almost) every team. (Sorry, Sacramento)**\
+`Ladies and gentlemen, the weekend ... was a time to celebrate the NBA. The top tier of our rankings remains the same.`\
+https://nytimes.com/athletic/6143400/2025/02/18/nba-power-rankings-thunder-lakers-kings-celtics/
+
 **Emery says it is 'difficult to know' why Villa are getting so many injuries**\
 `Unai Emery has admitted he does not know the reason behind Aston Villa&#8217;s ongoing injury struggles this season.`\
 https://nytimes.com/athletic/6143660/2025/02/18/aston-villa-liverpool-team-news-injuries/
