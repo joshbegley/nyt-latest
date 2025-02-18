@@ -1,3 +1,11 @@
+**Martinez agrees new Barcelona deal - but salary cap fears delaying announcement**\
+`Martinez was previously asked, and refused, to take a salary cut in order to help Barcelona's registration issues in 2023.`\
+https://nytimes.com/athletic/6143379/2025/02/18/inigo-martinez-barcelona-contract-registration/
+
+**A Disagreement on Tariffs**\
+`We explain two competing views.`\
+https://nytimes.com/2025/02/18/briefing/a-disagreement-on-tariffs.html
+
 **Senior U.S. and Russian Officials Meet for Extensive Talks in Riyadh**\
 `The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143040/2025/02/18/twins-harrison-bader-move-left-f
 **How does the NFL franchise tag work? Five leading candidates to get tagged this offseason**\
 `The tag was first introduced by owners in 1993 as a compromise in the NFL's fourth-ever CBA as the NFLPA sought to create free agency.`\
 https://nytimes.com/athletic/6141811/2025/02/18/nfl-franchise-tag-explainer/
-
-**Which 2024 NFL Draft prospects could determine how Round 1 plays out?**\
-`Be it the QBs, tight ends, running backs or a few versatile defenders, these are the prospects who will decide the direction of Round 1.`\
-https://nytimes.com/athletic/6141705/2025/02/18/nfl-draft-2025-round-1-prospects-quarterbacks/
-
-**Plane Flips Over in Toronto, and Migrants Trapped in Panama Hotel**\
-`Plus, meat raffles: like bingo, but with beef.`\
-https://nytimes.com/2025/02/18/podcasts/the-headlines/plane-toronto-migrants-panama.html
 

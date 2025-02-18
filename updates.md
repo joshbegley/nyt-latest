@@ -1,3 +1,11 @@
+**Martinez agrees new Barcelona deal - but salary cap fears delaying announcement**\
+`Martinez was previously asked, and refused, to take a salary cut in order to help Barcelona's registration issues in 2023.`\
+https://nytimes.com/athletic/6143379/2025/02/18/inigo-martinez-barcelona-contract-registration/
+
+**A Disagreement on Tariffs**\
+`We explain two competing views.`\
+https://nytimes.com/2025/02/18/briefing/a-disagreement-on-tariffs.html
+
 **Pope Francis Will Miss Scheduled Events Because of Poor Health**\
 `The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a Mass on Sunday.`\
 https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
