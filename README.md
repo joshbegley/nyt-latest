@@ -1,3 +1,7 @@
+**Roasted Chicken Thighs With Hot Honey and Lime: Dinner in No Time**\
+`Speedy and simple to make; spectacular to eat.`\
+https://nytimes.com/2025/02/18/dining/roasted-chicken-thighs-with-hot-honey-and-lime-dinner-in-no-time.html
+
 **Bruins defenseman Charlie McAvoy out for Team USA for 4 Nations Face-Off final**\
 `There was no immediate word on if Team USA would bring in an injury replacement. Jake Sanderson skated in McAvoy's place against Sweden.`\
 https://nytimes.com/athletic/6143867/2025/02/18/bruins-usa-charlie-mcavoy-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/us/politics/denise-cheung-federal-prosecutor-quit
 **Veteran Justin Turner finalizing 1-year, $6 million deal to join Chicago Cubs: Source**\
 `Entering his age-40 season, Turner will get some reps at first base, as a designated hitter and potentially at third base.`\
 https://nytimes.com/athletic/6142923/2025/02/18/chicago-cubs-justin-turner-deal/
-
-**Who Runs Elon Musk’s DOGE? Not Musk, the White House Says.**\
-`A White House official declared that Mr. Musk is not the administrator of the so-called Department of Government Efficiency. So who is?`\
-https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-leader.html
 
