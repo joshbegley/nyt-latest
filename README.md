@@ -1,3 +1,7 @@
+**U.S. and Russia Pursue Closer Ties**\
+`Also, Mayor Eric Adams faces political peril. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/02/18/briefing/united-states-russia-closer-ties-mayor-eric-adams.html
+
 **Did NBA fans like the new All-Star Game format? Readers weigh in**\
 `Draymond Green was highly critical of the NBA's new All-Star format. We polled readers to see if they agreed.`\
 https://nytimes.com/athletic/6144378/2025/02/18/all-star-game-poll-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144825/2025/02/18/charlie-mcavoy-injury-united-sta
 **Kansas Lawmakers Override Veto of Ban on Transition Care for Minors**\
 `Gov. Laura Kelly, a Democrat, had vetoed the bill, but the Republican-controlled Legislature overwhelmingly supported it, following the lead of other conservative states.`\
 https://nytimes.com/2025/02/18/us/kansas-transgender-law.html
-
-**Britain’s clean energy goal is ‘sinister,’ the U.S. energy secretary says.**\
-`The comments by Chris Wright, a former oil executive, were a highly unusual criticism of one of the United States’ closest allies.`\
-https://nytimes.com/live/2025/02/18/us/trump-news/chris-wright-sinister-goal-energy-britain
 
