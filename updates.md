@@ -1,3 +1,7 @@
+**Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
+`Judge and Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
+https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
+
 **Dickson Despommier, Who Championed Farming in Skyscrapers, Dies at 84**\
 `A microbiologist, he popularized “vertical farming” — raising crops in tall buildings — to remediate climate change and feed more people.`\
 https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
