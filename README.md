@@ -1,3 +1,15 @@
+**Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
+`Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\
+https://nytimes.com/2025/02/18/climate/usaid-climate-social-unrest-terrorism.html
+
+**Trade, keep or extend: What should Canucks do with Brock Boeser, other pending UFAs?**\
+`What factors should the Canucks consider in determining what to do with their pending unrestricted free agents before the trade deadline?`\
+https://nytimes.com/athletic/6143162/2025/02/18/canucks-trade-brock-boeser-free-agent/
+
+**NBA Power Rankings: All-Star highs and lows for (almost) every team. (Sorry, Sacramento)**\
+`Ladies and gentlemen, the weekend ... was a time to celebrate the NBA. The top tier of our rankings remains the same.`\
+https://nytimes.com/athletic/6143400/2025/02/18/nba-power-rankings-thunder-lakers-kings-celtics/
+
 **Emery says it is 'difficult to know' why Villa are getting so many injuries**\
 `Unai Emery has admitted he does not know the reason behind Aston Villa&#8217;s ongoing injury struggles this season.`\
 https://nytimes.com/athletic/6143660/2025/02/18/aston-villa-liverpool-team-news-injuries/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-exte
 **All-Star Weekend participants have their say on tourney format, rule changes and more**\
 `Not everyone polled answered every question, but they all had plenty of ideas in the Bay Area over the weekend.`\
 https://nytimes.com/athletic/6142903/2025/02/18/nba-player-poll-all-stars-changes-2025/
-
-**Alexander Brothers Face More Lawsuits Accusing Them of Sexual Assault**\
-`Tal Alexander and Oren Alexander, once top real estate brokers, and their brother Alon Alexander are currently in jail awaiting trial on federal sex-trafficking charges.`\
-https://nytimes.com/2025/02/18/realestate/tal-oren-alexander-brothers-lawsuits-sexual-assault.html
-
-**Rudiger fit for Man City clash**\
-`The 31-year-old has missed Madrid's last four games with a muscle injury.`\
-https://nytimes.com/athletic/6143455/2025/02/18/real-madrid-man-city-team-news-rudiger/
-
-**Blackout buster? SNY to stream Mets games as MLB reaches 22 teams available without TV bundle**\
-`The move is part of a growing trend that Major League Baseball hopes will be helpful in combating blackouts`\
-https://nytimes.com/athletic/6143098/2025/02/18/mets-sny-streaming-blackout/
 
