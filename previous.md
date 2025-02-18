@@ -1,3 +1,7 @@
+**OpenAI’s Former Chief Technology Officer Starts Her Own Company**\
+`Mira Murati, who left OpenAI last year, has helped establish Thinking Machines Lab, a new artificial intelligence start-up.`\
+https://nytimes.com/2025/02/18/technology/openai-mira-murati-startup.html
+
 **Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
 `Stephen Bannon, a top adviser during President Trump’s first term and a key figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/style/california-anti-aging-skin-care-bill-age-mi
 **Pay Attention to the Words Elon Musk Uses with DOGE**\
 `Elon Musk’s team has only the powers that Congress gives it, or doesn’t give it — explicitly or implicitly, actively or passively.`\
 https://nytimes.com/2025/02/18/opinion/elon-musk-doge-congress-name.html
-
-**Quinn Hughes to join Team USA in Boston ahead of 4 Nations final vs. Canada**\
-`Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
-https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/
 

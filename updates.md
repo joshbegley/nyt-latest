@@ -1,3 +1,7 @@
+**OpenAI’s Former Chief Technology Officer Starts Her Own Company**\
+`Mira Murati, who left OpenAI last year, has helped establish Thinking Machines Lab, a new artificial intelligence start-up.`\
+https://nytimes.com/2025/02/18/technology/openai-mira-murati-startup.html
+
 **Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
 `Stephen Bannon, a top adviser during President Trump’s first term and a key figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
