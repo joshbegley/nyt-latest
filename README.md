@@ -1,3 +1,7 @@
+**Watch: Does Maresca need to learn to embrace the chaos?**\
+`The Athletic FC Podcast discuss whether Maresca-ball has proved counterproductive for Chelsea`\
+https://nytimes.com/athletic/6143439/2025/02/18/athletic-fc-podcast-chelsea-maresca-tactics/
+
 **Hamas Says Remains of Israeli Captives Will Be Handed Over on Thursday**\
 `The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
 https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131746/2025/02/18/padres-spring-reset-manny-machad
 **Kyle Harrison is already solid, but he and the Giants should get greedy**\
 `Harrison's fastball plays, though he needs to recover velocity he lost last season. But the key for him could be improving his secondaries.`\
 https://nytimes.com/athletic/6142271/2025/02/18/sf-giants-kyle-harrison-analysis/
-
-**Nike Bets Big on Kim Kardashian**\
-`The Skims founder will enter into a rare business deal with the sports apparel company.`\
-https://nytimes.com/2025/02/18/style/nike-skims-kim-kardashian.html
 
