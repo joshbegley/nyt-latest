@@ -1,3 +1,11 @@
+**Large Fire Erupts at Industrial Complex in Pennsylvania, Closing Schools**\
+`The building was evacuated and nobody was injured, the police said, but heavy smoke and the possibility of burning chemicals led officials to close local schools.`\
+https://nytimes.com/2025/02/18/us/sps-technologies-fire-pennsylvania.html
+
+**Gil Won-ok, Victim of Wartime Sex Slavery Who Fought for Japan’s Apology, Dies at 96**\
+`She led a tireless campaign for a formal apology and reparations from Japan for what it did to thousands of women like her — mostly Korean — during World War II.`\
+https://nytimes.com/2025/02/18/world/asia/korea-comfort-women-advocate-obituary.html
+
 **A Displaced Father Was Desperate to Return Home. He Never Made It.**\
 `Thousands uprooted by the war in Lebanon have been unable to reach southern towns occupied by Israel, but some have tried anyway. For one man, the journey was deadly.`\
 https://nytimes.com/2025/02/18/world/europe/israel-lebanon-hezbollah-displaced.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/opinion/eric-adams-trump-doj.html
 **As Trump ‘Exports’ Deportees, Hundreds Are Trapped in Panama Hotel**\
 `The administration has asked Panama to take in hundreds of people who can’t easily be sent back to their countries. Many say they are in danger.`\
 https://nytimes.com/2025/02/18/world/americas/trump-migrant-deportation-panama.html
-
-**Elon Musk Is Leading a ‘Hostile Takeover of the Federal Government’**\
-`His mandate under President Trump “truly is unprecedented in U.S. history.”`\
-https://nytimes.com/2025/02/18/opinion/musk-trump-doge-tech.html
-
-**At Luna Luna You Can Look, but Please Don’t Hop on the Rides**\
-`Visitors to the avant-garde carnival at the Shed were mostly undeterred by the Basquiat Ferris wheel and other attractions being off limits. It “makes it more mystical,” one guest said.`\
-https://nytimes.com/2025/02/18/arts/design/luna-luna-shed-hudson-yards.html
 
