@@ -1,3 +1,7 @@
+**Europe’s Leaders, Dazed by an Ally Acting Like an Adversary, Recalculate**\
+`Faced with undisguised hostility from the Trump administration, Europeans are preparing for what is shaping up to be a go-it-alone era.`\
+https://nytimes.com/2025/02/18/world/europe/trump-europe-ukraine.html
+
 **A Passenger Jet Flips and Burns, but Tragedy Is Averted This Time**\
 `All 80 people aboard Delta Flight 4819 survived a crash landing at a windy and snowy Toronto airport.`\
 https://nytimes.com/2025/02/18/world/canada/delta-plane-toronto-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/insider/ask-well-health-questions.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/18/crosswords/spelling-bee-forum.html
-
-**Maher Knocks Trump’s Gutting of the Federal Work Force**\
-`“America is in shock that the guy whose catchphrase was ‘You’re fired’ is firing everybody in government,” Bill Maher said of President Trump on “Real Time.”`\
-https://nytimes.com/2025/02/18/arts/television/bill-maher-trump-doge-firings.html
 
