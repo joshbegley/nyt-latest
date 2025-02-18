@@ -1,3 +1,7 @@
+**A breathtless and brilliant first look at Everton's £760m new home**\
+`A bold new dawn awaits for Everton and the sense of anticipation is palpable after the first match at the new stadium`\
+https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-park/
+
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/briefing/a-disagreement-on-tariffs.html
 **Senior U.S. and Russian Officials Meet for Extensive Talks in Riyadh**\
 `The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
-
-**Pope Francis Will Miss Mass on Sunday Because of Poor Health**\
-`The Vatican said the pontiff, who is in the hospital with a “respiratory tract infection,” was resting and had eaten breakfast and read newspapers “as he usually does.”`\
-https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
 
