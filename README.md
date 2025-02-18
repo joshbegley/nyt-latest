@@ -1,3 +1,7 @@
+**Hundreds of Artists Call on N.E.A. to Roll Back Trump’s Restrictions**\
+`A letter signed by 463 playwrights, poets, dancers, visual artists and others pushes back against new grant requirements that bar the promotion of diversity or “gender ideology.”`\
+https://nytimes.com/2025/02/18/arts/nea-artists-letter-trump-restrictions.html
+
 **Roasted Chicken Thighs With Hot Honey and Lime: Dinner in No Time**\
 `Speedy and simple to make; spectacular to eat.`\
 https://nytimes.com/2025/02/18/dining/roasted-chicken-thighs-with-hot-honey-and-lime-dinner-in-no-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143023/2025/02/18/canada-usa-4-nations-face-off-ho
 **Prosecutor in U.S. Attorney’s Office in Washington Abruptly Resigns**\
 `The prosecutor, Denise Cheung, did not say what precipitated her decision in an email to colleagues, but she thanked them for adhering to the highest standards of professional conduct.`\
 https://nytimes.com/2025/02/18/us/politics/denise-cheung-federal-prosecutor-quits.html
-
-**Veteran Justin Turner finalizing 1-year, $6 million deal to join Chicago Cubs: Source**\
-`Entering his age-40 season, Turner will get some reps at first base, as a designated hitter and potentially at third base.`\
-https://nytimes.com/athletic/6142923/2025/02/18/chicago-cubs-justin-turner-deal/
 
