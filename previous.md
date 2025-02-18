@@ -1,3 +1,7 @@
+**Hollinger: NBA All-Star Game wasn't weird enough. Plus, scouting Dash Daniels**\
+`The NBA is hardly the only major sport whose All-Star Game seems outdated and irrelevant, so it's time to tinker even more.`\
+https://nytimes.com/athletic/6143235/2025/02/18/nba-all-star-game-format-dash-daniels/
+
 **Hundreds of Artists Call on N.E.A. to Roll Back Trump’s Restrictions**\
 `A letter signed by 463 playwrights, poets, dancers, visual artists and others pushes back against new grant requirements that bar the promotion of diversity or “gender ideology.”`\
 https://nytimes.com/2025/02/18/arts/nea-artists-letter-trump-restrictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/business/dealbook/europe-defense-stocks-market.ht
 **Canada, U.S. ready for 'dream scenario' 4 Nations final: 'A great celebration of hockey'**\
 `For many players, Thursday's Canada-USA 4 Nations final will be the biggest game of their careers.`\
 https://nytimes.com/athletic/6143023/2025/02/18/canada-usa-4-nations-face-off-hockey/
-
-**Prosecutor in U.S. Attorney’s Office in Washington Abruptly Resigns**\
-`The prosecutor, Denise Cheung, did not say what precipitated her decision in an email to colleagues, but she thanked them for adhering to the highest standards of professional conduct.`\
-https://nytimes.com/2025/02/18/us/politics/denise-cheung-federal-prosecutor-quits.html
 

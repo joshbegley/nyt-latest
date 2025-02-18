@@ -1,3 +1,7 @@
+**Hollinger: NBA All-Star Game wasn't weird enough. Plus, scouting Dash Daniels**\
+`The NBA is hardly the only major sport whose All-Star Game seems outdated and irrelevant, so it's time to tinker even more.`\
+https://nytimes.com/athletic/6143235/2025/02/18/nba-all-star-game-format-dash-daniels/
+
 **Hundreds of Artists Call on N.E.A. to Roll Back Trump’s Restrictions**\
 `A letter signed by 463 playwrights, poets, dancers, visual artists and others pushes back against new grant requirements that bar the promotion of diversity or “gender ideology.”`\
 https://nytimes.com/2025/02/18/arts/nea-artists-letter-trump-restrictions.html
