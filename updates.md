@@ -1,3 +1,7 @@
+**A coalition of states had sought to place limits on Elon Musk’s operatives.**\
+`A coalition of states had sought to temporarily block Elon Musk’s operatives from access to sensitive data and involvement in mass firings.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/elon-musk-doge-lawsuit-agencies
+
 **Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
 `Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
 https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
