@@ -1,3 +1,7 @@
+**Cohen: Mets 'blew through' expected team payroll growth this offseason**\
+`"I've always wanted to be a little more measured in payroll growth, and then we get there and it's never quite there,” Cohen said Tuesday.`\
+https://nytimes.com/athletic/6144071/2025/02/18/mets-payroll-steve-cohen/
+
 **Trump’s Revenge Now Includes His Takeover of the Kennedy Center**\
 `What will a thin-skinned showman do with an institution central to Washington’s cultural life? One expectation is more country music.`\
 https://nytimes.com/2025/02/18/us/politics/kennedy-center-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/us/leonard-peltier-released-prison.html
 **Is Messi about to play in what could be the coldest soccer match on record?**\
 `Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing`\
 https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/
-
-**A Lonely Holdout Where Republicans Still Resist Trump: Utah**\
-`Bolstered by Mormon voters’ distaste for MAGA politics, the center-right is trying to reassert itself in a ruby-red state.`\
-https://nytimes.com/2025/02/18/us/politics/trump-republicans-utah.html
 
