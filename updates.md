@@ -1,3 +1,7 @@
+**Judge in Adams Case Faces a Flood of Demands to Continue the Prosecution**\
+`As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
+https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
+
 **String of Air Crashes in 2025 Has Rattled Travelers**\
 `The accidents, which remain under investigation, have prompted criticism of U.S. aviation regulators.`\
 https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
