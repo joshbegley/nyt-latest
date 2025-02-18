@@ -1,5 +1,9 @@
+**Alexander Brothers Face More Lawsuits Accusing Them of Sexual Assault**\
+`Tal Alexander and Oren Alexander, once top real estate brokers, and their brother Alon Alexander are currently in jail awaiting trial on federal sex-trafficking charges.`\
+https://nytimes.com/2025/02/18/realestate/tal-oren-alexander-brothers-lawsuits-sexual-assault.html
+
 **Rudiger fit for Man City clash**\
-`Real Madrid head coach Carlo Ancelotti has confirmed that centre-back Antonio Rudiger is ready to return for his side’s Champions League play-off second leg against Manchester City on Wednesday.`\
+`The 31-year-old has missed Madrid's last four games with a muscle injury.`\
 https://nytimes.com/athletic/6143455/2025/02/18/real-madrid-man-city-team-news-rudiger/
 
 **Blackout buster? SNY to stream Mets games as MLB reaches 22 teams available without TV bundle**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-
 **Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
 `The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
 https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
-
-**EFL assistant referee Gareth Viccars charged with child sex offence**\
-`The 46-year-old has been remanded in custody after appearing at Willesden Magistrates' Court on February 7.`\
-https://nytimes.com/athletic/6142610/2025/02/18/gareth-viccars-child-sex-offence/
 
