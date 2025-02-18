@@ -1,3 +1,11 @@
+**Man Utd, Everton in advanced talks over U.S. pre-season tournament**\
+`The Premier League Summer Series is set to return after its inception in 2023 before being cancelled in 2024 due to complications.`\
+https://nytimes.com/athletic/6143216/2025/02/18/manchester-united-summer-series-everton-bournemouth/
+
+**The Pulse: It's a rematch**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6142047/2025/02/18/canada-usa-4-nations-the-pulse/
+
 **Martinez agrees new Barcelona deal - but salary cap fears delaying announcement**\
 `Martinez was previously asked, and refused, to take a salary cut in order to help Barcelona's registration issues in 2023.`\
 https://nytimes.com/athletic/6143379/2025/02/18/inigo-martinez-barcelona-contract-registration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6135856/2025/02/18/stephanie-white-caitlin-clark-in
 **How likely are the Packers to acquire a true No. 1 wide receiver this offseason?**\
 `Green Bay could make a splash addition at one of several positions this offseason. Does adding to its youthful WR room make the most sense?`\
 https://nytimes.com/athletic/6142083/2025/02/18/packers-top-wide-receiver-addition-offseason/
-
-**Twins notes: Harrison Bader 'looking forward' to playing left**\
-`Plus an injury update on top prospect Emmanuel Rodriguez, and Royce Lewis clarifies a viral comment about slumps.`\
-https://nytimes.com/athletic/6143040/2025/02/18/twins-harrison-bader-move-left-field/
-
-**How does the NFL franchise tag work? Five leading candidates to get tagged this offseason**\
-`The tag was first introduced by owners in 1993 as a compromise in the NFL's fourth-ever CBA as the NFLPA sought to create free agency.`\
-https://nytimes.com/athletic/6141811/2025/02/18/nfl-franchise-tag-explainer/
 
