@@ -1,4 +1,4 @@
-**Elon Musk Zeroes in on the I.R.S.**\
+**Elon Musk Zeroes In on the I.R.S.**\
 `The tech mogul’s cost-cutting initiative is seeking sensitive taxpayer data, drawing concerns about privacy, potential political retribution and more.`\
 https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.html
 
