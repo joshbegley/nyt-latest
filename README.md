@@ -1,6 +1,14 @@
+**Kylian Mbappe's intimate relationship with speed - and why he was told to slow down**\
+`Speed has been a key part of Mbappe's game since he burst onto the scene as a teenager. It has been a vital part of his evolution too...`\
+https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-champions-league/
+
 **Tuesday Briefing**\
 `Talks about Ukraine’s future.`\
 https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
+
+**Why Madrid-City remains a 'modern Clasico' - despite mixed fortunes this season**\
+`Madrid and City played out a thrilling play-off first leg last week. They meet again on Wednesday with the rivalry as strong as ever`\
+https://nytimes.com/athletic/6141454/2025/02/18/real-madrid-manchester-city-modern-clasico/
 
 **"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
 `The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/world/asia/us-marines-japan-okinawa.html
 **An Abortion Scene Gets Theater Audiences Talking, and Fainting**\
 `“The Years,” running in London, dramatizes a woman’s life from teenage thrills to later-life sex. One intense scene is causing audience members to pass out.`\
 https://nytimes.com/2025/02/18/theater/the-years-play-abortion-scene-garai.html
-
-**Quote of the Day: Yrjo Kukkapuro, Made Chairs Most Every Finn Has Sat On, Dies at 91**\
-`Quotation of the Day for Tuesday, February 18, 2025.`\
-https://nytimes.com/2025/02/17/pageoneplus/quote-of-the-day-yrjo-kukkapuro-made-chairs-most-every-finn-has-sat-on-dies-at-91.html
-
-**String of Air Crashes in 2025 Has Rattled Travelers**\
-`The accidents, which remain under investigation, have prompted criticism of U.S. aviation regulators.`\
-https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
 

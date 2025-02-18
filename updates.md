@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Talks about Ukraine’s future.`\
+https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
+
 **"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
 `The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
 https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
