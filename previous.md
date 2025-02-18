@@ -8,7 +8,7 @@ https://nytimes.com/2025/02/18/weather/arctic-cold-snow.html
 
 **They’ve Been Waiting Years to Go Public. They’re Still Waiting.**\
 `Some tech companies are delaying or pulling their listing plans as the Trump administration’s tariff announcements and other changes cause market volatility and uncertainty.`\
-https://nytimes.com/2025/02/18/technology/theyve-been-waiting-years-to-go-public-theyre-still-waiting.html
+https://nytimes.com/2025/02/18/technology/tech-ipo-delays.html
 
 **Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
 `Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\

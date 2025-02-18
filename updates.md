@@ -1,3 +1,7 @@
+**They’ve Been Waiting Years to Go Public. They’re Still Waiting.**\
+`Some tech companies are delaying or pulling their listing plans as the Trump administration’s tariff announcements and other changes cause market volatility and uncertainty.`\
+https://nytimes.com/2025/02/18/technology/tech-ipo-delays.html
+
 **Who Runs Elon Musk’s DOGE? Not Musk, the White House Says.**\
 `A White House official declared that Mr. Musk is not the administrator of the so-called Department of Government Efficiency. So who is?`\
 https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-leader.html
