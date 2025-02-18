@@ -1,3 +1,7 @@
+**10-man Milan crash out of Champions League in knockout playoff**\
+`Feyenoord's 2-1 aggregate triumph over Milan spells the end of the Champions League run for Christian Pulisic and Yunus Musah.`\
+https://nytimes.com/athletic/6144434/2025/02/18/feyenoord-ac-milan-champions-league-pulisic-musah-usmnt/
+
 **Arsenal's Lewis-Skelly shouldn't have been red carded at Wolves - Webb**\
 `The full-back, 18, was shown a straight red card for ‘serious foul play’ by referee Michael Oliver in the 43rd minute of the game in January`\
 https://nytimes.com/athletic/6144348/2025/02/18/myles-lewis-skelly-red-card-arsenal-webb/
