@@ -1,3 +1,11 @@
+**Kylian Mbappe's intimate relationship with speed - and why he was told to slow down**\
+`Speed has been a key part of Mbappe's game since he burst onto the scene as a teenager. It has been a vital part of his evolution too...`\
+https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-champions-league/
+
+**Why Madrid-City remains a 'modern Clasico' - despite mixed fortunes this season**\
+`Madrid and City played out a thrilling play-off first leg last week. They meet again on Wednesday with the rivalry as strong as ever`\
+https://nytimes.com/athletic/6141454/2025/02/18/real-madrid-manchester-city-modern-clasico/
+
 **Tuesday Briefing**\
 `Talks about Ukraine’s future.`\
 https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html

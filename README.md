@@ -1,3 +1,15 @@
+**Webster on Hurzeler, England and injuries: 'That was a real low. It felt like deja vu'**\
+`Following a three-month injury layoff, the defender is rebuilding under his third manager since joining Brighton in 2019`\
+https://nytimes.com/athletic/6139767/2025/02/18/adam-webster-hurzeler-england-injuries/
+
+**Inside Newcastle Q&A: Why the collective collapse? Miley over Longstaff? Has the club stopped communicating?**\
+`Chris Waugh answers subscribers' questions on the PSR plan for summer, where Newcastle could finish, and the Isak rumour in Spain`\
+https://nytimes.com/athletic/6141345/2025/02/18/inside-newcastle-qa-miley-longstaff-isak-eales/
+
+**Mason Melia: The Irish striker Spurs have signed but who can't play until 2026**\
+`How the 17-year-old became a target for Europe's elite clubs`\
+https://nytimes.com/athletic/6136341/2025/02/18/mason-melia-tottenham-ireland/
+
 **Kylian Mbappe's intimate relationship with speed - and why he was told to slow down**\
 `Speed has been a key part of Mbappe's game since he burst onto the scene as a teenager. It has been a vital part of his evolution too...`\
 https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6141390/2025/02/18/willie-isa-chelsea-why-rugby-lea
 **As Deadline for Withdrawal Lapses, Israel Says It Will Stay in Southern Lebanon**\
 `Israeli forces will remain at five strategic points within Lebanese territory despite Tuesday’s deadline for Israeli troops and Hezbollah fighters to pull back.`\
 https://nytimes.com/2025/02/18/world/middleeast/lebanon-israel-forces-hezbollah.html
-
-**Okinawa, a Small Island Caught Between Big Powers**\
-`Residents of the Japanese island see U.S. bases as a legacy of war and colonialism, but younger generations also worry about a threat from China.`\
-https://nytimes.com/2025/02/18/world/asia/okinawa-japan-us-military-china.html
-
-**U.S. Marines Start to Leave Japan, Decades Behind Schedule**\
-`The American base on Okinawa has relocated 105 Marines. But an agreement to move 9,000 in total is colliding with the perceived threat from a rising China.`\
-https://nytimes.com/2025/02/18/world/asia/us-marines-japan-okinawa.html
-
-**An Abortion Scene Gets Theater Audiences Talking, and Fainting**\
-`“The Years,” running in London, dramatizes a woman’s life from teenage thrills to later-life sex. One intense scene is causing audience members to pass out.`\
-https://nytimes.com/2025/02/18/theater/the-years-play-abortion-scene-garai.html
 
