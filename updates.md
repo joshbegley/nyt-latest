@@ -1,3 +1,11 @@
+**How Barcelona roared back to go top of La Liga**\
+`Having gone through an extended spell of dire form in La Liga in recent months, Barcelona have turned a corner in style`\
+https://nytimes.com/athletic/6143203/2025/02/18/barcelona-rayo-vallecano-la-liga/
+
+**Gomez may need surgery, Gakpo out of Villa game - Slot**\
+`Arne Slot says Joe Gomez might need surgery on his hamstring with the Liverpool defender expected to be sidelined until the latter stages of the season.`\
+https://nytimes.com/athletic/6143295/2025/02/18/liverpool-team-news-gakpo-gomez-villa/
+
 **Europe’s Leaders, Dazed by an Ally Acting Like an Adversary, Recalculate**\
 `Faced with undisguised hostility from the Trump administration, Europeans are preparing for what is shaping up to be a go-it-alone era.`\
 https://nytimes.com/2025/02/18/world/europe/trump-europe-ukraine.html
