@@ -1,3 +1,7 @@
+**Corrections: Feb. 18, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 18, 2025.`\
+https://nytimes.com/2025/02/17/pageoneplus/corrections-feb-18-2025.html
+
 **Judge in Adams Case Faces a Flood of Demands to Continue the Prosecution**\
 `As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
 https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/17/business/17southwest-airlines-layoffs.html
 `<p>Leave your questions here for my February 19 edition. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6142892/2025/02/17/submit-a-question-for-stewart-mandels-college-football-mailbag-293/
-
-**An Invisible Medical Shortage: Oxygen**\
-`Oxygen is vital to many medical procedures. But a safe, affordable supply is severely lacking around the world, according to a new report.`\
-https://nytimes.com/2025/02/17/health/medical-oxygen-shortage.html
 
