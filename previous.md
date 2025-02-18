@@ -1,3 +1,11 @@
+**Who Runs Elon Musk’s DOGE? Not Musk, the White House Says.**\
+`A White House official declared that Mr. Musk is not the administrator of the so-called Department of Government Efficiency. So who is?`\
+https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-leader.html
+
+**Arctic Air Mass Expected to Bring Dangerous Temperatures to Parts of the U.S.**\
+`And a winter storm could dump up to a foot of snow from the Central Plains to the East Coast.`\
+https://nytimes.com/2025/02/18/weather/arctic-cold-snow.html
+
 **They’ve Been Waiting Years to Go Public. They’re Still Waiting.**\
 `Some tech companies are delaying or pulling their listing plans as the Trump administration’s tariff announcements and other changes cause market volatility and uncertainty.`\
 https://nytimes.com/2025/02/18/technology/theyve-been-waiting-years-to-go-public-theyre-still-waiting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143439/2025/02/18/athletic-fc-podcast-chelsea-mare
 **Hamas Says Remains of Israeli Captives, Including Bibas Family, Will Be Handed Over on Thursday**\
 `The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
 https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
-
-**Elon Musk Zeroes In on the I.R.S.**\
-`The tech mogul’s cost-cutting initiative is seeking sensitive taxpayer data, drawing concerns about privacy, potential political retribution and more.`\
-https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.html
-
-**Vladimir Guerrero Jr., Blue Jays fail to reach long-term contract extension**\
-`The 26-year-old slugger is set to become a free agent at the end of the 2025 season.`\
-https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-extension/
 
