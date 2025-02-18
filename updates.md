@@ -1,3 +1,19 @@
+**Jupiter Links vs. NY Golf Club: How to watch Tiger Woods' TGL return on Tuesday**\
+`TGL's slate continues Tuesday, with Tiger Woods playing his first golf since the death of his mother, Kultida.`\
+https://nytimes.com/athletic/6144202/2025/02/18/jupiter-links-ny-golf-club-tgl-how-to-watch-tiger-woods/
+
+**A Soundtrack to a Fabulous Memoir Crackling With Music**\
+`Hear songs from Lucy Sante’s “I Heard Her Call My Name” by ESG Public Image Ltd., the Floaters and more.`\
+https://nytimes.com/2025/02/18/arts/music/amplifier-newsletter-lucy-sante-memoir-songs.html
+
+**How could Title IX impact NIL and revenue sharing in college sports?**\
+`Most schools that intend to opt into revenue sharing are proceeding as though the lion's share of the funds will be slated for men's sports.`\
+https://nytimes.com/athletic/6144055/2025/02/18/title-ix-nil-revenue-sharing-college-sports-effect-explained/
+
+**Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
+`Stephen Bannon, a top adviser during President Trump’s first term and a popular figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
+https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
+
 **Two Tiny Captives, Symbols of Hostage Crisis, to Come Home Dead, Hamas Says**\
 `Hamas said it would turn over the bodies of the boys, Ariel Bibas and his baby brother, Kfir, and their mother. Israel was expected to release Palestinian prisoners in exchange.`\
 https://nytimes.com/2025/02/18/world/middleeast/bibas-bodies-death-hamas-israel-exchange.html

@@ -1,3 +1,15 @@
+**Jupiter Links vs. NY Golf Club: How to watch Tiger Woods' TGL return on Tuesday**\
+`TGL's slate continues Tuesday, with Tiger Woods playing his first golf since the death of his mother, Kultida.`\
+https://nytimes.com/athletic/6144202/2025/02/18/jupiter-links-ny-golf-club-tgl-how-to-watch-tiger-woods/
+
+**A Soundtrack to a Fabulous Memoir Crackling With Music**\
+`Hear songs from Lucy Sante’s “I Heard Her Call My Name” by ESG Public Image Ltd., the Floaters and more.`\
+https://nytimes.com/2025/02/18/arts/music/amplifier-newsletter-lucy-sante-memoir-songs.html
+
+**How could Title IX impact NIL and revenue sharing in college sports?**\
+`Most schools that intend to opt into revenue sharing are proceeding as though the lion's share of the funds will be slated for men's sports.`\
+https://nytimes.com/athletic/6144055/2025/02/18/title-ix-nil-revenue-sharing-college-sports-effect-explained/
+
 **Two Tiny Captives, Symbols of Hostage Crisis, to Come Home Dead, Hamas Says**\
 `Hamas said it would turn over the bodies of the boys, Ariel Bibas and his baby brother, Kfir, and their mother. Israel was expected to release Palestinian prisoners in exchange.`\
 https://nytimes.com/2025/02/18/world/middleeast/bibas-bodies-death-hamas-israel-exchange.html
@@ -19,22 +31,10 @@ https://nytimes.com/2025/02/18/arts/television/we-beat-the-dream-team-grant-hill
 https://nytimes.com/2025/02/18/technology/openai-mira-murati-startup.html
 
 **Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
-`Stephen Bannon, a top adviser during President Trump’s first term and a key figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
+`Stephen Bannon, a top adviser during President Trump’s first term and a popular figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
 
 **Until Saturday: Big Ten and SEC could damage CFP**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6144015/2025/02/18/big-ten-sec-cfp-automatic-bids-until-saturday/
-
-**West Ham's Paqueta suffers ankle injury, to be assessed**\
-`The 27-year-old withdrew from the session on Tuesday, February 18 as a precaution and will be closely monitored by the club's medical team.`\
-https://nytimes.com/athletic/6144193/2025/02/18/lucas-paqueta-injury-update-west-ham/
-
-**Family Files Claims Against U.S. for Washington Plane Crash**\
-`The filings over the collision of an American Airlines plane and an Army helicopter last month appear to be the first such claim and signal the start of a long legal fight.`\
-https://nytimes.com/2025/02/18/business/airline-crash-victims-lawsuit.html
-
-**The Llama San Team Expands Nikkei Cooking at Papa San**\
-`Gui Steakhouse serves chops and Sichuan sides, Le Petit Village brings more French to the West Village and more news.`\
-https://nytimes.com/2025/02/18/dining/nyc-restaurant-news.html
 
