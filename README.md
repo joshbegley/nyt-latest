@@ -1,3 +1,7 @@
+**A Displaced Father Was Desperate to Return Home. He Never Made It.**\
+`Thousands uprooted by the war in Lebanon have been unable to reach southern towns occupied by Israel, but some have tried anyway. For one man, the journey was deadly.`\
+https://nytimes.com/2025/02/18/world/europe/israel-lebanon-hezbollah-displaced.html
+
 **Panthers' roster: Possible salary-cap cuts, plus ... Andy Dalton? Adam Thielen?**\
 `What does Miles Sanders' future hold? Will the Panthers give Thielen a new deal?`\
 https://nytimes.com/athletic/6142162/2025/02/18/panthers-potential-salary-cap-cuts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/opinion/musk-trump-doge-tech.html
 **At Luna Luna You Can Look, but Please Don’t Hop on the Rides**\
 `Visitors to the avant-garde carnival at the Shed were mostly undeterred by the Basquiat Ferris wheel and other attractions being off limits. It “makes it more mystical,” one guest said.`\
 https://nytimes.com/2025/02/18/arts/design/luna-luna-shed-hudson-yards.html
-
-**The Gene That Made Mice Squeak Strangely**\
-`A new study suggests that the NOVA1 gene may have been a key player in the evolution of human language.`\
-https://nytimes.com/2025/02/18/science/language-genes.html
 
