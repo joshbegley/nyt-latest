@@ -1,3 +1,7 @@
+**String of Air Crashes in 2025 Has Rattled Travelers**\
+`The accidents, which remain under investigation, have prompted criticism of U.S. aviation regulators.`\
+https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
+
 **What We Know About the Toronto Plane Crash**\
 `All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
 https://nytimes.com/2025/02/17/world/canada/toronto-plane-crash-delta.html

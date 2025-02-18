@@ -1,3 +1,7 @@
+**String of Air Crashes in 2025 Has Rattled Travelers**\
+`The accidents, which remain under investigation, have prompted criticism of U.S. aviation regulators.`\
+https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
+
 **What We Know About the Toronto Plane Crash**\
 `All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
 https://nytimes.com/2025/02/17/world/canada/toronto-plane-crash-delta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/pageoneplus/corrections-feb-18-2025.html
 **Judge in Adams Case Faces Demands to Continue the Prosecution**\
 `As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
 https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
-
-**Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot: Source**\
-`Gurriel could help fill the DH spot.`\
-https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
 
