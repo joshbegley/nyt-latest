@@ -1,3 +1,7 @@
+**Elon Musk Zeroes In on the I.R.S.**\
+`The tech mogul’s cost-cutting initiative is seeking sensitive taxpayer data, drawing concerns about privacy, potential political retribution and more.`\
+https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.html
+
 **Vladimir Guerrero Jr., Blue Jays fail to reach long-term contract extension**\
 `The 26-year-old slugger is set to become a free agent at the end of the 2025 season.`\
 https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/style/nike-skims-kim-kardashian.html
 **A breathtless and brilliant first look at Everton's £760m new home**\
 `A bold new dawn awaits for Everton and the sense of anticipation is palpable after the first match at the new stadium`\
 https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-park/
-
-**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
-`Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
-https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
 
