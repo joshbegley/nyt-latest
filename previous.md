@@ -1,9 +1,13 @@
+**Xi Is Making the World Pay for China’s Mistakes**\
+`Trump’s tariffs are bad enough, but Xi is fundamentally distorting world trade to dig China out of the hole its economic decisions have created.`\
+https://nytimes.com/2025/02/18/opinion/china-xi-jinping-trade-manufacturing-tariffs.html
+
 **Delta Crash Adds to Snow Disruptions at Toronto Airport**\
 `Two major storms had blanketed the region for days, causing flight delays and cancellations. Two of Pearson airport’s five runways remained closed after the crash.`\
 https://nytimes.com/2025/02/18/world/canada/toronto-airport-snow-disruptions-delta.html
 
 **What we’re hearing about the Cubs: Justin Turner, plus the shape of the roster**\
-`Turner, 40, would come at a fraction of the three-year, $120 million deal that Bregman secured from the Boston Red Sox`\
+`Turner, 40, would come at a fraction of the three-year, $120 million deal that Alex Bregman secured from the Boston Red Sox`\
 https://nytimes.com/athletic/6143121/2025/02/18/chicago-cubs-justin-turner-notebook/
 
 **Team USA drops 4 Nations round-robin finale to Sweden as injuries pile up**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6141444/2025/02/18/kylian-mbappe-speed-real-madrid-
 **Tuesday Briefing**\
 `Talks about Ukraine’s future.`\
 https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
-
-**Why Madrid-City remains a 'modern Clasico' - despite mixed fortunes this season**\
-`Madrid and City played out a thrilling play-off first leg last week. They meet again on Wednesday with the rivalry as strong as ever`\
-https://nytimes.com/athletic/6141454/2025/02/18/real-madrid-manchester-city-modern-clasico/
 
