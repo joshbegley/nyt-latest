@@ -1,3 +1,11 @@
+**Two Tiny Captives, Symbols of Hostage Crisis, to Come Home Dead, Hamas Says**\
+`Hamas said it would turn over the bodies of the boys, Ariel Bibas and his baby brother, Kfir, and their mother. Israel was expected to release Palestinian prisoners in exchange.`\
+https://nytimes.com/2025/02/18/world/middleeast/bibas-bodies-death-hamas-israel-exchange.html
+
+**Verstappen: 'No intention to continue any kind of beef' with Russell**\
+`The four-time F1 world champion Verstappen and Mercedes driver Russell had a heated exchanged at last year’s Qatar Grand Prix.`\
+https://nytimes.com/athletic/6144321/2025/02/18/max-verstappen-george-russell-beef-2025/
+
 **10 Ways to Turn Store-Bought Rotisserie Chicken Into a Healthy Dinner**\
 `Last night, a hot bird saved my life.`\
 https://nytimes.com/2025/02/18/dining/rotisserie-chicken-recipes.html
