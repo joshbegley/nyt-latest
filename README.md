@@ -1,3 +1,7 @@
+**Texans' Mixon, Anderson have fines for criticizing refs rescinded: Sources**\
+`Mixon was initially fined for comments he didn’t make about the officiating in a divisional-round loss to the Kansas City Chiefs.`\
+https://nytimes.com/athletic/6144886/2025/02/18/texans-joe-mixon-will-anderson-fines/
+
 **What we're seeing at Braves camp: Sale starts opener, bullpen battles, Allen vying for spot**\
 `Braves pitchers say Chris Sale's professionalism sets the tone: "It inspires us and motivates us to go out there and do the same."`\
 https://nytimes.com/athletic/6144699/2025/02/18/braves-chris-sale-nick-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-br
 **Adams Taps Close Associate for Top Public Safety Job**\
 `The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
 https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
-
-**WNBA trading cards selling for more than NBA cards for the first time**\
-`Collectors are snapping up Caitlin Clark's rookie cards`\
-https://nytimes.com/athletic/6141670/2025/02/18/caitlin-clark-wnba-rookie-cards-nba/
 
