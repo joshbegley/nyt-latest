@@ -1,3 +1,7 @@
+**Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
+`Fiercely independent, she publicly discussed the long-term effects of gun violence and spoke of forgiveness.`\
+https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.html
+
 **Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
 `Aaron Judge and Juan Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
 https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143781/2025/02/18/marcus-rashford-marco-asensio-as
 **A Slow-Moving California Landslide Suddenly Speeds Up**\
 `A new map shows where land movement is accelerating, buckling roads and collapsing homes.`\
 https://nytimes.com/interactive/2025/02/18/climate/landslides-california-storm-map.html
-
-**Trump May Name a Woman He Once Pardoned to Be His ‘Pardon Czar’**\
-`Alice Marie Johnson was serving a life sentence for a nonviolent drug conviction when the president commuted her sentence in 2018. Since then, she has become a criminal justice reform activist.`\
-https://nytimes.com/2025/02/18/us/politics/trump-pardon-czar.html
 

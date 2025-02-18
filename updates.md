@@ -1,3 +1,7 @@
+**Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
+`Fiercely independent, she publicly discussed the long-term effects of gun violence and spoke of forgiveness.`\
+https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.html
+
 **Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
 `Aaron Judge and Juan Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
 https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
