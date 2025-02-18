@@ -1,3 +1,7 @@
+**Judge Declines to Block Musk Team’s Foray Into Federal Agencies**\
+`A coalition of states had sought to temporarily block Elon Musk’s operatives from access to sensitive data and involvement in mass firings.`\
+https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-lawsuit-agencies.html
+
 **Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
 `Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
 https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/nyregion/cuomo-book-deal-ny-court-ruling.html
 **Padres CEO Erik Greupner says club has ‘sufficient’ resources for World Series pursuit**\
 `“I think we have a team, like you saw last year, that’s capable of going down and accomplishing our goal,” Greupner said.`\
 https://nytimes.com/athletic/6144476/2025/02/18/sd-padres-ceo-erik-greupner-resources/
-
-**F.D.A.’s Food Safety Chief Resigns Over Trump Administration Layoffs**\
-`The chief said the loss of critical employees overseeing the nation’s food supply made his work impossible. Robert F. Kennedy Jr., the nation’s new health secretary, has pledged to gut the division.`\
-https://nytimes.com/2025/02/18/us/politics/fda-food-safety-jim-jones-resignation.html
 
