@@ -1,3 +1,7 @@
+**EFL assistant referee Gareth Viccars charged with child sex offence**\
+`The 46-year-old has been remanded in custody after appearing at Willesden Magistrates' Court on February 7.`\
+https://nytimes.com/athletic/6142610/2025/02/18/gareth-viccars-child-sex-offence/
+
 **Man Utd, Everton in advanced talks over U.S. pre-season tournament**\
 `The Premier League Summer Series is set to return after its inception in 2023 before being cancelled in 2024 due to complications.`\
 https://nytimes.com/athletic/6143216/2025/02/18/manchester-united-summer-series-everton-bournemouth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6122736/2025/02/18/red-wings-player-poll/
 **Q&A: Stephanie White on handling Caitlin Clark mania, broadcasting and the Fever**\
 `White on Indiana: "Do I think we can be title contenders? Absolutely."`\
 https://nytimes.com/athletic/6135856/2025/02/18/stephanie-white-caitlin-clark-indiana-fever/
-
-**How likely are the Packers to acquire a true No. 1 wide receiver this offseason?**\
-`Green Bay could make a splash addition at one of several positions this offseason. Does adding to its youthful WR room make the most sense?`\
-https://nytimes.com/athletic/6142083/2025/02/18/packers-top-wide-receiver-addition-offseason/
 
