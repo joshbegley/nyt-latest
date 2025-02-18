@@ -1,3 +1,7 @@
+**Is Messi about to play in what could be the coldest soccer match on record?**\
+`Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing.`\
+https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/
+
 **A Lonely Holdout Where Republicans Still Resist Trump: Utah**\
 `Bolstered by Mormon voters’ distaste for MAGA politics, the center-right is trying to reassert itself in a ruby-red state.`\
 https://nytimes.com/2025/02/18/us/politics/trump-republicans-utah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/technology/tech-ipo-delays.html
 **Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
 `Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\
 https://nytimes.com/2025/02/18/climate/usaid-climate-social-unrest-terrorism.html
-
-**Trade, keep or extend: What should Canucks do with Brock Boeser, other pending UFAs?**\
-`What factors should the Canucks consider in determining what to do with their pending unrestricted free agents before the trade deadline?`\
-https://nytimes.com/athletic/6143162/2025/02/18/canucks-trade-brock-boeser-free-agent/
 
