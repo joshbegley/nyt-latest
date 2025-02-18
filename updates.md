@@ -1,3 +1,7 @@
+**Kennedy Says ‘Nothing’ Off Limits in Scrutinizing Chronic Disease**\
+`Robert F. Kennedy Jr., laying out his early health agenda, said he would examine childhood vaccines, psychiatric drugs and other “formerly taboo” topics in investigating the causes of chronic disease.`\
+https://nytimes.com/2025/02/18/us/politics/rfk-speaks-hhs.html
+
 **After Walking a Fine Line With Trump, Zelensky Shows His Annoyance**\
 `Left out of a meeting between American and Saudi officials, the Ukrainian leader also canceled a trip to Riyadh.`\
 https://nytimes.com/2025/02/18/world/middleeast/ukraine-trump-russia-war-peace-talks.html
