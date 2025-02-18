@@ -1,3 +1,15 @@
+**What we're seeing at Braves camp: Sale starts opener, bullpen battles, Allen vying for spot**\
+`Braves pitchers say Chris Sale's professionalism sets the tone: "It inspires us and motivates us to go out there and do the same."`\
+https://nytimes.com/athletic/6144699/2025/02/18/braves-chris-sale-nick-allen/
+
+**Vance’s Munich Disgrace**\
+`The vice president’s speech was a monument of arrogance based on a foundation of hypocrisy.`\
+https://nytimes.com/2025/02/18/opinion/vance-munich-germany-afd.html
+
+**Why Trump’s Bullying Is Going to Backfire**\
+`The scariest thing about what President Trump is doing with his tariffs-for-all strategy is that he has no clue what he is doing.`\
+https://nytimes.com/2025/02/18/opinion/trump-tariffs-economy.html
+
 **Panthers sign QB Andy Dalton to 2-year extension**\
 `In Week 3 of last season, he helped guide the Panthers to their first win of the year after the team benched starter Bryce Young.`\
 https://nytimes.com/athletic/6144802/2025/02/18/andy-dalton-panthers-return-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daugh
 **WNBA trading cards selling for more than NBA cards for the first time**\
 `Collectors are snapping up Caitlin Clark's rookie cards`\
 https://nytimes.com/athletic/6141670/2025/02/18/caitlin-clark-wnba-rookie-cards-nba/
-
-**What to Know About Leonard Peltier, Activist Released From Prison by Biden**\
-`Mr. Peltier’s murder conviction and two life sentences, stemming from a 1975 shootout with F.B.I. agents on a reservation, have been widely criticized.`\
-https://nytimes.com/2025/02/18/us/leonard-peltier-prison-release-biden.html
-
-**Arsenal's Tomiyasu undergoes knee surgery; out for rest of 2024-25**\
-`The 26-year-old versatile defender last played for the club in October and has been beset by injury problems.`\
-https://nytimes.com/athletic/6129424/2025/02/18/takehiro-tomiyasu-injury-knee-surgery-arsenal/
-
-**Trump’s Cuts Could Make Parks and Forests More Dangerous, Employees Say**\
-`Thousands of employees who helped oversee vast areas of wilderness have lost their jobs in President Trump’s moves to shrink the federal work force.`\
-https://nytimes.com/2025/02/18/climate/trump-layoffs-park-and-forest-service-workers.html
 

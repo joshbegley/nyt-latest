@@ -1,3 +1,15 @@
+**What we're seeing at Braves camp: Sale starts opener, bullpen battles, Allen vying for spot**\
+`Braves pitchers say Chris Sale's professionalism sets the tone: "It inspires us and motivates us to go out there and do the same."`\
+https://nytimes.com/athletic/6144699/2025/02/18/braves-chris-sale-nick-allen/
+
+**Vance’s Munich Disgrace**\
+`The vice president’s speech was a monument of arrogance based on a foundation of hypocrisy.`\
+https://nytimes.com/2025/02/18/opinion/vance-munich-germany-afd.html
+
+**Why Trump’s Bullying Is Going to Backfire**\
+`The scariest thing about what President Trump is doing with his tariffs-for-all strategy is that he has no clue what he is doing.`\
+https://nytimes.com/2025/02/18/opinion/trump-tariffs-economy.html
+
 **Panthers sign QB Andy Dalton to 2-year extension**\
 `In Week 3 of last season, he helped guide the Panthers to their first win of the year after the team benched starter Bryce Young.`\
 https://nytimes.com/athletic/6144802/2025/02/18/andy-dalton-panthers-return-nfl/
