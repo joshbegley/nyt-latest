@@ -1,3 +1,15 @@
+**Until Saturday: Big Ten and SEC could damage CFP**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6144015/2025/02/18/big-ten-sec-cfp-automatic-bids-until-saturday/
+
+**West Ham's Paqueta suffers ankle injury, to be assessed**\
+`The 27-year-old withdrew from the session on Tuesday, February 18 as a precaution and will be closely monitored by the club's medical team.`\
+https://nytimes.com/athletic/6144193/2025/02/18/lucas-paqueta-injury-update-west-ham/
+
+**Family Files Claims Against U.S. for Washington Plane Crash**\
+`The filings over the collision of an American Airlines plane and an Army helicopter last month appear to be the first such claim and signal the start of a long legal fight.`\
+https://nytimes.com/2025/02/18/business/airline-crash-victims-lawsuit.html
+
 **The Llama San Team Expands Nikkei Cooking at Papa San**\
 `Gui Steakhouse serves chops and Sichuan sides, Le Petit Village brings more French to the West Village and more news.`\
 https://nytimes.com/2025/02/18/dining/nyc-restaurant-news.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-re
 **F1 considering mandatory extra pit stops for Monaco GP to improve racing**\
 `Monaco has faced heavy criticism in recent years for the poor quality of racing and low number of overtakes on the track.`\
 https://nytimes.com/athletic/6144098/2025/02/18/f1-monaco-mandatory-pit-stops/
-
-**Yankees' DJ LeMahieu: 'I've definitely lost a lot of sleep' over recent nightmare seasons**\
-`Among all players with at least 200 plate appearances, LeMahieu's 52 wRC+ was the 12th-worst in MLB in 2024.`\
-https://nytimes.com/athletic/6143777/2025/02/18/yankees-dj-lemahieu-sleep-nightmare-seasons/
-
-**Cohen: Mets 'blew through' expected team payroll growth this offseason**\
-`"I've always wanted to be a little more measured in payroll growth, and then we get there and it's never quite there,” Cohen said Tuesday.`\
-https://nytimes.com/athletic/6144071/2025/02/18/mets-payroll-steve-cohen/
-
-**Trump’s Revenge Now Includes His Takeover of the Kennedy Center**\
-`What will a thin-skinned showman do with an institution central to Washington’s cultural life? One expectation is more country music.`\
-https://nytimes.com/2025/02/18/us/politics/kennedy-center-trump.html
 

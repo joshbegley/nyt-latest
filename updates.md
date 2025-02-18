@@ -1,3 +1,15 @@
+**Until Saturday: Big Ten and SEC could damage CFP**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6144015/2025/02/18/big-ten-sec-cfp-automatic-bids-until-saturday/
+
+**West Ham's Paqueta suffers ankle injury, to be assessed**\
+`The 27-year-old withdrew from the session on Tuesday, February 18 as a precaution and will be closely monitored by the club's medical team.`\
+https://nytimes.com/athletic/6144193/2025/02/18/lucas-paqueta-injury-update-west-ham/
+
+**Family Files Claims Against U.S. for Washington Plane Crash**\
+`The filings over the collision of an American Airlines plane and an Army helicopter last month appear to be the first such claim and signal the start of a long legal fight.`\
+https://nytimes.com/2025/02/18/business/airline-crash-victims-lawsuit.html
+
 **Pay Attention to the Words Elon Musk Uses with DOGE**\
 `Elon Musk’s team has only the powers that Congress gives it, or doesn’t give it — explicitly or implicitly, actively or passively.`\
 https://nytimes.com/2025/02/18/opinion/elon-musk-doge-congress-name.html
