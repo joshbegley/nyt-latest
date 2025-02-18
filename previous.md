@@ -1,3 +1,7 @@
+**10 Ways to Turn Store-Bought Rotisserie Chicken Into a Healthy Dinner**\
+`Last night, a hot bird saved my life.`\
+https://nytimes.com/2025/02/18/dining/rotisserie-chicken-recipes.html
+
 **With ‘We Beat the Dream Team,’ Grant Hill Can Finally Gloat**\
 `Hill and the film’s director talked about the time a team of college basketball players beat Michael Jordan, Larry Bird and Magic Johnson — and the effort to bury it.`\
 https://nytimes.com/2025/02/18/arts/television/we-beat-the-dream-team-grant-hill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143657/2025/02/18/penguins-nhl-trade-deadline-kyle
 **Vance in Munich, Lecturing Europe**\
 `Readers respond to the vice president’s speech criticizing Europe. Also: Funding freezes; third term talk; a brave patriot; a heartsick American.`\
 https://nytimes.com/2025/02/18/opinion/jd-vance-munich.html
-
-**California Bill Seeks Age Minimum on Anti-Aging Skin Care Products**\
-`Revamped legislation would require anyone purchasing the products to provide proof that they are 18 or older.`\
-https://nytimes.com/2025/02/18/style/california-anti-aging-skin-care-bill-age-minimum.html
 
