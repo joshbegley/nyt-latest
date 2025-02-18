@@ -1,7 +1,3 @@
-**Smartly Dressed Travelers With a Sentimental Satchel**\
-`Vacationers’ polished attire evoked the glamour of early jet-age travel.`\
-https://nytimes.com/2025/02/18/style/street-style-look-travel-outfits.html
-
 **Watch: Does Maresca need to learn to embrace the chaos?**\
 `The Athletic FC Podcast discuss whether Maresca-ball has proved counterproductive for Chelsea`\
 https://nytimes.com/athletic/6143439/2025/02/18/athletic-fc-podcast-chelsea-maresca-tactics/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6143098/2025/02/18/mets-sny-streaming-blackout/
 **Padres camp fully opens with a collective reset and Manny Machado back at ‘100 percent’**\
 `There is a sense that a still-talented team must make the most of the upcoming season. The urgency is heightened by what unfolded last fall.`\
 https://nytimes.com/athletic/6131746/2025/02/18/padres-spring-reset-manny-machado-update/
+
+**Kyle Harrison is already solid, but he and the Giants should get greedy**\
+`Harrison's fastball plays, though he needs to recover velocity he lost last season. But the key for him could be improving his secondaries.`\
+https://nytimes.com/athletic/6142271/2025/02/18/sf-giants-kyle-harrison-analysis/
 
