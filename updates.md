@@ -1,3 +1,7 @@
+**Senior U.S. and Russian Officials Meet for Extensive Talks in Riyadh**\
+`The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
+https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
+
 **Pope Francis Will Miss Scheduled Events Because of Poor Health**\
 `The Vatican said that the pontiff, who is in the hospital with a “respiratory tract infection,” would not be able to attend a celebration for deacons on Saturday and a mass on Sunday.`\
 https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
