@@ -1,3 +1,7 @@
+**Hamas Says Remains of Israeli Captives Will Be Handed Over on Thursday**\
+`The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
+https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
+
 **Elon Musk Zeroes In on the I.R.S.**\
 `The tech mogul’s cost-cutting initiative is seeking sensitive taxpayer data, drawing concerns about privacy, potential political retribution and more.`\
 https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.html
