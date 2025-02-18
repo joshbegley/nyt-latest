@@ -1,4 +1,4 @@
-**Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot**\
+**Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot: Source**\
 `Gurriel could help fill the DH spot.`\
 https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
 
