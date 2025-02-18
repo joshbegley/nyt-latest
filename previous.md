@@ -1,3 +1,7 @@
+**Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
+`Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
+https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
+
 **Adams Taps Close Associate for Top Public Safety Job**\
 `The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
 https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144476/2025/02/18/sd-padres-ceo-erik-greupner-reso
 **F.D.A.’s Food Safety Chief Resigns Over Trump Administration Layoffs**\
 `The chief said the loss of critical employees overseeing the nation’s food supply made his work impossible. Robert F. Kennedy Jr., the nation’s new health secretary, has pledged to gut the division.`\
 https://nytimes.com/2025/02/18/us/politics/fda-food-safety-jim-jones-resignation.html
-
-**Kennedy Says ‘Nothing’ Off Limits in Scrutinizing Chronic Disease**\
-`Robert F. Kennedy Jr., laying out his early health agenda, said he would examine childhood vaccines, psychiatric drugs and other “formerly taboo” topics in investigating the causes of chronic disease.`\
-https://nytimes.com/2025/02/18/us/politics/rfk-speaks-hhs.html
 

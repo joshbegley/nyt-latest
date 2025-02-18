@@ -1,3 +1,7 @@
+**Ahead of Canada vs. USA final, Brandon Hagel throws down gauntlet**\
+`Hagel added some fuel to the fire ahead of a second highly anticipated battle with Team USA on Thursday.`\
+https://nytimes.com/athletic/6144764/2025/02/18/canada-usa-4-nations-face-off-brandon-hagel/
+
 **Adams Taps Close Associate for Top Public Safety Job**\
 `The deputy police commissioner, Kaz Daughtry, replaces Chauncey Parker, a veteran prosecutor and law enforcement administrator who announced his resignation amid City Hall turmoil.`\
 https://nytimes.com/2025/02/18/nyregion/adams-deputy-mayor-immigration-kaz-daughtry.html
