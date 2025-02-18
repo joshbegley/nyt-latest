@@ -1,3 +1,7 @@
+**Emery says it is 'difficult to know' why Villa are getting so many injuries**\
+`Unai Emery has admitted he does not know the reason behind Aston Villa&#8217;s ongoing injury struggles this season.`\
+https://nytimes.com/athletic/6143660/2025/02/18/aston-villa-liverpool-team-news-injuries/
+
 **Smartly Dressed Travelers With a Sentimental Satchel**\
 `Vacationers’ polished attire evoked the glamour of early jet-age travel.`\
 https://nytimes.com/2025/02/18/style/street-style-look-travel-outfits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143455/2025/02/18/real-madrid-man-city-team-news-r
 **Blackout buster? SNY to stream Mets games as MLB reaches 22 teams available without TV bundle**\
 `The move is part of a growing trend that Major League Baseball hopes will be helpful in combating blackouts`\
 https://nytimes.com/athletic/6143098/2025/02/18/mets-sny-streaming-blackout/
-
-**Padres camp fully opens with a collective reset and Manny Machado back at ‘100 percent’**\
-`There is a sense that a still-talented team must make the most of the upcoming season. The urgency is heightened by what unfolded last fall.`\
-https://nytimes.com/athletic/6131746/2025/02/18/padres-spring-reset-manny-machado-update/
 

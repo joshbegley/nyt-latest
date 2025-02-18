@@ -1,3 +1,7 @@
+**Emery says it is 'difficult to know' why Villa are getting so many injuries**\
+`Unai Emery has admitted he does not know the reason behind Aston Villa&#8217;s ongoing injury struggles this season.`\
+https://nytimes.com/athletic/6143660/2025/02/18/aston-villa-liverpool-team-news-injuries/
+
 **Smartly Dressed Travelers With a Sentimental Satchel**\
 `Vacationers’ polished attire evoked the glamour of early jet-age travel.`\
 https://nytimes.com/2025/02/18/style/street-style-look-travel-outfits.html
