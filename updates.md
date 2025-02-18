@@ -1,3 +1,7 @@
+**With ‘We Beat the Dream Team,’ Grant Hill Can Finally Gloat**\
+`Hill and the film’s director talked about the time a team of college basketball players beat Michael Jordan, Larry Bird and Magic Johnson — and the effort to bury it.`\
+https://nytimes.com/2025/02/18/arts/television/we-beat-the-dream-team-grant-hill.html
+
 **OpenAI’s Former Chief Technology Officer Starts Her Own Company**\
 `Mira Murati, who left OpenAI last year, has helped establish Thinking Machines Lab, a new artificial intelligence start-up.`\
 https://nytimes.com/2025/02/18/technology/openai-mira-murati-startup.html
