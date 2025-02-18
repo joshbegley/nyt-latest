@@ -1,3 +1,11 @@
+**Wednesday Briefing: U.S. and Russia Discuss Cooperation**\
+`Plus, the women leading R&B’s new wave.`\
+https://nytimes.com/2025/02/18/briefing/us-russia-hamas-hostages-migrants-panama.html
+
+**Court Rules Against Cuomo’s Attempt to Dismantle State Ethics Panel**\
+`New York’s highest court rejected the former governor’s push to undermine an ethics commission that had been investigating a $5.1 million book deal he received for a memoir.`\
+https://nytimes.com/2025/02/18/nyregion/cuomo-book-deal-ny-court-ruling.html
+
 **10-man Milan crash out of Champions League in knockout playoff**\
 `Feyenoord's 2-1 aggregate triumph over Milan spells the end of the 2024-25 Champions League for Christian Pulisic and Yunus Musah.`\
 https://nytimes.com/athletic/6144434/2025/02/18/feyenoord-ac-milan-champions-league-pulisic-musah-usmnt/
