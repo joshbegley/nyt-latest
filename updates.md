@@ -1,3 +1,11 @@
+**Man Utd, Everton in advanced talks over U.S. pre-season tournament**\
+`The Premier League Summer Series is set to return after its inception in 2023 before being cancelled in 2024 due to complications.`\
+https://nytimes.com/athletic/6143216/2025/02/18/manchester-united-summer-series-everton-bournemouth/
+
+**The Pulse: It's a rematch**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6142047/2025/02/18/canada-usa-4-nations-the-pulse/
+
 **Martinez agrees new Barcelona deal - but salary cap fears delaying announcement**\
 `Martinez was previously asked, and refused, to take a salary cut in order to help Barcelona's registration issues in 2023.`\
 https://nytimes.com/athletic/6143379/2025/02/18/inigo-martinez-barcelona-contract-registration/
