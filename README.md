@@ -1,3 +1,11 @@
+**5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
+`Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
+https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
+
+**Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
+`In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
+https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
+
 **Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
 `The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
 https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
@@ -19,7 +27,7 @@ https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-reinstates-a-member-of
 https://nytimes.com/2025/02/18/science/dickson-despommier-dead.html
 
 **Can This Fish Make You Cry?**\
-`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for extreme emotions.`\
+`An eerie looking creature from the ocean’s depths has become an unwitting inspiration for intense emotions.`\
 https://nytimes.com/2025/02/18/style/anglerfish-tiktok-reactions.html
 
 **Anne Marie Hochhalter, Paralyzed in Columbine Shooting, Dies at 43**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/us/anne-marie-hochhalter-columbine-shooting-dies.
 **Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
 `Judge and Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
 https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
-
-**From conflicted to assured, Canadian Rangers have varying allegiances in 4 Nations final**\
-`The Rangers have four players on Team USA, but none on Team Canada.`\
-https://nytimes.com/athletic/6144932/2025/02/18/rangers-4-nations-face-off-final-canada/
-
-**170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
-`Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
-https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
 
