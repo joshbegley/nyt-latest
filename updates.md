@@ -1,3 +1,11 @@
+**Juan Soto and Aaron Judge swap quips: Who's better, the Yankees or Mets?**\
+`Aaron Judge and Juan Soto disagree on which New York organization is better positioned to win a championship and win sustainably.`\
+https://nytimes.com/athletic/6144053/2025/02/18/yankees-mets-which-team-better/
+
+**From conflicted to assured, Canadian Rangers have varying allegiances in 4 Nations final**\
+`The Rangers have four players on Team USA, but none on Team Canada.`\
+https://nytimes.com/athletic/6144932/2025/02/18/rangers-4-nations-face-off-final-canada/
+
 **170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
 `Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
 https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
