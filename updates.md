@@ -1,3 +1,23 @@
+**Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
+`Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
+
+**Chip Kelly's Raiders offense will look different from those of his previous NFL stints**\
+`Las Vegas' new offensive coordinator wouldn’t be back in the NFL if he didn’t adapt as the sport has continued to evolve.`\
+https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-state/
+
+**Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
+`The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
+https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
+
+**EFL assistant referee Gareth Viccars charged with child sex offence**\
+`The 46-year-old has been remanded in custody after appearing at Willesden Magistrates' Court on February 7.`\
+https://nytimes.com/athletic/6142610/2025/02/18/gareth-viccars-child-sex-offence/
+
+**Pope Francis Will Miss Mass on Sunday Because of Poor Health**\
+`The Vatican said the pontiff, who is in the hospital with a “respiratory tract infection,” was resting and had eaten breakfast and read newspapers “as he usually does.”`\
+https://nytimes.com/2025/02/18/world/europe/pope-francis-health.html
+
 **Man Utd, Everton in advanced talks over U.S. pre-season tournament**\
 `The Premier League Summer Series is set to return after its inception in 2023 before being cancelled in 2024 due to complications.`\
 https://nytimes.com/athletic/6143216/2025/02/18/manchester-united-summer-series-everton-bournemouth/
