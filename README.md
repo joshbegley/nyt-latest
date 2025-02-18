@@ -1,3 +1,7 @@
+**Rashford and Asensio can 'recover their best level' at Villa, says Emery**\
+`Neither have started in the two games since signing, yet both have made positive impressions in their substitute appearances.`\
+https://nytimes.com/athletic/6143781/2025/02/18/marcus-rashford-marco-asensio-aston-villa/
+
 **A Slow-Moving California Landslide Suddenly Speeds Up**\
 `A new map shows where land movement is accelerating, buckling roads and collapsing homes.`\
 https://nytimes.com/interactive/2025/02/18/climate/landslides-california-storm-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/world/middleeast/florida-shooting-israeli-tourist
 **Cole Custer defends decisions after criticism over Daytona 500 crashes**\
 `“When it’s five (laps) to go, you’re going to have to push and shove,” Custer said. “It is what it is.”`\
 https://nytimes.com/athletic/6144876/2025/02/18/cole-custer-daytona-500-crashes-comments/
-
-**Texans' Mixon, Anderson have fines for criticizing refs rescinded: Sources**\
-`Mixon was initially fined for comments he didn’t make about the officiating in a divisional-round loss to the Kansas City Chiefs.`\
-https://nytimes.com/athletic/6144886/2025/02/18/texans-joe-mixon-will-anderson-fines/
 
