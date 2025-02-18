@@ -1,3 +1,27 @@
+**'He is a cultural architect': Why Chelsea have hired rugby league star Willie Isa**\
+`Isa has been a surprise recent addition to Chelsea's backroom staff - but his signing makes sense behind the scenes`\
+https://nytimes.com/athletic/6141390/2025/02/18/willie-isa-chelsea-why-rugby-league/
+
+**As Deadline for Withdrawal Lapses, Israel Says It Will Stay in Southern Lebanon**\
+`Israeli forces will remain at five strategic points within Lebanese territory despite Tuesday’s deadline for Israeli troops and Hezbollah fighters to pull back.`\
+https://nytimes.com/2025/02/18/world/middleeast/lebanon-israel-forces-hezbollah.html
+
+**Okinawa, a Small Island Caught Between Big Powers**\
+`Residents of the Japanese island see U.S. bases as a legacy of war and colonialism, but younger generations also worry about a threat from China.`\
+https://nytimes.com/2025/02/18/world/asia/okinawa-japan-us-military-china.html
+
+**U.S. Marines Start to Leave Japan, Decades Behind Schedule**\
+`The American base on Okinawa has relocated 105 Marines. But an agreement to move 9,000 in total is colliding with the perceived threat from a rising China.`\
+https://nytimes.com/2025/02/18/world/asia/us-marines-japan-okinawa.html
+
+**An Abortion Scene Gets Theater Audiences Talking, and Fainting**\
+`“The Years,” running in London, dramatizes a woman’s life from teenage thrills to later-life sex. One intense scene is causing audience members to pass out.`\
+https://nytimes.com/2025/02/18/theater/the-years-play-abortion-scene-garai.html
+
+**Quote of the Day: Yrjo Kukkapuro, Made Chairs Most Every Finn Has Sat On, Dies at 91**\
+`Quotation of the Day for Tuesday, February 18, 2025.`\
+https://nytimes.com/2025/02/17/pageoneplus/quote-of-the-day-yrjo-kukkapuro-made-chairs-most-every-finn-has-sat-on-dies-at-91.html
+
 **Judge in Adams Case Faces a Flood of Demands to Continue the Prosecution**\
 `As Judge Dale E. Ho considers the Justice Department’s request to stop the corruption case against New York’s mayor, former U.S. attorneys are asking him to investigate.`\
 https://nytimes.com/2025/02/17/nyregion/judge-dale-ho-adams-corruption-case.html
