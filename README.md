@@ -1,3 +1,11 @@
+**"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
+`The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
+https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
+
+**John Stones defends like a cricketer. But is it becoming a problem?**\
+`The Manchester City defender's 'long barrier' blocking technique can be effective. Although there are drawbacks`\
+https://nytimes.com/athletic/6118448/2025/02/18/john-stones-defending-cricket-manchester-city/
+
 **'He is a cultural architect': Why Chelsea have hired rugby league star Willie Isa**\
 `Isa has been a surprise recent addition to Chelsea's backroom staff - but his signing makes sense behind the scenes`\
 https://nytimes.com/athletic/6141390/2025/02/18/willie-isa-chelsea-why-rugby-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
 **What We Know About the Toronto Plane Crash**\
 `All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
 https://nytimes.com/2025/02/17/world/canada/toronto-plane-crash-delta.html
-
-**Federal Judge Declines to Block Musk’s Team From Having Access to Education Data**\
-`The ruling said that the students who sued had failed to show that sensitive information had been illegally disseminated in a way that would justify an emergency restraining order.`\
-https://nytimes.com/2025/02/17/us/politics/doge-education-department-data.html
-
-**Team USA drops 4 Nations finale to Sweden as injuries pile up**\
-`The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
-https://nytimes.com/athletic/6143083/2025/02/17/4-nations-face-off-sweden-usa/
 
