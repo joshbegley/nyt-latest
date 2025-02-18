@@ -1,3 +1,7 @@
+**Maher Knocks Trump’s Gutting of the Federal Work Force**\
+`“America is in shock that the guy whose catchphrase was ‘You’re fired’ is firing everybody in government,” Bill Maher said of President Trump on “Real Time.”`\
+https://nytimes.com/2025/02/18/arts/television/bill-maher-trump-doge-firings.html
+
 **Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
 `Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Leeds achieve promotion`\
 https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143121/2025/02/18/chicago-cubs-justin-turner-noteb
 **Team USA drops 4 Nations round-robin finale to Sweden as injuries pile up**\
 `The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
 https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
-
-**Analysing Liverpool's Premier League title run-in - match by match**\
-`Dissecting the final 13 games of what could be an historic campaign at Anfield`\
-https://nytimes.com/athletic/6141685/2025/02/18/liverpool-premier-league-title-run-in/
 
