@@ -1,3 +1,7 @@
+**Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
+`Stephen Bannon, a top adviser during President Trump’s first term and a key figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
+https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
+
 **Until Saturday: Big Ten and SEC could damage CFP**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6144015/2025/02/18/big-ten-sec-cfp-automatic-bids-until-saturday/

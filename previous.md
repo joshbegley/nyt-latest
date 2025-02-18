@@ -1,3 +1,7 @@
+**Bannon Calls Musk a ‘Parasitic Illegal Immigrant’**\
+`Stephen Bannon, a top adviser during President Trump’s first term and a key figure among his supporters, said Elon Musk wants to “play-act as God” as part of his push to overhaul the federal government.`\
+https://nytimes.com/2025/02/18/us/politics/steve-bannon-elon-musk-feud.html
+
 **Until Saturday: Big Ten and SEC could damage CFP**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6144015/2025/02/18/big-ten-sec-cfp-automatic-bids-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/opinion/elon-musk-doge-congress-name.html
 **Quinn Hughes to join Team USA in Boston ahead of 4 Nations final vs. Canada**\
 `Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
 https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/
-
-**F1 considering mandatory extra pit stops for Monaco GP to improve racing**\
-`Monaco has faced heavy criticism in recent years for the poor quality of racing and low number of overtakes on the track.`\
-https://nytimes.com/athletic/6144098/2025/02/18/f1-monaco-mandatory-pit-stops/
 
