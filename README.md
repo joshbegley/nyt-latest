@@ -1,3 +1,11 @@
+**Two Tiny Captives, Symbols of Hostage Crisis, to Come Home Dead, Hamas Says**\
+`Hamas said it would turn over the bodies of the boys, Ariel Bibas and his baby brother, Kfir, and their mother. Israel was expected to release Palestinian prisoners in exchange.`\
+https://nytimes.com/2025/02/18/world/middleeast/bibas-bodies-death-hamas-israel-exchange.html
+
+**Verstappen: 'No intention to continue any kind of beef' with Russell**\
+`The four-time F1 world champion Verstappen and Mercedes driver Russell had a heated exchanged at last year’s Qatar Grand Prix.`\
+https://nytimes.com/athletic/6144321/2025/02/18/max-verstappen-george-russell-beef-2025/
+
 **10 Ways to Turn Store-Bought Rotisserie Chicken Into a Healthy Dinner**\
 `Last night, a hot bird saved my life.`\
 https://nytimes.com/2025/02/18/dining/rotisserie-chicken-recipes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/business/airline-crash-victims-lawsuit.html
 **The Llama San Team Expands Nikkei Cooking at Papa San**\
 `Gui Steakhouse serves chops and Sichuan sides, Le Petit Village brings more French to the West Village and more news.`\
 https://nytimes.com/2025/02/18/dining/nyc-restaurant-news.html
-
-**What I'm hearing: Dubas calling shots, taking calls as deadline nears**\
-`Dubas will be in the spotlight during the next few weeks, and people within the Penguins organization have full confidence in him.`\
-https://nytimes.com/athletic/6143657/2025/02/18/penguins-nhl-trade-deadline-kyle-dubas/
-
-**Vance in Munich, Lecturing Europe**\
-`Readers respond to the vice president’s speech criticizing Europe. Also: Funding freezes; third term talk; a brave patriot; a heartsick American.`\
-https://nytimes.com/2025/02/18/opinion/jd-vance-munich.html
 
