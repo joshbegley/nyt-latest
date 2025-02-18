@@ -1,3 +1,11 @@
+**Pay Attention to the Words Elon Musk Uses with DOGE**\
+`Elon Musk’s team has only the powers that Congress gives it, or doesn’t give it — explicitly or implicitly, actively or passively.`\
+https://nytimes.com/2025/02/18/opinion/elon-musk-doge-congress-name.html
+
+**Quinn Hughes to join Team USA in Boston ahead of 4 Nations final vs. Canada**\
+`Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
+https://nytimes.com/athletic/6144100/2025/02/18/quinn-hughes-4-nations-injury-replacement/
+
 **The Llama San Team Expands Nikkei Cooking at Papa San**\
 `Gui Steakhouse serves chops and Sichuan sides, Le Petit Village brings more French to the West Village and more news.`\
 https://nytimes.com/2025/02/18/dining/nyc-restaurant-news.html
