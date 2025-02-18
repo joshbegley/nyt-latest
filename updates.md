@@ -1,3 +1,11 @@
+**Auston Matthews out vs. Sweden in Monday's 4 Nations game**\
+`Matthews is expected to play in Thursday's championship.`\
+https://nytimes.com/athletic/6142940/2025/02/17/auston-matthews-united-states-sweden-4-nations-face-off/
+
+**Russia Frees American Prisoner Before Talks With U.S.**\
+`The release of Kalob Byers Wayne, who was arrested on drug charges on Feb. 7, came on the eve of talks about the war in Ukraine.`\
+https://nytimes.com/2025/02/17/us/politics/russia-american-prisoner-released.html
+
 **Sidney Crosby is passing a torch that will benefit Team Canada for years**\
 `A new generation of Canadian stars take their cues from the team's captain, who sets the culture even while playing injured.`\
 https://nytimes.com/athletic/6142888/2025/02/17/sidney-crosby-team-canada-4-nations-face-off-finland/

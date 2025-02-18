@@ -1,3 +1,11 @@
+**Auston Matthews out vs. Sweden in Monday's 4 Nations game**\
+`Matthews is expected to play in Thursday's championship.`\
+https://nytimes.com/athletic/6142940/2025/02/17/auston-matthews-united-states-sweden-4-nations-face-off/
+
+**Russia Frees American Prisoner Before Talks With U.S.**\
+`The release of Kalob Byers Wayne, who was arrested on drug charges on Feb. 7, came on the eve of talks about the war in Ukraine.`\
+https://nytimes.com/2025/02/17/us/politics/russia-american-prisoner-released.html
+
 **Sidney Crosby is passing a torch that will benefit Team Canada for years**\
 `A new generation of Canadian stars take their cues from the team's captain, who sets the culture even while playing injured.`\
 https://nytimes.com/athletic/6142888/2025/02/17/sidney-crosby-team-canada-4-nations-face-off-finland/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
 **Education Dept. Gives Schools Two Weeks to Eliminate Race-Based Programs**\
 `The department’s Office for Civil Rights warned that it would penalize schools that consider race in scholarships, hiring and an array of other activities.`\
 https://nytimes.com/2025/02/17/us/politics/education-dept-race-based-programs.html
-
-**Thousands Gather on Presidents’ Day to Call Trump a Tyrant**\
-`Protesters opposing broad swaths of President Trump’s agenda took the streets across the country, including outside the U.S. Capitol.`\
-https://nytimes.com/2025/02/17/us/politics/trump-musk-protests-50501-presidents-day.html
-
-**Juuse Saros was perfect. Kevin Lankinen was not. Finland goes home**\
-`Finland, in retrospect, started the wrong goalie in its 5-3 tournament-ending loss to Canada.`\
-https://nytimes.com/athletic/6142737/2025/02/17/finland-canada-saros-lankinen-4-nations-face-off/
 
