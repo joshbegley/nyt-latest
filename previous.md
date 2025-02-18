@@ -1,3 +1,11 @@
+**In Buster Posey's clubhouse address to Giants, the subtext was as important as the message**\
+`This year, the Giants shouldn't be a team with an identity crisis. Everyone appears to be on the same page.`\
+https://nytimes.com/athletic/6143019/2025/02/17/sf-giants-buster-posey-team-message/
+
+**Take it Easy**\
+`Erik Agard extends his regards.`\
+https://nytimes.com/2025/02/17/crosswords/daily-puzzle-2025-02-18.html
+
 **Prison Boss Elevated by Hochul Was Accused of Rape by 2 Former Inmates**\
 `The attacks occurred years earlier when Bennie Thorpe worked at a state women’s prison, his accusers said. Now he runs a prison where an inmate was fatally beaten by guards.`\
 https://nytimes.com/2025/02/17/nyregion/marcy-prison-hochul-superintendent-rape.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/17/us/politics/russia-american-prisoner-released.htm
 **Sidney Crosby is passing a torch that will benefit Team Canada for years**\
 `A new generation of Canadian stars take their cues from the team's captain, who sets the culture even while playing injured.`\
 https://nytimes.com/athletic/6142888/2025/02/17/sidney-crosby-team-canada-4-nations-face-off-finland/
-
-**Raiders, assistant GM Champ Kelly agree to part ways: Sources**\
-`Kelly spent three years in Las Vegas' front office and has also worked for Denver and Chicago. `\
-https://nytimes.com/athletic/6142849/2025/02/17/raiders-champ-kelly-part-ways/
-
-**Southwest Airlines Plans to Cut 15% of Its Work Force**\
-`The company said the cuts, the first round of broad layoffs in the airline’s 53-year history, would affect mostly corporate employees.`\
-https://nytimes.com/2025/02/17/business/17southwest-airlines-layoffs.html
 
