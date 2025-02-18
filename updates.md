@@ -1,3 +1,11 @@
+**Costa Rica Will Take Central Asian and Indian Migrants Deported by U.S.**\
+`Costa Rica is the second Central American nation to accept migrants from distant countries as the Trump administration ramps up deportation flights.`\
+https://nytimes.com/2025/02/17/world/americas/costa-rica-deportation-flights.html
+
+**Live Updates: All on Board Survive After Plane Crashes and Overturns at Toronto Airport**\
+`A window-seat passenger described the plane as skidding on its side and finding himself upside-down. At least 18 people were injured, officials said.`\
+https://nytimes.com/live/2025/02/17/world/delta-toronto-plane-crash
+
 **In Buster Posey's clubhouse address to Giants, the subtext was as important as the message**\
 `This year, the Giants shouldn't be a team with an identity crisis. Everyone appears to be on the same page.`\
 https://nytimes.com/athletic/6143019/2025/02/17/sf-giants-buster-posey-team-message/
