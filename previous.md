@@ -1,3 +1,27 @@
+**Alexander Brothers Face More Lawsuits Accusing Them of Sexual Assault**\
+`Tal Alexander and Oren Alexander, once top real estate brokers, and their brother Alon Alexander are currently in jail awaiting trial on federal sex-trafficking charges.`\
+https://nytimes.com/2025/02/18/realestate/tal-oren-alexander-brothers-lawsuits-sexual-assault.html
+
+**Rudiger fit for Man City clash**\
+`The 31-year-old has missed Madrid's last four games with a muscle injury.`\
+https://nytimes.com/athletic/6143455/2025/02/18/real-madrid-man-city-team-news-rudiger/
+
+**Blackout buster? SNY to stream Mets games as MLB reaches 22 teams available without TV bundle**\
+`The move is part of a growing trend that Major League Baseball hopes will be helpful in combating blackouts`\
+https://nytimes.com/athletic/6143098/2025/02/18/mets-sny-streaming-blackout/
+
+**Padres camp fully opens with a collective reset and Manny Machado back at ‘100 percent’**\
+`There is a sense that a still-talented team must make the most of the upcoming season. The urgency is heightened by what unfolded last fall.`\
+https://nytimes.com/athletic/6131746/2025/02/18/padres-spring-reset-manny-machado-update/
+
+**Kyle Harrison is already solid, but he and the Giants should get greedy**\
+`Harrison's fastball plays, though he needs to recover velocity he lost last season. But the key for him could be improving his secondaries.`\
+https://nytimes.com/athletic/6142271/2025/02/18/sf-giants-kyle-harrison-analysis/
+
+**Nike Bets Big on Kim Kardashian**\
+`The Skims founder will enter into a rare business deal with the sports apparel company.`\
+https://nytimes.com/2025/02/18/style/nike-skims-kim-kardashian.html
+
 **A breathtless and brilliant first look at Everton's £760m new home**\
 `A bold new dawn awaits for Everton and the sense of anticipation is palpable after the first match at the new stadium`\
 https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-park/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-
 **Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
 `The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
 https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
-
-**EFL assistant referee Gareth Viccars charged with child sex offence**\
-`The 46-year-old has been remanded in custody after appearing at Willesden Magistrates' Court on February 7.`\
-https://nytimes.com/athletic/6142610/2025/02/18/gareth-viccars-child-sex-offence/
-
-**Man Utd, Everton in advanced talks over U.S. pre-season tournament**\
-`The Premier League Summer Series is set to return after its inception in 2023 before being cancelled in 2024 due to complications.`\
-https://nytimes.com/athletic/6143216/2025/02/18/manchester-united-summer-series-everton-bournemouth/
-
-**The Pulse: It's a rematch**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6142047/2025/02/18/canada-usa-4-nations-the-pulse/
-
-**Martinez agrees new Barcelona deal - but salary cap fears delaying announcement**\
-`Martinez was previously asked, and refused, to take a salary cut in order to help Barcelona's registration issues in 2023.`\
-https://nytimes.com/athletic/6143379/2025/02/18/inigo-martinez-barcelona-contract-registration/
-
-**A Disagreement on Tariffs**\
-`We explain two competing views.`\
-https://nytimes.com/2025/02/18/briefing/a-disagreement-on-tariffs.html
-
-**Senior U.S. and Russian Officials Meet for Extensive Talks in Riyadh**\
-`The two sides were expected to discuss ways to end the war in Ukraine and restore relations between the U.S. and Russia. The meeting came less than a week after President Trump’s lengthy phone call with President Vladimir V. Putin of Russia.`\
-https://nytimes.com/video/world/europe/100000009996668/united-states-russia-ukraine-saudi-arabia-.html
 
