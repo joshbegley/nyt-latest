@@ -1,3 +1,11 @@
+**Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
+`The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
+https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
+
+**Champions League Briefing - Dive destroys Milan's hopes, Bayern escape Celtic shock, a cringe red card**\
+`It was a night of drama and embarrassing on-field acts as four of the Champions League play-offs were decided`\
+https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red-card/
+
 **Patel clears a procedural hurdle in the Senate, putting him steps closer to a floor vote.**\
 `By Glenn Thrush and Devlin Barrett`\
 https://nytimes.com/live/2025/02/18/us/trump-news/patel-clears-a-procedural-hurdle-in-the-senate-putting-him-steps-closer-to-a-floor-vote
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6144932/2025/02/18/rangers-4-nations-face-off-final
 **170 Migrants Deported From U.S. Agree to Return to Home Countries, Panama Says**\
 `Days after the United States sent 300 migrants from Asia and the Middle East to Panama, a Panamanian official said that more than half had agreed to be deported to their countries of origin.`\
 https://nytimes.com/2025/02/18/us/politics/deportations-migrants-panama.html
-
-**U.S. and Russia Pursue Closer Ties**\
-`Also, Mayor Eric Adams faces political peril. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/02/18/briefing/united-states-russia-closer-ties-mayor-eric-adams.html
-
-**Did NBA fans like the new All-Star Game format? Readers weigh in**\
-`Draymond Green was highly critical of the NBA's new All-Star format. We polled readers to see if they agreed.`\
-https://nytimes.com/athletic/6144378/2025/02/18/all-star-game-poll-results/
 
