@@ -1,3 +1,7 @@
+**Tigers prospect Hao-Yu Lee is drawing rave reviews in spring training**\
+`Tigers prospect Lee hit .298 with a 141 wRC+ last season in Double A. He could push to debut sometime this season. `\
+https://nytimes.com/athletic/6144837/2025/02/18/detroit-tigers-hao-yu-lee-prospect/
+
 **Team USA can get by without McAvoy. The Bruins cannot**\
 `Bruins coach Joe Sacco on losing McAvoy at 4 Nations: "I think every team’s probably a little bit nervous when they send their players."`\
 https://nytimes.com/athletic/6144825/2025/02/18/charlie-mcavoy-injury-united-states-bruins/

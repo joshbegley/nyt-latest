@@ -1,3 +1,15 @@
+**A Slow-Moving California Landslide Suddenly Speeds Up**\
+`A new map shows where land movement is accelerating, buckling roads and collapsing homes.`\
+https://nytimes.com/interactive/2025/02/18/climate/landslides-california-storm-map.html
+
+**Trump May Name a Woman He Once Pardoned to Be His ‘Pardon Czar’**\
+`Alice Marie Johnson was serving a life sentence for a nonviolent drug conviction when the president commuted her sentence in 2018. Since then, she has become a criminal justice reform activist.`\
+https://nytimes.com/2025/02/18/us/politics/trump-pardon-czar.html
+
+**What to watch in the NBA this week: Knicks-Celts, Lakers-Nuggets highlight loaded week**\
+`The NBA is back from its All-Star hiatus with a loaded weekend. The Knicks, Celtics, Cavs and Timberwolves each get two national TV games.`\
+https://nytimes.com/athletic/6144350/2025/02/18/nba-what-to-watch-lakers-nuggets-knicks-celtics/
+
 **Team USA can get by without McAvoy. The Bruins cannot**\
 `Bruins coach Joe Sacco on losing McAvoy at 4 Nations: "I think every team’s probably a little bit nervous when they send their players."`\
 https://nytimes.com/athletic/6144825/2025/02/18/charlie-mcavoy-injury-united-states-bruins/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6144876/2025/02/18/cole-custer-daytona-500-crashes-
 **Texans' Mixon, Anderson have fines for criticizing refs rescinded: Sources**\
 `Mixon was initially fined for comments he didn’t make about the officiating in a divisional-round loss to the Kansas City Chiefs.`\
 https://nytimes.com/athletic/6144886/2025/02/18/texans-joe-mixon-will-anderson-fines/
-
-**What we're seeing at Braves camp: Sale starts opener, bullpen battles, Allen vying for spot**\
-`Braves pitchers say Chris Sale's professionalism sets the tone: "It inspires us and motivates us to go out there and do the same."`\
-https://nytimes.com/athletic/6144699/2025/02/18/braves-chris-sale-nick-allen/
-
-**Vance’s Munich Disgrace**\
-`The vice president’s speech was a monument of arrogance based on a foundation of hypocrisy.`\
-https://nytimes.com/2025/02/18/opinion/vance-munich-germany-afd.html
-
-**Why Trump’s Bullying Is Going to Backfire**\
-`The scariest thing about what President Trump is doing with his tariffs-for-all strategy is that he has no clue what he is doing.`\
-https://nytimes.com/2025/02/18/opinion/trump-tariffs-economy.html
 
