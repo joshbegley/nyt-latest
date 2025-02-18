@@ -1,3 +1,7 @@
+**A Passenger Jet Flips and Burns, but Tragedy Is Averted This Time**\
+`All 80 people aboard Delta Flight 4819 survived a crash landing at a windy and snowy Toronto airport.`\
+https://nytimes.com/2025/02/18/world/canada/delta-plane-toronto-crash.html
+
 **Hochul to Meet With City Leaders to Discuss the ‘Path Forward’ for Mayor**\
 `After four top aides to Mayor Eric Adams resigned, calls for him to step down are growing.`\
 https://nytimes.com/2025/02/18/nyregion/eric-adams-deputy-mayors-resignation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/crosswords/spelling-bee-forum.html
 **Maher Knocks Trump’s Gutting of the Federal Work Force**\
 `“America is in shock that the guy whose catchphrase was ‘You’re fired’ is firing everybody in government,” Bill Maher said of President Trump on “Real Time.”`\
 https://nytimes.com/2025/02/18/arts/television/bill-maher-trump-doge-firings.html
-
-**Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
-`Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Farke's side achieve promotion`\
-https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
 

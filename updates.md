@@ -1,3 +1,7 @@
+**A Passenger Jet Flips and Burns, but Tragedy Is Averted This Time**\
+`All 80 people aboard Delta Flight 4819 survived a crash landing at a windy and snowy Toronto airport.`\
+https://nytimes.com/2025/02/18/world/canada/delta-plane-toronto-crash.html
+
 **Hochul to Meet With City Leaders to Discuss the ‘Path Forward’ for Mayor**\
 `After four top aides to Mayor Eric Adams resigned, calls for him to step down are growing.`\
 https://nytimes.com/2025/02/18/nyregion/eric-adams-deputy-mayors-resignation.html
