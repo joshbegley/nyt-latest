@@ -1,3 +1,7 @@
+**Team USA drops 4 Nations finale to Sweden as injuries pile up**\
+`The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
+https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
+
 **Analysing Liverpool's Premier League title run-in - match by match**\
 `Dissecting the final 13 games of what could be an historic campaign at Anfield`\
 https://nytimes.com/athletic/6141685/2025/02/18/liverpool-premier-league-title-run-in/

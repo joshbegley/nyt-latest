@@ -1,3 +1,7 @@
+**Team USA drops 4 Nations finale to Sweden as injuries pile up**\
+`The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
+https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
+
 **Analysing Liverpool's Premier League title run-in - match by match**\
 `Dissecting the final 13 games of what could be an historic campaign at Anfield`\
 https://nytimes.com/athletic/6141685/2025/02/18/liverpool-premier-league-title-run-in/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
 **John Stones defends like a cricketer. But is it becoming a problem?**\
 `The Manchester City defender's 'long barrier' blocking technique can be effective. Although there are drawbacks`\
 https://nytimes.com/athletic/6118448/2025/02/18/john-stones-defending-cricket-manchester-city/
-
-**'He is a cultural architect': Why Chelsea have hired rugby league star Willie Isa**\
-`Isa has been a surprise recent addition to Chelsea's backroom staff - but his signing makes sense behind the scenes`\
-https://nytimes.com/athletic/6141390/2025/02/18/willie-isa-chelsea-why-rugby-league/
 
