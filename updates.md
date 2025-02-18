@@ -1,3 +1,11 @@
+**NFL Draft's top QB prospect Cam Ward: 'If you don’t draft me, that’s your fault'**\
+`Ward made the comments while addressing the perception that he quit on his team in their December bowl game.`\
+https://nytimes.com/athletic/6143745/2025/02/18/nfl-draft-cam-ward-message-to-teams/
+
+**Native American Activist Leonard Peltier Released From Prison**\
+`Mr. Peltier was convicted in the killing of two F.B.I. agents. An order from former President Joseph R. Biden Jr. will allow him to serve his remaining time under home confinement.`\
+https://nytimes.com/2025/02/18/us/leonard-peltier-released-prison.html
+
 **Is Messi about to play in what could be the coldest soccer match on record?**\
 `Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing`\
 https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/

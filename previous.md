@@ -1,3 +1,11 @@
+**NFL Draft's top QB prospect Cam Ward: 'If you don’t draft me, that’s your fault'**\
+`Ward made the comments while addressing the perception that he quit on his team in their December bowl game.`\
+https://nytimes.com/athletic/6143745/2025/02/18/nfl-draft-cam-ward-message-to-teams/
+
+**Native American Activist Leonard Peltier Released From Prison**\
+`Mr. Peltier was convicted in the killing of two F.B.I. agents. An order from former President Joseph R. Biden Jr. will allow him to serve his remaining time under home confinement.`\
+https://nytimes.com/2025/02/18/us/leonard-peltier-released-prison.html
+
 **Is Messi about to play in what could be the coldest soccer match on record?**\
 `Inter Miami is set to play Sporting Kansas City at Children's Mercy Park, with the temperature forecast to be well below freezing`\
 https://nytimes.com/athletic/6143451/2025/02/18/is-lionel-messi-about-to-play-in-the-coldest-soccer-match-on-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/us/politics/elon-musk-doge-leader.html
 **Arctic Air Mass Expected to Bring Dangerous Temperatures to Parts of the U.S.**\
 `And a winter storm could dump up to a foot of snow from the Central Plains to the East Coast.`\
 https://nytimes.com/2025/02/18/weather/arctic-cold-snow.html
-
-**They’ve Been Waiting Years to Go Public. They’re Still Waiting.**\
-`Some tech companies are delaying or pulling their listing plans as the Trump administration’s tariff announcements and other changes cause market volatility and uncertainty.`\
-https://nytimes.com/2025/02/18/technology/tech-ipo-delays.html
-
-**Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
-`Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\
-https://nytimes.com/2025/02/18/climate/usaid-climate-social-unrest-terrorism.html
 
