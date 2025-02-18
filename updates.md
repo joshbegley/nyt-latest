@@ -1,3 +1,7 @@
+**USA suddenly banged up heading into 4 Nations title showdown with Canada**\
+`Brady Tkachuk left Monday's loss to Sweden with his brother, Matthew, already absent. Auston Matthews and Charlie McAvoy are also out.`\
+https://nytimes.com/athletic/6143144/2025/02/18/usa-injuries-tkachuk-matthews-mcavoy-canada/
+
 **Xi Is Making the World Pay for China’s Mistakes**\
 `Trump’s tariffs are bad enough, but Xi is fundamentally distorting world trade to dig China out of the hole its economic decisions have created.`\
 https://nytimes.com/2025/02/18/opinion/china-xi-jinping-trade-manufacturing-tariffs.html
