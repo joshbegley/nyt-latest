@@ -1,3 +1,7 @@
+**Top Social Security Official Leaves After Musk Team Seeks Data Access**\
+`The departure of the acting commissioner is the latest backlash to the Department of Government Efficiency’s efforts to access sensitive data.`\
+https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
+
 **Auston Matthews out vs. Sweden in Monday's 4 Nations game**\
 `Matthews is expected to play in Thursday's championship.`\
 https://nytimes.com/athletic/6142940/2025/02/17/auston-matthews-united-states-sweden-4-nations-face-off/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/17/nyregion/new-york-deputy-mayors-resignations.html
 **Can the Fed Look Past Trump’s Tariffs?**\
 `Top officials are grappling with how to handle potential price increases caused by the administration’s policies.`\
 https://nytimes.com/2025/02/17/us/politics/fed-tariffs-rates-inflation.html
-
-**Education Dept. Gives Schools Two Weeks to Eliminate Race-Based Programs**\
-`The department’s Office for Civil Rights warned that it would penalize schools that consider race in scholarships, hiring and an array of other activities.`\
-https://nytimes.com/2025/02/17/us/politics/education-dept-race-based-programs.html
 
