@@ -1,3 +1,11 @@
+**Delta Crash Adds to Snow Disruptions at Toronto Airport**\
+`Two major storms had blanketed the region for days, causing flight delays and cancellations. Two of Pearson airport’s five runways remained closed after the crash.`\
+https://nytimes.com/2025/02/18/world/canada/toronto-airport-snow-disruptions-delta.html
+
+**What we’re hearing about the Cubs: Justin Turner, plus the shape of the roster**\
+`Turner, 40, would come at a fraction of the three-year, $120 million deal that Bregman secured from the Boston Red Sox`\
+https://nytimes.com/athletic/6143121/2025/02/18/chicago-cubs-justin-turner-notebook/
+
 **Team USA drops 4 Nations round-robin finale to Sweden as injuries pile up**\
 `The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
 https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
 **Why Madrid-City remains a 'modern Clasico' - despite mixed fortunes this season**\
 `Madrid and City played out a thrilling play-off first leg last week. They meet again on Wednesday with the rivalry as strong as ever`\
 https://nytimes.com/athletic/6141454/2025/02/18/real-madrid-manchester-city-modern-clasico/
-
-**"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
-`The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
-https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
-
-**John Stones defends like a cricketer. But is it becoming a problem?**\
-`The Manchester City defender's 'long barrier' blocking technique can be effective. Although there are drawbacks`\
-https://nytimes.com/athletic/6118448/2025/02/18/john-stones-defending-cricket-manchester-city/
 

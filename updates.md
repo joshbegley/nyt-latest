@@ -1,3 +1,11 @@
+**Delta Crash Adds to Snow Disruptions at Toronto Airport**\
+`Two major storms had blanketed the region for days, causing flight delays and cancellations. Two of Pearson airport’s five runways remained closed after the crash.`\
+https://nytimes.com/2025/02/18/world/canada/toronto-airport-snow-disruptions-delta.html
+
+**What we’re hearing about the Cubs: Justin Turner, plus the shape of the roster**\
+`Turner, 40, would come at a fraction of the three-year, $120 million deal that Bregman secured from the Boston Red Sox`\
+https://nytimes.com/athletic/6143121/2025/02/18/chicago-cubs-justin-turner-notebook/
+
 **Team USA drops 4 Nations round-robin finale to Sweden as injuries pile up**\
 `The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
 https://nytimes.com/athletic/6143083/2025/02/18/4-nations-face-off-sweden-usa/
