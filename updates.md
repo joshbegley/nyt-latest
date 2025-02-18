@@ -1,3 +1,7 @@
+**A Displaced Father Was Desperate to Return Home. He Never Made It.**\
+`Thousands uprooted by the war in Lebanon have been unable to reach southern towns occupied by Israel, but some have tried anyway. For one man, the journey was deadly.`\
+https://nytimes.com/2025/02/18/world/europe/israel-lebanon-hezbollah-displaced.html
+
 **Panthers' roster: Possible salary-cap cuts, plus ... Andy Dalton? Adam Thielen?**\
 `What does Miles Sanders' future hold? Will the Panthers give Thielen a new deal?`\
 https://nytimes.com/athletic/6142162/2025/02/18/panthers-potential-salary-cap-cuts/
