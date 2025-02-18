@@ -1,3 +1,7 @@
+**Smartly Dressed Travelers With a Sentimental Satchel**\
+`Vacationers’ polished attire evoked the glamour of early jet-age travel.`\
+https://nytimes.com/2025/02/18/style/street-style-look-travel-outfits.html
+
 **Hamas Says Remains of Israeli Captives, Including Bibas Family, Will Be Handed Over on Thursday**\
 `The militant group’s chief negotiator also said Hamas would increase the number of living hostages it would release on Saturday to six from three.`\
 https://nytimes.com/2025/02/18/world/middleeast/hamas-hostages-remains.html
