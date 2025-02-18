@@ -2,7 +2,7 @@
 `Speedy and simple to make; spectacular to eat.`\
 https://nytimes.com/2025/02/18/dining/roasted-chicken-thighs-with-hot-honey-and-lime-dinner-in-no-time.html
 
-**Bruins defenseman Charlie McAvoy out for Team USA for 4 Nations Face-Off final**\
+**Bruins defenseman Charlie McAvoy out for Team USA in 4 Nations Face-Off final**\
 `There was no immediate word on if Team USA would bring in an injury replacement. Jake Sanderson skated in McAvoy's place against Sweden.`\
 https://nytimes.com/athletic/6143867/2025/02/18/bruins-usa-charlie-mcavoy-injury/
 
