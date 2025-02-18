@@ -1,3 +1,7 @@
+**Team USA drops 4 Nations finale to Sweden as injuries pile up**\
+`The players showed they care despite the meaningless stakes and Sweden earned its first victory of the tournament.`\
+https://nytimes.com/athletic/6143083/2025/02/17/4-nations-face-off-sweden-usa/
+
 **Costa Rica Will Take Central Asian and Indian Migrants Deported by U.S.**\
 `Costa Rica is the second Central American nation to accept migrants from distant countries as the Trump administration ramps up deportation flights.`\
 https://nytimes.com/2025/02/17/world/americas/costa-rica-deportation-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/17/world/delta-toronto-plane-crash
 **Top Social Security Official Leaves After Musk Team Seeks Data Access**\
 `The departure of the acting commissioner is the latest backlash to the Department of Government Efficiency’s efforts to access sensitive data.`\
 https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
-
-**Auston Matthews out vs. Sweden in Monday's 4 Nations game**\
-`Matthews is expected to play in Thursday's championship.`\
-https://nytimes.com/athletic/6142940/2025/02/17/auston-matthews-united-states-sweden-4-nations-face-off/
 
