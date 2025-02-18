@@ -1,3 +1,11 @@
+**Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
+`The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
+https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
+
+**Trump’s Pivot Toward Putin’s Russia Upends Generations of U.S. Policy**\
+`As peace talks opened in Saudi Arabia, President Trump made clear that the days of isolating Russia are over and suggested that Ukraine was to blame for being invaded.`\
+https://nytimes.com/2025/02/18/us/politics/trump-russia-putin.html
+
 **Brazil Charges Bolsonaro With Attempting a Coup**\
 `Brazil’s attorney general charged the former president Jair Bolsonaro with trying to overturn the 2022 elections.`\
 https://nytimes.com/2025/02/18/world/americas/brazil-charges-bolsonaro-with-attempting-a-coup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orc
 **Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
 `The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
 https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
-
-**Champions League Briefing - Dive destroys Milan's hopes, Bayern escape Celtic shock, a cringe red card**\
-`It was a night of drama and embarrassing on-field acts as half of the Champions League's eight play-offs were decided`\
-https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red-card/
-
-**Patel clears a procedural hurdle in the Senate, putting him steps closer to a floor vote.**\
-`By Glenn Thrush and Devlin Barrett`\
-https://nytimes.com/live/2025/02/18/us/trump-news/patel-clears-a-procedural-hurdle-in-the-senate-putting-him-steps-closer-to-a-floor-vote
 

@@ -1,3 +1,11 @@
+**Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
+`The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
+https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
+
+**Trump’s Pivot Toward Putin’s Russia Upends Generations of U.S. Policy**\
+`As peace talks opened in Saudi Arabia, President Trump made clear that the days of isolating Russia are over and suggested that Ukraine was to blame for being invaded.`\
+https://nytimes.com/2025/02/18/us/politics/trump-russia-putin.html
+
 **Champions League Briefing - Dive destroys Milan's hopes, Bayern escape Celtic shock, a cringe red card**\
 `It was a night of drama and embarrassing on-field acts as half of the Champions League's eight play-offs were decided`\
 https://nytimes.com/athletic/6143324/2025/02/18/champions-league-dive-davies-red-card/
