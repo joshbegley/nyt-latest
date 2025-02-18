@@ -1,3 +1,7 @@
+**Maher Knocks Trump’s Gutting of the Federal Work Force**\
+`“America is in shock that the guy whose catchphrase was ‘You’re fired’ is firing everybody in government,” Bill Maher said of President Trump on “Real Time.”`\
+https://nytimes.com/2025/02/18/arts/television/bill-maher-trump-doge-firings.html
+
 **Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
 `Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Leeds achieve promotion`\
 https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
