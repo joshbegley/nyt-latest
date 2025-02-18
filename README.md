@@ -11,7 +11,7 @@ https://nytimes.com/2025/02/18/us/kansas-transgender-law.html
 https://nytimes.com/live/2025/02/18/us/trump-news/chris-wright-sinister-goal-energy-britain
 
 **Tigers prospect Hao-Yu Lee is drawing rave reviews in spring training**\
-`Tigers prospect Hao-Yu Lee hit Lee hit .298 with a 141 wRC+ last season in Double A. He could push to debut sometime this season. `\
+`Tigers prospect Lee hit .298 with a 141 wRC+ last season in Double A. He could push to debut sometime this season. `\
 https://nytimes.com/athletic/6144837/2025/02/18/detroit-tigers-hao-yu-lee-prospect/
 
 **Florida Man Blames Mental Health Crisis for Shooting of Israeli Tourists**\
