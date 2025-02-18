@@ -1,3 +1,7 @@
+**Padres agree to minor-league deal with Yuli Gurriel, who will compete for bench spot**\
+`Gurriel could help fill the DH spot.`\
+https://nytimes.com/athletic/6131958/2025/02/17/padres-yuli-gurriel-minor-league-contract/
+
 **Top Social Security Official Leaves After Musk Team Seeks Data Access**\
 `The departure of the acting commissioner is the latest backlash to the Department of Government Efficiency’s efforts to access sensitive data.`\
 https://nytimes.com/2025/02/17/us/politics/social-security-musk-team-access.html
