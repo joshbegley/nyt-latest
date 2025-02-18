@@ -1,3 +1,7 @@
+**As U.S. and Russian Officials Meet, Talks Are Set to Go Beyond Ukraine**\
+`The two sides are meeting in Saudi Arabia for their most extensive discussions in years. In addition to Ukraine, business ties are on the table.`\
+https://nytimes.com/2025/02/18/world/europe/us-russia-saudi-ukraine.html
+
 **Passengers in Toronto Recount the Moments the Plane Crashed**\
 `All 80 people on board are expected to survive. Two described finding themselves upside down after what had seemed like a routine descent.`\
 https://nytimes.com/2025/02/18/world/canada/delta-plane-crash-toronto.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139767/2025/02/18/adam-webster-hurzeler-england-in
 **Inside Newcastle Q&A: Why the collective collapse? Miley over Longstaff? Has the club stopped communicating?**\
 `Chris Waugh answers subscribers' questions on the PSR plan for summer, where Newcastle could finish, and the Isak rumour in Spain`\
 https://nytimes.com/athletic/6141345/2025/02/18/inside-newcastle-qa-miley-longstaff-isak-eales/
-
-**Mason Melia: The Irish striker Spurs have signed but who can't play until 2026**\
-`How the 17-year-old became a target for Europe's elite clubs`\
-https://nytimes.com/athletic/6136341/2025/02/18/mason-melia-tottenham-ireland/
 
