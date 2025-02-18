@@ -1,3 +1,5 @@
+**Fries With Your McBaguette? For Some Travelers, McDonald’s Is a Destination.**\
+
 **Jupiter Links vs. NY Golf Club: How to watch Tiger Woods' TGL return on Tuesday**\
 `TGL's slate continues Tuesday, with Tiger Woods playing his first golf since the death of his mother, Kultida.`\
 https://nytimes.com/athletic/6144202/2025/02/18/jupiter-links-ny-golf-club-tgl-how-to-watch-tiger-woods/
