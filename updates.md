@@ -1,3 +1,7 @@
+**Cohen: Mets 'blew through' expected team payroll growth this offseason**\
+`"I've always wanted to be a little more measured in payroll growth, and then we get there and it's never quite there,” Cohen said Tuesday.`\
+https://nytimes.com/athletic/6144071/2025/02/18/mets-payroll-steve-cohen/
+
 **Trump’s Revenge Now Includes His Takeover of the Kennedy Center**\
 `What will a thin-skinned showman do with an institution central to Washington’s cultural life? One expectation is more country music.`\
 https://nytimes.com/2025/02/18/us/politics/kennedy-center-trump.html
