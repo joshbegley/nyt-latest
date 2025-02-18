@@ -1,3 +1,11 @@
+**Vladimir Guerrero Jr., Blue Jays fail to reach long-term contract extension**\
+`The 26-year-old slugger is set to become a free agent at the end of the 2025 season.`\
+https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-extension/
+
+**All-Stars Weekend participants have their say on tourney format, rule changes and more**\
+`Not everyone polled answered every question, but they all had plenty of ideas in the Bay Area over the weekend.`\
+https://nytimes.com/athletic/6142903/2025/02/18/nba-player-poll-all-stars-changes-2025/
+
 **Alexander Brothers Face More Lawsuits Accusing Them of Sexual Assault**\
 `Tal Alexander and Oren Alexander, once top real estate brokers, and their brother Alon Alexander are currently in jail awaiting trial on federal sex-trafficking charges.`\
 https://nytimes.com/2025/02/18/realestate/tal-oren-alexander-brothers-lawsuits-sexual-assault.html

@@ -1,3 +1,11 @@
+**Vladimir Guerrero Jr., Blue Jays fail to reach long-term contract extension**\
+`The 26-year-old slugger is set to become a free agent at the end of the 2025 season.`\
+https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-extension/
+
+**All-Stars Weekend participants have their say on tourney format, rule changes and more**\
+`Not everyone polled answered every question, but they all had plenty of ideas in the Bay Area over the weekend.`\
+https://nytimes.com/athletic/6142903/2025/02/18/nba-player-poll-all-stars-changes-2025/
+
 **Alexander Brothers Face More Lawsuits Accusing Them of Sexual Assault**\
 `Tal Alexander and Oren Alexander, once top real estate brokers, and their brother Alon Alexander are currently in jail awaiting trial on federal sex-trafficking charges.`\
 https://nytimes.com/2025/02/18/realestate/tal-oren-alexander-brothers-lawsuits-sexual-assault.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143332/2025/02/18/everton-new-stadium-goodison-par
 **Can You Find the 13 Book Titles Hidden in This Text Puzzle?**\
 `Certain books maintain an evergreen popularity long after they have been published. See if you can uncover the baker’s dozen of 20th-century classics concealed in this short scene — and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/02/18/books/review/20th-century-classics.html
-
-**Chip Kelly's Raiders offense will look different from those of his previous NFL stints**\
-`Las Vegas' new offensive coordinator wouldn’t be back in the NFL if he didn’t adapt as the sport has continued to evolve.`\
-https://nytimes.com/athletic/6126995/2025/02/18/chip-kelly-raiders-offense-ohio-state/
-
-**Brayden Schenn trade rumors, Robert Thomas' leadership and more: Blues mailbag, part 1**\
-`The Blues' playoff chances are looking murky at best, and that has led to some trade speculation involving their captain.`\
-https://nytimes.com/athletic/6138784/2025/02/18/brayden-schenn-trade-rumors-robert-thomas-blues/
 
