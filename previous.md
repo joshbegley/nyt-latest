@@ -1,3 +1,11 @@
+**Panthers' roster: Possible salary-cap cuts, plus ... Andy Dalton? Adam Thielen?**\
+`What does Miles Sanders' future hold? Will the Panthers give Thielen a new deal?`\
+https://nytimes.com/athletic/6142162/2025/02/18/panthers-potential-salary-cap-cuts/
+
+**Bryson Stott: Elbow injury led to 'bad habits' at plate; knows what Phillies need from him**\
+`He suffered the injury in May, continued to play, and said he did not realize how compromised he was until the season ended.`\
+https://nytimes.com/athletic/6142525/2025/02/18/bryson-stott-ebow-injury-phillies-2025/
+
 **Patriots roster tiers: Assessing where the team stands before free agency**\
 `By ranking the players into five tiers, we can explore just how bare the cupboard is for the Patriots as free agency approaches.`\
 https://nytimes.com/athletic/6131659/2025/02/18/patriots-roster-tiers-free-agency-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/arts/design/luna-luna-shed-hudson-yards.html
 **The Gene That Made Mice Squeak Strangely**\
 `A new study suggests that the NOVA1 gene may have been a key player in the evolution of human language.`\
 https://nytimes.com/2025/02/18/science/language-genes.html
-
-**As a G.O.P. Congressman Takes Aim at Hochul, a Democrat Eyes His Seat**\
-`If Representative Mike Lawler, Republican of New York, runs for governor next year, Beth Davidson, a Democrat, hopes to win his swing seat in the Hudson Valley.`\
-https://nytimes.com/2025/02/18/nyregion/hudson-valley-beth-davidson-mike-lawler.html
-
-**Barrie Kosky Is the Director New York Has Been Waiting For**\
-`One of the busiest stage directors in Europe is fully arriving, at last, with “The Threepenny Opera” this spring.`\
-https://nytimes.com/2025/02/18/arts/music/barrie-kosky-director-threepenny-opera.html
 

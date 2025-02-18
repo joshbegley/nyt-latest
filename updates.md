@@ -1,3 +1,11 @@
+**Panthers' roster: Possible salary-cap cuts, plus ... Andy Dalton? Adam Thielen?**\
+`What does Miles Sanders' future hold? Will the Panthers give Thielen a new deal?`\
+https://nytimes.com/athletic/6142162/2025/02/18/panthers-potential-salary-cap-cuts/
+
+**Bryson Stott: Elbow injury led to 'bad habits' at plate; knows what Phillies need from him**\
+`He suffered the injury in May, continued to play, and said he did not realize how compromised he was until the season ended.`\
+https://nytimes.com/athletic/6142525/2025/02/18/bryson-stott-ebow-injury-phillies-2025/
+
 **Patriots roster tiers: Assessing where the team stands before free agency**\
 `By ranking the players into five tiers, we can explore just how bare the cupboard is for the Patriots as free agency approaches.`\
 https://nytimes.com/athletic/6131659/2025/02/18/patriots-roster-tiers-free-agency-draft/
