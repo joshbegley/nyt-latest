@@ -1,3 +1,7 @@
+**10-man Milan crash out of Champions League in knockout playoff**\
+`Feyenoord's 2-1 aggregate triumph over Milan spells the end of the Champions League for Christian Pulisic and Yunus Musah.`\
+https://nytimes.com/athletic/6144434/2025/02/18/feyenoord-ac-milan-champions-league-pulisic-musah-usmnt/
+
 **F.D.A.’s Food Safety Chief Resigns Over Trump Administration Layoffs**\
 `The chief said the loss of critical employees overseeing the nation’s food supply made his work impossible. Robert F. Kennedy Jr., the nation’s new health secretary, has pledged to gut the division.`\
 https://nytimes.com/2025/02/18/us/politics/fda-food-safety-jim-jones-resignation.html
