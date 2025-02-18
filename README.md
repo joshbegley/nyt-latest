@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Talks about Ukraine’s future.`\
+https://nytimes.com/2025/02/18/briefing/ukraine-talks-west-bank.html
+
 **"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
 `The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
 https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/17/pageoneplus/quote-of-the-day-yrjo-kukkapuro-made-
 **String of Air Crashes in 2025 Has Rattled Travelers**\
 `The accidents, which remain under investigation, have prompted criticism of U.S. aviation regulators.`\
 https://nytimes.com/2025/02/17/world/canada/plane-crash-travel.html
-
-**What We Know About the Toronto Plane Crash**\
-`All 80 people aboard the Delta flight from Minneapolis clambered out of the plane, with 18 suffering injuries.`\
-https://nytimes.com/2025/02/17/world/canada/toronto-plane-crash-delta.html
 

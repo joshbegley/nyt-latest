@@ -1,3 +1,11 @@
+**"People in football want 25, 26 clones - the word 'aloof' was used against me at Arsenal"**\
+`The former Arsenal midfielder is building his career in Greece. With interests in music, art and fashion he is not your typical footballer`\
+https://nytimes.com/athletic/6130912/2025/02/18/life-after-arsenal-miguel-azeez/
+
+**John Stones defends like a cricketer. But is it becoming a problem?**\
+`The Manchester City defender's 'long barrier' blocking technique can be effective. Although there are drawbacks`\
+https://nytimes.com/athletic/6118448/2025/02/18/john-stones-defending-cricket-manchester-city/
+
 **'He is a cultural architect': Why Chelsea have hired rugby league star Willie Isa**\
 `Isa has been a surprise recent addition to Chelsea's backroom staff - but his signing makes sense behind the scenes`\
 https://nytimes.com/athletic/6141390/2025/02/18/willie-isa-chelsea-why-rugby-league/
