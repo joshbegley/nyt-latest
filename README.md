@@ -35,6 +35,6 @@ https://nytimes.com/2025/02/18/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/02/18/arts/television/bill-maher-trump-doge-firings.html
 
 **Rothwell's serenity, Struijk's determination and a Leeds triumph that will echo**\
-`Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Leeds achieve promotion`\
+`Leeds' dramatic 2-1 win over Sunderland is the kind of success that will live long in the memory - if Farke's side achieve promotion`\
 https://nytimes.com/athletic/6143008/2025/02/18/leeds-united-sunderland-strujik-rothwell/
 
