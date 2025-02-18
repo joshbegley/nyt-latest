@@ -1,3 +1,11 @@
+**Wednesday Briefing: U.S. and Russia Discuss Cooperation**\
+`Plus, the women leading R&B’s new wave.`\
+https://nytimes.com/2025/02/18/briefing/us-russia-hamas-hostages-migrants-panama.html
+
+**Court Rules Against Cuomo’s Attempt to Dismantle State Ethics Panel**\
+`New York’s highest court rejected the former governor’s push to undermine an ethics commission that had been investigating a $5.1 million book deal he received for a memoir.`\
+https://nytimes.com/2025/02/18/nyregion/cuomo-book-deal-ny-court-ruling.html
+
 **Padres CEO Erik Greupner says club has ‘sufficient’ resources for World Series pursuit**\
 `“I think we have a team, like you saw last year, that’s capable of going down and accomplishing our goal,” Greupner said.`\
 https://nytimes.com/athletic/6144476/2025/02/18/sd-padres-ceo-erik-greupner-resources/
@@ -30,8 +38,3 @@ https://nytimes.com/athletic/6144348/2025/02/18/myles-lewis-skelly-red-card-arse
 `Washington also hired Brian Schneider as assistant special teams coordinator.`\
 https://nytimes.com/athletic/6144365/2025/02/18/commanders-john-madden-jesse-coaching/
 
-**Sudanese Paramilitaries Announce Plan for Breakaway Government**\
-`Amid reports of new atrocities by their troops in Sudan, leaders of the Rapid Support Forces were cheered at an elaborate political event in Kenya.`\
-https://nytimes.com/2025/02/18/world/africa/sudan-rsf-government.html
-
-**Fries With Your McBaguette? For Some Travelers, McDonald’s Is a Destination.**\
