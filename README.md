@@ -1,3 +1,7 @@
+**They’ve Been Waiting Years to Go Public. They’re Still Waiting.**\
+`Some tech companies are delaying or pulling their listing plans as the Trump administration’s tariff announcements and other changes cause market volatility and uncertainty.`\
+https://nytimes.com/2025/02/18/technology/theyve-been-waiting-years-to-go-public-theyre-still-waiting.html
+
 **Climate Aid Projects Fighting Extremism and Unrest Are Closing Down**\
 `Heat, drought and floods are growing security risks, Western defense officials say, feeding instability and violence that could prove costly in the long term.`\
 https://nytimes.com/2025/02/18/climate/usaid-climate-social-unrest-terrorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/business/dealbook/elon-musk-irs-social-security.h
 **Vladimir Guerrero Jr., Blue Jays fail to reach long-term contract extension**\
 `The 26-year-old slugger is set to become a free agent at the end of the 2025 season.`\
 https://nytimes.com/athletic/6143123/2025/02/18/vladimir-guerrero-blue-jays-extension/
-
-**All-Star Weekend participants have their say on tourney format, rule changes and more**\
-`Not everyone polled answered every question, but they all had plenty of ideas in the Bay Area over the weekend.`\
-https://nytimes.com/athletic/6142903/2025/02/18/nba-player-poll-all-stars-changes-2025/
 
