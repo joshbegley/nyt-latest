@@ -16,7 +16,7 @@ https://nytimes.com/2025/02/18/us/politics/doge-lawsuits-elon-musk.html
 
 **Trump Issues Order to Expand His Power Over Agencies Congress Made Independent**\
 `The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
-https://nytimes.com/2025/02/18/us/trump-executive-order-sec-ftc-fcc.html
+https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc
 
 **ASAP Rocky Reacts to Acquittal**\
 `The courtroom broke out into cheers after the jury found the rapper Rakim Mayers, known as ASAP Rocky, not guilty of shooting a former collaborator.`\
