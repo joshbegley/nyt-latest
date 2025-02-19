@@ -1,3 +1,7 @@
+**Male spectator removed for 'fixated behaviour' of Raducanu**\
+`Raducanu was clearly upset as she approached the umpire during the second game in the match, which she lost to Karolina Muchova.`\
+https://nytimes.com/athletic/6145787/2025/02/19/emma-raducanu-spectator-removed-dubai/
+
 **Champions League betting preview: Madrid to pick off Man City again?**\
 `Sam Tighe has a look at the best betting markets for this Wednesday’s Champions League knockout second-leg clashes. 
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/19/crosswords/spelling-bee-forum.html
 **Raphael Varane interview: Real Madrid and Man United differences, Erik ten Hag relationship and retiring**\
 `World Cup and four-time Champions League winner Varane speaks openly about the highs and lows of playing for Madrid and United`\
 https://nytimes.com/athletic/6144156/2025/02/19/raphael-varane-real-madrid-como-man-utd-ten-hag/
-
-**Varane 'surprised' Man Utd gave Ten Hag new deal after 2023-24**\
-`The build-up to United’s 2-1 FA Cup victory over Manchester City in May was dominated by uncertainty over Ten Hag’s future.`\
-https://nytimes.com/athletic/6145061/2025/02/19/raphael-varane-manchester-united-erik-ten-hag/
 
