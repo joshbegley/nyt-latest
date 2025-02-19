@@ -1,3 +1,7 @@
+**Full Time: It’s time for She to Believe**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6145654/2025/02/18/she-believes-cup-uswnt-full-time/
+
 **Watch ASAP Rocky React to Acquittal**\
 `The rapper Rakim Mayers, also known as ASAP Rocky, jumped into the courtroom gallery to hug his wife, Rihanna, after the jury found him not guilty of shooting a former collaborator.`\
 https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html

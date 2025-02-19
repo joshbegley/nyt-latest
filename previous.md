@@ -1,3 +1,7 @@
+**Full Time: It’s time for She to Believe**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6145654/2025/02/18/she-believes-cup-uswnt-full-time/
+
 **Ticket prices soar ahead of USA-Canada rematch in 4 Nations final in Boston**\
 `The 4 Nations final ranks in the top 10 most expensive NHL games on record for one ticket reseller whose data goes back to 2011.`\
 https://nytimes.com/athletic/6143873/2025/02/18/4-nations-final-ticket-prices-usa-canada-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-
 **Watch ASAP Rocky React to Acquittal**\
 `The rapper Rakim Mayers, also known as ASAP Rocky, jumped into the courtroom gallery to hug his wife, Rihanna, after the jury found him not guilty of shooting a former collaborator.`\
 https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html
-
-**PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
-`A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
-https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
 
