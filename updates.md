@@ -1,3 +1,23 @@
+**Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
+`The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
+https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
+
+**Musk and the Right Co-Opt the Left’s Critique of U.S. Power**\
+`Suspicion about covert operations and soft power used to be mostly the purview of the left. No more.`\
+https://nytimes.com/2025/02/19/us/politics/musk-and-the-right-co-opt-the-lefts-critique-of-us-power.html
+
+**You Can Take the Fried Chicken Out of Kentucky …**\
+`KFC, formerly named Kentucky Fried Chicken, disappointed state leaders when it announced it was moving to Texas.`\
+https://nytimes.com/2025/02/19/business/kfc-texas-kentucky-fried-chicken.html
+
+**Man City forward Khadija Shaw's Black Power salute explained**\
+`Shaw made a power statement in the face of racism. What happens next is still a question`\
+https://nytimes.com/athletic/6143450/2025/02/19/khadija-shaw-black-power-salute-response/
+
+**Scoop City: Controversial history of NFL's franchise tags**\
+`Inside: Your primer on the NFL&#8217;s franchise tag: how it works these days, why one star is likely to receive it and its controversial history.`\
+https://nytimes.com/athletic/6146311/2025/02/19/nfls-controversial-franchise-tags-from-john-elway-to-tee-higgins/
+
 **MoneyCall: Three NBA lessons from the NHL**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6145704/2025/02/19/nba-nhl-all-star-4-nations-moneycall-newsletter/
