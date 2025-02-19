@@ -1,3 +1,19 @@
+**‘Long Live the King’: Trump Likens Himself to Royalty on Truth Social**\
+`Mr. Trump’s fondness for injecting regal themes into his presidency was apparent as he applauded his administration’s move to kill congestion pricing in New York.`\
+https://nytimes.com/2025/02/19/us/politics/trump-king-image.html
+
+**Interest Rate Cuts on Hold Until Inflation Improves, Fed Minutes Show**\
+`Officials are debating when to restart interest rate cuts, as high prices linger and Trump’s policies add to economic uncertainty.`\
+https://nytimes.com/2025/02/19/business/fed-meeting-minutes-interest-rates.html
+
+**As Tourists Swarm Erupting Mount Etna, Italian Authorities Warn Them Away**\
+`“A lot of people are trying to get closer to admire this natural phenomenon,” a local mayor warned his community. “But it is extremely dangerous!”`\
+https://nytimes.com/2025/02/19/world/europe/mount-etna-tourists-eruption.html
+
+**Crystal Dunn opens up about leaving NWSL for PSG**\
+`Veteran is part of a small wave of players who have left the NWSL for Europe.`\
+https://nytimes.com/athletic/6146826/2025/02/19/crystal-dunn-opens-up-nwsl-psg/
+
 **Bruins address Charlie McAvoy infection, potential long-term absence after removing him from Team USA care**\
 `Bruins coach Joe Sacco said he "wouldn’t expect (McAvoy) in the short-term" as the franchise defenseman remains hospitalized.`\
 https://nytimes.com/athletic/6146747/2025/02/19/charlie-mcavoy-bruins-injury-team-usa/
