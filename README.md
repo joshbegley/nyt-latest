@@ -1,5 +1,21 @@
+**Dorothy Chin Brandt, Trailblazing Asian American Judge, Dies at 78**\
+`She was the first descendant of a Chinese immigrant to win elective office in New York State. She was also the state’s first female jurist of Asian heritage.`\
+https://nytimes.com/2025/02/19/nyregion/dorothy-chin-brandt-dead.html
+
+**Explained: What Manchester United's latest accounts reveal about their finances**\
+`Manchester United are trying hard to cut costs and raise matchday revenue - their latest accounts underline why`\
+https://nytimes.com/athletic/6146380/2025/02/19/manchester-united-accounts-explained/
+
+**NWSL's Denver expansion team asks fans to vote for six name options**\
+`The voting process opened Wednesday and will run through Feb. 26.`\
+https://nytimes.com/athletic/6146375/2025/02/19/nwsl-denver-team-names-vote/
+
+**The USMNT wild card with a penchant for the unpredictable**\
+`Matko Miljevic may not be atop the U.S. depth chart, but he brings fiery qualities to the table that the current group is lacking.`\
+https://nytimes.com/athletic/6145398/2025/02/19/matko-miljevic-usmnt-pochettino-huracan/
+
 **Trump Administration Moves to End New York’s Congestion Pricing Tolls**\
-`President Trump had raised concerns that the new tolling program, the first of its kind in America, was drawing visitors and businesses from Manhattan.`\
+`President Trump had raised concerns that the new tolling program, the first of its kind in America, was drawing visitors and businesses away from Manhattan.`\
 https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing-nyc.html
 
 **Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6146378/2025/02/19/west-ham-lucas-paqueta-injury/
 **I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
 `The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
 https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
-
-**Ten MLB teams that should prepare to target Vladimir Guerrero Jr. in free agency**\
-`Who wants to land the next 26-year-old superstar free agent? Ranking 10 teams that make sense as possible Vlad Jr. destinations next winter.`\
-https://nytimes.com/athletic/6146286/2025/02/19/vladimir-guerrero-jr-free-agency-teams-ranking/
-
-**Apple Unveils New Lower-Priced iPhone With A.I. Features**\
-`The iPhone 16e is the first update to the company’s most affordable model since 2022, but carries a higher price tag of $599.`\
-https://nytimes.com/2025/02/19/business/apple-iphone-16e-ai.html
-
-**The Met Opera’s New Season: What We’re Excited to See**\
-`Our critics choose highlights from a lineup that includes six new productions and modern works by Mason Bates, Kaija Saariaho and Gabriela Lena Frank.`\
-https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
-
-**Seattle mayor teases return of Sonics before saying: ‘I’m just kidding’**\
-`"Right now, at this moment, I have an announcement to make," Bruce Harrell said as he pulled out a basketball from under the podium.`\
-https://nytimes.com/athletic/6146264/2025/02/19/seattle-mayor-joke-nba-return/
 
