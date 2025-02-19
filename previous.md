@@ -1,3 +1,7 @@
+**Kremlin Message to Trump: There’s Money to Be Made in Russia**\
+`Russian officials are arguing that American companies stand to make billions of dollars by re-entering Russia. The White House is listening.`\
+https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.html
+
 **South Korean Officials Convicted Over Forcibly Sending North Koreans Home**\
 `The case of two North Korean fishermen, who murdered 16 compatriots before they sought asylum, has become a political minefield in the South.`\
 https://nytimes.com/2025/02/19/world/asia/north-korea-fishermen-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
 **Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
 `"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
 https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
-
-**Tennis players love golf - but how good are their swings?**\
-`Top-10 player Casper Ruud is in Mexico for the next tournament of his season — but first, golf.`\
-https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
 
