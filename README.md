@@ -1,3 +1,7 @@
+**Watch: Does Draymond Green have a point about the Warriors' title chances?**\
+`The Athletic NBA Daily discuss what the Golden State Warriors' ceiling is this season.`\
+https://nytimes.com/athletic/6146151/2025/02/19/nba-daily-warriors-draymond-green/
+
 **U.S. Attorney Casts Office as ‘Guardians of Federal Workers’**\
 `In an unusual email, the U.S. attorney in Washington, Ed Martin, spoke openly about a sensitive investigation into a threat against Pete Hegseth, the defense secretary.`\
 https://nytimes.com/2025/02/19/us/politics/ed-martin-hegseth-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case
 **What We Know About the Secretive Migrant Mission at Guantánamo Bay**\
 `The Trump administration has said little about the Venezuelan men who were transferred from Texas to the U.S. military base in Cuba.`\
 https://nytimes.com/2025/02/19/us/politics/migrant-mission-guantanamo-bay.html
-
-**Cynthia Erivo Will Host This Year’s Tony Awards**\
-`The actress won a Tony Award for “The Color Purple,” and is now nominated for an Oscar for playing Elphaba in the film adaptation of “Wicked.”`\
-https://nytimes.com/2025/02/19/theater/cynthia-erivo-tony-awards-broadway.html
 
