@@ -1,3 +1,7 @@
+**Trump Says Medicaid Won’t Be ‘Touched.’ That Would Make It Hard to Extend Tax Cuts.**\
+`The math doesn’t seem to work with the House budget proposal, and the president’s record shows a consistent openness to Medicaid cuts.`\
+https://nytimes.com/2025/02/19/upshot/trump-medicaid-tax-cuts.html
+
 **What Does Trump’s Executive Order for I.V.F. Mean?**\
 `The president says he is seeking ways to “aggressively reduce” the cost of the fertility treatment.`\
 https://nytimes.com/2025/02/19/us/politics/trump-ivf-executive-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
 **Musk and the Right Co-Opt the Left’s Critique of U.S. Power**\
 `Suspicion about covert operations and soft power used to be mostly the purview of the left. No more.`\
 https://nytimes.com/2025/02/19/us/politics/musk-and-the-right-co-opt-the-lefts-critique-of-us-power.html
-
-**You Can Take the Fried Chicken Out of Kentucky …**\
-`KFC, formerly named Kentucky Fried Chicken, disappointed state leaders when it announced it was moving to Texas.`\
-https://nytimes.com/2025/02/19/business/kfc-texas-kentucky-fried-chicken.html
 

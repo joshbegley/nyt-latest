@@ -1,3 +1,7 @@
+**Trump Says Medicaid Won’t Be ‘Touched.’ That Would Make It Hard to Extend Tax Cuts.**\
+`The math doesn’t seem to work with the House budget proposal, and the president’s record shows a consistent openness to Medicaid cuts.`\
+https://nytimes.com/2025/02/19/upshot/trump-medicaid-tax-cuts.html
+
 **What Does Trump’s Executive Order for I.V.F. Mean?**\
 `The president says he is seeking ways to “aggressively reduce” the cost of the fertility treatment.`\
 https://nytimes.com/2025/02/19/us/politics/trump-ivf-executive-order.html
