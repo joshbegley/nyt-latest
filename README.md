@@ -1,3 +1,7 @@
+**Chargers to open 2025 season in Brazil as NFL returns to São Paulo**\
+`Los Angeles will be the designated home team for the second regular-season game in the South American country.`\
+https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
+
 **Is Russia Open for Business — and at What Cost?**\
 `Investors seem open to the prospect of peace talks, but Western companies face a dilemma just three years after many retreated from the country.`\
 https://nytimes.com/2025/02/19/business/dealbook/russia-business-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manche
 **Kremlin Message to Trump: There’s Money to Be Made in Russia**\
 `Russian officials are arguing that American companies stand to make billions of dollars by re-entering Russia. The White House is listening.`\
 https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.html
-
-**South Korean Officials Convicted Over Forcibly Sending North Koreans Home**\
-`The case of two North Korean fishermen, who murdered 16 compatriots before they sought asylum, has become a political minefield in the South.`\
-https://nytimes.com/2025/02/19/world/asia/north-korea-fishermen-court.html
 
