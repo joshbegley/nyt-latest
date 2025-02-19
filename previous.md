@@ -1,3 +1,7 @@
+**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
+`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
+https://nytimes.com/athletic/6129807/2025/02/19/2025-fantasy-baseball-draft-kit-mlb/
+
 **Talent, technology, a quirky schedule. Why seven track and field world records were broken in nine days**\
 `In a little over a week, five men set world records at distances ranging from 1500m up to the half marathon`\
 https://nytimes.com/athletic/6144421/2025/02/19/seven-athletics-world-records-in-one-week-february-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138755/2025/02/19/jude-bellingham-red-car-real-mad
 **Meeting Again in Paris, European Leaders Try to Recalibrate After Trump Sides With Russia**\
 `The American president’s latest remarks embracing Vladimir Putin’s narrative that Ukraine is to blame for the war have compounded the sense of alarm among traditional allies.`\
 https://nytimes.com/2025/02/19/world/europe/europe-trump-russia-ukraine.html
-
-**Why the 2024-25 Oilers wear their jersey numbers**\
-`Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
-https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
 
