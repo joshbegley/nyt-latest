@@ -1,3 +1,7 @@
+**Israelis Gird for Release of Bodies of Captives From Gaza**\
+`In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, including those of two children, will be somber.`\
+https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
+
 **Chiefs’ offseason to-do list: Protect Patrick Mahomes, retain Trey Smith and more**\
 `Ahead of the NFL combine, we offer five keys to the Chiefs' offseason, with the offensive line at the top of the list.`\
 https://nytimes.com/athletic/6145124/2025/02/19/chiefs-offseason-to-do-list-patrick-mahomes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144617/2025/02/19/flyers-roster-storylines-ersson-
 **The William Nylander scoring boom: Why it's more than just shooting luck**\
 `William Nylander is second in NHL goal scoring. How is he scoring at the highest rate of his career?`\
 https://nytimes.com/athletic/6142964/2025/02/19/maple-leafs-william-nylander-goals-shooting/
-
-**Inside the Trump Purge: Federal Workers Tell Their Stories**\
-`Dozens of government employees grapple with the president’s war on bureaucracy.`\
-https://nytimes.com/2025/02/19/podcasts/the-daily/trump-ederal-workers-musk.html
 
