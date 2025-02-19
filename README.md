@@ -1,3 +1,11 @@
+**Mets begin search for the next Dedniel Núñez, a surprise contributor in the bullpen**\
+`The Mets talk a lot about sustainability, so it's imperative that they unearth some under-the-radar pitchers.`\
+https://nytimes.com/athletic/6146547/2025/02/19/mets-pitching-development-dedniel-nunez/
+
+**Trump Flips the Script on the Ukraine War, Blaming Zelensky Not Putin**\
+`As he seeks to negotiate a peace deal with Moscow, President Trump has cast Ukraine as the instigator of the conflict, not the Russians who invaded it.`\
+https://nytimes.com/2025/02/19/us/politics/trump-zelensky-russia-ukraine-war.html
+
 **Then and Now: How Republican Senators Have Shifted Tone on Russia and Ukraine**\
 `Some of the most vocal critics of Vladimir V. Putin and proponents of the United States’ role as a global defender of democracy have acquiesced to Mr. Trump on Russia.`\
 https://nytimes.com/2025/02/19/us/politics/trump-putin-senate-gop-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/mississippi-judge-newspaper-editorial.html
 **As Trump Turns Toward Russia and Against Ukraine, Republicans Are Mum**\
 `Congressional Republicans have mostly tempered their criticism or deferred to the president as he topples what were once their party’s core foreign policy principles.`\
 https://nytimes.com/2025/02/19/us/politics/trump-ukraine-russia-republicans.html
-
-**What Champions League elimination means for Man City's finances**\
-`Their Champions League exit at the hands of Real Madrid means the club will receive around £36million ($45m) less from UEFA`\
-https://nytimes.com/athletic/6146844/2025/02/19/manchester-city-cost-of-champions-league-exit/
-
-**With Trump’s Prostration to Putin, Expect a More Dangerous World**\
-`This is a humiliating month to be an American.`\
-https://nytimes.com/2025/02/19/opinion/trump-putin-europe.html
 
