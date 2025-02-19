@@ -1,3 +1,7 @@
+**Venus Williams receives wild card to Indian Wells**\
+`Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
+https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
+
 **Are We Just Going to Forget About Climate Justice?**\
 `A provocative new book asks what we owe one another in a heating world.`\
 https://nytimes.com/2025/02/19/opinion/climate-justice-trump-sunstein.html

@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6146829/2025/02/19/evgeni-malkin-retirement-penguin
 `Scientists worry that the losses may open the door to human, plant and animal diseases that would otherwise have been caught.`\
 https://nytimes.com/2025/02/19/health/trump-border-health-inspections.html
 
-**Venus Williams receives wildcard to Indian Wells**\
+**Venus Williams receives wild card to Indian Wells**\
 `Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
 https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
 
