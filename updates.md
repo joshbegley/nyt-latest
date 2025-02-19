@@ -1,3 +1,7 @@
+**Meet Germany’s Far-Right Leader, a Study in Contradictions**\
+`Alice Weidel of the nationalist, anti-immigrant Alternative for Germany lives in Switzerland and is married to a Sri Lankan-born woman. She had led her party to second place before Sunday’s election.`\
+https://nytimes.com/2025/02/19/world/europe/meet-germanys-far-right-leader-a-study-in-contradictions.html
+
 **Pakistan Hosts Top Cricket Championship, but India Skips the Party**\
 `India has refused to play its Champions Trophy matches in Pakistan, which is hosting its first major global tournament in almost 30 years.`\
 https://nytimes.com/2025/02/19/sports/cricket-champions-trophy-india-pakistan.html
