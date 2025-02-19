@@ -1,3 +1,15 @@
+**The Pulse: A brewing MLB disaster**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6145531/2025/02/19/vladimir-guerrero-jr-blue-jays-contract-the-pulse/
+
+**College basketball mailbag: Next big-time coach to retire? Make UConn make sense**\
+`The non-Power 4 teams that can make deep runs in the tournament? And a headache for the selection committee.`\
+https://nytimes.com/athletic/6144773/2025/02/19/college-basketball-coach-retire-uconn/
+
+**As Moscow and Washington Talk, Russians Hope the Result Is Normalcy**\
+`Many people in Russia expressed relief that an end to the conflict in Ukraine seemed nearer and that the hardships of war, and the shunning of their country by much of the world, may soon end.`\
+https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
+
 **Israelis Gird for Release of Bodies of Captives From Gaza**\
 `In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, including those of two children, will be somber.`\
 https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
