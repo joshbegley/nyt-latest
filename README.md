@@ -1,3 +1,7 @@
+**PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
+`A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
+https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
+
 **Right-Wing Media Praises U.S.-Russia Talks as ‘Breath of Fresh Air’**\
 `Many of President Trump’s media allies were quick to celebrate this week’s negotiations, a contrast to the deep unease expressed by the foreign policy establishment.`\
 https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
 **Hochul May Deploy National Guard as Wildcat Strikes Hit 25 N.Y. Prisons**\
 `Corrections officers, without their union’s approval, refused to show up for work to protest what they say are hazardous conditions and severe staff shortages.`\
 https://nytimes.com/2025/02/18/nyregion/ny-prisons-strikes-national-guard.html
-
-**What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
-`With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
-https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
 
