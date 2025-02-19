@@ -1,3 +1,7 @@
+**Women's college basketball national title odds: A new favorite emerges**\
+`UConn has emerged as the national title favorite after beating defending champion South Carolina by 29 on the road.`\
+https://nytimes.com/athletic/6146399/2025/02/19/womens-college-basketball-national-title-odds-uconn-south-carolina/
+
 **Sportsbooks split over Myles Garrett's next team with Commanders, Eagles, Bills in lead**\
 `Which teams are the most likely candidates to be Garrett's next home, and why.`\
 https://nytimes.com/athletic/6144755/2025/02/19/myles-garrett-next-team-odds/

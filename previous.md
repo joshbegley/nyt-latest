@@ -1,3 +1,7 @@
+**Women's college basketball national title odds: A new favorite emerges**\
+`UConn has emerged as the national title favorite after beating defending champion South Carolina by 29 on the road.`\
+https://nytimes.com/athletic/6146399/2025/02/19/womens-college-basketball-national-title-odds-uconn-south-carolina/
+
 **Sportsbooks split over Myles Garrett's next team with Commanders, Eagles, Bills in lead**\
 `Which teams are the most likely candidates to be Garrett's next home, and why.`\
 https://nytimes.com/athletic/6144755/2025/02/19/myles-garrett-next-team-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/
 **Mets' prospect Matt Allan back on track after surgeries: 'We'll see that dream lived out'**\
 `The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
 https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
-
-**Donald Shoup, 86, Dies; Scholar Made Parking an Entertaining Subject**\
-`In “The High Cost of Free Parking,” he made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
-https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
 
