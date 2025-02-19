@@ -1,3 +1,7 @@
+**Seven men charged for alleged roles in robberies targeting athletes' homes**\
+`They were charged with conspiracy to commit interstate transportation of stolen property and face a maximum penalty of 10 years in prison.`\
+https://nytimes.com/athletic/6146093/2025/02/19/charges-athlete-home-robberies/
+
 **The Bounce: Luka Dončić's fallout with the Mavericks has one surprising financial layer**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6145975/2025/02/19/luka-doncic-lakers-mavericks-shai-gilgeous-alexander-thunder-nba-the-bounce/

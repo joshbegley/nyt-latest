@@ -1,3 +1,7 @@
+**Seven men charged for alleged roles in robberies targeting athletes' homes**\
+`They were charged with conspiracy to commit interstate transportation of stolen property and face a maximum penalty of 10 years in prison.`\
+https://nytimes.com/athletic/6146093/2025/02/19/charges-athlete-home-robberies/
+
 **The Bounce: Luka Dončić's fallout with the Mavericks has one surprising financial layer**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6145975/2025/02/19/luka-doncic-lakers-mavericks-shai-gilgeous-alexander-thunder-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/style/pornography-partner-resentment.html
 **Chargers to open 2025 season in Brazil as NFL returns to São Paulo**\
 `Los Angeles will be the designated home team for the second regular-season game in the South American country.`\
 https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
-
-**Is Russia Open for Business — and at What Cost?**\
-`Investors seem open to the prospect of peace talks, but Western companies face a dilemma just three years after many retreated from the country.`\
-https://nytimes.com/2025/02/19/business/dealbook/russia-business-peace-talks.html
 
