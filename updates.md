@@ -1,3 +1,11 @@
+**Bomber Given 10 Years in Prison for Trying to Kill Japanese Premier**\
+`A court found the assailant guilty of attempted murder in the 2023 attack on then-prime minister, Fumio Kishida.`\
+https://nytimes.com/2025/02/19/world/asia/japan-prime-minister-attacker-jail.html
+
+**A U.S. Betrayal Is Surreal for Europeans**\
+`The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
+https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
+
 **Wrexham 1 Leyton Orient 2: A surprise setback and why Rathbone is becoming a goalscorer**\
 `Richard Sutcliffe breaks down the main talking points from Wrexham's 2-1 loss to Leyton Orient`\
 https://nytimes.com/athletic/6143274/2025/02/19/wrexham-leyton-orient-ollie-rathbone-parkinson/

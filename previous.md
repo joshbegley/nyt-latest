@@ -1,3 +1,7 @@
+**Bomber Given 10 Years in Prison for Trying to Kill Japanese Premier**\
+`A court found the assailant guilty of attempted murder in the 2023 attack on then-prime minister, Fumio Kishida.`\
+https://nytimes.com/2025/02/19/world/asia/japan-prime-minister-attacker-jail.html
+
 **Wrexham 1 Leyton Orient 2: A surprise setback and why Rathbone is becoming a goalscorer**\
 `Richard Sutcliffe breaks down the main talking points from Wrexham's 2-1 loss to Leyton Orient`\
 https://nytimes.com/athletic/6143274/2025/02/19/wrexham-leyton-orient-ollie-rathbone-parkinson/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6139897/2025/02/19/ideal-fantasy-baseball-draft-fiv
 `Michael Salfino espouses the virtues of the xERA stat when it comes to finding pitching values ahead of your 2025 fantasy baseball drafts.`\
 https://nytimes.com/athletic/6134757/2025/02/19/fantasy-baseball-2025-draft-xera-stats/
 
-**Has America Become a Threat to Europe?**\
+**A U.S. Betrayal Is Surreal for Europeans**\
 `The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
 https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145705/2025/02/19/kansas-byu-34-point-loss-bill-se
 **Fantasy baseball ADP report: Early top picks, positional outlooks and inviting targets**\
 `Scott Engel provides an early rundown of the ADP nuances at play for fantasy baseball 2025, including top picks and positional outlooks.`\
 https://nytimes.com/athletic/6142639/2025/02/19/adp-report-1-fantasy-baseball-2025-position-outlooks-top-picks/
-
-**Outfield sleepers: Dylan Crews, Jung Hoo Lee and more value picks for fantasy baseball**\
-`San Francisco's Jung Hoo Lee is just one of several potential late-round OF steals our staff is offering up as a top sleeper pick for 2025.`\
-https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseball-2025/
 
