@@ -1,3 +1,7 @@
+**Lookman responds to being 'singled out' after Atalanta's Champions League exit**\
+`Lookman scored within a minute of his introduction as a substitute against Club Brugge but also missed a penalty.`\
+https://nytimes.com/athletic/6146032/2025/02/19/ademola-lookman-penalty-atalanta-champions-league/
+
 **Bruins defenseman Charlie McAvoy has shoulder injury, infection — out for U.S. for 4 Nations final**\
 `Jake Sanderson skated in McAvoy's place against Sweden, and Team USA coach Mike Sullivan said Quinn Hughes could be an option, as well.`\
 https://nytimes.com/athletic/6143867/2025/02/19/bruins-usa-charlie-mcavoy-injury/
