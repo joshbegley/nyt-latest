@@ -1,3 +1,11 @@
+**2025 fantasy baseball rankings: Jake Ciely's Top 500 players**\
+`Jake Ciely offers up his 2025 fantasy baseball rankings, with overall rankings for hitters and pitchers, and sortable by position.`\
+https://nytimes.com/athletic/6127264/2025/02/19/2025-fantasy-baseball-rankings-jake-cielys-top-320-hitters-and-225-pitchers/
+
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/19/briefing/russia-ukraine-trump-hamas.html
+
 **One Lake, Two Worlds: Jet-Skis in Rwanda. Bodies Ashore in Congo.**\
 `The Rwandan shore of Lake Kivu offers leisure and relaxation. Across the border in the Democratic Republic of Congo, the same lake was recently the site of devastation and misery after a rebel offensive.`\
 https://nytimes.com/2025/02/19/world/africa/rwanda-congo-m23-lake-kivu-conflict.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/18/us/k9-hurricane-dog-dead.html
 **2 Skiers Die in Avalanche in Cascade Mountains in Oregon**\
 `The avalanche occurred on Monday near a snowmobile trail in Happy Valley, west of the city of Bend, officials said.`\
 https://nytimes.com/2025/02/18/us/avalanche-cascade-mountains-oregon.html
-
-**Destination of a Walk**\
-`Joe Deeney leaves us in stitches.`\
-https://nytimes.com/2025/02/18/crosswords/daily-puzzle-2025-02-19.html
-
-**Rosenthal: Blue Jays never should have reached this point with Vladimir Guerrero Jr.**\
-`The team had plenty of chances to reach a contract extension with their homegrown star long before Tuesday's self-imposed deadline.`\
-https://nytimes.com/athletic/6143102/2025/02/18/vladimir-guerrero-blue-jays-extension-talks/
 
