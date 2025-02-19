@@ -1,3 +1,11 @@
+**Team USA's Matthew Tkachuk declares Tkachuk brothers 'ready to go' vs. Canada for 4 Nations final**\
+`Matthew Tkachuk said that he wouldn't "want to miss" the finale vs. Canada and that he expects brother Brady to "be at his absolute best."`\
+https://nytimes.com/athletic/6146666/2025/02/19/united-states-tkachuk-brothers-4-nations-injuries/
+
+**Chelsea's Casteldine has Shrewsbury loan cut short due to back injury**\
+`Chelsea under-21 midfielder Leo Castledine has had his season-long loan at Shrewsbury Town cut short for the time being due to suffering a minor stress fracture in his lower back.`\
+https://nytimes.com/athletic/6146642/2025/02/19/chelsea-casteldine-shrewsbury-injury-loan/
+
 **Read the judge’s order scheduling a hearing on the request to drop Adams charges**\
 `The order was issued by Judge Dale E. Ho in response to a motion by the Justice Department.`\
 https://nytimes.com/interactive/2025/02/19/us/adams-ho-order.html

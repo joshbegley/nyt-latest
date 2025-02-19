@@ -1,3 +1,7 @@
+**Mediterranean Braces for a Sharp Temperature Drop and Snow**\
+`Through early next week, a surge of cold air will plunge temperatures far below what is typical for the region.`\
+https://nytimes.com/2025/02/19/weather/greece-cold-snow-coral.html
+
 **Team USA's Matthew Tkachuk declares Tkachuk brothers 'ready to go' vs. Canada for 4 Nations final**\
 `Matthew Tkachuk said that he wouldn't "want to miss" the finale vs. Canada and that he expects brother Brady to "be at his absolute best."`\
 https://nytimes.com/athletic/6146666/2025/02/19/united-states-tkachuk-brothers-4-nations-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/arts/music/sean-combs-diddy-dismiss-charge-racism
 **Danielle Sassoon Argued for an Inquiry Into the Request to Dismiss Adams’s Case**\
 `Before she resigned in protest, the former head of the Manhattan federal prosecutor’s office sent a letter that could give the judge ammunition for questioning the request.`\
 https://nytimes.com/2025/02/19/nyregion/danielle-sassoon-eric-adams-dismissal-inquiry.html
-
-**These Are the Key Figures Who May Be at the Hearing on Adams’s Case**\
-`Emil Bove, the No. 2 at the Justice Department, and Alex Spiro, who joined Eric Adams’s defense team in September, are among those expected to participate in the hearing.`\
-https://nytimes.com/2025/02/19/nyregion/alex-spiro-emil-bove-key-figures-lawyers.html
 
