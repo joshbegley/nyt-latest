@@ -8,7 +8,7 @@ https://nytimes.com/2025/02/19/us/georgia-embryo-ivf-mistake.html
 
 **Trump, Musk and the Reality Behind the Lovefest**\
 `President Trump and Elon Musk gushed over each other during a joint appearance on Fox News. But the interview was fascinating for all the things they did not explain.`\
-https://nytimes.com/live/2025/02/19/us/trump-news/trump-musk-fox-interview
+https://nytimes.com/2025/02/19/us/politics/trump-musk-fox-interview.html
 
 **Eagles promote Kevin Patullo to offensive coordinator**\
 `Patullo has served as the Eagles passing game coordinator since 2021 and added associate head coach to his title in 2023.`\
