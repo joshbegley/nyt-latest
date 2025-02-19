@@ -1,3 +1,11 @@
+**Is Russia Open for Business — and at What Cost?**\
+`Investors seem open to the prospect of peace talks, but Western companies face a dilemma just three years after many retreated from the country.`\
+https://nytimes.com/2025/02/19/business/dealbook/russia-business-peace-talks.html
+
+**Nikola, E.V. Start-Up That Once Thrilled Investors, Files for Bankruptcy**\
+`The company, which once enjoyed a surging stock price, struggled to turn its plans for electric and hydrogen trucks into a viable business.`\
+https://nytimes.com/2025/02/19/business/nikola-electric-truck-bankruptcy.html
+
 **2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
 `Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
 https://nytimes.com/athletic/6129807/2025/02/19/2025-fantasy-baseball-draft-kit-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.htm
 **South Korean Officials Convicted Over Forcibly Sending North Koreans Home**\
 `The case of two North Korean fishermen, who murdered 16 compatriots before they sought asylum, has become a political minefield in the South.`\
 https://nytimes.com/2025/02/19/world/asia/north-korea-fishermen-court.html
-
-**Bellingham banned for two La Liga games after red, Madrid to appeal**\
-`Bellingham was sent off in the first half of Madrid's draw with Osasuna for swearing at referee Jose Luis Munuera Montero`\
-https://nytimes.com/athletic/6138755/2025/02/19/jude-bellingham-red-car-real-madrid-appeal/
-
-**Meeting Again in Paris, European Leaders Try to Recalibrate After Trump Sides With Russia**\
-`The American president’s latest remarks embracing Vladimir Putin’s narrative that Ukraine is to blame for the war have compounded the sense of alarm among traditional allies.`\
-https://nytimes.com/2025/02/19/world/europe/europe-trump-russia-ukraine.html
 
