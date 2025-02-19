@@ -1,3 +1,7 @@
+**The judge faces a flood of demands to continue the prosecution.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/the-judge-faces-a-flood-of-demands-to-continue-the-prosecution
+
 **Sean Combs Argues He’s Facing a Mann Act Charge Because of His Race**\
 `The music mogul’s lawyers filed a motion to dismiss a sex-trafficking charge, saying that the law involved has “racist origins.”`\
 https://nytimes.com/2025/02/19/arts/music/sean-combs-diddy-dismiss-charge-racism.html
