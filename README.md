@@ -1,3 +1,7 @@
+**Read the judge’s order scheduling a hearing on the request to drop Adams charges**\
+`The order was issued by Judge Dale E. Ho in response to a motion by the Justice Department.`\
+https://nytimes.com/interactive/2025/02/19/us/adams-ho-order.html
+
 **Tiny Love Stories: ‘My Mother Lied to a Grieving Lady’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/02/19/style/tiny-modern-love-stories-my-mother-lied-to-a-grieving-lady.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146592/2025/02/19/lewis-hamilton-ferrari-f1/
 **‘Quid Pro Quo’: The Phrase That Could Have Major Ramifications for Adams**\
 `The phrase, which means “this for that” in Latin, signifies acts that transgress American laws. Manhattan’s former U.S. attorney said that New York’s mayor tried to strike a corrupt deal.`\
 https://nytimes.com/2025/02/19/nyregion/eric-adams-quid-pro-quo.html
-
-**Read the Letter From the Transportation Secretary About Congestion Pricing**\
-`The Trump administration moved to end New York City’s congestion pricing program by revoking federal approval for the tolls.`\
-https://nytimes.com/interactive/2025/02/19/nyregion/congestion-pricing-termination-letter.html
 
