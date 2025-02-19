@@ -1,3 +1,11 @@
+**Why Trump’s Decision to Kill Congestion Pricing Feels Like Such a Gut Punch**\
+`For now the only metric that matters is the depth of Donald Trump’s spite.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pricing-new-york
+
+**Which teams are in the Champions League round of 16 and when is the draw?**\
+`Kylian Mbappe scored a hat-trick and PSG thrashed a fellow French side in the play-offs. So what's next?`\
+https://nytimes.com/athletic/6147258/2025/02/19/champions-league-round-of-16-teams/
+
 **Democratic lawmakers see ‘pattern of political interference’ with U.S. prosecutors.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-pattern-of-political-interference-with-us-prosecutors
@@ -19,7 +27,7 @@ https://nytimes.com/2025/02/19/us/missouri-abortion.html
 https://nytimes.com/2025/02/19/us/politics/trump-house-budget-plan.html
 
 **Tigers' Casey Mize is still perfecting his arsenal, but write him off at your own risk**\
-`Once a hyped No. 1 pick, Casey Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
+`Once a hyped No. 1 pick, Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
 https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-spring-training/
 
 **Van Persie on verge of being appointed new Feyenoord head coach**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6147431/2025/02/19/van-persie-feyenoord-coach-appoi
 **They Never Planned on Buying a Gun. Until They Did.**\
 `Some new gun owners, a reporter found, are ready to approach the painful topic of firearms with more curiosity and less confrontation.`\
 https://nytimes.com/2025/02/19/insider/new-gun-owners.html
-
-**Dr. Oz, Trump’s Medicare Nominee, Pledges to Sell Health Stocks**\
-`The celebrity doctor said he would divest from his interests in many drug, medical and insurance companies, worth millions of dollars.`\
-https://nytimes.com/2025/02/19/health/mehmet-oz-medicare-medicaid-stocks.html
-
-**The Escalating Feud Between Trump and Ukraine’s Leader**\
-`Also, Microsoft said it created a new state of matter. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/02/19/briefing/trump-ukraine-feud-microsoft-new-state-of-matter.html
 

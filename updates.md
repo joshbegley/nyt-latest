@@ -1,3 +1,15 @@
+**Why Trump’s Decision to Kill Congestion Pricing Feels Like Such a Gut Punch**\
+`For now the only metric that matters is the depth of Donald Trump’s spite.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pricing-new-york
+
+**Which teams are in the Champions League round of 16 and when is the draw?**\
+`Kylian Mbappe scored a hat-trick and PSG thrashed a fellow French side in the play-offs. So what's next?`\
+https://nytimes.com/athletic/6147258/2025/02/19/champions-league-round-of-16-teams/
+
+**Tigers' Casey Mize is still perfecting his arsenal, but write him off at your own risk**\
+`Once a hyped No. 1 pick, Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
+https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-spring-training/
+
 **Democratic lawmakers see ‘pattern of political interference’ with U.S. prosecutors.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-pattern-of-political-interference-with-us-prosecutors
