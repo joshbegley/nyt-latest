@@ -1,3 +1,7 @@
+**Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
+`The lawsuit appeared to be an effort to pressure the justice hours after he received an indictment of Brazil’s former president.`\
+https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
+
 **Israelis Gird for Release of Bodies of Captives From Gaza**\
 `In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, potentially including those of two children, will be somber.`\
 https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
