@@ -1,3 +1,11 @@
+**Team USA's Matthew Tkachuk declares Tkachuk brothers 'ready to go' vs. Canada for 4 Nations final**\
+`Matthew Tkachuk said that he wouldn't "want to miss" the finale vs. Canada and that he expects brother Brady to "be at his absolute best."`\
+https://nytimes.com/athletic/6146666/2025/02/19/united-states-tkachuk-brothers-4-nations-injuries/
+
+**Chelsea's Casteldine has Shrewsbury loan cut short due to back injury**\
+`Chelsea under-21 midfielder Leo Castledine has had his season-long loan at Shrewsbury Town cut short for the time being due to suffering a minor stress fracture in his lower back.`\
+https://nytimes.com/athletic/6146642/2025/02/19/chelsea-casteldine-shrewsbury-injury-loan/
+
 **Read the judge’s order scheduling a hearing on the request to drop Adams charges**\
 `The order was issued by Judge Dale E. Ho in response to a motion by the Justice Department.`\
 https://nytimes.com/interactive/2025/02/19/us/adams-ho-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/nyregion/danielle-sassoon-eric-adams-dismissal-in
 **These Are the Key Figures Who May Be at the Hearing on Adams’s Case**\
 `Emil Bove, the No. 2 at the Justice Department, and Alex Spiro, who joined Eric Adams’s defense team in September, are among those expected to participate in the hearing.`\
 https://nytimes.com/2025/02/19/nyregion/alex-spiro-emil-bove-key-figures-lawyers.html
-
-**Hamilton confident Ferrari has 'every ingredient' to win F1 title: 'There's magic here'**\
-`Hamilton's last F1 drivers' championship came in 2020 and the Briton finished seventh with Mercedes last year.`\
-https://nytimes.com/athletic/6146592/2025/02/19/lewis-hamilton-ferrari-f1/
-
-**‘Quid Pro Quo’: The Phrase That Could Have Major Ramifications for Adams**\
-`The phrase, which means “this for that” in Latin, signifies acts that transgress American laws. Manhattan’s former U.S. attorney said that New York’s mayor tried to strike a corrupt deal.`\
-https://nytimes.com/2025/02/19/nyregion/eric-adams-quid-pro-quo.html
 
