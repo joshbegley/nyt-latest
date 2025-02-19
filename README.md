@@ -1,3 +1,7 @@
+**Fake viral social posts on Messi, Ronaldo sons; Varane exclusive; embarrassing Euro exits**\
+`Today in TAFC: The viral social posts surrounding Messi and Ronaldo's sons, which are not real. Plus: Varane exclusive interview`\
+https://nytimes.com/athletic/6145864/2025/02/19/messi-ronaldo-social-posts-varane-exclusive/
+
 **Ukraine’s Equation**\
 `The West has fractured, and Putin knows it.`\
 https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
 https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
 
 **Tennis players love golf - but how good are their swings?**\
-`Top-10 player Casper Ruud is in Mexico for the next tournament of his season - but first, golf.`\
+`Top-10 player Casper Ruud is in Mexico for the next tournament of his season — but first, golf.`\
 https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
 
 **The Pulse: A brewing MLB disaster**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
 **Chiefs’ offseason to-do list: Protect Patrick Mahomes, retain Trey Smith and more**\
 `Ahead of the NFL combine, we offer five keys to the Chiefs' offseason, with the offensive line at the top of the list.`\
 https://nytimes.com/athletic/6145124/2025/02/19/chiefs-offseason-to-do-list-patrick-mahomes/
-
-**DC Matt Eberflus expects Cowboys to be an 'attacking defense' in his return**\
-`Eberflus discussed personnel — from Osa Odighizuwa and Mazi Smith to Trevon Diggs and DaRon Bland — in addressing his plans for next season.`\
-https://nytimes.com/athletic/6145566/2025/02/19/cowboys-matt-eberflus-defensive-coordinator-micah-parsons/
 
