@@ -1,3 +1,7 @@
+**2 Skiers Die in Avalanche in Cascade Mountains in Oregon**\
+`The avalanche occurred on Monday near a snowmobile trail in Happy Valley, west of the city of Bend, officials said.`\
+https://nytimes.com/2025/02/18/us/avalanche-cascade-mountains-oregon.html
+
 **Trump issues order to expand his power over agencies Congress made independent.**\
 `The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc
