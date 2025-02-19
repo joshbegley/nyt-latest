@@ -1,6 +1,10 @@
-**Fake viral social posts on Messi, Ronaldo sons; Varane exclusive; embarrassing Euro exits**\
-`Today in TAFC - the viral social posts surrounding Messi and Ronaldo's sons, which are not real. Plus: Varane exclusive interview`\
-https://nytimes.com/athletic/6145864/2025/02/19/messi-ronaldo-social-posts-varane-exclusive/
+**Phenomenal 4 Nations whets Olympics appetite for Connor Bedard and Blackhawks teammates**\
+`It's hard not to get excited watching best-on-best hockey, and young Blackhawks stars are no different.`\
+https://nytimes.com/athletic/6145227/2025/02/19/blackhawks-4-nations-olympics-bedard-vlasic-kurashev/
+
+**Zelensky Urges ‘More Truth’ After Trump Suggests Ukraine Started the War**\
+`The remarks by President Volodymyr Zelensky of Ukraine were some of his most pointed yet about President Trump’s views on the war.`\
+https://nytimes.com/2025/02/19/world/europe/ukraine-zelensky-trump-russia-war.html
 
 **Ukraine’s Equation**\
 `The West has fractured, and Putin knows it.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
 **Israelis Gird for Release of Bodies of Captives From Gaza**\
 `In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, potentially including those of two children, will be somber.`\
 https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
-
-**Chiefs’ offseason to-do list: Protect Patrick Mahomes, retain Trey Smith and more**\
-`Ahead of the NFL combine, we offer five keys to the Chiefs' offseason, with the offensive line at the top of the list.`\
-https://nytimes.com/athletic/6145124/2025/02/19/chiefs-offseason-to-do-list-patrick-mahomes/
 
