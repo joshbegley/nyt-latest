@@ -1,3 +1,23 @@
+**Two Small Planes Collide Midair in Arizona, Killing 2**\
+`One plane landed “uneventfully” while the other crashed near a runway, then caught fire, investigators said.`\
+https://nytimes.com/2025/02/19/us/plane-crash-arizona-airport.html
+
+**NFL projects 2025 salary cap to rise to at least $277.5 million**\
+`The league is projecting an increase of $22.1 to $26.1 million from the 2024 salary cap of $255.4 million.`\
+https://nytimes.com/athletic/6146634/2025/02/19/nfl-salary-cap-projection-2025/
+
+**A Justice Dept. official defended moving to drop the charges on social media.**\
+`Chad Mizelle, the department’s chief of staff, offered no evidence that any of prosecutors in the Manhattan U.S. attorney’s office did anything illegal, unethical or improper.`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/a-justice-dept-official-defended-moving-to-drop-the-charges-on-social-media
+
+**They weren’t in court, but Adams’s prosecutors made their presence felt.**\
+`The prosecutors who brought the corruption case against Mayor Eric Adams were not at the hearing on its dismissal, but their arguments still reached the judge.`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/they-werent-in-court-but-adamss-prosecutors-made-their-presence-felt
+
+**Donald Shoup, Who Made Parking an Entertaining Subject, Dies at 86**\
+`In “The High Cost of Free Parking,” he made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
+https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
+
 **Mets' prospect Matt Allan back on track after surgeries: 'We'll see that dream lived out'**\
 `The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
 https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
