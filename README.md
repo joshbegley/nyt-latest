@@ -1,3 +1,7 @@
+**Destination of a Walk**\
+`Joe Deeney leaves us in stitches.`\
+https://nytimes.com/2025/02/18/crosswords/daily-puzzle-2025-02-19.html
+
 **Rosenthal: Blue Jays never should have reached this point with Vladimir Guerrero Jr.**\
 `The team had plenty of chances to reach a contract extension with their homegrown star long before Tuesday's self-imposed deadline.`\
 https://nytimes.com/athletic/6143102/2025/02/18/vladimir-guerrero-blue-jays-extension-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-t
 **Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
 `Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
 https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/
-
-**DOGE Claimed It Saved $8 Billion in One Contract. It Was Actually $8 Million.**\
-`The biggest single line item on the website of Elon Musk’s cost-cutting team appears to include an error.`\
-https://nytimes.com/2025/02/18/upshot/doge-contracts-musk-trump.html
 
