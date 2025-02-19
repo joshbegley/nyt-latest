@@ -34,7 +34,7 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/
 `The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
 https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
 
-**Donald Shoup, Who Made Parking an Entertaining Subject, Dies at 86**\
+**Donald Shoup, 86, Dies; Scholar Made Parking an Entertaining Subject**\
 `In “The High Cost of Free Parking,” he made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
 https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
 
