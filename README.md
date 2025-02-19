@@ -1,3 +1,19 @@
+**Trump picks former aide for top national security job at Justice Dept.**\
+`John Eisenberg, known for his dislike of leaks, served in the first Trump White House.`\
+https://nytimes.com/live/2025/02/19/us/trump-news/trump-picks-former-aide-for-top-national-security-job-at-justice-dept
+
+**A Frustrated Trump Wants His New Air Force One Planes Pronto**\
+`Among the ways being discussed to force faster delivery of two presidential planes are relaxing security clearances for Boeing workers and even purchasing a temporary luxury plane and retrofitting it.`\
+https://nytimes.com/2025/02/19/us/politics/trump-musk-air-force-one-boeing.html
+
+**Let’s Discuss: Covering the White House**\
+`What is it like to report on the president? Ask Zolan Kanno-Youngs, a Times White House correspondent. Post your questions for him here by Feb. 27.`\
+https://nytimes.com/2025/02/19/learning/lesson-plans/lets-discuss-covering-the-white-house.html
+
+**The New York Books Our Readers Love**\
+`Plenty of classics made the list, as did books that capture particular, personal slices of New York.`\
+https://nytimes.com/2025/02/19/books/nyc-books.html
+
 **Make This Melissa Pasta Tonight**\
 `This pasta with spinach, feta and yogurt is speedy, filling and easy to execute well. (Case in point: My teenager made it for us.)`\
 https://nytimes.com/2025/02/19/dining/make-this-melissa-pasta-tonight.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000009999141/zelensky-trump-ukraine-ru
 **Researchers confirm NHL Hall of Famer Bobby Hull had CTE when he died**\
 `Hull’s family donated his brain to a brain bank at Boston University for study after he died in 2023 at the age of 84.`\
 https://nytimes.com/athletic/6146179/2025/02/19/nhl-bobby-hull-blackhawks-cte/
-
-**Let Quinn Hughes play at 4 Nations, and what Thatcher Demko's absence means for Canucks**\
-`The NHL should bend the rules to allow the best defender in the world play for Team USA at 4 Nations Face-Off.`\
-https://nytimes.com/athletic/6145738/2025/02/19/canucks-quinn-hughes-4-nations-thatcher-demko/
-
-**Trump Eyes a Bigger, Better Trade Deal With China**\
-`U.S. officials are considering whether they can strike a deal with China that would ramp up its purchases of American goods and investments in the United States.`\
-https://nytimes.com/2025/02/19/business/economy/trump-china-trade-deal.html
-
-**Lookman responds to being 'singled out' after Atalanta's Champions League exit**\
-`Lookman scored within a minute of his introduction as a substitute against Club Brugge but also missed a penalty.`\
-https://nytimes.com/athletic/6146032/2025/02/19/ademola-lookman-penalty-atalanta-champions-league/
-
-**Bruins defenseman Charlie McAvoy has shoulder injury, infection — out for U.S. for 4 Nations final**\
-`Jake Sanderson skated in McAvoy's place against Sweden, and Team USA coach Mike Sullivan said Quinn Hughes could be an option, as well.`\
-https://nytimes.com/athletic/6143867/2025/02/19/bruins-usa-charlie-mcavoy-injury/
 
