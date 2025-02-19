@@ -1,3 +1,7 @@
+**Trump Administration Moves to End New York’s Congestion Pricing Tolls**\
+`President Trump had raised concerns that the new tolling program, the first of its kind in America, was drawing visitors and businesses from Manhattan.`\
+https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing-nyc.html
+
 **Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
 `The Athletic first reported on the claims made against Al-Rumayyan in the court case in early 2024.`\
 https://nytimes.com/athletic/6146290/2025/02/19/yasir-al-rumayyan-case-newcastle-liv-golf/
