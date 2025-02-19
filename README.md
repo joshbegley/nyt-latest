@@ -1,40 +1,40 @@
-**Dorothy Chin Brandt, Trailblazing Asian American Judge, Dies at 78**\
-`She was the first descendant of a Chinese immigrant to win elective office in New York State. She was also the state’s first female jurist of Asian heritage.`\
-https://nytimes.com/2025/02/19/nyregion/dorothy-chin-brandt-dead.html
+**U.S. Attorney Casts Office as ‘Guardians of Federal Workers’**\
+`In an unusual email, the U.S. attorney in Washington, Ed Martin, spoke openly about a sensitive investigation into a threat against Pete Hegseth, the defense secretary.`\
+https://nytimes.com/2025/02/19/us/politics/ed-martin-hegseth-jan-6.html
 
-**Explained: What Manchester United's latest accounts reveal about their finances**\
-`Manchester United are trying hard to cut costs and raise matchday revenue - their latest accounts underline why`\
-https://nytimes.com/athletic/6146380/2025/02/19/manchester-united-accounts-explained/
+**Israeli Military Prosecutor Charges Five Reservists With Abuse of Detainee**\
+`Lawyers representing one of the soldiers said they have presented arguments that deny the charges against the reservists.`\
+https://nytimes.com/2025/02/19/world/middleeast/israeli-soldiers-charged-abuse-palestinian-detainee.html
 
-**NWSL's Denver expansion team asks fans to vote for six name options**\
-`The voting process opened Wednesday and will run through Feb. 26.`\
-https://nytimes.com/athletic/6146375/2025/02/19/nwsl-denver-team-names-vote/
+**Gerd Stern, Beat Era Poet and Multimedia Artist, Dies at 96**\
+`An Aquarian Age savant, he was a founder of the artists’ collective USCO, which helped define the 1960s with psychedelic, sensory-overloading installations and performances.`\
+https://nytimes.com/2025/02/19/arts/gerd-stern-dead.html
 
-**The USMNT wild card with a penchant for the unpredictable**\
-`Matko Miljevic may not be atop the U.S. depth chart, but he brings fiery qualities to the table that the current group is lacking.`\
-https://nytimes.com/athletic/6145398/2025/02/19/matko-miljevic-usmnt-pochettino-huracan/
+**A Sudden Shift Between the U.S. and Russia**\
+`Readers discuss developments involving the U.S., Russia, Ukraine and Europe. Also: The Republican attack on higher education; the Eric Adams case.`\
+https://nytimes.com/2025/02/19/opinion/us-russia-ukraine-europe.html
 
-**Trump Administration Moves to End New York’s Congestion Pricing Tolls**\
-`President Trump had raised concerns that the new tolling program, the first of its kind in America, was drawing visitors and businesses away from Manhattan.`\
-https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing-nyc.html
+**Record-Setting Ocean Liner, a Titan of Its Time, Begins Its Final Voyage**\
+`The S.S. United States, the largest passenger ship ever built in America, left Philadelphia under tow on Wednesday, eventually to be sunk off the Gulf Coast.`\
+https://nytimes.com/2025/02/19/us/ss-united-states-final-voyage.html
 
-**Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
-`The Athletic first reported on the claims made against Al-Rumayyan in the court case in early 2024.`\
-https://nytimes.com/athletic/6146290/2025/02/19/yasir-al-rumayyan-case-newcastle-liv-golf/
+**Drawing From Bob Dylan’s Songbook, Learning Lessons in Mortality**\
+`Todd Almond wrote an oral history on Conor McPherson’s “Girl From the North Country” and its passage through Broadway’s pandemic shutdown.`\
+https://nytimes.com/2025/02/19/theater/todd-almond-bob-dylan-musical.html
 
-**Trump Says Medicaid Won’t Be ‘Touched.’ That Would Make It Hard to Extend Tax Cuts.**\
-`The math doesn’t seem to work with the House budget proposal, and the president’s record shows a consistent openness to Medicaid cuts.`\
-https://nytimes.com/2025/02/19/upshot/trump-medicaid-tax-cuts.html
+**Here’s the latest.**\
+`By Jonah E. Bromwich, Benjamin Weiser and Hurubie Meko`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/heres-the-latest
 
-**What Does Trump’s Executive Order for I.V.F. Mean?**\
-`The president says he is seeking ways to “aggressively reduce” the cost of the fertility treatment.`\
-https://nytimes.com/2025/02/19/us/politics/trump-ivf-executive-order.html
+**Live Updates: Judge Will Weigh Request to Dismiss Corruption Charges Against Eric Adams**\
+`The Washington prosecutors who are seeking to end the prosecution of New York’s mayor will appear before a seemingly skeptical judge at a hearing in a Manhattan courtroom.`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case
 
-**Paqueta out for up to four weeks with ankle injury**\
-`The midfielder posted a story on his Instagram account of his right foot and ankle in a protective boot on Wednesday.`\
-https://nytimes.com/athletic/6146378/2025/02/19/west-ham-lucas-paqueta-injury/
+**What We Know About the Secretive Migrant Mission at Guantánamo Bay**\
+`The Trump administration has said little about the Venezuelan men who were transferred from Texas to the U.S. military base in Cuba.`\
+https://nytimes.com/2025/02/19/us/politics/migrant-mission-guantanamo-bay.html
 
-**I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
-`The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
-https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
+**Cynthia Erivo Will Host This Year’s Tony Awards**\
+`The actress won a Tony Award for “The Color Purple,” and is now nominated for an Oscar for playing Elphaba in the film adaptation of “Wicked.”`\
+https://nytimes.com/2025/02/19/theater/cynthia-erivo-tony-awards-broadway.html
 
