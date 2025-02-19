@@ -1,3 +1,7 @@
+**Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
+`The lawsuit appeared to be an effort to pressure the justice hours after he received an indictment of Brazil’s former president.`\
+https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
+
 **Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
 `"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
 https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145566/2025/02/19/cowboys-matt-eberflus-defensive-
 **Senators fan survey results: Trade targets, dream first-round playoff matchup and more**\
 `In our second survey of the season, fans had a much more cheerful outlook compared to late 2024.`\
 https://nytimes.com/athletic/6131843/2025/02/19/senators-trade-deadline-survey-dream-playoff-opponent/
-
-**Automated strike zone could benefit Astros' Yainer Diaz and Isaac Paredes**\
-`Diaz’s inability to steal strikes and Paredes’ perpetual victimization by poor umpiring would, at the very least, be minimized.`\
-https://nytimes.com/athletic/6144864/2025/02/19/automated-strike-zone-yainer-diaz-isaac-paredes/
 
