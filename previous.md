@@ -1,3 +1,11 @@
+**The Bounce: Luka Dončić's fallout with the Mavericks has one surprising financial layer**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6145975/2025/02/19/luka-doncic-lakers-mavericks-shai-gilgeous-alexander-thunder-nba-the-bounce/
+
+**Arsenal overall losses improve by £34m while wage bill increases 40 per cent**\
+`Matchday income has risen by 28 percent to £131.7m, taking them above Tottenham and second in England only to Manchester United.`\
+https://nytimes.com/athletic/6145845/2025/02/19/arsenal-wages-finances-2024/
+
 **Scientists Describe Rare Syndrome Following Covid Vaccinations**\
 `In a small study, patients with the syndrome were more likely to experience reactivation of Epstein-Barr virus and high levels of a coronavirus protein.`\
 https://nytimes.com/2025/02/19/health/covid-post-vaccination-syndrome.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
 **Is Russia Open for Business — and at What Cost?**\
 `Investors seem open to the prospect of peace talks, but Western companies face a dilemma just three years after many retreated from the country.`\
 https://nytimes.com/2025/02/19/business/dealbook/russia-business-peace-talks.html
-
-**Nikola, E.V. Start-Up That Once Thrilled Investors, Files for Bankruptcy**\
-`The company, which once enjoyed a surging stock price, struggled to turn its plans for electric and hydrogen trucks into a viable business.`\
-https://nytimes.com/2025/02/19/business/nikola-electric-truck-bankruptcy.html
-
-**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
-`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
-https://nytimes.com/athletic/6129807/2025/02/19/2025-fantasy-baseball-draft-kit-mlb/
 
