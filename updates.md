@@ -1,3 +1,7 @@
+**ASAP Rocky Reacts to Acquittal**\
+`The courtroom broke out into cheers after the jury found the rapper Rakim Mayers, known as ASAP Rocky, not guilty of shooting a former collaborator.`\
+https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html
+
 **PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
 `A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
 https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
