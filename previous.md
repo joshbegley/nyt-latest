@@ -2,9 +2,9 @@
 `This week, Colbert said, Eric Adams’s problems “stopped being funny and started becoming hilarious.”`\
 https://nytimes.com/2025/02/19/arts/television/colbert-mayor-eric-adams.html
 
-**Male spectator removed for 'fixated behaviour' of Raducanu**\
+**Male spectator removed after 'fixated behaviour' toward Emma Raducanu in Dubai**\
 `Raducanu was clearly upset as she approached the umpire during the second game in the match, which she lost to Karolina Muchova.`\
-https://nytimes.com/athletic/6145787/2025/02/19/emma-raducanu-spectator-removed-dubai/
+https://nytimes.com/athletic/6145787/2025/02/19/emma-raducanu-spectator-removed-dubai-wta-tennis/
 
 **Champions League betting preview: Madrid to pick off Man City again?**\
 `Sam Tighe has a look at the best betting markets for this Wednesday’s Champions League knockout second-leg clashes. 
