@@ -1,3 +1,11 @@
+**Watch: Where is Cooper Flagg's best NBA fit?**\
+`The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
+https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flag-best-fit/
+
+**Lamoriello's future, and what could Islanders veterans fetch on the trade market? Mailbag, part 1**\
+`Plus ownership's interest, a healthy Islanders defense, and what would it take to acquire Elias Pettersson from the Canucks?`\
+https://nytimes.com/athletic/6145965/2025/02/19/islanders-trade-deadline-lou-lamoriello/
+
 **Animal rights group protest to FIFA over stray dogs cull in Morocco**\
 `Morocco is a rabies-endemic country, with efforts taking place over the previous decade to reduce the population of infected dogs.`\
 https://nytimes.com/athletic/6144272/2025/02/19/animal-rights-protest-2030-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129807/2025/02/19/2025-fantasy-baseball-draft-kit-
 **Talent, technology, a quirky schedule. Why seven track and field world records were broken in nine days**\
 `In a little over a week, five men set world records at distances ranging from 1500m up to the half marathon`\
 https://nytimes.com/athletic/6144421/2025/02/19/seven-athletics-world-records-in-one-week-february-analysis/
-
-**From Tyler Warren to Cobee Bryant, finding perfect NFL Draft fits for the 49ers**\
-`A position-by-position look at which traits the 49ers are seeking in the draft and which prospects possess those traits.`\
-https://nytimes.com/athletic/6144319/2025/02/19/49ers-nfl-draft-perfect-fits/
-
-**Proposing an unlikely option for the Oilers at the NHL trade deadline**\
-`The Oilers' biggest need is a scoring veteran for the top six, but that's not always easy to pick up.`\
-https://nytimes.com/athletic/6143669/2025/02/19/oilers-trade-deadline-bowman-jordan-eberle-kraken/
 
