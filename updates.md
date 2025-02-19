@@ -1,3 +1,11 @@
+**Let Quinn Hughes play at 4 Nations, and what Thatcher Demko's absence means for Canucks**\
+`The NHL should bend the rules to allow the best defender in the world play for Team USA at 4 Nations Face-Off.`\
+https://nytimes.com/athletic/6145738/2025/02/19/canucks-quinn-hughes-4-nations-thatcher-demko/
+
+**Trump Eyes a Bigger, Better Trade Deal With China**\
+`U.S. officials are considering whether they can strike a deal with China that would ramp up its purchases of American goods and investments in the United States.`\
+https://nytimes.com/2025/02/19/business/economy/trump-china-trade-deal.html
+
 **Lookman responds to being 'singled out' after Atalanta's Champions League exit**\
 `Lookman scored within a minute of his introduction as a substitute against Club Brugge but also missed a penalty.`\
 https://nytimes.com/athletic/6146032/2025/02/19/ademola-lookman-penalty-atalanta-champions-league/
