@@ -1,3 +1,7 @@
+**Our F1 75 Live review: What worked and what didn't at the sport's showy season launch**\
+`With big musical acts and unique livery reveals, F1 pulled out all the stops Tuesday at The O2. Our writers break down what worked.`\
+https://nytimes.com/athletic/6145021/2025/02/18/f1-75-live-launch-event-2025-season-hits-misses/
+
 **ASAP Rocky Acquitted of Shooting Former Friend**\
 `The rapper had faced two felony counts of assault with a firearm in connection with a 2021 altercation in Los Angeles.`\
 https://nytimes.com/2025/02/18/arts/music/asap-rocky-not-guilty-assault-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/world/americas/brazil-bolsonaro-coup-charges.html
 **Pope Francis Has Bilateral Pneumonia**\
 `The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
 https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
-
-**Amid Crashes, What Passengers Should Know About Airplane Safety**\
-`A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
-https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
 
