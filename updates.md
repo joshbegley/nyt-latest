@@ -1,3 +1,11 @@
+**Read the dueling letters that led to Wednesday’s hearing.**\
+`By Michael Rothfeld`\
+https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/read-the-dueling-letters-that-led-to-wednesdays-hearing
+
+**Evgeni Malkin won't retire after this season, will play only for Penguins**\
+`Malkin dispelled rumors that said he'd forgo his final NHL season to return to his hometown team in Russia.`\
+https://nytimes.com/athletic/6146829/2025/02/19/evgeni-malkin-retirement-penguins/
+
 **Trump Administration Has Fired Health Inspectors at Some Border Stations**\
 `Scientists worry that the losses may open the door to human, plant and animal diseases that would otherwise have been caught.`\
 https://nytimes.com/2025/02/19/health/trump-border-health-inspections.html
