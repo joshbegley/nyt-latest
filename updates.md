@@ -1,3 +1,7 @@
+**Paqueta out for up to four weeks with ankle injury**\
+`The midfielder posted a story on his Instagram account of his right foot and ankle in a protective boot on Wednesday.`\
+https://nytimes.com/athletic/6146378/2025/02/19/west-ham-lucas-paqueta-injury/
+
 **I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
 `The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
 https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
