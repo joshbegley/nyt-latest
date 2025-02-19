@@ -1,3 +1,7 @@
+**Why xERA should be your go-to stat for evaluating fantasy baseball pitchers**\
+`Michael Salfino espouses the virtues of the xERA stat when it comes to finding pitching values ahead of your 2025 fantasy baseball drafts.`\
+https://nytimes.com/athletic/6134757/2025/02/19/fantasy-baseball-2025-draft-xera-stats/
+
 **Has America Become a Threat to Europe?**\
 `The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
 https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143516/2025/02/19/remi-allen-southampton-davies-in
 **2025 fantasy baseball draft sheet: Downloadable stats, auction values and ranks**\
 `Your 2025 fantasy baseball championship run starts by downloading Jake Ciely's cheat sheet, projections and auction values.`\
 https://nytimes.com/athletic/6127295/2025/02/19/2025-fantasy-baseball-draft-sheet-downloadable-stats-auction-values-ranks/
-
-**Spurs finally have a squad again - now, what is their best combination in midfield?**\
-`For the first time since the autumn, Spurs' selections are open for meaningful debate again - and there are big questions in midfield`\
-https://nytimes.com/athletic/6140455/2025/02/19/spurs-midfield-options/
 
