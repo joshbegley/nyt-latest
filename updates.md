@@ -8,6 +8,16 @@ https://nytimes.com/athletic/6143676/2025/02/19/champions-league-knockout-round-
 `\
 https://nytimes.com/athletic/6143752/2025/02/19/champions-league-wednesday-best-anytime-scorer-odds/
 
+**Champions League betting preview: Madrid to pick off Man City again?**\
+`Sam Tighe has a look at the best betting markets for this Wednesday’s Champions League knockout second-leg clashes. 
+`\
+https://nytimes.com/athletic/6143676/2025/02/19/champions-league-knockout-round-betting-preview-predictions-odds/
+
+**Wednesday’s Champions League slate: A guide to the best anytime scorer odds**\
+`Julia Ranney dissects the anytime scorer markets ahead of this Wednesday’s Champions League play-off action.
+`\
+https://nytimes.com/athletic/6143752/2025/02/19/champions-league-wednesday-best-anytime-scorer-odds/
+
 **Male spectator removed after 'fixated behaviour' toward Emma Raducanu in Dubai**\
 `Raducanu was clearly upset as she approached the umpire during the second game in the match, which she lost to Karolina Muchova.`\
 https://nytimes.com/athletic/6145787/2025/02/19/emma-raducanu-spectator-removed-dubai-wta-tennis/
