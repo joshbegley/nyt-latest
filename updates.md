@@ -1,3 +1,7 @@
+**Ashworth's five-month Man United tenure cost £4m, accounts reveal**\
+`Ashworth left in December only five months after officially joining from Newcastle United.`\
+https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
+
 **Chargers to open 2025 season in Brazil as NFL returns to São Paulo**\
 `Los Angeles will be the designated home team for the second regular-season game in the South American country.`\
 https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
