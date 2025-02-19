@@ -1,3 +1,7 @@
+**Israelis Gird for Release of Bodies of Captives From Gaza**\
+`In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, potentially including those of two children, will be somber.`\
+https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
+
 **Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
 `"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
 https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/

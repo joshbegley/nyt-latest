@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6144773/2025/02/19/college-basketball-coach-retire-
 https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
 
 **Israelis Gird for Release of Bodies of Captives From Gaza**\
-`In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, including those of two children, will be somber.`\
+`In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, potentially including those of two children, will be somber.`\
 https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
 
 **Chiefs’ offseason to-do list: Protect Patrick Mahomes, retain Trey Smith and more**\
