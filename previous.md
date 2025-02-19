@@ -1,3 +1,7 @@
+**HP to Buy Humane, Maker of the Ai Pin, for $116 Million**\
+`Humane, which marketed its Ai Pin as the next big thing after smartphones, had raised $240 million from investors, including OpenAI’s Sam Altman. The pin will be discontinued.`\
+https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
+
 **Hochul May Deploy National Guard as Wildcat Strikes Hit 25 N.Y. Prisons**\
 `Corrections officers, without their union’s approval, refused to show up for work to protest what they say are hazardous conditions and severe staff shortages.`\
 https://nytimes.com/2025/02/18/nyregion/ny-prisons-strikes-national-guard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
 **Senate Confirms Howard Lutnick as Commerce Secretary**\
 `A longtime Wall Street executive, Mr. Lutnick will take on a broad portfolio that includes defending U.S. business interests and overseeing restrictions on technology exports.`\
 https://nytimes.com/2025/02/18/us/politics/howard-lutnick-confirmed-commerce.html
-
-**Who's on third continues to dominate Red Sox camp as Bregman, Casas weigh in**\
-`Alex Bregman says he's willing to play anywhere. Triston Casas thinks Bregman would fit best at second base. Plus, other news and notes.`\
-https://nytimes.com/athletic/6144984/2025/02/18/red-sox-third-base-alex-bregman-rafael-devers/
 
