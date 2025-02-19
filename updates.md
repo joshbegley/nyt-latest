@@ -1,3 +1,11 @@
+**Trump, Musk and the Reality Behind the Lovefest**\
+`President Trump and Elon Musk gushed over each other during a joint appearance on Fox News. But the interview was fascinating for all the things they did not explain.`\
+https://nytimes.com/live/2025/02/19/us/trump-news/trump-musk-fox-interview
+
+**Eagles promote Kevin Patullo to offensive coordinator**\
+`Patullo has served as the Eagles passing game coordinator since 2021 and added associate head coach to his title in 2023.`\
+https://nytimes.com/athletic/6146787/2025/02/19/eagles-promote-kevin-patullo-offensive-coordinator/
+
 **Read the dueling letters that led to Wednesday’s hearing.**\
 `By Michael Rothfeld`\
 https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/read-the-dueling-letters-that-led-to-wednesdays-hearing
