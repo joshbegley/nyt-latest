@@ -1,3 +1,7 @@
+**Why the 2024-25 Oilers wear their jersey numbers**\
+`Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
+https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
+
 **Phenomenal 4 Nations whets Olympics appetite for Connor Bedard and Blackhawks teammates**\
 `It's hard not to get excited watching best-on-best hockey, and young Blackhawks stars are no different.`\
 https://nytimes.com/athletic/6145227/2025/02/19/blackhawks-4-nations-olympics-bedard-vlasic-kurashev/

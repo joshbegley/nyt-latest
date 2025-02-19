@@ -1,3 +1,7 @@
+**Why the 2024-25 Oilers wear their jersey numbers**\
+`Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
+https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
+
 **Phenomenal 4 Nations whets Olympics appetite for Connor Bedard and Blackhawks teammates**\
 `It's hard not to get excited watching best-on-best hockey, and young Blackhawks stars are no different.`\
 https://nytimes.com/athletic/6145227/2025/02/19/blackhawks-4-nations-olympics-bedard-vlasic-kurashev/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144773/2025/02/19/college-basketball-coach-retire-
 **As Moscow and Washington Talk, Russians Hope the Result Is Normalcy**\
 `Many people in Russia expressed relief that an end to the conflict in Ukraine seemed nearer and that the hardships of war, and the shunning of their country by much of the world, may soon end.`\
 https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
-
-**Israelis Gird for Release of Bodies of Captives From Gaza**\
-`In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, potentially including those of two children, will be somber.`\
-https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
 
