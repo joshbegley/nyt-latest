@@ -1,3 +1,19 @@
+**Has America Become a Threat to Europe?**\
+`The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
+https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
+
+**Congo Is Bleeding. Where Is the Outrage?**\
+`This is not the first time the world has overlooked violence in Congo.`\
+https://nytimes.com/2025/02/19/opinion/congo-rwanda-rebels-war.html
+
+**Kansas suffers 34-point defeat vs. BYU, tying worst loss of Bill Self era**\
+`The last time Kansas saw an opponent win by 34 was in March 2021 when USC downed the Jayhawks to advance to the Sweet 16.`\
+https://nytimes.com/athletic/6145705/2025/02/19/kansas-byu-34-point-loss-bill-self/
+
+**Fantasy baseball ADP report: Early top picks, positional outlooks and inviting targets**\
+`Scott Engel provides an early rundown of the ADP nuances at play for fantasy baseball 2025, including top picks and positional outlooks.`\
+https://nytimes.com/athletic/6142639/2025/02/19/adp-report-1-fantasy-baseball-2025-position-outlooks-top-picks/
+
 **Outfield sleepers: Dylan Crews, Jung Hoo Lee and more value picks for fantasy baseball**\
 `San Francisco's Jung Hoo Lee is just one of several potential late-round OF steals our staff is offering up as a top sleeper pick for 2025.`\
 https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseball-2025/
