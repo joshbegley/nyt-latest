@@ -1,3 +1,7 @@
+**Wrexham 1 Leyton Orient 2: A surprise setback and why Rathbone is becoming a goalscorer**\
+`Richard Sutcliffe breaks down the main talking points from Wrexham's 2-1 loss to Leyton Orient`\
+https://nytimes.com/athletic/6143274/2025/02/19/wrexham-leyton-orient-ollie-rathbone-parkinson/
+
 **Are Bayern Munich really any good?**\
 `Bayern limped past Celtic to book a tie with Atletico or Leverkusen - Kompany's team needs some ego and cohesion, fast`\
 https://nytimes.com/athletic/6145336/2025/02/19/bayern-munich-vincent-kompany-champions-league/
