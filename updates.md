@@ -1,3 +1,7 @@
+**Ticket prices soar ahead of USA-Canada rematch in 4 Nations final in Boston**\
+`The 4 Nations final ranks in the top 10 most expensive NHL games on record for one ticket reseller whose data goes back to 2011.`\
+https://nytimes.com/athletic/6143873/2025/02/18/4-nations-final-ticket-prices-usa-canada-nhl/
+
 **A Trump order on agencies is part of a broader bid to centralize power.**\
 `The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc

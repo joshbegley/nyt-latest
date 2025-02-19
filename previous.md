@@ -1,3 +1,7 @@
+**Ticket prices soar ahead of USA-Canada rematch in 4 Nations final in Boston**\
+`The 4 Nations final ranks in the top 10 most expensive NHL games on record for one ticket reseller whose data goes back to 2011.`\
+https://nytimes.com/athletic/6143873/2025/02/18/4-nations-final-ticket-prices-usa-canada-nhl/
+
 **Hurricane, Dog Who Protected Obama White House From Intruder, Dies at 15**\
 `The jet-black Belgian Malinois drew widespread attention a decade ago when he wrestled a man to the ground on the White House lawn.`\
 https://nytimes.com/2025/02/18/us/k9-hurricane-dog-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html
 **PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
 `A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
 https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
-
-**Right-Wing Media Praises U.S.-Russia Talks as ‘Breath of Fresh Air’**\
-`Many of President Trump’s media allies were quick to celebrate this week’s negotiations, a contrast to the deep unease expressed by the foreign policy establishment.`\
-https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
 
