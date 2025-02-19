@@ -1,3 +1,7 @@
+**Wrexham 1 Leyton Orient 2: A surprise setback and why Rathbone is becoming a goalscorer**\
+`Richard Sutcliffe breaks down the main talking points from Wrexham's 2-1 loss to Leyton Orient`\
+https://nytimes.com/athletic/6143274/2025/02/19/wrexham-leyton-orient-ollie-rathbone-parkinson/
+
 **Are Bayern Munich really any good?**\
 `Bayern limped past Celtic to book a tie with Atletico or Leverkusen - Kompany's team needs some ego and cohesion, fast`\
 https://nytimes.com/athletic/6145336/2025/02/19/bayern-munich-vincent-kompany-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142639/2025/02/19/adp-report-1-fantasy-baseball-20
 **Outfield sleepers: Dylan Crews, Jung Hoo Lee and more value picks for fantasy baseball**\
 `San Francisco's Jung Hoo Lee is just one of several potential late-round OF steals our staff is offering up as a top sleeper pick for 2025.`\
 https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseball-2025/
-
-**Middle infield sleepers: Peña, Norby and more value picks for fantasy baseball 2025**\
-`Miami's Connor Norby is just one of several potential late-round MI steals our staff is offering up as a top sleeper pick for 2025.`\
-https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-fantasy-baseball-2025/
 

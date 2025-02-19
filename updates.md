@@ -1,3 +1,7 @@
+**Are Bayern Munich really any good?**\
+`Bayern limped past Celtic to book a tie with Atletico or Leverkusen - Kompany's team needs some ego and cohesion, fast`\
+https://nytimes.com/athletic/6145336/2025/02/19/bayern-munich-vincent-kompany-champions-league/
+
 **Word of the Day: kiln**\
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/19/learning/word-of-the-day-kiln.html

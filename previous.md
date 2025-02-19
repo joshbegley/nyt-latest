@@ -1,3 +1,7 @@
+**Are Bayern Munich really any good?**\
+`Bayern limped past Celtic to book a tie with Atletico or Leverkusen - Kompany's team needs some ego and cohesion, fast`\
+https://nytimes.com/athletic/6145336/2025/02/19/bayern-munich-vincent-kompany-champions-league/
+
 **Word of the Day: kiln**\
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/19/learning/word-of-the-day-kiln.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseba
 **Middle infield sleepers: Peña, Norby and more value picks for fantasy baseball 2025**\
 `Miami's Connor Norby is just one of several potential late-round MI steals our staff is offering up as a top sleeper pick for 2025.`\
 https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-fantasy-baseball-2025/
-
-**England cricketer Dan Mousley: "I ask the umpires the Villa score when I'm playing"**\
-`Dan Mousley is a Warwickshire and England cricketer with a bright future - but is very much at home in the North Stand at Villa Park`\
-https://nytimes.com/athletic/6141473/2025/02/19/dan-mousley-aston-villa-england-warwickshire-cricketer/
 
