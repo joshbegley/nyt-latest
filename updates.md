@@ -1,3 +1,7 @@
+**Trump Administration Has Fired Health Inspectors at Some Border Stations**\
+`Scientists worry that the losses may open the door to human, plant and animal diseases that would otherwise have been caught.`\
+https://nytimes.com/2025/02/19/health/trump-border-health-inspections.html
+
 **With Truth Social, Trump Has Official Mouthpiece and a Channel for Revenue**\
 `The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
 https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
