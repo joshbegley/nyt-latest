@@ -1,3 +1,7 @@
+**N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
+`The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
+https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
+
 **Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
 `The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
 **Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
 `In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
 https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
-
-**Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
-`The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
-https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
 
