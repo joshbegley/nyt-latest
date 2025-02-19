@@ -1,3 +1,7 @@
+**Read the judge’s order scheduling a hearing on the request to drop Adams charges**\
+`The order was issued by Judge Dale E. Ho in response to a motion by the Justice Department.`\
+https://nytimes.com/interactive/2025/02/19/us/adams-ho-order.html
+
 **Tiny Love Stories: ‘My Mother Lied to a Grieving Lady’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/02/19/style/tiny-modern-love-stories-my-mother-lied-to-a-grieving-lady.html
