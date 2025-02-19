@@ -1,3 +1,7 @@
+**Trump suggests U.S. agencies should negotiate bills, rather than pay them in full.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/02/18/us/trump-news/trump-suggests-us-agencies-should-negotiate-bills-rather-than-pay-them-in-full
+
 **Full Time: It’s time for She to Believe**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6145654/2025/02/18/she-believes-cup-uswnt-full-time/
