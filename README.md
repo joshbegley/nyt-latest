@@ -1,3 +1,11 @@
+**Wordle Review No. 1,342**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/crosswords/wordle-review-1342.html
+
+**Connections Companion No. 620**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/crosswords/connections-companion-620.html
+
 **Meet Germany’s Far-Right Leader, a Study in Contradictions**\
 `Alice Weidel of the nationalist, anti-immigrant Alternative for Germany lives in Switzerland and is married to a Sri Lankan-born woman. She had led her party to second place before Sunday’s election.`\
 https://nytimes.com/2025/02/19/world/europe/meet-germanys-far-right-leader-a-study-in-contradictions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/elon-musk-doge-personal-data.html
 **A Democrat Who Is Thinking Differently**\
 `Representative Jake Auchincloss discusses how the Democratic Party can offer meaningful alternatives to voters.`\
 https://nytimes.com/video/opinion/100000009997700/a-democrat-who-is-thinking-differently.html
-
-**Here’s What to Know About Congressional Republicans’ Budget Plans**\
-`The Senate is debating a fiscal blueprint that would pave the way for part of President Trump’s domestic policy agenda, while the House is on a separate track.`\
-https://nytimes.com/2025/02/19/us/politics/congress-republican-budget-plans.html
-
-**Alarmed by Trump’s Gaza Plan, Arab Leaders Brainstorm on Their Own**\
-`Since President Trump suggested depopulating Gaza, Arab officials have suggested other ideas for reconstruction. But the emerging consensus repackages old ideas as new ones.`\
-https://nytimes.com/2025/02/19/world/middleeast/gaza-reconstruction-alternatives.html
 
