@@ -1,3 +1,7 @@
+**Zelensky Pushes Back on Trump “Disinformation”**\
+`President Volodymyr Zelensky of Ukraine responded to President Trump’s comments on the war. Among other things, Mr. Trump had suggested that Ukraine had started the war, and he appeared to embrace what has been a Russian demand that Ukraine hold presidential elections.`\
+https://nytimes.com/video/world/europe/100000009999141/zelensky-trump-ukraine-russia-war.html
+
 **Researchers confirm NHL Hall of Famer Bobby Hull had CTE when he died**\
 `Hull’s family donated his brain to a brain bank at Boston University for study after he died in 2023 at the age of 84.`\
 https://nytimes.com/athletic/6146179/2025/02/19/nhl-bobby-hull-blackhawks-cte/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145845/2025/02/19/arsenal-wages-finances-2024/
 **Scientists Describe Rare Syndrome Following Covid Vaccinations**\
 `In a small study, patients with the syndrome were more likely to experience reactivation of Epstein-Barr virus and high levels of a coronavirus protein.`\
 https://nytimes.com/2025/02/19/health/covid-post-vaccination-syndrome.html
-
-**Watch: Where is Cooper Flagg's best NBA fit?**\
-`The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
-https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flagg-best-fit/
 
