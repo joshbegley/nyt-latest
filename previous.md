@@ -1,3 +1,7 @@
+**Outfield sleepers: Dylan Crews, Jung Hoo Lee and more value picks for fantasy baseball**\
+`San Francisco's Jung Hoo Lee is just one of several potential late-round OF steals our staff is offering up as a top sleeper pick for 2025.`\
+https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseball-2025/
+
 **Middle infield sleepers: Peña, Norby and more value picks for fantasy baseball 2025**\
 `Miami's Connor Norby is just one of several potential late-round MI steals our staff is offering up as a top sleeper pick for 2025.`\
 https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-fantasy-baseball-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139600/2025/02/19/glasner-crystal-palace-anniversa
 **Mohammed Kudus' West Ham form has dropped off. What's going wrong?**\
 `Mohammed Kudus has been struggling for goals in recent weeks for West Ham United`\
 https://nytimes.com/athletic/6143238/2025/02/19/mohammed-kudus-west-ham-analysis-form/
-
-**Signing a centre-forward and tying down stars - Arsenal have a busy summer ahead**\
-`The club, and whoever becomes the new sporting director, have a packed in-tray on recruitment and retention`\
-https://nytimes.com/athletic/6128464/2025/02/19/arsenal-transfers-striker-havertz-injury/
 

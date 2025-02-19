@@ -1,3 +1,7 @@
+**Outfield sleepers: Dylan Crews, Jung Hoo Lee and more value picks for fantasy baseball**\
+`San Francisco's Jung Hoo Lee is just one of several potential late-round OF steals our staff is offering up as a top sleeper pick for 2025.`\
+https://nytimes.com/athletic/6137577/2025/02/19/outfield-sleepers-fantasy-baseball-2025/
+
 **Middle infield sleepers: Peña, Norby and more value picks for fantasy baseball 2025**\
 `Miami's Connor Norby is just one of several potential late-round MI steals our staff is offering up as a top sleeper pick for 2025.`\
 https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-fantasy-baseball-2025/
