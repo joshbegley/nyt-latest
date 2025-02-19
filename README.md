@@ -1,3 +1,7 @@
+**Trump Administration Has Fired Health Inspectors at Some Border Stations**\
+`Scientists worry that the losses may open the door to human, plant and animal diseases that would otherwise have been caught.`\
+https://nytimes.com/2025/02/19/health/trump-border-health-inspections.html
+
 **Venus Williams receives wildcard to Indian Wells**\
 `Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
 https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/19/us/adams-amicus.html
 **Read the M.T.A.’s Lawsuit Against Federal Officials Over Congestion Pricing**\
 `After the Trump administration moved to block New York City’s congestion pricing program by revoking federal approval for the tolls, the Metropolitan Transportation Authority, which manages the program, immediately challenged the order in federal court.`\
 https://nytimes.com/interactive/2025/02/19/nyregion/mta-congestion-pricing-lawsuit.html
-
-**The judge faces a flood of demands to continue the prosecution.**\
-`By Benjamin Weiser`\
-https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/the-judge-faces-a-flood-of-demands-to-continue-the-prosecution
 

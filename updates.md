@@ -1,3 +1,7 @@
+**With Truth Social, Trump Has Official Mouthpiece and a Channel for Revenue**\
+`The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
+https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
+
 **Venus Williams receives wildcard to Indian Wells**\
 `Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
 https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
