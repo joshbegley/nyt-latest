@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/18/pageoneplus/corrections-feb-19-2025.html
 `Elon Musk has described his operation, tasked with a drastic government overhaul, as “maximally transparent.” But legal filings have shown an effort to wall him off from scrutiny by downplaying his role.`\
 https://nytimes.com/2025/02/18/us/politics/doge-lawsuits-elon-musk.html
 
-**Trump Issues Order to Expand His Power Over Agencies Congress Made Independent**\
+**Trump issues order to expand his power over agencies Congress made independent.**\
 `The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc
 

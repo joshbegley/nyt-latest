@@ -1,3 +1,7 @@
+**Trump issues order to expand his power over agencies Congress made independent.**\
+`The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc
+
 **Destination of a Walk**\
 `Joe Deeney leaves us in stitches.`\
 https://nytimes.com/2025/02/18/crosswords/daily-puzzle-2025-02-19.html
