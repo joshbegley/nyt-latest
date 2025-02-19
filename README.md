@@ -1,3 +1,7 @@
+**Read the Letter From the Transportation Secretary About Congestion Pricing**\
+`The Trump administration moved to end New York City’s congestion pricing program by revoking federal approval for the tolls.`\
+https://nytimes.com/interactive/2025/02/19/nyregion/congestion-pricing-termination-letter.html
+
 **Ukrainians, Stunned by Trump’s Comments, Fear They Can No Longer Trust U.S.**\
 `President Trump’s claim that Ukraine was responsible for its war with Russia has left many Ukrainians disillusioned.`\
 https://nytimes.com/2025/02/19/world/europe/ukrainians-trump-voices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/ss-united-states-final-voyage.html
 **Drawing From Bob Dylan’s Songbook, Learning Lessons in Mortality**\
 `Todd Almond wrote an oral history on Conor McPherson’s “Girl From the North Country” and its passage through Broadway’s pandemic shutdown.`\
 https://nytimes.com/2025/02/19/theater/todd-almond-bob-dylan-musical.html
-
-**Here’s the latest.**\
-`By Jonah E. Bromwich, Benjamin Weiser and Hurubie Meko`\
-https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/heres-the-latest
 
