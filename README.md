@@ -24,7 +24,7 @@ https://nytimes.com/2025/02/19/opinion/trump-putin-europe.html
 
 **Octogenarian Who Shot Teen in Kansas City Dies Days After Pleading Guilty**\
 `Andrew D. Lester, 86, was awaiting sentencing after pleading guilty last week to felony assault in the 2023 shooting of Ralph Yarl.`\
-https://nytimes.com/2025/02/19/us/octogenarian-ralph-yarl-kansas-city.html
+https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
 
 **SEC, Big Ten discussing changes to championship weekend**\
 `The SEC and Big Ten are both looking at ways to get more teams and fans involved in their championship weekends.`\
