@@ -1,3 +1,7 @@
+**Animal rights group protest to FIFA over stray dogs cull in Morocco**\
+`Morocco is a rabies-endemic country, with efforts taking place over the previous decade to reduce the population of infected dogs.`\
+https://nytimes.com/athletic/6144272/2025/02/19/animal-rights-protest-2030-world-cup/
+
 **Trillions of Viruses Live in Your Body. A.I. Is Trying to Find Them.**\
 `The Human Virome Program will analyze samples from thousands of volunteers in an effort to understand how viruses affect health.`\
 https://nytimes.com/2025/02/19/health/human-virome-program.html
