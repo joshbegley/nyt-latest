@@ -1,3 +1,7 @@
+**Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
+`The Athletic first reported on the claims made against Al-Rumayyan in the court case in early 2024.`\
+https://nytimes.com/athletic/6146290/2025/02/19/yasir-al-rumayyan-case-newcastle-liv-golf/
+
 **Trump Says Medicaid Won’t Be ‘Touched.’ That Would Make It Hard to Extend Tax Cuts.**\
 `The math doesn’t seem to work with the House budget proposal, and the president’s record shows a consistent openness to Medicaid cuts.`\
 https://nytimes.com/2025/02/19/upshot/trump-medicaid-tax-cuts.html

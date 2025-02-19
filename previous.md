@@ -1,3 +1,7 @@
+**Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
+`The Athletic first reported on the claims made against Al-Rumayyan in the court case in early 2024.`\
+https://nytimes.com/athletic/6146290/2025/02/19/yasir-al-rumayyan-case-newcastle-liv-golf/
+
 **Trump Says Medicaid Won’t Be ‘Touched.’ That Would Make It Hard to Extend Tax Cuts.**\
 `The math doesn’t seem to work with the House budget proposal, and the president’s record shows a consistent openness to Medicaid cuts.`\
 https://nytimes.com/2025/02/19/upshot/trump-medicaid-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146264/2025/02/19/seattle-mayor-joke-nba-return/
 **Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
 `The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
 https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
-
-**Musk and the Right Co-Opt the Left’s Critique of U.S. Power**\
-`Suspicion about covert operations and soft power used to be mostly the purview of the left. No more.`\
-https://nytimes.com/2025/02/19/us/politics/musk-and-the-right-co-opt-the-lefts-critique-of-us-power.html
 
