@@ -1,3 +1,7 @@
+**Alliance with Big Ten could help push SEC to 9-game conference schedule**\
+`The SEC's football scheduling debate may finally be nearing an end. Then again, that has been assumed before.`\
+https://nytimes.com/athletic/6147551/2025/02/19/sec-football-nine-game-schedule/
+
 **So, You Want to Get Rid of the Penny. Do You Have a Plan for the Nickel?**\
 `President Trump’s plan to eliminate the penny could save the government money, but there’s no guarantee.`\
 https://nytimes.com/2025/02/19/upshot/penny-trump-nickel-elimination.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147450/2025/02/19/nascar-penalty-chase-briscoe-day
 **Lakers' Luka Dončić expected to be off minutes limit vs. Hornets**\
 `The star Lakers acquired in a blockbuster deal ahead of the trade deadline has been dealing with a calf injury.`\
 https://nytimes.com/athletic/6147059/2025/02/19/lakers-luka-doncic-minutes-hornets/
-
-**Missouri Clinics Resume Abortions, Following Abortion Rights Referendum**\
-`Abortion opponents had tried to block, or severely limit, the procedure, against the will of voters who in November enshrined abortion rights in the state constitution.`\
-https://nytimes.com/2025/02/19/us/missouri-abortion.html
 
