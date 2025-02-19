@@ -1,3 +1,23 @@
+**Mets' prospect Matt Allan back on track after surgeries: 'We'll see that dream lived out'**\
+`The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
+https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
+
+**Donald Shoup, Who Made Parking an Entertaining Subject, Dies at 86**\
+`In “The High Cost of Free Parking,” made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
+https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
+
+**The 2024 Braves were undermined by injuries and slumps. Now they look to turn the page**\
+`That volume of injuries requiring significant IL stints and so many season-ending injuries doesn't happen often, but it did to the Braves.`\
+https://nytimes.com/athletic/6146773/2025/02/19/atlanta-braves-2024-injuries-fresh-start/
+
+**Gio Reyna and Dortmund are stuttering towards a summer separation**\
+`The USMNT attacker came off the bench but made little impact as his club future remains in limbo`\
+https://nytimes.com/athletic/6146614/2025/02/19/reyna-dortmund-usmnt-champions-league/
+
+**Citing ‘Biological Truth,’ Kennedy Issues Guidance Recognizing Only Two Sexes**\
+`The new guidance follows President Trump’s demand that the Health and Human Services Department align with his executive order barring transgender athletes from women’s sports.`\
+https://nytimes.com/2025/02/19/us/politics/rfk-jr-hhs-sex-genders.html
+
 **‘Long Live the King’: Trump Likens Himself to Royalty on Truth Social**\
 `Mr. Trump’s fondness for injecting regal themes into his presidency was apparent as he applauded his administration’s move to kill congestion pricing in New York.`\
 https://nytimes.com/2025/02/19/us/politics/trump-king-image.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6146826/2025/02/19/crystal-dunn-opens-up-nwsl-psg/
 **Bruins address Charlie McAvoy infection, potential long-term absence after removing him from Team USA care**\
 `Bruins coach Joe Sacco said he "wouldn’t expect (McAvoy) in the short-term" as the franchise defenseman remains hospitalized.`\
 https://nytimes.com/athletic/6146747/2025/02/19/charlie-mcavoy-bruins-injury-team-usa/
-
-**Civil Rights Groups Sue Trump Administration Over D.E.I. Orders**\
-`The organizations claimed that the president had exceeded his authority in issuing the orders, and that they intentionally discriminated against Black and transgender people.`\
-https://nytimes.com/2025/02/19/us/politics/dei-trump-lawsuit.html
-
-**Are We Just Going to Forget About Climate Justice?**\
-`A provocative new book asks what we owe one another in a heating world.`\
-https://nytimes.com/2025/02/19/opinion/climate-justice-trump-sunstein.html
-
-**Woman Who Gave Birth to Another Couple’s Baby Sues I.V.F. Clinic**\
-`The woman, a Georgia resident, lost custody of the child she had carried. The in vitro fertilization clinic, Coastal Fertility Specialists, apologized for “an embryo transfer mix-up.”`\
-https://nytimes.com/2025/02/19/us/georgia-embryo-ivf-mistake.html
-
-**Trump, Musk and the Reality Behind the Lovefest**\
-`President Trump and Elon Musk gushed over each other during a joint appearance on Fox News. But the interview was fascinating for all the things they did not explain.`\
-https://nytimes.com/2025/02/19/us/politics/trump-musk-fox-interview.html
-
-**Eagles promote Kevin Patullo to offensive coordinator**\
-`Patullo has served as the Eagles passing game coordinator since 2021 and added associate head coach to his title in 2023.`\
-https://nytimes.com/athletic/6146787/2025/02/19/eagles-promote-kevin-patullo-offensive-coordinator/
 
