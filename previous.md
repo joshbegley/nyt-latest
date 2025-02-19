@@ -1,3 +1,11 @@
+**Danielle Sassoon Argued for an Inquiry Into the Request to Dismiss Adams’s Case**\
+`Before she resigned in protest, the former head of the Manhattan federal prosecutor’s office sent a letter that could give the judge ammunition for questioning the request.`\
+https://nytimes.com/2025/02/19/nyregion/danielle-sassoon-eric-adams-dismissal-inquiry.html
+
+**These Are the Key Figures Who May Be at the Hearing on Adams’s Case**\
+`Emil Bove, the No. 2 at the Justice Department, and Alex Spiro, who joined Eric Adams’s defense team in September, are among those expected to participate in the hearing.`\
+https://nytimes.com/2025/02/19/nyregion/alex-spiro-emil-bove-key-figures-lawyers.html
+
 **Hamilton confident Ferrari has 'every ingredient' to win F1 title: 'There's magic here'**\
 `Hamilton's last F1 drivers' championship came in 2020 and the Briton finished seventh with Mercedes last year.`\
 https://nytimes.com/athletic/6146592/2025/02/19/lewis-hamilton-ferrari-f1/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/ed-martin-hegseth-jan-6.html
 **Israeli Military Prosecutor Charges Five Reservists With Abuse of Detainee**\
 `Lawyers representing one of the soldiers said they have presented arguments that deny the charges against the reservists.`\
 https://nytimes.com/2025/02/19/world/middleeast/israeli-soldiers-charged-abuse-palestinian-detainee.html
-
-**Gerd Stern, Beat Era Poet and Multimedia Artist, Dies at 96**\
-`An Aquarian Age savant, he was a founder of the artists’ collective USCO, which helped define the 1960s with psychedelic, sensory-overloading installations and performances.`\
-https://nytimes.com/2025/02/19/arts/gerd-stern-dead.html
-
-**A Sudden Shift Between the U.S. and Russia**\
-`Readers discuss developments involving the U.S., Russia, Ukraine and Europe. Also: The Republican attack on higher education; the Eric Adams case.`\
-https://nytimes.com/2025/02/19/opinion/us-russia-ukraine-europe.html
 
