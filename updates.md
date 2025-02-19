@@ -1,3 +1,15 @@
+**Democratic lawmakers see ‘pattern of political interference’ with U.S. prosecutors.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-pattern-of-political-interference-with-us-prosecutors
+
+**NASCAR issues hefty penalty against Chase Briscoe, JGR for illegal modification**\
+`NASCAR issued a 100-point penalty and suspended Briscoe's crew chief for four weeks. He also lost 10 playoff points and JGR was fined.`\
+https://nytimes.com/athletic/6147450/2025/02/19/nascar-penalty-chase-briscoe-daytona-500-jgr/
+
+**Lakers' Luka Dončić expected to be off minutes limit vs. Hornets**\
+`The star Lakers acquired in a blockbuster deal ahead of the trade deadline has been dealing with a calf injury.`\
+https://nytimes.com/athletic/6147059/2025/02/19/lakers-luka-doncic-minutes-hornets/
+
 **Missouri Clinics Resume Abortions, Following Abortion Rights Referendum**\
 `Abortion opponents had tried to block, or severely limit, the procedure, against the will of voters who in November enshrined abortion rights in the state constitution.`\
 https://nytimes.com/2025/02/19/us/missouri-abortion.html
