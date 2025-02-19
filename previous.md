@@ -1,3 +1,7 @@
+**Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
+`Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
+https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/
+
 **DOGE Claimed It Saved $8 Billion in One Contract. It Was Actually $8 Million.**\
 `The biggest single line item on the website of Elon Musk’s cost-cutting team appears to include an error.`\
 https://nytimes.com/2025/02/18/upshot/doge-contracts-musk-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
 **Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
 `The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
-
-**Trump’s Pivot Toward Putin’s Russia Upends Generations of U.S. Policy**\
-`As peace talks opened in Saudi Arabia, President Trump made clear that the days of isolating Russia are over and suggested that Ukraine was to blame for being invaded.`\
-https://nytimes.com/2025/02/18/us/politics/trump-russia-putin.html
 

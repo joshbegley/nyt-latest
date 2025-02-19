@@ -1,3 +1,7 @@
+**Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
+`Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
+https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/
+
 **DOGE Claimed It Saved $8 Billion in One Contract. It Was Actually $8 Million.**\
 `The biggest single line item on the website of Elon Musk’s cost-cutting team appears to include an error.`\
 https://nytimes.com/2025/02/18/upshot/doge-contracts-musk-trump.html
