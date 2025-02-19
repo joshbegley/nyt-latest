@@ -1,3 +1,11 @@
+**Yankees' Clarke Schmidt, pitching prospect Chase Hampton dealing with injuries**\
+`Schmidt is fighting through a 'cranky back' while Hampton has been sent back to New York for tests.`\
+https://nytimes.com/athletic/6147001/2025/02/19/yankees-clarke-schmidt-chase-hampton-injuries/
+
+**The Briefing: Aston Villa 2 Liverpool 2 - A good point for Slot? And how did Nunez miss?**\
+`The big talking points analysed from a thrilling game at Villa Park.`\
+https://nytimes.com/athletic/6142158/2025/02/19/aston-villa-liverpool-premier-league-result-analysis/
+
 **Women's college basketball national title odds: A new favorite emerges**\
 `UConn has emerged as the national title favorite after beating defending champion South Carolina by 29 on the road.`\
 https://nytimes.com/athletic/6146399/2025/02/19/womens-college-basketball-national-title-odds-uconn-south-carolina/

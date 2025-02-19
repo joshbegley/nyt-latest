@@ -1,3 +1,11 @@
+**Yankees' Clarke Schmidt, pitching prospect Chase Hampton dealing with injuries**\
+`Schmidt is fighting through a 'cranky back' while Hampton has been sent back to New York for tests.`\
+https://nytimes.com/athletic/6147001/2025/02/19/yankees-clarke-schmidt-chase-hampton-injuries/
+
+**The Briefing: Aston Villa 2 Liverpool 2 - A good point for Slot? And how did Nunez miss?**\
+`The big talking points analysed from a thrilling game at Villa Park.`\
+https://nytimes.com/athletic/6142158/2025/02/19/aston-villa-liverpool-premier-league-result-analysis/
+
 **Women's college basketball national title odds: A new favorite emerges**\
 `UConn has emerged as the national title favorite after beating defending champion South Carolina by 29 on the road.`\
 https://nytimes.com/athletic/6146399/2025/02/19/womens-college-basketball-national-title-odds-uconn-south-carolina/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6146634/2025/02/19/nfl-salary-cap-projection-2025/
 **A Justice Dept. official defended moving to drop the charges on social media.**\
 `Chad Mizelle, the department’s chief of staff, offered no evidence that any of prosecutors in the Manhattan U.S. attorney’s office did anything illegal, unethical or improper.`\
 https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/a-justice-dept-official-defended-moving-to-drop-the-charges-on-social-media
-
-**They weren’t in court, but Adams’s prosecutors made their presence felt.**\
-`The prosecutors who brought the corruption case against Mayor Eric Adams were not at the hearing on its dismissal, but their arguments still reached the judge.`\
-https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/they-werent-in-court-but-adamss-prosecutors-made-their-presence-felt
-
-**Mets' prospect Matt Allan back on track after surgeries: 'We'll see that dream lived out'**\
-`The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
-https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
 
