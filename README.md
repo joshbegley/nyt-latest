@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6139897/2025/02/19/ideal-fantasy-baseball-draft-fiv
 `Michael Salfino espouses the virtues of the xERA stat when it comes to finding pitching values ahead of your 2025 fantasy baseball drafts.`\
 https://nytimes.com/athletic/6134757/2025/02/19/fantasy-baseball-2025-draft-xera-stats/
 
-**Has America Become a Threat to Europe?**\
+**A U.S. Betrayal Is Surreal for Europeans**\
 `The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
 https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
 
