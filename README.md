@@ -1,40 +1,40 @@
-**For Playwrights, Making It to Midcareer Is a Cliffhanger**\
-`Act 1 was a constant struggle for rent and opportunity. But now that these emerging dramatists have emerged, what will they make of Act 2?`\
-https://nytimes.com/2025/02/19/theater/midcareer-playwrights-broadway.html
+**Inside the Making of ‘Wicked’**\
+`Meet the writer who helped turn a book into a cultural phenomenon.`\
+https://nytimes.com/2025/02/19/books/review/inside-the-making-of-wicked.html
 
-**Are Runny Egg Yolks Safe to Eat?**\
-`It’s hard to beat a yolk-soaked breakfast sandwich. But undercooking your eggs carries real health risks.`\
-https://nytimes.com/2025/02/19/well/runny-egg-yolk-salmonella-bird-flu-safety.html
+**Struggle Over Americans’ Personal Data Plays Out Across the Government**\
+`Employees from Elon Musk’s so-called Department of Government Efficiency are gaining access to vast amounts of information held by federal agencies, even as lawsuits try to stop them.`\
+https://nytimes.com/2025/02/19/us/politics/elon-musk-doge-personal-data.html
 
-**The Cryptocurrency Scam That Turned a Small Town Against Itself**\
-`How did a successful, financially sophisticated banker gamble his community’s money away?`\
-https://nytimes.com/2025/02/19/magazine/cryptocurrency-scam-kansas-heartland-bank.html
+**A Democrat Who Is Thinking Differently**\
+`Representative Jake Auchincloss discusses how the Democratic Party can offer meaningful alternatives to voters.`\
+https://nytimes.com/video/opinion/100000009997700/a-democrat-who-is-thinking-differently.html
 
-**The Invincible Jack Quaid**\
-`With his movies “Companion” and “Novocaine,” the young actor is showing he can do comedy, pain and a mix of the two.`\
-https://nytimes.com/2025/02/19/movies/jack-quaid-companion-novocaine.html
+**Here’s What to Know About Congressional Republicans’ Budget Plans**\
+`The Senate is debating a fiscal blueprint that would pave the way for part of President Trump’s domestic policy agenda, while the House is on a separate track.`\
+https://nytimes.com/2025/02/19/us/politics/congress-republican-budget-plans.html
 
-**The Surefire Way to Cook Perfect Rice (Without a Rice Cooker)**\
-`With just a little patience and the right technique, you can unlock the humble grain’s true brilliance.`\
-https://nytimes.com/2025/02/19/magazine/cook-rice-perfect-recipe.html
+**Alarmed by Trump’s Gaza Plan, Arab Leaders Brainstorm on Their Own**\
+`Since President Trump suggested depopulating Gaza, Arab officials have suggested other ideas for reconstruction. But the emerging consensus repackages old ideas as new ones.`\
+https://nytimes.com/2025/02/19/world/middleeast/gaza-reconstruction-alternatives.html
 
-**Is This Common Herbicide Harming Your Health?**\
-`The science on glyphosate, best known as Roundup, still isn’t settled.`\
-https://nytimes.com/2025/02/19/well/glyphosate-health-cancer.html
+**‘Pedro Páramo,’ ‘Let’s Start a Cult’ and More Streaming Gems**\
+`Two releases from last year — one an inventive literary adaptation, the other a wild, gross-out comedy — are among this month’s streaming recommendations.`\
+https://nytimes.com/2025/02/19/movies/pedro-paramo-lets-start-a-cult-streaming-movies.html
 
-**A New Documentary Uncovers One of Pop’s Tragic Mysteries: Q Lazzarus**\
-`Her haunting song “Goodbye Horses” had a star turn in “The Silence of the Lambs,” but the enigmatic artist behind it seemingly vanished for decades after.`\
-https://nytimes.com/2025/02/19/arts/music/q-lazzarus-goodbye-horses-documentary.html
+**The Deportees Trapped in a Panama Hotel**\
+`The Trump administration has asked Panama to take in hundreds of deportees, who the administration claims entered the United States illegally.`\
+https://nytimes.com/video/world/americas/100000009997018/the-deportees-trapped-in-a-panama-hotel.html
 
-**‘White Lotus’ Star Natasha Rothwell’s London**\
-`Smitten with England before she became a regular visitor, the actress, who returns as Belinda in Season 3, tells us why London is “a good city to get nerdy in.”`\
-https://nytimes.com/2025/02/19/travel/natasha-rothwell-london-places-to-visit.html
+**Finding Nirvana in a Pair of Socks**\
+`They resemble foil balloons, make a crackling sound when slipped on and, for a growing number of people, have become a simple luxury.`\
+https://nytimes.com/2025/02/19/style/maria-la-rosa-socks-laminated-ribbed-metallic.html
 
-**The Tiny Squid Lighting Up Menus**\
-`Plus: where to go in London’s Hackney, a snake-shaped bracelet and more from T’s cultural compendium.`\
-https://nytimes.com/2025/02/19/t-magazine/firefly-squid-cooking.html
+**Trump Administration Moves to Fast-Track Hundreds of Fossil Fuel Projects**\
+`The U.S. Army Corps of Engineers has cited President Trump’s claim of a national energy emergency to speed up permits for new gas pipelines and other projects.`\
+https://nytimes.com/2025/02/19/climate/army-corps-engineers-fossil-fuel-permits.html
 
-**How Teatime and Cartoons Changed the World**\
-`In “The Revolutionary Self,” the historian Lynn Hunt explores the way 18th-century culture transformed our sense of power in the world.`\
-https://nytimes.com/2025/02/19/books/review/the-revolutionary-self-lynn-hunt.html
+**Ye and the Limits of Free Speech Online**\
+`Where is the line between the right to speech and the right to reach?`\
+https://nytimes.com/2025/02/19/opinion/kanye-west-x-antisemitism.html
 
