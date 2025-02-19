@@ -1,3 +1,15 @@
+**Signing a centre-forward and tying down stars - Arsenal have a busy summer ahead**\
+`The club, and whoever becomes the new sporting director, have a packed in-tray on recruitment and retention`\
+https://nytimes.com/athletic/6128464/2025/02/19/arsenal-transfers-striker-havertz-injury/
+
+**Horse riding and padel help relax a hugely demanding manager - the Nuno you don't see**\
+`Lifting the lid on the man behind the manager overseeing Nottingham Forest's best season in decades`\
+https://nytimes.com/athletic/6143596/2025/02/19/nuno-you-dont-see-forest-manager/
+
+**Corner infield sleepers: Toglia, Shaw and more value picks for fantasy baseball 2025**\
+`Colorado's Michael Toglia is just one of several potential late-round CI steals our staff is offering up as a top sleeper pick for 2025.`\
+https://nytimes.com/athletic/6142403/2025/02/19/corner-infield-sleepers-fantasy-baseball-2025/
+
 **Is Bellingham Europe's most 'clutch' player?**\
 `The Real Madrid player has a remarkable capacity for scoring late goals - and ones that change the outcome of games`\
 https://nytimes.com/athletic/6143351/2025/02/19/jude-bellingham-clutch-real-madrid/
