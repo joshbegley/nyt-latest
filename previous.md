@@ -1,3 +1,11 @@
+**Rosenthal: Blue Jays never should have reached this point with Vladimir Guerrero Jr.**\
+`The team had plenty of chances to reach a contract extension with their homegrown star long before Tuesday's self-imposed deadline.`\
+https://nytimes.com/athletic/6143102/2025/02/18/vladimir-guerrero-blue-jays-extension-talks/
+
+**Corrections: Feb. 19, 2025**\
+`Corrections that appeared in print on Wednesday, Feb. 19, 2025.`\
+https://nytimes.com/2025/02/18/pageoneplus/corrections-feb-19-2025.html
+
 **Courts Force a Window Into Musk’s Secretive Unit**\
 `Elon Musk has described his operation, tasked with a drastic government overhaul, as “maximally transparent.” But legal filings have shown an effort to wall him off from scrutiny by downplaying his role.`\
 https://nytimes.com/2025/02/18/us/politics/doge-lawsuits-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-
 **DOGE Claimed It Saved $8 Billion in One Contract. It Was Actually $8 Million.**\
 `The biggest single line item on the website of Elon Musk’s cost-cutting team appears to include an error.`\
 https://nytimes.com/2025/02/18/upshot/doge-contracts-musk-trump.html
-
-**Musk team’s next target is probationary Pentagon employees.**\
-`Three military officials said they expected mass layoffs, after a request from Elon Musk’s team for the names of all probationary employees within the Defense Department.`\
-https://nytimes.com/live/2025/02/18/us/trump-news/musk-teams-next-target-is-probationary-pentagon-employees
-
-**Our F1 75 Live review: What worked and what didn't at the sport's showy season launch**\
-`With big musical acts and unique livery reveals, F1 pulled out all the stops Tuesday at The O2. Our writers break down what worked.`\
-https://nytimes.com/athletic/6145021/2025/02/18/f1-75-live-launch-event-2025-season-hits-misses/
 

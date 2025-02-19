@@ -1,3 +1,11 @@
+**Rosenthal: Blue Jays never should have reached this point with Vladimir Guerrero Jr.**\
+`The team had plenty of chances to reach a contract extension with their homegrown star long before Tuesday's self-imposed deadline.`\
+https://nytimes.com/athletic/6143102/2025/02/18/vladimir-guerrero-blue-jays-extension-talks/
+
+**Corrections: Feb. 19, 2025**\
+`Corrections that appeared in print on Wednesday, Feb. 19, 2025.`\
+https://nytimes.com/2025/02/18/pageoneplus/corrections-feb-19-2025.html
+
 **Courts Force a Window Into Musk’s Secretive Unit**\
 `Elon Musk has described his operation, tasked with a drastic government overhaul, as “maximally transparent.” But legal filings have shown an effort to wall him off from scrutiny by downplaying his role.`\
 https://nytimes.com/2025/02/18/us/politics/doge-lawsuits-elon-musk.html
