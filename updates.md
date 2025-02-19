@@ -1,3 +1,11 @@
+**Slot: Bradley to miss at least two games after injury against Villa**\
+`Bradley has made 22 appearances for Liverpool this season, with nine of those as a starter.`\
+https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
+
+**Hegseth Orders Pentagon to Draw Up Plans for Cuts**\
+`The defense secretary has told senior leaders to prepare to trim 8 percent from the budget over each of the next five years, officials said.`\
+https://nytimes.com/2025/02/19/us/politics/hegseth-military-cuts.html
+
 **Octogenarian Who Shot Teen in Kansas City Dies Days After Pleading Guilty**\
 `Andrew D. Lester, 86, was awaiting sentencing after pleading guilty last week to felony assault in the 2023 shooting of Ralph Yarl.`\
 https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
