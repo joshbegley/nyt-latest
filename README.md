@@ -1,3 +1,7 @@
+**With Truth Social, Trump Has an Official Mouthpiece and a Revenue Stream**\
+`The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
+https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
+
 **Mediterranean Braces for a Sharp Temperature Drop and Snow**\
 `Through early next week, a surge of cold air will plunge temperatures far below what is typical for the region.`\
 https://nytimes.com/2025/02/19/weather/greece-cold-snow-coral.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/
 **Sean Combs Argues He’s Facing a Mann Act Charge Because of His Race**\
 `The music mogul’s lawyers filed a motion to dismiss a sex-trafficking charge, saying that the law involved has “racist origins.”`\
 https://nytimes.com/2025/02/19/arts/music/sean-combs-diddy-dismiss-charge-racism.html
-
-**Danielle Sassoon Argued for an Inquiry Into the Request to Dismiss Adams’s Case**\
-`Before she resigned in protest, the former head of the Manhattan federal prosecutor’s office sent a letter that could give the judge ammunition for questioning the request.`\
-https://nytimes.com/2025/02/19/nyregion/danielle-sassoon-eric-adams-dismissal-inquiry.html
 
