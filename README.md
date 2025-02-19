@@ -1,3 +1,7 @@
+**Two Small Planes Collide Midair in Arizona, Killing 2**\
+`One plane landed “uneventfully” while the other crashed near a runway, then caught fire, investigators said.`\
+https://nytimes.com/2025/02/19/us/plane-crash-arizona-airport.html
+
 **NFL projects 2025 salary cap to rise to at least $277.5 million**\
 `The league is projecting an increase of $22.1 to $26.1 million from the 2024 salary cap of $255.4 million.`\
 https://nytimes.com/athletic/6146634/2025/02/19/nfl-salary-cap-projection-2025/
@@ -15,7 +19,7 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/
 https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
 
 **Donald Shoup, Who Made Parking an Entertaining Subject, Dies at 86**\
-`In “The High Cost of Free Parking,” made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
+`In “The High Cost of Free Parking,” he made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
 https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
 
 **The 2024 Braves were undermined by injuries and slumps. Now they look to turn the page**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/rfk-jr-hhs-sex-genders.html
 **‘Long Live the King’: Trump Likens Himself to Royalty on Truth Social**\
 `Mr. Trump’s fondness for injecting regal themes into his presidency was apparent as he applauded his administration’s move to kill congestion pricing in New York.`\
 https://nytimes.com/2025/02/19/us/politics/trump-king-image.html
-
-**Interest Rate Cuts on Hold Until Inflation Improves, Fed Minutes Show**\
-`Officials are debating when to restart interest rate cuts, as high prices linger and Trump’s policies add to economic uncertainty.`\
-https://nytimes.com/2025/02/19/business/fed-meeting-minutes-interest-rates.html
 
