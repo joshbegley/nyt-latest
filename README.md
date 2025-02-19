@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6144319/2025/02/19/49ers-nfl-draft-perfect-fits/
 `The Oilers' biggest need is a scoring veteran for the top six, but that's not always easy to pick up.`\
 https://nytimes.com/athletic/6143669/2025/02/19/oilers-trade-deadline-bowman-jordan-eberle-kraken/
 
-**Man United paid Ashworth more than £4m in compensation, accounts reveal**\
+**Ashworth's five-month Man United tenure cost £4m, accounts reveal**\
 `Ashworth left in December only five months after officially joining from Newcastle United.`\
 https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
 
