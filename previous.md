@@ -1,3 +1,11 @@
+**What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
+`With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
+https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
+
+**N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
+`The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
+https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
+
 **Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
 `The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
@@ -6,9 +14,9 @@ https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
 `As peace talks opened in Saudi Arabia, President Trump made clear that the days of isolating Russia are over and suggested that Ukraine was to blame for being invaded.`\
 https://nytimes.com/2025/02/18/us/politics/trump-russia-putin.html
 
-**Brazil Charges Bolsonaro With Attempting a Coup**\
-`Brazil’s attorney general charged the former president Jair Bolsonaro with trying to overturn the 2022 elections.`\
-https://nytimes.com/2025/02/18/world/americas/brazil-charges-bolsonaro-with-attempting-a-coup.html
+**Brazil Charges Bolsonaro With Attempting a Coup After He Lost the 2022 Election**\
+`Brazil’s attorney general charged former President Jair Bolsonaro with trying to overturn the vote. He now faces potential arrest.`\
+https://nytimes.com/2025/02/18/world/americas/brazil-bolsonaro-coup-charges.html
 
 **Pope Francis Has Bilateral Pneumonia**\
 `The condition, which entails pneumonia in both lungs, is potentially grave, according to health experts.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6144984/2025/02/18/red-sox-third-base-alex-bregman-
 **5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
 `Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
 https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
-
-**Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
-`In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
-https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
-
-**Jonathan Bailey’s Bratty, Bad-Boy ‘Richard II’**\
-`The actor, on a hot streak after “Wicked,” takes on his biggest stage role to date. In London, he plays Shakespeare’s unfortunate king as a flouncing sociopath.`\
-https://nytimes.com/2025/02/18/theater/richard-ii-jonathan-bailey-bridge-theatre-london.html
 

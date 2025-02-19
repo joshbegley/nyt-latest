@@ -1,3 +1,15 @@
+**What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
+`With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
+https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
+
+**N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
+`The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
+https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
+
+**Brazil Charges Bolsonaro With Attempting a Coup After He Lost the 2022 Election**\
+`Brazil’s attorney general charged former President Jair Bolsonaro with trying to overturn the vote. He now faces potential arrest.`\
+https://nytimes.com/2025/02/18/world/americas/brazil-bolsonaro-coup-charges.html
+
 **Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
 `The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
 https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
