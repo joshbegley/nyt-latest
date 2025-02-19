@@ -1,3 +1,11 @@
+**Trillions of Viruses Live in Your Body. A.I. Is Trying to Find Them.**\
+`The Human Virome Program will analyze samples from thousands of volunteers in an effort to understand how viruses affect health.`\
+https://nytimes.com/2025/02/19/health/human-virome-program.html
+
+**I Found Pornography on My Husband’s Computer. I’m Furious!**\
+`A wife feels disgusted and betrayed after discovering a lurid image of another woman on her husband’s computer screen, and worries that he may have permanently damaged their relationship.`\
+https://nytimes.com/2025/02/19/style/pornography-partner-resentment.html
+
 **Ashworth's five-month Man United tenure cost £4m, accounts reveal**\
 `Ashworth left in December only five months after officially joining from Newcastle United.`\
 https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
