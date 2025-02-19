@@ -1,40 +1,40 @@
-**Wordle Review No. 1,342**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
-https://nytimes.com/2025/02/19/crosswords/wordle-review-1342.html
+**Chiefs’ offseason to-do list: Protect Patrick Mahomes, retain Trey Smith and more**\
+`Ahead of the NFL combine, we offer five keys to the Chiefs' offseason, with the offensive line at the top of the list.`\
+https://nytimes.com/athletic/6145124/2025/02/19/chiefs-offseason-to-do-list-patrick-mahomes/
 
-**Connections Companion No. 620**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
-https://nytimes.com/2025/02/19/crosswords/connections-companion-620.html
+**DC Matt Eberflus expects Cowboys to be an 'attacking defense' in his return**\
+`Eberflus discussed personnel — from Osa Odighizuwa and Mazi Smith to Trevon Diggs and DaRon Bland — in addressing his plans for next season.`\
+https://nytimes.com/athletic/6145566/2025/02/19/cowboys-matt-eberflus-defensive-coordinator-micah-parsons/
 
-**Meet Germany’s Far-Right Leader, a Study in Contradictions**\
-`Alice Weidel of the nationalist, anti-immigrant Alternative for Germany lives in Switzerland and is married to a Sri Lankan-born woman. She had led her party to second place before Sunday’s election.`\
-https://nytimes.com/2025/02/19/world/europe/meet-germanys-far-right-leader-a-study-in-contradictions.html
+**Senators fan survey results: Trade targets, dream first-round playoff matchup and more**\
+`In our second survey of the season, fans had a much more cheerful outlook compared to late 2024.`\
+https://nytimes.com/athletic/6131843/2025/02/19/senators-trade-deadline-survey-dream-playoff-opponent/
 
-**Pakistan Hosts Top Cricket Championship, but India Skips the Party**\
-`India has refused to play its Champions Trophy matches in Pakistan, which is hosting its first major global tournament in almost 30 years.`\
-https://nytimes.com/2025/02/19/sports/cricket-champions-trophy-india-pakistan.html
+**Automated strike zone could benefit Astros' Yainer Diaz and Isaac Paredes**\
+`Diaz’s inability to steal strikes and Paredes’ perpetual victimization by poor umpiring would, at the very least, be minimized.`\
+https://nytimes.com/athletic/6144864/2025/02/19/automated-strike-zone-yainer-diaz-isaac-paredes/
 
-**Watch: Squad Cost Ratio & Anchoring - explained**\
-`The Athletic FC Podcast explain what the new Squad Cost Ratio and Anchoring rules are`\
-https://nytimes.com/athletic/6144456/2025/02/19/athletic-fc-podcast-squad-cost-anchoring/
+**What's next for the Cubs after the Justin Turner deal and an offseason of 'constraints'**\
+`Said Jed Hoyer of the Cubs: "I don’t think it’s ever like: ‘Pencils down, we’re done.’ You’re always trying to make moves.”`\
+https://nytimes.com/athletic/6145645/2025/02/19/cubs-justin-turner-offseason-moves/
 
-**Commanders salary-cap analysis: Where key decisions exist this offseason**\
-`Looking at what may transpire as Washington considers the contract situations for players such as Jonathan Allen and Marshon Lattimore.`\
-https://nytimes.com/athletic/6140855/2025/02/19/commanders-salary-cap-jonathan-allen/
+**Scoot Henderson quieted his mind — and his game got louder**\
+`Since Scoot Henderson has been in the NBA, he’s never had this peace of mind. And along with a rebuilt shot, it's paying off.`\
+https://nytimes.com/athletic/6138969/2025/02/19/scoot-henderson-trail-blazers-future-nba/
 
-**In the best shape of our lives, ranking the best MLB spring training cliches**\
-`From "I don't want to leave anybody out" to "I'll do anything they need me to do" and others, a ranking of common spring training phrases.`\
-https://nytimes.com/athletic/6145181/2025/02/19/best-mlb-spring-training-cliches/
+**Red Wings' Larkin and Raymond star on 4 Nations stage. Up next: a playoff race**\
+`Larkin and Raymond were already stars in Detroit, but their play at the 4 Nations Face-Off showcased them to an even wider audience.`\
+https://nytimes.com/athletic/6145081/2025/02/19/dylan-larkin-lucas-raymond-red-wings-4-nations/
 
-**Inside the Making of ‘Wicked’**\
-`Meet the writer who helped turn a book into a cultural phenomenon.`\
-https://nytimes.com/2025/02/19/books/review/inside-the-making-of-wicked.html
+**Ersson's confidence in net, Michkov's season arc, more: 6 Flyers roster storylines**\
+`With 25 games left in the season, the stretch run for the Flyers is more about getting a better idea of what their roster has to offer.`\
+https://nytimes.com/athletic/6144617/2025/02/19/flyers-roster-storylines-ersson-michkov-tortorella/
 
-**Struggle Over Americans’ Personal Data Plays Out Across the Government**\
-`Employees from Elon Musk’s so-called Department of Government Efficiency are gaining access to vast amounts of information held by federal agencies, even as lawsuits try to stop them.`\
-https://nytimes.com/2025/02/19/us/politics/elon-musk-doge-personal-data.html
+**The William Nylander scoring boom: Why it's more than just shooting luck**\
+`William Nylander is second in NHL goal scoring. How is he scoring at the highest rate of his career?`\
+https://nytimes.com/athletic/6142964/2025/02/19/maple-leafs-william-nylander-goals-shooting/
 
-**A Democrat Who Is Thinking Differently**\
-`Representative Jake Auchincloss discusses how the Democratic Party can offer meaningful alternatives to voters.`\
-https://nytimes.com/video/opinion/100000009997700/a-democrat-who-is-thinking-differently.html
+**Inside the Trump Purge: Federal Workers Tell Their Stories**\
+`Dozens of government employees grapple with the president’s war on bureaucracy.`\
+https://nytimes.com/2025/02/19/podcasts/the-daily/trump-ederal-workers-musk.html
 
