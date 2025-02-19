@@ -1,3 +1,15 @@
+**I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
+`The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
+https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
+
+**Ten MLB teams that should prepare to target Vladimir Guerrero Jr. in free agency**\
+`Who wants to land the next 26-year-old superstar free agent? Ranking 10 teams that make sense as possible Vlad Jr. destinations next winter.`\
+https://nytimes.com/athletic/6146286/2025/02/19/vladimir-guerrero-jr-free-agency-teams-ranking/
+
+**Apple Unveils New Lower-Priced iPhone With A.I. Features**\
+`The iPhone 16e is the first update to the company’s most affordable model since 2022, but carries a higher price tag of $599.`\
+https://nytimes.com/2025/02/19/business/apple-iphone-16e-ai.html
+
 **The Met Opera’s New Season: What We’re Excited to See**\
 `Our critics choose highlights from a lineup that includes six new productions and modern works by Mason Bates, Kaija Saariaho and Gabriela Lena Frank.`\
 https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6143450/2025/02/19/khadija-shaw-black-power-salute-
 **Scoop City: Controversial history of NFL's franchise tags**\
 `Inside: Your primer on the NFL&#8217;s franchise tag: how it works these days, why one star is likely to receive it and its controversial history.`\
 https://nytimes.com/athletic/6146311/2025/02/19/nfls-controversial-franchise-tags-from-john-elway-to-tee-higgins/
-
-**MoneyCall: Three NBA lessons from the NHL**\
-`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
-https://nytimes.com/athletic/6145704/2025/02/19/nba-nhl-all-star-4-nations-moneycall-newsletter/
-
-**Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
-`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings because of rising tension with South Africa over its land policies.`\
-https://nytimes.com/2025/02/19/us/politics/bessent-g20-south-africa.html
-
-**Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
-`The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\
-https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
 
