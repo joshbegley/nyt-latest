@@ -1,3 +1,15 @@
+**Bruins address Charlie McAvoy infection, potential long-term absence after removing him from Team USA care**\
+`Bruins coach Joe Sacco said he "wouldn’t expect (McAvoy) in the short-term" as the franchise defenseman remains hospitalized.`\
+https://nytimes.com/athletic/6146747/2025/02/19/charlie-mcavoy-bruins-injury-team-usa/
+
+**Civil Rights Groups Sue Trump Administration Over D.E.I. Orders**\
+`The organizations claimed that the president had exceeded his authority in issuing the orders, and that they intentionally discriminated against Black and transgender people.`\
+https://nytimes.com/2025/02/19/us/politics/dei-trump-lawsuit.html
+
+**Venus Williams receives wild-card entry to Indian Wells**\
+`Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
+https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
+
 **Venus Williams receives wild card to Indian Wells**\
 `Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
 https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
