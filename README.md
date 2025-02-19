@@ -1,3 +1,7 @@
+**Winnie Harlow and Kyle Kuzma’s Engagement Met With Star-Studded Congratulations**\
+`The couple’s happy news captured the hearts of celebrity friends and fans alike.`\
+https://nytimes.com/2025/02/19/fashion/weddings/winnie-harlow-kyle-kuzmas-engagement.html
+
 **What Is Elon Musk’s Job?**\
 `Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
 https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/trump-house-budget-plan.html
 **Tigers' Casey Mize is still perfecting his arsenal, but write him off at your own risk**\
 `Once a hyped No. 1 pick, Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
 https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-spring-training/
-
-**Van Persie on verge of being appointed new Feyenoord head coach**\
-`Van Persie only took charge at fellow Eredivisie side Heerenveen last May, signing a two-year deal.`\
-https://nytimes.com/athletic/6147431/2025/02/19/van-persie-feyenoord-coach-appoint-verge/
 
