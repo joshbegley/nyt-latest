@@ -1,3 +1,7 @@
+**Animal rights group protest to FIFA over stray dogs cull in Morocco**\
+`Morocco is a rabies-endemic country, with efforts taking place over the previous decade to reduce the population of infected dogs.`\
+https://nytimes.com/athletic/6144272/2025/02/19/animal-rights-protest-2030-world-cup/
+
 **Trillions of Viruses Live in Your Body. A.I. Is Trying to Find Them.**\
 `The Human Virome Program will analyze samples from thousands of volunteers in an effort to understand how viruses affect health.`\
 https://nytimes.com/2025/02/19/health/human-virome-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144319/2025/02/19/49ers-nfl-draft-perfect-fits/
 **Proposing an unlikely option for the Oilers at the NHL trade deadline**\
 `The Oilers' biggest need is a scoring veteran for the top six, but that's not always easy to pick up.`\
 https://nytimes.com/athletic/6143669/2025/02/19/oilers-trade-deadline-bowman-jordan-eberle-kraken/
-
-**Ashworth's five-month Man United tenure cost £4m, accounts reveal**\
-`Ashworth left in December only five months after officially joining from Newcastle United.`\
-https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
 
