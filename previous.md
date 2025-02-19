@@ -1,3 +1,7 @@
+**Right-Wing Media Praises U.S.-Russia Talks as ‘Breath of Fresh Air’**\
+`Many of President Trump’s media allies were quick to celebrate this week’s negotiations, a contrast to the deep unease expressed by the foreign policy establishment.`\
+https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
+
 **A judge blocks Trump’s effort to house trans women prisoners with male inmates.**\
 `The federal judge’s order went further than an earlier finding that had temporarily stopped the administration’s effort.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-to-house-trans-women-prisoners-with-male-inmates
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/nyregion/ny-prisons-strikes-national-guard.html
 **What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
 `With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
 https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
-
-**N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
-`The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
-https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
 
