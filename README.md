@@ -1,3 +1,7 @@
+**2 Skiers Die in Avalanche in Cascade Mountains in Oregon**\
+`The avalanche occurred on Monday near a snowmobile trail in Happy Valley, west of the city of Bend, officials said.`\
+https://nytimes.com/2025/02/18/us/avalanche-cascade-mountains-oregon.html
+
 **Destination of a Walk**\
 `Joe Deeney leaves us in stitches.`\
 https://nytimes.com/2025/02/18/crosswords/daily-puzzle-2025-02-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
 **A judge blocks Trump’s effort to house trans women prisoners with male inmates.**\
 `The federal judge’s order went further than an earlier finding that had temporarily stopped the administration’s effort.`\
 https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-to-house-trans-women-prisoners-with-male-inmates
-
-**Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
-`Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
-https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/
 
