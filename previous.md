@@ -1,3 +1,7 @@
+**Venus Williams receives wildcard to Indian Wells**\
+`Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
+https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
+
 **With Truth Social, Trump Has an Official Mouthpiece and a Revenue Stream**\
 `The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
 https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/19/nyregion/mta-congestion-pricing-lawsu
 **The judge faces a flood of demands to continue the prosecution.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/the-judge-faces-a-flood-of-demands-to-continue-the-prosecution
-
-**Sean Combs Argues He’s Facing a Mann Act Charge Because of His Race**\
-`The music mogul’s lawyers filed a motion to dismiss a sex-trafficking charge, saying that the law involved has “racist origins.”`\
-https://nytimes.com/2025/02/19/arts/music/sean-combs-diddy-dismiss-charge-racism.html
 
