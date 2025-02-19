@@ -1,3 +1,7 @@
+**Then and Now: How Republican Senators Have Shifted Tone on Russia and Ukraine**\
+`Some of the most vocal critics of Vladimir V. Putin and proponents of the United States’ role as a global defender of democracy have acquiesced to Mr. Trump on Russia.`\
+https://nytimes.com/2025/02/19/us/politics/trump-putin-senate-gop-ukraine.html
+
 **Big Ten, SEC to push for CFP to be seeded entirely by final rankings**\
 `The change supported by the leagues would eliminate the reservation of top-four seeds and first-round byes for conference champions.`\
 https://nytimes.com/athletic/6147236/2025/02/19/college-football-playoff-seeding-big-ten-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146844/2025/02/19/manchester-city-cost-of-champion
 **With Trump’s Prostration to Putin, Expect a More Dangerous World**\
 `This is a humiliating month to be an American.`\
 https://nytimes.com/2025/02/19/opinion/trump-putin-europe.html
-
-**Octogenarian Who Shot Teen in Kansas City Dies Days After Pleading Guilty**\
-`Andrew D. Lester, 86, was awaiting sentencing after pleading guilty last week to felony assault in the 2023 shooting of Ralph Yarl.`\
-https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
 
