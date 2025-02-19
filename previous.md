@@ -1,3 +1,19 @@
+**Sportsbooks split over Myles Garrett's next team with Commanders, Eagles, Bills in lead**\
+`Which teams are the most likely candidates to be Garrett's next home, and why.`\
+https://nytimes.com/athletic/6144755/2025/02/19/myles-garrett-next-team-odds/
+
+**Trump’s Labor Nominee Faces Pressure From Both Parties at Hearing**\
+`Asked for her views on pro-labor legislation she backed as a House Republican, Lori Chavez-DeRemer said she would simply serve the president’s agenda.`\
+https://nytimes.com/2025/02/19/business/economy/lori-chavez-derimer-labor-secretary-hearing.html
+
+**Some Readers Are Stocking Up to Prepare for Tariffs. Here’s What They’re Buying.**\
+`We asked, you answered: These are the food and drink items you’re buying in bulk.`\
+https://nytimes.com/2025/02/19/dining/us-tariffs-stockpiling.html
+
+**Thursday Briefing: Trump and Zelensky Feud Over Peace Talks**\
+`Plus, Cambodia’s returned treasures.`\
+https://nytimes.com/2025/02/19/briefing/trump-zelensky-gaza-plan-trump-bolsonaro.html
+
 **Two Small Planes Collide Midair in Arizona, Killing 2**\
 `One plane landed “uneventfully” while the other crashed near a runway, then caught fire, investigators said.`\
 https://nytimes.com/2025/02/19/us/plane-crash-arizona-airport.html
@@ -18,23 +34,7 @@ https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/
 `The Mets selected Allan with the 89th pick of the 2019 draft. He's hoping to be worth the wait. `\
 https://nytimes.com/athletic/6146894/2025/02/19/mets-matt-allan-prospect/
 
-**Donald Shoup, Who Made Parking an Entertaining Subject, Dies at 86**\
+**Donald Shoup, 86, Dies; Scholar Made Parking an Entertaining Subject**\
 `In “The High Cost of Free Parking,” he made a dry topic interesting, capturing the attention of policymakers and influencing the ways cities are built.`\
 https://nytimes.com/2025/02/19/books/donald-shoup-dead.html
-
-**The 2024 Braves were undermined by injuries and slumps. Now they look to turn the page**\
-`That volume of injuries requiring significant IL stints and so many season-ending injuries doesn't happen often, but it did to the Braves.`\
-https://nytimes.com/athletic/6146773/2025/02/19/atlanta-braves-2024-injuries-fresh-start/
-
-**Gio Reyna and Dortmund are stuttering towards a summer separation**\
-`The USMNT attacker came off the bench but made little impact as his club future remains in limbo`\
-https://nytimes.com/athletic/6146614/2025/02/19/reyna-dortmund-usmnt-champions-league/
-
-**Citing ‘Biological Truth,’ Kennedy Issues Guidance Recognizing Only Two Sexes**\
-`The new guidance follows President Trump’s demand that the Health and Human Services Department align with his executive order barring transgender athletes from women’s sports.`\
-https://nytimes.com/2025/02/19/us/politics/rfk-jr-hhs-sex-genders.html
-
-**‘Long Live the King’: Trump Likens Himself to Royalty on Truth Social**\
-`Mr. Trump’s fondness for injecting regal themes into his presidency was apparent as he applauded his administration’s move to kill congestion pricing in New York.`\
-https://nytimes.com/2025/02/19/us/politics/trump-king-image.html
 
