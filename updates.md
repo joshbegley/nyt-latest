@@ -1,3 +1,7 @@
+**With Truth Social, Trump Has an Official Mouthpiece and a Revenue Stream**\
+`The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
+https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
+
 **Mediterranean Braces for a Sharp Temperature Drop and Snow**\
 `Through early next week, a surge of cold air will plunge temperatures far below what is typical for the region.`\
 https://nytimes.com/2025/02/19/weather/greece-cold-snow-coral.html
