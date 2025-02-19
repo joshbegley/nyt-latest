@@ -1,5 +1,5 @@
 **Fake viral social posts on Messi, Ronaldo sons; Varane exclusive; embarrassing Euro exits**\
-`Today in TAFC: The viral social posts surrounding Messi and Ronaldo's sons, which are not real. Plus: Varane exclusive interview`\
+`Today in TAFC - the viral social posts surrounding Messi and Ronaldo's sons, which are not real. Plus: Varane exclusive interview`\
 https://nytimes.com/athletic/6145864/2025/02/19/messi-ronaldo-social-posts-varane-exclusive/
 
 **Ukraine’s Equation**\
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6145864/2025/02/19/messi-ronaldo-social-posts-varan
 https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
 
 **Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
-`The lawsuit appeared to be an effort to pressure the justice hours after he received an indictment of Brazil’s former president.`\
+`The lawsuit came hours after the justice received an indictment of Brazil’s former president, who is an ally of President Trump.`\
 https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
 
 **Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
