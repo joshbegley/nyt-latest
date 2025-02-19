@@ -1,3 +1,7 @@
+**In the best shape of our lives, ranking the best MLB spring training cliches**\
+`From "I don't want to leave anybody out" to "I'll do anything they need me to do" and others, a ranking of common spring training phrases.`\
+https://nytimes.com/athletic/6145181/2025/02/19/best-mlb-spring-training-cliches/
+
 **Inside the Making of ‘Wicked’**\
 `Meet the writer who helped turn a book into a cultural phenomenon.`\
 https://nytimes.com/2025/02/19/books/review/inside-the-making-of-wicked.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/style/maria-la-rosa-socks-laminated-ribbed-metall
 **Trump Administration Moves to Fast-Track Hundreds of Fossil Fuel Projects**\
 `The U.S. Army Corps of Engineers has cited President Trump’s claim of a national energy emergency to speed up permits for new gas pipelines and other projects.`\
 https://nytimes.com/2025/02/19/climate/army-corps-engineers-fossil-fuel-permits.html
-
-**Ye and the Limits of Free Speech Online**\
-`Where is the line between the right to speech and the right to reach?`\
-https://nytimes.com/2025/02/19/opinion/kanye-west-x-antisemitism.html
 
