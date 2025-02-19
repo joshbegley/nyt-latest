@@ -1,3 +1,7 @@
+**Why xERA should be your go-to stat for evaluating fantasy baseball pitchers**\
+`Michael Salfino espouses the virtues of the xERA stat when it comes to finding pitching values ahead of your 2025 fantasy baseball drafts.`\
+https://nytimes.com/athletic/6134757/2025/02/19/fantasy-baseball-2025-draft-xera-stats/
+
 **Has America Become a Threat to Europe?**\
 `The Trump administration has many Europeans worried that the U.S. is no longer a trusted ally.`\
 https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
