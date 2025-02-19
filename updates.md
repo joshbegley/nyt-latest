@@ -1,3 +1,7 @@
+**A judge blocks Trump’s effort to house trans women prisoners with male inmates.**\
+`The federal judge’s order went further than an earlier finding that had temporarily stopped the administration’s effort.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-to-house-trans-women-prisoners-with-male-inmates
+
 **Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
 `Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
 https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/

@@ -1,3 +1,7 @@
+**A judge blocks Trump’s effort to house trans women prisoners with male inmates.**\
+`The federal judge’s order went further than an earlier finding that had temporarily stopped the administration’s effort.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-to-house-trans-women-prisoners-with-male-inmates
+
 **Cubs tab Shota Imanaga for Opening Day start in Tokyo Series**\
 `Imanaga, coming off an impressive rookie campaign, will start opposite of Yoshinobu Yamamoto, a teammate of his on Samurai Japan's roster.`\
 https://nytimes.com/athletic/6145408/2025/02/18/chicago-cubs-tokyo-series-shota-imanaga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training
 **N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
 `The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
 https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
-
-**Kennedy Relatives Say DOGE Cuts Forced Temporary Closure of J.F.K. Library**\
-`The cuts affected five probationary employees, a relative said. The Trump administration has targeted such workers for firing across the federal government.`\
-https://nytimes.com/2025/02/18/us/politics/jfk-library-closed-layoffs.html
 
