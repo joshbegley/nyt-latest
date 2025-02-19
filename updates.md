@@ -1,3 +1,7 @@
+**Red Sox notes: The Ceddanne Rafaela improvement plan, rotation talk and weekend starters**\
+`The Red Sox had a three-part plan for Rafaela to improve off of his uneven rookie season.`\
+https://nytimes.com/athletic/6147394/2025/02/19/ceddanne-rafaela-red-sox-improvement-plan/
+
 **Winnie Harlow and Kyle Kuzma’s Engagement Met With Star-Studded Congratulations**\
 `The couple’s happy news captured the hearts of celebrity friends and fans alike.`\
 https://nytimes.com/2025/02/19/fashion/weddings/winnie-harlow-kyle-kuzmas-engagement.html
