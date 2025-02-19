@@ -1,3 +1,7 @@
+**USMNT's Weah scores for Juventus vs. PSV in Champions League**\
+`The USMNT star became the fifth American to score in the UEFA Champions League this season.`\
+https://nytimes.com/athletic/6147158/2025/02/19/tim-weah-goal-video-juventus-psv-champions-league-usmnt/
+
 **Yankees' Clarke Schmidt, pitching prospect Chase Hampton dealing with injuries**\
 `Schmidt is fighting through a 'cranky back' while Hampton has been sent back to New York for tests.`\
 https://nytimes.com/athletic/6147001/2025/02/19/yankees-clarke-schmidt-chase-hampton-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/plane-crash-arizona-airport.html
 **NFL projects 2025 salary cap to rise to at least $277.5 million**\
 `The league is projecting an increase of $22.1 to $26.1 million from the 2024 salary cap of $255.4 million.`\
 https://nytimes.com/athletic/6146634/2025/02/19/nfl-salary-cap-projection-2025/
-
-**A Justice Dept. official defended moving to drop the charges on social media.**\
-`Chad Mizelle, the department’s chief of staff, offered no evidence that any of prosecutors in the Manhattan U.S. attorney’s office did anything illegal, unethical or improper.`\
-https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/a-justice-dept-official-defended-moving-to-drop-the-charges-on-social-media
 
