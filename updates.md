@@ -1,3 +1,19 @@
+**Trump picks former aide for top national security job at Justice Dept.**\
+`John Eisenberg, known for his dislike of leaks, served in the first Trump White House.`\
+https://nytimes.com/live/2025/02/19/us/trump-news/trump-picks-former-aide-for-top-national-security-job-at-justice-dept
+
+**A Frustrated Trump Wants His New Air Force One Planes Pronto**\
+`Among the ways being discussed to force faster delivery of two presidential planes are relaxing security clearances for Boeing workers and even purchasing a temporary luxury plane and retrofitting it.`\
+https://nytimes.com/2025/02/19/us/politics/trump-musk-air-force-one-boeing.html
+
+**Let’s Discuss: Covering the White House**\
+`What is it like to report on the president? Ask Zolan Kanno-Youngs, a Times White House correspondent. Post your questions for him here by Feb. 27.`\
+https://nytimes.com/2025/02/19/learning/lesson-plans/lets-discuss-covering-the-white-house.html
+
+**The New York Books Our Readers Love**\
+`Plenty of classics made the list, as did books that capture particular, personal slices of New York.`\
+https://nytimes.com/2025/02/19/books/nyc-books.html
+
 **Make This Melissa Pasta Tonight**\
 `This pasta with spinach, feta and yogurt is speedy, filling and easy to execute well. (Case in point: My teenager made it for us.)`\
 https://nytimes.com/2025/02/19/dining/make-this-melissa-pasta-tonight.html
