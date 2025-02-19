@@ -1,3 +1,15 @@
+**Talent, technology, a quirky schedule. Why seven track and field world records were broken in nine days**\
+`In a little over a week, five men set world records at distances ranging from 1500m up to the half marathon`\
+https://nytimes.com/athletic/6144421/2025/02/19/seven-athletics-world-records-in-one-week-february-analysis/
+
+**From Tyler Warren to Cobee Bryant, finding perfect NFL Draft fits for the 49ers**\
+`A position-by-position look at which traits the 49ers are seeking in the draft and which prospects possess those traits.`\
+https://nytimes.com/athletic/6144319/2025/02/19/49ers-nfl-draft-perfect-fits/
+
+**Proposing an unlikely option for the Oilers at the NHL trade deadline**\
+`The Oilers' biggest need is a scoring veteran for the top six, but that's not always easy to pick up.`\
+https://nytimes.com/athletic/6143669/2025/02/19/oilers-trade-deadline-bowman-jordan-eberle-kraken/
+
 **Man United paid Ashworth more than £4m in compensation, accounts reveal**\
 `Ashworth left in December only five months after officially joining from Newcastle United.`\
 https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/19/world/europe/europe-trump-russia-ukraine.html
 **Why the 2024-25 Oilers wear their jersey numbers**\
 `Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
 https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
-
-**Phenomenal 4 Nations whets Olympics appetite for Connor Bedard and Blackhawks teammates**\
-`It's hard not to get excited watching best-on-best hockey, and young Blackhawks stars are no different.`\
-https://nytimes.com/athletic/6145227/2025/02/19/blackhawks-4-nations-olympics-bedard-vlasic-kurashev/
-
-**Zelensky Urges ‘More Truth’ After Trump Suggests Ukraine Started the War**\
-`The remarks by President Volodymyr Zelensky of Ukraine were some of his most pointed yet about President Trump’s views on the war.`\
-https://nytimes.com/2025/02/19/world/europe/ukraine-zelensky-trump-russia-war.html
-
-**Ukraine’s Equation**\
-`The West has fractured, and Putin knows it.`\
-https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
 
