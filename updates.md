@@ -1,3 +1,11 @@
+**I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
+`The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
+https://nytimes.com/2025/02/19/us/politics/irs-to-begin-laying-off-roughly-6000-employees-on-thursday.html
+
+**The Briefing: Real Madrid 3 Manchester City 1 - Mbappe's best Bernabeu display? How poor were City?**\
+`Real Madrid advanced through to the last-16 of the Champions League by beating Manchester City on Wednesday`\
+https://nytimes.com/athletic/6142159/2025/02/19/real-madrid-manchester-city-result-report-analysis/
+
 **USMNT's Weah scores for Juventus vs. PSV in Champions League**\
 `The USMNT star became the fifth American to score in the UEFA Champions League this season.`\
 https://nytimes.com/athletic/6147158/2025/02/19/tim-weah-goal-video-juventus-psv-champions-league-usmnt/

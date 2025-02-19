@@ -1,3 +1,11 @@
+**I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
+`The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
+https://nytimes.com/2025/02/19/us/politics/irs-to-begin-laying-off-roughly-6000-employees-on-thursday.html
+
+**The Briefing: Real Madrid 3 Manchester City 1 - Mbappe's best Bernabeu display? How poor were City?**\
+`Real Madrid advanced through to the last-16 of the Champions League by beating Manchester City on Wednesday`\
+https://nytimes.com/athletic/6142159/2025/02/19/real-madrid-manchester-city-result-report-analysis/
+
 **USMNT's Weah scores for Juventus vs. PSV in Champions League**\
 `The USMNT star became the fifth American to score in the UEFA Champions League this season.`\
 https://nytimes.com/athletic/6147158/2025/02/19/tim-weah-goal-video-juventus-psv-champions-league-usmnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/dining/us-tariffs-stockpiling.html
 **Thursday Briefing: Trump and Zelensky Feud Over Peace Talks**\
 `Plus, Cambodia’s returned treasures.`\
 https://nytimes.com/2025/02/19/briefing/trump-zelensky-gaza-plan-trump-bolsonaro.html
-
-**Two Small Planes Collide Midair in Arizona, Killing 2**\
-`One plane landed “uneventfully” while the other crashed near a runway, then caught fire, investigators said.`\
-https://nytimes.com/2025/02/19/us/plane-crash-arizona-airport.html
-
-**NFL projects 2025 salary cap to rise to at least $277.5 million**\
-`The league is projecting an increase of $22.1 to $26.1 million from the 2024 salary cap of $255.4 million.`\
-https://nytimes.com/athletic/6146634/2025/02/19/nfl-salary-cap-projection-2025/
 
