@@ -1,3 +1,7 @@
+**Hurricane, Dog Who Protected Obama White House From Intruder, Dies at 15**\
+`The jet-black Belgian Malinois drew widespread attention a decade ago when he wrestled a man to the ground on the White House lawn.`\
+https://nytimes.com/2025/02/18/us/k9-hurricane-dog-dead.html
+
 **2 Skiers Die in Avalanche in Cascade Mountains in Oregon**\
 `The avalanche occurred on Monday near a snowmobile trail in Happy Valley, west of the city of Bend, officials said.`\
 https://nytimes.com/2025/02/18/us/avalanche-cascade-mountains-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-tr
 **Right-Wing Media Praises U.S.-Russia Talks as ‘Breath of Fresh Air’**\
 `Many of President Trump’s media allies were quick to celebrate this week’s negotiations, a contrast to the deep unease expressed by the foreign policy establishment.`\
 https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
-
-**A judge blocks Trump’s effort to house trans women prisoners with male inmates.**\
-`The federal judge’s order went further than an earlier finding that had temporarily stopped the administration’s effort.`\
-https://nytimes.com/live/2025/02/18/us/trump-news/a-judge-blocks-trumps-effort-to-house-trans-women-prisoners-with-male-inmates
 
