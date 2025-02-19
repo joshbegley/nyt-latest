@@ -1,3 +1,7 @@
+**Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
+`There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
+https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
+
 **Blake Lively Adds Claims From 2 Other Women to Justin Baldoni Lawsuit**\
 `In the amended complaint, Ms. Lively said that Mr. Baldoni, her co-star in “It Ends With Us,” made two other actresses on set uncomfortable and that they were willing to testify.`\
 https://nytimes.com/2025/02/19/us/blake-lively-justin-baldoni-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/trump-foreign-aid-freeze.html
 **I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
 `The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
 https://nytimes.com/2025/02/19/us/politics/irs-layoffs.html
-
-**The Briefing: Real Madrid 3 Manchester City 1 - Mbappe's best Bernabeu display? How poor were City?**\
-`Real Madrid advanced through to the last-16 of the Champions League by beating Manchester City on Wednesday`\
-https://nytimes.com/athletic/6142159/2025/02/19/real-madrid-manchester-city-result-report-analysis/
 
