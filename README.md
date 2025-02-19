@@ -1,3 +1,7 @@
+**Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
+`"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
+https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
+
 **Tennis players love golf - but how good are their swings?**\
 `Top-10 player Casper Ruud is in Mexico for the next tournament of his season - but first, golf.`\
 https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6131843/2025/02/19/senators-trade-deadline-survey-d
 **Automated strike zone could benefit Astros' Yainer Diaz and Isaac Paredes**\
 `Diaz’s inability to steal strikes and Paredes’ perpetual victimization by poor umpiring would, at the very least, be minimized.`\
 https://nytimes.com/athletic/6144864/2025/02/19/automated-strike-zone-yainer-diaz-isaac-paredes/
-
-**What's next for the Cubs after the Justin Turner deal and an offseason of 'constraints'**\
-`Said Jed Hoyer of the Cubs: "I don’t think it’s ever like: ‘Pencils down, we’re done.’ You’re always trying to make moves.”`\
-https://nytimes.com/athletic/6145645/2025/02/19/cubs-justin-turner-offseason-moves/
 
