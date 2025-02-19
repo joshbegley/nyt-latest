@@ -1,3 +1,11 @@
+**Hamilton confident Ferrari has 'every ingredient' to win F1 title: 'There's magic here'**\
+`Hamilton's last F1 drivers' championship came in 2020 and the Briton finished seventh with Mercedes last year.`\
+https://nytimes.com/athletic/6146592/2025/02/19/lewis-hamilton-ferrari-f1/
+
+**‘Quid Pro Quo’: The Phrase That Could Have Major Ramifications for Adams**\
+`The phrase, which means “this for that” in Latin, signifies acts that transgress American laws. Manhattan’s former U.S. attorney said that New York’s mayor tried to strike a corrupt deal.`\
+https://nytimes.com/2025/02/19/nyregion/eric-adams-quid-pro-quo.html
+
 **Read the Letter From the Transportation Secretary About Congestion Pricing**\
 `The Trump administration moved to end New York City’s congestion pricing program by revoking federal approval for the tolls.`\
 https://nytimes.com/interactive/2025/02/19/nyregion/congestion-pricing-termination-letter.html

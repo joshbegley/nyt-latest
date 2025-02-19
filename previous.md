@@ -1,3 +1,11 @@
+**Hamilton confident Ferrari has 'every ingredient' to win F1 title: 'There's magic here'**\
+`Hamilton's last F1 drivers' championship came in 2020 and the Briton finished seventh with Mercedes last year.`\
+https://nytimes.com/athletic/6146592/2025/02/19/lewis-hamilton-ferrari-f1/
+
+**‘Quid Pro Quo’: The Phrase That Could Have Major Ramifications for Adams**\
+`The phrase, which means “this for that” in Latin, signifies acts that transgress American laws. Manhattan’s former U.S. attorney said that New York’s mayor tried to strike a corrupt deal.`\
+https://nytimes.com/2025/02/19/nyregion/eric-adams-quid-pro-quo.html
+
 **Read the Letter From the Transportation Secretary About Congestion Pricing**\
 `The Trump administration moved to end New York City’s congestion pricing program by revoking federal approval for the tolls.`\
 https://nytimes.com/interactive/2025/02/19/nyregion/congestion-pricing-termination-letter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/arts/gerd-stern-dead.html
 **A Sudden Shift Between the U.S. and Russia**\
 `Readers discuss developments involving the U.S., Russia, Ukraine and Europe. Also: The Republican attack on higher education; the Eric Adams case.`\
 https://nytimes.com/2025/02/19/opinion/us-russia-ukraine-europe.html
-
-**Record-Setting Ocean Liner, a Titan of Its Time, Begins Its Final Voyage**\
-`The S.S. United States, the largest passenger ship ever built in America, left Philadelphia under tow on Wednesday, eventually to be sunk off the Gulf Coast.`\
-https://nytimes.com/2025/02/19/us/ss-united-states-final-voyage.html
-
-**Drawing From Bob Dylan’s Songbook, Learning Lessons in Mortality**\
-`Todd Almond wrote an oral history on Conor McPherson’s “Girl From the North Country” and its passage through Broadway’s pandemic shutdown.`\
-https://nytimes.com/2025/02/19/theater/todd-almond-bob-dylan-musical.html
 
