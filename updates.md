@@ -1,3 +1,7 @@
+**Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
+`The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees, who have been denied access to lawyers.`\
+https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
+
 **At Kennedy Center, Trump Inherits a Tough Job: Fund-Raising**\
 `For the arts institution, which receives only a small portion of its budget from federal funding, the perennial challenge is to raise additional revenue through ticket sales and private donations.`\
 https://nytimes.com/2025/02/19/arts/trump-kennedy-center-finances.html
