@@ -1,3 +1,11 @@
+**Slot: Bradley to miss at least two games after injury against Villa**\
+`Bradley has made 22 appearances for Liverpool this season, with nine of those as a starter.`\
+https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
+
+**Hegseth Orders Pentagon to Draw Up Plans for Cuts**\
+`The defense secretary has told senior leaders to prepare to trim 8 percent from the budget over each of the next five years, officials said.`\
+https://nytimes.com/2025/02/19/us/politics/hegseth-military-cuts.html
+
 **Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
 `There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
 https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
 **SEC, Big Ten discussing changes to championship weekend**\
 `The SEC and Big Ten are both looking at ways to get more teams and fans involved in their championship weekends.`\
 https://nytimes.com/athletic/6147160/2025/02/19/conference-championship-games-changes-sec-big-ten/
-
-**Trump Team Finds Loophole to Defy Spirit of Court Orders Blocking Spending Freezes**\
-`Officials cite other legal authorities — not Mr. Trump’s court-blocked directives — to keep withholding foreign aid and domestic grant money.`\
-https://nytimes.com/2025/02/19/us/politics/trump-foreign-aid-freeze.html
-
-**I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
-`The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
-https://nytimes.com/2025/02/19/us/politics/irs-layoffs.html
 
