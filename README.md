@@ -1,3 +1,7 @@
+**So, You Want to Get Rid of the Penny. Do You Have a Plan for the Nickel?**\
+`President Trump’s plan to eliminate the penny could save the government money, but there’s no guarantee.`\
+https://nytimes.com/2025/02/19/upshot/penny-trump-nickel-elimination.html
+
 **Red Sox notes: The Ceddanne Rafaela improvement plan, rotation talk and weekend starters**\
 `The Red Sox had a three-part plan for Rafaela to improve off of his uneven rookie season.`\
 https://nytimes.com/athletic/6147394/2025/02/19/ceddanne-rafaela-red-sox-improvement-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147059/2025/02/19/lakers-luka-doncic-minutes-horne
 **Missouri Clinics Resume Abortions, Following Abortion Rights Referendum**\
 `Abortion opponents had tried to block, or severely limit, the procedure, against the will of voters who in November enshrined abortion rights in the state constitution.`\
 https://nytimes.com/2025/02/19/us/missouri-abortion.html
-
-**Trump Rebuffs Senate G.O.P. and Backs House Budget Plan**\
-`Mr. Trump’s call for “one big beautiful bill” came just hours after he gave conflicting directions to congressional Republicans on cuts to social safety net programs.`\
-https://nytimes.com/2025/02/19/us/politics/trump-house-budget-plan.html
 
