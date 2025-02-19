@@ -1,3 +1,7 @@
+**ASAP Rocky Acquitted of Shooting Former Friend**\
+`The rapper had faced two felony counts of assault with a firearm in connection with a 2021 altercation in Los Angeles.`\
+https://nytimes.com/2025/02/18/arts/music/asap-rocky-not-guilty-assault-trial.html
+
 **HP to Buy Humane, Maker of the Ai Pin, for $116 Million**\
 `Humane, which marketed its Ai Pin as the next big thing after smartphones, had raised $240 million from investors, including OpenAI’s Sam Altman. The pin will be discontinued.`\
 https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
