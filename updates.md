@@ -1,3 +1,7 @@
+**What Is Elon Musk’s Job?**\
+`Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
+https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
+
 **Why Trump’s Decision to Kill Congestion Pricing Feels Like Such a Gut Punch**\
 `For now the only metric that matters is the depth of Donald Trump’s spite.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pricing-new-york

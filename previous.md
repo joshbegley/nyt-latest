@@ -1,3 +1,7 @@
+**What Is Elon Musk’s Job?**\
+`Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
+https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
+
 **Why Trump’s Decision to Kill Congestion Pricing Feels Like Such a Gut Punch**\
 `For now the only metric that matters is the depth of Donald Trump’s spite.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pricing-new-york
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-sprin
 **Van Persie on verge of being appointed new Feyenoord head coach**\
 `Van Persie only took charge at fellow Eredivisie side Heerenveen last May, signing a two-year deal.`\
 https://nytimes.com/athletic/6147431/2025/02/19/van-persie-feyenoord-coach-appoint-verge/
-
-**They Never Planned on Buying a Gun. Until They Did.**\
-`Some new gun owners, a reporter found, are ready to approach the painful topic of firearms with more curiosity and less confrontation.`\
-https://nytimes.com/2025/02/19/insider/new-gun-owners.html
 
