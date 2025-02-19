@@ -1,3 +1,11 @@
+**Blake Lively Adds Claims From 2 Other Women to Justin Baldoni Lawsuit**\
+`In the amended complaint, Ms. Lively said that Mr. Baldoni, her co-star in “It Ends With Us,” made two other actresses on set uncomfortable and that they were willing to testify.`\
+https://nytimes.com/2025/02/19/us/blake-lively-justin-baldoni-lawsuit.html
+
+**Judge Orders Mississippi Newspaper to Remove Editorial, Alarming Press Advocates**\
+`The owner of The Clarksdale Press Register said he planned to challenge a judge’s order against an editorial that criticized city officials.`\
+https://nytimes.com/2025/02/19/us/mississippi-judge-newspaper-editorial.html
+
 **As Trump Turns Toward Russia and Against Ukraine, Republicans Are Mum**\
 `Congressional Republicans have mostly tempered their criticism or deferred to the president as he topples what were once their party’s core foreign policy principles.`\
 https://nytimes.com/2025/02/19/us/politics/trump-ukraine-russia-republicans.html
