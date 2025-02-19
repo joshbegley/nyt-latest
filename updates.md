@@ -1,3 +1,7 @@
+**Building the perfect fantasy baseball beast: A guide to the first five rounds of your draft**\
+`John Laghezza shares his picks for what he considers the perfect start (first five rounds) of a 2025 fantasy baseball draft.`\
+https://nytimes.com/athletic/6139897/2025/02/19/ideal-fantasy-baseball-draft-five-round-guide/
+
 **Why xERA should be your go-to stat for evaluating fantasy baseball pitchers**\
 `Michael Salfino espouses the virtues of the xERA stat when it comes to finding pitching values ahead of your 2025 fantasy baseball drafts.`\
 https://nytimes.com/athletic/6134757/2025/02/19/fantasy-baseball-2025-draft-xera-stats/
