@@ -1,3 +1,7 @@
+**Paqueta out for up to four weeks with ankle injury**\
+`The midfielder posted a story on his Instagram account of his right foot and ankle in a protective boot on Wednesday.`\
+https://nytimes.com/athletic/6146378/2025/02/19/west-ham-lucas-paqueta-injury/
+
 **I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
 `The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
 https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/business/kfc-texas-kentucky-fried-chicken.html
 **Man City forward Khadija Shaw's Black Power salute explained**\
 `Shaw made a power statement in the face of racism. What happens next is still a question`\
 https://nytimes.com/athletic/6143450/2025/02/19/khadija-shaw-black-power-salute-response/
-
-**Scoop City: Controversial history of NFL's franchise tags**\
-`Inside: Your primer on the NFL&#8217;s franchise tag: how it works these days, why one star is likely to receive it and its controversial history.`\
-https://nytimes.com/athletic/6146311/2025/02/19/nfls-controversial-franchise-tags-from-john-elway-to-tee-higgins/
 

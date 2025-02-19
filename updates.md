@@ -1,3 +1,15 @@
+**I Wrote a Leniency Letter on My Ex’s Behalf. Did I Overstep?**\
+`The magazine’s Ethicist columnist on how to support a loved one who has a different idea of what help looks like.`\
+https://nytimes.com/2025/02/19/magazine/leniency-letter-ex-meth-ethics.html
+
+**Ten MLB teams that should prepare to target Vladimir Guerrero Jr. in free agency**\
+`Who wants to land the next 26-year-old superstar free agent? Ranking 10 teams that make sense as possible Vlad Jr. destinations next winter.`\
+https://nytimes.com/athletic/6146286/2025/02/19/vladimir-guerrero-jr-free-agency-teams-ranking/
+
+**Apple Unveils New Lower-Priced iPhone With A.I. Features**\
+`The iPhone 16e is the first update to the company’s most affordable model since 2022, but carries a higher price tag of $599.`\
+https://nytimes.com/2025/02/19/business/apple-iphone-16e-ai.html
+
 **Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
 `The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings because of rising tension with South Africa over its land policies.`\
 https://nytimes.com/2025/02/19/us/politics/bessent-g20-south-africa.html
