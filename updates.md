@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘My Mother Lied to a Grieving Lady’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/02/19/style/tiny-modern-love-stories-my-mother-lied-to-a-grieving-lady.html
+
+**Read the brief filed by former U.S. attorneys arguing against dropping the Adams case**\
+`Former top prosecutors argue in support of the judge’s authority to conduct an inquiry into the Justice Department’s request to drop the case.`\
+https://nytimes.com/interactive/2025/02/19/us/adams-amicus.html
+
+**Read the M.T.A.’s Lawsuit Against Federal Officials Over Congestion Pricing**\
+`After the Trump administration moved to block New York City’s congestion pricing program by revoking federal approval for the tolls, the Metropolitan Transportation Authority, which manages the program, immediately challenged the order in federal court.`\
+https://nytimes.com/interactive/2025/02/19/nyregion/mta-congestion-pricing-lawsuit.html
+
 **The judge faces a flood of demands to continue the prosecution.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/the-judge-faces-a-flood-of-demands-to-continue-the-prosecution
