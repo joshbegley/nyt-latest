@@ -1,3 +1,11 @@
+**Ukrainians, Stunned by Trump’s Comments, Fear They Can No Longer Trust U.S.**\
+`President Trump’s claim that Ukraine was responsible for its war with Russia has left many Ukrainians disillusioned.`\
+https://nytimes.com/2025/02/19/world/europe/ukrainians-trump-voices.html
+
+**Environmentalists Sue to Block Trump’s Offshore Drilling Plans**\
+`The suit, filed in Alaska, is likely to be the first of many challenging the administration’s goal of expanding fossil fuel production.`\
+https://nytimes.com/2025/02/19/climate/alaska-lawsuit-trump-offshore-drilling.html
+
 **Watch: Does Draymond Green have a point about the Warriors' title chances?**\
 `The Athletic NBA Daily discuss what the Golden State Warriors' ceiling is this season.`\
 https://nytimes.com/athletic/6146151/2025/02/19/nba-daily-warriors-draymond-green/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/theater/todd-almond-bob-dylan-musical.html
 **Here’s the latest.**\
 `By Jonah E. Bromwich, Benjamin Weiser and Hurubie Meko`\
 https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case/heres-the-latest
-
-**Live Updates: Judge Will Weigh Request to Dismiss Corruption Charges Against Eric Adams**\
-`The Washington prosecutors who are seeking to end the prosecution of New York’s mayor will appear before a seemingly skeptical judge at a hearing in a Manhattan courtroom.`\
-https://nytimes.com/live/2025/02/19/nyregion/eric-adams-hearing-corruption-case
-
-**What We Know About the Secretive Migrant Mission at Guantánamo Bay**\
-`The Trump administration has said little about the Venezuelan men who were transferred from Texas to the U.S. military base in Cuba.`\
-https://nytimes.com/2025/02/19/us/politics/migrant-mission-guantanamo-bay.html
 

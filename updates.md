@@ -1,3 +1,11 @@
+**Ukrainians, Stunned by Trump’s Comments, Fear They Can No Longer Trust U.S.**\
+`President Trump’s claim that Ukraine was responsible for its war with Russia has left many Ukrainians disillusioned.`\
+https://nytimes.com/2025/02/19/world/europe/ukrainians-trump-voices.html
+
+**Environmentalists Sue to Block Trump’s Offshore Drilling Plans**\
+`The suit, filed in Alaska, is likely to be the first of many challenging the administration’s goal of expanding fossil fuel production.`\
+https://nytimes.com/2025/02/19/climate/alaska-lawsuit-trump-offshore-drilling.html
+
 **Watch: Does Draymond Green have a point about the Warriors' title chances?**\
 `The Athletic NBA Daily discuss what the Golden State Warriors' ceiling is this season.`\
 https://nytimes.com/athletic/6146151/2025/02/19/nba-daily-warriors-draymond-green/
