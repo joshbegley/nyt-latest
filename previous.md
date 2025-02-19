@@ -1,3 +1,7 @@
+**Stephen Colbert Laughs Off New York Mayor’s Staffing Woes**\
+`This week, Colbert said, Eric Adams’s problems “stopped being funny and started becoming hilarious.”`\
+https://nytimes.com/2025/02/19/arts/television/colbert-mayor-eric-adams.html
+
 **Male spectator removed for 'fixated behaviour' of Raducanu**\
 `Raducanu was clearly upset as she approached the umpire during the second game in the match, which she lost to Karolina Muchova.`\
 https://nytimes.com/athletic/6145787/2025/02/19/emma-raducanu-spectator-removed-dubai/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/19/insider/kim-severson-food-journalism.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/19/crosswords/spelling-bee-forum.html
-
-**Raphael Varane interview: Real Madrid and Man United differences, Erik ten Hag relationship and retiring**\
-`World Cup and four-time Champions League winner Varane speaks openly about the highs and lows of playing for Madrid and United`\
-https://nytimes.com/athletic/6144156/2025/02/19/raphael-varane-real-madrid-como-man-utd-ten-hag/
 
