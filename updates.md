@@ -1,3 +1,7 @@
+**Hurricane, Dog Who Protected Obama White House From Intruder, Dies at 15**\
+`The jet-black Belgian Malinois drew widespread attention a decade ago when he wrestled a man to the ground on the White House lawn.`\
+https://nytimes.com/2025/02/18/us/k9-hurricane-dog-dead.html
+
 **2 Skiers Die in Avalanche in Cascade Mountains in Oregon**\
 `The avalanche occurred on Monday near a snowmobile trail in Happy Valley, west of the city of Bend, officials said.`\
 https://nytimes.com/2025/02/18/us/avalanche-cascade-mountains-oregon.html
