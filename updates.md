@@ -1,5 +1,9 @@
 **I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
 `The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
+https://nytimes.com/2025/02/19/us/politics/irs-layoffs.html
+
+**I.R.S. to Begin Laying Off Roughly 6,000 Employees on Thursday**\
+`The terminations will target relatively recent hires at the I.R.S., which the Biden administration had attempted to revitalize.`\
 https://nytimes.com/2025/02/19/us/politics/irs-to-begin-laying-off-roughly-6000-employees-on-thursday.html
 
 **The Briefing: Real Madrid 3 Manchester City 1 - Mbappe's best Bernabeu display? How poor were City?**\
