@@ -1,3 +1,7 @@
+**ASAP Rocky Reacts to Acquittal**\
+`The courtroom broke out into cheers after the jury found the rapper Rakim Mayers, known as ASAP Rocky, not guilty of shooting a former collaborator.`\
+https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html
+
 **PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
 `A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
 https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/arts/music/asap-rocky-not-guilty-assault-trial.ht
 **HP to Buy Humane, Maker of the Ai Pin, for $116 Million**\
 `Humane, which marketed its Ai Pin as the next big thing after smartphones, had raised $240 million from investors, including OpenAI’s Sam Altman. The pin will be discontinued.`\
 https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
-
-**Hochul May Deploy National Guard as Wildcat Strikes Hit 25 N.Y. Prisons**\
-`Corrections officers, without their union’s approval, refused to show up for work to protest what they say are hazardous conditions and severe staff shortages.`\
-https://nytimes.com/2025/02/18/nyregion/ny-prisons-strikes-national-guard.html
 
