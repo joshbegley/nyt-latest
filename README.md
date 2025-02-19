@@ -1,3 +1,7 @@
+**Big Ten, SEC to push for CFP to be seeded entirely by final rankings**\
+`The change supported by the leagues would eliminate the reservation of top-four seeds and first-round byes for conference champions.`\
+https://nytimes.com/athletic/6147236/2025/02/19/college-football-playoff-seeding-big-ten-sec/
+
 **Slot: Bradley to miss at least two games after injury against Villa**\
 `Bradley has made 22 appearances for Liverpool this season, with nine of those as a starter.`\
 https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/opinion/trump-putin-europe.html
 **Octogenarian Who Shot Teen in Kansas City Dies Days After Pleading Guilty**\
 `Andrew D. Lester, 86, was awaiting sentencing after pleading guilty last week to felony assault in the 2023 shooting of Ralph Yarl.`\
 https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
-
-**SEC, Big Ten discussing changes to championship weekend**\
-`The SEC and Big Ten are both looking at ways to get more teams and fans involved in their championship weekends.`\
-https://nytimes.com/athletic/6147160/2025/02/19/conference-championship-games-changes-sec-big-ten/
 
