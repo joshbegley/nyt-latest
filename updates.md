@@ -1,3 +1,7 @@
+**They Never Planned on Buying a Gun. Until They Did.**\
+`Some new gun owners, a reporter found, are ready to approach the painful topic of firearms with more curiosity and less confrontation.`\
+https://nytimes.com/2025/02/19/insider/new-gun-owners.html
+
 **Dr. Oz, Trump’s Medicare Nominee, Pledges to Sell Health Stocks**\
 `The celebrity doctor said he would divest from his interests in many drug, medical and insurance companies, worth millions of dollars.`\
 https://nytimes.com/2025/02/19/health/mehmet-oz-medicare-medicaid-stocks.html

@@ -1,3 +1,7 @@
+**They Never Planned on Buying a Gun. Until They Did.**\
+`Some new gun owners, a reporter found, are ready to approach the painful topic of firearms with more curiosity and less confrontation.`\
+https://nytimes.com/2025/02/19/insider/new-gun-owners.html
+
 **Dr. Oz, Trump’s Medicare Nominee, Pledges to Sell Health Stocks**\
 `The celebrity doctor said he would divest from his interests in many drug, medical and insurance companies, worth millions of dollars.`\
 https://nytimes.com/2025/02/19/health/mehmet-oz-medicare-medicaid-stocks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
 **Hegseth Orders Pentagon to Draw Up Plans for Cuts**\
 `The defense secretary has told senior leaders to prepare to trim 8 percent from the budget over each of the next five years, officials said.`\
 https://nytimes.com/2025/02/19/us/politics/hegseth-military-cuts.html
-
-**Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
-`There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
-https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
 
