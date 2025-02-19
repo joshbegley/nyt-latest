@@ -1,3 +1,7 @@
+**Octogenarian Who Shot Teen in Kansas City Dies Days After Pleading Guilty**\
+`Andrew D. Lester, 86, was awaiting sentencing after pleading guilty last week to felony assault in the 2023 shooting of Ralph Yarl.`\
+https://nytimes.com/2025/02/19/us/ralph-yarl-shooting-kansas-city.html
+
 **Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
 `There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
 https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
