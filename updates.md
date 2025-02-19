@@ -1,3 +1,15 @@
+**One Lake, Two Worlds: Jet-Skis in Rwanda. Bodies Ashore in Congo.**\
+`The Rwandan shore of Lake Kivu offers leisure and relaxation. Across the border in the Democratic Republic of Congo, the same lake was recently the site of devastation and misery after a rebel offensive.`\
+https://nytimes.com/2025/02/19/world/africa/rwanda-congo-m23-lake-kivu-conflict.html
+
+**Nepal Took a Risk on a $500 Million U.S. Grant. It May Now Regret It.**\
+`President Trump’s freezing of foreign aid provides an opening for China to portray America as an unreliable partner.`\
+https://nytimes.com/2025/02/19/world/asia/nepal-trump-foreign-aid.html
+
+**Quote of the Day: The Growing Pains of Asia’s Newest Country**\
+`Quotation of the Day for Wednesday, February 19, 2025.`\
+https://nytimes.com/2025/02/18/pageoneplus/quote-of-the-day-the-growing-pains-of-asias-newest-country.html
+
 **Trump suggests U.S. agencies should negotiate bills, rather than pay them in full.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/02/18/us/trump-news/trump-suggests-us-agencies-should-negotiate-bills-rather-than-pay-them-in-full
