@@ -1,3 +1,7 @@
+**South Korean Officials Convicted Over Forcibly Sending North Koreans Home**\
+`The case of two North Korean fishermen, who murdered 16 compatriots before they sought asylum, has become a political minefield in the South.`\
+https://nytimes.com/2025/02/19/world/asia/north-korea-fishermen-court.html
+
 **Bellingham banned for two La Liga games after red, Madrid to appeal**\
 `Bellingham was sent off in the first half of Madrid's draw with Osasuna for swearing at referee Jose Luis Munuera Montero`\
 https://nytimes.com/athletic/6138755/2025/02/19/jude-bellingham-red-car-real-madrid-appeal/
