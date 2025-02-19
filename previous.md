@@ -1,6 +1,10 @@
+**Scientists Describe Rare Syndrome Following Covid Vaccinations**\
+`In a small study, patients with the syndrome were more likely to experience reactivation of Epstein-Barr virus and high levels of a coronavirus protein.`\
+https://nytimes.com/2025/02/19/health/covid-post-vaccination-syndrome.html
+
 **Watch: Where is Cooper Flagg's best NBA fit?**\
 `The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
-https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flag-best-fit/
+https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flagg-best-fit/
 
 **Lamoriello's future, and what could Islanders veterans fetch on the trade market? Mailbag, part 1**\
 `Plus ownership's interest, a healthy Islanders defense, and what would it take to acquire Elias Pettersson from the Canucks?`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/business/nikola-electric-truck-bankruptcy.html
 **2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
 `Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
 https://nytimes.com/athletic/6129807/2025/02/19/2025-fantasy-baseball-draft-kit-mlb/
-
-**Talent, technology, a quirky schedule. Why seven track and field world records were broken in nine days**\
-`In a little over a week, five men set world records at distances ranging from 1500m up to the half marathon`\
-https://nytimes.com/athletic/6144421/2025/02/19/seven-athletics-world-records-in-one-week-february-analysis/
 

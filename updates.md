@@ -1,3 +1,11 @@
+**Scientists Describe Rare Syndrome Following Covid Vaccinations**\
+`In a small study, patients with the syndrome were more likely to experience reactivation of Epstein-Barr virus and high levels of a coronavirus protein.`\
+https://nytimes.com/2025/02/19/health/covid-post-vaccination-syndrome.html
+
+**Watch: Where is Cooper Flagg's best NBA fit?**\
+`The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
+https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flagg-best-fit/
+
 **Watch: Where is Cooper Flagg's best NBA fit?**\
 `The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
 https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flag-best-fit/
