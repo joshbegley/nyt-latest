@@ -27,7 +27,7 @@ https://nytimes.com/2025/02/19/us/missouri-abortion.html
 https://nytimes.com/2025/02/19/us/politics/trump-house-budget-plan.html
 
 **Tigers' Casey Mize is still perfecting his arsenal, but write him off at your own risk**\
-`Once a hyped No. 1 pick, Casey Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
+`Once a hyped No. 1 pick, Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
 https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-spring-training/
 
 **Van Persie on verge of being appointed new Feyenoord head coach**\
