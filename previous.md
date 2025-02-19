@@ -1,3 +1,7 @@
+**Researchers confirm NHL Hall of Famer Bobby Hull had CTE when he died**\
+`Hull’s family donated his brain to a brain bank at Boston University for study after he died in 2023 at the age of 84.`\
+https://nytimes.com/athletic/6146179/2025/02/19/nhl-bobby-hull-blackhawks-cte/
+
 **Let Quinn Hughes play at 4 Nations, and what Thatcher Demko's absence means for Canucks**\
 `The NHL should bend the rules to allow the best defender in the world play for Team USA at 4 Nations Face-Off.`\
 https://nytimes.com/athletic/6145738/2025/02/19/canucks-quinn-hughes-4-nations-thatcher-demko/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/health/covid-post-vaccination-syndrome.html
 **Watch: Where is Cooper Flagg's best NBA fit?**\
 `The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
 https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flagg-best-fit/
-
-**Lamoriello's future, and what could Islanders veterans fetch on the trade market? Mailbag, part 1**\
-`Plus ownership's interest, a healthy Islanders defense, and what would it take to acquire Elias Pettersson from the Canucks?`\
-https://nytimes.com/athletic/6145965/2025/02/19/islanders-trade-deadline-lou-lamoriello/
 
