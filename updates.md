@@ -1,3 +1,7 @@
+**Word of the Day: kiln**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/19/learning/word-of-the-day-kiln.html
+
 **Building the perfect fantasy baseball beast: A guide to the first five rounds of your draft**\
 `John Laghezza shares his picks for what he considers the perfect start (first five rounds) of a 2025 fantasy baseball draft.`\
 https://nytimes.com/athletic/6139897/2025/02/19/ideal-fantasy-baseball-draft-five-round-guide/

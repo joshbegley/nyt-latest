@@ -1,3 +1,7 @@
+**Word of the Day: kiln**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/19/learning/word-of-the-day-kiln.html
+
 **Building the perfect fantasy baseball beast: A guide to the first five rounds of your draft**\
 `John Laghezza shares his picks for what he considers the perfect start (first five rounds) of a 2025 fantasy baseball draft.`\
 https://nytimes.com/athletic/6139897/2025/02/19/ideal-fantasy-baseball-draft-five-round-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-f
 **England cricketer Dan Mousley: "I ask the umpires the Villa score when I'm playing"**\
 `Dan Mousley is a Warwickshire and England cricketer with a bright future - but is very much at home in the North Stand at Villa Park`\
 https://nytimes.com/athletic/6141473/2025/02/19/dan-mousley-aston-villa-england-warwickshire-cricketer/
-
-**Remi Allen interview: A baptism of fire at Southampton, her coaching pathway and marriage to a rival manager**\
-`Allen is seven months into her role at the south-coast club and could potentially confront her wife in the Championship next season`\
-https://nytimes.com/athletic/6143516/2025/02/19/remi-allen-southampton-davies-interview/
 
