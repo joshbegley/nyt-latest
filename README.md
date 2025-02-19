@@ -1,3 +1,15 @@
+**Pakistan Hosts Top Cricket Championship, but India Skips the Party**\
+`India has refused to play its Champions Trophy matches in Pakistan, which is hosting its first major global tournament in almost 30 years.`\
+https://nytimes.com/2025/02/19/sports/cricket-champions-trophy-india-pakistan.html
+
+**Watch: Squad Cost Ratio & Anchoring - explained**\
+`The Athletic FC Podcast explain what the new Squad Cost Ratio and Anchoring rules are`\
+https://nytimes.com/athletic/6144456/2025/02/19/athletic-fc-podcast-squad-cost-anchoring/
+
+**Commanders salary-cap analysis: Where key decisions exist this offseason**\
+`Looking at what may transpire as Washington considers the contract situations for players such as Jonathan Allen and Marshon Lattimore.`\
+https://nytimes.com/athletic/6140855/2025/02/19/commanders-salary-cap-jonathan-allen/
+
 **In the best shape of our lives, ranking the best MLB spring training cliches**\
 `From "I don't want to leave anybody out" to "I'll do anything they need me to do" and others, a ranking of common spring training phrases.`\
 https://nytimes.com/athletic/6145181/2025/02/19/best-mlb-spring-training-cliches/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/19/world/middleeast/gaza-reconstruction-alternatives
 **‘Pedro Páramo,’ ‘Let’s Start a Cult’ and More Streaming Gems**\
 `Two releases from last year — one an inventive literary adaptation, the other a wild, gross-out comedy — are among this month’s streaming recommendations.`\
 https://nytimes.com/2025/02/19/movies/pedro-paramo-lets-start-a-cult-streaming-movies.html
-
-**The Deportees Trapped in a Panama Hotel**\
-`The Trump administration has asked Panama to take in hundreds of deportees, who the administration claims entered the United States illegally.`\
-https://nytimes.com/video/world/americas/100000009997018/the-deportees-trapped-in-a-panama-hotel.html
-
-**Finding Nirvana in a Pair of Socks**\
-`They resemble foil balloons, make a crackling sound when slipped on and, for a growing number of people, have become a simple luxury.`\
-https://nytimes.com/2025/02/19/style/maria-la-rosa-socks-laminated-ribbed-metallic.html
-
-**Trump Administration Moves to Fast-Track Hundreds of Fossil Fuel Projects**\
-`The U.S. Army Corps of Engineers has cited President Trump’s claim of a national energy emergency to speed up permits for new gas pipelines and other projects.`\
-https://nytimes.com/2025/02/19/climate/army-corps-engineers-fossil-fuel-permits.html
 
