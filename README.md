@@ -1,3 +1,7 @@
+**Trump Administration Moves to End New York’s Congestion Pricing Tolls**\
+`President Trump had raised concerns that the new tolling program, the first of its kind in America, was drawing visitors and businesses from Manhattan.`\
+https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing-nyc.html
+
 **Judge validates service of legal papers in proposed $70m lawsuit against Newcastle chairman**\
 `The Athletic first reported on the claims made against Al-Rumayyan in the court case in early 2024.`\
 https://nytimes.com/athletic/6146290/2025/02/19/yasir-al-rumayyan-case-newcastle-liv-golf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
 **Seattle mayor teases return of Sonics before saying: ‘I’m just kidding’**\
 `"Right now, at this moment, I have an announcement to make," Bruce Harrell said as he pulled out a basketball from under the podium.`\
 https://nytimes.com/athletic/6146264/2025/02/19/seattle-mayor-joke-nba-return/
-
-**Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
-`The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
-https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
 
