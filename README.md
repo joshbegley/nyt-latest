@@ -1,3 +1,7 @@
+**Tennis players love golf - but how good are their swings?**\
+`Top-10 player Casper Ruud is in Mexico for the next tournament of his season - but first, golf.`\
+https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
+
 **The Pulse: A brewing MLB disaster**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6145531/2025/02/19/vladimir-guerrero-jr-blue-jays-contract-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144864/2025/02/19/automated-strike-zone-yainer-dia
 **What's next for the Cubs after the Justin Turner deal and an offseason of 'constraints'**\
 `Said Jed Hoyer of the Cubs: "I don’t think it’s ever like: ‘Pencils down, we’re done.’ You’re always trying to make moves.”`\
 https://nytimes.com/athletic/6145645/2025/02/19/cubs-justin-turner-offseason-moves/
-
-**Scoot Henderson quieted his mind — and his game got louder**\
-`Since Scoot Henderson has been in the NBA, he’s never had this peace of mind. And along with a rebuilt shot, it's paying off.`\
-https://nytimes.com/athletic/6138969/2025/02/19/scoot-henderson-trail-blazers-future-nba/
 
