@@ -1,3 +1,11 @@
+**Bellingham banned for two La Liga games after red, Madrid to appeal**\
+`Bellingham was sent off in the first half of Madrid's draw with Osasuna for swearing at referee Jose Luis Munuera Montero`\
+https://nytimes.com/athletic/6138755/2025/02/19/jude-bellingham-red-car-real-madrid-appeal/
+
+**Meeting Again in Paris, European Leaders Try to Recalibrate After Trump Sides With Russia**\
+`The American president’s latest remarks embracing Vladimir Putin’s narrative that Ukraine is to blame for the war have compounded the sense of alarm among traditional allies.`\
+https://nytimes.com/2025/02/19/world/europe/europe-trump-russia-ukraine.html
+
 **Why the 2024-25 Oilers wear their jersey numbers**\
 `Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
 https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-m
 **The Pulse: A brewing MLB disaster**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6145531/2025/02/19/vladimir-guerrero-jr-blue-jays-contract-the-pulse/
-
-**College basketball mailbag: Next big-time coach to retire? Make UConn make sense**\
-`The non-Power 4 teams that can make deep runs in the tournament? And a headache for the selection committee.`\
-https://nytimes.com/athletic/6144773/2025/02/19/college-basketball-coach-retire-uconn/
-
-**As Moscow and Washington Talk, Russians Hope the Result Is Normalcy**\
-`Many people in Russia expressed relief that an end to the conflict in Ukraine seemed nearer and that the hardships of war, and the shunning of their country by much of the world, may soon end.`\
-https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
 

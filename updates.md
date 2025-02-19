@@ -1,3 +1,11 @@
+**Bellingham banned for two La Liga games after red, Madrid to appeal**\
+`Bellingham was sent off in the first half of Madrid's draw with Osasuna for swearing at referee Jose Luis Munuera Montero`\
+https://nytimes.com/athletic/6138755/2025/02/19/jude-bellingham-red-car-real-madrid-appeal/
+
+**Meeting Again in Paris, European Leaders Try to Recalibrate After Trump Sides With Russia**\
+`The American president’s latest remarks embracing Vladimir Putin’s narrative that Ukraine is to blame for the war have compounded the sense of alarm among traditional allies.`\
+https://nytimes.com/2025/02/19/world/europe/europe-trump-russia-ukraine.html
+
 **Why the 2024-25 Oilers wear their jersey numbers**\
 `Players are linked to the numbers on their backs, so it only makes sense to learn about why they’re associated with their specific digits.`\
 https://nytimes.com/athletic/6119810/2025/02/19/edmonton-oilers-jersey-numbers-2025/
