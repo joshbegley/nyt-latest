@@ -1,3 +1,7 @@
+**Ukraine’s Equation**\
+`The West has fractured, and Putin knows it.`\
+https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
+
 **Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
 `The lawsuit appeared to be an effort to pressure the justice hours after he received an indictment of Brazil’s former president.`\
 https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html

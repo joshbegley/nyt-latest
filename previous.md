@@ -1,3 +1,7 @@
+**Ukraine’s Equation**\
+`The West has fractured, and Putin knows it.`\
+https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
+
 **Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
 `The lawsuit appeared to be an effort to pressure the justice hours after he received an indictment of Brazil’s former president.`\
 https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145124/2025/02/19/chiefs-offseason-to-do-list-patr
 **DC Matt Eberflus expects Cowboys to be an 'attacking defense' in his return**\
 `Eberflus discussed personnel — from Osa Odighizuwa and Mazi Smith to Trevon Diggs and DaRon Bland — in addressing his plans for next season.`\
 https://nytimes.com/athletic/6145566/2025/02/19/cowboys-matt-eberflus-defensive-coordinator-micah-parsons/
-
-**Senators fan survey results: Trade targets, dream first-round playoff matchup and more**\
-`In our second survey of the season, fans had a much more cheerful outlook compared to late 2024.`\
-https://nytimes.com/athletic/6131843/2025/02/19/senators-trade-deadline-survey-dream-playoff-opponent/
 
