@@ -1,3 +1,7 @@
+**Experienced official Kovacs to referee Real Madrid vs. Man City**\
+`The 40-year-old has officiated Madrid matches in the Champions League on three previous occasions.`\
+https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manchester-city-who/
+
 **Kremlin Message to Trump: There’s Money to Be Made in Russia**\
 `Russian officials are arguing that American companies stand to make billions of dollars by re-entering Russia. The White House is listening.`\
 https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
 **Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
 `The lawsuit came hours after the justice received an indictment of Brazil’s former president, who is an ally of President Trump.`\
 https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
-
-**Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
-`"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
-https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
 
