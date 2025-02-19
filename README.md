@@ -1,3 +1,11 @@
+**Blake Lively Adds Claims From 2 Other Women to Justin Baldoni Lawsuit**\
+`In the amended complaint, Ms. Lively said that Mr. Baldoni, her co-star in “It Ends With Us,” made two other actresses on set uncomfortable and that they were willing to testify.`\
+https://nytimes.com/2025/02/19/us/blake-lively-justin-baldoni-lawsuit.html
+
+**Judge Orders Mississippi Newspaper to Remove Editorial, Alarming Press Advocates**\
+`The owner of The Clarksdale Press Register said he planned to challenge a judge’s order against an editorial that criticized city officials.`\
+https://nytimes.com/2025/02/19/us/mississippi-judge-newspaper-editorial.html
+
 **As Trump Turns Toward Russia and Against Ukraine, Republicans Are Mum**\
 `Congressional Republicans have mostly tempered their criticism or deferred to the president as he topples what were once their party’s core foreign policy principles.`\
 https://nytimes.com/2025/02/19/us/politics/trump-ukraine-russia-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/irs-layoffs.html
 **The Briefing: Real Madrid 3 Manchester City 1 - Mbappe's best Bernabeu display? How poor were City?**\
 `Real Madrid advanced through to the last-16 of the Champions League by beating Manchester City on Wednesday`\
 https://nytimes.com/athletic/6142159/2025/02/19/real-madrid-manchester-city-result-report-analysis/
-
-**USMNT's Weah scores for Juventus vs. PSV in Champions League**\
-`The USMNT star became the fifth American to score in the UEFA Champions League this season.`\
-https://nytimes.com/athletic/6147158/2025/02/19/tim-weah-goal-video-juventus-psv-champions-league-usmnt/
-
-**Yankees' Clarke Schmidt, pitching prospect Chase Hampton dealing with injuries**\
-`Schmidt is fighting through a "cranky back" while Hampton has been sent back to New York for tests.`\
-https://nytimes.com/athletic/6147001/2025/02/19/yankees-clarke-schmidt-chase-hampton-injuries/
 
