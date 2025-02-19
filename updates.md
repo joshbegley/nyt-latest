@@ -1,3 +1,15 @@
+**Pakistan Hosts Top Cricket Championship, but India Skips the Party**\
+`India has refused to play its Champions Trophy matches in Pakistan, which is hosting its first major global tournament in almost 30 years.`\
+https://nytimes.com/2025/02/19/sports/cricket-champions-trophy-india-pakistan.html
+
+**Watch: Squad Cost Ratio & Anchoring - explained**\
+`The Athletic FC Podcast explain what the new Squad Cost Ratio and Anchoring rules are`\
+https://nytimes.com/athletic/6144456/2025/02/19/athletic-fc-podcast-squad-cost-anchoring/
+
+**Commanders salary-cap analysis: Where key decisions exist this offseason**\
+`Looking at what may transpire as Washington considers the contract situations for players such as Jonathan Allen and Marshon Lattimore.`\
+https://nytimes.com/athletic/6140855/2025/02/19/commanders-salary-cap-jonathan-allen/
+
 **In the best shape of our lives, ranking the best MLB spring training cliches**\
 `From "I don't want to leave anybody out" to "I'll do anything they need me to do" and others, a ranking of common spring training phrases.`\
 https://nytimes.com/athletic/6145181/2025/02/19/best-mlb-spring-training-cliches/
