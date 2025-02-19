@@ -1,3 +1,7 @@
+**Sean Combs Argues He’s Facing a Mann Act Charge Because of His Race**\
+`The music mogul’s lawyers filed a motion to dismiss a sex-trafficking charge, saying that the law involved has “racist origins.”`\
+https://nytimes.com/2025/02/19/arts/music/sean-combs-diddy-dismiss-charge-racism.html
+
 **Danielle Sassoon Argued for an Inquiry Into the Request to Dismiss Adams’s Case**\
 `Before she resigned in protest, the former head of the Manhattan federal prosecutor’s office sent a letter that could give the judge ammunition for questioning the request.`\
 https://nytimes.com/2025/02/19/nyregion/danielle-sassoon-eric-adams-dismissal-inquiry.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146151/2025/02/19/nba-daily-warriors-draymond-gree
 **U.S. Attorney Casts Office as ‘Guardians of Federal Workers’**\
 `In an unusual email, the U.S. attorney in Washington, Ed Martin, spoke openly about a sensitive investigation into a threat against Pete Hegseth, the defense secretary.`\
 https://nytimes.com/2025/02/19/us/politics/ed-martin-hegseth-jan-6.html
-
-**Israeli Military Prosecutor Charges Five Reservists With Abuse of Detainee**\
-`Lawyers representing one of the soldiers said they have presented arguments that deny the charges against the reservists.`\
-https://nytimes.com/2025/02/19/world/middleeast/israeli-soldiers-charged-abuse-palestinian-detainee.html
 
