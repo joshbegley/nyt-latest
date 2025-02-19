@@ -1,3 +1,11 @@
+**Middle infield sleepers: Peña, Norby and more value picks for fantasy baseball 2025**\
+`Miami's Connor Norby is just one of several potential late-round MI steals our staff is offering up as a top sleeper pick for 2025.`\
+https://nytimes.com/athletic/6142592/2025/02/19/second-base-shortstop-sleepers-fantasy-baseball-2025/
+
+**England cricketer Dan Mousley: "I ask the umpires the Villa score when I'm playing"**\
+`Dan Mousley is a Warwickshire and England cricketer with a bright future - but is very much at home in the North Stand at Villa Park`\
+https://nytimes.com/athletic/6141473/2025/02/19/dan-mousley-aston-villa-england-warwickshire-cricketer/
+
 **Remi Allen interview: A baptism of fire at Southampton, her coaching pathway and marriage to a rival manager**\
 `Allen is seven months into her role at the south-coast club and could potentially confront her wife in the Championship next season`\
 https://nytimes.com/athletic/6143516/2025/02/19/remi-allen-southampton-davies-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143238/2025/02/19/mohammed-kudus-west-ham-analysis
 **Signing a centre-forward and tying down stars - Arsenal have a busy summer ahead**\
 `The club, and whoever becomes the new sporting director, have a packed in-tray on recruitment and retention`\
 https://nytimes.com/athletic/6128464/2025/02/19/arsenal-transfers-striker-havertz-injury/
-
-**Horse riding and padel help relax a hugely demanding manager - the Nuno you don't see**\
-`Lifting the lid on the man behind the manager overseeing Nottingham Forest's best season in decades`\
-https://nytimes.com/athletic/6143596/2025/02/19/nuno-you-dont-see-forest-manager/
-
-**Corner infield sleepers: Toglia, Shaw and more value picks for fantasy baseball 2025**\
-`Colorado's Michael Toglia is just one of several potential late-round CI steals our staff is offering up as a top sleeper pick for 2025.`\
-https://nytimes.com/athletic/6142403/2025/02/19/corner-infield-sleepers-fantasy-baseball-2025/
 
