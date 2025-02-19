@@ -1,3 +1,7 @@
+**Bruins defenseman Charlie McAvoy has shoulder injury, infection — out for U.S. for 4 Nations final**\
+`Jake Sanderson skated in McAvoy's place against Sweden, and Team USA coach Mike Sullivan said Quinn Hughes could be an option, as well.`\
+https://nytimes.com/athletic/6143867/2025/02/19/bruins-usa-charlie-mcavoy-injury/
+
 **Seven men charged for alleged roles in robberies targeting athletes' homes**\
 `They were charged with conspiracy to commit interstate transportation of stolen property and face a maximum penalty of 10 years in prison.`\
 https://nytimes.com/athletic/6146093/2025/02/19/charges-athlete-home-robberies/
