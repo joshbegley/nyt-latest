@@ -1,3 +1,7 @@
+**Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
+`The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees, who have been denied access to lawyers.`\
+https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
+
 **At Kennedy Center, Trump Inherits a Tough Job: Fund-Raising**\
 `For the arts institution, which receives only a small portion of its budget from federal funding, the perennial challenge is to raise additional revenue through ticket sales and private donations.`\
 https://nytimes.com/2025/02/19/arts/trump-kennedy-center-finances.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/technology/microsoft-quantum-computing-topologica
 **Is ‘Zone 2’ the Magic Effort Level for Exercise?**\
 `Enthusiasts claim that these long, slow workouts could be the key to longevity and better health. Here’s what the science actually says.`\
 https://nytimes.com/2025/02/19/well/move/zone-2-exercise-benefits.html
-
-**Zelensky Pushes Back on Trump “Disinformation”**\
-`President Volodymyr Zelensky of Ukraine responded to President Trump’s comments on the war. Among other things, Mr. Trump had suggested that Ukraine had started the war, and he appeared to embrace what has been a Russian demand that Ukraine hold presidential elections.`\
-https://nytimes.com/video/world/europe/100000009999141/zelensky-trump-ukraine-russia-war.html
 
