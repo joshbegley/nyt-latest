@@ -1,3 +1,7 @@
+**Read the Letter From the Transportation Secretary About Congestion Pricing**\
+`The Trump administration moved to end New York City’s congestion pricing program by revoking federal approval for the tolls.`\
+https://nytimes.com/interactive/2025/02/19/nyregion/congestion-pricing-termination-letter.html
+
 **Ukrainians, Stunned by Trump’s Comments, Fear They Can No Longer Trust U.S.**\
 `President Trump’s claim that Ukraine was responsible for its war with Russia has left many Ukrainians disillusioned.`\
 https://nytimes.com/2025/02/19/world/europe/ukrainians-trump-voices.html
