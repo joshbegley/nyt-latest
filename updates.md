@@ -1,3 +1,11 @@
+**Wordle Review No. 1,342**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/crosswords/wordle-review-1342.html
+
+**Connections Companion No. 620**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/crosswords/connections-companion-620.html
+
 **Meet Germany’s Far-Right Leader, a Study in Contradictions**\
 `Alice Weidel of the nationalist, anti-immigrant Alternative for Germany lives in Switzerland and is married to a Sri Lankan-born woman. She had led her party to second place before Sunday’s election.`\
 https://nytimes.com/2025/02/19/world/europe/meet-germanys-far-right-leader-a-study-in-contradictions.html
