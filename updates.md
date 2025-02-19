@@ -1,3 +1,7 @@
+**Twins camp changes: How and why Rocco Baldelli restructured spring workouts**\
+`"It just brings everybody together." Several key veterans lauded the restructured, fundamentally focused spring camp run by Baldelli. `\
+https://nytimes.com/athletic/6144824/2025/02/19/twins-spring-training-camp-changes-rocco-baldelli/
+
 **Tennis players love golf - but how good are their swings?**\
 `Top-10 player Casper Ruud is in Mexico for the next tournament of his season - but first, golf.`\
 https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
