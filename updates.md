@@ -1,3 +1,11 @@
+**MoneyCall: Three NBA lessons from the NHL**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6145704/2025/02/19/nba-nhl-all-star-4-nations-moneycall-newsletter/
+
+**Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
+`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings due to rising tension with South Africa over its land policies.`\
+https://nytimes.com/2025/02/19/business/bessent-to-skip-g20-finance-ministers-meeting-in-south-africa.html
+
 **Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
 `The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\
 https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
