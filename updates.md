@@ -1,3 +1,11 @@
+**Destination of a Walk**\
+`Joe Deeney leaves us in stitches.`\
+https://nytimes.com/2025/02/18/crosswords/daily-puzzle-2025-02-19.html
+
+**Trump Issues Order to Expand His Power Over Agencies Congress Made Independent**\
+`The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
+https://nytimes.com/live/2025/02/18/us/trump-news/trump-executive-order-sec-ftc-fcc
+
 **Rosenthal: Blue Jays never should have reached this point with Vladimir Guerrero Jr.**\
 `The team had plenty of chances to reach a contract extension with their homegrown star long before Tuesday's self-imposed deadline.`\
 https://nytimes.com/athletic/6143102/2025/02/18/vladimir-guerrero-blue-jays-extension-talks/
