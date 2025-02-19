@@ -1,3 +1,11 @@
+**Raphael Varane interview: Real Madrid and Man United differences, Erik ten Hag relationship and retiring**\
+`World Cup and four-time Champions League winner Varane speaks openly about the highs and lows of playing for Madrid and United`\
+https://nytimes.com/athletic/6144156/2025/02/19/raphael-varane-real-madrid-como-man-utd-ten-hag/
+
+**Varane 'surprised' Man Utd gave Ten Hag new deal after 2023-24**\
+`The build-up to United’s 2-1 FA Cup victory over Manchester City in May was dominated by uncertainty over Ten Hag’s future.`\
+https://nytimes.com/athletic/6145061/2025/02/19/raphael-varane-manchester-united-erik-ten-hag/
+
 **Bomber Given 10 Years in Prison for Trying to Kill Japanese Premier**\
 `A court found the assailant guilty of attempted murder in the 2023 attack on then-prime minister, Fumio Kishida.`\
 https://nytimes.com/2025/02/19/world/asia/japan-prime-minister-attacker-jail.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/opinion/trump-munich-security-conference.html
 **Congo Is Bleeding. Where Is the Outrage?**\
 `This is not the first time the world has overlooked violence in Congo.`\
 https://nytimes.com/2025/02/19/opinion/congo-rwanda-rebels-war.html
-
-**Kansas suffers 34-point defeat vs. BYU, tying worst loss of Bill Self era**\
-`The last time Kansas saw an opponent win by 34 was in March 2021 when USC downed the Jayhawks to advance to the Sweet 16.`\
-https://nytimes.com/athletic/6145705/2025/02/19/kansas-byu-34-point-loss-bill-self/
-
-**Fantasy baseball ADP report: Early top picks, positional outlooks and inviting targets**\
-`Scott Engel provides an early rundown of the ADP nuances at play for fantasy baseball 2025, including top picks and positional outlooks.`\
-https://nytimes.com/athletic/6142639/2025/02/19/adp-report-1-fantasy-baseball-2025-position-outlooks-top-picks/
 
