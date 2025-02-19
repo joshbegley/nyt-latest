@@ -1,7 +1,3 @@
-**What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
-`With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
-https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
-
 **N.Y.U. College Republicans President Resigns After Remarks About Barron Trump**\
 `The leader of the national organization said that the university chapter’s president had not been authorized to speak with “Vanity Fair” for a profile in which she said President Trump’s youngest son was “sort of like an oddity on campus.”`\
 https://nytimes.com/2025/02/18/us/barron-trump-nyu-college-republicans.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6144984/2025/02/18/red-sox-third-base-alex-bregman-
 **5 Factors That May Shape Hochul’s Decision on Adams’s Fate**\
 `Amid increasing calls to remove Mayor Eric Adams from office, Gov. Kathy Hochul of New York is weighing a complicated set of considerations.`\
 https://nytimes.com/2025/02/18/nyregion/hochul-adams-removal.html
+
+**Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
+`In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
+https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
 
