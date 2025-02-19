@@ -1,3 +1,7 @@
+**PGA Tour and Saudis Seek Friendlier Deal Terms Under Trump**\
+`A tie-up involving the tour and LIV Golf was stalled under President Biden. They’re aiming to forge a new agreement under President Trump.`\
+https://nytimes.com/2025/02/18/business/dealbook/pga-tour-liv-golf-saudi-deal-trump.html
+
 **Right-Wing Media Praises U.S.-Russia Talks as ‘Breath of Fresh Air’**\
 `Many of President Trump’s media allies were quick to celebrate this week’s negotiations, a contrast to the deep unease expressed by the foreign policy establishment.`\
 https://nytimes.com/2025/02/18/business/media/trump-russia-right-wing-media.html
