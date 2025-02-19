@@ -1,3 +1,7 @@
+**Trump Issues Order to Expand His Power Over Agencies Congress Made Independent**\
+`The president has already challenged statutory protections against summarily firing officials overseeing such agencies without cause.`\
+https://nytimes.com/2025/02/18/us/trump-executive-order-sec-ftc-fcc.html
+
 **ASAP Rocky Reacts to Acquittal**\
 `The courtroom broke out into cheers after the jury found the rapper Rakim Mayers, known as ASAP Rocky, not guilty of shooting a former collaborator.`\
 https://nytimes.com/video/us/100000009998491/asap-rocky-verdict-acquittal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6145021/2025/02/18/f1-75-live-launch-event-2025-sea
 **ASAP Rocky Acquitted of Shooting Former Friend**\
 `The rapper had faced two felony counts of assault with a firearm in connection with a 2021 altercation in Los Angeles.`\
 https://nytimes.com/2025/02/18/arts/music/asap-rocky-not-guilty-assault-trial.html
-
-**HP to Buy Humane, Maker of the Ai Pin, for $116 Million**\
-`Humane, which marketed its Ai Pin as the next big thing after smartphones, had raised $240 million from investors, including OpenAI’s Sam Altman. The pin will be discontinued.`\
-https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
 
