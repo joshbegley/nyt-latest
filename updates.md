@@ -1,3 +1,11 @@
+**Hochul May Deploy National Guard as Wildcat Strikes Hit 25 N.Y. Prisons**\
+`Corrections officers, without their union’s approval, refused to show up for work to protest what they say are hazardous conditions and severe staff shortages.`\
+https://nytimes.com/2025/02/18/nyregion/ny-prisons-strikes-national-guard.html
+
+**What we're seeing at Yankees camp: Good vibes, a battle at third base, locker assignments**\
+`With a crushing defeat in last year's World Series behind them, the Yankees are gearing up for 2025 with an eye on making it back.`\
+https://nytimes.com/athletic/6145198/2025/02/18/new-york-yankees-spring-training-notebook/
+
 **Meghan Reimagines Her Lifestyle Brand, Calling It As Ever**\
 `In an Instagram video posted ahead of her upcoming Netflix series, the Duchess of Sussex announced her brand’s new name and its revamped focus.`\
 https://nytimes.com/2025/02/18/style/meghan-markle-rebrands-american-riviera-orchard.html
