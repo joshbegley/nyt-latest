@@ -1,3 +1,11 @@
+**Trillions of Viruses Live in Your Body. A.I. Is Trying to Find Them.**\
+`The Human Virome Program will analyze samples from thousands of volunteers in an effort to understand how viruses affect health.`\
+https://nytimes.com/2025/02/19/health/human-virome-program.html
+
+**I Found Pornography on My Husband’s Computer. I’m Furious!**\
+`A wife feels disgusted and betrayed after discovering a lurid image of another woman on her husband’s computer screen, and worries that he may have permanently damaged their relationship.`\
+https://nytimes.com/2025/02/19/style/pornography-partner-resentment.html
+
 **Chargers to open 2025 season in Brazil as NFL returns to São Paulo**\
 `Los Angeles will be the designated home team for the second regular-season game in the South American country.`\
 https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143669/2025/02/19/oilers-trade-deadline-bowman-jor
 **Ashworth's five-month Man United tenure cost £4m, accounts reveal**\
 `Ashworth left in December only five months after officially joining from Newcastle United.`\
 https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
-
-**Experienced official Kovacs to referee Real Madrid vs. Man City**\
-`The 40-year-old has officiated Madrid matches in the Champions League on three previous occasions.`\
-https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manchester-city-who/
-
-**Kremlin Message to Trump: There’s Money to Be Made in Russia**\
-`Russian officials are arguing that American companies stand to make billions of dollars by re-entering Russia. The White House is listening.`\
-https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.html
 
