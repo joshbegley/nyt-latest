@@ -1,3 +1,11 @@
+**Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
+`The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
+https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
+
+**Musk and the Right Co-Opt the Left’s Critique of U.S. Power**\
+`Suspicion about covert operations and soft power used to be mostly the purview of the left. No more.`\
+https://nytimes.com/2025/02/19/us/politics/musk-and-the-right-co-opt-the-lefts-critique-of-us-power.html
+
 **You Can Take the Fried Chicken Out of Kentucky …**\
 `KFC, formerly named Kentucky Fried Chicken, disappointed state leaders when it announced it was moving to Texas.`\
 https://nytimes.com/2025/02/19/business/kfc-texas-kentucky-fried-chicken.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/arts/trump-kennedy-center-finances.html
 **Trump picks former aide for top national security job at Justice Dept.**\
 `John Eisenberg, known for his dislike of leaks, served in the first Trump White House.`\
 https://nytimes.com/live/2025/02/19/us/trump-news/trump-picks-former-aide-for-top-national-security-job-at-justice-dept
-
-**A Frustrated Trump Wants His New Air Force One Planes Pronto**\
-`Among the ways being discussed to force faster delivery of two presidential planes are relaxing security clearances for Boeing workers and even purchasing a temporary luxury plane and retrofitting it.`\
-https://nytimes.com/2025/02/19/us/politics/trump-musk-air-force-one-boeing.html
-
-**Let’s Discuss: Covering the White House**\
-`What is it like to report on the president? Ask Zolan Kanno-Youngs, a Times White House correspondent. Post your questions for him here by Feb. 27.`\
-https://nytimes.com/2025/02/19/learning/lesson-plans/lets-discuss-covering-the-white-house.html
 
