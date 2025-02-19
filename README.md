@@ -1,3 +1,15 @@
+**The Pulse: A brewing MLB disaster**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6145531/2025/02/19/vladimir-guerrero-jr-blue-jays-contract-the-pulse/
+
+**College basketball mailbag: Next big-time coach to retire? Make UConn make sense**\
+`The non-Power 4 teams that can make deep runs in the tournament? And a headache for the selection committee.`\
+https://nytimes.com/athletic/6144773/2025/02/19/college-basketball-coach-retire-uconn/
+
+**As Moscow and Washington Talk, Russians Hope the Result Is Normalcy**\
+`Many people in Russia expressed relief that an end to the conflict in Ukraine seemed nearer and that the hardships of war, and the shunning of their country by much of the world, may soon end.`\
+https://nytimes.com/2025/02/19/world/europe/russia-ukraine-trump-talks.html
+
 **Israelis Gird for Release of Bodies of Captives From Gaza**\
 `In contrast to the joyful scenes of living hostages returning home over the past few weeks, the transfer of bodies on Thursday, including those of two children, will be somber.`\
 https://nytimes.com/2025/02/19/world/middleeast/hostage-bodies-release-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6145645/2025/02/19/cubs-justin-turner-offseason-mov
 **Scoot Henderson quieted his mind — and his game got louder**\
 `Since Scoot Henderson has been in the NBA, he’s never had this peace of mind. And along with a rebuilt shot, it's paying off.`\
 https://nytimes.com/athletic/6138969/2025/02/19/scoot-henderson-trail-blazers-future-nba/
-
-**Red Wings' Larkin and Raymond star on 4 Nations stage. Up next: a playoff race**\
-`Larkin and Raymond were already stars in Detroit, but their play at the 4 Nations Face-Off showcased them to an even wider audience.`\
-https://nytimes.com/athletic/6145081/2025/02/19/dylan-larkin-lucas-raymond-red-wings-4-nations/
-
-**Ersson's confidence in net, Michkov's season arc, more: 6 Flyers roster storylines**\
-`With 25 games left in the season, the stretch run for the Flyers is more about getting a better idea of what their roster has to offer.`\
-https://nytimes.com/athletic/6144617/2025/02/19/flyers-roster-storylines-ersson-michkov-tortorella/
-
-**The William Nylander scoring boom: Why it's more than just shooting luck**\
-`William Nylander is second in NHL goal scoring. How is he scoring at the highest rate of his career?`\
-https://nytimes.com/athletic/6142964/2025/02/19/maple-leafs-william-nylander-goals-shooting/
 
