@@ -1,3 +1,7 @@
+**At Kennedy Center, Trump Inherits a Tough Job: Fund-Raising**\
+`For the arts institution, which receives only a small portion of its budget from federal funding, the perennial challenge is to raise additional revenue through ticket sales and private donations.`\
+https://nytimes.com/2025/02/19/arts/trump-kennedy-center-finances.html
+
 **Trump picks former aide for top national security job at Justice Dept.**\
 `John Eisenberg, known for his dislike of leaks, served in the first Trump White House.`\
 https://nytimes.com/live/2025/02/19/us/trump-news/trump-picks-former-aide-for-top-national-security-job-at-justice-dept
