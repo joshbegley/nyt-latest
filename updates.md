@@ -1,3 +1,7 @@
+**Winnie Harlow and Kyle Kuzma’s Engagement Met With Star-Studded Congratulations**\
+`The couple’s happy news captured the hearts of celebrity friends and fans alike.`\
+https://nytimes.com/2025/02/19/fashion/weddings/winnie-harlow-kyle-kuzmas-engagement.html
+
 **What Is Elon Musk’s Job?**\
 `Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
 https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
