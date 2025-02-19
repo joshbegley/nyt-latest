@@ -1,4 +1,8 @@
 **Alliance with Big Ten could help push SEC to 9-game conference schedule**\
+`The SEC's football scheduling debate might finally be nearing an end. Then again, that has been assumed before.`\
+https://nytimes.com/athletic/6147551/2025/02/19/sec-football-nine-game-schedule/
+
+**Alliance with Big Ten could help push SEC to 9-game conference schedule**\
 `The SEC's football scheduling debate may finally be nearing an end. Then again, that has been assumed before.`\
 https://nytimes.com/athletic/6147551/2025/02/19/sec-football-nine-game-schedule/
 
