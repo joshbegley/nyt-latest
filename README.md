@@ -1,3 +1,11 @@
+**MoneyCall: Three NBA lessons from the NHL**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6145704/2025/02/19/nba-nhl-all-star-4-nations-moneycall-newsletter/
+
+**Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
+`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings due to rising tension with South Africa over its land policies.`\
+https://nytimes.com/2025/02/19/business/bessent-to-skip-g20-finance-ministers-meeting-in-south-africa.html
+
 **Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
 `The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\
 https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/dining/make-this-melissa-pasta-tonight.html
 **A Compliant Congress Earns High Marks, but Probably Not for Long**\
 `A major public poll indicates that Americans’ approval for Congress has soared, powered by a surge in positive assessments by Republicans. History shows such booms are common and rarely last.`\
 https://nytimes.com/2025/02/19/us/politics/congress-approval-republicans.html
-
-**Microsoft Says It Has Created a New State of Matter to Power Quantum Computers**\
-`Microsoft’s new “topological qubit” is not based on a solid, liquid or gas. It is another phase of matter that many experts did not think was possible.`\
-https://nytimes.com/2025/02/19/technology/microsoft-quantum-computing-topological-qubit.html
-
-**Is ‘Zone 2’ the Magic Effort Level for Exercise?**\
-`Enthusiasts claim that these long, slow workouts could be the key to longevity and better health. Here’s what the science actually says.`\
-https://nytimes.com/2025/02/19/well/move/zone-2-exercise-benefits.html
 
