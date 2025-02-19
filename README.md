@@ -1,3 +1,7 @@
+**Pope Has ‘Peaceful Night’ After Pneumonia Diagnosis, Vatican Says**\
+`The Vatican said Francis had slept well and eaten breakfast. A further medical update is expected later on Wednesday.`\
+https://nytimes.com/2025/02/19/world/europe/pope-francis-health.html
+
 **Stephen Colbert Laughs Off New York Mayor’s Staffing Woes**\
 `This week, Colbert said, Eric Adams’s problems “stopped being funny and started becoming hilarious.”`\
 https://nytimes.com/2025/02/19/arts/television/colbert-mayor-eric-adams.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/02/19/nyregion/judge-dale-ho-eric-adams.html
 **When Food Is Only a Portion of the Story**\
 `For Kim Severson, a reporter based in Atlanta who writes about food culture for The Times, the way we eat reflects where we are as a society.`\
 https://nytimes.com/2025/02/19/insider/kim-severson-food-journalism.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/19/crosswords/spelling-bee-forum.html
 
