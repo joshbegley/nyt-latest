@@ -1,3 +1,11 @@
+**Then and Now: How Republican Senators Have Shifted Tone on Russia and Ukraine**\
+`Some of the most vocal critics of Vladimir V. Putin and proponents of the United States’ role as a global defender of democracy have acquiesced to Mr. Trump on Russia.`\
+https://nytimes.com/2025/02/19/us/politics/trump-putin-senate-gop-ukraine.html
+
+**Big Ten, SEC to push for CFP to be seeded entirely by final rankings**\
+`The change supported by the leagues would eliminate the reservation of top-four seeds and first-round byes for conference champions.`\
+https://nytimes.com/athletic/6147236/2025/02/19/college-football-playoff-seeding-big-ten-sec/
+
 **Slot: Bradley to miss at least two games after injury against Villa**\
 `Bradley has made 22 appearances for Liverpool this season, with nine of those as a starter.`\
 https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
