@@ -1,3 +1,7 @@
+**ASAP Rocky Acquitted of Shooting Former Friend**\
+`The rapper had faced two felony counts of assault with a firearm in connection with a 2021 altercation in Los Angeles.`\
+https://nytimes.com/2025/02/18/arts/music/asap-rocky-not-guilty-assault-trial.html
+
 **HP to Buy Humane, Maker of the Ai Pin, for $116 Million**\
 `Humane, which marketed its Ai Pin as the next big thing after smartphones, had raised $240 million from investors, including OpenAI’s Sam Altman. The pin will be discontinued.`\
 https://nytimes.com/2025/02/18/technology/hp-humane-ai-pin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/18/health/pope-francis-bilateral-pneumonia.html
 **Amid Crashes, What Passengers Should Know About Airplane Safety**\
 `A spate of airplane crashes has raised travelers’ anxieties about flying. Experts say aviation remains comparatively less risky than other forms of transport and offer tips for staying safer.`\
 https://nytimes.com/2025/02/18/travel/plane-crashes-flight-safety.html
-
-**Senate Confirms Howard Lutnick as Commerce Secretary**\
-`A longtime Wall Street executive, Mr. Lutnick will take on a broad portfolio that includes defending U.S. business interests and overseeing restrictions on technology exports.`\
-https://nytimes.com/2025/02/18/us/politics/howard-lutnick-confirmed-commerce.html
 
