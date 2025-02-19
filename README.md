@@ -1,3 +1,11 @@
+**Bruins address Charlie McAvoy infection, potential long-term absence after removing him from Team USA care**\
+`Bruins coach Joe Sacco said he "wouldn’t expect (McAvoy) in the short-term" as the franchise defenseman remains hospitalized.`\
+https://nytimes.com/athletic/6146747/2025/02/19/charlie-mcavoy-bruins-injury-team-usa/
+
+**Civil Rights Groups Sue Trump Administration Over D.E.I. Orders**\
+`The organizations claimed that the president had exceeded his authority in issuing the orders, and that they intentionally discriminated against Black and transgender people.`\
+https://nytimes.com/2025/02/19/us/politics/dei-trump-lawsuit.html
+
 **Are We Just Going to Forget About Climate Justice?**\
 `A provocative new book asks what we owe one another in a heating world.`\
 https://nytimes.com/2025/02/19/opinion/climate-justice-trump-sunstein.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6146829/2025/02/19/evgeni-malkin-retirement-penguin
 `Scientists worry that the losses may open the door to human, plant and animal diseases that would otherwise have been caught.`\
 https://nytimes.com/2025/02/19/health/trump-border-health-inspections.html
 
-**Venus Williams receives wild card to Indian Wells**\
+**Venus Williams receives wild-card entry to Indian Wells**\
 `Williams is 44 years old and has not played a WTA Tour-level match in nearly a year.`\
 https://nytimes.com/athletic/6146791/2025/02/19/venus-williams-indian-wells/
-
-**With Truth Social, Trump Has Official Mouthpiece and a Channel for Revenue**\
-`The president’s company, Trump Media & Technology Group, represents a clear mingling of his official duties and his business interests.`\
-https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
-
-**Mediterranean Braces for a Sharp Temperature Drop and Snow**\
-`Through early next week, a surge of cold air will plunge temperatures far below what is typical for the region.`\
-https://nytimes.com/2025/02/19/weather/greece-cold-snow-coral.html
 
