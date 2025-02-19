@@ -1,6 +1,14 @@
+**Are We Just Going to Forget About Climate Justice?**\
+`A provocative new book asks what we owe one another in a heating world.`\
+https://nytimes.com/2025/02/19/opinion/climate-justice-trump-sunstein.html
+
+**Woman Who Gave Birth to Another Couple’s Baby Sues I.V.F. Clinic**\
+`The woman, a Georgia resident, lost custody of the child she had carried. The in vitro fertilization clinic, Coastal Fertility Specialists, apologized for “an embryo transfer mix-up.”`\
+https://nytimes.com/2025/02/19/us/georgia-embryo-ivf-mistake.html
+
 **Trump, Musk and the Reality Behind the Lovefest**\
 `President Trump and Elon Musk gushed over each other during a joint appearance on Fox News. But the interview was fascinating for all the things they did not explain.`\
-https://nytimes.com/live/2025/02/19/us/trump-news/trump-musk-fox-interview
+https://nytimes.com/2025/02/19/us/politics/trump-musk-fox-interview.html
 
 **Eagles promote Kevin Patullo to offensive coordinator**\
 `Patullo has served as the Eagles passing game coordinator since 2021 and added associate head coach to his title in 2023.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/truth-social-trump-media.html
 **Mediterranean Braces for a Sharp Temperature Drop and Snow**\
 `Through early next week, a surge of cold air will plunge temperatures far below what is typical for the region.`\
 https://nytimes.com/2025/02/19/weather/greece-cold-snow-coral.html
-
-**Team USA's Matthew Tkachuk declares Tkachuk brothers 'ready to go' vs. Canada for 4 Nations final**\
-`Matthew Tkachuk said that he wouldn't "want to miss" the finale vs. Canada and that he expects brother Brady to "be at his absolute best."`\
-https://nytimes.com/athletic/6146666/2025/02/19/united-states-tkachuk-brothers-4-nations-injuries/
-
-**Chelsea's Casteldine has Shrewsbury loan cut short due to back injury**\
-`Chelsea under-21 midfielder Leo Castledine has had his season-long loan at Shrewsbury Town cut short for the time being due to suffering a minor stress fracture in his lower back.`\
-https://nytimes.com/athletic/6146642/2025/02/19/chelsea-casteldine-shrewsbury-injury-loan/
 
