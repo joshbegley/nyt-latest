@@ -1,3 +1,11 @@
+**The Met Opera’s New Season: What We’re Excited to See**\
+`Our critics choose highlights from a lineup that includes six new productions and modern works by Mason Bates, Kaija Saariaho and Gabriela Lena Frank.`\
+https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
+
+**Seattle mayor teases return of Sonics before saying: ‘I’m just kidding’**\
+`"Right now, at this moment, I have an announcement to make," Bruce Harrell said as he pulled out a basketball from under the podium.`\
+https://nytimes.com/athletic/6146264/2025/02/19/seattle-mayor-joke-nba-return/
+
 **Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
 `The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
 https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/business/bessent-to-skip-g20-finance-ministers-me
 **Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
 `The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\
 https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
-
-**At Kennedy Center, Trump Inherits a Tough Job: Fund-Raising**\
-`For the arts institution, which receives only a small portion of its budget from federal funding, the perennial challenge is to raise additional revenue through ticket sales and private donations.`\
-https://nytimes.com/2025/02/19/arts/trump-kennedy-center-finances.html
-
-**Trump picks former aide for top national security job at Justice Dept.**\
-`John Eisenberg, known for his dislike of leaks, served in the first Trump White House.`\
-https://nytimes.com/live/2025/02/19/us/trump-news/trump-picks-former-aide-for-top-national-security-job-at-justice-dept
 

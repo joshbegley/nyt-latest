@@ -1,3 +1,11 @@
+**The Met Opera’s New Season: What We’re Excited to See**\
+`Our critics choose highlights from a lineup that includes six new productions and modern works by Mason Bates, Kaija Saariaho and Gabriela Lena Frank.`\
+https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
+
+**Seattle mayor teases return of Sonics before saying: ‘I’m just kidding’**\
+`"Right now, at this moment, I have an announcement to make," Bruce Harrell said as he pulled out a basketball from under the podium.`\
+https://nytimes.com/athletic/6146264/2025/02/19/seattle-mayor-joke-nba-return/
+
 **Millions of Dead People on Social Security? The Agency’s Own Data Says Otherwise.**\
 `The database includes millions of Americans who are probably dead but who have no death records. But they generally don’t collect checks.`\
 https://nytimes.com/2025/02/19/upshot/social-security-fraud-claim-musk.html
