@@ -1,3 +1,7 @@
+**What Does Trump’s Executive Order for I.V.F. Mean?**\
+`The president says he is seeking ways to “aggressively reduce” the cost of the fertility treatment.`\
+https://nytimes.com/2025/02/19/us/politics/trump-ivf-executive-order.html
+
 **Paqueta out for up to four weeks with ankle injury**\
 `The midfielder posted a story on his Instagram account of his right foot and ankle in a protective boot on Wednesday.`\
 https://nytimes.com/athletic/6146378/2025/02/19/west-ham-lucas-paqueta-injury/
