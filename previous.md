@@ -31,8 +31,8 @@ https://nytimes.com/athletic/6146311/2025/02/19/nfls-controversial-franchise-tag
 https://nytimes.com/athletic/6145704/2025/02/19/nba-nhl-all-star-4-nations-moneycall-newsletter/
 
 **Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
-`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings due to rising tension with South Africa over its land policies.`\
-https://nytimes.com/2025/02/19/business/bessent-to-skip-g20-finance-ministers-meeting-in-south-africa.html
+`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings because of rising tension with South Africa over its land policies.`\
+https://nytimes.com/2025/02/19/us/politics/bessent-g20-south-africa.html
 
 **Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
 `The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\

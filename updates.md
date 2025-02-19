@@ -1,3 +1,7 @@
+**Bessent to Skip G20 Finance Ministers Meeting in South Africa**\
+`The Treasury secretary is the second top U.S. official to boycott the Group of 20 gatherings because of rising tension with South Africa over its land policies.`\
+https://nytimes.com/2025/02/19/us/politics/bessent-g20-south-africa.html
+
 **The Met Opera’s New Season: What We’re Excited to See**\
 `Our critics choose highlights from a lineup that includes six new productions and modern works by Mason Bates, Kaija Saariaho and Gabriela Lena Frank.`\
 https://nytimes.com/2025/02/19/arts/music/met-opera-2025-26-season.html
