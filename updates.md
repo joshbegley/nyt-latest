@@ -1,3 +1,15 @@
+**Fake viral social posts on Messi, Ronaldo sons; Varane exclusive; embarrassing Euro exits**\
+`Today in TAFC - the viral social posts surrounding Messi and Ronaldo's sons, which are not real. Plus: Varane exclusive interview`\
+https://nytimes.com/athletic/6145864/2025/02/19/messi-ronaldo-social-posts-varane-exclusive/
+
+**Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
+`The lawsuit came hours after the justice received an indictment of Brazil’s former president, who is an ally of President Trump.`\
+https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
+
+**Tennis players love golf - but how good are their swings?**\
+`Top-10 player Casper Ruud is in Mexico for the next tournament of his season — but first, golf.`\
+https://nytimes.com/athletic/6141914/2025/02/19/tennis-players-golf-ruud-nadal-murray/
+
 **Ukraine’s Equation**\
 `The West has fractured, and Putin knows it.`\
 https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
