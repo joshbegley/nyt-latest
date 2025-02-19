@@ -1,3 +1,15 @@
+**Democratic lawmakers see ‘pattern of political interference’ with U.S. prosecutors.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-pattern-of-political-interference-with-us-prosecutors
+
+**NASCAR issues hefty penalty against Chase Briscoe, JGR for illegal modification**\
+`NASCAR issued a 100-point penalty and suspended Briscoe's crew chief for four weeks. He also lost 10 playoff points and JGR was fined.`\
+https://nytimes.com/athletic/6147450/2025/02/19/nascar-penalty-chase-briscoe-daytona-500-jgr/
+
+**Lakers' Luka Dončić expected to be off minutes limit vs. Hornets**\
+`The star Lakers acquired in a blockbuster deal ahead of the trade deadline has been dealing with a calf injury.`\
+https://nytimes.com/athletic/6147059/2025/02/19/lakers-luka-doncic-minutes-hornets/
+
 **Missouri Clinics Resume Abortions, Following Abortion Rights Referendum**\
 `Abortion opponents had tried to block, or severely limit, the procedure, against the will of voters who in November enshrined abortion rights in the state constitution.`\
 https://nytimes.com/2025/02/19/us/missouri-abortion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/19/health/mehmet-oz-medicare-medicaid-stocks.html
 **The Escalating Feud Between Trump and Ukraine’s Leader**\
 `Also, Microsoft said it created a new state of matter. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/02/19/briefing/trump-ukraine-feud-microsoft-new-state-of-matter.html
-
-**Three of Dawoud Bey’s Favorite Artworks**\
-`The photographer discusses Alice Neel, Walker Evans and the way he brings Black gestures and history to the foreground of his portraits.`\
-https://nytimes.com/2025/02/19/t-magazine/dawoud-bey-alice-neel-walker-evans.html
-
-**Mets begin search for the next Dedniel Núñez, a surprise contributor in the bullpen**\
-`The Mets talk a lot about sustainability, so it's imperative that they unearth some under-the-radar pitchers.`\
-https://nytimes.com/athletic/6146547/2025/02/19/mets-pitching-development-dedniel-nunez/
-
-**Trump Flips the Script on the Ukraine War, Blaming Zelensky Not Putin**\
-`As he seeks to negotiate a peace deal with Moscow, President Trump has cast Ukraine as the instigator of the conflict, not the Russians who invaded it.`\
-https://nytimes.com/2025/02/19/us/politics/trump-zelensky-russia-ukraine-war.html
 
