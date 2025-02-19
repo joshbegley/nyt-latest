@@ -1,3 +1,7 @@
+**Chargers to open 2025 season in Brazil as NFL returns to São Paulo**\
+`Los Angeles will be the designated home team for the second regular-season game in the South American country.`\
+https://nytimes.com/athletic/6121375/2025/02/19/chargers-brazil-game-2025/
+
 **Is Russia Open for Business — and at What Cost?**\
 `Investors seem open to the prospect of peace talks, but Western companies face a dilemma just three years after many retreated from the country.`\
 https://nytimes.com/2025/02/19/business/dealbook/russia-business-peace-talks.html
