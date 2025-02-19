@@ -1,4 +1,8 @@
 **Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
+`The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees.`\
+https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
+
+**Migrants, Deported to Panama Under Trump Plan, Detained in Remote Jungle Camp**\
 `The group of unauthorized migrants, which includes children, were bused to the camp late Tuesday night. “It looks like a zoo, there are fenced cages,” said one of the detainees, who have been denied access to lawyers.`\
 https://nytimes.com/2025/02/19/world/americas/us-migrants-panama-jungle-camp.html
 
