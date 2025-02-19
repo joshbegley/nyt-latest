@@ -1,3 +1,15 @@
+**Dr. Oz, Trump’s Medicare Nominee, Pledges to Sell Health Stocks**\
+`The celebrity doctor said he would divest from his interests in many drug, medical and insurance companies, worth millions of dollars.`\
+https://nytimes.com/2025/02/19/health/mehmet-oz-medicare-medicaid-stocks.html
+
+**The Escalating Feud Between Trump and Ukraine’s Leader**\
+`Also, Microsoft said it created a new state of matter. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/02/19/briefing/trump-ukraine-feud-microsoft-new-state-of-matter.html
+
+**Three of Dawoud Bey’s Favorite Artworks**\
+`The photographer discusses Alice Neel, Walker Evans and the way he brings Black gestures and history to the foreground of his portraits.`\
+https://nytimes.com/2025/02/19/t-magazine/dawoud-bey-alice-neel-walker-evans.html
+
 **Mets begin search for the next Dedniel Núñez, a surprise contributor in the bullpen**\
 `The Mets talk a lot about sustainability, so it's imperative that they unearth some under-the-radar pitchers.`\
 https://nytimes.com/athletic/6146547/2025/02/19/mets-pitching-development-dedniel-nunez/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/hegseth-military-cuts.html
 **Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
 `There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
 https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
-
-**Blake Lively Adds Claims From 2 Other Women to Justin Baldoni Lawsuit**\
-`In the amended complaint, Ms. Lively said that Mr. Baldoni, her co-star in “It Ends With Us,” made two other actresses on set uncomfortable and that they were willing to testify.`\
-https://nytimes.com/2025/02/19/us/blake-lively-justin-baldoni-lawsuit.html
-
-**Judge Orders Mississippi Newspaper to Remove Editorial, Alarming Press Advocates**\
-`The owner of The Clarksdale Press Register said he planned to challenge a judge’s order against an editorial that criticized city officials.`\
-https://nytimes.com/2025/02/19/us/mississippi-judge-newspaper-editorial.html
-
-**As Trump Turns Toward Russia and Against Ukraine, Republicans Are Mum**\
-`Congressional Republicans have mostly tempered their criticism or deferred to the president as he topples what were once their party’s core foreign policy principles.`\
-https://nytimes.com/2025/02/19/us/politics/trump-ukraine-russia-republicans.html
 
