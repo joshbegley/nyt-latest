@@ -1,3 +1,7 @@
+**Experienced official Kovacs to referee Real Madrid vs. Man City**\
+`The 40-year-old has officiated Madrid matches in the Champions League on three previous occasions.`\
+https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manchester-city-who/
+
 **Kremlin Message to Trump: There’s Money to Be Made in Russia**\
 `Russian officials are arguing that American companies stand to make billions of dollars by re-entering Russia. The White House is listening.`\
 https://nytimes.com/2025/02/19/world/europe/trump-russia-ukraine-putin-trump.html
