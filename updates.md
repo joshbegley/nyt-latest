@@ -1,3 +1,7 @@
+**Dodgers still learning Roki Sasaki: 'He's going to find his own way'**\
+`There might not be a pitcher in the Dodgers’ talent-rich group of pitchers with a higher ceiling.`\
+https://nytimes.com/athletic/6147173/2025/02/19/dodgers-roki-sasaki-bullpen/
+
 **Blake Lively Adds Claims From 2 Other Women to Justin Baldoni Lawsuit**\
 `In the amended complaint, Ms. Lively said that Mr. Baldoni, her co-star in “It Ends With Us,” made two other actresses on set uncomfortable and that they were willing to testify.`\
 https://nytimes.com/2025/02/19/us/blake-lively-justin-baldoni-lawsuit.html
