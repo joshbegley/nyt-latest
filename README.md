@@ -1,3 +1,19 @@
+**Missouri Clinics Resume Abortions, Following Abortion Rights Referendum**\
+`Abortion opponents had tried to block, or severely limit, the procedure, against the will of voters who in November enshrined abortion rights in the state constitution.`\
+https://nytimes.com/2025/02/19/us/missouri-abortion.html
+
+**Trump Rebuffs Senate G.O.P. and Backs House Budget Plan**\
+`Mr. Trump’s call for “one big beautiful bill” came just hours after he gave conflicting directions to congressional Republicans on cuts to social safety net programs.`\
+https://nytimes.com/2025/02/19/us/politics/trump-house-budget-plan.html
+
+**Tigers' Casey Mize is still perfecting his arsenal, but write him off at your own risk**\
+`Once a hyped No. 1 pick, Casey Mize enters spring on the roster bubble. To reclaim his place, he will lean on an old calling card. `\
+https://nytimes.com/athletic/6147350/2025/02/19/tigers-casey-mize-splitter-spring-training/
+
+**Van Persie on verge of being appointed new Feyenoord head coach**\
+`Van Persie only took charge at fellow Eredivisie side Heerenveen last May, signing a two-year deal.`\
+https://nytimes.com/athletic/6147431/2025/02/19/van-persie-feyenoord-coach-appoint-verge/
+
 **They Never Planned on Buying a Gun. Until They Did.**\
 `Some new gun owners, a reporter found, are ready to approach the painful topic of firearms with more curiosity and less confrontation.`\
 https://nytimes.com/2025/02/19/insider/new-gun-owners.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6146547/2025/02/19/mets-pitching-development-dednie
 **Trump Flips the Script on the Ukraine War, Blaming Zelensky Not Putin**\
 `As he seeks to negotiate a peace deal with Moscow, President Trump has cast Ukraine as the instigator of the conflict, not the Russians who invaded it.`\
 https://nytimes.com/2025/02/19/us/politics/trump-zelensky-russia-ukraine-war.html
-
-**Then and Now: How Republican Senators Have Shifted Tone on Russia and Ukraine**\
-`Some of the most vocal critics of Vladimir V. Putin and proponents of the United States’ role as a global defender of democracy have acquiesced to Mr. Trump on Russia.`\
-https://nytimes.com/2025/02/19/us/politics/trump-putin-senate-gop-ukraine.html
-
-**Big Ten, SEC to push for CFP to be seeded entirely by final rankings**\
-`The change supported by the leagues would eliminate the reservation of top-four seeds and first-round byes for conference champions.`\
-https://nytimes.com/athletic/6147236/2025/02/19/college-football-playoff-seeding-big-ten-sec/
-
-**Slot: Bradley to miss at least two games after injury against Villa**\
-`Bradley has made 22 appearances for Liverpool this season, with nine of those as a starter.`\
-https://nytimes.com/athletic/6147203/2025/02/19/conor-bradley-injury-liverpool/
-
-**Hegseth Orders Pentagon to Draw Up Plans for Cuts**\
-`The defense secretary has told senior leaders to prepare to trim 8 percent from the budget over each of the next five years, officials said.`\
-https://nytimes.com/2025/02/19/us/politics/hegseth-military-cuts.html
 
