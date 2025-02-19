@@ -1,3 +1,11 @@
+**Watch: Where is Cooper Flagg's best NBA fit?**\
+`The Athletic's "NBA Daily" discusses where the best fit for prospective No. 1 overall pick Cooper Flagg would be in the NBA.`\
+https://nytimes.com/athletic/6145863/2025/02/19/nba-daily-cooper-flag-best-fit/
+
+**Lamoriello's future, and what could Islanders veterans fetch on the trade market? Mailbag, part 1**\
+`Plus ownership's interest, a healthy Islanders defense, and what would it take to acquire Elias Pettersson from the Canucks?`\
+https://nytimes.com/athletic/6145965/2025/02/19/islanders-trade-deadline-lou-lamoriello/
+
 **Animal rights group protest to FIFA over stray dogs cull in Morocco**\
 `Morocco is a rabies-endemic country, with efforts taking place over the previous decade to reduce the population of infected dogs.`\
 https://nytimes.com/athletic/6144272/2025/02/19/animal-rights-protest-2030-world-cup/
