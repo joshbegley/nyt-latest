@@ -1,3 +1,7 @@
+**Man United paid Ashworth more than £4m in compensation, accounts reveal**\
+`Ashworth left in December only five months after officially joining from Newcastle United.`\
+https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
+
 **Experienced official Kovacs to referee Real Madrid vs. Man City**\
 `The 40-year-old has officiated Madrid matches in the Champions League on three previous occasions.`\
 https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manchester-city-who/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/world/europe/ukraine-zelensky-trump-russia-war.ht
 **Ukraine’s Equation**\
 `The West has fractured, and Putin knows it.`\
 https://nytimes.com/2025/02/19/briefing/ukraines-equation.html
-
-**Trump Media Group Sues Brazilian Judge Weighing Arrest of Jair Bolsonaro**\
-`The lawsuit came hours after the justice received an indictment of Brazil’s former president, who is an ally of President Trump.`\
-https://nytimes.com/2025/02/19/world/americas/trump-brazil-bolsonaro-judge.html
 

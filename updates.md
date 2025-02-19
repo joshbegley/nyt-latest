@@ -1,3 +1,7 @@
+**Man United paid Ashworth more than £4m in compensation, accounts reveal**\
+`Ashworth left in December only five months after officially joining from Newcastle United.`\
+https://nytimes.com/athletic/6145988/2025/02/19/manchester-united-accounts-dan-ashworth-cost/
+
 **Experienced official Kovacs to referee Real Madrid vs. Man City**\
 `The 40-year-old has officiated Madrid matches in the Champions League on three previous occasions.`\
 https://nytimes.com/athletic/6145921/2025/02/19/istvan-kovacs-real-madrid-manchester-city-who/
