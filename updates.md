@@ -1,3 +1,7 @@
+**Trump Says He Would Have Had a ‘Very Nasty Life’ if He Lost the Election**\
+`The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
+https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
+
 **Inside Quinn Hughes chaos: What we know about Team USA's scramble to add him for 4 Nations final**\
 `What's best for country isn't always what's best for club, as made clear by this week's dance among the Canucks, Team USA and the NHL.`\
 https://nytimes.com/athletic/6147478/2025/02/19/quinn-hughes-team-usa-4-nations/
