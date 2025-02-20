@@ -1,3 +1,7 @@
+**Arsenal agree deal to sign Hamill, 15, from St Johnstone**\
+`A six-figure package plus add-ons has been agreed, and the 15-year-old is set to officially join the club on July 1.`\
+https://nytimes.com/athletic/6148454/2025/02/20/arsenal-transfer-news-callan-hamill/
+
 **A DOGE Dividend?**\
 `President Trump floated giving taxpayers a piece of any savings that Elon Musk’s cost-cutting generates, which could reignite inflation.`\
 https://nytimes.com/2025/02/20/business/dealbook/trump-doge-dividend.html
