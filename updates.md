@@ -1,3 +1,15 @@
+**Should Colts reward Alec Pierce's breakout season with a contract extension?**\
+`Colts GM Chris Ballard on Pierce: "He's exactly who we thought he was going to be. And I think there's more in there. I do."`\
+https://nytimes.com/athletic/6142795/2025/02/20/colts-alec-pierce-contract-extension/
+
+**How Brandon Nimmo responded to a brutal second-half slump**\
+`Nimmo ended last season with an OPS more than 100 points worse than in 2023.`\
+https://nytimes.com/athletic/6146840/2025/02/20/mets-brandon-nimmo-bounce-back/
+
+**Would Rams really trade Matthew Stafford to Giants? Examining a potential deal**\
+`The Giants are desperate for a quarterback, while the Rams might not want to pay Stafford what it takes to keep him happy in Los Angeles. `\
+https://nytimes.com/athletic/6146076/2025/02/20/matthew-stafford-trade-giants-rams/
+
 **Why Yankees are buzzing over top prospect George Lombard Jr.**\
 `Lombard is soaking up his first weeks in big-league spring training.`\
 https://nytimes.com/athletic/6147694/2025/02/20/yankees-george-lombard-jr-prospect-development/
