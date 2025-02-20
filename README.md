@@ -1,3 +1,7 @@
+**Twins mailbag: Sudden spending, Lee's job search, France vs. Miranda, changes for Varland**\
+`Plus a front office blind spot, Chris Paddack's workload, Cory Lewis' knuckleball and how fast Walker Jenkins can move.`\
+https://nytimes.com/athletic/6143908/2025/02/20/minnesota-twins-payroll-ty-france-jose-miranda/
+
 **Can the Bulls remain competitive? 5 things to watch after the All-Star break**\
 `With 27 games left on the Bulls' regular-season schedule, here are five big things to watch from the team in its home stretch.`\
 https://nytimes.com/athletic/6146941/2025/02/20/chicago-bulls-regular-season-things-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147010/2025/02/20/wild-4-nations-foligno-kaprizov-
 **USWNT tryouts: The numbers behind the newest U.S. call-ups**\
 `A closer look at the lesser-known players called up to the U.S. women's national team for this month's SheBelieves Cup`\
 https://nytimes.com/athletic/6144175/2025/02/20/shebelieves-cup-watchlist-the-newer-u-s-players-fighting-for-spots-in-emma-hayes-team/
-
-**Manchester United live Q&A: Mark Critchley answers your questions**\
-`Pose your questions and our United correspondent Mark Critchley will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
-https://nytimes.com/athletic/6143948/2025/02/20/manchester-united-questions-amorim-tactics/
 
