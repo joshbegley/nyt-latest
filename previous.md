@@ -1,40 +1,40 @@
-**Germany’s Big Fascist Comeback**\
-`Germany’s attempts to “remember away” its Nazi past has instead paved the way for a far-right resurgence.`\
-https://nytimes.com/video/opinion/100000009970138/germany-elections-afd.html
+**‘Art Spiegelman: Disaster Is My Muse’ Review: Graphic Doom**\
+`In this straightforward documentary, the acclaimed cartoonist reflects on his Holocaust memoir, “Maus,” and other masterworks of subversion.`\
+https://nytimes.com/2025/02/20/movies/spiegelman-disaster-is-my-muse-review.html
 
-**Federal Takeover or 51st State? Trump Weighs In on D.C. Debate.**\
-`President Trump said the federal government should control the nation’s capital. Democrats and most local residents have long argued that Washington, D.C., should be a state.`\
-https://nytimes.com/2025/02/20/us/politics/trump-dc-federal-takeover.html
+**36 Hours in Banff**\
+`Set within Canada’s oldest national park, Banff offers skiing and other activities, a vibrant cultural scene and mountain views everywhere you look.`\
+https://nytimes.com/interactive/2025/02/20/travel/things-to-do-banff.html
 
-**NBA and offensive identity: 3s are prevalent, but not all teams are created equal**\
-`There may be a prevailing narrative that every team plays the same style, but that's far from the truth.`\
-https://nytimes.com/athletic/6064695/2025/02/20/nba-offensive-identity-cavaliers-thunder/
+**‘The Monkey’ Review: Death Beats a Little Toy Drum**\
+`A gruesome horror comedy adapted from a Stephen King story mixes nihilism, fatherhood and carnage.`\
+https://nytimes.com/2025/02/20/movies/the-monkey-review.html
 
-**4 Takeaways From the Hearing on Dismissing Charges Against Eric Adams**\
-`The Justice Department has asked to dismiss a federal corruption case against the New York mayor, prompting resignations and calls for the judge to reject the request.`\
-https://nytimes.com/2025/02/20/nyregion/adams-hearing-charges-dismissal.html
+**Next Likely Chancellor Promises a Tougher Germany**\
+`Friedrich Merz, whose conservative party is ahead in polls before Sunday’s election, sees an “epochal rupture” with a United States that is more aligned with Russia.`\
+https://nytimes.com/2025/02/20/world/europe/germany-merz.html
 
-**What’s Next for New York’s Congestion Pricing Tolls**\
-`The Trump administration revoked federal approval for the tolling plan on Wednesday. New York leaders are fighting to keep it.`\
-https://nytimes.com/2025/02/20/nyregion/congestion-pricing-nyc-trump.html
+**Being George Clooney Is Harder Than It Looks**\
+`He is making his Broadway debut with a stage version of his 2005 movie “Good Night, and Good Luck.” He’s ready, but also terrified.`\
+https://nytimes.com/2025/02/20/theater/george-clooney-broadway-good-night-good-luck.html
 
-**Congestion Pricing’s Biggest Booster Prepares to Take On the White House**\
-`Janno Lieber, head of the M.T.A., has helped steered the tolling program through lawsuits and a last-minute pause. He now will face off with President Trump.`\
-https://nytimes.com/2025/02/20/nyregion/congestion-pricings-biggest-booster-prepares-to-take-on-the-white-house.html
+**The Comedian Looking for Something All of America Can Laugh At**\
+`Roy Wood Jr. performs in small clubs from Georgia to Wyoming, finding humor in the moments that leave us humbled and confused.`\
+https://nytimes.com/2025/02/20/magazine/roy-wood-jr.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/20/crosswords/spelling-bee-forum.html
+**The 25 Shoes and Bags That Transformed Fashion**\
+`A group of experts consider the accessories from the past 100 years that changed how we carry our things — and ourselves.`\
+https://nytimes.com/2025/02/20/t-magazine/most-influential-shoes-bags-fashion-accessories.html
 
-**The night Mbappe reminded the world how deadly he can be**\
-`If there were any lingering doubts about the forward's ability to deliver in Madrid, they were banished by a superb display on Wednesday`\
-https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manchester-city/
+**Judge John Hodgman on Talking During Brushing**\
+`Is your “lover” obligated to keep you company during oral-hygiene time?`\
+https://nytimes.com/2025/02/20/magazine/judge-john-hodgman-on-talking-during-brushing.html
 
-**Hamas Hands Bodies of 4 Hostages Back to Israel**\
-`All four had been abducted during the Hamas-led attack on Oct. 7, 2023. An Israeli woman and her two young children were said to be among them.`\
-https://nytimes.com/2025/02/20/world/middleeast/israel-hamas-hostages-bodies.html
+**The Far Right is Rising in the Land of ‘Never Again’**\
+`Germany’s attempts to “remember away” its Nazi past has instead paved the way for an extremist resurgence.`\
+https://nytimes.com/2025/02/20/opinion/germany-elections-afd.html
 
-**Stephen Colbert Would Like to Know Who’s in Charge Here**\
-`The “Late Show” host was taken aback by the White House’s claim that Elon Musk doesn’t run DOGE: “It’s literally named after his favorite meme!”`\
-https://nytimes.com/2025/02/20/arts/television/stephen-colbert-doge-elon-musk.html
+**Bird Flu in Cows Is a Slow-Motion Disaster**\
+`The country’s poor public health response to the outbreak is rooted in the inability to bring in dairy farmers as partners.`\
+https://nytimes.com/2025/02/20/opinion/bird-flu-farmers-dairy.html
 
