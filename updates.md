@@ -1,3 +1,11 @@
+**In China, Financial Stress Stalks Hospitals and Bankruptcies Soar**\
+`Still recovering from heavy spending during the pandemic, hospitals are squeezed by a slumping economy and government efforts to curb health care spending.`\
+https://nytimes.com/2025/02/20/business/china-hospital-bankruptcy.html
+
+**Amid longest rodeo trip ever, glimmers of hope remain for Spurs**\
+`With All-Star Weekend and the I-35 Series in Austin, the Spurs will go more than a month between games at Frost Bank Center.`\
+https://nytimes.com/athletic/6148621/2025/02/20/de-aaron-fox-spurs-rodeo-trip/
+
 **Everton hold discussions with Leeds over CEO Angus Kinnear**\
 `A decision is yet to be made and Kinnear is one of a number of contenders new Everton owners The Friedkin Group have spoken to.`\
 https://nytimes.com/athletic/6148637/2025/02/20/angus-kinnear-everton-leeds/
