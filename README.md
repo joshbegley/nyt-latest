@@ -1,6 +1,6 @@
 **Hayley Paige Reclaims Her Name and Bridal Brand**\
 `After a long legal battle that stripped her of her name and brand, the bridal designer is making a return to the industry with a new collection and a new deal.`\
-https://nytimes.com/2025/02/20/style/hayley-paige-reclaims-her-name-and-bridal-brand.html
+https://nytimes.com/2025/02/20/style/hayley-paige-bridal-brand.html
 
 **There’s a Big Hole in England**\
 `A giant hole opened up on a street in Surrey, southwest of London, forcing evacuations and leaving a car teetering on the edge. The cause was unknown.`\
