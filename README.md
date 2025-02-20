@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-h
 `Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
 https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
 
-**Ipswich loanee Enciso facing layoff with knee injury**\
+**Ipswich loanee Enciso facing four-week layoff with knee injury**\
 `The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
 https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
 
