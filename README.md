@@ -1,3 +1,11 @@
+**Cubs pitcher wins first ABS challenge in spring training game**\
+`Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
+https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/
+
+**The White House’s Love Language: ‘Come Here Illegally and We’ll Deport You’**\
+`The Trump administration has used the official social media accounts of The White House to post a deportation themed Valentine and other polarizing messages.`\
+https://nytimes.com/2025/02/20/style/white-house-deportation-memes.html
+
 **Chelsea's Washington returns to Santos on year-long loan**\
 `Washington joined Chelsea from Santos in 2023, signing a seven-year contract at Stamford Bridge in a €16m (plus €4m in add-ons) transfer`\
 https://nytimes.com/athletic/6150078/2025/02/20/deivid-washington-chelsea-santos-loan-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6149861/2025/02/20/renato-veiga-juventus-chelsea-in
 **Alexander Canario, headlining prospect from Kris Bryant trade, DFA'd by Cubs**\
 `At the time of the trade, Canario was the Giants' No. 10-ranked prospect. He was dealt alongside pitcher Caleb Kilian. `\
 https://nytimes.com/athletic/6149947/2025/02/20/alexander-canario-dfad-chicago-cubs-kris-bryant-trade/
-
-**MLB, ESPN opt out of TV deal for 2026-28; MLB cites 'minimal coverage'**\
-`ESPN had been asking to lower the fees it pays to MLB for the next portion of its current contract. The deal would remain in place for 2025.`\
-https://nytimes.com/athletic/6149921/2025/02/20/mlb-espn-opt-out-tv-deal/
-
-**The Senate Confirmed Kash Patel as F.B.I. Director**\
-`Also, nearly one in 10 U.S. adults identifies as L.G.B.T.Q. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/02/20/briefing/kash-patel-fbi-director-george-clooney-braodway.html
 
