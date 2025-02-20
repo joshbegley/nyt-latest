@@ -1,3 +1,7 @@
+**Drake’s Tentative Comeback, Plus: New Music From the Weeknd and More**\
+`On Popcast, a survey of the biggest and best albums released recently, including Drake with PartyNextDoor, the Weeknd, Central Cee, Oklou and others.`\
+https://nytimes.com/2025/02/20/arts/music/drake-comeback-popcast.html
+
 **Emerson: College athletics leaders seem to be delaying the inevitable**\
 `The very idea of athletes as employees is a third rail for college leaders, what they’re lobbying Congress to legislate against.`\
 https://nytimes.com/athletic/6148511/2025/02/20/ncaa-college-sports-unlimited-transfers-issue/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/trump-executive-order-presidio-trust.html
 **Bubble Watch: TCU arrives, SEC hopefuls take hits in stretch run**\
 `This was a big separation week, as we welcomed five more teams into the utopian realm of Lockdom. The bubble is shrinking.`\
 https://nytimes.com/athletic/6147945/2025/02/20/mens-ncaa-tournament-bubble-watch-tcu-illinois/
-
-**Arsenal agree deal to sign Hamill, 15, from St Johnstone**\
-`A six-figure package plus add-ons has been agreed, and the 15-year-old is set to officially join the club on July 1.`\
-https://nytimes.com/athletic/6148454/2025/02/20/arsenal-transfer-news-callan-hamill/
 
