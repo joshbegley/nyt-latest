@@ -1,3 +1,7 @@
+**Trump Cuts Protections for Haitians, Putting Them on Track for Deportation**\
+`The decision is the latest in President Trump’s sweeping crackdown on immigrants, including people whom the Biden administration had authorized to remain in the country.`\
+https://nytimes.com/2025/02/20/us/politics/haitians-temporary-protected-status.html
+
 **Fox News, CNN and Other News Outlets Urge White House to Drop Ban on The A.P.**\
 `Dozens of major news organizations, including some conservative outlets, urged the Trump administration to stop blocking The Associated Press from press events.`\
 https://nytimes.com/2025/02/20/business/media/ap-white-house-ban-cnn-fox.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148185/2025/02/20/canucks-trade-deadline-needs-202
 **Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
 `In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
 https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
-
-**Airbus Says U.S. Tariffs Would Be ‘Lose-Lose’ for Airline Industry**\
-`The European airline maker, which is Boeing’s chief rival, said it would adapt to any new tariffs, including passing on costs to its customers.`\
-https://nytimes.com/2025/02/20/business/airbus-trump-tariffs-defense-europe.html
 
