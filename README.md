@@ -1,3 +1,7 @@
+**The night Mbappe reminded the world how deadly he can be**\
+`If there were any lingering doubts about the forward's ability to deliver in Madrid, they were banished by a superb display on Wednesday`\
+https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manchester-city/
+
 **Hamas to Hand Bodies of 4 Hostages Back to Israel**\
 `All four were abducted during the Hamas-led attack on Oct. 7, 2023. They were expected to include a woman and her two children.`\
 https://nytimes.com/2025/02/20/world/middleeast/hamas-to-hand-bodies-of-4-hostages-back-to-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148106/2025/02/20/missouri-alabama-basketball-scor
 **A federal appeals court leaves a block on Trump’s birthright citizenship order.**\
 `The decision by the U.S. Court of Appeals for the Ninth Circuit was the latest obstacle for the Trump administration in its effort to end birthright citizenship.`\
 https://nytimes.com/live/2025/02/19/us/trump-news/a-federal-appeals-court-leaves-a-block-on-trumps-birthright-citizenship-order
-
-**Three big questions for Forest ahead of three crunch fixtures**\
-`Third-placed Forest have a run of huge league matches coming up - and some big questions to answer after Saturday's defeat at Fulham...`\
-https://nytimes.com/athletic/6146446/2025/02/20/nottingham-forest-big-decisions-newcastle/
 
