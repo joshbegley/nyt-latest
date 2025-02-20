@@ -1,3 +1,7 @@
+**Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
+`The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
+https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
+
 **A Long Journey Home: After 50 Years, Back on the Reservation**\
 `Leonard Peltier, the American Indian Movement activist, returned to North Dakota, where, under home confinement, he will serve the remainder of his life sentence for the murders of two F.B.I. agents.`\
 https://nytimes.com/2025/02/19/us/leonard-peltier-homecoming-north-dakota.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147793/2025/02/19/delaware-state-clinton-portis-hi
 **Promising Champions League for USMNT stars turns dire in a flash**\
 `Americans set a new standard for UCL goal-scoring and playing time, but the knockout playoff round was unkind to the player pool's best.`\
 https://nytimes.com/athletic/6146676/2025/02/19/usmnt-champions-league-pulisic-weah-mckennie-musah-elimination/
-
-**Lawrence Butler, coming off breakout '24, exploring long-term extension with A's: Sources**\
-`MESA, Ariz.`\
-https://nytimes.com/athletic/6147434/2025/02/19/lawrence-butler-as-extension/
 

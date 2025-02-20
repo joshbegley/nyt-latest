@@ -1,3 +1,7 @@
+**Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
+`The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
+https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
+
 **A Long Journey Home: After 50 Years, Back on the Reservation**\
 `Leonard Peltier, the American Indian Movement activist, returned to North Dakota, where, under home confinement, he will serve the remainder of his life sentence for the murders of two F.B.I. agents.`\
 https://nytimes.com/2025/02/19/us/leonard-peltier-homecoming-north-dakota.html
