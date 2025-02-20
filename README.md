@@ -1,3 +1,7 @@
+**Favorite Outfits From A Perfect Winter Day**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/02/20/style/paris-street-style-photos
+
 **NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
 `Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
 https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147839/2025/02/20/blackhawks-prospect-sam-rinzel-d
 **Rubiales guilty of sexual assault and fined €10,000 for kissing Hermoso**\
 `The former head of the Spanish football federation kissed the footballer after the Women's World Cup final in 2023.`\
 https://nytimes.com/athletic/6148436/2025/02/20/luis-rubiales-court-case-verdict-jenni-hermoso/
-
-**Sharks trade tiers: Which players should be on the move? Who is untouchable?**\
-`How might the Sharks advance their rebuild before the March 7 trade deadline?`\
-https://nytimes.com/athletic/6136186/2025/02/20/sharks-nhl-trades-2025/
 
