@@ -1,3 +1,7 @@
+**Chinese Warships Near Sydney Raise Alarm in Australia and New Zealand**\
+`Sailing in Australia’s exclusive economic zone, the three vessels were not breaking international law, but they were unusually far south on an undeclared mission.`\
+https://nytimes.com/2025/02/20/world/australia/chinese-ships-tasman-nz.html
+
 **Should Colts reward Alec Pierce's breakout season with a contract extension?**\
 `Colts GM Chris Ballard on Pierce: "He's exactly who we thought he was going to be. And I think there's more in there. I do."`\
 https://nytimes.com/athletic/6142795/2025/02/20/colts-alec-pierce-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/02/20/realestate/hells-kitchen-upper-west-s
 **Former Panthers coach likes what he sees in Bryce Young, Dave Canales: Q&A with Ron Rivera**\
 `Rivera also touched on Cam Newton's comments, Luke Kuechly and the HOF and the 2015 Carolina Super Bowl team.`\
 https://nytimes.com/athletic/6147464/2025/02/20/ron-rivera-panthers-bryce-young-canales-kuechly-cam/
-
-**Bucha Has a Question: Does Trump Remember the Russian Massacre?**\
-`Residents of a Ukrainian suburb that was the site of notorious attacks on civilians after Russia invaded are alarmed by President Trump’s warm words for Moscow.`\
-https://nytimes.com/2025/02/20/world/europe/bucha-russia-massacre-trump.html
 
