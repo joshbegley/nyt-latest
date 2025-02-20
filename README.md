@@ -1,3 +1,11 @@
+**Learning Italian and chess with teammates: Why Lewis Hamilton feels revitalized at Ferrari**\
+`After a difficult few years, that belief is coming back to the seven-time world champion`\
+https://nytimes.com/athletic/6146124/2025/02/20/lewis-hamilton-ferrari-f1-2025-launch/
+
+**Word of the Day: grandiloquent**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/20/learning/word-of-the-day-grandiloquent.html
+
 **Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
 `The Liverpool striker's glaring miss at Aston Villa reinforced the feeling that Liverpool need to make a No 9 a priority ifor next season`\
 https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6142095/2025/02/20/newcastle-apt-premier-league-imp
 **Fantasy Premier League: Non-Mohamed Salah FPL captaincy options for the next two gameweeks**\
 `Gameweeks 26 and 27 are opportunities to go against Salah with the captain's armband. So who are the alternative options?`\
 https://nytimes.com/athletic/6143555/2025/02/20/fantasy-premier-league-palmer-salah-captaincy-gw26/
-
-**Perhaps Man Utd's youthful bench should prompt optimism rather than despair**\
-`With money tight, bringing on academy players could be the best way back to success`\
-https://nytimes.com/athletic/6127313/2025/02/20/perhaps-man-utds-youthful-bench-against-spurs-should-prompt-optimism-rather-than-despair/
-
-**Who is Yun Do-young? Meet the South Korean 18-year-old set to join Brighton**\
-`Brighton's latest target shows again that their player recruitment programme truly has gone global`\
-https://nytimes.com/athletic/6128950/2025/02/20/yun-do-young-south-korea-brighton/
 
