@@ -1,3 +1,7 @@
+**Amazon Gains Creative Control Over the James Bond Franchise**\
+`The British family that has for decades held complete control over everything involving the globe-trotting superspy is relinquishing it to Amazon.`\
+https://nytimes.com/2025/02/20/business/amazon-james-bond-franchise.html
+
 **Review: Two Star Pianists, Thrillingly Side by Side**\
 `Vikingur Olafsson and Yuja Wang appeared at Carnegie Hall with a unified approach to works by Schubert, John Adams, Rachmaninoff and more.`\
 https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-hall-review.html
