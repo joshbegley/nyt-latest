@@ -1,3 +1,7 @@
+**How Each Senator Voted to Confirm Kash Patel as F.B.I. Director**\
+`The Senate confirmed Mr. Patel by a vote of 51 to 49 to lead the country’s premier federal law enforcement agency.`\
+https://nytimes.com/interactive/2025/02/20/us/politics/patel-senate-confirmation-vote.html
+
 **C.I.A. Plans Largest Mass Firing in Nearly 50 Years**\
 `The possible purge of officers working on recruiting and diversity comes as the agency moves to comply with the spirit of an executive order banning efforts to diversify the federal work force.`\
 https://nytimes.com/2025/02/20/us/politics/cia-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/business/airbus-trump-tariffs-defense-europe.html
 **China Defends South Africa’s G20 Ambitions as Rubio Snubs Meeting**\
 `Secretary of State Marco Rubio accused the country of using its position as host of the multilateral gathering to promote diversity and climate change.`\
 https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
-
-**David Boren, an Oklahoma Eminence as Governor and Senator, Dies at 83**\
-`A Democrat, he became a powerful voice on national intelligence in the Senate before leaving to become president of the University of Oklahoma.`\
-https://nytimes.com/2025/02/20/us/politics/david-boren-dead.html
 

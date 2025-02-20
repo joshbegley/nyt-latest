@@ -1,3 +1,7 @@
+**How Each Senator Voted to Confirm Kash Patel as F.B.I. Director**\
+`The Senate confirmed Mr. Patel by a vote of 51 to 49 to lead the country’s premier federal law enforcement agency.`\
+https://nytimes.com/interactive/2025/02/20/us/politics/patel-senate-confirmation-vote.html
+
 **C.I.A. Plans Largest Mass Firing in Nearly 50 Years**\
 `The possible purge of officers working on recruiting and diversity comes as the agency moves to comply with the spirit of an executive order banning efforts to diversify the federal work force.`\
 https://nytimes.com/2025/02/20/us/politics/cia-firings.html
