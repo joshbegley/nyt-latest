@@ -3,7 +3,7 @@
 https://nytimes.com/article/trump-migrants-guantanamo.html
 
 **Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
-`SCOTTSDALE, Ariz.`\
+`With more scouting and better video, teams are taking more stock in players’ winter league performances.`\
 https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/
 
 **Drake’s Tentative Comeback, Plus: New Music From the Weeknd and More**\
