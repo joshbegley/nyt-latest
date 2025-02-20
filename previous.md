@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spu
 https://nytimes.com/2025/02/20/style/gabby-windey-traitors-bachelorette.html
 
 **Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
-`“He was electric, man,” catcher Jake Rogers said of Jackson Jobe and his new curveball. `\
+`“He was electric, man,” catcher Jake Rogers said of Jobe and his new curveball. `\
 https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
 
 **At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\

@@ -1,3 +1,7 @@
+**Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
+`“He was electric, man,” catcher Jake Rogers said of Jobe and his new curveball. `\
+https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
+
 **San Vicente Bungalows Brings FOMO to New York**\
 `Who’s joining? What’s the scene like? Will you miss out if you aren’t part of the club?`\
 https://nytimes.com/2025/02/20/fashion/san-vicente-jeff-klein.html
