@@ -1,3 +1,7 @@
+**Angel City is nearing a decision on its next head coach**\
+`Parsons told The Athletic he expects the club to share an update before the 2025 NWSL season`\
+https://nytimes.com/athletic/6147646/2025/02/20/angel-city-narrows-coaching-search/
+
 **Health, seeding and rotations: Bucks biggest questions coming out of the All-Star break**\
 `"One of my goals is to be available for the playoffs," Giannis Antetokounmpo said, as staying healthy is key to the Bucks post All-Star.`\
 https://nytimes.com/athletic/6142746/2025/02/20/bucks-biggest-questions-health-rotations/

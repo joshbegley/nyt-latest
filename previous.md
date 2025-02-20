@@ -1,3 +1,7 @@
+**Angel City is nearing a decision on its next head coach**\
+`Parsons told The Athletic he expects the club to share an update before the 2025 NWSL season`\
+https://nytimes.com/athletic/6147646/2025/02/20/angel-city-narrows-coaching-search/
+
 **Health, seeding and rotations: Bucks biggest questions coming out of the All-Star break**\
 `"One of my goals is to be available for the playoffs," Giannis Antetokounmpo said, as staying healthy is key to the Bucks post All-Star.`\
 https://nytimes.com/athletic/6142746/2025/02/20/bucks-biggest-questions-health-rotations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148472/2025/02/20/man-citys-half-hearted-press-aga
 **Favorite Outfits From A Perfect Winter Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/20/style/paris-street-style-photos
-
-**NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
-`Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
-https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
 
