@@ -1,3 +1,7 @@
+**The $20 Billion Controversy Over E.P.A. Climate Funds, Explained**\
+`An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
+https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html
+
 **Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
 `In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
 https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/100000009999034/deep-sea-oarfish-mexico.html
 **PSG president Al-Khelaifi calls Lyon counterpart Textor 'a cowboy', leaked video reveals**\
 `A video call on the afternoon of July 14, 2024 on the subject of the French domestic TV deal descended into a war of words between the two.`\
 https://nytimes.com/athletic/6149122/2025/02/20/al-khelaifi-textor-french-football-tv-deal/
-
-**Reds' Terry Francona won't manage against Guardians in spring opener**\
-`“These games need to be about the players,” Francona said of not facing off against his former team. “It doesn’t need to be a hug-fest."`\
-https://nytimes.com/athletic/6149112/2025/02/20/reds-terry-francona-guardians-spring-opener/
 
