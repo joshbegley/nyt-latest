@@ -1,3 +1,7 @@
+**Health, seeding and rotations: Bucks biggest questions coming out of the All-Star break**\
+`"One of my goals is to be available for the playoffs," Giannis Antetokounmpo said, as staying healthy is key to the Bucks post All-Star.`\
+https://nytimes.com/athletic/6142746/2025/02/20/bucks-biggest-questions-health-rotations/
+
 **Trump Team Plans Deep Cuts at Office That Funds Recovery From Big Disasters**\
 `Staff at the office, a branch of the U.S. housing department that Congress uses to address the worst catastrophes, would be reduced by 84 percent.`\
 https://nytimes.com/2025/02/20/climate/trump-cuts-hud-disaster-recovery.html

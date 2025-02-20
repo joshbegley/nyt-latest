@@ -1,3 +1,7 @@
+**Health, seeding and rotations: Bucks biggest questions coming out of the All-Star break**\
+`"One of my goals is to be available for the playoffs," Giannis Antetokounmpo said, as staying healthy is key to the Bucks post All-Star.`\
+https://nytimes.com/athletic/6142746/2025/02/20/bucks-biggest-questions-health-rotations/
+
 **Trump Team Plans Deep Cuts at Office That Funds Recovery From Big Disasters**\
 `Staff at the office, a branch of the U.S. housing department that Congress uses to address the worst catastrophes, would be reduced by 84 percent.`\
 https://nytimes.com/2025/02/20/climate/trump-cuts-hud-disaster-recovery.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/02/20/style/paris-street-style-photos
 **NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
 `Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
 https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
-
-**Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
-`He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
-https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
 
