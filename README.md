@@ -1,3 +1,11 @@
+**Man Who Kidnapped Ride Share Driver Gets 12 Years in Prison**\
+`The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
+https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
+
+**All-Pro guard Zack Martins informs Cowboys of retirement after 11 seasons: Sources**\
+`In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
+https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/
+
 **Battle for McConnell’s Senate Seat Begins Promptly**\
 `Shortly after Senator Mitch McConnell said he would not run for an eighth term, Daniel Cameron, a former Kentucky attorney general, said he would run for the seat in 2026. Two lawmakers and a businessman also hinted at running.`\
 https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-senate-kentucky.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challe
 **The White House’s Love Language: ‘Come Here Illegally and We’ll Deport You’**\
 `The Trump administration has used the official social media accounts of The White House to post a deportation themed Valentine and other polarizing messages.`\
 https://nytimes.com/2025/02/20/style/white-house-deportation-memes.html
-
-**Chelsea's Washington returns to Santos on year-long loan**\
-`Washington joined Chelsea from Santos in 2023, signing a seven-year contract at Stamford Bridge in a €16m (plus €4m in add-ons) transfer`\
-https://nytimes.com/athletic/6150078/2025/02/20/deivid-washington-chelsea-santos-loan-transfer/
-
-**Bay FC hires Graeme Abel to new global scouting department**\
-`Abel was at the center of a story from The Oregonian over his conduct as coach of the women’s soccer team at the University of Oregon.`\
-https://nytimes.com/athletic/6149877/2025/02/20/bay-fc-graeme-abel-scouting-hire/
 
