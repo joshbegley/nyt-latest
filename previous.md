@@ -1,3 +1,7 @@
+**Reds' Terry Francona won't manage against Guardians in spring opener**\
+`“These games need to be about the players,” Francona said of not facing off against his former team. “It doesn’t need to be a hug-fest."`\
+https://nytimes.com/athletic/6149112/2025/02/20/reds-terry-francona-guardians-spring-opener/
+
 **Does the Daytona 500, with its crash-filled endings, have a luck problem?**\
 `Late, race-altering wrecks at the Daytona 500 are nothing new. But a string of recent incidents has poured gas on the issue of luck.`\
 https://nytimes.com/athletic/6148372/2025/02/20/daytona-500-luck-crashes-nascar-william-byron/
@@ -10,8 +14,8 @@ https://nytimes.com/2025/02/20/us/politics/neera-tanden-trump-center-for-america
 `Who will win it all? Who will be terrible? Who will surprise? Who'll arrive this summer? Our experts make their picks for MLS in 2025.`\
 https://nytimes.com/athletic/6148083/2025/02/20/mls-season-preview-2025-messi-predictions/
 
-**Spurs' Victor Wembanyama expected to miss rest of season with blood clot**\
-`The Spurs said they discovered a deep vein thrombosis upon Wembanyama's return from San Francisco for the All-Star Game.`\
+**Wembanyama expected to miss rest of season with blood clot in shoulder**\
+`The Spurs said they discovered a deep vein thrombosis upon Victor Wembanyama's return from San Francisco for the All-Star Game.`\
 https://nytimes.com/athletic/6149228/2025/02/20/victor-wembanyama-out-for-season-spurs/
 
 **What’s Up, Doc?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149005/2025/02/20/lamelo-ball-tmnt-puma-shoes/
 **JD Vance, at CPAC, Defends His Munich Speech and Trump’s Policy Barrage**\
 `The vice president kicked off the conservative gathering by urging European allies to adopt right-wing views on immigration and offering a defense of the administration’s early moves.`\
 https://nytimes.com/2025/02/20/us/politics/jd-vance-cpac.html
-
-**The Assault on Science and Health: Sometimes It’s Personal**\
-`Readers warn that the Trump administration’s defunding of medical research will cost lives. Also: President Trump’s remarks about Ukraine.`\
-https://nytimes.com/2025/02/20/opinion/science-health-cuts-nih-cdc.html
 

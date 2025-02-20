@@ -1,3 +1,11 @@
+**Reds' Terry Francona won't manage against Guardians in spring opener**\
+`“These games need to be about the players,” Francona said of not facing off against his former team. “It doesn’t need to be a hug-fest."`\
+https://nytimes.com/athletic/6149112/2025/02/20/reds-terry-francona-guardians-spring-opener/
+
+**Wembanyama expected to miss rest of season with blood clot in shoulder**\
+`The Spurs said they discovered a deep vein thrombosis upon Victor Wembanyama's return from San Francisco for the All-Star Game.`\
+https://nytimes.com/athletic/6149228/2025/02/20/victor-wembanyama-out-for-season-spurs/
+
 **Does the Daytona 500, with its crash-filled endings, have a luck problem?**\
 `Late, race-altering wrecks at the Daytona 500 are nothing new. But a string of recent incidents has poured gas on the issue of luck.`\
 https://nytimes.com/athletic/6148372/2025/02/20/daytona-500-luck-crashes-nascar-william-byron/
