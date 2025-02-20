@@ -1,3 +1,11 @@
+**Trump Urged to Halt Firings at the F.A.A.**\
+`After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
+https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
+
+**Inside Quinn Hughes chaos: What we know about Team USA's scramble to add him for the 4 Nations final**\
+`What’s best for country isn’t always what’s best for club, as made clear by this week's dance between the Canucks, Team USA and the NHL.`\
+https://nytimes.com/athletic/6147478/2025/02/19/quinn-hughes-team-usa-4-nations/
+
 **Quinn Hughes will not join U.S. for 4 Nations final vs. Canada after all**\
 `Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
 https://nytimes.com/athletic/6144100/2025/02/19/quinn-hughes-4-nations-injury-replacement/
