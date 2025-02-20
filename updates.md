@@ -1,3 +1,15 @@
+**Marcus Smart loves to teach. He'll have that opportunity with the Washington Wizards**\
+`Smart and Khris Middleton benefitted from having good mentors. They'll have a chance to pay it forward in Washington.`\
+https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-washington-wizards-mentors/
+
+**Trump Targets Agency Overseeing the Presidio, a Cherished San Francisco Park**\
+`An executive order from the president also took aim at three independent agencies that promote peace abroad and work on development in Latin American and Africa.`\
+https://nytimes.com/2025/02/20/us/trump-executive-order-presidio-trust.html
+
+**Bubble Watch: TCU arrives, SEC hopefuls take hits in stretch run**\
+`This was a big separation week, as we welcomed five more teams into the utopian realm of Lockdom. The bubble is shrinking.`\
+https://nytimes.com/athletic/6147945/2025/02/20/mens-ncaa-tournament-bubble-watch-tcu-illinois/
+
 **Arsenal agree deal to sign Hamill, 15, from St Johnstone**\
 `A six-figure package plus add-ons has been agreed, and the 15-year-old is set to officially join the club on July 1.`\
 https://nytimes.com/athletic/6148454/2025/02/20/arsenal-transfer-news-callan-hamill/
