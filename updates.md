@@ -1,3 +1,7 @@
+**LeBron James says he'll have to manage ankle soreness for rest of the season**\
+`The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
+https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
+
 **Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
 `The Liverpool striker's glaring miss at Aston Villa reinforced the feeling that Liverpool need to make a No 9 a priority ifor next season`\
 https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
