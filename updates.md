@@ -1,3 +1,7 @@
+**Fox News, CNN and Other News Outlets Urge White House to Drop Ban on The A.P.**\
+`Dozens of major news organizations, including some conservative outlets, urged the Trump administration to stop blocking The Associated Press from press events.`\
+https://nytimes.com/2025/02/20/business/media/ap-white-house-ban-cnn-fox.html
+
 **How Each Senator Voted to Confirm Kash Patel as F.B.I. Director**\
 `The Senate confirmed Mr. Patel by a vote of 51 to 49 to lead the country’s premier federal law enforcement agency.`\
 https://nytimes.com/interactive/2025/02/20/us/politics/patel-senate-confirmation-vote.html
