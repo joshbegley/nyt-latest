@@ -1,3 +1,7 @@
+**Arsenal agree deal to sign Hamill, 15, from St Johnstone**\
+`A six-figure package plus add-ons has been agreed, and the 15-year-old is set to officially join the club on July 1.`\
+https://nytimes.com/athletic/6148454/2025/02/20/arsenal-transfer-news-callan-hamill/
+
 **A DOGE Dividend?**\
 `President Trump floated giving taxpayers a piece of any savings that Elon Musk’s cost-cutting generates, which could reignite inflation.`\
 https://nytimes.com/2025/02/20/business/dealbook/trump-doge-dividend.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/opinion/the-long-strange-trail-of-woke.html
 **Spain’s Ex-Soccer Chief Convicted of Sexual Assault for Kissing Star Player**\
 `Luis Rubiales forcibly kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup.`\
 https://nytimes.com/2025/02/20/world/europe/luis-rubiales-spain-soccer-conviction.html
-
-**Why 'beast' Kashawn Aitcheson is a top 2025 NHL Draft prospect**\
-`Draft-eligible defenseman Kashawn Aitcheson hits hard on the ice, but works even harder off it.`\
-https://nytimes.com/athletic/5897808/2025/02/20/nhl-draft-2025-prospect-kashawn-aitcheson/
 
