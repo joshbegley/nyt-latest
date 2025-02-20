@@ -2,7 +2,7 @@
 `The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
 https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
 
-**All-Pro guard Zack Martins informs Cowboys of retirement after 11 seasons: Sources**\
+**All-Pro guard Zack Martin informs Cowboys of retirement after 11 seasons: Sources**\
 `In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
 https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/
 
