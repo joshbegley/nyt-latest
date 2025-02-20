@@ -1,3 +1,11 @@
+**Trump Urged to Halt Firings at the F.A.A.**\
+`After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
+https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
+
+**Inside Quinn Hughes chaos: What we know about Team USA's scramble to add him for the 4 Nations final**\
+`What’s best for country isn’t always what’s best for club, as made clear by this week's dance between the Canucks, Team USA and the NHL.`\
+https://nytimes.com/athletic/6147478/2025/02/19/quinn-hughes-team-usa-4-nations/
+
 **Quinn Hughes will not join U.S. for 4 Nations final vs. Canada after all**\
 `Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
 https://nytimes.com/athletic/6144100/2025/02/19/quinn-hughes-4-nations-injury-replacement/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pri
 **Which teams are in the Champions League round of 16 and when is the draw?**\
 `Kylian Mbappe scored a hat-trick and PSG thrashed a fellow French side in the play-offs. So what's next?`\
 https://nytimes.com/athletic/6147258/2025/02/19/champions-league-round-of-16-teams/
-
-**Democratic lawmakers see ‘pattern of political interference’ with U.S. prosecutors.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-pattern-of-political-interference-with-us-prosecutors
-
-**NASCAR issues hefty penalty against Chase Briscoe, JGR for illegal modification**\
-`NASCAR issued a 100-point penalty and suspended Briscoe's crew chief for four weeks. He also lost 10 playoff points and JGR was fined.`\
-https://nytimes.com/athletic/6147450/2025/02/19/nascar-penalty-chase-briscoe-daytona-500-jgr/
 
