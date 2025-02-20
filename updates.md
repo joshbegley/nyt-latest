@@ -1,3 +1,23 @@
+**2025 fantasy baseball Top 40 closer ranks: From Emmanuel Clase to Camilo Doval**\
+`In the ever-changing world of MLB bullpens, Greg Jewett offers an initial ranking of his Top 40 relievers for fantasy baseball 2025.`\
+https://nytimes.com/athletic/6147103/2025/02/20/top-closers-rankings-fantasy-baseball-2025/
+
+**Explained: Why Leeds have condemned ‘anti-Palestine’ Manor Solomon chant**\
+`Leeds have had to release a number of statements about the chant in recent months`\
+https://nytimes.com/athletic/6146387/2025/02/20/manor-solomon-leeds-palestine-chant-explainer/
+
+**China’s Motivational Tactic for State Workers: Public Shaming**\
+`Local governments are handing out “snail awards” to underperforming employees. But, for many, doing as little as possible seems like the safest bet.`\
+https://nytimes.com/2025/02/20/world/asia/china-officials-slacking-economy.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/20/briefing/trump-zelensky-pope-gaza.html
+
+**Quote of the Day: Europe Leaders Discuss Much Different Alliance**\
+`Quotation of the Day for Thursday, February 20, 2025.`\
+https://nytimes.com/2025/02/19/pageoneplus/quote-of-the-day-europe-leaders-discuss-much-different-alliance.html
+
 **Delta Offers $30,000 to Passengers on Plane That Crashed in Toronto**\
 `The airline said it told the 76 passengers who had been on the plane, which crashed and flipped over on Monday, that the offer came with “no strings attached.”`\
 https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
