@@ -1,3 +1,23 @@
+**Hayley Paige Reclaims Her Name and Bridal Brand**\
+`After a long legal battle that stripped her of her name and brand, the bridal designer is making a return to the industry with a new collection and a new deal.`\
+https://nytimes.com/2025/02/20/style/hayley-paige-reclaims-her-name-and-bridal-brand.html
+
+**There’s a Big Hole in England**\
+`A giant hole opened up on a street in Surrey, southwest of London, forcing evacuations and leaving a car teetering on the edge. The cause was unknown.`\
+https://nytimes.com/2025/02/20/world/europe/sinkhole-england-surrey.html
+
+**Holes Force Evacuations in English Village**\
+`Two large holes along a road in Surrey, England, led to the evacuation of 30 homes, according to the local council. The county declared a major incident.`\
+https://nytimes.com/video/world/europe/100000010001278/sinkhole-evacuations-england-surrey.html
+
+**Seth Jarvis to play for Canada in 4 Nations championship 4 years after crushing World Juniors scratch**\
+`Jarvis on World Juniors: "That's something as a kid you grow up, especially in Canada, that's the tournament you always want to play in."`\
+https://nytimes.com/athletic/6148729/2025/02/20/seth-jarvis-canada-4-nations-final/
+
+**Newcastle's Dubravka and Krafth sign new contracts**\
+`Both players' previous deals were due to expire at the end of the 2024-25 season, with Krafth's new deal confirmed through to 2026.`\
+https://nytimes.com/athletic/6149088/2025/02/20/newcastle-contracts-dubravka-krafth-year/
+
 **Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
 `Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
 https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
