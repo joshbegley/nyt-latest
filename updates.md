@@ -1,3 +1,7 @@
+**NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
+`Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
+https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
+
 **Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
 `He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
 https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
