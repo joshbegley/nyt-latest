@@ -1,3 +1,7 @@
+**Legal Complications Follow Trump’s Edict to Send Migrants to Guantánamo**\
+`Lawsuits are challenging President Trump’s abrupt decision to send men awaiting deportation to the American military base in Cuba.`\
+https://nytimes.com/article/trump-migrants-guantanamo.html
+
 **Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
 `SCOTTSDALE, Ariz.`\
 https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/

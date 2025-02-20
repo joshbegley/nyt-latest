@@ -1,3 +1,7 @@
+**Legal Complications Follow Trump’s Edict to Send Migrants to Guantánamo**\
+`Lawsuits are challenging President Trump’s abrupt decision to send men awaiting deportation to the American military base in Cuba.`\
+https://nytimes.com/article/trump-migrants-guantanamo.html
+
 **Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
 `SCOTTSDALE, Ariz.`\
 https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
 **Marcus Smart loves to teach. He'll have that opportunity with the Washington Wizards**\
 `Smart and Khris Middleton benefitted from having good mentors. They'll have a chance to pay it forward in Washington.`\
 https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-washington-wizards-mentors/
-
-**Trump Targets Agency Overseeing the Presidio, a Cherished San Francisco Park**\
-`An executive order from the president also took aim at three independent agencies that promote peace abroad and work on development in Latin American and Africa.`\
-https://nytimes.com/2025/02/20/us/trump-executive-order-presidio-trust.html
 
