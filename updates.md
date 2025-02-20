@@ -1,3 +1,11 @@
+**McConnell Announces He Won’t Seek Re-election, Ending Record-Breaking Tenure**\
+`The longest-serving Senate leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
+https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-retire.html
+
+**Did You Work at the National Nuclear Security Administration? We Want to Hear From You.**\
+`We are looking into the firings at N.N.S.A. and the impact they have had.`\
+https://nytimes.com/2025/02/20/us/politics/national-nuclear-security-administration-firings.html
+
 **Hayley Paige Reclaims Her Name and Bridal Brand**\
 `After a long legal battle that stripped her of her name and brand, the bridal designer is making a return to the industry with a new collection and a new deal.`\
 https://nytimes.com/2025/02/20/style/hayley-paige-bridal-brand.html
