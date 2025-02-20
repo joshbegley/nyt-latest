@@ -1,3 +1,15 @@
+**What to Know About Trump’s Order Targeting Federal Benefits for Migrants**\
+`Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
+https://nytimes.com/2025/02/20/us/politics/trump-federal-benefits-immigrants.html
+
+**I.R.S. Fires 6,700 Employees Ahead of Tax Filing Season**\
+`The layoffs at the Internal Revenue Service came alongside additional firings at the Transportation Security Administration and the C.I.A.`\
+https://nytimes.com/2025/02/20/business/irs-fires-employees-layoffs-trump.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/02/20/books/review/new-books-recommendations.html
+
 **San Vicente Bungalows Brings FOMO to New York**\
 `Who’s joining? What’s the scene like? Will you miss out if you aren’t part of the club?`\
 https://nytimes.com/2025/02/20/fashion/san-vicente-jeff-klein.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/us/politics/rubio-russia-europe.html
 **Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
 `In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
 https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
-
-**Seeking Golf Deal, Trump Meets Tiger Woods and Saudi Wealth Fund Chief**\
-`The president has been agitating recently to repair the divide between the PGA Tour and LIV Golf that has shadowed professional golf for several years.`\
-https://nytimes.com/2025/02/20/us/politics/trump-tiger-woods-liv-golf.html
-
-**After Endless Wait, Israelis’ Worst Fears for Bibas Family Appear Confirmed**\
-`Hamas released what it said were the remains of two young children and their mother who were taken hostage in the Oct. 7, 2023, attack. Their fates had captivated a nation.`\
-https://nytimes.com/2025/02/20/world/middleeast/bibas-hostages-israel.html
-
-**Friday Briefing: Germans Are Choosing New Leadership**\
-`Plus, volcano tourism in Sicily.`\
-https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-election-interference-cuts.html
 
