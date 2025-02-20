@@ -1,3 +1,23 @@
+**Fired Park Rangers Try to ‘Open Some Hearts’ on Social Media**\
+`Some rangers decided it was worth the risk to speak out online about their firings and share their love of the National Park Service.`\
+https://nytimes.com/2025/02/20/style/national-park-rangers-firings-reactions.html
+
+**My Perfect Solo Saturday**\
+`Three spots for a day out on the town, no share plates necessary.`\
+https://nytimes.com/2025/02/20/dining/my-perfect-solo-saturday.html
+
+**Marshall Rose, Who Helped Revive Two New York Institutions, Dies at 88**\
+`He was instrumental in revitalizing the New York Public Library and transforming Bryant Park from a dangerous dead zone into a glorious sanctuary.`\
+https://nytimes.com/2025/02/20/nyregion/marshall-rose-dead.html
+
+**With several players returning, how might the Flyers look with a full lineup?**\
+`The Flyers are getting their lineup set as they prepare to return to action on Saturday.`\
+https://nytimes.com/athletic/6149658/2025/02/20/flyers-lineup-kuzmenko-pelletier/
+
+**Mitch McConnell Was Always Willing to Be the Villain**\
+`McConnell’s career and legacy changed when Trump became president, and his decisions might end up negating all the rest.`\
+https://nytimes.com/live/2025/02/12/opinion/thepoint/mitch-mcconnell-retirment-trump
+
 **Braves' AJ Smith-Shawver, Hurston Waldrep feel better prepared to succeed**\
 `Smith-Shawver and Waldrep will get a fresh start, this time without as much attention or outside expectations.`\
 https://nytimes.com/athletic/6149438/2025/02/20/braves-aj-smith-shawver-hurston-waldrep/
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/6148289/2025/02/20/van-persie-feyenoord-head-coach/
 **Mavs' Anthony Davis to miss at least another seven games**\
 `The star forward Dallas acquired in the Luka Dončić trade has been out with an adductor strain and will be re-evaluated in two weeks.`\
 https://nytimes.com/athletic/6149432/2025/02/20/anthony-davis-mavericks-injury-update/
-
-**Emergency Food, TB Tests and H.I.V. Drugs: Vital Health Aid Remains Frozen Despite Court Ruling**\
-`The Trump administration appears to be flouting a judge’s order pausing the dismantling of U.S.A.I.D.`\
-https://nytimes.com/2025/02/20/health/usaid-freeze-hiv-tb-nutrition.html
-
-**Jordan Hicks remains in the Giants' rotation. Can he build off of last April's success?**\
-`Hicks showed he had starter-stuff last April but then the fatigue set in. He should be better prepared to start this year.`\
-https://nytimes.com/athletic/6147873/2025/02/20/sf-giants-jordan-hicks-projections/
-
-**A Search for Answers After the Police Fatally Shoot a 79-Year-Old Man**\
-`The police said Emil Williams, who had been reported missing, pointed a gun at an officer before they shot him. A neighbor on Long Island said everything about him had been “normal.”`\
-https://nytimes.com/2025/02/20/nyregion/nypd-shooting-queens-emil-williams.html
-
-**Until Saturday: Say goodbye to weird CFP byes**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6149232/2025/02/20/college-football-playoff-seeding-format-until-saturday/
 
