@@ -1,7 +1,3 @@
-**Does the Daytona 500, with its crash-filled endings, have a luck problem?**\
-`Late, race-altering wrecks at the Daytona 500 are nothing new. But a string of recent incidents has poured gas on the issue of luck.`\
-https://nytimes.com/athletic/6148372/2025/02/20/daytona-500-luck-crashes-nascar-william-byron/
-
 **A Leading Anti-Trump Voice Returns to Democrats’ Top Think Tank**\
 `Neera Tanden, a fierce antagonist to President Trump during his first administration, will again lead the Center for American Progress, a major engine of Democratic policy in Washington.`\
 https://nytimes.com/2025/02/20/us/politics/neera-tanden-trump-center-for-american-progress.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/20/us/politics/jd-vance-cpac.html
 **The Assault on Science and Health: Sometimes It’s Personal**\
 `Readers warn that the Trump administration’s defunding of medical research will cost lives. Also: President Trump’s remarks about Ukraine.`\
 https://nytimes.com/2025/02/20/opinion/science-health-cuts-nih-cdc.html
+
+**Tage Thompson's 4 Nations call, Jordan Greenway's return and other Sabres notes**\
+`Thompson is on standby as an emergency injury replacement for Team USA in the 4 Nations championship game against Canada.`\
+https://nytimes.com/athletic/6149027/2025/02/20/tage-thompson-4-nations-sabres/
 
