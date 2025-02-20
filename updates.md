@@ -1,3 +1,15 @@
+**Legendary Penguins broadcaster Mike Lange dies at 76**\
+`Lange last called a Penguins game in 2021, when his considerable health issues forced him to step down from the radio booth.`\
+https://nytimes.com/athletic/6147881/2025/02/19/mike-lange-penguins-broadcaster-diesp-obituary/
+
+**Alabama Grand Jury Calls for Police Force to Be Abolished After Indicting 5 Officers**\
+`The grand jury said that the Hanceville Police Department, which had eight officers as of last August, had been operating “as more of a criminal enterprise.”`\
+https://nytimes.com/2025/02/19/us/hanceville-alabama-police-officers-arrested.html
+
+**Former All-Pro running back Clinton Portis to coach at Delaware State**\
+`Over his professional career, Portis rushed for 9,923 yards with 75 touchdowns and was twice selected to the Pro Bowl`\
+https://nytimes.com/athletic/6147793/2025/02/19/delaware-state-clinton-portis-hire-desean-jackson/
+
 **Promising Champions League for USMNT stars turns dire in a flash**\
 `Americans set a new standard for UCL goal-scoring and playing time, but the knockout playoff round was unkind to the player pool's best.`\
 https://nytimes.com/athletic/6146676/2025/02/19/usmnt-champions-league-pulisic-weah-mckennie-musah-elimination/
