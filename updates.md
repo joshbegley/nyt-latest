@@ -1,3 +1,7 @@
+**Why 'beast' Kashawn Aitcheson is a top 2025 NHL Draft prospect**\
+`Draft-eligible defenseman Kashawn Aitcheson hits hard on the ice, but works even harder off it.`\
+https://nytimes.com/athletic/5897808/2025/02/20/nhl-draft-2025-prospect-kashawn-aitcheson/
+
 **Zelensky to Meet U.S. Envoy to Ukraine Amid Public Spat With Trump**\
 `Keith Kellogg and President Volodymyr Zelensky were expected to discuss possible paths to ending the war and ways to defuse tensions between Washington and Kyiv.`\
 https://nytimes.com/2025/02/20/world/europe/ukraine-zelensky-kellogg-trump.html
