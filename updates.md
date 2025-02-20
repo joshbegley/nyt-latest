@@ -1,3 +1,7 @@
+**Review: Two Star Pianists, Thrillingly Side by Side**\
+`Vikingur Olafsson and Yuja Wang appeared at Carnegie Hall with a unified approach to works by Schubert, John Adams, Rachmaninoff and more.`\
+https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-hall-review.html
+
 **Former N.F.L. Player Is Arrested After Protest Over MAGA Plaque**\
 `Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
 https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
