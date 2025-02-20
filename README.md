@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6149228/2025/02/20/victor-wembanyama-out-for-season
 https://nytimes.com/2025/02/20/dining/the-veggie-carrot-recipes.html
 
 **Trump Tests Fed’s Independence With Order Expanding Authority Over Agencies**\
-`A directive calling for oversight over the central bank’s regulatory and supervisory responsibilities sets off alarm.`\
+`A directive calling for oversight over the central bank’s regulatory and supervisory responsibilities has set off alarm.`\
 https://nytimes.com/2025/02/20/us/politics/trump-fed-independence.html
 
 **Hochul Plans to Impose New Oversight of New York City Amid Adams Scandal**\
