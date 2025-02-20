@@ -1,3 +1,7 @@
+**Trump Suggests Savings From Spending Cuts Could Be Returned to Taxpayers**\
+`The president said a plan to return money culled from budget cuts and work force reductions to taxpayers was “under consideration,” but he offered no details about how or if it could be done.`\
+https://nytimes.com/2025/02/19/us/politics/trump-doge-savings.html
+
 **Corrections: Feb. 20, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 20, 2025.`\
 https://nytimes.com/2025/02/19/pageoneplus/corrections-feb-20-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
 **Have a View on Aviation Safety and the D.C. Airport Crash? We Want to Hear It.**\
 `We want to hear your perspective on the circumstances that led to the Jan. 29 midair collision near Reagan National Airport, and on air safety and regulation in general. What works and what does not?`\
 https://nytimes.com/2025/02/19/us/plane-crash-aviation-questions.html
-
-**Trump Urged to Halt Firings at the F.A.A.**\
-`After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
-https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
 
