@@ -1,3 +1,15 @@
+**Former N.F.L. Player Is Arrested After Protest Over MAGA Plaque**\
+`Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
+https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
+
+**Ipswich loanee Enciso facing layoff with knee injury**\
+`The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
+https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
+
+**Brooklyn Academy of Music President Steps Down**\
+`In the latest leadership shake-up, Gina Duncan will leave when her contract expires in June, after three years in the job.`\
+https://nytimes.com/2025/02/20/arts/brooklyn-academy-of-music-president-steps-down.html
+
 **Yankees, Aaron Boone agree to contract extension through 2027**\
 `Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
 https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
