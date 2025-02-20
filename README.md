@@ -1,3 +1,15 @@
+**Should Colts reward Alec Pierce's breakout season with a contract extension?**\
+`Colts GM Chris Ballard on Pierce: "He's exactly who we thought he was going to be. And I think there's more in there. I do."`\
+https://nytimes.com/athletic/6142795/2025/02/20/colts-alec-pierce-contract-extension/
+
+**How Brandon Nimmo responded to a brutal second-half slump**\
+`Nimmo ended last season with an OPS more than 100 points worse than in 2023.`\
+https://nytimes.com/athletic/6146840/2025/02/20/mets-brandon-nimmo-bounce-back/
+
+**Would Rams really trade Matthew Stafford to Giants? Examining a potential deal**\
+`The Giants are desperate for a quarterback, while the Rams might not want to pay Stafford what it takes to keep him happy in Los Angeles. `\
+https://nytimes.com/athletic/6146076/2025/02/20/matthew-stafford-trade-giants-rams/
+
 **Why Yankees are buzzing over top prospect George Lombard Jr.**\
 `Lombard is soaking up his first weeks in big-league spring training.`\
 https://nytimes.com/athletic/6147694/2025/02/20/yankees-george-lombard-jr-prospect-development/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6147464/2025/02/20/ron-rivera-panthers-bryce-young-
 **Bucha Has a Question: Does Trump Remember the Russian Massacre?**\
 `Residents of a Ukrainian suburb that was the site of notorious attacks on civilians after Russia invaded are alarmed by President Trump’s warm words for Moscow.`\
 https://nytimes.com/2025/02/20/world/europe/bucha-russia-massacre-trump.html
-
-**Thanks to Trump, Saudi Arabia Gets a Big Week in International Diplomacy**\
-`Riyadh is hosting U.S., Russian and Arab officials for high-stakes talks on Ukraine and Gaza, more proof of its regional clout and warm relations with President Trump.`\
-https://nytimes.com/2025/02/20/world/middleeast/trump-saudi-arabia-diplomacy.html
-
-**Tom Friedman on Just How Far Trump Could Push the World**\
-`The president wants to create a revolution abroad. This Opinion columnist would love to see a plan.`\
-https://nytimes.com/2025/02/20/opinion/trump-putin-ukraine-europe.html
-
-**Metroidvanias: The Video Games You Can Get Lost In**\
-`The cryptically named genre famed for its labyrinthine 2-D settings is nearly 40 years old and still going strong.`\
-https://nytimes.com/interactive/2025/02/20/arts/metroidvania-games-metroid-castlevania.html
 
