@@ -1,3 +1,7 @@
+**Fan Zhendong on the Grit and Grace of Table Tennis Gold**\
+`Becoming the world champion in table tennis requires passion, a steady mental pace, precision and preparation, says the 2024 gold medalist.`\
+https://nytimes.com/paidpost/ubs/fan-zhendong-on-the-grit-and-grace-of-table-tennis-gold.html
+
 **Sanctions Against Russia**\
 `We explain what President Trump may do with them.`\
 https://nytimes.com/2025/02/20/briefing/sanctions-against-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147142/2025/02/20/vikings-five-questions-nfl-combi
 **What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
 `Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
 https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
-
-**Wild revel in watching 4 Nations, Foligno's 'win-win' in final, Kaprizov update: Notebook**\
-`The Wild's Matt Boldy and Brock Faber are set to play in the 4 Nations Face-Off final against Canada on Thursday night.`\
-https://nytimes.com/athletic/6147010/2025/02/20/wild-4-nations-foligno-kaprizov-yurov/
 

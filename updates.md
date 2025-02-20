@@ -1,3 +1,7 @@
+**Fan Zhendong on the Grit and Grace of Table Tennis Gold**\
+`Becoming the world champion in table tennis requires passion, a steady mental pace, precision and preparation, says the 2024 gold medalist.`\
+https://nytimes.com/paidpost/ubs/fan-zhendong-on-the-grit-and-grace-of-table-tennis-gold.html
+
 **Sanctions Against Russia**\
 `We explain what President Trump may do with them.`\
 https://nytimes.com/2025/02/20/briefing/sanctions-against-russia.html
