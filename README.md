@@ -1,3 +1,11 @@
+**DOGE Cuts 9/11 Survivors’ Fund, and Republicans Join Democrats in Rebuke**\
+`After 20 percent of the World Trade Center Health Program staff was terminated last week, Democratic lawmakers were outraged. On Wednesday, Republican lawmakers joined them.`\
+https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
+
+**Have a View on Aviation Safety and the D.C. Airport Crash? We Want to Hear It.**\
+`We want to hear your perspective on the circumstances that led to the Jan. 29 midair collision near Reagan National Airport, and on air safety and regulation in general. What works and what does not?`\
+https://nytimes.com/2025/02/19/us/plane-crash-aviation-questions.html
+
 **Trump Urged to Halt Firings at the F.A.A.**\
 `After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
 https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/fashion/weddings/winnie-harlow-kyle-kuzmas-engage
 **What Is Elon Musk’s Job?**\
 `Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
 https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
-
-**Why Trump’s Decision to Kill Congestion Pricing Feels Like Such a Gut Punch**\
-`For now the only metric that matters is the depth of Donald Trump’s spite.`\
-https://nytimes.com/live/2025/02/12/opinion/thepoint/donald-trump-congestion-pricing-new-york
-
-**Which teams are in the Champions League round of 16 and when is the draw?**\
-`Kylian Mbappe scored a hat-trick and PSG thrashed a fellow French side in the play-offs. So what's next?`\
-https://nytimes.com/athletic/6147258/2025/02/19/champions-league-round-of-16-teams/
 
