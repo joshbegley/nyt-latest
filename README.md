@@ -1,3 +1,7 @@
+**Trump Says He Would Have Had a ‘Very Nasty Life’ if He Lost the Election**\
+`The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
+https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
+
 **DOGE Cuts 9/11 Survivors’ Fund, and Republicans Join Democrats in Rebuke**\
 `After 20 percent of the World Trade Center Health Program staff was terminated last week, Democratic lawmakers were outraged. On Wednesday, Republican lawmakers joined them.`\
 https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147394/2025/02/19/ceddanne-rafaela-red-sox-improve
 **Winnie Harlow and Kyle Kuzma’s Engagement Met With Star-Studded Congratulations**\
 `The couple’s happy news captured the hearts of celebrity friends and fans alike.`\
 https://nytimes.com/2025/02/19/fashion/weddings/winnie-harlow-kyle-kuzmas-engagement.html
-
-**What Is Elon Musk’s Job?**\
-`Even as the billionaire tech executive Elon Musk is seemingly everywhere in Washington, his role remains murky.`\
-https://nytimes.com/2025/02/19/us/politics/elon-musk-job-white-house-trump.html
 
