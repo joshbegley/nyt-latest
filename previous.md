@@ -1,3 +1,7 @@
+**LeBron says he'll have to manage ankle soreness for rest of the season**\
+`The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
+https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
+
 **An Opening for China, Made in America**\
 `Trump’s long and growing list of shortsighted actions in Latin America has created an opening there for America’s adversaries, most notably China.`\
 https://nytimes.com/2025/02/20/opinion/trump-tariffs-latin-america-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128950/2025/02/20/yun-do-young-south-korea-brighto
 **Strand Larsen's promising start should not mask the need for a No 9 this summer**\
 `It has become increasingly clear this season that Wolves cannot gamble on having just one recognised centre-forward`\
 https://nytimes.com/athletic/6140707/2025/02/20/wolves-strikers-summer-signing/
-
-**How can Aston Villa fix their defensive frailties? Score more goals**\
-`Aston Villa have struggled defensively this season — the solution became clear after their draw with Liverpool`\
-https://nytimes.com/athletic/6146314/2025/02/20/aston-villa-goals-defence-analysis/
 

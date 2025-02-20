@@ -1,3 +1,7 @@
+**LeBron says he'll have to manage ankle soreness for rest of the season**\
+`The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
+https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
+
 **An Opening for China, Made in America**\
 `Trump’s long and growing list of shortsighted actions in Latin America has created an opening there for America’s adversaries, most notably China.`\
 https://nytimes.com/2025/02/20/opinion/trump-tariffs-latin-america-china.html
