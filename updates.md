@@ -1,3 +1,7 @@
+**New York Sues Vape Makers, Saying They Make Products Attractive to Teens**\
+`The state’s attorney general sued nine companies that make and distribute popular vaping devices, seeking a permanent ban on the flavored products.`\
+https://nytimes.com/2025/02/20/nyregion/new-york-vape-lawsuit.html
+
 **Why Did QR Codes Appear on About 1,000 Graves in Munich?**\
 `The mystery has bewildered city workers and set off a police investigation.`\
 https://nytimes.com/2025/02/20/world/europe/germany-munich-qr-codes-graves.html
