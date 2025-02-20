@@ -1,3 +1,7 @@
+**Bada Bing Bada Boom!**\
+`Peter Gorman offers a puzzle that is gentle to solve … and confusing. But he meant to do that.`\
+https://nytimes.com/2025/02/19/crosswords/daily-puzzle-2025-02-20.html
+
 **Trump Suggests Savings From Spending Cuts Could Be Returned to Taxpayers**\
 `The president said a plan to return money culled from budget cuts and work force reductions to taxpayers was “under consideration,” but he offered no details about how or if it could be done.`\
 https://nytimes.com/2025/02/19/us/politics/trump-doge-savings.html
