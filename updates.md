@@ -1,3 +1,7 @@
+**Braves' AJ Smith-Shawver, Hurston Waldrep feel better prepared to succeed**\
+`Smith-Shawver and Waldrep will get a fresh start, this time without as much attention or outside expectations.`\
+https://nytimes.com/athletic/6149438/2025/02/20/braves-aj-smith-shawver-hurston-waldrep/
+
 **The collectibles impact of Victor Wembanyama's season-ending injury**\
 `What happens to a major star's collectibles market when they suffer a significant injury? Here's what we've seen before`\
 https://nytimes.com/athletic/6149525/2025/02/20/victor-wembanyama-injury-card-values/
