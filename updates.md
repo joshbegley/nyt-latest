@@ -1,3 +1,15 @@
+**Why Did QR Codes Appear on About 1,000 Graves in Munich?**\
+`The mystery has bewildered city workers and set off a police investigation.`\
+https://nytimes.com/2025/02/20/world/europe/germany-munich-qr-codes-graves.html
+
+**‘The Unbreakable Boy’ Review: Surmounting Hardships With Joy**\
+`This family drama by Jon Gunn, based on a true story, is told from the perspective of a young boy with autism.`\
+https://nytimes.com/2025/02/20/movies/the-unbreakable-boy-review-surmounting-hardships-with-joy.html
+
+**Hainan Chicken Rice Might Just Be My Favorite Chicken Dish**\
+`Succulent, gently poached chicken, soothing soup, fragrant rice and a sparkly ginger-scallion sauce. What’s not to love?`\
+https://nytimes.com/2025/02/20/dining/hainan-chicken-rice.html
+
 **The Bounce: Nikola Jokić, Jamal Murray and the Nuggets are ready to challenge the Thunder**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6148630/2025/02/20/nikola-jokic-jamal-murray-nuggets-shai-gilgeous-alexander-thunder-nba-the-bounce/
