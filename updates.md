@@ -1,3 +1,7 @@
+**Trump Says He Would Have Had a ‘Very Nasty Life’ if He’d Lost the Election**\
+`The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
+https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
+
 **Trump Says He Would Have Had a ‘Very Nasty Life’ if He Lost the Election**\
 `The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
 https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
