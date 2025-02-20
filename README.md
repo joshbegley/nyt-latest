@@ -1,3 +1,15 @@
+**Chelsea co-owner says Maresca is 'doing a great job', will continue this season**\
+`Maresca was only appointed in June signing a five-year deal with the option of a sixth.`\
+https://nytimes.com/athletic/6148369/2025/02/20/chelsea-enzo-maresca-jonathan-goldstein/
+
+**A Taxi Driver’s Comment Inspired David Levering Lewis’s Personal New Book**\
+`The august scholar has two Pulitzer Prizes and a National Humanities Medal. In “The Stained Glass Window,” he seeks to explain “macro-history as family history.”`\
+https://nytimes.com/2025/02/20/books/review/david-levering-lewis-the-stained-glass-window.html
+
+**Slot: 'Harder to accept' Nunez's 'behaviour' after Villa miss**\
+`The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game poised at 2-2.`\
+https://nytimes.com/athletic/6148309/2025/02/20/arne-slot-darwin-nunez-miss/
+
 **Ownership's commitment, Armstrong changing the core and more: Blues mailbag, part 2**\
 `What moves will GM Doug Armstrong look to make next, and where does GM-in-waiting Alexander Steen fit in?`\
 https://nytimes.com/athletic/6138790/2025/02/20/blues-mailbag-ownership-armstrong-steen-retool/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/movies/ex-husbands-review.html
 **Fan Zhendong on the Grit and Grace of Table Tennis Gold**\
 `Becoming the world champion in table tennis requires passion, a steady mental pace, precision and preparation, says the 2024 gold medalist.`\
 https://nytimes.com/paidpost/ubs/fan-zhendong-on-the-grit-and-grace-of-table-tennis-gold.html
-
-**Sanctions Against Russia**\
-`We explain what President Trump may do with them.`\
-https://nytimes.com/2025/02/20/briefing/sanctions-against-russia.html
-
-**Twins mailbag: Sudden spending, Lee's job search, France vs. Miranda, changes for Varland**\
-`Plus a front office blind spot, Chris Paddack's workload, Cory Lewis' knuckleball and how fast Walker Jenkins can move.`\
-https://nytimes.com/athletic/6143908/2025/02/20/minnesota-twins-payroll-ty-france-jose-miranda/
-
-**Can the Bulls remain competitive? 5 things to watch after the All-Star break**\
-`With 27 games left on the Bulls' regular-season schedule, here are five big things to watch from the team in its home stretch.`\
-https://nytimes.com/athletic/6146941/2025/02/20/chicago-bulls-regular-season-things-to-watch/
 
