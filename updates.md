@@ -1,3 +1,7 @@
+**Trump Suggests Savings From Spending Cuts Could Be Returned to Taxpayers**\
+`The president said a plan to return money culled from budget cuts and work force reductions to taxpayers was “under consideration,” but he offered no details about how or if it could be done.`\
+https://nytimes.com/2025/02/19/us/politics/trump-doge-savings.html
+
 **Corrections: Feb. 20, 2025**\
 `Corrections that appeared in print on Thursday, Feb. 20, 2025.`\
 https://nytimes.com/2025/02/19/pageoneplus/corrections-feb-20-2025.html
