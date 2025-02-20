@@ -1,3 +1,15 @@
+**Amick: Blood clot stalls Victor Wembanyama's ascent, but Spurs are signaling optimism**\
+`Even with the positive long-term prognosis, there is an air of inevitable uncertainty that is as inescapable.`\
+https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spurs/
+
+**A Bachelorette, a Ballroom Dancer and a ‘Traitor’ Walk Into a Bar**\
+`They’re all Gabby Windey, the reality television star whose latest turn is on the cult hit “The Traitors.”`\
+https://nytimes.com/2025/02/20/style/gabby-windey-traitors-bachelorette.html
+
+**Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
+`“He was electric, man,” catcher Jake Rogers said of Jackson Jobe and his new curveball. `\
+https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
+
 **At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\
 `Some said they were initially turned away from the conservative conference, prompting outrage and an apology.`\
 https://nytimes.com/2025/02/20/us/cpac-january-6-proud-boys.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-electio
 **Juan Soto buys Mets teammate a car in exchange for No. 22**\
 `Baty had agreed to give up his number without asking for anything in return, which Soto appreciated.`\
 https://nytimes.com/athletic/6149739/2025/02/20/mets-juan-soto-teammate-car/
-
-**Fired Park Rangers Try to ‘Open Some Hearts’ on Social Media**\
-`Some rangers decided it was worth the risk to speak out online about their firings and share their love of the National Park Service.`\
-https://nytimes.com/2025/02/20/style/national-park-rangers-firings-reactions.html
-
-**My Perfect Solo Saturday**\
-`Three spots for a day out on the town, no share plates necessary.`\
-https://nytimes.com/2025/02/20/dining/my-perfect-solo-saturday.html
-
-**Marshall Rose, Who Helped Revive Two New York Institutions, Dies at 88**\
-`He was instrumental in revitalizing the New York Public Library and transforming Bryant Park from a dangerous dead zone into a glorious sanctuary.`\
-https://nytimes.com/2025/02/20/nyregion/marshall-rose-dead.html
 
