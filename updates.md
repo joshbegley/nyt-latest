@@ -1,3 +1,11 @@
+**The Deeply Spiced Meatballs That Call Back to Haiti**\
+`Since moving to Portland, Ore., 30 years ago, Elsy Dinvil has quietly introduced home cooks and chefs to the cuisine and stories of her country.`\
+https://nytimes.com/2025/02/20/dining/haitian-meatballs.html
+
+**Under Trump, D.C. Faces More Federal Control, Fewer Federal Workers**\
+`The Washington region is bracing for a shock to the local economy from President Trump and Elon Musk’s sweeping cuts to the government work force.`\
+https://nytimes.com/2025/02/20/us/trump-musk-dc-federal-work-force.html
+
 **Canucks trade deadline need tiers: What Vancouver can do to improve its outlook**\
 `Let's dive into the Canucks' most significant needs ahead of the March 7 deadline and how they could go about addressing them.`\
 https://nytimes.com/athletic/6148185/2025/02/20/canucks-trade-deadline-needs-2025/
