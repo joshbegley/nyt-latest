@@ -1,3 +1,7 @@
+**Battle for McConnell’s Senate Seat Begins Promptly**\
+`Shortly after Senator Mitch McConnell said he would not run for an eighth term, Daniel Cameron, a former Kentucky attorney general, said he would run for the seat in 2026. Two lawmakers and a businessman also hinted at running.`\
+https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-senate-kentucky.html
+
 **N.Y. Prisons Loosen Solitary Confinement Rules as Wildcat Strikes Spread**\
 `Corrections officers in New York say their working conditions are dangerous and they are forced into overtime. They have walked off the job at 41 of the state’s 42 prisons.`\
 https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confinement.html
