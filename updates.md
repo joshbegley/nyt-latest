@@ -1,3 +1,7 @@
+**San Vicente Bungalows Brings FOMO to New York**\
+`Who’s joining? What’s the scene like? Will you miss out if you aren’t part of the club?`\
+https://nytimes.com/2025/02/20/fashion/san-vicente-jeff-klein.html
+
 **Amick: Blood clot stalls Victor Wembanyama's ascent, but Spurs are signaling optimism**\
 `Even with the positive long-term prognosis, there is an air of inevitable uncertainty that is as inescapable.`\
 https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spurs/

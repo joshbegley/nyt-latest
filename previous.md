@@ -1,3 +1,7 @@
+**San Vicente Bungalows Brings FOMO to New York**\
+`Who’s joining? What’s the scene like? Will you miss out if you aren’t part of the club?`\
+https://nytimes.com/2025/02/20/fashion/san-vicente-jeff-klein.html
+
 **Amick: Blood clot stalls Victor Wembanyama's ascent, but Spurs are signaling optimism**\
 `Even with the positive long-term prognosis, there is an air of inevitable uncertainty that is as inescapable.`\
 https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/world/middleeast/bibas-hostages-israel.html
 **Friday Briefing: Germans Are Choosing New Leadership**\
 `Plus, volcano tourism in Sicily.`\
 https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-election-interference-cuts.html
-
-**Juan Soto buys Mets teammate a car in exchange for No. 22**\
-`Baty had agreed to give up his number without asking for anything in return, which Soto appreciated.`\
-https://nytimes.com/athletic/6149739/2025/02/20/mets-juan-soto-teammate-car/
 
