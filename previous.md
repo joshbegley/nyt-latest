@@ -1,3 +1,7 @@
+**Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
+`He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
+https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
+
 **Marcus Smart loves to teach. He'll have that opportunity with the Washington Wizards**\
 `Smart and Khris Middleton benefitted from having good mentors. They'll have a chance to pay it forward in Washington.`\
 https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-washington-wizards-mentors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6136186/2025/02/20/sharks-nhl-trades-2025/
 **Back at shortstop, Xander Bogaerts could be biggest key to Padres’ hopes**\
 `Bogaerts believes he has legitimate reasons to be optimistic about his upcoming season.`\
 https://nytimes.com/athletic/6146197/2025/02/20/padres-xander-bogaerts-shortstop-return/
-
-**The best case for trading Nikolaj Ehlers — and the best case for Winnipeg to keep him**\
-`Breaking down the reasons on and off the ice why the Jets might keep or trade their Danish veteran.`\
-https://nytimes.com/athletic/6137245/2025/02/20/winnipeg-jets-nikolaj-ehlers-options-cheveldayoff/
 

@@ -1,3 +1,7 @@
+**Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
+`He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
+https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
+
 **Marcus Smart loves to teach. He'll have that opportunity with the Washington Wizards**\
 `Smart and Khris Middleton benefitted from having good mentors. They'll have a chance to pay it forward in Washington.`\
 https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-washington-wizards-mentors/
