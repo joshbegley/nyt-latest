@@ -1,3 +1,15 @@
+**Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
+`In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
+https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
+
+**Seeking Golf Deal, Trump Meets Tiger Woods and Saudi Wealth Fund Chief**\
+`The president has been agitating recently to repair the divide between the PGA Tour and LIV Golf that has shadowed professional golf for several years.`\
+https://nytimes.com/2025/02/20/us/politics/trump-tiger-woods-liv-golf.html
+
+**After Endless Wait, Israelis’ Worst Fears for Bibas Family Appear Confirmed**\
+`Hamas released what it said were the remains of two young children and their mother who were taken hostage in the Oct. 7, 2023, attack. Their fates had captivated a nation.`\
+https://nytimes.com/2025/02/20/world/middleeast/bibas-hostages-israel.html
+
 **Friday Briefing: Germans Are Choosing New Leadership**\
 `Plus, volcano tourism in Sicily.`\
 https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-election-interference-cuts.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6149658/2025/02/20/flyers-lineup-kuzmenko-pelletier
 **Mitch McConnell Was Always Willing to Be the Villain**\
 `McConnell’s career and legacy changed when Trump became president, and his decisions might end up negating all the rest.`\
 https://nytimes.com/live/2025/02/12/opinion/thepoint/mitch-mcconnell-retirment-trump
-
-**Braves' AJ Smith-Shawver, Hurston Waldrep feel better prepared to succeed**\
-`Smith-Shawver and Waldrep will get a fresh start, this time without as much attention or outside expectations.`\
-https://nytimes.com/athletic/6149438/2025/02/20/braves-aj-smith-shawver-hurston-waldrep/
-
-**The collectibles impact of Victor Wembanyama's season-ending injury**\
-`What happens to a major star's collectibles market when they suffer a significant injury? Here's what we've seen before`\
-https://nytimes.com/athletic/6149525/2025/02/20/victor-wembanyama-injury-card-values/
-
-**Jenni Hermoso was not the victim people wanted her to be - we should be grateful to her for that**\
-`Luis Rubiales was found guilty of sexual assault for kissing the Spain player without consent after she won the World Cup in 2023`\
-https://nytimes.com/athletic/6149280/2025/02/20/jenni-hermoso-rubliales-spain-trial-victim/
 
