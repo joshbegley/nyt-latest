@@ -1,3 +1,7 @@
+**Why 'beast' Kashawn Aitcheson is a top 2025 NHL Draft prospect**\
+`Draft-eligible defenseman Kashawn Aitcheson hits hard on the ice, but works even harder off it.`\
+https://nytimes.com/athletic/5897808/2025/02/20/nhl-draft-2025-prospect-kashawn-aitcheson/
+
 **Zelensky to Meet U.S. Envoy to Ukraine Amid Public Spat With Trump**\
 `Keith Kellogg and President Volodymyr Zelensky were expected to discuss possible paths to ending the war and ways to defuse tensions between Washington and Kyiv.`\
 https://nytimes.com/2025/02/20/world/europe/ukraine-zelensky-kellogg-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6138790/2025/02/20/blues-mailbag-ownership-armstron
 **George Paton's vision as Broncos GM coming to fruition, but biggest test remains**\
 `The GM's working relationship with coach Sean Payton has been instrumental to Denver's climb. "Their personalities complement each other."`\
 https://nytimes.com/athletic/6146327/2025/02/20/george-paton-broncos-gm-2025/
-
-**‘The Quiet Ones’ Review: Getting Swindled in Copenhagen**\
-`Inspired by a real heist, this Danish thriller has more moving parts than it can keep track of.`\
-https://nytimes.com/2025/02/20/movies/the-quiet-ones-review.html
 
