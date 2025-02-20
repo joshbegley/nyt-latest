@@ -1,3 +1,7 @@
+**Trump Team Plans Deep Cuts at Office That Funds Recovery From Big Disasters**\
+`Staff at the office, a branch of the U.S. housing department that Congress uses to address the worst catastrophes, would be reduced by 84 percent.`\
+https://nytimes.com/2025/02/20/climate/trump-cuts-hud-disaster-recovery.html
+
 **Legal Complications Follow Trump’s Edict to Send Migrants to Guantánamo**\
 `Lawsuits are challenging President Trump’s abrupt decision to send men awaiting deportation to the American military base in Cuba.`\
 https://nytimes.com/article/trump-migrants-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexand
 **Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
 `He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
 https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
-
-**Marcus Smart loves to teach. He'll have that opportunity with the Washington Wizards**\
-`Smart and Khris Middleton benefitted from having good mentors. They'll have a chance to pay it forward in Washington.`\
-https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-washington-wizards-mentors/
 

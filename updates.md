@@ -1,3 +1,7 @@
+**Trump Team Plans Deep Cuts at Office That Funds Recovery From Big Disasters**\
+`Staff at the office, a branch of the U.S. housing department that Congress uses to address the worst catastrophes, would be reduced by 84 percent.`\
+https://nytimes.com/2025/02/20/climate/trump-cuts-hud-disaster-recovery.html
+
 **Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
 `With more scouting and better video, teams are taking more stock in players’ winter league performances.`\
 https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/
