@@ -1,3 +1,7 @@
+**The Bounce: Nikola Jokić, Jamal Murray and the Nuggets are ready to challenge the Thunder**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6148630/2025/02/20/nikola-jokic-jamal-murray-nuggets-shai-gilgeous-alexander-thunder-nba-the-bounce/
+
 **Former N.F.L. Player Arrested for Protest Against MAGA Plaque**\
 `Chris Kluwe, a former N.F.L. punter and a resident of Huntington Beach, Calif., was arrested at a city council meeting after speaking out against plans to install a plaque with references to President Trump’s slogan, “Make America Great Again.”`\
 https://nytimes.com/video/us/politics/100000010001463/chris-kluwe-maga-plaque-protest-huntington-beach.html

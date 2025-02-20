@@ -2,6 +2,10 @@
 `Chris Kluwe, a former N.F.L. punter and a resident of Huntington Beach, Calif., was arrested at a city council meeting after speaking out against plans to install a plaque with references to President Trump’s slogan, “Make America Great Again.”`\
 https://nytimes.com/video/us/politics/100000010001463/chris-kluwe-maga-plaque-protest-huntington-beach.html
 
+**The Bounce: Nikola Jokić, Jamal Murray and the Nuggets are ready to challenge the Thunder**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6148630/2025/02/20/nikola-jokic-jamal-murray-nuggets-shai-gilgeous-alexander-thunder-nba-the-bounce/
+
 **Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
 `It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
 https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6134110/2025/02/20/arne-slot-liverpool-fa-charges/
 **A.I. Is Changing How Silicon Valley Builds Start-Ups**\
 `Tech start-ups typically raised huge sums to hire armies of workers and grow fast. Now artificial intelligence tools are making workers more productive and spurring tales of “tiny team” success.`\
 https://nytimes.com/2025/02/20/technology/ai-silicon-valley-start-ups.html
-
-**A.I. Is Prompting an Evolution, Not Extinction, for Coders**\
-`A.I. tools from Microsoft and other companies are helping write code, placing software engineers at the forefront of the technology’s potential to disrupt the work force.`\
-https://nytimes.com/2025/02/20/business/ai-coding-software-engineers.html
 
