@@ -1,3 +1,11 @@
+**Friday Briefing: Germans Are Choosing New Leadership**\
+`Plus, volcano tourism in Sicily.`\
+https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-election-interference-cuts.html
+
+**Juan Soto buys Mets teammate a car in exchange for No. 22**\
+`Baty had agreed to give up his number without asking for anything in return, which Soto appreciated.`\
+https://nytimes.com/athletic/6149739/2025/02/20/mets-juan-soto-teammate-car/
+
 **Fired Park Rangers Try to ‘Open Some Hearts’ on Social Media**\
 `Some rangers decided it was worth the risk to speak out online about their firings and share their love of the National Park Service.`\
 https://nytimes.com/2025/02/20/style/national-park-rangers-firings-reactions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6149525/2025/02/20/victor-wembanyama-injury-card-va
 **Jenni Hermoso was not the victim people wanted her to be - we should be grateful to her for that**\
 `Luis Rubiales was found guilty of sexual assault for kissing the Spain player without consent after she won the World Cup in 2023`\
 https://nytimes.com/athletic/6149280/2025/02/20/jenni-hermoso-rubliales-spain-trial-victim/
-
-**Feyenoord reach agreement to appoint Van Persie and Hake**\
-`Deals are place in place between Feyenoord and Heerenveen, and both Van Persie and Hake.`\
-https://nytimes.com/athletic/6148289/2025/02/20/van-persie-feyenoord-head-coach/
-
-**Mavs' Anthony Davis to miss at least another seven games**\
-`The star forward Dallas acquired in the Luka Dončić trade has been out with an adductor strain and will be re-evaluated in two weeks.`\
-https://nytimes.com/athletic/6149432/2025/02/20/anthony-davis-mavericks-injury-update/
 
