@@ -1,3 +1,11 @@
+**At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\
+`Some said they were initially turned away from the conservative conference, prompting outrage and an apology.`\
+https://nytimes.com/2025/02/20/us/cpac-january-6-proud-boys.html
+
+**In Private Remarks on Russia, Rubio Tries to Reassure Europeans**\
+`European officials were not sure what to make of the secretary of state’s measured assessment of Washington’s apparent pivot toward Moscow.`\
+https://nytimes.com/2025/02/20/us/politics/rubio-russia-europe.html
+
 **Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
 `In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
 https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/dining/my-perfect-solo-saturday.html
 **Marshall Rose, Who Helped Revive Two New York Institutions, Dies at 88**\
 `He was instrumental in revitalizing the New York Public Library and transforming Bryant Park from a dangerous dead zone into a glorious sanctuary.`\
 https://nytimes.com/2025/02/20/nyregion/marshall-rose-dead.html
-
-**With several players returning, how might the Flyers look with a full lineup?**\
-`The Flyers are getting their lineup set as they prepare to return to action on Saturday.`\
-https://nytimes.com/athletic/6149658/2025/02/20/flyers-lineup-kuzmenko-pelletier/
-
-**Mitch McConnell Was Always Willing to Be the Villain**\
-`McConnell’s career and legacy changed when Trump became president, and his decisions might end up negating all the rest.`\
-https://nytimes.com/live/2025/02/12/opinion/thepoint/mitch-mcconnell-retirment-trump
 

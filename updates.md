@@ -1,3 +1,11 @@
+**At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\
+`Some said they were initially turned away from the conservative conference, prompting outrage and an apology.`\
+https://nytimes.com/2025/02/20/us/cpac-january-6-proud-boys.html
+
+**In Private Remarks on Russia, Rubio Tries to Reassure Europeans**\
+`European officials were not sure what to make of the secretary of state’s measured assessment of Washington’s apparent pivot toward Moscow.`\
+https://nytimes.com/2025/02/20/us/politics/rubio-russia-europe.html
+
 **Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
 `In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
 https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
