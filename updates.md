@@ -1,3 +1,7 @@
+**Hamas to Hand Bodies of 4 Hostages Back to Israel**\
+`All four were abducted during the Hamas-led attack on Oct. 7, 2023. They were expected to include a woman and her two children.`\
+https://nytimes.com/2025/02/20/world/middleeast/hamas-to-hand-bodies-of-4-hostages-back-to-israel.html
+
 **Stephen Colbert Would Like to Know Who’s in Charge Here**\
 `The “Late Show” host was taken aback by the White House’s claim that Elon Musk doesn’t run DOGE: “It’s literally named after his favorite meme!”`\
 https://nytimes.com/2025/02/20/arts/television/stephen-colbert-doge-elon-musk.html
