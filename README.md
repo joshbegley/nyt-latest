@@ -1,3 +1,7 @@
+**Without Haaland, City are a shadow of a team**\
+`The striker's absence snuffed out City's hopes in Madrid before a ball had been kicked - and that's a bad sign`\
+https://nytimes.com/athletic/6147512/2025/02/20/erling-haaland-manchester-city-team/
+
 **'Imagine a Fiat with a Ferrari engine': Explaining Van de Ven's mechanics (and hamstrings)**\
 `Tottenham want to understand why their gifted but injury-prone defender is breaking down - and the answer could lie in his gait`\
 https://nytimes.com/athletic/6145972/2025/02/20/micky-van-de-ven-tottenham-hamstring-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
 **Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
 `The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
 https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
-
-**A Long Journey Home: After 50 Years, Back on the Reservation**\
-`Leonard Peltier, the American Indian Movement activist, returned to North Dakota, where, under home confinement, he will serve the remainder of his life sentence for the murders of two F.B.I. agents.`\
-https://nytimes.com/2025/02/19/us/leonard-peltier-homecoming-north-dakota.html
 
