@@ -1,3 +1,7 @@
+**Trump Cuts Protections for Haitians, Putting Them on Track for Deportation**\
+`The decision is the latest in President Trump’s sweeping crackdown on immigrants, including people whom the Biden administration had authorized to remain in the country.`\
+https://nytimes.com/2025/02/20/us/politics/haitians-temporary-protected-status.html
+
 **Fox News, CNN and Other News Outlets Urge White House to Drop Ban on The A.P.**\
 `Dozens of major news organizations, including some conservative outlets, urged the Trump administration to stop blocking The Associated Press from press events.`\
 https://nytimes.com/2025/02/20/business/media/ap-white-house-ban-cnn-fox.html
