@@ -1,3 +1,7 @@
+**'Our responsibility is to Carolina': UNC AD addresses code-named conference realignment initiative**\
+`Bubba Cunningham said the Tar Heels' exploration of conference realignment, called the "Carolina Blue matter," was "very, very logical."`\
+https://nytimes.com/athletic/6148087/2025/02/20/north-carolina-conference-realignment-acc-bubba-cunningham/
+
 **How to watch MLB's Spring Training games**\
 `MLB's 2025 Spring Training slate begins with Cubs-Dodgers on Thursday, followed by a daily national offering on MLB TV.`\
 https://nytimes.com/athletic/6146968/2025/02/20/how-to-watch-mlb-spring-training-cubs-dodgers/

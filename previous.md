@@ -1,3 +1,7 @@
+**'Our responsibility is to Carolina': UNC AD addresses code-named conference realignment initiative**\
+`Bubba Cunningham said the Tar Heels' exploration of conference realignment, called the "Carolina Blue matter," was "very, very logical."`\
+https://nytimes.com/athletic/6148087/2025/02/20/north-carolina-conference-realignment-acc-bubba-cunningham/
+
 **Cubs move forward with major goals, backed by players who've won it all**\
 `Up and down the Cubs' roster are players who have completed the ultimate goal — winning the World Series. `\
 https://nytimes.com/athletic/6147046/2025/02/20/chicago-cubs-veteran-postseason-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146667/2025/02/20/4-nations-face-off-final-united-
 **The Sordid Saga of President Trump and Mayor Adams**\
 `An alleged quid pro quo has plunged the Justice Department and New York’s political world into chaos.`\
 https://nytimes.com/2025/02/20/podcasts/the-daily/mayor-eric-adams-donald-trump.html
-
-**How to watch MLB's Spring Training games**\
-`MLB's 2025 Spring Training slate begins with Cubs-Dodgers on Thursday, followed by a daily national offering on MLB TV.`\
-https://nytimes.com/athletic/6146968/2025/02/20/how-to-watch-mlb-spring-training-cubs-dodgers/
 
