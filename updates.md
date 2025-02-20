@@ -1,3 +1,11 @@
+**Man Who Kidnapped Ride Share Driver Gets 12 Years in Prison**\
+`The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
+https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
+
+**All-Pro guard Zack Martins informs Cowboys of retirement after 11 seasons: Sources**\
+`In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
+https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/
+
 **Battle for McConnell’s Senate Seat Begins Promptly**\
 `Shortly after Senator Mitch McConnell said he would not run for an eighth term, Daniel Cameron, a former Kentucky attorney general, said he would run for the seat in 2026. Two lawmakers and a businessman also hinted at running.`\
 https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-senate-kentucky.html
