@@ -1,3 +1,15 @@
+**Germany’s Big Fascist Comeback**\
+`Germany’s attempts to “remember away” its Nazi past has instead paved the way for a far-right resurgence.`\
+https://nytimes.com/video/opinion/100000009970138/germany-elections-afd.html
+
+**Federal Takeover or 51st State? Trump Weighs In on D.C. Debate.**\
+`President Trump said the federal government should control the nation’s capital. Democrats and most local residents have long argued that Washington, D.C., should be a state.`\
+https://nytimes.com/2025/02/20/us/politics/trump-dc-federal-takeover.html
+
+**NBA and offensive identity: 3s are prevalent, but not all teams are created equal**\
+`There may be a prevailing narrative that every team plays the same style, but that's far from the truth.`\
+https://nytimes.com/athletic/6064695/2025/02/20/nba-offensive-identity-cavaliers-thunder/
+
 **Hamas Hands Bodies of 4 Hostages Back to Israel**\
 `All four had been abducted during the Hamas-led attack on Oct. 7, 2023. An Israeli woman and her two young children were said to be among them.`\
 https://nytimes.com/2025/02/20/world/middleeast/israel-hamas-hostages-bodies.html
