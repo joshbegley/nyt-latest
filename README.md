@@ -1,3 +1,7 @@
+**Bubble Watch: TCU arrives, SEC hopefuls take hits in stretch run**\
+`This was a big separation week, as we welcomed five more teams into the utopian realm of Lockdom. The bubble is shrinking.`\
+https://nytimes.com/athletic/6147945/2025/02/20/mens-ncaa-tournament-bubble-watch-tcu-illinois/
+
 **Arsenal agree deal to sign Hamill, 15, from St Johnstone**\
 `A six-figure package plus add-ons has been agreed, and the 15-year-old is set to officially join the club on July 1.`\
 https://nytimes.com/athletic/6148454/2025/02/20/arsenal-transfer-news-callan-hamill/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146696/2025/02/20/anaheim-ducks-trades-2025/
 **The Twisting Tale of ‘Woke’ Is the Story of the English Language**\
 `From pejoration to semantic broadening, the word has done it all.`\
 https://nytimes.com/2025/02/20/opinion/the-long-strange-trail-of-woke.html
-
-**Spain’s Ex-Soccer Chief Convicted of Sexual Assault for Kissing Star Player**\
-`Luis Rubiales forcibly kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup.`\
-https://nytimes.com/2025/02/20/world/europe/luis-rubiales-spain-soccer-conviction.html
 
