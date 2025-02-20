@@ -1,40 +1,40 @@
-**Chinese Warships Near Sydney Raise Alarm in Australia and New Zealand**\
-`Sailing in Australia’s exclusive economic zone, the three vessels were not breaking international law, but they were unusually far south on an undeclared mission.`\
-https://nytimes.com/2025/02/20/world/australia/chinese-ships-tasman-nz.html
+**Cubs move forward with major goals, backed by players who've won it all**\
+`Up and down the Cubs' roster are players who have completed the ultimate goal — winning the World Series. `\
+https://nytimes.com/athletic/6147046/2025/02/20/chicago-cubs-veteran-postseason-experience/
 
-**Should Colts reward Alec Pierce's breakout season with a contract extension?**\
-`Colts GM Chris Ballard on Pierce: "He's exactly who we thought he was going to be. And I think there's more in there. I do."`\
-https://nytimes.com/athletic/6142795/2025/02/20/colts-alec-pierce-contract-extension/
+**Crosby-Sullivan bond transcends 4 Nations Face-Off**\
+`Crosby and Sullivan will be in the unfamiliar position of facing one another for the second time in five days tonight.`\
+https://nytimes.com/athletic/6147179/2025/02/20/penguins-crosby-sullivan-bond-4-nations-face-off/
 
-**How Brandon Nimmo responded to a brutal second-half slump**\
-`Nimmo ended last season with an OPS more than 100 points worse than in 2023.`\
-https://nytimes.com/athletic/6146840/2025/02/20/mets-brandon-nimmo-bounce-back/
+**5 Vikings questions we'll be looking to answer at the NFL combine**\
+`Among the key questions are where does Minnesota plan to spend its cap space and Dallas Turner's role in 2025.`\
+https://nytimes.com/athletic/6147142/2025/02/20/vikings-five-questions-nfl-combine/
 
-**Would Rams really trade Matthew Stafford to Giants? Examining a potential deal**\
-`The Giants are desperate for a quarterback, while the Rams might not want to pay Stafford what it takes to keep him happy in Los Angeles. `\
-https://nytimes.com/athletic/6146076/2025/02/20/matthew-stafford-trade-giants-rams/
+**What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
+`Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
+https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
 
-**Why Yankees are buzzing over top prospect George Lombard Jr.**\
-`Lombard is soaking up his first weeks in big-league spring training.`\
-https://nytimes.com/athletic/6147694/2025/02/20/yankees-george-lombard-jr-prospect-development/
+**Wild revel in watching 4 Nations, Foligno's 'win-win' in final, Kaprizov update: Notebook**\
+`The Wild's Matt Boldy and Brock Faber are set to play in the 4 Nations Face-Off final against Canada on Thursday night.`\
+https://nytimes.com/athletic/6147010/2025/02/20/wild-4-nations-foligno-kaprizov-yurov/
 
-**Phillies notes: Trea Turner's consistency, the Brandon Marsh debate, upcoming spring games**\
-`There is work to do — on the bases, in the field, and at the plate. The larger valleys in Turner's performance are the chief concern. `\
-https://nytimes.com/athletic/6146928/2025/02/20/phillies-trea-turner-brandon-marsh/
+**USWNT tryouts: The numbers behind the newest U.S. call-ups**\
+`A closer look at the lesser-known players called up to the U.S. women's national team for this month's SheBelieves Cup`\
+https://nytimes.com/athletic/6144175/2025/02/20/shebelieves-cup-watchlist-the-newer-u-s-players-fighting-for-spots-in-emma-hayes-team/
 
-**Immanuel Quickley's 'old-school mentality' braced him for new chapter with Raptors**\
-`"I don't take it lightly. I don't take it for granted,” says Immanuel Quickley of the contract and role he's received from the Raptors.`\
-https://nytimes.com/athletic/5834915/2025/02/20/immanuel-quickley-toronto-raptors-contract/
+**Manchester United live Q&A: Mark Critchley answers your questions**\
+`Pose your questions and our United correspondent Mark Critchley will answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6143948/2025/02/20/manchester-united-questions-amorim-tactics/
 
-**A New Hotel Perched in the Hills of Florence**\
-`Plus: an exhibition dedicated to Leigh Bowery, hydrating skin care made from rice and more recommendations from T Magazine.`\
-https://nytimes.com/2025/02/20/t-magazine/florence-italy-hills-hotel.html
+**Everything you need to know about 4 Nations Face-Off ahead of final bout**\
+`Friend to friend, let's get you caught up quickly and easily ahead of the U.S. and Canada's final battle Thursday night. `\
+https://nytimes.com/athletic/6146667/2025/02/20/4-nations-face-off-final-united-states-canada-what-you-need-to-know/
 
-**Making Her Homebuying Debut in Manhattan With $475,000 to Spend**\
-`After years of living out of suitcases and subletting around the city, a young actor decided to put her savings to work and find a "soft place to land."`\
-https://nytimes.com/interactive/2025/02/20/realestate/hells-kitchen-upper-west-side-apartment-sale.html
+**The Sordid Saga of President Trump and Mayor Adams**\
+`An alleged quid pro quo has plunged the Justice Department and New York’s political world into chaos.`\
+https://nytimes.com/2025/02/20/podcasts/the-daily/mayor-eric-adams-donald-trump.html
 
-**Former Panthers coach likes what he sees in Bryce Young, Dave Canales: Q&A with Ron Rivera**\
-`Rivera also touched on Cam Newton's comments, Luke Kuechly and the HOF and the 2015 Carolina Super Bowl team.`\
-https://nytimes.com/athletic/6147464/2025/02/20/ron-rivera-panthers-bryce-young-canales-kuechly-cam/
+**Trump Blames Ukraine, and More Americans Identify as L.G.B.T.Q.**\
+`Plus, please don’t ski down the volcano.`\
+https://nytimes.com/2025/02/20/podcasts/the-headlines/trump-ukraine-lgbtq-delta.html
 
