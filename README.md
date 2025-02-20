@@ -1,3 +1,7 @@
+**Bada Bing Bada Boom!**\
+`Peter Gorman offers a puzzle that is gentle to solve … and confusing. But he meant to do that.`\
+https://nytimes.com/2025/02/19/crosswords/daily-puzzle-2025-02-20.html
+
 **Trump Suggests Savings From Spending Cuts Could Be Returned to Taxpayers**\
 `The president said a plan to return money culled from budget cuts and work force reductions to taxpayers was “under consideration,” but he offered no details about how or if it could be done.`\
 https://nytimes.com/2025/02/19/us/politics/trump-doge-savings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.
 **DOGE Cuts 9/11 Survivors’ Fund, and Republicans Join Democrats in Rebuke**\
 `After 20 percent of the World Trade Center Health Program staff was terminated last week, Democratic lawmakers were outraged. On Wednesday, Republican lawmakers joined them.`\
 https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
-
-**Have a View on Aviation Safety and the D.C. Airport Crash? We Want to Hear It.**\
-`We want to hear your perspective on the circumstances that led to the Jan. 29 midair collision near Reagan National Airport, and on air safety and regulation in general. What works and what does not?`\
-https://nytimes.com/2025/02/19/us/plane-crash-aviation-questions.html
 
