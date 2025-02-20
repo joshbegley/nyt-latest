@@ -1,3 +1,7 @@
+**Inside Quinn Hughes chaos: What we know about Team USA's scramble to add him for 4 Nations final**\
+`What's best for country isn't always what's best for club, as made clear by this week's dance among the Canucks, Team USA and the NHL.`\
+https://nytimes.com/athletic/6147478/2025/02/19/quinn-hughes-team-usa-4-nations/
+
 **DOGE Cuts 9/11 Survivors’ Fund, and Republicans Join Democrats in Rebuke**\
 `After 20 percent of the World Trade Center Health Program staff was terminated last week, Democratic lawmakers were outraged. On Wednesday, Republican lawmakers joined them.`\
 https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
