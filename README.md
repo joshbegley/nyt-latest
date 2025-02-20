@@ -1,6 +1,6 @@
 **Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
 `In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
-https://nytimes.com/2025/02/20/us/politics/steven-deputy-transportation-hearing.html
+https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
 
 **Seeking Golf Deal, Trump Meets Tiger Woods and Saudi Wealth Fund Chief**\
 `The president has been agitating recently to repair the divide between the PGA Tour and LIV Golf that has shadowed professional golf for several years.`\
