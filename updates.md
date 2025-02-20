@@ -1,3 +1,7 @@
+**Barnes & Noble Widow to Auction $250 Million Art Collection**\
+`Louise Riggio is downsizing her Manhattan apartment, which means selling more than 30 works by artists including Mondrian, Magritte and Picasso.`\
+https://nytimes.com/2025/02/20/arts/design/barnes-noble-riggio-auction-art-mondrian.html
+
 **The Deeply Spiced Meatballs That Call Back to Haiti**\
 `Since moving to Portland, Ore., 30 years ago, Elsy Dinvil has quietly introduced home cooks and chefs to the cuisine and stories of her country.`\
 https://nytimes.com/2025/02/20/dining/haitian-meatballs.html

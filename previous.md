@@ -1,3 +1,7 @@
+**Barnes & Noble Widow to Auction $250 Million Art Collection**\
+`Louise Riggio is downsizing her Manhattan apartment, which means selling more than 30 works by artists including Mondrian, Magritte and Picasso.`\
+https://nytimes.com/2025/02/20/arts/design/barnes-noble-riggio-auction-art-mondrian.html
+
 **The Deeply Spiced Meatballs That Call Back to Haiti**\
 `Since moving to Portland, Ore., 30 years ago, Elsy Dinvil has quietly introduced home cooks and chefs to the cuisine and stories of her country.`\
 https://nytimes.com/2025/02/20/dining/haitian-meatballs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/politics/david-boren-dead.html
 **Corrections Officers Charged With Murder in New York Inmate’s Death**\
 `Gov. Kathy Hochul announced the charges in the December killing of Robert Brooks, which a special prosecutor was expected to unseal Thursday afternoon.`\
 https://nytimes.com/2025/02/20/nyregion/robert-brooks-corrections-officers-charged-murder.html
-
-**With Explosive Goggles, Ukraine Sought to Blast Russian Drone Operators**\
-`A senior Ukrainian intelligence official confirmed the plot to blow up drone goggles. But it was unclear how much effect the scheme had on Russian forces.`\
-https://nytimes.com/2025/02/20/world/europe/urkaine-russia-explosive-goggles.html
 
