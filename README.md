@@ -1,3 +1,11 @@
+**Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
+`In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
+https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
+
+**Airbus Says U.S. Tariffs Would Be ‘Lose-Lose’ for Airline Industry**\
+`The European airline maker, which is Boeing’s chief rival, said it would adapt to any new tariffs, including passing on costs to its customers.`\
+https://nytimes.com/2025/02/20/business/airbus-trump-tariffs-defense-europe.html
+
 **China Defends South Africa’s G20 Ambitions as Rubio Snubs Meeting**\
 `Secretary of State Marco Rubio accused the country of using its position as host of the multilateral gathering to promote diversity and climate change.`\
 https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6149122/2025/02/20/al-khelaifi-textor-french-footba
 **Reds' Terry Francona won't manage against Guardians in spring opener**\
 `“These games need to be about the players,” Francona said of not facing off against his former team. “It doesn’t need to be a hug-fest."`\
 https://nytimes.com/athletic/6149112/2025/02/20/reds-terry-francona-guardians-spring-opener/
-
-**Does the Daytona 500, with its crash-filled endings, have a luck problem?**\
-`Late, race-altering wrecks at the Daytona 500 are nothing new. But a string of recent incidents has poured gas on the issue of luck.`\
-https://nytimes.com/athletic/6148372/2025/02/20/daytona-500-luck-crashes-nascar-william-byron/
-
-**A Leading Anti-Trump Voice Returns to Democrats’ Top Think Tank**\
-`Neera Tanden, a fierce antagonist to President Trump during his first administration, will again lead the Center for American Progress, a major engine of Democratic policy in Washington.`\
-https://nytimes.com/2025/02/20/us/politics/neera-tanden-trump-center-for-american-progress.html
 
