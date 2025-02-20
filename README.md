@@ -1,3 +1,15 @@
+**Former N.F.L. Player Is Arrested After Protest Over MAGA Plaque**\
+`Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
+https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
+
+**Ipswich loanee Enciso facing layoff with knee injury**\
+`The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
+https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
+
+**Brooklyn Academy of Music President Steps Down**\
+`In the latest leadership shake-up, Gina Duncan will leave when her contract expires in June, after three years in the job.`\
+https://nytimes.com/2025/02/20/arts/brooklyn-academy-of-music-president-steps-down.html
+
 **Yankees, Aaron Boone agree to contract extension through 2027**\
 `Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
 https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/movies/the-unbreakable-boy-review-surmounting-har
 **Hainan Chicken Rice Might Just Be My Favorite Chicken Dish**\
 `Succulent, gently poached chicken, soothing soup, fragrant rice and a sparkly ginger-scallion sauce. What’s not to love?`\
 https://nytimes.com/2025/02/20/dining/hainan-chicken-rice.html
-
-**Former N.F.L. Player Arrested for Protest Against MAGA Plaque**\
-`Chris Kluwe, a former N.F.L. punter and a resident of Huntington Beach, Calif., was arrested at a city council meeting after speaking out against plans to install a plaque with references to President Trump’s slogan, “Make America Great Again.”`\
-https://nytimes.com/video/us/politics/100000010001463/chris-kluwe-maga-plaque-protest-huntington-beach.html
-
-**The Bounce: Nikola Jokić, Jamal Murray and the Nuggets are ready to challenge the Thunder**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6148630/2025/02/20/nikola-jokic-jamal-murray-nuggets-shai-gilgeous-alexander-thunder-nba-the-bounce/
-
-**Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
-`It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
-https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html
 
