@@ -1,40 +1,36 @@
+**The collectibles impact of Victor Wembanyama's season-ending injury**\
+`What happens to a major star's collectibles market when they suffer a significant injury? Here's what we've seen before`\
+https://nytimes.com/athletic/6149525/2025/02/20/victor-wembanyama-injury-card-values/
+
+**Jenni Hermoso was not the victim people wanted her to be - we should be grateful to her for that**\
+`Luis Rubiales was found guilty of sexual assault for kissing the Spain player without consent after she won the World Cup in 2023`\
+https://nytimes.com/athletic/6149280/2025/02/20/jenni-hermoso-rubliales-spain-trial-victim/
+
+**Feyenoord reach agreement to appoint Van Persie and Hake**\
+`Deals are place in place between Feyenoord and Heerenveen, and both Van Persie and Hake.`\
+https://nytimes.com/athletic/6148289/2025/02/20/van-persie-feyenoord-head-coach/
+
+**Mavs' Anthony Davis to miss at least another seven games**\
+`The star forward Dallas acquired in the Luka Dončić trade has been out with an adductor strain and will be re-evaluated in two weeks.`\
+https://nytimes.com/athletic/6149432/2025/02/20/anthony-davis-mavericks-injury-update/
+
+**Emergency Food, TB Tests and H.I.V. Drugs: Vital Health Aid Remains Frozen Despite Court Ruling**\
+`The Trump administration appears to be flouting a judge’s order pausing the dismantling of U.S.A.I.D.`\
+https://nytimes.com/2025/02/20/health/usaid-freeze-hiv-tb-nutrition.html
+
+**Jordan Hicks remains in the Giants' rotation. Can he build off of last April's success?**\
+`Hicks showed he had starter-stuff last April but then the fatigue set in. He should be better prepared to start this year.`\
+https://nytimes.com/athletic/6147873/2025/02/20/sf-giants-jordan-hicks-projections/
+
+**A Search for Answers After the Police Fatally Shoot a 79-Year-Old Man**\
+`The police said Emil Williams, who had been reported missing, pointed a gun at an officer before they shot him. A neighbor on Long Island said everything about him had been “normal.”`\
+https://nytimes.com/2025/02/20/nyregion/nypd-shooting-queens-emil-williams.html
+
+**Until Saturday: Say goodbye to weird CFP byes**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6149232/2025/02/20/college-football-playoff-seeding-format-until-saturday/
+
 **Trump Cuts Protections for Haitians, Putting Them on Track for Deportation**\
 `The decision is the latest in President Trump’s sweeping crackdown on immigrants, including people whom the Biden administration had authorized to remain in the country.`\
 https://nytimes.com/2025/02/20/us/politics/haitians-temporary-protected-status.html
-
-**Fox News, CNN and Other News Outlets Urge White House to Drop Ban on The A.P.**\
-`Dozens of major news organizations, including some conservative outlets, urged the Trump administration to stop blocking The Associated Press from press events.`\
-https://nytimes.com/2025/02/20/business/media/ap-white-house-ban-cnn-fox.html
-
-**How Each Senator Voted to Confirm Kash Patel as F.B.I. Director**\
-`The Senate confirmed Mr. Patel by a vote of 51 to 49 to lead the country’s premier federal law enforcement agency.`\
-https://nytimes.com/interactive/2025/02/20/us/politics/patel-senate-confirmation-vote.html
-
-**C.I.A. Plans Largest Mass Firing in Nearly 50 Years**\
-`The possible purge of officers working on recruiting and diversity comes as the agency moves to comply with the spirit of an executive order banning efforts to diversify the federal work force.`\
-https://nytimes.com/2025/02/20/us/politics/cia-firings.html
-
-**Barnes & Noble Widow to Auction $250 Million Art Collection**\
-`Louise Riggio is downsizing her Manhattan apartment, which means selling more than 30 works by artists including Mondrian, Magritte and Picasso.`\
-https://nytimes.com/2025/02/20/arts/design/barnes-noble-riggio-auction-art-mondrian.html
-
-**The Deeply Spiced Meatballs That Call Back to Haiti**\
-`Since moving to Portland, Ore., 30 years ago, Elsy Dinvil has quietly introduced home cooks and chefs to the cuisine and stories of her country.`\
-https://nytimes.com/2025/02/20/dining/haitian-meatballs.html
-
-**Under Trump, D.C. Faces More Federal Control, Fewer Federal Workers**\
-`The Washington region is bracing for a shock to the local economy from President Trump and Elon Musk’s sweeping cuts to the government work force.`\
-https://nytimes.com/2025/02/20/us/trump-musk-dc-federal-work-force.html
-
-**The $20 Billion Controversy Over E.P.A. Climate Funds, Explained**\
-`An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
-https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html
-
-**Canucks trade deadline need tiers: What Vancouver can do to improve its outlook**\
-`Let's dive into the Canucks' most significant needs ahead of the March 7 deadline and how they could go about addressing them.`\
-https://nytimes.com/athletic/6148185/2025/02/20/canucks-trade-deadline-needs-2025/
-
-**Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
-`In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
-https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
 
