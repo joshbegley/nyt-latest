@@ -1,6 +1,18 @@
+**The Senate Confirmed Kash Patel as F.B.I. Director**\
+`Also, nearly one in 10 U.S. adults identifies as L.G.B.T.Q. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/02/20/briefing/kash-patel-fbi-director-george-clooney-braodway.html
+
+**Red Sox notes: Zach Penrod elbow soreness prompts signing of lefty Matt Moore**\
+`Moore started his career in the rotation but has found a home in the bullpen over the past three seasons.`\
+https://nytimes.com/athletic/6149870/2025/02/20/red-sox-matt-moore-zach-penrod-elbow/
+
+**U.S. Objects to Calling Russia ‘Aggressor’ in G7 Statement on Invasion**\
+`The American opposition to a draft of a Group of 7 statement marking the third anniversary of Russia’s attack on Ukraine comes after President Trump blamed Kyiv for starting the war.`\
+https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
+
 **Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
 `The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
-https://nytimes.com/2025/02/20/us/politics/judge-rules-against-labor-unions-seeking-to-block-mass-firings.html
+https://nytimes.com/2025/02/20/us/politics/federal-worker-firings-trump-ruling.html
 
 **Global Doping Authority Drops Cases Against U.S. Officials**\
 `The World Anti-Doping Agency withdrew a defamation lawsuit and an ethics case against American officials critical of its handling of failed tests by members of China’s Olympic swimming squad.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6148656/2025/02/20/carlos-alcaraz-everton-permanent
 **Trump Administration Abruptly Clears Out Migrants It Sent to Guantánamo**\
 `A transfer operation on Thursday repatriated 177 Venezuelans via a handoff in Honduras, while one migrant was brought back to U.S. soil.`\
 https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants.html
-
-**What to Know About Trump’s Order Targeting Federal Benefits for Migrants**\
-`Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
-https://nytimes.com/2025/02/20/us/politics/trump-federal-benefits-immigrants.html
-
-**I.R.S. Fires 6,700 Employees Amid Tax Filing Season**\
-`The layoffs at the Internal Revenue Service came alongside additional firings at the Transportation Security Administration and the C.I.A.`\
-https://nytimes.com/2025/02/20/business/irs-fires-employees-layoffs-trump.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/02/20/books/review/new-books-recommendations.html
 

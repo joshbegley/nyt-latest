@@ -1,3 +1,19 @@
+**The Senate Confirmed Kash Patel as F.B.I. Director**\
+`Also, nearly one in 10 U.S. adults identifies as L.G.B.T.Q. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/02/20/briefing/kash-patel-fbi-director-george-clooney-braodway.html
+
+**Red Sox notes: Zach Penrod elbow soreness prompts signing of lefty Matt Moore**\
+`Moore started his career in the rotation but has found a home in the bullpen over the past three seasons.`\
+https://nytimes.com/athletic/6149870/2025/02/20/red-sox-matt-moore-zach-penrod-elbow/
+
+**U.S. Objects to Calling Russia ‘Aggressor’ in G7 Statement on Invasion**\
+`The American opposition to a draft of a Group of 7 statement marking the third anniversary of Russia’s attack on Ukraine comes after President Trump blamed Kyiv for starting the war.`\
+https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
+
+**Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
+`The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
+https://nytimes.com/2025/02/20/us/politics/federal-worker-firings-trump-ruling.html
+
 **Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
 `The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
 https://nytimes.com/2025/02/20/us/politics/judge-rules-against-labor-unions-seeking-to-block-mass-firings.html
