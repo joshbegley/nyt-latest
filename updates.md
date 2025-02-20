@@ -1,3 +1,7 @@
+**The night Mbappe reminded the world how deadly he can be**\
+`If there were any lingering doubts about the forward's ability to deliver in Madrid, they were banished by a superb display on Wednesday`\
+https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manchester-city/
+
 **Hamas to Hand Bodies of 4 Hostages Back to Israel**\
 `All four were abducted during the Hamas-led attack on Oct. 7, 2023. They were expected to include a woman and her two children.`\
 https://nytimes.com/2025/02/20/world/middleeast/hamas-to-hand-bodies-of-4-hostages-back-to-israel.html
