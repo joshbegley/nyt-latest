@@ -1,3 +1,7 @@
+**N.Y. Prisons Loosen Solitary Confinement Rules as Wildcat Strikes Spread**\
+`Corrections officers in New York say their working conditions are dangerous and they are forced into overtime. They have walked off the job at 41 of the state’s 42 prisons.`\
+https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confinement.html
+
 **One key factor behind Aaron Boone's extension with the Yankees? Aaron Judge's support**\
 `Boone has been Judge's manager for all but two seasons of the AL MVP's major-league career.`\
 https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aaron-judge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149877/2025/02/20/bay-fc-graeme-abel-scouting-hire
 **Trump’s Latest Target: A Nancy Pelosi Achievement in San Francisco**\
 `President Trump seeks to significantly pare back the Presidio Trust, which oversees a signature park near the Golden Gate Bridge.`\
 https://nytimes.com/2025/02/20/us/politics/trump-presidio-pelosi-san-francisco.html
-
-**Victor Wembanyama injury fallout: Replacement options for Spurs, fantasy basketball**\
-`With Victor Wembanyama out with a shoulder issue, Stan Son details the fantasy ramifications and offers up some replacement center options.`\
-https://nytimes.com/athletic/6149858/2025/02/20/victor-wembanyama-injury-fantasy-basketball-replacements/
 

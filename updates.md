@@ -1,3 +1,7 @@
+**N.Y. Prisons Loosen Solitary Confinement Rules as Wildcat Strikes Spread**\
+`Corrections officers in New York say their working conditions are dangerous and they are forced into overtime. They have walked off the job at 41 of the state’s 42 prisons.`\
+https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confinement.html
+
 **One key factor behind Aaron Boone's extension with the Yankees? Aaron Judge's support**\
 `Boone has been Judge's manager for all but two seasons of the AL MVP's major-league career.`\
 https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aaron-judge/
