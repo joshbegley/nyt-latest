@@ -1,3 +1,15 @@
+**A New Look at the History of ‘S.N.L.’**\
+`Photos, scripts, hate mail and other artifacts donated by Lorne Michaels trace the show’s path from idea to institution.`\
+https://nytimes.com/interactive/2025/02/20/arts/television/snl-lorne-michaels-archives.html
+
+**Dodgers' Bobby Miller in concussion protocol after being struck in head by line drive**\
+`Roberts said Miller has not yet gone for scans beyond the team medical staff’s initial evaluation.`\
+https://nytimes.com/athletic/6150139/2025/02/20/dodgers-bobby-miller-concussion-protocol-struck-in-head/
+
+**Are Birkenstocks a Work of Art? A German Court Says No.**\
+`The famous sandal company lost a battle over copyright law, leaving room for imitations to spawn.`\
+https://nytimes.com/2025/02/20/style/birkenstock-copyright-law-german-court.html
+
 **Cubs pitcher wins first ABS challenge in spring training game**\
 `Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
 https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/

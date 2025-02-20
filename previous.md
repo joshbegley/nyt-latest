@@ -1,3 +1,15 @@
+**A New Look at the History of ‘S.N.L.’**\
+`Photos, scripts, hate mail and other artifacts donated by Lorne Michaels trace the show’s path from idea to institution.`\
+https://nytimes.com/interactive/2025/02/20/arts/television/snl-lorne-michaels-archives.html
+
+**Dodgers' Bobby Miller in concussion protocol after being struck in head by line drive**\
+`Roberts said Miller has not yet gone for scans beyond the team medical staff’s initial evaluation.`\
+https://nytimes.com/athletic/6150139/2025/02/20/dodgers-bobby-miller-concussion-protocol-struck-in-head/
+
+**Are Birkenstocks a Work of Art? A German Court Says No.**\
+`The famous sandal company lost a battle over copyright law, leaving room for imitations to spawn.`\
+https://nytimes.com/2025/02/20/style/birkenstock-copyright-law-german-court.html
+
 **Cubs pitcher wins first ABS challenge in spring training game**\
 `Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
 https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6149858/2025/02/20/victor-wembanyama-injury-fantasy
 **‘The Eastern Gate’ Is a Lean and Mean Spy Drama**\
 `Office politics are global politics in this intense Polish series on Max.`\
 https://nytimes.com/2025/02/20/arts/television/the-eastern-gate-max.html
-
-**The U.S. attorney general derides the merits of the Adams case in New York.**\
-`At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak.”`\
-https://nytimes.com/2025/02/20/us/politics/trump-eric-adams-pam-bondi.html
-
-**Juventus loanee Veiga set for three-week layoff**\
-`Veiga sustained the injury in the 12th minute of Juve's 3-1 Champions League defeat away at PSV Eindhoven on Wednesday.`\
-https://nytimes.com/athletic/6149861/2025/02/20/renato-veiga-juventus-chelsea-injury/
-
-**Alexander Canario, headlining prospect from Kris Bryant trade, DFA'd by Cubs**\
-`At the time of the trade, Canario was the Giants' No. 10-ranked prospect. He was dealt alongside pitcher Caleb Kilian. `\
-https://nytimes.com/athletic/6149947/2025/02/20/alexander-canario-dfad-chicago-cubs-kris-bryant-trade/
 
