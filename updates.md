@@ -1,3 +1,7 @@
+**Without Haaland, City are a shadow of a team**\
+`The striker's absence snuffed out City's hopes in Madrid before a ball had been kicked - and that's a bad sign`\
+https://nytimes.com/athletic/6147512/2025/02/20/erling-haaland-manchester-city-team/
+
 **'Imagine a Fiat with a Ferrari engine': Explaining Van de Ven's mechanics (and hamstrings)**\
 `Tottenham want to understand why their gifted but injury-prone defender is breaking down - and the answer could lie in his gait`\
 https://nytimes.com/athletic/6145972/2025/02/20/micky-van-de-ven-tottenham-hamstring-injuries/
