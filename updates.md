@@ -1,3 +1,15 @@
+**Amick: Blood clot stalls Victor Wembanyama's ascent, but Spurs are signaling optimism**\
+`Even with the positive long-term prognosis, there is an air of inevitable uncertainty that is as inescapable.`\
+https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spurs/
+
+**A Bachelorette, a Ballroom Dancer and a ‘Traitor’ Walk Into a Bar**\
+`They’re all Gabby Windey, the reality television star whose latest turn is on the cult hit “The Traitors.”`\
+https://nytimes.com/2025/02/20/style/gabby-windey-traitors-bachelorette.html
+
+**Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
+`“He was electric, man,” catcher Jake Rogers said of Jackson Jobe and his new curveball. `\
+https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
+
 **At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\
 `Some said they were initially turned away from the conservative conference, prompting outrage and an apology.`\
 https://nytimes.com/2025/02/20/us/cpac-january-6-proud-boys.html
