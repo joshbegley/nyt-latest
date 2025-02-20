@@ -1,3 +1,11 @@
+**Friday Briefing: Germans Are Choosing New Leadership**\
+`Plus, volcano tourism in Sicily.`\
+https://nytimes.com/2025/02/20/briefing/germany-elections-hamas-hostages-election-interference-cuts.html
+
+**Juan Soto buys Mets teammate a car in exchange for No. 22**\
+`Baty had agreed to give up his number without asking for anything in return, which Soto appreciated.`\
+https://nytimes.com/athletic/6149739/2025/02/20/mets-juan-soto-teammate-car/
+
 **Fired Park Rangers Try to ‘Open Some Hearts’ on Social Media**\
 `Some rangers decided it was worth the risk to speak out online about their firings and share their love of the National Park Service.`\
 https://nytimes.com/2025/02/20/style/national-park-rangers-firings-reactions.html
