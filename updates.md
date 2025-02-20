@@ -1,3 +1,19 @@
+**The Assault on Science and Health: Sometimes It’s Personal**\
+`Readers warn that the Trump administration’s defunding of medical research will cost lives. Also: President Trump’s remarks about Ukraine.`\
+https://nytimes.com/2025/02/20/opinion/science-health-cuts-nih-cdc.html
+
+**Tage Thompson's 4 Nations call, Jordan Greenway's return and other Sabres notes**\
+`Thompson is on standby as an emergency injury replacement for Team USA in the 4 Nations championship game against Canada.`\
+https://nytimes.com/athletic/6149027/2025/02/20/tage-thompson-4-nations-sabres/
+
+**Europe’s New Reality: Trump May Not Quit NATO, but He’s Already Undercutting It**\
+`European officials knew the president’s win would threaten the fundamental precepts of the post-World War II order. But the speed at which it is unraveling has created a crisis of enormous proportions.`\
+https://nytimes.com/2025/02/20/us/politics/trump-nato.html
+
+**McConnell Announces He Won’t Seek Re-election**\
+`The longest-serving Senate leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
+https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-retire.html
+
 **McConnell Announces He Won’t Seek Re-election, Ending Record-Breaking Tenure**\
 `The longest-serving Senate leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
 https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-retire.html
