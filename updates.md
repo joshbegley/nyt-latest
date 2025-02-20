@@ -1,3 +1,7 @@
+**The Athletic FC: White-hot Mbappe, ice-cold Messi, Nunez's big chance missed**\
+`Today in TAFC: Mbappe believes he can score 50 goals a season, Messi shines in 'inhumane' conditions, Nunez fluffs his lines...`\
+https://nytimes.com/athletic/6148354/2025/02/20/mbappe-hat-trick-messi-inter-miami-freezing/
+
 **Slot unhappy with Nunez's 'behaviour' after miss against Villa**\
 `The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game at 2-2.`\
 https://nytimes.com/athletic/6148309/2025/02/20/arne-slot-darwin-nunez-miss/

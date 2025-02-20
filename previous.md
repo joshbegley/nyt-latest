@@ -1,3 +1,7 @@
+**The Athletic FC: White-hot Mbappe, ice-cold Messi, Nunez's big chance missed**\
+`Today in TAFC: Mbappe believes he can score 50 goals a season, Messi shines in 'inhumane' conditions, Nunez fluffs his lines...`\
+https://nytimes.com/athletic/6148354/2025/02/20/mbappe-hat-trick-messi-inter-miami-freezing/
+
 **Chelsea co-owner says Maresca is 'doing a great job', will continue this season**\
 `Maresca was only appointed in June signing a five-year deal with the option of a sixth.`\
 https://nytimes.com/athletic/6148369/2025/02/20/chelsea-enzo-maresca-jonathan-goldstein/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/movies/millers-in-marriage-review.html
 **‘Ex-Husbands’ Review: Three Unweddings and a Funeral**\
 `In this Griffin Dunne dramedy, a father and his sons face different kinds of relationship troubles at the same time.`\
 https://nytimes.com/2025/02/20/movies/ex-husbands-review.html
-
-**Fan Zhendong on the Grit and Grace of Table Tennis Gold**\
-`Becoming the world champion in table tennis requires passion, a steady mental pace, precision and preparation, says the 2024 gold medalist.`\
-https://nytimes.com/paidpost/ubs/fan-zhendong-on-the-grit-and-grace-of-table-tennis-gold.html
 
