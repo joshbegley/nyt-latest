@@ -1,3 +1,11 @@
+**The Twisting Tale of ‘Woke’ Is the Story of the English Language**\
+`From pejoration to semantic broadening, the word has done it all.`\
+https://nytimes.com/2025/02/20/opinion/the-long-strange-trail-of-woke.html
+
+**Spain’s Ex-Soccer Chief Convicted of Sexual Assault for Kissing Star Player**\
+`Luis Rubiales kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup.`\
+https://nytimes.com/2025/02/20/world/europe/luis-rubiales-spain-soccer-conviction.html
+
 **Why 'beast' Kashawn Aitcheson is a top 2025 NHL Draft prospect**\
 `Draft-eligible defenseman Kashawn Aitcheson hits hard on the ice, but works even harder off it.`\
 https://nytimes.com/athletic/5897808/2025/02/20/nhl-draft-2025-prospect-kashawn-aitcheson/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/books/review/david-levering-lewis-the-stained-gla
 **Slot unhappy with Nunez's 'behaviour' after miss against Villa**\
 `The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game at 2-2.`\
 https://nytimes.com/athletic/6148309/2025/02/20/arne-slot-darwin-nunez-miss/
-
-**Ownership's commitment, Armstrong changing the core and more: Blues mailbag, part 2**\
-`What moves will GM Doug Armstrong look to make next, and where does GM-in-waiting Alexander Steen fit in?`\
-https://nytimes.com/athletic/6138790/2025/02/20/blues-mailbag-ownership-armstrong-steen-retool/
-
-**George Paton's vision as Broncos GM coming to fruition, but biggest test remains**\
-`The GM's working relationship with coach Sean Payton has been instrumental to Denver's climb. "Their personalities complement each other."`\
-https://nytimes.com/athletic/6146327/2025/02/20/george-paton-broncos-gm-2025/
 
