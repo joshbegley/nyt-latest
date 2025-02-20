@@ -1,3 +1,11 @@
+**An Opening for China, Made in America**\
+`Trump’s long and growing list of shortsighted actions in Latin America has created an opening there for America’s adversaries, most notably China.`\
+https://nytimes.com/2025/02/20/opinion/trump-tariffs-latin-america-china.html
+
+**Mizzou upsets Alabama for statement win in loaded SEC field**\
+`Alabama's loss to Missouri comes days after the NCAA Tournament selection committee unveiled the Tide as the No. 2 overall seed.`\
+https://nytimes.com/athletic/6148106/2025/02/20/missouri-alabama-basketball-score-result/
+
 **A federal appeals court leaves a block on Trump’s birthright citizenship order.**\
 `The decision by the U.S. Court of Appeals for the Ninth Circuit was the latest obstacle for the Trump administration in its effort to end birthright citizenship.`\
 https://nytimes.com/live/2025/02/19/us/trump-news/a-federal-appeals-court-leaves-a-block-on-trumps-birthright-citizenship-order
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6140707/2025/02/20/wolves-strikers-summer-signing/
 **How can Aston Villa fix their defensive frailties? Score more goals**\
 `Aston Villa have struggled defensively this season — the solution became clear after their draw with Liverpool`\
 https://nytimes.com/athletic/6146314/2025/02/20/aston-villa-goals-defence-analysis/
-
-**Hoddle interview: Maresca and Chelsea 'have to cut the negative noise out'**\
-`Glenn Hoddle had a tough first season as Chelsea manager — he has spoken about Enzo Maresca's situation`\
-https://nytimes.com/athletic/6144019/2025/02/20/glenn-hoddle-chelsea-interview/
-
-**Arsenal's resurgent counter-attacks could solve Mikel Arteta's striker problem**\
-`With Nwaneri, Trossard and Rice breaking, Arsenal have a recipe to hurt teams when they least expect it`\
-https://nytimes.com/athletic/6144508/2025/02/20/arsenals-resurgent-counter-attacks-could-solve-mikel-artetas-striker-problem/
 
