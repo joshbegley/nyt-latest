@@ -1,3 +1,11 @@
+**Learning Italian and chess with teammates: Why Lewis Hamilton feels revitalized at Ferrari**\
+`After a difficult few years, that belief is coming back to the seven-time world champion`\
+https://nytimes.com/athletic/6146124/2025/02/20/lewis-hamilton-ferrari-f1-2025-launch/
+
+**Word of the Day: grandiloquent**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/20/learning/word-of-the-day-grandiloquent.html
+
 **LeBron James says he'll have to manage ankle soreness for rest of the season**\
 `The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
 https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
