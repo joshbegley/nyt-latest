@@ -1,3 +1,7 @@
+**Stephen Colbert Would Like to Know Who’s in Charge Here**\
+`The “Late Show” host was taken aback by the White House’s claim that Elon Musk doesn’t run DOGE: “It’s literally named after his favorite meme!”`\
+https://nytimes.com/2025/02/20/arts/television/stephen-colbert-doge-elon-musk.html
+
 **Learning Italian and chess with teammates: Why Lewis Hamilton feels revitalized at Ferrari**\
 `After a difficult few years, that belief is coming back to the seven-time world champion`\
 https://nytimes.com/athletic/6146124/2025/02/20/lewis-hamilton-ferrari-f1-2025-launch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146446/2025/02/20/nottingham-forest-big-decisions-
 **Will Newcastle benefit from Manchester City's victory over Premier League in APT ruling?**\
 `Last week, associated-party transaction rules, introduced in 2021, were declared ‘unlawful’ and ‘void and unenforceable’`\
 https://nytimes.com/athletic/6142095/2025/02/20/newcastle-apt-premier-league-implications/
-
-**Fantasy Premier League: Non-Mohamed Salah FPL captaincy options for the next two gameweeks**\
-`Gameweeks 26 and 27 are opportunities to go against Salah with the captain's armband. So who are the alternative options?`\
-https://nytimes.com/athletic/6143555/2025/02/20/fantasy-premier-league-palmer-salah-captaincy-gw26/
 
