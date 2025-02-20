@@ -1,3 +1,11 @@
+**Can the Bulls remain competitive? 5 things to watch after the All-Star break**\
+`With 27 games left on the Bulls' regular-season schedule, here are five big things to watch from the team in its home stretch.`\
+https://nytimes.com/athletic/6146941/2025/02/20/chicago-bulls-regular-season-things-to-watch/
+
+**The Pulse: The biggest hockey game since ...**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6146736/2025/02/20/4-nations-final-canada-usa-the-pulse/
+
 **'Our responsibility is to Carolina': UNC AD addresses code-named conference realignment initiative**\
 `Bubba Cunningham said the Tar Heels' exploration of conference realignment, called the "Carolina Blue matter," was "very, very logical."`\
 https://nytimes.com/athletic/6148087/2025/02/20/north-carolina-conference-realignment-acc-bubba-cunningham/
