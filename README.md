@@ -1,3 +1,11 @@
+**Remembering Mike Lange: Tributes from Lemieux, Crosby, 'Doc' Emrick and more**\
+`"Outside of Crosby and Lemieux, I don’t think there was ever a bigger influence on the Penguins franchise."`\
+https://nytimes.com/athletic/6148927/2025/02/20/mike-lange-penguins-memories/
+
+**Pulisic denies rift with Milan head coach Conceicao**\
+`Conceicao replaced Paulo Fonseca as Milan head coach on December 30.`\
+https://nytimes.com/athletic/6149004/2025/02/20/christian-pulisic-milan-sergio-conceicao/
+
 **Watch: How crucial is free agency to eventual Super Bowl success?**\
 `The Athletic Football Show discusses the free agency signings that elevated the last decade of Super Bowl contenders.`\
 https://nytimes.com/athletic/6146531/2025/02/20/athetic-football-show-free-agency-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6144707/2025/02/20/saints-doug-nussmeier-offensive-
 **Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
 `Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
 https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
-
-**Donald Trump wishes Team USA luck, stokes political tensions ahead of 4 Nations final vs. Canada**\
-`Guerin said players were excited to hear from Trump and that the president talked to them "for a while."`\
-https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-canada-comments/
-
-**Trump Dismantles Government Fight Against Foreign Influence Operations**\
-`The Trump administration has reassigned or forced out several dozen government employees who had been working to fight foreign interference in U.S. elections at multiple agencies, according to current and former officials.`\
-https://nytimes.com/2025/02/20/business/trump-foreign-influence-election-interference.html
 

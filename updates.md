@@ -1,3 +1,7 @@
+**Trump Dismantles Government Fight Against Foreign Influence Operations**\
+`The Trump administration has reassigned or forced out several dozen government employees who had been working to fight foreign interference in U.S. elections at multiple agencies, according to current and former officials.`\
+https://nytimes.com/2025/02/20/business/trump-foreign-influence-election-interference.html
+
 **Pulisic denies rift with Milan head coach Conceicao**\
 `Conceicao replaced Paulo Fonseca as Milan head coach on December 30.`\
 https://nytimes.com/athletic/6149004/2025/02/20/christian-pulisic-milan-sergio-conceicao/
