@@ -1,3 +1,23 @@
+**2025 fantasy baseball Top 40 closer ranks: From Emmanuel Clase to Camilo Doval**\
+`In the ever-changing world of MLB bullpens, Greg Jewett offers an initial ranking of his Top 40 relievers for fantasy baseball 2025.`\
+https://nytimes.com/athletic/6147103/2025/02/20/top-closers-rankings-fantasy-baseball-2025/
+
+**Explained: Why Leeds have condemned ‘anti-Palestine’ Manor Solomon chant**\
+`Leeds have had to release a number of statements about the chant in recent months`\
+https://nytimes.com/athletic/6146387/2025/02/20/manor-solomon-leeds-palestine-chant-explainer/
+
+**China’s Motivational Tactic for State Workers: Public Shaming**\
+`Local governments are handing out “snail awards” to underperforming employees. But, for many, doing as little as possible seems like the safest bet.`\
+https://nytimes.com/2025/02/20/world/asia/china-officials-slacking-economy.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/02/20/briefing/trump-zelensky-pope-gaza.html
+
+**Quote of the Day: Europe Leaders Discuss Much Different Alliance**\
+`Quotation of the Day for Thursday, February 20, 2025.`\
+https://nytimes.com/2025/02/19/pageoneplus/quote-of-the-day-europe-leaders-discuss-much-different-alliance.html
+
 **Delta Offers $30,000 to Passengers on Plane That Crashed in Toronto**\
 `The airline said it told the 76 passengers who had been on the plane, which crashed and flipped over on Monday, that the offer came with “no strings attached.”`\
 https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6147971/2025/02/19/messi-inter-miami-sporting-kansa
 **Bada Bing Bada Boom!**\
 `Peter Gorman offers a puzzle that is gentle to solve … and confusing. But he meant to do that.`\
 https://nytimes.com/2025/02/19/crosswords/daily-puzzle-2025-02-20.html
-
-**Trump Suggests Savings From Spending Cuts Could Be Returned to Taxpayers**\
-`The president said a plan to return money culled from budget cuts and work force reductions to taxpayers was “under consideration,” but he offered no details about how or if it could be done.`\
-https://nytimes.com/2025/02/19/us/politics/trump-doge-savings.html
-
-**Corrections: Feb. 20, 2025**\
-`Corrections that appeared in print on Thursday, Feb. 20, 2025.`\
-https://nytimes.com/2025/02/19/pageoneplus/corrections-feb-20-2025.html
-
-**Legendary Penguins broadcaster Mike Lange dies at 76**\
-`Lange last called a Penguins game in 2021, when his considerable health issues forced him to step down from the radio booth.`\
-https://nytimes.com/athletic/6147881/2025/02/19/mike-lange-penguins-broadcaster-diesp-obituary/
-
-**Alabama Grand Jury Calls for Police Force to Be Abolished After Indicting 5 Officers**\
-`The grand jury said that the Hanceville Police Department, which had eight officers as of last August, had been operating “as more of a criminal enterprise.”`\
-https://nytimes.com/2025/02/19/us/hanceville-alabama-police-officers-arrested.html
-
-**Former All-Pro running back Clinton Portis to coach at Delaware State**\
-`Over his professional career, Portis rushed for 9,923 yards with 75 touchdowns and was twice selected to the Pro Bowl`\
-https://nytimes.com/athletic/6147793/2025/02/19/delaware-state-clinton-portis-hire-desean-jackson/
 
