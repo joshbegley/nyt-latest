@@ -1,3 +1,7 @@
+**Quinn Hughes will not join U.S. for 4 Nations final vs. Canada after all**\
+`Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
+https://nytimes.com/athletic/6144100/2025/02/19/quinn-hughes-4-nations-injury-replacement/
+
 **Alliance with Big Ten could help push SEC to 9-game conference schedule**\
 `The SEC's football scheduling debate might finally be nearing an end. Then again, that has been assumed before.`\
 https://nytimes.com/athletic/6147551/2025/02/19/sec-football-nine-game-schedule/

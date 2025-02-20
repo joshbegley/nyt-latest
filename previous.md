@@ -1,3 +1,7 @@
+**Quinn Hughes will not join U.S. for 4 Nations final vs. Canada after all**\
+`Hughes was named to the U.S. roster in June but bowed out due to an oblique injury. He can't play unless another defenseman is unavailable.`\
+https://nytimes.com/athletic/6144100/2025/02/19/quinn-hughes-4-nations-injury-replacement/
+
 **Alliance with Big Ten could help push SEC to 9-game conference schedule**\
 `The SEC's football scheduling debate might finally be nearing an end. Then again, that has been assumed before.`\
 https://nytimes.com/athletic/6147551/2025/02/19/sec-football-nine-game-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/19/us/trump-news/democratic-lawmakers-see-patte
 **NASCAR issues hefty penalty against Chase Briscoe, JGR for illegal modification**\
 `NASCAR issued a 100-point penalty and suspended Briscoe's crew chief for four weeks. He also lost 10 playoff points and JGR was fined.`\
 https://nytimes.com/athletic/6147450/2025/02/19/nascar-penalty-chase-briscoe-daytona-500-jgr/
-
-**Lakers' Luka Dončić expected to be off minutes limit vs. Hornets**\
-`The star Lakers acquired in a blockbuster deal ahead of the trade deadline has been dealing with a calf injury.`\
-https://nytimes.com/athletic/6147059/2025/02/19/lakers-luka-doncic-minutes-hornets/
 
