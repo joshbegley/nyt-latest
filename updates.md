@@ -1,3 +1,15 @@
+**Drake’s Tentative Comeback, Plus: New Music From the Weeknd and More**\
+`On Popcast, a survey of the biggest and best albums released recently, including Drake with PartyNextDoor, the Weeknd, Central Cee, Oklou and others.`\
+https://nytimes.com/2025/02/20/arts/music/drake-comeback-popcast.html
+
+**Emerson: College athletics leaders seem to be delaying the inevitable**\
+`The very idea of athletes as employees is a third rail for college leaders, what they’re lobbying Congress to legislate against.`\
+https://nytimes.com/athletic/6148511/2025/02/20/ncaa-college-sports-unlimited-transfers-issue/
+
+**Listen: Where could the U.S. have the edge over Canada?**\
+`The Athletic Hockey Show discuss where the U.S. might have the edge in tonight's 4 Nations Face-Off championship game.`\
+https://nytimes.com/athletic/6148441/2025/02/20/athletic-hockey-show-4-nations-final-preview/
+
 **Man City's half-hearted press against Real Madrid exposed their current feebleness**\
 `Why Guardiola's side were so vulnerable to balls being played over, around and into their press`\
 https://nytimes.com/athletic/6148472/2025/02/20/man-citys-half-hearted-press-against-real-madrid-exposed-their-current-feebleness/
