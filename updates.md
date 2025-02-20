@@ -1,3 +1,7 @@
+**Corrections: Feb. 20, 2025**\
+`Corrections that appeared in print on Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/pageoneplus/corrections-feb-20-2025.html
+
 **Legendary Penguins broadcaster Mike Lange dies at 76**\
 `Lange last called a Penguins game in 2021, when his considerable health issues forced him to step down from the radio booth.`\
 https://nytimes.com/athletic/6147881/2025/02/19/mike-lange-penguins-broadcaster-diesp-obituary/

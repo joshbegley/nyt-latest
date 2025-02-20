@@ -1,3 +1,7 @@
+**Corrections: Feb. 20, 2025**\
+`Corrections that appeared in print on Thursday, Feb. 20, 2025.`\
+https://nytimes.com/2025/02/19/pageoneplus/corrections-feb-20-2025.html
+
 **Legendary Penguins broadcaster Mike Lange dies at 76**\
 `Lange last called a Penguins game in 2021, when his considerable health issues forced him to step down from the radio booth.`\
 https://nytimes.com/athletic/6147881/2025/02/19/mike-lange-penguins-broadcaster-diesp-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/plane-crash-aviation-questions.html
 **Trump Urged to Halt Firings at the F.A.A.**\
 `After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
 https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
-
-**Inside Quinn Hughes chaos: What we know about Team USA's scramble to add him for 4 Nations final**\
-`What's best for country isn't always what's best for club, as made clear by this week's dance among the Canucks, Team USA and the NHL.`\
-https://nytimes.com/athletic/6147478/2025/02/19/quinn-hughes-team-usa-4-nations/
 
