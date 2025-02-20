@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6149858/2025/02/20/victor-wembanyama-injury-fantasy
 `Office politics are global politics in this intense Polish series on Max.`\
 https://nytimes.com/2025/02/20/arts/television/the-eastern-gate-max.html
 
-**The U.S. attorney general derides merits of the Adams case in New York.**\
-`At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak”`\
+**The U.S. attorney general derides the merits of the Adams case in New York.**\
+`At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak.”`\
 https://nytimes.com/2025/02/20/us/politics/trump-eric-adams-pam-bondi.html
 
 **Juventus loanee Veiga set for three-week layoff**\

@@ -1,3 +1,7 @@
+**The U.S. attorney general derides the merits of the Adams case in New York.**\
+`At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak.”`\
+https://nytimes.com/2025/02/20/us/politics/trump-eric-adams-pam-bondi.html
+
 **Trump’s Latest Target: A Nancy Pelosi Achievement in San Francisco**\
 `President Trump seeks to significantly pare back the Presidio Trust, which oversees a signature park near the Golden Gate Bridge.`\
 https://nytimes.com/2025/02/20/us/politics/trump-presidio-pelosi-san-francisco.html
