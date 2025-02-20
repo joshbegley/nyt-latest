@@ -1,3 +1,7 @@
+**A DOGE Dividend?**\
+`President Trump floated giving taxpayers a piece of any savings that Elon Musk’s cost-cutting generates, which could reignite inflation.`\
+https://nytimes.com/2025/02/20/business/dealbook/trump-doge-dividend.html
+
 **'Just scratching the surface': Sam Rinzel developing into defenseman Blackhawks envisioned**\
 `The Blackhawks have been pleased with Rinzel's development as a prospect. This season in Minnesota, he's elevated to another level.`\
 https://nytimes.com/athletic/6147839/2025/02/20/blackhawks-prospect-sam-rinzel-defense-nhl/

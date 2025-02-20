@@ -1,3 +1,7 @@
+**A DOGE Dividend?**\
+`President Trump floated giving taxpayers a piece of any savings that Elon Musk’s cost-cutting generates, which could reignite inflation.`\
+https://nytimes.com/2025/02/20/business/dealbook/trump-doge-dividend.html
+
 **'Just scratching the surface': Sam Rinzel developing into defenseman Blackhawks envisioned**\
 `The Blackhawks have been pleased with Rinzel's development as a prospect. This season in Minnesota, he's elevated to another level.`\
 https://nytimes.com/athletic/6147839/2025/02/20/blackhawks-prospect-sam-rinzel-defense-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/world/europe/luis-rubiales-spain-soccer-convictio
 **Why 'beast' Kashawn Aitcheson is a top 2025 NHL Draft prospect**\
 `Draft-eligible defenseman Kashawn Aitcheson hits hard on the ice, but works even harder off it.`\
 https://nytimes.com/athletic/5897808/2025/02/20/nhl-draft-2025-prospect-kashawn-aitcheson/
-
-**Zelensky to Meet U.S. Envoy to Ukraine Amid Public Spat With Trump**\
-`Keith Kellogg and President Volodymyr Zelensky were expected to discuss possible paths to ending the war and ways to defuse tensions between Washington and Kyiv.`\
-https://nytimes.com/2025/02/20/world/europe/ukraine-zelensky-kellogg-trump.html
 
