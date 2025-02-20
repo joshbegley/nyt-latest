@@ -1,3 +1,15 @@
+**What to Know About Trump’s Order Targeting Federal Benefits for Migrants**\
+`Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
+https://nytimes.com/2025/02/20/us/politics/trump-federal-benefits-immigrants.html
+
+**I.R.S. Fires 6,700 Employees Ahead of Tax Filing Season**\
+`The layoffs at the Internal Revenue Service came alongside additional firings at the Transportation Security Administration and the C.I.A.`\
+https://nytimes.com/2025/02/20/business/irs-fires-employees-layoffs-trump.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/02/20/books/review/new-books-recommendations.html
+
 **Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
 `“He was electric, man,” catcher Jake Rogers said of Jobe and his new curveball. `\
 https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
