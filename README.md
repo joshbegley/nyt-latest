@@ -1,3 +1,15 @@
+**Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
+`The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
+https://nytimes.com/2025/02/20/us/politics/judge-rules-against-labor-unions-seeking-to-block-mass-firings.html
+
+**Global Doping Authority Drops Cases Against U.S. Officials**\
+`The World Anti-Doping Agency withdrew a defamation lawsuit and an ethics case against American officials critical of its handling of failed tests by members of China’s Olympic swimming squad.`\
+https://nytimes.com/2025/02/20/us/politics/wada-anti-doping-suit.html
+
+**Luka Dončić, still managing calf injury, will miss Lakers' game at Portland**\
+`The five-time All-Star will miss L.A.'s second night of a back-to-back as the team continues to manage his recovery.`\
+https://nytimes.com/athletic/6149902/2025/02/20/luka-doncic-lakers-out-blazers/
+
 **Dairy Workers May Have Passed Bird Flu to Pet Cats, C.D.C. Study Suggests**\
 `But the study, whose publication was delayed by a pause in public communications by the agency, leaves key questions unanswered.`\
 https://nytimes.com/2025/02/20/health/bird-flu-cats-michigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/business/irs-fires-employees-layoffs-trump.html
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/02/20/books/review/new-books-recommendations.html
-
-**San Vicente Bungalows Brings FOMO to New York**\
-`Who’s joining? What’s the scene like? Will you miss out if you aren’t part of the club?`\
-https://nytimes.com/2025/02/20/fashion/san-vicente-jeff-klein.html
-
-**Amick: Blood clot stalls Victor Wembanyama's ascent, but Spurs are signaling optimism**\
-`Even with the positive long-term prognosis, there is an air of inevitable uncertainty that is as inescapable.`\
-https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spurs/
-
-**A Bachelorette, a Ballroom Dancer and a ‘Traitor’ Walk Into a Bar**\
-`They’re all Gabby Windey, the reality television star whose latest turn is on the cult hit “The Traitors.”`\
-https://nytimes.com/2025/02/20/style/gabby-windey-traitors-bachelorette.html
 
