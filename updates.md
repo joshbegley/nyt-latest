@@ -1,3 +1,7 @@
+**Canucks trade deadline need tiers: What Vancouver can do to improve its outlook**\
+`Let's dive into the Canucks' most significant needs ahead of the March 7 deadline and how they could go about addressing them.`\
+https://nytimes.com/athletic/6148185/2025/02/20/canucks-trade-deadline-needs-2025/
+
 **The $20 Billion Controversy Over E.P.A. Climate Funds, Explained**\
 `An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
 https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html

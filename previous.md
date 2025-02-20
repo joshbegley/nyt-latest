@@ -2,6 +2,10 @@
 `An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
 https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html
 
+**Canucks trade deadline need tiers: What Vancouver can do to improve its outlook**\
+`Let's dive into the Canucks' most significant needs ahead of the March 7 deadline and how they could go about addressing them.`\
+https://nytimes.com/athletic/6148185/2025/02/20/canucks-trade-deadline-needs-2025/
+
 **Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
 `In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
 https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/world/americas/doomsday-fish-oarfish-mexico.html
 **Deep-Sea Oarfish Is Spotted on Mexican Beach**\
 `A rarely seen oarfish appeared in shallow water in Baja California Sur, Mexico, on Feb. 9, surprising beachgoers. The deep-sea-dwelling oarfish is believed to be the world’s largest bony fish, and can grow as long as 26 feet.`\
 https://nytimes.com/video/science/100000009999034/deep-sea-oarfish-mexico.html
-
-**PSG president Al-Khelaifi calls Lyon counterpart Textor 'a cowboy', leaked video reveals**\
-`A video call on the afternoon of July 14, 2024 on the subject of the French domestic TV deal descended into a war of words between the two.`\
-https://nytimes.com/athletic/6149122/2025/02/20/al-khelaifi-textor-french-football-tv-deal/
 

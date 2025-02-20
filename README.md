@@ -1,3 +1,11 @@
+**The Deeply Spiced Meatballs That Call Back to Haiti**\
+`Since moving to Portland, Ore., 30 years ago, Elsy Dinvil has quietly introduced home cooks and chefs to the cuisine and stories of her country.`\
+https://nytimes.com/2025/02/20/dining/haitian-meatballs.html
+
+**Under Trump, D.C. Faces More Federal Control, Fewer Federal Workers**\
+`The Washington region is bracing for a shock to the local economy from President Trump and Elon Musk’s sweeping cuts to the government work force.`\
+https://nytimes.com/2025/02/20/us/trump-musk-dc-federal-work-force.html
+
 **The $20 Billion Controversy Over E.P.A. Climate Funds, Explained**\
 `An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
 https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/nyregion/robert-brooks-corrections-officers-charg
 **With Explosive Goggles, Ukraine Sought to Blast Russian Drone Operators**\
 `A senior Ukrainian intelligence official confirmed the plot to blow up drone goggles. But it was unclear how much effect the scheme had on Russian forces.`\
 https://nytimes.com/2025/02/20/world/europe/urkaine-russia-explosive-goggles.html
-
-**A Rare ‘Doomsday’ Fish Is Spotted Swimming in Mexico**\
-`Oarfish are rarely documented by scientists, but one was seen this month by a group visiting a beach in Mexico.`\
-https://nytimes.com/2025/02/20/world/americas/doomsday-fish-oarfish-mexico.html
-
-**Deep-Sea Oarfish Is Spotted on Mexican Beach**\
-`A rarely seen oarfish appeared in shallow water in Baja California Sur, Mexico, on Feb. 9, surprising beachgoers. The deep-sea-dwelling oarfish is believed to be the world’s largest bony fish, and can grow as long as 26 feet.`\
-https://nytimes.com/video/science/100000009999034/deep-sea-oarfish-mexico.html
 
