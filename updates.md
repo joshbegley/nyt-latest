@@ -1,3 +1,7 @@
+**Chinese Warships Near Sydney Raise Alarm in Australia and New Zealand**\
+`Sailing in Australia’s exclusive economic zone, the three vessels were not breaking international law, but they were unusually far south on an undeclared mission.`\
+https://nytimes.com/2025/02/20/world/australia/chinese-ships-tasman-nz.html
+
 **Should Colts reward Alec Pierce's breakout season with a contract extension?**\
 `Colts GM Chris Ballard on Pierce: "He's exactly who we thought he was going to be. And I think there's more in there. I do."`\
 https://nytimes.com/athletic/6142795/2025/02/20/colts-alec-pierce-contract-extension/
