@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6147046/2025/02/20/chicago-cubs-veteran-postseason-
 `Crosby and Sullivan will be in the unfamiliar position of facing one another for the second time in five days tonight.`\
 https://nytimes.com/athletic/6147179/2025/02/20/penguins-crosby-sullivan-bond-4-nations-face-off/
 
-**5 Vikings questions we'll be looking to answer at the NFL combine**\
+**Five Vikings questions we'll be looking to answer at the NFL combine**\
 `Among the key questions are where does Minnesota plan to spend its cap space and Dallas Turner's role in 2025.`\
 https://nytimes.com/athletic/6147142/2025/02/20/vikings-five-questions-nfl-combine/
 
