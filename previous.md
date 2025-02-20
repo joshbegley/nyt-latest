@@ -1,3 +1,31 @@
+**Trump’s Latest Target: A Nancy Pelosi Achievement in San Francisco**\
+`President Trump seeks to significantly pare back the Presidio Trust, which oversees a signature park near the Golden Gate Bridge.`\
+https://nytimes.com/2025/02/20/us/politics/trump-presidio-pelosi-san-francisco.html
+
+**Victor Wembanyama injury fallout: Replacement options for Spurs, fantasy basketball**\
+`With Victor Wembanyama out with a shoulder issue, Stan Son details the fantasy ramifications and offers up some replacement center options.`\
+https://nytimes.com/athletic/6149858/2025/02/20/victor-wembanyama-injury-fantasy-basketball-replacements/
+
+**‘The Eastern Gate’ Is a Lean and Mean Spy Drama**\
+`Office politics are global politics in this intense Polish series on Max.`\
+https://nytimes.com/2025/02/20/arts/television/the-eastern-gate-max.html
+
+**The U.S. attorney general derides merits of the Adams case in New York.**\
+`At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak”`\
+https://nytimes.com/2025/02/20/us/politics/trump-eric-adams-pam-bondi.html
+
+**Juventus loanee Veiga set for three-week layoff**\
+`Veiga sustained the injury in the 12th minute of Juve's 3-1 Champions League defeat away at PSV Eindhoven on Wednesday.`\
+https://nytimes.com/athletic/6149861/2025/02/20/renato-veiga-juventus-chelsea-injury/
+
+**Alexander Canario, headlining prospect from Kris Bryant trade, DFA'd by Cubs**\
+`At the time of the trade, Canario was the Giants' No. 10-ranked prospect. He was dealt alongside pitcher Caleb Kilian. `\
+https://nytimes.com/athletic/6149947/2025/02/20/alexander-canario-dfad-chicago-cubs-kris-bryant-trade/
+
+**MLB, ESPN opt out of TV deal for 2026-28; MLB cites 'minimal coverage'**\
+`ESPN had been asking to lower the fees it pays to MLB for the next portion of its current contract. The deal would remain in place for 2025.`\
+https://nytimes.com/athletic/6149921/2025/02/20/mlb-espn-opt-out-tv-deal/
+
 **The Senate Confirmed Kash Patel as F.B.I. Director**\
 `Also, nearly one in 10 U.S. adults identifies as L.G.B.T.Q. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/02/20/briefing/kash-patel-fbi-director-george-clooney-braodway.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6149870/2025/02/20/red-sox-matt-moore-zach-penrod-e
 **U.S. Objects to Calling Russia ‘Aggressor’ in G7 Statement on Invasion**\
 `The American opposition to a draft of a Group of 7 statement marking the third anniversary of Russia’s attack on Ukraine comes after President Trump blamed Kyiv for starting the war.`\
 https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
-
-**Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
-`The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
-https://nytimes.com/2025/02/20/us/politics/federal-worker-firings-trump-ruling.html
-
-**Global Doping Authority Drops Cases Against U.S. Officials**\
-`The World Anti-Doping Agency withdrew a defamation lawsuit and an ethics case against American officials critical of its handling of failed tests by members of China’s Olympic swimming squad.`\
-https://nytimes.com/2025/02/20/us/politics/wada-anti-doping-suit.html
-
-**Luka Dončić, still managing calf injury, will miss Lakers' game at Portland**\
-`The five-time All-Star will miss L.A.'s second night of a back-to-back as the team continues to manage his recovery.`\
-https://nytimes.com/athletic/6149902/2025/02/20/luka-doncic-lakers-out-blazers/
-
-**Dairy Workers May Have Passed Bird Flu to Pet Cats, C.D.C. Study Suggests**\
-`But the study, whose publication was delayed by a pause in public communications by the agency, leaves key questions unanswered.`\
-https://nytimes.com/2025/02/20/health/bird-flu-cats-michigan.html
-
-**New Allegation of Sexual Misconduct Swirls Around CPAC Chair Matt Schlapp**\
-`Several people have accused Mr. Schlapp, the Conservative Political Action Conference chairman, of sexual assault. One of his previous accusers received a six-figure settlement.`\
-https://nytimes.com/2025/02/20/us/cpac-matt-schlapp.html
-
-**Alcaraz says he wants to stay at Everton after loan ends**\
-`Alcaraz, 22, completed a deadline-day loan move from Flamengo earlier this month.`\
-https://nytimes.com/athletic/6148656/2025/02/20/carlos-alcaraz-everton-permanent-transfer/
-
-**Trump Administration Abruptly Clears Out Migrants It Sent to Guantánamo**\
-`A transfer operation on Thursday repatriated 177 Venezuelans via a handoff in Honduras, while one migrant was brought back to U.S. soil.`\
-https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants.html
 
