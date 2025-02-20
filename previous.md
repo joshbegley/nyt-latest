@@ -1,3 +1,7 @@
+**Sanctions Against Russia**\
+`We explain what President Trump may do with them.`\
+https://nytimes.com/2025/02/20/briefing/sanctions-against-russia.html
+
 **Twins mailbag: Sudden spending, Lee's job search, France vs. Miranda, changes for Varland**\
 `Plus a front office blind spot, Chris Paddack's workload, Cory Lewis' knuckleball and how fast Walker Jenkins can move.`\
 https://nytimes.com/athletic/6143908/2025/02/20/minnesota-twins-payroll-ty-france-jose-miranda/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6147046/2025/02/20/chicago-cubs-veteran-postseason-
 `Crosby and Sullivan will be in the unfamiliar position of facing one another for the second time in five days tonight.`\
 https://nytimes.com/athletic/6147179/2025/02/20/penguins-crosby-sullivan-bond-4-nations-face-off/
 
-**5 Vikings questions we'll be looking to answer at the NFL combine**\
+**Five Vikings questions we'll be looking to answer at the NFL combine**\
 `Among the key questions are where does Minnesota plan to spend its cap space and Dallas Turner's role in 2025.`\
 https://nytimes.com/athletic/6147142/2025/02/20/vikings-five-questions-nfl-combine/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-
 **Wild revel in watching 4 Nations, Foligno's 'win-win' in final, Kaprizov update: Notebook**\
 `The Wild's Matt Boldy and Brock Faber are set to play in the 4 Nations Face-Off final against Canada on Thursday night.`\
 https://nytimes.com/athletic/6147010/2025/02/20/wild-4-nations-foligno-kaprizov-yurov/
-
-**USWNT tryouts: The numbers behind the newest U.S. call-ups**\
-`A closer look at the lesser-known players called up to the U.S. women's national team for this month's SheBelieves Cup`\
-https://nytimes.com/athletic/6144175/2025/02/20/shebelieves-cup-watchlist-the-newer-u-s-players-fighting-for-spots-in-emma-hayes-team/
 

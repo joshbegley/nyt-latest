@@ -1,3 +1,11 @@
+**Sanctions Against Russia**\
+`We explain what President Trump may do with them.`\
+https://nytimes.com/2025/02/20/briefing/sanctions-against-russia.html
+
+**Five Vikings questions we'll be looking to answer at the NFL combine**\
+`Among the key questions are where does Minnesota plan to spend its cap space and Dallas Turner's role in 2025.`\
+https://nytimes.com/athletic/6147142/2025/02/20/vikings-five-questions-nfl-combine/
+
 **Twins mailbag: Sudden spending, Lee's job search, France vs. Miranda, changes for Varland**\
 `Plus a front office blind spot, Chris Paddack's workload, Cory Lewis' knuckleball and how fast Walker Jenkins can move.`\
 https://nytimes.com/athletic/6143908/2025/02/20/minnesota-twins-payroll-ty-france-jose-miranda/
