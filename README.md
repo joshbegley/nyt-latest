@@ -1,3 +1,7 @@
+**Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
+`The Liverpool striker's glaring miss at Aston Villa reinforced the feeling that Liverpool need to make a No 9 a priority ifor next season`\
+https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
+
 **LeBron says he'll have to manage ankle soreness for rest of the season**\
 `The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
 https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6127313/2025/02/20/perhaps-man-utds-youthful-bench-
 **Who is Yun Do-young? Meet the South Korean 18-year-old set to join Brighton**\
 `Brighton's latest target shows again that their player recruitment programme truly has gone global`\
 https://nytimes.com/athletic/6128950/2025/02/20/yun-do-young-south-korea-brighton/
-
-**Strand Larsen's promising start should not mask the need for a No 9 this summer**\
-`It has become increasingly clear this season that Wolves cannot gamble on having just one recognised centre-forward`\
-https://nytimes.com/athletic/6140707/2025/02/20/wolves-strikers-summer-signing/
 
