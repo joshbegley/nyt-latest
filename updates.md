@@ -1,3 +1,7 @@
+**2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **All-Pro guard Zack Martin informs Cowboys of retirement after 11 seasons: Sources**\
 `In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
 https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/

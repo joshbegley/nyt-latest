@@ -1,3 +1,7 @@
+**2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
+`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
+https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Man Who Kidnapped Ride Share Driver Gets 12 Years in Prison**\
 `The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
 https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/style/birkenstock-copyright-law-german-court.html
 **Cubs pitcher wins first ABS challenge in spring training game**\
 `Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
 https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/
-
-**The White House’s Love Language: ‘Come Here Illegally and We’ll Deport You’**\
-`The Trump administration has used the official social media accounts of The White House to post a deportation themed Valentine and other polarizing messages.`\
-https://nytimes.com/2025/02/20/style/white-house-deportation-memes.html
 
