@@ -1,3 +1,7 @@
+**A Long Journey Home: After 50 Years, Back on the Reservation**\
+`Leonard Peltier, the American Indian Movement activist, returned to North Dakota, where, under home confinement, he will serve the remainder of his life sentence for the murders of two F.B.I. agents.`\
+https://nytimes.com/2025/02/19/us/leonard-peltier-homecoming-north-dakota.html
+
 **Messi leads Miami to win over Kansas City in CONCACAF Champions Cup**\
 `The temperature at kickoff was seven degrees Fahrenheit while the feel-like temperature dropped to nine below zero.`\
 https://nytimes.com/athletic/6147971/2025/02/19/messi-inter-miami-sporting-kansas-city-concacaf-champions-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146676/2025/02/19/usmnt-champions-league-pulisic-w
 **Lawrence Butler, coming off breakout '24, exploring long-term extension with A's: Sources**\
 `MESA, Ariz.`\
 https://nytimes.com/athletic/6147434/2025/02/19/lawrence-butler-as-extension/
-
-**Trump Says He Would Have Had a ‘Very Nasty Life’ if He’d Lost the Election**\
-`The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
-https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
 
