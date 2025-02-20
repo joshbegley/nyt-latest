@@ -1,3 +1,7 @@
+**Fox News, CNN and Other News Outlets Urge White House to Drop Ban on The A.P.**\
+`Dozens of major news organizations, including some conservative outlets, urged the Trump administration to stop blocking The Associated Press from press events.`\
+https://nytimes.com/2025/02/20/business/media/ap-white-house-ban-cnn-fox.html
+
 **How Each Senator Voted to Confirm Kash Patel as F.B.I. Director**\
 `The Senate confirmed Mr. Patel by a vote of 51 to 49 to lead the country’s premier federal law enforcement agency.`\
 https://nytimes.com/interactive/2025/02/20/us/politics/patel-senate-confirmation-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
 **Airbus Says U.S. Tariffs Would Be ‘Lose-Lose’ for Airline Industry**\
 `The European airline maker, which is Boeing’s chief rival, said it would adapt to any new tariffs, including passing on costs to its customers.`\
 https://nytimes.com/2025/02/20/business/airbus-trump-tariffs-defense-europe.html
-
-**China Defends South Africa’s G20 Ambitions as Rubio Snubs Meeting**\
-`Secretary of State Marco Rubio accused the country of using its position as host of the multilateral gathering to promote diversity and climate change.`\
-https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
 
