@@ -1,3 +1,11 @@
+**DOGE Cuts 9/11 Survivors’ Fund, and Republicans Join Democrats in Rebuke**\
+`After 20 percent of the World Trade Center Health Program staff was terminated last week, Democratic lawmakers were outraged. On Wednesday, Republican lawmakers joined them.`\
+https://nytimes.com/2025/02/19/nyregion/doge-ground-zero-health-care-cuts.html
+
+**Have a View on Aviation Safety and the D.C. Airport Crash? We Want to Hear It.**\
+`We want to hear your perspective on the circumstances that led to the Jan. 29 midair collision near Reagan National Airport, and on air safety and regulation in general. What works and what does not?`\
+https://nytimes.com/2025/02/19/us/plane-crash-aviation-questions.html
+
 **Trump Urged to Halt Firings at the F.A.A.**\
 `After a string of deadly plane crashes, lawmakers and union members are urging the president to protect the transportation department from further personnel cuts.`\
 https://nytimes.com/2025/02/19/us/politics/trump-firings-faa.html
