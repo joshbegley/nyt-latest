@@ -1,3 +1,7 @@
+**NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
+`Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
+https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
+
 **Souleymane Cissé, Celebrated Malian Filmmaker, Dies at 84**\
 `He won multiple awards during his 50-year career, including the jury prize at the Cannes Film Festival, and spent his life championing African cinema.`\
 https://nytimes.com/2025/02/20/obituaries/souleymane-cisse-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148436/2025/02/20/luis-rubiales-court-case-verdict
 **Sharks trade tiers: Which players should be on the move? Who is untouchable?**\
 `How might the Sharks advance their rebuild before the March 7 trade deadline?`\
 https://nytimes.com/athletic/6136186/2025/02/20/sharks-nhl-trades-2025/
-
-**Back at shortstop, Xander Bogaerts could be biggest key to Padres’ hopes**\
-`Bogaerts believes he has legitimate reasons to be optimistic about his upcoming season.`\
-https://nytimes.com/athletic/6146197/2025/02/20/padres-xander-bogaerts-shortstop-return/
 
