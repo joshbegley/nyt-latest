@@ -1,40 +1,40 @@
-**Without Haaland, City are a shadow of a team**\
-`The striker's absence snuffed out City's hopes in Madrid before a ball had been kicked - and that's a bad sign`\
-https://nytimes.com/athletic/6147512/2025/02/20/erling-haaland-manchester-city-team/
+**A federal appeals court leaves a block on Trump’s birthright citizenship order.**\
+`The decision by the U.S. Court of Appeals for the Ninth Circuit was the latest obstacle for the Trump administration in its effort to end birthright citizenship.`\
+https://nytimes.com/live/2025/02/19/us/trump-news/a-federal-appeals-court-leaves-a-block-on-trumps-birthright-citizenship-order
 
-**'Imagine a Fiat with a Ferrari engine': Explaining Van de Ven's mechanics (and hamstrings)**\
-`Tottenham want to understand why their gifted but injury-prone defender is breaking down - and the answer could lie in his gait`\
-https://nytimes.com/athletic/6145972/2025/02/20/micky-van-de-ven-tottenham-hamstring-injuries/
+**Three big questions for Forest ahead of three crunch fixtures**\
+`Third-placed Forest have a run of huge league matches coming up - and some big questions to answer after Saturday's defeat at Fulham...`\
+https://nytimes.com/athletic/6146446/2025/02/20/nottingham-forest-big-decisions-newcastle/
 
-**Trump Orders End to Federal Benefits for Undocumented Migrants**\
-`President Trump’s executive order also directed federal departments and agencies to ensure that federal funds do not encourage people to come to the United States illegally.`\
-https://nytimes.com/2025/02/20/us/politics/trump-executive-order-migrant-benefits.html
+**Will Newcastle benefit from Manchester City's victory over Premier League in APT ruling?**\
+`Last week, associated-party transaction rules, introduced in 2021, were declared ‘unlawful’ and ‘void and unenforceable’`\
+https://nytimes.com/athletic/6142095/2025/02/20/newcastle-apt-premier-league-implications/
 
-**2025 fantasy baseball Top 40 closer ranks: From Emmanuel Clase to Camilo Doval**\
-`In the ever-changing world of MLB bullpens, Greg Jewett offers an initial ranking of his Top 40 relievers for fantasy baseball 2025.`\
-https://nytimes.com/athletic/6147103/2025/02/20/top-closers-rankings-fantasy-baseball-2025/
+**Fantasy Premier League: Non-Mohamed Salah FPL captaincy options for the next two gameweeks**\
+`Gameweeks 26 and 27 are opportunities to go against Salah with the captain's armband. So who are the alternative options?`\
+https://nytimes.com/athletic/6143555/2025/02/20/fantasy-premier-league-palmer-salah-captaincy-gw26/
 
-**Explained: Why Leeds have condemned ‘anti-Palestine’ Manor Solomon chant**\
-`Leeds have had to release a number of statements about the chant in recent months`\
-https://nytimes.com/athletic/6146387/2025/02/20/manor-solomon-leeds-palestine-chant-explainer/
+**Perhaps Man Utd's youthful bench should prompt optimism rather than despair**\
+`With money tight, bringing on academy players could be the best way back to success`\
+https://nytimes.com/athletic/6127313/2025/02/20/perhaps-man-utds-youthful-bench-against-spurs-should-prompt-optimism-rather-than-despair/
 
-**China’s Motivational Tactic for State Workers: Public Shaming**\
-`Local governments are handing out “snail awards” to underperforming employees. But, for many, doing as little as possible seems like the safest bet.`\
-https://nytimes.com/2025/02/20/world/asia/china-officials-slacking-economy.html
+**Who is Yun Do-young? Meet the South Korean 18-year-old set to join Brighton**\
+`Brighton's latest target shows again that their player recruitment programme truly has gone global`\
+https://nytimes.com/athletic/6128950/2025/02/20/yun-do-young-south-korea-brighton/
 
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/02/20/briefing/trump-zelensky-pope-gaza.html
+**Strand Larsen's promising start should not mask the need for a No 9 this summer**\
+`It has become increasingly clear this season that Wolves cannot gamble on having just one recognised centre-forward`\
+https://nytimes.com/athletic/6140707/2025/02/20/wolves-strikers-summer-signing/
 
-**Quote of the Day: Europe Leaders Discuss Much Different Alliance**\
-`Quotation of the Day for Thursday, February 20, 2025.`\
-https://nytimes.com/2025/02/19/pageoneplus/quote-of-the-day-europe-leaders-discuss-much-different-alliance.html
+**How can Aston Villa fix their defensive frailties? Score more goals**\
+`Aston Villa have struggled defensively this season — the solution became clear after their draw with Liverpool`\
+https://nytimes.com/athletic/6146314/2025/02/20/aston-villa-goals-defence-analysis/
 
-**Delta Offers $30,000 to Passengers on Plane That Crashed in Toronto**\
-`The airline said it told the 76 passengers who had been on the plane, which crashed and flipped over on Monday, that the offer came with “no strings attached.”`\
-https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
+**Hoddle interview: Maresca and Chelsea 'have to cut the negative noise out'**\
+`Glenn Hoddle had a tough first season as Chelsea manager — he has spoken about Enzo Maresca's situation`\
+https://nytimes.com/athletic/6144019/2025/02/20/glenn-hoddle-chelsea-interview/
 
-**Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
-`The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
-https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
+**Arsenal's resurgent counter-attacks could solve Mikel Arteta's striker problem**\
+`With Nwaneri, Trossard and Rice breaking, Arsenal have a recipe to hurt teams when they least expect it`\
+https://nytimes.com/athletic/6144508/2025/02/20/arsenals-resurgent-counter-attacks-could-solve-mikel-artetas-striker-problem/
 
