@@ -1,3 +1,7 @@
+**Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
+`SCOTTSDALE, Ariz.`\
+https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/
+
 **Drake’s Tentative Comeback, Plus: New Music From the Weeknd and More**\
 `On Popcast, a survey of the biggest and best albums released recently, including Drake with PartyNextDoor, the Weeknd, Central Cee, Oklou and others.`\
 https://nytimes.com/2025/02/20/arts/music/drake-comeback-popcast.html

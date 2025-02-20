@@ -1,3 +1,7 @@
+**Jerar Encarnacion, Luis Matos, Enny Romero enter Giants camp with winter league momentum**\
+`SCOTTSDALE, Ariz.`\
+https://nytimes.com/athletic/6148177/2025/02/20/sf-giants-jerar-encarnacion-luis-matos-winter-ball/
+
 **Drake’s Tentative Comeback, Plus: New Music From the Weeknd and More**\
 `On Popcast, a survey of the biggest and best albums released recently, including Drake with PartyNextDoor, the Weeknd, Central Cee, Oklou and others.`\
 https://nytimes.com/2025/02/20/arts/music/drake-comeback-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148015/2025/02/20/marcus-smart-khris-middleton-was
 **Trump Targets Agency Overseeing the Presidio, a Cherished San Francisco Park**\
 `An executive order from the president also took aim at three independent agencies that promote peace abroad and work on development in Latin American and Africa.`\
 https://nytimes.com/2025/02/20/us/trump-executive-order-presidio-trust.html
-
-**Bubble Watch: TCU arrives, SEC hopefuls take hits in stretch run**\
-`This was a big separation week, as we welcomed five more teams into the utopian realm of Lockdom. The bubble is shrinking.`\
-https://nytimes.com/athletic/6147945/2025/02/20/mens-ncaa-tournament-bubble-watch-tcu-illinois/
 
