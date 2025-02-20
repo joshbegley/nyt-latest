@@ -1,3 +1,11 @@
+**China Defends South Africa’s G20 Ambitions as Rubio Snubs Meeting**\
+`Secretary of State Marco Rubio accused the country of using its position as host of the multilateral gathering to promote diversity and climate change.`\
+https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
+
+**David Boren, an Oklahoma Eminence as Governor and Senator, Dies at 83**\
+`A Democrat, he became a powerful voice on national intelligence in the Senate before leaving to become president of the University of Oklahoma.`\
+https://nytimes.com/2025/02/20/us/politics/david-boren-dead.html
+
 **Corrections Officers Charged With Murder in New York Inmate’s Death**\
 `Gov. Kathy Hochul announced the charges in the December killing of Robert Brooks, which a special prosecutor was expected to unseal Thursday afternoon.`\
 https://nytimes.com/2025/02/20/nyregion/robert-brooks-corrections-officers-charged-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6148372/2025/02/20/daytona-500-luck-crashes-nascar-
 **A Leading Anti-Trump Voice Returns to Democrats’ Top Think Tank**\
 `Neera Tanden, a fierce antagonist to President Trump during his first administration, will again lead the Center for American Progress, a major engine of Democratic policy in Washington.`\
 https://nytimes.com/2025/02/20/us/politics/neera-tanden-trump-center-for-american-progress.html
-
-**MLS preview roundtable: Staff predictions for the 30th season**\
-`Who will win it all? Who will be terrible? Who will surprise? Who'll arrive this summer? Our experts make their picks for MLS in 2025.`\
-https://nytimes.com/athletic/6148083/2025/02/20/mls-season-preview-2025-messi-predictions/
-
-**Wembanyama expected to miss rest of season with blood clot in shoulder**\
-`The Spurs said they discovered a deep vein thrombosis upon Victor Wembanyama's return from San Francisco for the All-Star Game.`\
-https://nytimes.com/athletic/6149228/2025/02/20/victor-wembanyama-out-for-season-spurs/
 
