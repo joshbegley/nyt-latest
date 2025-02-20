@@ -1,3 +1,7 @@
+**Delta Offers $30,000 to Passengers on Plane That Crashed in Toronto**\
+`The airline said it told the 76 passengers who had been on the plane, which crashed and flipped over on Monday, that the offer came with “no strings attached.”`\
+https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
+
 **Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
 `The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
 https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/19/us/hanceville-alabama-police-officers-arrested.ht
 **Former All-Pro running back Clinton Portis to coach at Delaware State**\
 `Over his professional career, Portis rushed for 9,923 yards with 75 touchdowns and was twice selected to the Pro Bowl`\
 https://nytimes.com/athletic/6147793/2025/02/19/delaware-state-clinton-portis-hire-desean-jackson/
-
-**Promising Champions League for USMNT stars turns dire in a flash**\
-`Americans set a new standard for UCL goal-scoring and playing time, but the knockout playoff round was unkind to the player pool's best.`\
-https://nytimes.com/athletic/6146676/2025/02/19/usmnt-champions-league-pulisic-weah-mckennie-musah-elimination/
 

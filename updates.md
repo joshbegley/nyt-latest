@@ -1,3 +1,7 @@
+**Delta Offers $30,000 to Passengers on Plane That Crashed in Toronto**\
+`The airline said it told the 76 passengers who had been on the plane, which crashed and flipped over on Monday, that the offer came with “no strings attached.”`\
+https://nytimes.com/2025/02/19/world/canada/delta-plane-crash-toronto-30000.html
+
 **Trump’s Push to Kill Congestion Pricing Faces Tall Legal Hurdles**\
 `The president made his power to shut down the tolling system sound absolute. But legal experts say the law may not be in his favor.`\
 https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
