@@ -1,3 +1,7 @@
+**Pulisic denies rift with Milan head coach Conceicao**\
+`Conceicao replaced Paulo Fonseca as Milan head coach on December 30.`\
+https://nytimes.com/athletic/6149004/2025/02/20/christian-pulisic-milan-sergio-conceicao/
+
 **Watch: How crucial is free agency to eventual Super Bowl success?**\
 `The Athletic Football Show discusses the free agency signings that elevated the last decade of Super Bowl contenders.`\
 https://nytimes.com/athletic/6146531/2025/02/20/athetic-football-show-free-agency-super-bowl/
@@ -20,7 +24,7 @@ https://nytimes.com/2025/02/20/us/politics/kash-patel-trump-fbi-senate.html
 
 **Federal Tech Workers Push Back Against Musk’s Efforts**\
 `An employee at the Technology Transformation Services told colleagues that he had resigned because he was asked to grant a Trump appointee access to a database used to text the public.`\
-https://nytimes.com/2025/02/20/us/politics/federal-tech-workers-push-back-against-musk-efforts.html
+https://nytimes.com/2025/02/20/us/politics/elon-musk-federal-tech-workers.html
 
 **Saints to hire Eagles QB coach Doug Nussmeier as OC: Reports**\
 `Nussmeier has worked with Moore since they both joined the Cowboys staff in 2018, following Moore to the Chargers and Eagles afterwards. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension
 **Donald Trump wishes Team USA luck, stokes political tensions ahead of 4 Nations final vs. Canada**\
 `Guerin said players were excited to hear from Trump and that the president talked to them "for a while."`\
 https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-canada-comments/
-
-**Trump Dismantles Government Fight Against Foreign Influence Operations**\
-`The Trump administration has reassigned or forced out several dozen government employees who had been working to fight foreign interference in U.S. elections at multiple agencies, according to current and former officials.`\
-https://nytimes.com/2025/02/20/business/trump-foreign-influence-election-interference.html
 
