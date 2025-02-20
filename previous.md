@@ -1,3 +1,11 @@
+**Yankees, Aaron Boone agree to contract extension through 2027**\
+`Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
+https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
+
+**Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
+`President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
+https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
+
 **NFL will not discipline Lions' Jameson Williams for gun incident**\
 `Prosecutors said the law was not clear enough to charge Williams since his brother — who did have a concealed license — was driving the car.`\
 https://nytimes.com/athletic/6148896/2025/02/20/jameson-williams-detroit-lions-nfl-discipline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6148630/2025/02/20/nikola-jokic-jamal-murray-nugget
 **Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
 `It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
 https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html
-
-**‘Compensation’ Review: Still Rebellious**\
-`Finally getting a theatrical run, Zeinabu irene Davis’s 1999 film about two Black couples in Chicago in two different eras earns its landmark status.`\
-https://nytimes.com/2025/02/20/movies/compensation-review.html
-
-**In China, Financial Stress Stalks Hospitals and Bankruptcies Soar**\
-`Still recovering from heavy spending during the pandemic, hospitals are squeezed by a slumping economy and government efforts to curb health care spending.`\
-https://nytimes.com/2025/02/20/business/china-hospital-bankruptcy.html
 

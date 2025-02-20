@@ -1,3 +1,11 @@
+**Yankees, Aaron Boone agree to contract extension through 2027**\
+`Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
+https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
+
+**Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
+`President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
+https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
+
 **NFL will not discipline Lions' Jameson Williams for gun incident**\
 `Prosecutors said the law was not clear enough to charge Williams since his brother — who did have a concealed license — was driving the car.`\
 https://nytimes.com/athletic/6148896/2025/02/20/jameson-williams-detroit-lions-nfl-discipline/
