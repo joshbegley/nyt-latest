@@ -1,3 +1,11 @@
+**'Imagine a Fiat with a Ferrari engine': Explaining Van de Ven's mechanics (and hamstrings)**\
+`Tottenham want to understand why their gifted but injury-prone defender is breaking down - and the answer could lie in his gait`\
+https://nytimes.com/athletic/6145972/2025/02/20/micky-van-de-ven-tottenham-hamstring-injuries/
+
+**Trump Orders End to Federal Benefits for Undocumented Migrants**\
+`President Trump’s executive order also directed federal departments and agencies to ensure that federal funds do not encourage people to come to the United States illegally.`\
+https://nytimes.com/2025/02/20/us/politics/trump-executive-order-migrant-benefits.html
+
 **2025 fantasy baseball Top 40 closer ranks: From Emmanuel Clase to Camilo Doval**\
 `In the ever-changing world of MLB bullpens, Greg Jewett offers an initial ranking of his Top 40 relievers for fantasy baseball 2025.`\
 https://nytimes.com/athletic/6147103/2025/02/20/top-closers-rankings-fantasy-baseball-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/19/nyregion/trump-congestion-pricing.html
 **A Long Journey Home: After 50 Years, Back on the Reservation**\
 `Leonard Peltier, the American Indian Movement activist, returned to North Dakota, where, under home confinement, he will serve the remainder of his life sentence for the murders of two F.B.I. agents.`\
 https://nytimes.com/2025/02/19/us/leonard-peltier-homecoming-north-dakota.html
-
-**Messi leads Miami to win over Kansas City in CONCACAF Champions Cup**\
-`The temperature at kickoff was seven degrees Fahrenheit while the feel-like temperature dropped to nine below zero.`\
-https://nytimes.com/athletic/6147971/2025/02/19/messi-inter-miami-sporting-kansas-city-concacaf-champions-cup/
-
-**Bada Bing Bada Boom!**\
-`Peter Gorman offers a puzzle that is gentle to solve … and confusing. But he meant to do that.`\
-https://nytimes.com/2025/02/19/crosswords/daily-puzzle-2025-02-20.html
 
