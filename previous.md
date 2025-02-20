@@ -1,3 +1,7 @@
+**One key factor behind Aaron Boone's extension with the Yankees? Aaron Judge's support**\
+`Boone has been Judge's manager for all but two seasons of the AL MVP's major-league career.`\
+https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aaron-judge/
+
 **A New Look at the History of ‘S.N.L.’**\
 `Photos, scripts, hate mail and other artifacts donated by Lorne Michaels trace the show’s path from idea to institution.`\
 https://nytimes.com/interactive/2025/02/20/arts/television/snl-lorne-michaels-archives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/politics/trump-presidio-pelosi-san-francisco.h
 **Victor Wembanyama injury fallout: Replacement options for Spurs, fantasy basketball**\
 `With Victor Wembanyama out with a shoulder issue, Stan Son details the fantasy ramifications and offers up some replacement center options.`\
 https://nytimes.com/athletic/6149858/2025/02/20/victor-wembanyama-injury-fantasy-basketball-replacements/
-
-**‘The Eastern Gate’ Is a Lean and Mean Spy Drama**\
-`Office politics are global politics in this intense Polish series on Max.`\
-https://nytimes.com/2025/02/20/arts/television/the-eastern-gate-max.html
 
