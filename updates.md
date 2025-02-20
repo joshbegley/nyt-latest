@@ -1,3 +1,11 @@
+**Promising Champions League for USMNT stars turns dire in a flash**\
+`Americans set a new standard for UCL goal-scoring and playing time, but the knockout playoff round was unkind to the player pool's best.`\
+https://nytimes.com/athletic/6146676/2025/02/19/usmnt-champions-league-pulisic-weah-mckennie-musah-elimination/
+
+**Lawrence Butler, coming off breakout '24, exploring long-term extension with A's: Sources**\
+`MESA, Ariz.`\
+https://nytimes.com/athletic/6147434/2025/02/19/lawrence-butler-as-extension/
+
 **Trump Says He Would Have Had a ‘Very Nasty Life’ if He’d Lost the Election**\
 `The president’s remarks were a surprisingly public acknowledgment that he had campaigned for his freedom as much as for the White House itself.`\
 https://nytimes.com/2025/02/19/us/politics/trump-election-legal-challenges-jail.html
