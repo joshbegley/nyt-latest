@@ -6,13 +6,13 @@ https://nytimes.com/2025/02/20/health/bird-flu-cats-michigan.html
 `Several people have accused Mr. Schlapp, the Conservative Political Action Conference chairman, of sexual assault. One of his previous accusers received a six-figure settlement.`\
 https://nytimes.com/2025/02/20/us/cpac-matt-schlapp.html
 
-**Trump Administration Abruptly Clears Out Migrants It Sent to Guantánamo**\
-`A transfer operation on Thursday repatriated 177 Venezuelans via a handoff in Honduras, while one migrant was brought back to U.S. soil.`\
-https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants.html
-
 **Alcaraz says he wants to stay at Everton after loan ends**\
 `Alcaraz, 22, completed a deadline-day loan move from Flamengo earlier this month.`\
 https://nytimes.com/athletic/6148656/2025/02/20/carlos-alcaraz-everton-permanent-transfer/
+
+**Trump Administration Abruptly Clears Out Migrants It Sent to Guantánamo**\
+`A transfer operation on Thursday repatriated 177 Venezuelans via a handoff in Honduras, while one migrant was brought back to U.S. soil.`\
+https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants.html
 
 **What to Know About Trump’s Order Targeting Federal Benefits for Migrants**\
 `Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
