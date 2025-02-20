@@ -1,3 +1,7 @@
+**Former N.F.L. Player Arrested for Protest Against MAGA Plaque**\
+`Chris Kluwe, a former N.F.L. punter and a resident of Huntington Beach, Calif., was arrested at a city council meeting after speaking out against plans to install a plaque with references to President Trump’s slogan, “Make America Great Again.”`\
+https://nytimes.com/video/us/politics/100000010001463/chris-kluwe-maga-plaque-protest-huntington-beach.html
+
 **Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
 `It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
 https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html

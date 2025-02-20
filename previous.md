@@ -1,3 +1,7 @@
+**Former N.F.L. Player Arrested for Protest Against MAGA Plaque**\
+`Chris Kluwe, a former N.F.L. punter and a resident of Huntington Beach, Calif., was arrested at a city council meeting after speaking out against plans to install a plaque with references to President Trump’s slogan, “Make America Great Again.”`\
+https://nytimes.com/video/us/politics/100000010001463/chris-kluwe-maga-plaque-protest-huntington-beach.html
+
 **Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
 `It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
 https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/technology/ai-silicon-valley-start-ups.html
 **A.I. Is Prompting an Evolution, Not Extinction, for Coders**\
 `A.I. tools from Microsoft and other companies are helping write code, placing software engineers at the forefront of the technology’s potential to disrupt the work force.`\
 https://nytimes.com/2025/02/20/business/ai-coding-software-engineers.html
-
-**Elon Musk Is Re-Engineering the Country. What About Tesla?**\
-`Mr. Musk, one of President Trump’s main advisers, has not outlined a plan to reverse falling sales at the electric car company of which he is chief executive.`\
-https://nytimes.com/2025/02/20/business/elon-musk-tesla-trump.html
 
