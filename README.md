@@ -1,3 +1,7 @@
+**With Explosive Goggles, Ukraine Sought to Blast Russian Drone Operators**\
+`A senior Ukrainian intelligence official confirmed the plot to blow up drone goggles. But it was unclear how much effect the scheme had on Russian forces.`\
+https://nytimes.com/2025/02/20/world/europe/urkaine-russia-explosive-goggles.html
+
 **A Rare ‘Doomsday’ Fish Is Spotted Swimming in Mexico**\
 `Oarfish are rarely documented by scientists, but one was seen this month by a group visiting a beach in Mexico.`\
 https://nytimes.com/2025/02/20/world/americas/doomsday-fish-oarfish-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149228/2025/02/20/victor-wembanyama-out-for-season
 **What’s Up, Doc?**\
 `Go big on carrots in brilliant recipes like grilled carrots with yogurt, carrot-top oil and dukkah, carrot risotto with chile crisp and curried carrot soup.`\
 https://nytimes.com/2025/02/20/dining/the-veggie-carrot-recipes.html
-
-**Trump Tests Fed’s Independence With Order Expanding Authority Over Agencies**\
-`A directive calling for oversight over the central bank’s regulatory and supervisory responsibilities has set off alarm.`\
-https://nytimes.com/2025/02/20/us/politics/trump-fed-independence.html
 
