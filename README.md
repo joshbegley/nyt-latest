@@ -1,3 +1,7 @@
+**Amazon Gains Creative Control Over the James Bond Franchise**\
+`The British family that has for decades held complete control over everything involving the globe-trotting superspy is relinquishing it to Amazon.`\
+https://nytimes.com/2025/02/20/business/amazon-james-bond-franchise.html
+
 **Review: Two Star Pianists, Thrillingly Side by Side**\
 `Vikingur Olafsson and Yuja Wang appeared at Carnegie Hall with a unified approach to works by Schubert, John Adams, Rachmaninoff and more.`\
 https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-hall-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/nyregion/new-york-vape-lawsuit.html
 **Why Did QR Codes Appear on About 1,000 Graves in Munich?**\
 `The mystery has bewildered city workers and set off a police investigation.`\
 https://nytimes.com/2025/02/20/world/europe/germany-munich-qr-codes-graves.html
-
-**‘The Unbreakable Boy’ Review: Surmounting Hardships With Joy**\
-`This family drama by Jon Gunn, based on a true story, is told from the perspective of a young boy with autism.`\
-https://nytimes.com/2025/02/20/movies/the-unbreakable-boy-review-surmounting-hardships-with-joy.html
 
