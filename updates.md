@@ -1,3 +1,11 @@
+**'Imagine a Fiat with a Ferrari engine': Explaining Van de Ven's mechanics (and hamstrings)**\
+`Tottenham want to understand why their gifted but injury-prone defender is breaking down - and the answer could lie in his gait`\
+https://nytimes.com/athletic/6145972/2025/02/20/micky-van-de-ven-tottenham-hamstring-injuries/
+
+**Trump Orders End to Federal Benefits for Undocumented Migrants**\
+`President Trump’s executive order also directed federal departments and agencies to ensure that federal funds do not encourage people to come to the United States illegally.`\
+https://nytimes.com/2025/02/20/us/politics/trump-executive-order-migrant-benefits.html
+
 **2025 fantasy baseball Top 40 closer ranks: From Emmanuel Clase to Camilo Doval**\
 `In the ever-changing world of MLB bullpens, Greg Jewett offers an initial ranking of his Top 40 relievers for fantasy baseball 2025.`\
 https://nytimes.com/athletic/6147103/2025/02/20/top-closers-rankings-fantasy-baseball-2025/
