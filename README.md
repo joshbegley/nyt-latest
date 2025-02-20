@@ -1,3 +1,11 @@
+**Agriculture Department Moves to Rehire Some Bird Flu Response Workers**\
+`It’s the latest instance of the Trump administration having to reverse course after making sweeping cuts.`\
+https://nytimes.com/2025/02/20/us/politics/bird-flu-fired-workers.html
+
+**‘Compensation’ Review: Still Rebellious**\
+`Finally getting a theatrical run, Zeinabu irene Davis’s 1999 film about two Black couples in Chicago in two different eras earns its landmark status.`\
+https://nytimes.com/2025/02/20/movies/compensation-review.html
+
 **In China, Financial Stress Stalks Hospitals and Bankruptcies Soar**\
 `Still recovering from heavy spending during the pandemic, hospitals are squeezed by a slumping economy and government efforts to curb health care spending.`\
 https://nytimes.com/2025/02/20/business/china-hospital-bankruptcy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/business/ai-coding-software-engineers.html
 **Elon Musk Is Re-Engineering the Country. What About Tesla?**\
 `Mr. Musk, one of President Trump’s main advisers, has not outlined a plan to reverse falling sales at the electric car company of which he is chief executive.`\
 https://nytimes.com/2025/02/20/business/elon-musk-tesla-trump.html
-
-**What to Know About the Saudi Crown Prince’s Role in Global Diplomacy**\
-`The kingdom’s de facto leader, Crown Prince Mohammed bin Salman, was once shunned in diplomatic circles. Now he is playing an important role in negotiations over Gaza and Ukraine.`\
-https://nytimes.com/2025/02/20/world/middleeast/mbs-saudi-crown-prince-what-to-know.html
-
-**Angel City is nearing a decision on its next head coach**\
-`Parsons told The Athletic he expects the club to share an update before the 2025 NWSL season`\
-https://nytimes.com/athletic/6147646/2025/02/20/angel-city-narrows-coaching-search/
 
