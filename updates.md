@@ -1,3 +1,7 @@
+**Why Yankees are buzzing over top prospect George Lombard Jr.**\
+`Lombard is soaking up his first weeks in big-league spring training.`\
+https://nytimes.com/athletic/6147694/2025/02/20/yankees-george-lombard-jr-prospect-development/
+
 **Phillies notes: Trea Turner's consistency, the Brandon Marsh debate, upcoming spring games**\
 `There is work to do — on the bases, in the field, and at the plate. The larger valleys in Turner's performance are the chief concern. `\
 https://nytimes.com/athletic/6146928/2025/02/20/phillies-trea-turner-brandon-marsh/

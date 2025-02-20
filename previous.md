@@ -1,3 +1,7 @@
+**Why Yankees are buzzing over top prospect George Lombard Jr.**\
+`Lombard is soaking up his first weeks in big-league spring training.`\
+https://nytimes.com/athletic/6147694/2025/02/20/yankees-george-lombard-jr-prospect-development/
+
 **Phillies notes: Trea Turner's consistency, the Brandon Marsh debate, upcoming spring games**\
 `There is work to do — on the bases, in the field, and at the plate. The larger valleys in Turner's performance are the chief concern. `\
 https://nytimes.com/athletic/6146928/2025/02/20/phillies-trea-turner-brandon-marsh/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/opinion/trump-putin-ukraine-europe.html
 **Metroidvanias: The Video Games You Can Get Lost In**\
 `The cryptically named genre famed for its labyrinthine 2-D settings is nearly 40 years old and still going strong.`\
 https://nytimes.com/interactive/2025/02/20/arts/metroidvania-games-metroid-castlevania.html
-
-**In Giant Chinese Embassy in London, Opponents See Long Arm of Beijing**\
-`Britain appears ready to approve what would be the largest diplomatic outpost in Europe, but neighbors and activists fear tapped phone lines and suppressed protests.`\
-https://nytimes.com/2025/02/20/world/europe/china-embassy-britain.html
 
