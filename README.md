@@ -1,4 +1,16 @@
-**McConnell Announces He Won’t Seek Re-election, Ending Record-Breaking Tenure**\
+**The Assault on Science and Health: Sometimes It’s Personal**\
+`Readers warn that the Trump administration’s defunding of medical research will cost lives. Also: President Trump’s remarks about Ukraine.`\
+https://nytimes.com/2025/02/20/opinion/science-health-cuts-nih-cdc.html
+
+**Tage Thompson's 4 Nations call, Jordan Greenway's return and other Sabres notes**\
+`Thompson is on standby as an emergency injury replacement for Team USA in the 4 Nations championship game against Canada.`\
+https://nytimes.com/athletic/6149027/2025/02/20/tage-thompson-4-nations-sabres/
+
+**Europe’s New Reality: Trump May Not Quit NATO, but He’s Already Undercutting It**\
+`European officials knew the president’s win would threaten the fundamental precepts of the post-World War II order. But the speed at which it is unraveling has created a crisis of enormous proportions.`\
+https://nytimes.com/2025/02/20/us/politics/trump-nato.html
+
+**McConnell Announces He Won’t Seek Re-election**\
 `The longest-serving Senate leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
 https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-retire.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6148729/2025/02/20/seth-jarvis-canada-4-nations-fin
 **Newcastle's Dubravka and Krafth sign new contracts**\
 `Both players' previous deals were due to expire at the end of the 2024-25 season, with Krafth's new deal confirmed through to 2026.`\
 https://nytimes.com/athletic/6149088/2025/02/20/newcastle-contracts-dubravka-krafth-year/
-
-**Remembering Mike Lange: Tributes from Lemieux, Crosby, 'Doc' Emrick and more**\
-`"Outside of Crosby and Lemieux, I don’t think there was ever a bigger influence on the Penguins franchise."`\
-https://nytimes.com/athletic/6148927/2025/02/20/mike-lange-penguins-memories/
-
-**Pulisic denies rift with Milan head coach Conceicao**\
-`Conceicao replaced Paulo Fonseca as Milan head coach on December 30.`\
-https://nytimes.com/athletic/6149004/2025/02/20/christian-pulisic-milan-sergio-conceicao/
-
-**Watch: How crucial is free agency to eventual Super Bowl success?**\
-`The Athletic Football Show discusses the free agency signings that elevated the last decade of Super Bowl contenders.`\
-https://nytimes.com/athletic/6146531/2025/02/20/athetic-football-show-free-agency-super-bowl/
 
