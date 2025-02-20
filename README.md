@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6149870/2025/02/20/red-sox-matt-moore-zach-penrod-e
 
 **U.S. Objects to Calling Russia ‘Aggressor’ in G7 Statement on Invasion**\
 `The American opposition to a draft of a Group of 7 statement marking the third anniversary of Russia’s attack on Ukraine comes after President Trump blamed Kyiv for starting the war.`\
-https://nytimes.com/2025/02/20/world/europe/us-objections-g7-statement-ukraine.html
+https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
 
 **Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
 `The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
