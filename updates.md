@@ -1,3 +1,7 @@
+**Favorite Outfits From A Perfect Winter Day**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/02/20/style/paris-street-style-photos
+
 **NBA Awards Watch: Shai Gilgeous-Alexander and Nikola Jokić battling for MVP honors**\
 `Who are the top candidates for Defensive Player of the Year, Coach of the Year and other trophies as we hit the stretch run?`\
 https://nytimes.com/athletic/6146605/2025/02/20/nba-awards-shai-gilgeous-alexander-nikola-jokic-mvp/
