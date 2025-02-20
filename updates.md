@@ -1,3 +1,11 @@
+**Corrections Officers Charged With Murder in New York Inmate’s Death**\
+`Gov. Kathy Hochul announced the charges in the December killing of Robert Brooks, which a special prosecutor was expected to unseal Thursday afternoon.`\
+https://nytimes.com/2025/02/20/nyregion/robert-brooks-corrections-officers-charged-murder.html
+
+**With Explosive Goggles, Ukraine Sought to Blast Russian Drone Operators**\
+`A senior Ukrainian intelligence official confirmed the plot to blow up drone goggles. But it was unclear how much effect the scheme had on Russian forces.`\
+https://nytimes.com/2025/02/20/world/europe/urkaine-russia-explosive-goggles.html
+
 **A Rare ‘Doomsday’ Fish Is Spotted Swimming in Mexico**\
 `Oarfish are rarely documented by scientists, but one was seen this month by a group visiting a beach in Mexico.`\
 https://nytimes.com/2025/02/20/world/americas/doomsday-fish-oarfish-mexico.html
