@@ -1,5 +1,9 @@
 **Hamas Hands Bodies of 4 Hostages Back to Israel**\
 `All four had been abducted during the Hamas-led attack on Oct. 7, 2023. An Israeli woman and her two young children were said to be among them.`\
+https://nytimes.com/2025/02/20/world/middleeast/israel-hamas-hostages-bodies.html
+
+**Hamas Hands Bodies of 4 Hostages Back to Israel**\
+`All four had been abducted during the Hamas-led attack on Oct. 7, 2023. An Israeli woman and her two young children were said to be among them.`\
 https://nytimes.com/2025/02/20/world/middleeast/hamas-to-hand-bodies-of-4-hostages-back-to-israel.html
 
 **4 Takeaways From the Hearing on Dismissing Charges Against Eric Adams**\

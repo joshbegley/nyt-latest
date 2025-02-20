@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manche
 
 **Hamas Hands Bodies of 4 Hostages Back to Israel**\
 `All four had been abducted during the Hamas-led attack on Oct. 7, 2023. An Israeli woman and her two young children were said to be among them.`\
-https://nytimes.com/2025/02/20/world/middleeast/hamas-to-hand-bodies-of-4-hostages-back-to-israel.html
+https://nytimes.com/2025/02/20/world/middleeast/israel-hamas-hostages-bodies.html
 
 **Stephen Colbert Would Like to Know Who’s in Charge Here**\
 `The “Late Show” host was taken aback by the White House’s claim that Elon Musk doesn’t run DOGE: “It’s literally named after his favorite meme!”`\
