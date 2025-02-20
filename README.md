@@ -1,3 +1,11 @@
+**Donald Trump wishes Team USA luck, stokes political tensions ahead of 4 Nations final vs. Canada**\
+`Guerin said players were excited to hear from Trump and that the president talked to them "for a while."`\
+https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-canada-comments/
+
+**Trump Dismantles Government Fight Against Foreign Influence Operations**\
+`The Trump administration has reassigned or forced out several dozen government employees who had been working to fight foreign interference in U.S. elections at multiple agencies, according to current and former officials.`\
+https://nytimes.com/2025/02/20/business/trump-foreign-influence-election-interference.html
+
 **Amazon Gains Creative Control Over the James Bond Franchise**\
 `The British family that has for decades held complete control over everything involving the globe-trotting superspy is relinquishing it to Amazon.`\
 https://nytimes.com/2025/02/20/business/amazon-james-bond-franchise.html
@@ -14,6 +22,10 @@ https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
 `The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
 https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
 
+**Male spectator given restraining order after 'fixated behaviour' toward Emma Raducanu**\
+`Raducanu was left in tears on court after the incident during her match against Karolina Muchová Tuesday.`\
+https://nytimes.com/athletic/6145787/2025/02/20/emma-raducanu-spectator-restraining-order-dubai-wta-tennis/
+
 **Brooklyn Academy of Music President Steps Down**\
 `In the latest leadership shake-up, Gina Duncan will leave when her contract expires in June, after three years in the job.`\
 https://nytimes.com/2025/02/20/arts/brooklyn-academy-of-music-president-steps-down.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-ext
 **Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
 `President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
 https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
-
-**NFL will not discipline Lions' Jameson Williams for gun incident**\
-`Prosecutors said the law was not clear enough to charge Williams since his brother — who did have a concealed license — was driving the car.`\
-https://nytimes.com/athletic/6148896/2025/02/20/jameson-williams-detroit-lions-nfl-discipline/
-
-**New York Sues Vape Makers, Saying They Make Products Attractive to Teens**\
-`The state’s attorney general sued nine companies that make and distribute popular vaping devices, seeking a permanent ban on the flavored products.`\
-https://nytimes.com/2025/02/20/nyregion/new-york-vape-lawsuit.html
-
-**Why Did QR Codes Appear on About 1,000 Graves in Munich?**\
-`The mystery has bewildered city workers and set off a police investigation.`\
-https://nytimes.com/2025/02/20/world/europe/germany-munich-qr-codes-graves.html
 
