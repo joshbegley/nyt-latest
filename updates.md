@@ -1,5 +1,9 @@
 **Hayley Paige Reclaims Her Name and Bridal Brand**\
 `After a long legal battle that stripped her of her name and brand, the bridal designer is making a return to the industry with a new collection and a new deal.`\
+https://nytimes.com/2025/02/20/style/hayley-paige-bridal-brand.html
+
+**Hayley Paige Reclaims Her Name and Bridal Brand**\
+`After a long legal battle that stripped her of her name and brand, the bridal designer is making a return to the industry with a new collection and a new deal.`\
 https://nytimes.com/2025/02/20/style/hayley-paige-reclaims-her-name-and-bridal-brand.html
 
 **There’s a Big Hole in England**\
