@@ -1,3 +1,15 @@
+**'Just scratching the surface': Sam Rinzel developing into defenseman Blackhawks envisioned**\
+`The Blackhawks have been pleased with Rinzel's development as a prospect. This season in Minnesota, he's elevated to another level.`\
+https://nytimes.com/athletic/6147839/2025/02/20/blackhawks-prospect-sam-rinzel-defense-nhl/
+
+**Ducks trade tiers: Which players could be on the move? Who is untouchable?**\
+`The team is improving, but a "soft sell" is the likely strategy, unless a big move comes along.`\
+https://nytimes.com/athletic/6146696/2025/02/20/anaheim-ducks-trades-2025/
+
+**Spain’s Ex-Soccer Chief Convicted of Sexual Assault for Kissing Star Player**\
+`Luis Rubiales forcibly kissed Jennifer Hermoso on the lips after the country’s national team won the 2023 Women’s World Cup.`\
+https://nytimes.com/2025/02/20/world/europe/luis-rubiales-spain-soccer-conviction.html
+
 **Rubiales guilty of sexual assault and fined €10,000 for kissing Hermoso**\
 `The former head of the Spanish football federation kissed the footballer after the Women's World Cup final in 2023.`\
 https://nytimes.com/athletic/6148436/2025/02/20/luis-rubiales-court-case-verdict-jenni-hermoso/
