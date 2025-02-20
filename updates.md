@@ -1,3 +1,11 @@
+**Cubs pitcher wins first ABS challenge in spring training game**\
+`Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
+https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/
+
+**The White House’s Love Language: ‘Come Here Illegally and We’ll Deport You’**\
+`The Trump administration has used the official social media accounts of The White House to post a deportation themed Valentine and other polarizing messages.`\
+https://nytimes.com/2025/02/20/style/white-house-deportation-memes.html
+
 **Chelsea's Washington returns to Santos on year-long loan**\
 `Washington joined Chelsea from Santos in 2023, signing a seven-year contract at Stamford Bridge in a €16m (plus €4m in add-ons) transfer`\
 https://nytimes.com/athletic/6150078/2025/02/20/deivid-washington-chelsea-santos-loan-transfer/
