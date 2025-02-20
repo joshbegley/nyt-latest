@@ -12,7 +12,7 @@ https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
 
 **Judge Rules Against Labor Unions Seeking to Block Mass Firings**\
 `The Trump administration can proceed with its plans to fire thousands of government workers, the judge said, noting that the dispute should go before the agency that handles federal labor disputes.`\
-https://nytimes.com/2025/02/20/us/politics/judge-rules-against-labor-unions-seeking-to-block-mass-firings.html
+https://nytimes.com/2025/02/20/us/politics/federal-worker-firings-trump-ruling.html
 
 **Global Doping Authority Drops Cases Against U.S. Officials**\
 `The World Anti-Doping Agency withdrew a defamation lawsuit and an ethics case against American officials critical of its handling of failed tests by members of China’s Olympic swimming squad.`\
