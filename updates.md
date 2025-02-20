@@ -1,3 +1,11 @@
+**Chelsea's Washington returns to Santos on year-long loan**\
+`Washington joined Chelsea from Santos in 2023, signing a seven-year contract at Stamford Bridge in a €16m (plus €4m in add-ons) transfer`\
+https://nytimes.com/athletic/6150078/2025/02/20/deivid-washington-chelsea-santos-loan-transfer/
+
+**Bay FC hires Graeme Abel to new global scouting department**\
+`Abel was at the center of a story from The Oregonian over his conduct as coach of the women’s soccer team at the University of Oregon.`\
+https://nytimes.com/athletic/6149877/2025/02/20/bay-fc-graeme-abel-scouting-hire/
+
 **The U.S. attorney general derides the merits of the Adams case in New York.**\
 `At a conservative conference, Pam Bondi calls the case against New York Mayor Eric Adams “incredibly weak.”`\
 https://nytimes.com/2025/02/20/us/politics/trump-eric-adams-pam-bondi.html
