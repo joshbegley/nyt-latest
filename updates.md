@@ -1,3 +1,7 @@
+**The $20 Billion Controversy Over E.P.A. Climate Funds, Explained**\
+`An attempt by the agency to claw back billions in climate funds has led to confusion and the resignation of a top prosecutor.`\
+https://nytimes.com/2025/02/20/climate/epa-climate-funds-green-banks-20-billion.html
+
 **Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
 `In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
 https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
