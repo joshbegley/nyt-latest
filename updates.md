@@ -1,3 +1,11 @@
+**An Opening for China, Made in America**\
+`Trump’s long and growing list of shortsighted actions in Latin America has created an opening there for America’s adversaries, most notably China.`\
+https://nytimes.com/2025/02/20/opinion/trump-tariffs-latin-america-china.html
+
+**Mizzou upsets Alabama for statement win in loaded SEC field**\
+`Alabama's loss to Missouri comes days after the NCAA Tournament selection committee unveiled the Tide as the No. 2 overall seed.`\
+https://nytimes.com/athletic/6148106/2025/02/20/missouri-alabama-basketball-score-result/
+
 **A federal appeals court leaves a block on Trump’s birthright citizenship order.**\
 `The decision by the U.S. Court of Appeals for the Ninth Circuit was the latest obstacle for the Trump administration in its effort to end birthright citizenship.`\
 https://nytimes.com/live/2025/02/19/us/trump-news/a-federal-appeals-court-leaves-a-block-on-trumps-birthright-citizenship-order
