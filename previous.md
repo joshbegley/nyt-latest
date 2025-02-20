@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6148369/2025/02/20/chelsea-enzo-maresca-jonathan-go
 `The august scholar has two Pulitzer Prizes and a National Humanities Medal. In “The Stained Glass Window,” he seeks to explain “macro-history as family history.”`\
 https://nytimes.com/2025/02/20/books/review/david-levering-lewis-the-stained-glass-window.html
 
-**Slot: 'Harder to accept' Nunez's 'behaviour' after Villa miss**\
-`The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game poised at 2-2.`\
+**Slot unhappy with Nunez's 'behaviour' after miss against Villa**\
+`The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game at 2-2.`\
 https://nytimes.com/athletic/6148309/2025/02/20/arne-slot-darwin-nunez-miss/
 
 **Ownership's commitment, Armstrong changing the core and more: Blues mailbag, part 2**\

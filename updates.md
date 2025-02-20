@@ -1,3 +1,7 @@
+**Slot unhappy with Nunez's 'behaviour' after miss against Villa**\
+`The striker fired a shot over the bar from close range in Wednesday's match, failing to give his side the lead with the game at 2-2.`\
+https://nytimes.com/athletic/6148309/2025/02/20/arne-slot-darwin-nunez-miss/
+
 **Chelsea co-owner says Maresca is 'doing a great job', will continue this season**\
 `Maresca was only appointed in June signing a five-year deal with the option of a sixth.`\
 https://nytimes.com/athletic/6148369/2025/02/20/chelsea-enzo-maresca-jonathan-goldstein/
