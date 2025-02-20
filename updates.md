@@ -1,3 +1,7 @@
+**Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
+`Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
+https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
+
 **Newcastle's Dubravka and Krafth sign new contracts**\
 `Both players' previous deals were due to expire at the end of the 2024-25 season, with Krafth's new deal confirmed through to 2026.`\
 https://nytimes.com/athletic/6149088/2025/02/20/newcastle-contracts-dubravka-krafth-year/
