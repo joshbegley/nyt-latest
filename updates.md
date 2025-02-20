@@ -1,3 +1,7 @@
+**Messi leads Miami to win over Kansas City in CONCACAF Champions Cup**\
+`The temperature at kickoff was seven degrees Fahrenheit while the feel-like temperature dropped to nine below zero.`\
+https://nytimes.com/athletic/6147971/2025/02/19/messi-inter-miami-sporting-kansas-city-concacaf-champions-cup/
+
 **Bada Bing Bada Boom!**\
 `Peter Gorman offers a puzzle that is gentle to solve … and confusing. But he meant to do that.`\
 https://nytimes.com/2025/02/19/crosswords/daily-puzzle-2025-02-20.html
