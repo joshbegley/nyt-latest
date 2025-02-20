@@ -1,7 +1,3 @@
-**Newcastle's Dubravka and Krafth sign new contracts**\
-`Both players' previous deals were due to expire at the end of the 2024-25 season, with Krafth's new deal confirmed through to 2026.`\
-https://nytimes.com/athletic/6149088/2025/02/20/newcastle-contracts-dubravka-krafth-year/
-
 **Remembering Mike Lange: Tributes from Lemieux, Crosby, 'Doc' Emrick and more**\
 `"Outside of Crosby and Lemieux, I don’t think there was ever a bigger influence on the Penguins franchise."`\
 https://nytimes.com/athletic/6148927/2025/02/20/mike-lange-penguins-memories/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/20/us/politics/elon-musk-federal-tech-workers.html
 **Saints to hire Eagles QB coach Doug Nussmeier as OC: Reports**\
 `Nussmeier has worked with Moore since they both joined the Cowboys staff in 2018, following Moore to the Chargers and Eagles afterwards. `\
 https://nytimes.com/athletic/6144707/2025/02/20/saints-doug-nussmeier-offensive-cordinator/
+
+**Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
+`Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
+https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
 
