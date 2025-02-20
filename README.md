@@ -30,7 +30,7 @@ https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants
 `Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
 https://nytimes.com/2025/02/20/us/politics/trump-federal-benefits-immigrants.html
 
-**I.R.S. Fires 6,700 Employees Ahead of Tax Filing Season**\
+**I.R.S. Fires 6,700 Employees Amid Tax Filing Season**\
 `The layoffs at the Internal Revenue Service came alongside additional firings at the Transportation Security Administration and the C.I.A.`\
 https://nytimes.com/2025/02/20/business/irs-fires-employees-layoffs-trump.html
 
