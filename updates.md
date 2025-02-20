@@ -1,3 +1,7 @@
+**How to watch MLB's Spring Training games**\
+`MLB's 2025 Spring Training slate begins with Cubs-Dodgers on Thursday, followed by a daily national offering on MLB TV.`\
+https://nytimes.com/athletic/6146968/2025/02/20/how-to-watch-mlb-spring-training-cubs-dodgers/
+
 **Cubs move forward with major goals, backed by players who've won it all**\
 `Up and down the Cubs' roster are players who have completed the ultimate goal — winning the World Series. `\
 https://nytimes.com/athletic/6147046/2025/02/20/chicago-cubs-veteran-postseason-experience/
