@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6146667/2025/02/20/4-nations-face-off-final-united-
 `An alleged quid pro quo has plunged the Justice Department and New York’s political world into chaos.`\
 https://nytimes.com/2025/02/20/podcasts/the-daily/mayor-eric-adams-donald-trump.html
 
-**Trump Blames Ukraine, and More Americans Identify as L.G.B.T.Q.**\
-`Plus, please don’t ski down the volcano.`\
-https://nytimes.com/2025/02/20/podcasts/the-headlines/trump-ukraine-lgbtq-delta.html
+**How to watch MLB's Spring Training games**\
+`MLB's 2025 Spring Training slate begins with Cubs-Dodgers on Thursday, followed by a daily national offering on MLB TV.`\
+https://nytimes.com/athletic/6146968/2025/02/20/how-to-watch-mlb-spring-training-cubs-dodgers/
 
