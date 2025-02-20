@@ -1,3 +1,7 @@
+**Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
+`The striker's glaring miss at Aston Villa reinforced the feeling Liverpool need to make a new No 9 a priority for next season`\
+https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
+
 **The night Mbappe reminded the world how deadly he can be**\
 `If there were any lingering doubts about the forward's ability to deliver in Madrid, they were banished by a superb display on Wednesday`\
 https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manchester-city/

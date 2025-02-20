@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6146124/2025/02/20/lewis-hamilton-ferrari-f1-2025-l
 https://nytimes.com/2025/02/20/learning/word-of-the-day-grandiloquent.html
 
 **Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
-`The Liverpool striker's glaring miss at Aston Villa reinforced the feeling that Liverpool need to make a No 9 a priority ifor next season`\
+`The striker's glaring miss at Aston Villa reinforced the feeling Liverpool need to make a new No 9 a priority for next season`\
 https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
 
 **LeBron James says he'll have to manage ankle soreness for rest of the season**\
