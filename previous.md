@@ -1,3 +1,19 @@
+**Dairy Workers May Have Passed Bird Flu to Pet Cats, C.D.C. Study Suggests**\
+`But the study, whose publication was delayed by a pause in public communications by the agency, leaves key questions unanswered.`\
+https://nytimes.com/2025/02/20/health/bird-flu-cats-michigan.html
+
+**New Allegation of Sexual Misconduct Swirls Around CPAC Chair Matt Schlapp**\
+`Several people have accused Mr. Schlapp, the Conservative Political Action Conference chairman, of sexual assault. One of his previous accusers received a six-figure settlement.`\
+https://nytimes.com/2025/02/20/us/cpac-matt-schlapp.html
+
+**Trump Administration Abruptly Clears Out Migrants It Sent to Guantánamo**\
+`A transfer operation on Thursday repatriated 177 Venezuelans via a handoff in Honduras, while one migrant was brought back to U.S. soil.`\
+https://nytimes.com/2025/02/20/us/politics/guantanamo-venezuelans-trump-migrants.html
+
+**Alcaraz says he wants to stay at Everton after loan ends**\
+`Alcaraz, 22, completed a deadline-day loan move from Flamengo earlier this month.`\
+https://nytimes.com/athletic/6148656/2025/02/20/carlos-alcaraz-everton-permanent-transfer/
+
 **What to Know About Trump’s Order Targeting Federal Benefits for Migrants**\
 `Most undocumented immigrants are ineligible for federal benefits already. But here’s what the directive could mean in practice.`\
 https://nytimes.com/2025/02/20/us/politics/trump-federal-benefits-immigrants.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6149559/2025/02/20/victor-wembanyama-blood-clot-spu
 **A Bachelorette, a Ballroom Dancer and a ‘Traitor’ Walk Into a Bar**\
 `They’re all Gabby Windey, the reality television star whose latest turn is on the cult hit “The Traitors.”`\
 https://nytimes.com/2025/02/20/style/gabby-windey-traitors-bachelorette.html
-
-**Tigers' Jackson Jobe is armed with a new curveball. Could he become even filthier?**\
-`“He was electric, man,” catcher Jake Rogers said of Jobe and his new curveball. `\
-https://nytimes.com/athletic/6149686/2025/02/20/detroit-tigers-jackson-jobe-curveball/
-
-**At CPAC, a Mixed Reception for Pardoned Jan. 6 Rioters**\
-`Some said they were initially turned away from the conservative conference, prompting outrage and an apology.`\
-https://nytimes.com/2025/02/20/us/cpac-january-6-proud-boys.html
-
-**In Private Remarks on Russia, Rubio Tries to Reassure Europeans**\
-`European officials were not sure what to make of the secretary of state’s measured assessment of Washington’s apparent pivot toward Moscow.`\
-https://nytimes.com/2025/02/20/us/politics/rubio-russia-europe.html
-
-**Nominee for Deputy Transportation Secretary Comes Under Fire for Handling of Boeing**\
-`In his previous stint in the Transportation Department, Steven Bradbury was accused of interfering with a Senate investigation into the crash of two Max jets that killed 346 people combined.`\
-https://nytimes.com/2025/02/20/us/politics/steven-bradbury-deputy-transportation-senate-hearing.html
 
