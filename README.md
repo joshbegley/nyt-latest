@@ -1,3 +1,35 @@
+**Watch: How crucial is free agency to eventual Super Bowl success?**\
+`The Athletic Football Show discusses the free agency signings that elevated the last decade of Super Bowl contenders.`\
+https://nytimes.com/athletic/6146531/2025/02/20/athetic-football-show-free-agency-super-bowl/
+
+**Messi, Mbappe, Ronaldo... and Windass: Our writers' favourite hat-tricks**\
+`Supreme skill, riotous drama - or just plain unlikely heroes... our experts pick their favourite hat-tricks`\
+https://nytimes.com/athletic/6148357/2025/02/20/the-athletic-favourite-hat-tricks/
+
+**Yasir al-Rumayyan, Donald Trump to meet with PGA Tour officials Thursday**\
+`Jay Monahan, Tiger Woods and Adam Scott are also expected to attend the meeting at the White House, sources briefed on the plans confirmed.`\
+https://nytimes.com/athletic/6148870/2025/02/20/yasir-al-rumayyan-trump-pga-tour-meeting/
+
+**Is That Legal? A Guide to Trump’s Big Moves So Far.**\
+`Examining the legality of 38 major actions the president has taken in his first month.`\
+https://nytimes.com/2025/02/20/upshot/trump-executive-orders-legality.html
+
+**Senate Advances Patel’s Nomination for Confirmation Vote**\
+`The Senate will hold a final vote on President Trump’s pick for F.B.I. director, which could put Kash Patel in charge of the powerful law enforcement agency.`\
+https://nytimes.com/2025/02/20/us/politics/kash-patel-trump-fbi-senate.html
+
+**Federal Tech Workers Push Back Against Musk’s Efforts**\
+`An employee at the Technology Transformation Services told colleagues that he had resigned because he was asked to grant a Trump appointee access to a database used to text the public.`\
+https://nytimes.com/2025/02/20/us/politics/federal-tech-workers-push-back-against-musk-efforts.html
+
+**Saints to hire Eagles QB coach Doug Nussmeier as OC: Reports**\
+`Nussmeier has worked with Moore since they both joined the Cowboys staff in 2018, following Moore to the Chargers and Eagles afterwards. `\
+https://nytimes.com/athletic/6144707/2025/02/20/saints-doug-nussmeier-offensive-cordinator/
+
+**Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
+`Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
+https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
+
 **Donald Trump wishes Team USA luck, stokes political tensions ahead of 4 Nations final vs. Canada**\
 `Guerin said players were excited to hear from Trump and that the president talked to them "for a while."`\
 https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-canada-comments/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-
 **Trump Dismantles Government Fight Against Foreign Influence Operations**\
 `The Trump administration has reassigned or forced out several dozen government employees who had been working to fight foreign interference in U.S. elections at multiple agencies, according to current and former officials.`\
 https://nytimes.com/2025/02/20/business/trump-foreign-influence-election-interference.html
-
-**Amazon Gains Creative Control Over the James Bond Franchise**\
-`The British family that has for decades held complete control over everything involving the globe-trotting superspy is relinquishing it to Amazon.`\
-https://nytimes.com/2025/02/20/business/amazon-james-bond-franchise.html
-
-**Review: Two Star Pianists, Thrillingly Side by Side**\
-`Vikingur Olafsson and Yuja Wang appeared at Carnegie Hall with a unified approach to works by Schubert, John Adams, Rachmaninoff and more.`\
-https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-hall-review.html
-
-**Former N.F.L. Player Is Arrested After Protest Over MAGA Plaque**\
-`Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
-https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
-
-**Ipswich loanee Enciso facing four-week layoff with knee injury**\
-`The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
-https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
-
-**Male spectator given restraining order after 'fixated behaviour' toward Emma Raducanu**\
-`Raducanu was left in tears on court after the incident during her match against Karolina Muchová Tuesday.`\
-https://nytimes.com/athletic/6145787/2025/02/20/emma-raducanu-spectator-restraining-order-dubai-wta-tennis/
-
-**Brooklyn Academy of Music President Steps Down**\
-`In the latest leadership shake-up, Gina Duncan will leave when her contract expires in June, after three years in the job.`\
-https://nytimes.com/2025/02/20/arts/brooklyn-academy-of-music-president-steps-down.html
-
-**Yankees, Aaron Boone agree to contract extension through 2027**\
-`Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
-https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
-
-**Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
-`President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
-https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
 

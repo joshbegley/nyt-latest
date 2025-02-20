@@ -1,3 +1,15 @@
+**Ipswich loanee Enciso facing four-week layoff with knee injury**\
+`The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
+https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
+
+**Yankees, Aaron Boone agree to contract extension through 2027**\
+`Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
+https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
+
+**Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
+`President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
+https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
+
 **Saints to hire Eagles QB coach Doug Nussmeier as OC: Reports**\
 `Nussmeier has worked with Moore since they both joined the Cowboys staff in 2018, following Moore to the Chargers and Eagles afterwards. `\
 https://nytimes.com/athletic/6144707/2025/02/20/saints-doug-nussmeier-offensive-cordinator/

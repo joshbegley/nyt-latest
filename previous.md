@@ -1,11 +1,3 @@
-**Saints to hire Eagles QB coach Doug Nussmeier as OC: Reports**\
-`Nussmeier has worked with Moore since they both joined the Cowboys staff in 2018, following Moore to the Chargers and Eagles afterwards. `\
-https://nytimes.com/athletic/6144707/2025/02/20/saints-doug-nussmeier-offensive-cordinator/
-
-**Bucks' Portis suspended 25 games for violating NBA's anti-drug policy**\
-`Portis' suspension begins Thursday night with the Bucks' home game against the LA Clippers.`\
-https://nytimes.com/athletic/6148877/2025/02/20/bucks-bobby-portis-jr-suspension-drug-test/
-
 **Donald Trump wishes Team USA luck, stokes political tensions ahead of 4 Nations final vs. Canada**\
 `Guerin said players were excited to hear from Trump and that the president talked to them "for a while."`\
 https://nytimes.com/athletic/6148926/2025/02/20/donald-trump-4-nations-team-usa-canada-comments/
@@ -26,7 +18,7 @@ https://nytimes.com/2025/02/20/arts/music/yuja-wang-vikingur-olafsson-carnegie-h
 `Chris Kluwe, a former punter for the Vikings, was arrested after speaking at a City Council meeting in Huntington Beach, Calif.`\
 https://nytimes.com/2025/02/20/us/chris-kluwe-protest-arrested.html
 
-**Ipswich loanee Enciso facing layoff with knee injury**\
+**Ipswich loanee Enciso facing four-week layoff with knee injury**\
 `The Paraguay international was forced off after 14 minutes of his full away debut for Ipswich in Saturday's 1-1 draw at Aston Villa.`\
 https://nytimes.com/athletic/6148847/2025/02/20/julio-enciso-injury-ipswich-brighton/
 
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6145787/2025/02/20/emma-raducanu-spectator-restrain
 **Brooklyn Academy of Music President Steps Down**\
 `In the latest leadership shake-up, Gina Duncan will leave when her contract expires in June, after three years in the job.`\
 https://nytimes.com/2025/02/20/arts/brooklyn-academy-of-music-president-steps-down.html
+
+**Yankees, Aaron Boone agree to contract extension through 2027**\
+`Boone, who led the Yankees to an American League pennant in 2024, is entering his eighth season at the helm in the Bronx. `\
+https://nytimes.com/athletic/6148938/2025/02/20/yankees-aaron-boone-contract-extension/
+
+**Trump Elevates Kremlin Talking Points, a Familiar Pattern From His First Term**\
+`President Trump’s description of President Volodymyr Zelensky of Ukraine as a “Dictator without Elections” echoes the Kremlin’s messaging.`\
+https://nytimes.com/2025/02/20/world/trump-putin-russia-ukraine.html
 
