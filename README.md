@@ -1,3 +1,11 @@
+**Chelsea's Washington returns to Santos on year-long loan**\
+`Washington joined Chelsea from Santos in 2023, signing a seven-year contract at Stamford Bridge in a €16m (plus €4m in add-ons) transfer`\
+https://nytimes.com/athletic/6150078/2025/02/20/deivid-washington-chelsea-santos-loan-transfer/
+
+**Bay FC hires Graeme Abel to new global scouting department**\
+`Abel was at the center of a story from The Oregonian over his conduct as coach of the women’s soccer team at the University of Oregon.`\
+https://nytimes.com/athletic/6149877/2025/02/20/bay-fc-graeme-abel-scouting-hire/
+
 **Trump’s Latest Target: A Nancy Pelosi Achievement in San Francisco**\
 `President Trump seeks to significantly pare back the Presidio Trust, which oversees a signature park near the Golden Gate Bridge.`\
 https://nytimes.com/2025/02/20/us/politics/trump-presidio-pelosi-san-francisco.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6149921/2025/02/20/mlb-espn-opt-out-tv-deal/
 **The Senate Confirmed Kash Patel as F.B.I. Director**\
 `Also, nearly one in 10 U.S. adults identifies as L.G.B.T.Q. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/02/20/briefing/kash-patel-fbi-director-george-clooney-braodway.html
-
-**Red Sox notes: Zach Penrod elbow soreness prompts signing of lefty Matt Moore**\
-`Moore started his career in the rotation but has found a home in the bullpen over the past three seasons.`\
-https://nytimes.com/athletic/6149870/2025/02/20/red-sox-matt-moore-zach-penrod-elbow/
-
-**U.S. Objects to Calling Russia ‘Aggressor’ in G7 Statement on Invasion**\
-`The American opposition to a draft of a Group of 7 statement marking the third anniversary of Russia’s attack on Ukraine comes after President Trump blamed Kyiv for starting the war.`\
-https://nytimes.com/2025/02/20/world/europe/us-g7-russia-ukraine-war.html
 
