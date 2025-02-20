@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6149027/2025/02/20/tage-thompson-4-nations-sabres/
 https://nytimes.com/2025/02/20/us/politics/trump-nato.html
 
 **McConnell Announces He Won’t Seek Re-election**\
-`The longest-serving Senate leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
+`The longest-serving Senate party leader had been widely expected to retire at the end of his current term. He made it official on his 83rd birthday, after a recent run of opposing President Trump’s nominees.`\
 https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-retire.html
 
 **Did You Work at the National Nuclear Security Administration? We Want to Hear From You.**\
