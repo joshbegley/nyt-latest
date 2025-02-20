@@ -1,3 +1,15 @@
+**Germany’s Big Fascist Comeback**\
+`Germany’s attempts to “remember away” its Nazi past has instead paved the way for a far-right resurgence.`\
+https://nytimes.com/video/opinion/100000009970138/germany-elections-afd.html
+
+**Federal Takeover or 51st State? Trump Weighs In on D.C. Debate.**\
+`President Trump said the federal government should control the nation’s capital. Democrats and most local residents have long argued that Washington, D.C., should be a state.`\
+https://nytimes.com/2025/02/20/us/politics/trump-dc-federal-takeover.html
+
+**NBA and offensive identity: 3s are prevalent, but not all teams are created equal**\
+`There may be a prevailing narrative that every team plays the same style, but that's far from the truth.`\
+https://nytimes.com/athletic/6064695/2025/02/20/nba-offensive-identity-cavaliers-thunder/
+
 **4 Takeaways From the Hearing on Dismissing Charges Against Eric Adams**\
 `The Justice Department has asked to dismiss a federal corruption case against the New York mayor, prompting resignations and calls for the judge to reject the request.`\
 https://nytimes.com/2025/02/20/nyregion/adams-hearing-charges-dismissal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/20/world/middleeast/israel-hamas-hostages-bodies.htm
 **Stephen Colbert Would Like to Know Who’s in Charge Here**\
 `The “Late Show” host was taken aback by the White House’s claim that Elon Musk doesn’t run DOGE: “It’s literally named after his favorite meme!”`\
 https://nytimes.com/2025/02/20/arts/television/stephen-colbert-doge-elon-musk.html
-
-**Learning Italian and chess with teammates: Why Lewis Hamilton feels revitalized at Ferrari**\
-`After a difficult few years, that belief is coming back to the seven-time world champion`\
-https://nytimes.com/athletic/6146124/2025/02/20/lewis-hamilton-ferrari-f1-2025-launch/
-
-**Word of the Day: grandiloquent**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/20/learning/word-of-the-day-grandiloquent.html
-
-**Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
-`The striker's glaring miss at Aston Villa reinforced the feeling Liverpool need to make a new No 9 a priority for next season`\
-https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
 
