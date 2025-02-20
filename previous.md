@@ -1,3 +1,15 @@
+**Zelensky to Meet U.S. Envoy to Ukraine Amid Public Spat With Trump**\
+`Keith Kellogg and President Volodymyr Zelensky were expected to discuss possible paths to ending the war and ways to defuse tensions between Washington and Kyiv.`\
+https://nytimes.com/2025/02/20/world/europe/ukraine-zelensky-kellogg-trump.html
+
+**Walmart Racks Up Sales Record but Sees Slower Growth Ahead**\
+`The retail giant continues to attract shoppers from across the income spectrum, but faces headwinds from the squeeze of stubborn inflation and risk of tariffs.`\
+https://nytimes.com/2025/02/20/business/walmart-sales-profit.html
+
+**La Liga referee cleared over conflict of interest allegations**\
+`An investigation was opened after allegations over a possible conflict of interests regarding Munuera Montero's consultancy business.`\
+https://nytimes.com/athletic/6144568/2025/02/20/referee-munuera-montero-investigation/
+
 **The Athletic FC: White-hot Mbappe, ice-cold Messi, Nunez's big chance missed**\
 `Today in TAFC: Mbappe believes he can score 50 goals a season, Messi shines in 'inhumane' conditions, Nunez fluffs his lines...`\
 https://nytimes.com/athletic/6148354/2025/02/20/mbappe-hat-trick-messi-inter-miami-freezing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6146327/2025/02/20/george-paton-broncos-gm-2025/
 **‘The Quiet Ones’ Review: Getting Swindled in Copenhagen**\
 `Inspired by a real heist, this Danish thriller has more moving parts than it can keep track of.`\
 https://nytimes.com/2025/02/20/movies/the-quiet-ones-review.html
-
-**‘Old Guy’ Review: The Veteran and the Rookie**\
-`Christoph Waltz plays an aging hit man begrudgingly training his replacement in Simon West’s stale action movie.`\
-https://nytimes.com/2025/02/20/movies/old-guy-review.html
-
-**‘Millers in Marriage’ Review: Squall in the Family**\
-`Three siblings navigate midlife crises in Edward Burns’s glossy look at marriages in transition.`\
-https://nytimes.com/2025/02/20/movies/millers-in-marriage-review.html
-
-**‘Ex-Husbands’ Review: Three Unweddings and a Funeral**\
-`In this Griffin Dunne dramedy, a father and his sons face different kinds of relationship troubles at the same time.`\
-https://nytimes.com/2025/02/20/movies/ex-husbands-review.html
 
