@@ -1,3 +1,7 @@
+**C.I.A. Plans Largest Mass Firing in Nearly 50 Years**\
+`The possible purge of officers working on recruiting and diversity comes as the agency moves to comply with the spirit of an executive order banning efforts to diversify the federal work force.`\
+https://nytimes.com/2025/02/20/us/politics/cia-firings.html
+
 **Barnes & Noble Widow to Auction $250 Million Art Collection**\
 `Louise Riggio is downsizing her Manhattan apartment, which means selling more than 30 works by artists including Mondrian, Magritte and Picasso.`\
 https://nytimes.com/2025/02/20/arts/design/barnes-noble-riggio-auction-art-mondrian.html

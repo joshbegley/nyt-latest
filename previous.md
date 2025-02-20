@@ -1,3 +1,7 @@
+**C.I.A. Plans Largest Mass Firing in Nearly 50 Years**\
+`The possible purge of officers working on recruiting and diversity comes as the agency moves to comply with the spirit of an executive order banning efforts to diversify the federal work force.`\
+https://nytimes.com/2025/02/20/us/politics/cia-firings.html
+
 **Barnes & Noble Widow to Auction $250 Million Art Collection**\
 `Louise Riggio is downsizing her Manhattan apartment, which means selling more than 30 works by artists including Mondrian, Magritte and Picasso.`\
 https://nytimes.com/2025/02/20/arts/design/barnes-noble-riggio-auction-art-mondrian.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
 **David Boren, an Oklahoma Eminence as Governor and Senator, Dies at 83**\
 `A Democrat, he became a powerful voice on national intelligence in the Senate before leaving to become president of the University of Oklahoma.`\
 https://nytimes.com/2025/02/20/us/politics/david-boren-dead.html
-
-**Corrections Officers Charged With Murder in New York Inmate’s Death**\
-`Gov. Kathy Hochul announced the charges in the December killing of Robert Brooks, which a special prosecutor was expected to unseal Thursday afternoon.`\
-https://nytimes.com/2025/02/20/nyregion/robert-brooks-corrections-officers-charged-murder.html
 
