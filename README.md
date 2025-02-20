@@ -1,19 +1,3 @@
-**4 Takeaways From the Hearing on Dismissing Charges Against Eric Adams**\
-`The Justice Department has asked to dismiss a federal corruption case against the New York mayor, prompting resignations and calls for the judge to reject the request.`\
-https://nytimes.com/2025/02/20/nyregion/adams-hearing-charges-dismissal.html
-
-**What’s Next for New York’s Congestion Pricing Tolls**\
-`The Trump administration revoked federal approval for the tolling plan on Wednesday. New York leaders are fighting to keep it.`\
-https://nytimes.com/2025/02/20/nyregion/congestion-pricing-nyc-trump.html
-
-**Congestion Pricing’s Biggest Booster Prepares to Take On the White House**\
-`Janno Lieber, head of the M.T.A., has helped steered the tolling program through lawsuits and a last-minute pause. He now will face off with President Trump.`\
-https://nytimes.com/2025/02/20/nyregion/congestion-pricings-biggest-booster-prepares-to-take-on-the-white-house.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/20/crosswords/spelling-bee-forum.html
-
 **The night Mbappe reminded the world how deadly he can be**\
 `If there were any lingering doubts about the forward's ability to deliver in Madrid, they were banished by a superb display on Wednesday`\
 https://nytimes.com/athletic/6148036/2025/02/20/kylian-mbappe-real-madrid-manchester-city/
@@ -37,4 +21,20 @@ https://nytimes.com/2025/02/20/learning/word-of-the-day-grandiloquent.html
 **Nunez's regression means a Liverpool exit this summer seems increasingly inevitable**\
 `The striker's glaring miss at Aston Villa reinforced the feeling Liverpool need to make a new No 9 a priority for next season`\
 https://nytimes.com/athletic/6147349/2025/02/20/darwin-nunez-liverpool-aston-villa/
+
+**LeBron James says he'll have to manage ankle soreness for rest of the season**\
+`The Lakers lost 100-97 to the Charlotte Hornets on Wednesday.`\
+https://nytimes.com/athletic/6148155/2025/02/20/lebron-james-ankle-soreness-lakers/
+
+**An Opening for China, Made in America**\
+`Trump’s long and growing list of shortsighted actions in Latin America has created an opening there for America’s adversaries, most notably China.`\
+https://nytimes.com/2025/02/20/opinion/trump-tariffs-latin-america-china.html
+
+**Mizzou upsets Alabama for statement win in loaded SEC field**\
+`Alabama's loss to Missouri comes days after the NCAA Tournament selection committee unveiled the Tide as the No. 2 overall seed.`\
+https://nytimes.com/athletic/6148106/2025/02/20/missouri-alabama-basketball-score-result/
+
+**A federal appeals court leaves a block on Trump’s birthright citizenship order.**\
+`The decision by the U.S. Court of Appeals for the Ninth Circuit was the latest obstacle for the Trump administration in its effort to end birthright citizenship.`\
+https://nytimes.com/live/2025/02/19/us/trump-news/a-federal-appeals-court-leaves-a-block-on-trumps-birthright-citizenship-order
 
