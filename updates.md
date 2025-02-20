@@ -1,3 +1,7 @@
+**Man City's half-hearted press against Real Madrid exposed their current feebleness**\
+`Why Guardiola's side were so vulnerable to balls being played over, around and into their press`\
+https://nytimes.com/athletic/6148472/2025/02/20/man-citys-half-hearted-press-against-real-madrid-exposed-their-current-feebleness/
+
 **Favorite Outfits From A Perfect Winter Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/20/style/paris-street-style-photos

@@ -1,3 +1,7 @@
+**Man City's half-hearted press against Real Madrid exposed their current feebleness**\
+`Why Guardiola's side were so vulnerable to balls being played over, around and into their press`\
+https://nytimes.com/athletic/6148472/2025/02/20/man-citys-half-hearted-press-against-real-madrid-exposed-their-current-feebleness/
+
 **Favorite Outfits From A Perfect Winter Day**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/02/20/style/paris-street-style-photos
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/business/dealbook/trump-doge-dividend.html
 **'Just scratching the surface': Sam Rinzel developing into defenseman Blackhawks envisioned**\
 `The Blackhawks have been pleased with Rinzel's development as a prospect. This season in Minnesota, he's elevated to another level.`\
 https://nytimes.com/athletic/6147839/2025/02/20/blackhawks-prospect-sam-rinzel-defense-nhl/
-
-**Rubiales guilty of sexual assault and fined €10,000 for kissing Hermoso**\
-`The former head of the Spanish football federation kissed the footballer after the Women's World Cup final in 2023.`\
-https://nytimes.com/athletic/6148436/2025/02/20/luis-rubiales-court-case-verdict-jenni-hermoso/
 
