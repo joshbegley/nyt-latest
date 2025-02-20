@@ -1,3 +1,11 @@
+**Tom Fitzmorris, Colorful New Orleans Food Critic, Dies at 74**\
+`In print, online and on the radio, he parlayed a savant’s mastery of his city’s restaurant menus and a love of the spotlight into a career that spanned five decades.`\
+https://nytimes.com/2025/02/20/dining/tom-fitzmorris-dead.html
+
+**Airbus Says U.S. Tariffs Would Be ‘Lose-Lose’ for Airline Industry**\
+`The European airline maker, which is Boeing’s chief rival, said it would adapt to any new tariffs, including passing on costs to its customers.`\
+https://nytimes.com/2025/02/20/business/airbus-trump-tariffs-defense-europe.html
+
 **China Defends South Africa’s G20 Ambitions as Rubio Snubs Meeting**\
 `Secretary of State Marco Rubio accused the country of using its position as host of the multilateral gathering to promote diversity and climate change.`\
 https://nytimes.com/2025/02/20/world/africa/south-africa-g20-rubio.html
