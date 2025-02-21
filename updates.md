@@ -1,3 +1,7 @@
+**Yankees announce changes to team's longstanding facial hair policy**\
+`The team will now allow 'well-groomed beards' moving forward. `\
+https://nytimes.com/athletic/6151207/2025/02/21/new-york-yankees-facial-hair/
+
 **Fantasy trends and hidden gems: Ryan O’Reilly a top streaming target as NHL returns**\
 `Shayna Goldman helps you get your rosters prepared for the return of NHL action and an extended week to navigate in fantasy hockey.`\
 https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gems-week-19-waiver-wire/

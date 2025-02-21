@@ -1,3 +1,7 @@
+**Yankees announce changes to team's longstanding facial hair policy**\
+`The team will now allow 'well-groomed beards' moving forward. `\
+https://nytimes.com/athletic/6151207/2025/02/21/new-york-yankees-facial-hair/
+
 **Fantasy trends and hidden gems: Ryan O’Reilly a top streaming target as NHL returns**\
 `Shayna Goldman helps you get your rosters prepared for the return of NHL action and an extended week to navigate in fantasy hockey.`\
 https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gems-week-19-waiver-wire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151115/2025/02/21/man-utd-team-news-ugarte-yoro-er
 **Coinbase Says S.E.C. Will Drop Crypto Lawsuit**\
 `The end of a court fight with the largest U.S. crypto company would be a big win for an industry that financially backed President Trump.`\
 https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
-
-**The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
-`Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
-https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
 
