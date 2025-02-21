@@ -1,3 +1,15 @@
+**What That Chain Saw Was Really About**\
+`Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
+https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
+
+**Trump Suggests Taking Control of the Postal Service**\
+`The president said he was considering merging the mail service, an independent agency, with the Commerce Department.`\
+https://nytimes.com/2025/02/21/us/politics/trump-usps.html
+
+**Jaguars hire former Rams executive James Gladstone as GM**\
+`Jaguars owner Shad Khan: We chose Gladstone "following a painstaking but energizing interview process that left nothing to doubt."`\
+https://nytimes.com/athletic/6152044/2025/02/21/jaguars-gm-hire-james-gladstone/
+
 **Trump Deportees Arrived in ‘Visible Distress,’ Costa Rica’s Ombudsman Says**\
 `The migrants from around the world did not know where they were or what would happen to them, according to an independent government entity.`\
 https://nytimes.com/2025/02/21/us/politics/trump-deportations-costa-rica-migrants.html
