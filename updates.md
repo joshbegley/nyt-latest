@@ -1,3 +1,11 @@
+**What 11 Black Voters Think About Trump’s Actions in His First Month**\
+`Many Black Americans were frustrated by the Trump administration’s targeting of D.E.I. programs. But others embraced the speed at which he moved.`\
+https://nytimes.com/2025/02/20/us/black-voters-trump.html
+
+**Read the Letter From Fani T. Willis to Representative Jim Jordan**\
+`Fani Willis, the the district attorney of Fulton County, Ga., wrote to Representative Jim Jordan of Ohio, the Republican chairman of the House Judiciary Committee, on Thursday, assailing the Justice Department’s handling of the case against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/20/us/willis-letter-to-jordan.html
+
 **Trump Administration Questions Funding for California High-Speed Rail**\
 `The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
 https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html

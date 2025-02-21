@@ -1,3 +1,11 @@
+**What 11 Black Voters Think About Trump’s Actions in His First Month**\
+`Many Black Americans were frustrated by the Trump administration’s targeting of D.E.I. programs. But others embraced the speed at which he moved.`\
+https://nytimes.com/2025/02/20/us/black-voters-trump.html
+
+**Read the Letter From Fani T. Willis to Representative Jim Jordan**\
+`Fani Willis, the the district attorney of Fulton County, Ga., wrote to Representative Jim Jordan of Ohio, the Republican chairman of the House Judiciary Committee, on Thursday, assailing the Justice Department’s handling of the case against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/02/20/us/willis-letter-to-jordan.html
+
 **Trump Administration Questions Funding for California High-Speed Rail**\
 `The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
 https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
 **All-Pro guard Zack Martin informs Cowboys of retirement after 11 seasons: Sources**\
 `In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
 https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/
-
-**Battle for McConnell’s Senate Seat Begins Promptly**\
-`Shortly after Senator Mitch McConnell said he would not run for an eighth term, Daniel Cameron, a former Kentucky attorney general, said he would run for the seat in 2026. Two lawmakers and a businessman also hinted at running.`\
-https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-senate-kentucky.html
-
-**N.Y. Prisons Loosen Solitary Confinement Rules as Wildcat Strikes Spread**\
-`Corrections officers in New York say their working conditions are dangerous and they are forced into overtime. They have walked off the job at 41 of the state’s 42 prisons.`\
-https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confinement.html
 
