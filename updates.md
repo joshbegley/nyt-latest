@@ -1,3 +1,7 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include stories about a vengeful bombmaker, a blind assassin and more.`\
+https://nytimes.com/2025/02/21/movies/action-movies-streaming.html
+
 **Could the Spurs do it again? See how Wemby's injury impacted the Cooper Flagg sweepstakes**\
 `Victor Wembanyama's injury shifted the Defensive Player of the Year and No. 1 pick odds. Read here for his impact on the betting markets.`\
 https://nytimes.com/athletic/6150159/2025/02/21/how-sportsbooks-reacted-to-victor-wembanyama-injury/

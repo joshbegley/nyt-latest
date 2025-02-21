@@ -1,3 +1,7 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include stories about a vengeful bombmaker, a blind assassin and more.`\
+https://nytimes.com/2025/02/21/movies/action-movies-streaming.html
+
 **Could the Spurs do it again? See how Wemby's injury impacted the Cooper Flagg sweepstakes**\
 `Victor Wembanyama's injury shifted the Defensive Player of the Year and No. 1 pick odds. Read here for his impact on the betting markets.`\
 https://nytimes.com/athletic/6150159/2025/02/21/how-sportsbooks-reacted-to-victor-wembanyama-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150950/2025/02/21/champions-league-draw-liverpool-
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 26?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6143591/2025/02/21/premier-league-predicted-line-ups-gameweek-26/
-
-**The education of Dalton Rushing: How the Dodgers are preparing to catching prospect**\
-`For Rushing, the lessons are a chance to prove himself while getting comfortable in front of an All-Star pitching staff.`\
-https://nytimes.com/athletic/6150540/2025/02/21/dodgers-dalton-rushing-playing-time/
 
