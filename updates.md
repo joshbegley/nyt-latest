@@ -1,3 +1,7 @@
+**Watch: Manchester United's 'last century' data department and complacency - a discussion**\
+`The Athletic FC Podcast discuss whether Manchester United’s decision to forgo a data-driven approach has contributed to their downfall.`\
+https://nytimes.com/athletic/6148904/2025/02/21/athletic-fc-podcast-manchester-united-data/
+
 **Did You Sell Concert Tickets or Clothes? You May Owe Taxes.**\
 `If you received more than $5,000 for online sales of “goods or services” in 2024, you might get a Form 1099-K. Don’t ignore it, an expert says.`\
 https://nytimes.com/2025/02/21/your-money/taxes-reselling-gig-workers.html
