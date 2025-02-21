@@ -88,6 +88,11 @@ https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview
 `\
 https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
 
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
 **Trudeau Thumbs Nose at Trump as Canadians Revel in Hockey Win**\
 `Canada beat the U.S. in a championship game with added meaning because of political tensions caused by President Trump’s taunts and economic threats.`\
 https://nytimes.com/2025/02/21/world/canada/trudeau-trump-hockey-canada-us-feud.html
