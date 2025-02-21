@@ -1,3 +1,11 @@
+**Could the Spurs do it again? See how Wemby's injury impacted No. 1 pick odds**\
+`Victor Wembanyama's injury shifted the Defensive Player of the Year and No. 1 pick odds. Read here for his impact on the betting markets.`\
+https://nytimes.com/athletic/6150159/2025/02/21/how-sportsbooks-reacted-to-victor-wembanyama-injury/
+
+**Why the Price of Gold Keeps Breaking Records**\
+`The precious metal, considered a haven asset, is usually sought out by investors during times of turmoil.`\
+https://nytimes.com/2025/02/21/business/gold-price-trump.html
+
 **An early look at Oilers' roster depth with higher salary cap on the way**\
 `Connor McDavid and Evan Bouchard are in line for new contracts, but where else could Edmonton tinker?`\
 https://nytimes.com/athletic/6148109/2025/02/21/oilers-roster-depth-salary-cap-bowman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6143591/2025/02/21/premier-league-predicted-line-up
 **The education of Dalton Rushing: How the Dodgers are preparing to catching prospect**\
 `For Rushing, the lessons are a chance to prove himself while getting comfortable in front of an All-Star pitching staff.`\
 https://nytimes.com/athletic/6150540/2025/02/21/dodgers-dalton-rushing-playing-time/
-
-**Mark Williams, agent dispute Lakers' decision to fail his physical**\
-`The Lakers rescinded their trade with the Hornets for Williams earlier this month.`\
-https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-lakers/
-
-**Steiner, Haas legal case dismissed after parties reach agreement in mediation**\
-`Steiner, 59, had filed a lawsuit against his former F1 team over alleged unpaid commissions and unauthorized use of his name and likeness.`\
-https://nytimes.com/athletic/6151374/2025/02/21/guenther-steiner-haas-lawsuit-f1/
 
