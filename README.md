@@ -1,7 +1,3 @@
-**Spain Women secure late victory over Belgium day after Rubiales verdict**\
-`Spain scored two stoppage time goals as they came from 2-0 down to beat Belgium 3-2 in the Women's Nations League.`\
-https://nytimes.com/athletic/6151796/2025/02/21/spain-women-belgium-nations-league/
-
 **Trump Plans to Use Military Bases to Detain Migrants**\
 `Also, archaeologists found a pharaoh’s tomb. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/02/21/briefing/trump-military-base-migrants-yankees-beards.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6152078/2025/02/21/us-canada-viewership-four-nation
 **What strong 4 Nations showings for Wild could mean down the stretch**\
 `The confidence-building moments for key players at the tournament could loom large for Minnesota as it shifts focus to winning the Cup.`\
 https://nytimes.com/athletic/6152063/2025/02/21/4-nations-face-off-wild-nhl/
+
+**Red Sox future on display as Marcelo Mayer, Kristian Campbell start spring opener**\
+`Roman Anthony was a late scratch, but with Marcelo Mayer and Kristian Campbell in the lineup, the spring opener was a preview of the future.`\
+https://nytimes.com/athletic/6152152/2025/02/21/red-sox-spring-debut-marcelo-mayer-kristian-campbell/
 
