@@ -1,3 +1,7 @@
+**Hamas Says It Has Returned Another Body It Believes Is Shiri Bibas**\
+`Less than 24 hours after Israel found that remains delivered by Hamas did not belong to Ms. Bibas, a slain Israeli hostage, the militant group said it had returned another body.`\
+https://nytimes.com/2025/02/21/world/middleeast/hamas-israel-shiri-bibas.html
+
 **Trump Administration Stalls Scientific Research Despite Court Ruling**\
 `Using an arcane law, officials have effectively delayed funding from the National Institutes of Health, leaving medical studies in jeopardy.`\
 https://nytimes.com/2025/02/21/science/nih-research-funding-delays.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/books/three-poets-the-tale-of-gerd-carl-allen.htm
 **The plan to dismiss U.S.A.I.D. employees would all but dismantle the nation’s chief foreign aid agency.**\
 `The plan, which also involves forcing staffers posted overseas to return home, would all but dismantle the nation’s chief foreign aid agency.`\
 https://nytimes.com/live/2025/02/21/us/trump-news/usaid-job-cuts
-
-**Associated Press Sues Trump Officials Over White House Ban**\
-`The wire service sued three of them for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
-https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
 
