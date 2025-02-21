@@ -1,3 +1,19 @@
+**'It's a big deal': Current and former Yankees react to the team's new facial hair policy**\
+`Austin Wells, Gerrit Cole, Gleyber Torres and more all weighed in on the surprising change to a longstanding Yankee tradition.`\
+https://nytimes.com/athletic/6151787/2025/02/21/yankees-facial-hair-policy-reactions/
+
+**Maine Governor and Trump Clash Over Trans Rights**\
+`Gov. Janet Mills of Maine threatened legal action after President Trump said he would withhold funding to her state unless she complied with the executive order banning transgender athletes from women’s sports.`\
+https://nytimes.com/video/us/politics/100000010005252/maine-trump-transgender.html
+
+**Coming Soon to Trump’s Kennedy Center: A Celebration of Christ**\
+`Richard Grenell, the center’s new president, told a conservative gathering that the “big change” at the center would be a “huge celebration of the birth of Christ at Christmas.”`\
+https://nytimes.com/2025/02/21/arts/music/richard-grenell-kennedy-center-trump.html
+
+**Tarrio Arrested on Charges of Assaulting Protester Outside Capitol**\
+`Enrique Tarrio, a former leader of the Proud Boys, had appeared with several other Jan. 6 defendants outside the very building that sat at the center of the riot that sent many of them to prison.`\
+https://nytimes.com/2025/02/21/us/politics/tarrio-proud-boys-capitol.html
+
 **With No Buy-in From Egypt or Jordan, Trump Appears to Back Away From His Gaza Plan**\
 `Earlier this month, the president said he favored taking control of Gaza and displacing the Palestinian population of the devastated seaside enclave. But Egypt and Jordan flatly rejected cooperating.`\
 https://nytimes.com/2025/02/21/us/politics/trump-gaza-egypt-jordan.html

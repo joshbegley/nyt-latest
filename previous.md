@@ -1,3 +1,19 @@
+**'It's a big deal': Current and former Yankees react to the team's new facial hair policy**\
+`Austin Wells, Gerrit Cole, Gleyber Torres and more all weighed in on the surprising change to a longstanding Yankee tradition.`\
+https://nytimes.com/athletic/6151787/2025/02/21/yankees-facial-hair-policy-reactions/
+
+**Maine Governor and Trump Clash Over Trans Rights**\
+`Gov. Janet Mills of Maine threatened legal action after President Trump said he would withhold funding to her state unless she complied with the executive order banning transgender athletes from women’s sports.`\
+https://nytimes.com/video/us/politics/100000010005252/maine-trump-transgender.html
+
+**Coming Soon to Trump’s Kennedy Center: A Celebration of Christ**\
+`Richard Grenell, the center’s new president, told a conservative gathering that the “big change” at the center would be a “huge celebration of the birth of Christ at Christmas.”`\
+https://nytimes.com/2025/02/21/arts/music/richard-grenell-kennedy-center-trump.html
+
+**Tarrio Arrested on Charges of Assaulting Protester Outside Capitol**\
+`Enrique Tarrio, a former leader of the Proud Boys, had appeared with several other Jan. 6 defendants outside the very building that sat at the center of the riot that sent many of them to prison.`\
+https://nytimes.com/2025/02/21/us/politics/tarrio-proud-boys-capitol.html
+
 **With No Buy-in From Egypt or Jordan, Trump Appears to Back Away From His Gaza Plan**\
 `Earlier this month, the president said he favored taking control of Gaza and displacing the Palestinian population of the devastated seaside enclave. But Egypt and Jordan flatly rejected cooperating.`\
 https://nytimes.com/2025/02/21/us/politics/trump-gaza-egypt-jordan.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/21/arts/music/voletta-wallace-notorious-big-mother-d
 **The 4 Nations Face-Off ravaged the Bruins in more ways than one**\
 `Brad Marchand, Elias Lindholm and Jeremy Swayman have no choice but to deliver returning to the Bruins, who are up against it. `\
 https://nytimes.com/athletic/6151679/2025/02/21/bruins-4-nations-injury-roles/
-
-**Ukraine Promises Swift Deal for Minerals as Trump Cuts Kyiv Out of Peace Talks**\
-`President Trump on Friday said the Ukrainian president had been negotiating “with no cards” and did not need to participate in all the diplomatic meetings to end the war.`\
-https://nytimes.com/2025/02/21/world/europe/ukraine-zelensky-minerals-peace.html
-
-**Warriors at Kings: How to watch, odds as Jimmy Butler and Zach LaVine duel on new squads**\
-`Two of the trade deadline's biggest factors show off their new squads Friday night, with the Warriors as slight favorites in Sacramento.`\
-https://nytimes.com/athletic/6151688/2025/02/21/warriors-kings-how-to-watch-preview-curry-butler-lavine-sabonis/
-
-**It’s Been 5 Years Since Covid Hit. Do You Travel Differently Now?**\
-`The pandemic was declared in March 2020, shutting down travel for months. How did the lockdowns, and then the surge in demand, change the way you travel?`\
-https://nytimes.com/2025/02/21/travel/covid-pandemic-travel-changes-callout.html
-
-**Terry Francona says Reds will opt out of ABS testing: 'Why work on strategy we’re not going to use?'**\
-`Five parks in Arizona and eight in Florida have been fitted with the ABS challenge system technology this spring.`\
-https://nytimes.com/athletic/6151856/2025/02/21/terry-francona-reds-roboumps-spring-training-2/
 
