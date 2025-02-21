@@ -1,3 +1,11 @@
+**Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
+`"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
+https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
+
+**Stephen Colbert Crowns Trump the Troll King**\
+`President Trump referring to himself as a king “is the thing presidents are not supposed to do,” Colbert said on Thursday.`\
+https://nytimes.com/2025/02/21/arts/television/stephen-colbert-trump-doge.html
+
 **Whatever Happens Next, Germany Is in Big Trouble**\
 `Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
 https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6141654/2025/02/21/fpl-assistant-manager-chip-tips-
 **Why Argentine club Ferro Carril Oeste are launching an Aston Villa-inspired kit**\
 `Ferro have links with Aston Villa going back more than a century — they just are not exactly sure how those connections came about`\
 https://nytimes.com/athletic/6148250/2025/02/21/argentina-ferro-aston-villa-kit/
-
-**Chelsea's loan army: Who will challenge for a role at Stamford Bridge next season?**\
-`Andrey Santos, Renato Veiga and Lesley Ugochukwu may benefit from valuable game-time on loan this season to play more of a role next term`\
-https://nytimes.com/athletic/6149320/2025/02/21/chelsea-loanee-santos-veiga-ugochukwu-joao-felix/
-
-**Anderson, his enforced Newcastle exit and a deal that has ended up suiting all parties**\
-`The midfielder is a boyhood Newcastle fan and had not envisaged leaving, but he has blossomed at Nottingham Forest`\
-https://nytimes.com/athletic/6148244/2025/02/21/elliot-anderson-newcastle-nottingham-forest/
 

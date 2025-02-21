@@ -1,3 +1,11 @@
+**Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
+`"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
+https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
+
+**Stephen Colbert Crowns Trump the Troll King**\
+`President Trump referring to himself as a king “is the thing presidents are not supposed to do,” Colbert said on Thursday.`\
+https://nytimes.com/2025/02/21/arts/television/stephen-colbert-trump-doge.html
+
 **Whatever Happens Next, Germany Is in Big Trouble**\
 `Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
 https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
