@@ -2,6 +2,10 @@
 `Can MLS cut through to the mainstream with a behind-the-scenes series like 'Drive to Survive' did for F1?`\
 https://nytimes.com/athletic/6149976/2025/02/21/where-mlss-apple-tv-docuseries-onside-gets-it-right-and-whats-missing/
 
+**2025 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
+`Jake Ciely provides his customizable 2025 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
+https://nytimes.com/athletic/6119696/2025/02/21/2025-fantasy-baseball-cheat-sheet-customizable-rankings-and-projections-tool/
+
 **Yankees Part With Tradition: Beards Are Now Allowed**\
 `The team is ending its longstanding policy on facial hair and will allow “well-groomed beards moving forward,” Hal Steinbrenner said.`\
 https://nytimes.com/2025/02/21/sports/baseball/yankees-beards-facial-hair-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gem
 **Watch: Manchester United's 'last century' data department and complacency - a discussion**\
 `The Athletic FC Podcast discuss whether Manchester United’s decision to forgo a data-driven approach has contributed to their downfall.`\
 https://nytimes.com/athletic/6148904/2025/02/21/athletic-fc-podcast-manchester-united-data/
-
-**2025 fantasy baseball rankings: Jake Ciely's Top 500 players**\
-`Jake Ciely offers up his 2025 fantasy baseball rankings, with overall rankings for hitters and pitchers, and sortable by position.`\
-https://nytimes.com/athletic/6127264/2025/02/21/2025-fantasy-baseball-rankings-jake-cielys-top-320-hitters-and-225-pitchers/
 
