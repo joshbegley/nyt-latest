@@ -1,3 +1,7 @@
+**Olga James, a Star of ‘Carmen Jones’ and ‘Mr. Wonderful,’ Dies at 95**\
+`An operatic soprano, she had high-profile roles on film and stage in the 1950s. But after that, she mostly spent her career away from the limelight.`\
+https://nytimes.com/2025/02/21/arts/music/olga-james-dead.html
+
 **‘Yellowjackets’ Season 3, Episode 3 Recap: It Wants More**\
 `The Wilderness is becoming very vocal lately. And awfully demanding, too.`\
 https://nytimes.com/2025/02/21/arts/television/yellowjackets-recap-season-3-episode-3.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/02/21/us/politics/scotus-holocaust-survivors-hungary.ht
 `The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
 https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
 
-**Judge in Adams Case Appoints Lawyer to Argue Against Dropping of Charges**\
-`Judge Dale E. Ho said that with New York’s mayor and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
+**Judge Defers Ruling in Adams Case, Appointing Lawyer to Guide Decision**\
+`Judge Dale E. Ho said that with Eric Adams’s lawyer and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
 https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
-
-**Read Judge Ho’s Order in the Eric Adams Corruption Case**\
-`Judge Dale E. Ho appointed a lawyer to present independent arguments on the federal government’s motion to drop the charges against New York City’s mayor.`\
-https://nytimes.com/interactive/2025/02/21/us/139-adams-order.html
 
