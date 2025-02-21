@@ -1,3 +1,7 @@
+**Penguins' Sullivan on Crosby's health, Mike Lange and 4 Nations**\
+`Sullivan endured quite a wild ride over the past couple of weeks.`\
+https://nytimes.com/athletic/6151841/2025/02/21/penguins-mike-sullivan-4-nations-face-off/
+
 **Do Elon Musk and His Father Get Along?**\
 `Errol Musk questioned his son’s parenting ability on a podcast, but said that his comments had been taken out of context and that they were on good terms.`\
 https://nytimes.com/2025/02/21/style/elon-musk-father-errol-comments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151856/2025/02/21/terry-francona-reds-roboumps-spr
 **Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants**\
 `The move would be a drastic escalation by the White House to militarize immigration enforcement.`\
 https://nytimes.com/2025/02/21/us/politics/migrants-military-sites.html
-
-**Los Angeles Mayor Removes Fire Chief, Blaming Her for Lack of Preparation**\
-`Mayor Karen Bass criticized Kristin Crowley for sending firefighters home before a blaze devastated the Pacific Palisades neighborhood.`\
-https://nytimes.com/2025/02/21/us/los-angeles-fire-chief-removed.html
 
