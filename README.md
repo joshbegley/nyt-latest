@@ -1,4 +1,4 @@
-**Connor McDavid scores in overtime, lifts Canada to 4 Nations title over U.S.**\
+**Connor McDavid scores in overtime, lifts Canada to 4 Nations title over Team USA: Takeaways**\
 `Canada beat the United States 3-2 in the 4 Nations Face-Off behind star performances from McDavid and goalie Jordan Binnington.`\
 https://nytimes.com/athletic/6150529/2025/02/20/connor-mcdavid-4-nations-canada-usa/
 
