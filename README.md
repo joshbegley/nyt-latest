@@ -1,3 +1,7 @@
+**Multiple Bus Explosions in Israel Put Country on Terrorism Alert**\
+`The attempted attacks on Thursday, which injured no one but shut down buses and trains across the country, came amid Israel’s ongoing raids in the West Bank and as its cease-fire with Hamas in Gaza nears its end.`\
+https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.html
+
 **Ref who asked Lionel Messi for his jersey disciplined by CONCACAF**\
 `Statement from CONCACAF does not detail any punishment, but says official “acknowledged his mistake" and apologized for the incident.`\
 https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who-asked-lionel-messi-for-his-jersey-after-match/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confine
 **One key factor behind Aaron Boone's extension with the Yankees? Aaron Judge's support**\
 `Boone has been Judge's manager for all but two seasons of the AL MVP's major-league career.`\
 https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aaron-judge/
-
-**A New Look at the History of ‘S.N.L.’**\
-`Photos, scripts, hate mail and other artifacts donated by Lorne Michaels trace the show’s path from idea to institution.`\
-https://nytimes.com/interactive/2025/02/20/arts/television/snl-lorne-michaels-archives.html
 
