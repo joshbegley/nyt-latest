@@ -1,3 +1,7 @@
+**40 for 40: LeBron James 'defies anything that's normal' in win over Trail Blazers**\
+`Without Luka Dončić and playing a back-to-back, James became the first player in NBA history with multiple 40-point games past age 40.`\
+https://nytimes.com/athletic/6150771/2025/02/21/lebron-james-lakers-40-points-portland/
+
 **The Athletic’s Friday football quiz question #43**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6149562/2025/02/21/the-athletics-friday-football-quiz-question-43/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150006/2025/02/21/college-football-playoff-selecti
 **Analysis: Mets don't plan to add to rotation after Frankie Montas injury. But should they?**\
 `The Mets boast enough starting pitchers to absorb Montas’ injury, but several of them are question marks heading into the season.`\
 https://nytimes.com/athletic/6150357/2025/02/21/mets-rotation-frankie-montas-injury/
-
-**To lead Louisville, Chucky Hepburn had to face the losses that fueled him**\
-`Hepburn's reckoning with the string of off-the-court tragedies that hung over his on-court breakout helped him set a new tone at Louisville.`\
-https://nytimes.com/athletic/6134209/2025/02/21/chucky-hepburn-louisville-basketball/
 
