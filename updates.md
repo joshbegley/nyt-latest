@@ -1,3 +1,7 @@
+**Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
+`The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
+https://nytimes.com/2025/02/21/us/politics/supreme-court-trump-special-counsel.html
+
 **What That Chain Saw Was Really About**\
 `Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
 https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
