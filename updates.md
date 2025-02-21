@@ -1,3 +1,15 @@
+**Salah's Ballon d'Or ambition - and why it could help Liverpool in contract talks**\
+`The Egyptian wants and deserves the sport's biggest individual accolade but he will not get it by moving to Saudi Arabia`\
+https://nytimes.com/athletic/6148746/2025/02/21/mohamed-salah-ballon-dor-liverpool/
+
+**Could Mbappe match Ronaldo at Real Madrid? Ancelotti thinks so**\
+`Ancelotti suggested Mbappe could reach Ronaldo's heights after his hat-trick against Manchester City, but is that fanciful?`\
+https://nytimes.com/athletic/6148299/2025/02/21/kylian-mbappe-cristiano-ronaldo-goals/
+
+**The return of David Moyes: How Everton have been revived by a familiar face back at the helm**\
+`Moyes has galvanised Everton since his January reappointment, lifting the mood at the training ground and in the stands on matchdays`\
+https://nytimes.com/athletic/6148341/2025/02/21/moyes-everton-revival-goodison/
+
 **Is it possible to have a small squad in modern club football?**\
 `An increasing number of games and player fatigue means managers are struggling to balance their player pools`\
 https://nytimes.com/athletic/6148206/2025/02/21/small-squad-modern-club-football/

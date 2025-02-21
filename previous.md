@@ -1,3 +1,15 @@
+**Salah's Ballon d'Or ambition - and why it could help Liverpool in contract talks**\
+`The Egyptian wants and deserves the sport's biggest individual accolade but he will not get it by moving to Saudi Arabia`\
+https://nytimes.com/athletic/6148746/2025/02/21/mohamed-salah-ballon-dor-liverpool/
+
+**Could Mbappe match Ronaldo at Real Madrid? Ancelotti thinks so**\
+`Ancelotti suggested Mbappe could reach Ronaldo's heights after his hat-trick against Manchester City, but is that fanciful?`\
+https://nytimes.com/athletic/6148299/2025/02/21/kylian-mbappe-cristiano-ronaldo-goals/
+
+**The return of David Moyes: How Everton have been revived by a familiar face back at the helm**\
+`Moyes has galvanised Everton since his January reappointment, lifting the mood at the training ground and in the stands on matchdays`\
+https://nytimes.com/athletic/6148341/2025/02/21/moyes-everton-revival-goodison/
+
 **Is it possible to have a small squad in modern club football?**\
 `An increasing number of games and player fatigue means managers are struggling to balance their player pools`\
 https://nytimes.com/athletic/6148206/2025/02/21/small-squad-modern-club-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/21/style/chase-edmunds-kirby-matocha-wedding.html
 **My Struggle to Stop Loving Him**\
 `On a post-divorce bicycle ride through Paris with her ex-husband, a woman weighs the costs of divorce.`\
 https://nytimes.com/2025/02/21/style/modern-love-divorce-paris-trying-to-not-love-him.html
-
-**A ‘Perfect Fit’ in Love and Fashion**\
-`Jordan Bowen and Luca Marchetto, of the JordanLuca fashion line, walked the runway of their recent show in Milan — straight to the altar.`\
-https://nytimes.com/2025/02/21/style/jordan-bowen-luca-marchetto-jordanluca-milan-wedding.html
-
-**‘Impossible / It’s Possible’ Became Their Anthem**\
-`When Emily Giske sang the song from “Cinderella” to Jennifer Percival over the phone soon after they met, long-term love seemed possible.`\
-https://nytimes.com/2025/02/21/style/emily-giske-jennifer-percival-wedding.html
-
-**Their Best Match Came With the Final Swipe**\
-`Illyse Singer and Ty Duncan were having little luck with dating apps until they connected on Tinder more than two years ago and quickly found they had much in common.`\
-https://nytimes.com/2025/02/21/style/illyse-singer-ty-duncan-wedding.html
 
