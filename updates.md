@@ -1,3 +1,11 @@
+**Blackhawks' Seth Jones seeking trade to play 'meaningful' games**\
+`Jones' contract will make it difficult, but the veteran defenseman would like to play for a contending NHL team.`\
+https://nytimes.com/athletic/6151583/2025/02/21/blackhawks-seth-jones-trade-request/
+
+**Suspect in Insurance C.E.O. Killing Creates Website as Support Floods In**\
+`Luigi Mangione faced a hearing on Friday as supporters planned a rally outside a Manhattan courthouse. Some Americans have found a hero in the man accused of vigilante murder.`\
+https://nytimes.com/2025/02/21/nyregion/luigi-mangione-uhc-ceo-killing-supporters.html
+
 **Jerry Butler, Singer Known as the Iceman, Dies at 85**\
 `Known for his resounding baritone and his courtly manner, he briefly led the Impressions before beginning a successful solo career.`\
 https://nytimes.com/2025/02/21/arts/music/jerry-butler-dead.html
