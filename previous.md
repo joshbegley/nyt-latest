@@ -1,3 +1,7 @@
+**Did You Sell Concert Tickets or Clothes? You May Owe Taxes.**\
+`If you received more than $5,000 for online sales of “goods or services” in 2024, you might get a Form 1099-K. Don’t ignore it, an expert says.`\
+https://nytimes.com/2025/02/21/your-money/taxes-reselling-gig-workers.html
+
 **Saint Mary's sports the look of a March Madness Cinderella in the making**\
 `Can Saint Mary's make a deep run during this year's NCAA Tournament? You bet. `\
 https://nytimes.com/athletic/6149698/2025/02/21/saint-marys-march-madness-tournament-2025-cinderalla/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-re
 **Hamas Failed to Return the Body of a Hostage. What Now?**\
 `The Palestinian armed group said it had handed over the remains of Shiri Bibas along with her two young children and another man. Israel said forensic testing found that it wasn’t her.`\
 https://nytimes.com/2025/02/21/world/middleeast/israel-hamas-shiri-bibas.html
-
-**Pondering the Trump Effect**\
-`The president has moved swiftly to remake Washington. But for business leaders, that volatility has often been hard to navigate.`\
-https://nytimes.com/2025/02/21/business/dealbook/trump-effect-first-month.html
 
