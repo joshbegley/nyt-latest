@@ -34,7 +34,7 @@ https://nytimes.com/2025/02/21/us/politics/scotus-holocaust-survivors-hungary.ht
 `The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
 https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
 
-**Judge in Adams Case Appoints Lawyer to Argue Against Dropping of Charges**\
-`Judge Dale E. Ho said that with New York’s mayor and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
+**Judge Defers Ruling in Adams Case, Appointing Lawyer to Guide Decision**\
+`Judge Dale E. Ho said that with Eric Adams’s lawyer and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
 https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
 

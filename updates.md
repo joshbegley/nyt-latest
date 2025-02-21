@@ -1,3 +1,7 @@
+**Judge Defers Ruling in Adams Case, Appointing Lawyer to Guide Decision**\
+`Judge Dale E. Ho said that with Eric Adams’s lawyer and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
+https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
+
 **Olga James, a Star of ‘Carmen Jones’ and ‘Mr. Wonderful,’ Dies at 95**\
 `An operatic soprano, she had high-profile roles on film and stage in the 1950s. But after that, she mostly spent her career away from the limelight.`\
 https://nytimes.com/2025/02/21/arts/music/olga-james-dead.html
