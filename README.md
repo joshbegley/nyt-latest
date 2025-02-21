@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6149827/2025/02/21/vladimir-guerrero-jr-blue-jays-e
 
 **The F.B.I.’s New Boss, and the Foreign Aid Fallout**\
 `Plus, a James Bond takeover.`\
-https://nytimes.com/2025/02/21/podcasts/the-headlines/the-fbis-new-boss-and-the-foreign-aid-fallout.html
+https://nytimes.com/2025/02/21/podcasts/the-headlines/fbi-director-amazon-james-bond-usaid.html
 
 **Universal’s Theme Parks, Long in Disney’s Shadow, Expand at Dizzying Pace**\
 `Universal is going after Disney, the industry leader, with new parks in Florida and Texas: “We want people to think of us first.”`\
@@ -16,7 +16,7 @@ https://nytimes.com/2025/02/21/business/universal-theme-parks-expansion-disney.h
 
 **Trump 2.0: Rewriting Histories**\
 `Watch or listen to our political round table breaking down President Trump’s latest week in office.`\
-https://nytimes.com/2025/02/21/podcasts/the-daily/trump-2-0-rewriting-histories.html
+https://nytimes.com/2025/02/21/podcasts/the-daily/trump-ukraine-russia-kennedy-center.html
 
 **Toronto Tempo's first GM Monica Wright Rogers sets vision for WNBA expansion team's future**\
 `A former WNBA player, college coach and NBA executive, Wright Rogers is tasked with helping create a winning culture in Toronto.`\
