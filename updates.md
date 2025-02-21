@@ -1,3 +1,8 @@
+**Premier League accumulator tips: The best bets to add to your treble**\
+`Sam Tighe offers his betting insights on which bets to add to your accumulator ahead of this weekend’s Premier League action. 
+`\
+https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
+
 **'You can't write it better': McDavid opens next chapter for Team Canada**\
 `McDavid's winner Thursday night appropriately evoked memories of Sidney Crosby's Golden Goal.`\
 https://nytimes.com/athletic/6150720/2025/02/21/connor-mcdavid-canada-4-nations-face-off-usa/
