@@ -1,4 +1,8 @@
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
+`The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
+https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
+
+**The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2025/02/21/us/trump-news/the-firings-are-the-first-of-what-is-expected-to-be-a-vast-wave-of-layoffs-at-the-defense-department
 
