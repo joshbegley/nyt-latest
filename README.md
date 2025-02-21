@@ -1,3 +1,7 @@
+**Mikaela Shiffrin returns to giant slalom for first time since injury, finishes 25th**\
+`After pulling out of the same event at world championships, Mikaela Shiffrin returned to the giant slalom Friday on the World Cup tour.`\
+https://nytimes.com/athletic/6150264/2025/02/21/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
+
 **Ugarte, Yoro back fit for Everton trip**\
 `Christian Eriksen is also fit to return after missing last weekend's 1-0 defeat by Tottenham.`\
 https://nytimes.com/athletic/6151115/2025/02/21/man-utd-team-news-ugarte-yoro-eriksen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149519/2025/02/21/ohio-state-players-to-watch/
 **Twins' Matt Canterino still has the stuff — and the dream: 'I'm hoping this is the year'**\
 `He still has an electric arm and the same joy for playing as always, but Canterino knows yet another big challenge lies ahead.`\
 https://nytimes.com/athletic/6150362/2025/02/21/matt-canterino-injuries-twins-2025/
-
-**Which teams' transfer portal classes face the most pressure in 2025?**\
-`Let's examine which transfer portal classes will hold the most stakes next season.`\
-https://nytimes.com/athletic/6149932/2025/02/21/college-football-transfer-portal-classes-2025/
 
