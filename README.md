@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6152282/2025/02/21/dodgers-tony-gonsolin-yoshinobu-
 
 **Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
 `The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
-https://nytimes.com/2025/02/21/us/supreme-court-trump-special-counsel.html
+https://nytimes.com/2025/02/21/us/politics/supreme-court-trump-special-counsel.html
 
 **Trump Administration Shakes Up ICE Leadership**\
 `The leadership change comes as the president aims to make good on a promise of mass deportations and arrests of undocumented immigrants across the United States.`\
