@@ -1,3 +1,7 @@
+**F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
+`The timeline for identifying the agents and employees who would move from the Washington area to field offices and a sprawling campus in Huntsville, Ala., was not immediately clear.`\
+https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
+
 **USC lands 4-star Jonas Williams after QB flipped commitment from Oregon**\
 `Williams is the 10th commitment for the Trojans in the 2026 class.`\
 https://nytimes.com/athletic/6151606/2025/02/21/usc-recruiting-jonas-williams-commitment-oregon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/trump-deportations-costa-rica-migrant
 **Patsy Grimaldi, Whose Name Became Synonymous With Pizza, Dies at 93**\
 `His coal-oven pizzeria in the shadow of the Brooklyn Bridge has drawn patrons from New York City and beyond.`\
 https://nytimes.com/2025/02/21/dining/patsy-grimaldi-dead.html
-
-**Dodger Details: Don't forget about Tony Gonsolin, Yoshinobu Yamamoto's breakfast pal and more**\
-`Yamamoto feels more comfortable communicating with his teammates in his second season with the Dodgers.`\
-https://nytimes.com/athletic/6152282/2025/02/21/dodgers-tony-gonsolin-yoshinobu-yamamoto-blake-snell-breakfast/
 
