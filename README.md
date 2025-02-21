@@ -1,3 +1,7 @@
+**Trudeau Thumbs Nose at Trump as Canadians Revel in Hockey Win**\
+`Canada beat the U.S. in a championship game with added meaning because of political tensions caused by President Trump’s taunts and economic threats.`\
+https://nytimes.com/2025/02/21/world/canada/trudeau-trump-hockey-canada-us-feud.html
+
 **Facing Trump’s Threats, New York’s Governor Adopts a ‘Rambo’ Attitude**\
 `Gov. Kathy Hochul has embraced a more aggressive stance as she takes on President Trump, deals with Mayor Eric Adams and nears a competitive election next year.`\
 https://nytimes.com/2025/02/21/nyregion/hochul-trump-adams-congestion-pricing.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6150015/2025/02/21/mlb-eno-sarris-live-chat-2-21/
 **Word of the Day: behoove**\
 `This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/21/learning/word-of-the-day-behoove.html
-
-**Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
-`"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
-https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
 
