@@ -1,3 +1,7 @@
+**What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
+`Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
+https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
+
 **Review: In ‘Liberation,’ the Feminist Revolution Will Be Dramatized**\
 `Bess Wohl’s moving new play, about a group of women in 1970s Ohio, explores the power of sisterhood and the limits of motherhood.`\
 https://nytimes.com/2025/02/20/theater/bess-wohl-liberation-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/black-voters-trump.html
 **Read the Letter From Fani T. Willis to Representative Jim Jordan**\
 `Fani Willis, the the district attorney of Fulton County, Ga., wrote to Representative Jim Jordan of Ohio, the Republican chairman of the House Judiciary Committee, on Thursday, assailing the Justice Department’s handling of the case against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/02/20/us/willis-letter-to-jordan.html
-
-**Trump Administration Questions Funding for California High-Speed Rail**\
-`The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
-https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html
 
