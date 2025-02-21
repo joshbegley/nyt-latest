@@ -1,3 +1,11 @@
+**Tell Us: What Are Your Questions About Elon Musk?**\
+`Share your questions with the On Politics newsletter.`\
+https://nytimes.com/2025/02/21/us/politics/musk-doge-questions.html
+
+**Veterinarian and 13 Horse Trainers Violated Drug Rules, U.S. Regulator Says**\
+`Thirty percent of the horses never raced again and seven died, the Horseracing Integrity and Safety Authority said.`\
+https://nytimes.com/2025/02/21/business/horseracing-drug-violations.html
+
 **What we're seeing at Astros spring training as Grapefruit League games begin**\
 `Jose Altuve is embracing his new left-field experiment, but does he have the arm for it?`\
 https://nytimes.com/athletic/6151980/2025/02/21/astros-spring-training-jose-altuve-left-field/
