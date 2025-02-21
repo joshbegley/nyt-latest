@@ -1,3 +1,11 @@
+**Bannon Salute, Echoing Musk, Draws Criticism From French Right**\
+`Jordan Bardella, the president of France’s far-right National Rally, canceled his planned speech at the conference, saying the gesture referred to “Nazi ideology.”`\
+https://nytimes.com/2025/02/21/us/politics/bannon-salute-cpac-musk.html
+
+**E.P.A. Unfreezes at Least Some Climate Spending**\
+`The funding, approved by Congress and overseen by the Environmental Protection Agency, had been blocked since January, when President Trump ordered a pause and review of climate and clean energy programs.`\
+https://nytimes.com/2025/02/21/us/politics/trump-epa-spending-unfrozen.html
+
 **Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
 `The 36-team league stage is done and the last 16 confirmed. Here's how the rest of the new-look Champions League is projected to play out...`\
 https://nytimes.com/athletic/5793492/2025/02/21/champions-league-projections/

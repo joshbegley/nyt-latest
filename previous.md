@@ -1,3 +1,11 @@
+**Bannon Salute, Echoing Musk, Draws Criticism From French Right**\
+`Jordan Bardella, the president of France’s far-right National Rally, canceled his planned speech at the conference, saying the gesture referred to “Nazi ideology.”`\
+https://nytimes.com/2025/02/21/us/politics/bannon-salute-cpac-musk.html
+
+**E.P.A. Unfreezes at Least Some Climate Spending**\
+`The funding, approved by Congress and overseen by the Environmental Protection Agency, had been blocked since January, when President Trump ordered a pause and review of climate and clean energy programs.`\
+https://nytimes.com/2025/02/21/us/politics/trump-epa-spending-unfrozen.html
+
 **Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
 `The 36-team league stage is done and the last 16 confirmed. Here's how the rest of the new-look Champions League is projected to play out...`\
 https://nytimes.com/athletic/5793492/2025/02/21/champions-league-projections/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6151452/2025/02/21/vincent-trocheck-broken-finger-r
 **F.D.A. Firings Decimated Teams Reviewing A.I. and Food Safety**\
 `Staff units evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
 https://nytimes.com/2025/02/21/health/fda-trump-layoffs-device-and-food-safety.html
-
-**Celebrating 100 Years of Edward Gorey**\
-`The great author and illustrator was born on Feb. 22, 1925. Gilbert Cruz talks with the Book Review’s Sadie Stein about his distinctive talent and sensibility.`\
-https://nytimes.com/2025/02/21/books/review/podcast-edward-gorey-centennial.html
-
-**Scoop City: Why a Myles Garrett trade is difficult for Cleveland's cap**\
-`Inside: Why the Browns probably can&#8217;t trade Myles Garrett, plus explaining void years, sampling a beat reporter mock draft, and a Cowboys legend to retire.`\
-https://nytimes.com/athletic/6151513/2025/02/21/myles-garrett-how-void-years-work-nfl-scoop-city/
 
