@@ -1,3 +1,11 @@
+**Blackhawks' Seth Jones seeking trade to play 'meaningful' games**\
+`Jones' contract will make it difficult, but the veteran defenseman would like to play for a contending NHL team.`\
+https://nytimes.com/athletic/6151583/2025/02/21/blackhawks-seth-jones-trade-request/
+
+**Suspect in Insurance C.E.O. Killing Creates Website as Support Floods In**\
+`Luigi Mangione faced a hearing on Friday as supporters planned a rally outside a Manhattan courthouse. Some Americans have found a hero in the man accused of vigilante murder.`\
+https://nytimes.com/2025/02/21/nyregion/luigi-mangione-uhc-ceo-killing-supporters.html
+
 **Jerry Butler, Singer Known as the Iceman, Dies at 85**\
 `Known for his resounding baritone and his courtly manner, he briefly led the Impressions before beginning a successful solo career.`\
 https://nytimes.com/2025/02/21/arts/music/jerry-butler-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/trump-epa-spending-unfrozen.html
 **Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
 `The 36-team league stage is done and the last 16 confirmed. Here's how the rest of the new-look Champions League is projected to play out...`\
 https://nytimes.com/athletic/5793492/2025/02/21/champions-league-projections/
-
-**South Carolina Death Row Inmate Chooses to Be Executed by a Firing Squad**\
-`The state has never used that method to execute a prisoner. The last time an inmate was killed by a firing squad was in 2010 in Utah.`\
-https://nytimes.com/2025/02/21/us/execution-firing-squad-south-carolina.html
-
-**Bills mock offseason: A blockbuster trade, a free-agency splash and the draft**\
-`The championship window is wide open for the Bills and that will impact their offseason moves.`\
-https://nytimes.com/athletic/6149415/2025/02/21/bills-2025-mock-offseason-free-agent/
 
