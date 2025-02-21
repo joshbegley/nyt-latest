@@ -1,3 +1,7 @@
+**USC lands 4-star Jonas Williams after QB flipped commitment from Oregon**\
+`Williams is the 10th commitment for the Trojans in the 2026 class.`\
+https://nytimes.com/athletic/6151606/2025/02/21/usc-recruiting-jonas-williams-commitment-oregon/
+
 **Trump, After G.O.P. Criticism, Reverses Cuts to 9/11 Survivors’ Program**\
 `About 20 percent of the World Trade Central Health Program’s staff had been terminated amid President Trump’s slashing of the federal work force.`\
 https://nytimes.com/2025/02/21/nyregion/trump-doge-cuts-world-trade-center-health-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/dining/patsy-grimaldi-dead.html
 **Dodger Details: Don't forget about Tony Gonsolin, Yoshinobu Yamamoto's breakfast pal and more**\
 `Yamamoto feels more comfortable communicating with his teammates in his second season with the Dodgers.`\
 https://nytimes.com/athletic/6152282/2025/02/21/dodgers-tony-gonsolin-yoshinobu-yamamoto-blake-snell-breakfast/
-
-**Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
-`The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
-https://nytimes.com/2025/02/21/us/politics/supreme-court-trump-special-counsel.html
 

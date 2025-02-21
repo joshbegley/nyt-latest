@@ -1,3 +1,7 @@
+**USC lands 4-star Jonas Williams after QB flipped commitment from Oregon**\
+`Williams is the 10th commitment for the Trojans in the 2026 class.`\
+https://nytimes.com/athletic/6151606/2025/02/21/usc-recruiting-jonas-williams-commitment-oregon/
+
 **Trump, After G.O.P. Criticism, Reverses Cuts to 9/11 Survivors’ Program**\
 `About 20 percent of the World Trade Central Health Program’s staff had been terminated amid President Trump’s slashing of the federal work force.`\
 https://nytimes.com/2025/02/21/nyregion/trump-doge-cuts-world-trade-center-health-program.html
