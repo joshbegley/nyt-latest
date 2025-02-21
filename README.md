@@ -1,3 +1,11 @@
+**'You can't write it better': McDavid opens next chapter for Team Canada**\
+`McDavid's winner Thursday night appropriately evoked memories of Sidney Crosby's Golden Goal.`\
+https://nytimes.com/athletic/6150720/2025/02/21/connor-mcdavid-canada-4-nations-face-off-usa/
+
+**The Pulse: Of course it went to overtime**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6149305/2025/02/21/canada-usa-overtime-mcdavid-4-nations-the-pulse/
+
 **Chinese Warships’ Plan for Live Fire Drills Unnerves Australia and New Zealand**\
 `The vessels were sailing in the Tasman Sea, and their announced intent to perform exercises prompted a call for commercial flights to divert course.`\
 https://nytimes.com/2025/02/21/world/australia/chinese-warships-drills-new-zealand.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
 **'That's the big one': Team USA, stung by 4 Nations loss, draws inspiration from Olympics**\
 `The Americans recognized the opportunity they lost at the 4 Nations Face-Off, but will be strong next year in Italy.`\
 https://nytimes.com/athletic/6150672/2025/02/21/usa-canada-olympics-4-nations/
-
-**Arsenal live Q&A: Art de Roche answers your questions on Merino, Sterling, CL draw and more**\
-`Get your questions in now for Art and he will be with you between 2pm and 3pm GMT (9am to 10am ET) to answer as many as he can.`\
-https://nytimes.com/athletic/6146274/2025/02/21/arsenal-live-qa-art-de-roche-answers-your-questions-on-merino-sterling-cl-draw-and-more/
-
-**Catarina Macario and the USWNT moment she's been working towards for years**\
-`Macario scored her first goal in years for the USWNT after struggling with a comeback from injury`\
-https://nytimes.com/athletic/6150811/2025/02/21/catarina-macario-uswnt-return-colombia/
 
