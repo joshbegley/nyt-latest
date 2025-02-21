@@ -1,3 +1,11 @@
+**LeBrun: Against a backdrop of political tensions, Canada's 4 Nations win is bigger than hockey**\
+`The country that gave the world the sport of hockey celebrated its 4 Nations win for all kinds of reasons.`\
+https://nytimes.com/athletic/6150708/2025/02/21/4-nations-face-off-canada-champions/
+
+**‘Safe House’ Review: Singing a Song of Loneliness**\
+`Enda Walsh’s formal experiment, at St. Ann’s Warehouse, finds him in pared-back mode.`\
+https://nytimes.com/2025/02/21/theater/safe-house-review-enda-walsh.html
+
 **40 for 40: LeBron James 'defies anything that's normal' in win over Trail Blazers**\
 `Without Luka Dončić and playing a back-to-back, James became the first player in NBA history with multiple 40-point games past age 40.`\
 https://nytimes.com/athletic/6150771/2025/02/21/lebron-james-lakers-40-points-portland/
