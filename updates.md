@@ -1,3 +1,9 @@
+**New L.A. Prosecutor Appears Skeptical of Menendez Brothers’ Appeal for Freedom**\
+`Lyle and Erik Menendez have pursued multiple legal avenues to be released after serving more than 30 years in prison for killing their parents.`\
+https://nytimes.com/2025/02/21/us/menendez-brothers-nathan-hochman-conviction.html
+
+**Small but Mighty Appliances Fit for a Tiny Kitchen**\
+
 **Spain Women secure late victory over Belgium day after Rubiales verdict**\
 `Spain scored two stoppage time goals as they came from 2-0 down to beat Belgium 3-2 in the Women's Nations League.`\
 https://nytimes.com/athletic/6151796/2025/02/21/spain-women-belgium-nations-league/
