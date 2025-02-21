@@ -1,3 +1,31 @@
+**Nelson could be out for season after hamstring surgery - Marco Silva**\
+`With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
+https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/
+
+**3 People Killed in Shooting Outside a Kentucky Driver’s License Office**\
+`Louisville police said they were still investigating and had not yet identified any suspects.`\
+https://nytimes.com/2025/02/21/us/kentucky-shooting-drivers-license-office.html
+
+**Canucks sign goalie Kevin Lankinen to splashy long-term extension**\
+`The Vancouver Canucks announced Wednesday that they had agreed to terms with goaltender Kevin Lankinen on a five-year, $22.`\
+https://nytimes.com/athletic/6151740/2025/02/21/canucks-sign-kevin-lankinen/
+
+**Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
+`The man, Hadi Matar, 27, faces up to 32 years in prison. He also faces federal terrorism-related charges.`\
+https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
+
+**A Playlist Packed With Crossword Clues**\
+`Sia! Abba! ELO! Let us help you solve some puzzles with this compilation of songs by crossword-famous musicians.`\
+https://nytimes.com/2025/02/21/arts/music/amplifier-newsletter-crossword-clues.html
+
+**The Pope Is in a ‘Good Mood’ but ‘Not Out of Danger,’ His Doctors Say**\
+`As the pope enters his second week in a Rome hospital with a lung infection, his physicians said his condition was critical but not immediately life-threatening.`\
+https://nytimes.com/2025/02/21/world/europe/pope-health-critical-lung-infection.html
+
+**Trump Loyalists, at the Center of Power**\
+`Readers criticize President Trump’s cabinet, and Elon Musk. Also: The pastor and his gay son; false populists and the elite.`\
+https://nytimes.com/2025/02/21/opinion/trump-cabinet-musk.html
+
 **I.R.S. Bars Musk Ally From Seeing Personal Information**\
 `A document setting the terms of work at the I.R.S. by Gavin Kliger, a software engineer on Elon Musk’s team, only allows him to see anonymized taxpayer information.`\
 https://nytimes.com/2025/02/21/us/politics/irs-doge-gavin-kliger.html
