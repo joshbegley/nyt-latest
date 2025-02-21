@@ -1,3 +1,7 @@
+**Haaland a doubt for Liverpool, Stones may need surgery**\
+`Haaland missed Wednesday's game against Real Madrid, while Stones was withdrawn eight minutes into the 3-1 loss after sustaining an injury.`\
+https://nytimes.com/athletic/6139677/2025/02/21/erling-haaland-john-stones-injury-man-city/
+
 **LeBrun: Against a backdrop of political tensions, Canada's 4 Nations win is bigger than hockey**\
 `The country that gave the world the sport of hockey celebrated its 4 Nations win for all kinds of reasons.`\
 https://nytimes.com/athletic/6150708/2025/02/21/4-nations-face-off-canada-champions/

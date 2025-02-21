@@ -1,3 +1,7 @@
+**Haaland a doubt for Liverpool, Stones may need surgery**\
+`Haaland missed Wednesday's game against Real Madrid, while Stones was withdrawn eight minutes into the 3-1 loss after sustaining an injury.`\
+https://nytimes.com/athletic/6139677/2025/02/21/erling-haaland-john-stones-injury-man-city/
+
 **LeBrun: Against a backdrop of political tensions, Canada's 4 Nations win is bigger than hockey**\
 `The country that gave the world the sport of hockey celebrated its 4 Nations win for all kinds of reasons.`\
 https://nytimes.com/athletic/6150708/2025/02/21/4-nations-face-off-canada-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149569/2025/02/21/mls-players-watch-2025-zaha-camp
 **Why Raiders GM John Spytek and his wife are fighting for CMV awareness**\
 `The Spyteks daughter, Evelyn, was diagnosed at birth with CMV and died in 2014 at 21 months old.`\
 https://nytimes.com/athletic/6146815/2025/02/21/raiders-john-spytek-cmv-awareness-foundation/
-
-**Andrew Painter's 2-year rehab changed the Phillies prospect as a person and pitcher**\
-`The time away from actual competition has made Painter even more curious about the why. Now, he can slow everything down. `\
-https://nytimes.com/athletic/6149701/2025/02/21/andrew-painter-rehab-phillies-prospect/
 
