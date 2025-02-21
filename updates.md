@@ -1,3 +1,7 @@
+**Germany Is in Big Trouble, and Nobody Knows What to Do About It**\
+`Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
+https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
+
 **FPL live Q&A: FPL Gameweek 26 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 26 FPL Q&A from 12pm-1pm GMT`\
 https://nytimes.com/athletic/6143602/2025/02/21/fantasy-premier-league-advice-gw26-tips/
