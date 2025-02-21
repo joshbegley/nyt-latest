@@ -1,3 +1,7 @@
+**Watch: Manchester United's 'last century' data department and complacency - a discussion**\
+`The Athletic FC Podcast discuss whether Manchester United’s decision to forgo a data-driven approach has contributed to their downfall.`\
+https://nytimes.com/athletic/6148904/2025/02/21/athletic-fc-podcast-manchester-united-data/
+
 **Did You Sell Concert Tickets or Clothes? You May Owe Taxes.**\
 `If you received more than $5,000 for online sales of “goods or services” in 2024, you might get a Form 1099-K. Don’t ignore it, an expert says.`\
 https://nytimes.com/2025/02/21/your-money/taxes-reselling-gig-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-leag
 **Row Z: Ronaldo's outlook on MLS' quality and Chelsea defender shines (but not for them)**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-renato-veiga/
-
-**Hamas Failed to Return the Body of a Hostage. What Now?**\
-`The Palestinian armed group said it had handed over the remains of Shiri Bibas along with her two young children and another man. Israel said forensic testing found that it wasn’t her.`\
-https://nytimes.com/2025/02/21/world/middleeast/israel-hamas-shiri-bibas.html
 
