@@ -1,3 +1,19 @@
+**Warriors at Kings: How to watch, odds as Jimmy Butler and Zach LaVine duel on new squads**\
+`Two of the trade deadline's biggest factors show off their new squads Friday night, with the Warriors as slight favorites in Sacramento.`\
+https://nytimes.com/athletic/6151688/2025/02/21/warriors-kings-how-to-watch-preview-curry-butler-lavine-sabonis/
+
+**It’s Been 5 Years Since Covid Hit. Do You Travel Differently Now?**\
+`The pandemic was declared in March 2020, shutting down travel for months. How did the lockdowns, and then the surge in demand, change the way you travel?`\
+https://nytimes.com/2025/02/21/travel/covid-pandemic-travel-changes-callout.html
+
+**Terry Francona says Reds will opt out of ABS testing: 'Why work on strategy we’re not going to use?'**\
+`Five parks in Arizona and eight in Florida have been fitted with the ABS challenge system technology this spring.`\
+https://nytimes.com/athletic/6151856/2025/02/21/terry-francona-reds-roboumps-spring-training-2/
+
+**Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants**\
+`The move would be a drastic escalation by the White House to militarize immigration enforcement.`\
+https://nytimes.com/2025/02/21/us/politics/migrants-military-sites.html
+
 **Los Angeles Mayor Removes Fire Chief, Blaming Her for Lack of Preparation**\
 `Mayor Karen Bass criticized Kristin Crowley for sending firefighters home before a blaze devastated the Pacific Palisades neighborhood.`\
 https://nytimes.com/2025/02/21/us/los-angeles-fire-chief-removed.html
