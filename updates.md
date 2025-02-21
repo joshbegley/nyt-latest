@@ -1,3 +1,15 @@
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`The 36-team league stage is done and the last 16 confirmed. Here's how the rest of the new-look Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/02/21/champions-league-projections/
+
+**South Carolina Death Row Inmate Chooses to Be Executed by a Firing Squad**\
+`The state has never used that method to execute a prisoner. The last time an inmate was killed by a firing squad was in 2010 in Utah.`\
+https://nytimes.com/2025/02/21/us/execution-firing-squad-south-carolina.html
+
+**Bills mock offseason: A blockbuster trade, a free-agency splash and the draft**\
+`The championship window is wide open for the Bills and that will impact their offseason moves.`\
+https://nytimes.com/athletic/6149415/2025/02/21/bills-2025-mock-offseason-free-agent/
+
 **Egon Schiele Watercolor, Said to Be Nazi-Looted, Set for Auction**\
 `Christie’s, which values the work at more than $1 million, said the proceeds from any sale would be shared with the heirs of an art collector killed in a concentration camp.`\
 https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-christies-auction.html
