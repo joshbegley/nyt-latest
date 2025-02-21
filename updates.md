@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`Germans head to the polls.`\
+https://nytimes.com/2025/02/21/briefing/german-election-gaza-ukraine.html
+
+**'It's an apathetic experience': London Stadium frustrations are boiling over again**\
+`West Ham moved to the London Stadium in 2016 — but frustration with the atmosphere at the ground is growing again`\
+https://nytimes.com/athletic/6145968/2025/02/21/west-ham-london-stadium-atmosphere/
+
+**Fantasy Premier League: Who to choose as your assistant manager in Gameweek 26**\
+`Should you be looking to make a managerial switch?`\
+https://nytimes.com/athletic/6141654/2025/02/21/fpl-assistant-manager-chip-tips-gw-26/
+
 **Why Argentine club Ferro Carril Oeste are launching an Aston Villa-inspired kit**\
 `Ferro have links with Aston Villa going back more than a century — they just are not exactly sure how those connections came about`\
 https://nytimes.com/athletic/6148250/2025/02/21/argentina-ferro-aston-villa-kit/
