@@ -1,3 +1,11 @@
+**For Clara Tauson's tennis progress, less is more**\
+`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
+https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
+
+**Man United owe £300m in outstanding transfer fees, club's financial results reveal**\
+`United's results also revealed the club invested a further £37.7m in the playing squad during the January transfer window.`\
+https://nytimes.com/athletic/6150806/2025/02/21/manchester-united-transfer-fees-owed/
+
 **As Truce Talks Stall, Fears Mount for Israeli Hostages in Gaza After 500 Days**\
 `“I was in Gaza. I survived. Keith survived. Others will not,” said Aviva Siegel, who with her husband was taken hostage on Oct. 7, 2023. She urged the Israeli government to secure the release of others.`\
 https://nytimes.com/2025/02/21/world/middleeast/israel-gaza-hostages.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/well/er-doctors-t.html
 **Here Are the Digital Clues to What Musk Is Really Up To**\
 `What will DOGE do with access to personal data on almost all Americans?`\
 https://nytimes.com/2025/02/21/opinion/musk-doge-personal-data.html
-
-**The New York Times News Quiz, Feb. 21, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/02/21/briefing/trump-asap-rocky-delta-plane-crash.html
-
-**Watch Austin Butler in Battle in ‘Dune: Part Two’**\
-`The director Denis Villeneuve narrates a sequence from his film, which is nominated for five Academy Awards, including best picture.`\
-https://nytimes.com/2025/02/21/movies/dune-part-two-clip.html
 
