@@ -1,3 +1,7 @@
+**Explaining why Real Madrid lost appeal against Bellingham's two-match ban**\
+`Bellingham, 21, will miss La Liga games against Girona and Real Betis.`\
+https://nytimes.com/athletic/6146428/2025/02/21/jude-bellingham-real-madrid-ban-appeal/
+
 **Haaland a doubt for Liverpool, Stones may need surgery**\
 `Haaland missed Wednesday's game against Real Madrid, while Stones was withdrawn eight minutes into the 3-1 loss after sustaining an injury.`\
 https://nytimes.com/athletic/6139677/2025/02/21/erling-haaland-john-stones-injury-man-city/
