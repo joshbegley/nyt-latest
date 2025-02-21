@@ -1,3 +1,11 @@
+**Tottenham are asking not to be called Tottenham**\
+`An email sent to broadcasters, seen by The Athletic, reveals the club 'have requested that they are not referred to as Tottenham'`\
+https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
+
+**49ers Enterprises set to buy majority stake in Scottish soccer club Rangers**\
+`The 49ers Enterprises is looking to sell a 10 per cent stake in the NFL franchise and is scouting to invest in sporting opportunites.`\
+https://nytimes.com/athletic/6150980/2025/02/21/rangers-takeover-san-francisco-49ers/
+
 **How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
 `Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
 https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/style/when-they-stop-selling-your-favorite-thing.
 **Olympic hockey stock watch: Risers, fallers, lines that work and other learnings from 4 Nations**\
 `Here are five things we learned about each of the teams involved in 4 Nations that can be applied to their Olympic rosters.`\
 https://nytimes.com/athletic/6145001/2025/02/21/olympic-hockey-stock-watch-4-nations/
-
-**A Breakfast by Any Other Name**\
-`Whatever you call it — German pancake, Dutch baby — you should make this puffy and crisp confection that has a puddinglike interior.`\
-https://nytimes.com/2025/02/21/dining/german-pancake-breakfast-recipe.html
-
-**Kawhi Leonard's viability and 4 more Clippers concerns going forward**\
-`The Clippers aren't a scrappy underdog now. They're in the top six in the West, with a host of teams trying to chase them down.`\
-https://nytimes.com/athletic/6150964/2025/02/21/kawhi-leonard-clippers-concerns-nba-second-half/
 
