@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
 
+**Premier League accumulator tips: The best bets to add to your treble**\
+`Sam Tighe offers his betting insights on which bets to add to your accumulator ahead of this weekend’s Premier League action. 
+`\
+https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
+
 **Chinese Warships’ Plan for Live Fire Drills Unnerves Australia and New Zealand**\
 `The vessels were sailing in the Tasman Sea, and their announced intent to perform exercises prompted a call for commercial flights to divert course.`\
 https://nytimes.com/2025/02/21/world/australia/chinese-warships-drills-new-zealand.html
