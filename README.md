@@ -1,3 +1,11 @@
+**Medicaid Cuts Pose Budget Conundrum for Valadao and Republicans Nationwide**\
+`For Representative David Valadao of California and other Republicans whose constituents depend on Medicaid, a vote for their party’s budget could be politically fatal. President Trump’s agenda hangs in the balance.`\
+https://nytimes.com/2025/02/21/us/politics/medicaid-republicans-budget.html
+
+**How to watch Knicks vs. Cavaliers: Brunson and Towns face conference-leading Cleveland**\
+`The East-leading Cleveland Cavaliers host the hot-shooting New York Knicks in a national TV spot on Friday night.`\
+https://nytimes.com/athletic/6148022/2025/02/21/knicks-cavs-how-to-watch-preview-brunson-towns-mitchell-garland-mobley/
+
 **Berlin Stabbing Attack at Holocaust Memorial Injures One**\
 `The police said they had detained a suspect in the assault, which occurred among the labyrinth of concrete slabs at one of the German capital’s most sacrosanct sites.`\
 https://nytimes.com/2025/02/21/world/europe/berlin-stabbing-holocaust-memorial.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6151841/2025/02/21/penguins-mike-sullivan-4-nations
 **Do Elon Musk and His Father Get Along?**\
 `Errol Musk questioned his son’s parenting ability on a podcast, but said that his comments had been taken out of context and that they were on good terms.`\
 https://nytimes.com/2025/02/21/style/elon-musk-father-errol-comments.html
-
-**Confusion abounds at the National Park Service, which is hiring, after firing.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/02/21/us/trump-news/confusion-abounds-at-the-national-park-service-which-is-hiring-after-firing
-
-**Voletta Wallace, Mother Who Shaped the Notorious B.I.G.’s Legacy, Dies at 78**\
-`She played the rapper music as a child, stood by his side during his meteoric career and navigated the legal and artistic questions that arose after his killing.`\
-https://nytimes.com/2025/02/21/arts/music/voletta-wallace-notorious-big-mother-dead.html
 
