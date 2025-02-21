@@ -1,3 +1,7 @@
+**Who Is Paul Clement, the Lawyer Appointed to Help Judge in Adams Case?**\
+`A former solicitor general, Mr. Clement has argued over 100 cases before the Supreme Court. Now he will present independent arguments as a judge decides whether to drop the charges against the mayor.`\
+https://nytimes.com/2025/02/21/nyregion/adams-case-who-is-paul-clement.html
+
 **‘See You in Court’: Maine Governor Clashes With Trump Over Trans Rights**\
 `President Trump asked Gov. Janet Mills if her state would comply with the executive order he signed banning transgender athletes from women’s sports. He didn’t like her answer.`\
 https://nytimes.com/2025/02/21/us/politics/trump-maine-governor-transgender-athletes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/musk-doge-questions.html
 **Veterinarian and 13 Horse Trainers Violated Drug Rules, U.S. Regulator Says**\
 `Thirty percent of the horses never raced again and seven died, the Horseracing Integrity and Safety Authority said.`\
 https://nytimes.com/2025/02/21/business/horseracing-drug-violations.html
-
-**For the Yankees' team barber, a changing policy opens a new realm of possibilities**\
-`David "Davey Cuts" Castillo has been shaping up the team's players for the past decade. `\
-https://nytimes.com/athletic/6151975/2025/02/21/new-york-yankees-team-barber-possibilities/
 
