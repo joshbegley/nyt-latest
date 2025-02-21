@@ -1,3 +1,7 @@
+**Musk and His Millions Enter Wisconsin Supreme Court Race**\
+`Elon Musk’s super PAC has spent $1 million on canvassing operations supporting the conservative candidate in the race, his first election spending after the 2024 campaign.`\
+https://nytimes.com/2025/02/20/us/politics/elon-musk-wisconsin-supreme-court.html
+
 **What 11 Black Voters Think About Trump’s Actions in His First Month**\
 `Many Black Americans were frustrated by the Trump administration’s targeting of D.E.I. programs. But others embraced the speed at which he moved.`\
 https://nytimes.com/2025/02/20/us/black-voters-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-to
 **Man Who Kidnapped Ride Share Driver Gets 12 Years in Prison**\
 `The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
 https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
-
-**All-Pro guard Zack Martin informs Cowboys of retirement after 11 seasons: Sources**\
-`In his 11-year career, Martin had as many accepted holding calls as he had first-team All-Pro nominations (seven). `\
-https://nytimes.com/athletic/6149983/2025/02/20/zack-martin-dallas-cowboys-retirement/
 
