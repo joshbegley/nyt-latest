@@ -1,3 +1,11 @@
+**Saints to hire ex-Chargers HC Brandon Staley as defensive coordinator: Sources**\
+`Staley heads to New Orleans following a one-year stint as an assistant head coach for the San Francisco 49ers.`\
+https://nytimes.com/athletic/6151689/2025/02/21/saints-brandon-staley-defensive-coordinator-kellen-moore/
+
+**Rubio’s Dilemma: Cutting Trump’s Deal With ‘Bloodthirsty’ Putin**\
+`As a senator, Marco Rubio prided himself on challenging tyrants. But as secretary of state, President Trump has tasked him with helping to potentially turn Russia from an enemy into an ally.`\
+https://nytimes.com/2025/02/21/us/politics/rubio-russia-putin.html
+
 **William R. Lucas, Official Blamed in Challenger Tragedy, Dies at 102**\
 `The strong-willed director of NASA’s Marshall Space Flight Center, he failed to pass on warnings from engineers that the space shuttle launch was at risk.`\
 https://nytimes.com/2025/02/21/us/william-r-lucas-dead.html
