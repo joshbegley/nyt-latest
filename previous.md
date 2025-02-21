@@ -1,6 +1,6 @@
 **Trump Claims Power to Fire Administrative Law Judges at Will**\
 `The Justice Department said a law protecting the officials from arbitrary removal is an unconstitutional intrusion on presidential authority.`\
-https://nytimes.com/live/2025/02/20/us/donald-trump-news/trump-power-administrative-law-judges
+https://nytimes.com/2025/02/20/us/politics/trump-power-administrative-law-judges.html
 
 **Justice Dept. to Drop Discrimination Case Against Elon Musk’s SpaceX**\
 `The Justice Department had sued SpaceX in 2023, accusing the company of violating federal law by refusing to hire refugees and people granted asylum in the United States.`\
