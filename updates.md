@@ -1,3 +1,11 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 2/21 at 3:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat. `\
+https://nytimes.com/athletic/6150015/2025/02/21/mlb-eno-sarris-live-chat-2-21/
+
+**Word of the Day: behoove**\
+`This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/21/learning/word-of-the-day-behoove.html
+
 **Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
 `"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
 https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
