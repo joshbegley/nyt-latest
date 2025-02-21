@@ -1,3 +1,7 @@
+**An early look at Oilers' roster depth with higher salary cap on the way**\
+`Connor McDavid and Evan Bouchard are in line for new contracts, but where else could Edmonton tinker?`\
+https://nytimes.com/athletic/6148109/2025/02/21/oilers-roster-depth-salary-cap-bowman/
+
 **When They Stop Selling Your Favorite Thing**\
 `Shoppers are going online to pay dearly for discontinued items, from the perfect lip pencil to Tab.`\
 https://nytimes.com/2025/02/21/style/when-they-stop-selling-your-favorite-thing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-la
 **Steiner, Haas legal case dismissed after parties reach agreement in mediation**\
 `Steiner, 59, had filed a lawsuit against his former F1 team over alleged unpaid commissions and unauthorized use of his name and likeness.`\
 https://nytimes.com/athletic/6151374/2025/02/21/guenther-steiner-haas-lawsuit-f1/
-
-**Two Concerts Reveal the Limits of a Pianist’s Broad Repertoire**\
-`Performing in New York, Seong-Jin Cho presented a marathon survey of Ravel’s solo piano works and appeared in Prokofiev’s Second Piano Concerto.`\
-https://nytimes.com/2025/02/21/arts/music/seong-jin-cho-piano.html
 

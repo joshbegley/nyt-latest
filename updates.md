@@ -1,3 +1,7 @@
+**An early look at Oilers' roster depth with higher salary cap on the way**\
+`Connor McDavid and Evan Bouchard are in line for new contracts, but where else could Edmonton tinker?`\
+https://nytimes.com/athletic/6148109/2025/02/21/oilers-roster-depth-salary-cap-bowman/
+
 **When They Stop Selling Your Favorite Thing**\
 `Shoppers are going online to pay dearly for discontinued items, from the perfect lip pencil to Tab.`\
 https://nytimes.com/2025/02/21/style/when-they-stop-selling-your-favorite-thing.html
