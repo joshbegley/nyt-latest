@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6151514/2025/02/21/luis-rubiales-football-suspensio
 `Trocheck played 10:03 in the OT loss to Canada on Thursday. Only Rangers teammate Chris Kreider played less among the U.S. players.`\
 https://nytimes.com/athletic/6151452/2025/02/21/vincent-trocheck-broken-finger-rangers-4-nations/
 
-**F.D.A. Staffed Up to Review A.I. and Food Safety. Those Hires Are Now Gone.**\
-`Teams evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
+**F.D.A. Firings Decimated Teams Reviewing A.I. and Food Safety**\
+`Staff units evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
 https://nytimes.com/2025/02/21/health/fda-trump-layoffs-device-and-food-safety.html
 
 **Celebrating 100 Years of Edward Gorey**\
