@@ -1,3 +1,7 @@
+**‘See You in Court’: Maine Governor Clashes With Trump Over Trans Rights**\
+`President Trump asked Gov. Janet Mills if her state would comply with the executive order he signed banning transgender athletes from women’s sports. He didn’t like her answer.`\
+https://nytimes.com/2025/02/21/us/politics/trump-maine-governor-transgender-athletes.html
+
 **Prime Tire: Why F1 will be so 'tough' in 2025**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6152099/2025/02/21/f1-2025-lewis-hamilton-ferrari-prime-tire/
