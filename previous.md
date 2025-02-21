@@ -1,3 +1,19 @@
+**Why Argentine club Ferro Carril Oeste are launching an Aston Villa-inspired kit**\
+`Ferro have links with Aston Villa going back more than a century — they just are not exactly sure how those connections came about`\
+https://nytimes.com/athletic/6148250/2025/02/21/argentina-ferro-aston-villa-kit/
+
+**Chelsea's loan army: Who will challenge for a role at Stamford Bridge next season?**\
+`Andrey Santos, Renato Veiga and Lesley Ugochukwu may benefit from valuable game-time on loan this season to play more of a role next term`\
+https://nytimes.com/athletic/6149320/2025/02/21/chelsea-loanee-santos-veiga-ugochukwu-joao-felix/
+
+**Anderson, his enforced Newcastle exit and a deal that has ended up suiting all parties**\
+`The midfielder is a boyhood Newcastle fan and had not envisaged leaving, but he has blossomed at Nottingham Forest`\
+https://nytimes.com/athletic/6148244/2025/02/21/elliot-anderson-newcastle-nottingham-forest/
+
+**Manchester United is Sir Dave Brailsford's toughest challenge - can 'Mission 21' fix a faltering club?**\
+`Sir Dave Brailsford’s voice is a familiar one around Manchester United as the marginal gains expert strives to bring about major change`\
+https://nytimes.com/athletic/6149776/2025/02/21/dave-brailsford-manchester-united-mission-21/
+
 **Salah's Ballon d'Or ambition - and why it could help Liverpool in contract talks**\
 `The Egyptian wants and deserves the sport's biggest individual accolade but he will not get it by moving to Saudi Arabia`\
 https://nytimes.com/athletic/6148746/2025/02/21/mohamed-salah-ballon-dor-liverpool/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6148287/2025/02/21/premier-league-strikers-analysis
 **Arab Leaders Scramble to Counter Trump’s Gaza Plans**\
 `Leaders of all six Gulf states will meet on Friday to strategize with Egyptian and Jordanian counterparts ahead of a broader Arab summit early next month.`\
 https://nytimes.com/2025/02/21/world/middleeast/arab-leaders-plan-gaza.html
-
-**The Hong Kong Artist Who Got Fired From McDonald’s**\
-`Luke Ching has made a name for himself with creative campaigns to improve working conditions for menial laborers, even as the scope for political protests in the city has narrowed.`\
-https://nytimes.com/2025/02/21/world/asia/hong-kong-artist-workplace-activism.html
-
-**In Stephen Graham’s World, Nice Guys Finish First**\
-`The British actor, who stars in the new Hulu show “A Thousand Blows,” has built a career playing intimidating bruisers. But behind the scenes, he’s a peach.`\
-https://nytimes.com/2025/02/21/arts/television/thousand-blows-stephen-graham.html
-
-**Their Wedding Day Became a Local Holiday**\
-`Kirby Matocha and Chase Edmunds’s wedding day, Feb. 15, was declared “Kirby and Chase Day” by John Whitmire, the Mayor of Houston, who was in attendance.`\
-https://nytimes.com/2025/02/21/style/chase-edmunds-kirby-matocha-wedding.html
-
-**My Struggle to Stop Loving Him**\
-`On a post-divorce bicycle ride through Paris with her ex-husband, a woman weighs the costs of divorce.`\
-https://nytimes.com/2025/02/21/style/modern-love-divorce-paris-trying-to-not-love-him.html
 
