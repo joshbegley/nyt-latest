@@ -1,3 +1,7 @@
+**Is it possible to have a small squad in modern club football?**\
+`An increasing number of games and player fatigue means managers are struggling to balance their player pools`\
+https://nytimes.com/athletic/6148206/2025/02/21/small-squad-modern-club-football/
+
 **Nunez, Jackson, Havertz (or Jesus) or Hojlund? Which striker would our writers pick?**\
 `A number of the Premier League's biggest clubs have been struggling for form from their strikers — while others want to add new options`\
 https://nytimes.com/athletic/6148287/2025/02/21/premier-league-strikers-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/style/emily-giske-jennifer-percival-wedding.html
 **Their Best Match Came With the Final Swipe**\
 `Illyse Singer and Ty Duncan were having little luck with dating apps until they connected on Tinder more than two years ago and quickly found they had much in common.`\
 https://nytimes.com/2025/02/21/style/illyse-singer-ty-duncan-wedding.html
-
-**Quote of the Day: Musk and the Right Turn the Left’s Critique of U.S. Power on Its Head**\
-`Quotation of the Day for Friday, February 21, 2025`\
-https://nytimes.com/2025/02/20/pageoneplus/quote-of-the-day-musk-and-the-right-turn-the-lefts-critique-of-us-power-on-its-head.html
 
