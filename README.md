@@ -1,40 +1,40 @@
-**How Connor McDavid, Jordan Binnington lifted Canada to 4 Nations title over U.S.: Takeaways**\
-`Canada beat the United States 3-2 in the 4 Nations Face-Off behind star performances from McDavid and goalie Jordan Binnington.`\
-https://nytimes.com/athletic/6150529/2025/02/20/connor-mcdavid-4-nations-canada-usa/
+**Nunez, Jackson, Havertz (or Jesus) or Hojlund? Which striker would our writers pick?**\
+`A number of the Premier League's biggest clubs have been struggling for form from their strikers — while others want to add new options`\
+https://nytimes.com/athletic/6148287/2025/02/21/premier-league-strikers-analysis/
 
-**USA's Matthew Tkachuk sidelined in 4 Nations final vs. Canada with injury**\
-`Tkachuk sat out for the entire third period and overtime after playing sparingly in the second period.`\
-https://nytimes.com/athletic/6150564/2025/02/20/4-nations-usa-canada-matthew-tkachuk-injury/
+**Arab Leaders Scramble to Counter Trump’s Gaza Plans**\
+`Leaders of all six Gulf states will meet on Friday to strategize with Egyptian and Jordanian counterparts ahead of a broader Arab summit early next month.`\
+https://nytimes.com/2025/02/21/world/middleeast/arab-leaders-plan-gaza.html
 
-**Overnight ‘Vote-a-Rama’ in the Senate Frames a Contentious Budget Debate**\
-`Before adopting Republicans’ budget resolution, senators were engaging in an all-night parliamentary marathon that Democrats used to try to force the G.O.P. into politically damaging votes.`\
-https://nytimes.com/2025/02/20/us/politics/senate-vote-budget.html
+**The Hong Kong Artist Who Got Fired From McDonald’s**\
+`Luke Ching has made a name for himself with creative campaigns to improve working conditions for menial laborers, even as the scope for political protests in the city has narrowed.`\
+https://nytimes.com/2025/02/21/world/asia/hong-kong-artist-workplace-activism.html
 
-**Trump Claims Power to Fire Administrative Law Judges at Will**\
-`The Justice Department said a law protecting the officials from arbitrary removal is an unconstitutional intrusion on presidential authority.`\
-https://nytimes.com/2025/02/20/us/politics/trump-power-administrative-law-judges.html
+**In Stephen Graham’s World, Nice Guys Finish First**\
+`The British actor, who stars in the new Hulu show “A Thousand Blows,” has built a career playing intimidating bruisers. But behind the scenes, he’s a peach.`\
+https://nytimes.com/2025/02/21/arts/television/thousand-blows-stephen-graham.html
 
-**Justice Dept. to Drop Discrimination Case Against Elon Musk’s SpaceX**\
-`The Justice Department had sued SpaceX in 2023, accusing the company of violating federal law by refusing to hire refugees and people granted asylum in the United States.`\
-https://nytimes.com/2025/02/20/us/politics/spacex-elon-musk-discrimination-doj.html
+**Their Wedding Day Became a Local Holiday**\
+`Kirby Matocha and Chase Edmunds’s wedding day, Feb. 15, was declared “Kirby and Chase Day” by John Whitmire, the Mayor of Houston, who was in attendance.`\
+https://nytimes.com/2025/02/21/style/chase-edmunds-kirby-matocha-wedding.html
 
-**USWNT SheBelieves Cup takeaways: Who is U.S. goalscorer Ally Sentnor?**\
-`Here's how the USWNT won its first game of the 2025 SheBelieves Cup`\
-https://nytimes.com/athletic/6150447/2025/02/20/uswnt-colombia-cat-macario-return-ally-sentnor-goal/
+**My Struggle to Stop Loving Him**\
+`On a post-divorce bicycle ride through Paris with her ex-husband, a woman weighs the costs of divorce.`\
+https://nytimes.com/2025/02/21/style/modern-love-divorce-paris-trying-to-not-love-him.html
 
-**What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
-`Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
-https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
+**A ‘Perfect Fit’ in Love and Fashion**\
+`Jordan Bowen and Luca Marchetto, of the JordanLuca fashion line, walked the runway of their recent show in Milan — straight to the altar.`\
+https://nytimes.com/2025/02/21/style/jordan-bowen-luca-marchetto-jordanluca-milan-wedding.html
 
-**Review: In ‘Liberation,’ the Feminist Revolution Will Be Dramatized**\
-`Bess Wohl’s moving new play, about a group of women in 1970s Ohio, explores the power of sisterhood and the limits of motherhood.`\
-https://nytimes.com/2025/02/20/theater/bess-wohl-liberation-review.html
+**‘Impossible / It’s Possible’ Became Their Anthem**\
+`When Emily Giske sang the song from “Cinderella” to Jennifer Percival over the phone soon after they met, long-term love seemed possible.`\
+https://nytimes.com/2025/02/21/style/emily-giske-jennifer-percival-wedding.html
 
-**All the Bells and Whistles**\
-`Colin Adams opens our solving weekend.`\
-https://nytimes.com/2025/02/20/crosswords/daily-puzzle-2025-02-21.html
+**Their Best Match Came With the Final Swipe**\
+`Illyse Singer and Ty Duncan were having little luck with dating apps until they connected on Tinder more than two years ago and quickly found they had much in common.`\
+https://nytimes.com/2025/02/21/style/illyse-singer-ty-duncan-wedding.html
 
-**Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
-`The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
-https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html
+**Quote of the Day: Musk and the Right Turn the Left’s Critique of U.S. Power on Its Head**\
+`Quotation of the Day for Friday, February 21, 2025`\
+https://nytimes.com/2025/02/20/pageoneplus/quote-of-the-day-musk-and-the-right-turn-the-lefts-critique-of-us-power-on-its-head.html
 
