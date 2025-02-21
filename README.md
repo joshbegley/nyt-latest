@@ -1,3 +1,7 @@
+**New York Pulls Funds for 2 Yeshivas That Fail to Offer Secular Education**\
+`The decision is the first time that the State Department of Education has withheld money from private Hasidic schools for not teaching sufficient math and English skills.`\
+https://nytimes.com/2025/02/21/nyregion/hasidic-yeshiva-education-closure.html
+
 **A Trump Siege at the C.D.C. and Atlanta’s ‘Global Health Capital’**\
 `The cluster of medical facilities in the city around Emory University and the Centers for Disease Control and Prevention carry prestige. They feel under attack.`\
 https://nytimes.com/2025/02/21/us/trump-cdc-atlanta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/world/europe/pope-health-critical-lung-infection.
 **Trump Loyalists, at the Center of Power**\
 `Readers criticize President Trump’s cabinet, and Elon Musk. Also: The pastor and his gay son; false populists and the elite.`\
 https://nytimes.com/2025/02/21/opinion/trump-cabinet-musk.html
-
-**Saints to hire ex-Chargers HC Brandon Staley as defensive coordinator: Sources**\
-`Staley heads to New Orleans following a one-year stint as an assistant head coach for the San Francisco 49ers.`\
-https://nytimes.com/athletic/6151689/2025/02/21/saints-brandon-staley-defensive-coordinator-kellen-moore/
 
