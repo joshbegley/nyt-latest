@@ -1,3 +1,7 @@
+**Coinbase Says S.E.C. Will Drop Crypto Lawsuit**\
+`The end of a court fight with the largest U.S. crypto company would be a big win for an industry that financially backed President Trump.`\
+https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
+
 **The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
 `Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
 https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149932/2025/02/21/college-football-transfer-portal
 **Lee trades, improved PK and could the Islanders be the next Capitals? Mailbag, part 2**\
 `Plus potential candidates to replace Lamoriello and the value of a separate president of hockey operations.`\
 https://nytimes.com/athletic/6149700/2025/02/21/islanders-mailbag-lamoriello-lee-trade-penalty-kill/
-
-**Heat Today: Led by Tyler Herro, Bam Adebayo, Heat eye stretch run: 'We’re trying to put it together'**\
-`The Heat return from All-Star break with their sights set on making a playoff push to cap a challenging season.`\
-https://nytimes.com/athletic/6146782/2025/02/21/tyler-herro-bam-adebayo-erik-spoelstra-heat-nba/
 
