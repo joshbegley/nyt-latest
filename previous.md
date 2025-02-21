@@ -1,3 +1,7 @@
+**Trump Administration Questions Funding for California High-Speed Rail**\
+`The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
+https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html
+
 **Multiple Bus Explosions in Israel Put Country on Terrorism Alert**\
 `The attempted attacks on Thursday, which injured no one but shut down buses and trains across the country, came amid Israel’s ongoing raids in the West Bank and as its cease-fire with Hamas in Gaza nears its end.`\
 https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/politics/mitch-mcconnell-senate-kentucky.html
 **N.Y. Prisons Loosen Solitary Confinement Rules as Wildcat Strikes Spread**\
 `Corrections officers in New York say their working conditions are dangerous and they are forced into overtime. They have walked off the job at 41 of the state’s 42 prisons.`\
 https://nytimes.com/2025/02/20/nyregion/new-york-prison-strikes-solitary-confinement.html
-
-**One key factor behind Aaron Boone's extension with the Yankees? Aaron Judge's support**\
-`Boone has been Judge's manager for all but two seasons of the AL MVP's major-league career.`\
-https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aaron-judge/
 

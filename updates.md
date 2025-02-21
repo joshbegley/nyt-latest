@@ -1,3 +1,7 @@
+**Trump Administration Questions Funding for California High-Speed Rail**\
+`The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
+https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html
+
 **Multiple Bus Explosions in Israel Put Country on Terrorism Alert**\
 `The attempted attacks on Thursday, which injured no one but shut down buses and trains across the country, came amid Israel’s ongoing raids in the West Bank and as its cease-fire with Hamas in Gaza nears its end.`\
 https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.html
