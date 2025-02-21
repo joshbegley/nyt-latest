@@ -1,3 +1,7 @@
+**The education of Dalton Rushing: How the Dodgers are preparing to catching prospect**\
+`For Rushing, the lessons are a chance to prove himself while getting comfortable in front of an All-Star pitching staff.`\
+https://nytimes.com/athletic/6150540/2025/02/21/dodgers-dalton-rushing-playing-time/
+
 **Mark Williams, agent dispute Lakers' decision to fail his physical**\
 `The Lakers rescinded their trade with the Hornets for Williams earlier this month.`\
 https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-lakers/

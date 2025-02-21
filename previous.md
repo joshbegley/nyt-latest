@@ -1,3 +1,7 @@
+**The education of Dalton Rushing: How the Dodgers are preparing to catching prospect**\
+`For Rushing, the lessons are a chance to prove himself while getting comfortable in front of an All-Star pitching staff.`\
+https://nytimes.com/athletic/6150540/2025/02/21/dodgers-dalton-rushing-playing-time/
+
 **Mark Williams, agent dispute Lakers' decision to fail his physical**\
 `The Lakers rescinded their trade with the Hornets for Williams earlier this month.`\
 https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150975/2025/02/21/victor-wembanyama-spurs-lebron-j
 **Listen: UConn's Geno Auriemma on his 40 years at the top and how the NCAA has evolved**\
 `On the Women's Basketball Show, Auriemma explains how college basketball has changed in his four decades at UConn.`\
 https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-geno-auriemma/
-
-**OpenAI Uncovers Evidence of A.I.-Powered Chinese Surveillance Tool**\
-`The company said a Chinese operation had built the tool to identify anti-Chinese posts on social media services in Western countries.`\
-https://nytimes.com/2025/02/21/technology/openai-chinese-surveillance.html
 
