@@ -1,3 +1,11 @@
+**Connor McDavid scores in overtime, lifts Canada to 4 Nations title over Team USA: Takeaways**\
+`Canada beat the United States 3-2 in the 4 Nations Face-Off behind star performances from McDavid and goalie Jordan Binnington.`\
+https://nytimes.com/athletic/6150529/2025/02/20/connor-mcdavid-4-nations-canada-usa/
+
+**USA's Matthew Tkachuk sidelined in 4 Nations final vs. Canada with injury**\
+`Tkachuk sat out for the entire third period and overtime after playing sparingly in the second period.`\
+https://nytimes.com/athletic/6150564/2025/02/20/4-nations-usa-canada-matthew-tkachuk-injury/
+
 **Overnight ‘Vote-a-Rama’ in the Senate Frames a Contentious Budget Debate**\
 `Before adopting Republicans’ budget resolution, senators were engaging in an all-night parliamentary marathon that Democrats used to try to force the G.O.P. into politically damaging votes.`\
 https://nytimes.com/2025/02/20/us/politics/senate-vote-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/20/crosswords/daily-puzzle-2025-02-21.html
 **Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
 `The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
 https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html
-
-**Former Sheriff’s Deputy Is Convicted in Killing of Colorado Man**\
-`Andrew Buen was found guilty of criminally negligent homicide in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
-https://nytimes.com/2025/02/20/us/colorado-deputy-christian-glass-shooting.html
-
-**Corrections: Feb. 21, 2025**\
-`Corrections that appeared in print on Friday, Feb. 21, 2025.`\
-https://nytimes.com/2025/02/20/pageoneplus/corrections-feb-21-2025.html
 
