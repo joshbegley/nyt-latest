@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
 
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
 **‘Dune: Part Two’ | Anatomy of a Scene**\
 `The director Denis Villeneuve narrates a battle sequence from his film, featuring Austin Butler.`\
 https://nytimes.com/video/movies/100000010001896/dune-part-two-scene.html
