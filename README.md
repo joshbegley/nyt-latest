@@ -1,6 +1,6 @@
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
-`By Eric Schmitt`\
-https://nytimes.com/2025/02/21/us/politics/the-firings-are-the-first-of-what-is-expected-to-be-a-vast-wave-of-layoffs-at-the-defense-department.html
+`The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
+https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
 
 **What That Chain Saw Was Really About**\
 `Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
