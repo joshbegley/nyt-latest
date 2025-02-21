@@ -1,3 +1,7 @@
+**The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
+`Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
+https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
+
 **Hamas Failed to Return the Body of a Hostage. What Now?**\
 `The Palestinian armed group said it had handed over the remains of Shiri Bibas along with her two young children and another man. Israel said forensic testing found that it wasn’t her.`\
 https://nytimes.com/2025/02/21/world/middleeast/israel-hamas-shiri-bibas.html
