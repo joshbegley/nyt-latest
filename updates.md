@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview
 `\
 https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
 
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
 **Estupinan in contention for Brighton return vs Southampton**\
 `The Ecuador international left-back has missed the last four matches with a muscle injury.`\
 https://nytimes.com/athletic/6150797/2025/02/21/brighton-team-news-estupinan-injury/

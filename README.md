@@ -1,3 +1,7 @@
+**‘Dune: Part Two’ | Anatomy of a Scene**\
+`The director Denis Villeneuve narrates a battle sequence from his film, featuring Austin Butler.`\
+https://nytimes.com/video/movies/100000010001896/dune-part-two-scene.html
+
 **Estupinan in contention for Brighton return vs Southampton**\
 `The Ecuador international left-back has missed the last four matches with a muscle injury.`\
 https://nytimes.com/athletic/6150797/2025/02/21/brighton-team-news-estupinan-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6149087/2025/02/21/manchester-city-liverpool-bettin
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/21/crosswords/spelling-bee-forum.html
-
-**FPL live Q&A: FPL Gameweek 26 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 26 FPL Q&A from 12pm-1pm GMT`\
-https://nytimes.com/athletic/6143602/2025/02/21/fantasy-premier-league-advice-gw26-tips/
 
