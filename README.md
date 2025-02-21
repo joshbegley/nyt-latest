@@ -1,3 +1,7 @@
+**Whatever Happens Next, Germany Is in Big Trouble**\
+`Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
+https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
+
 **Hayley Ladd: Everton's unselfish Wales defender - and the perfect carpool companion**\
 `Ladd is set to play her 100th game for Wales this week and would become just the 10th Welsh footballer, male or female, to do so`\
 https://nytimes.com/athletic/6118690/2025/02/21/hayley-ladd-wales-100-cap-euro-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149320/2025/02/21/chelsea-loanee-santos-veiga-ugoc
 **Anderson, his enforced Newcastle exit and a deal that has ended up suiting all parties**\
 `The midfielder is a boyhood Newcastle fan and had not envisaged leaving, but he has blossomed at Nottingham Forest`\
 https://nytimes.com/athletic/6148244/2025/02/21/elliot-anderson-newcastle-nottingham-forest/
-
-**Manchester United is Sir Dave Brailsford's toughest challenge - can 'Mission 21' fix a faltering club?**\
-`Sir Dave Brailsford’s voice is a familiar one around Manchester United as the marginal gains expert strives to bring about major change`\
-https://nytimes.com/athletic/6149776/2025/02/21/dave-brailsford-manchester-united-mission-21/
 
