@@ -1,3 +1,7 @@
+**Strong Storm Poised to Bring ‘a Wet Couple of Days’ to the Pacific Northwest**\
+`January was unusually dry in Washington and Oregon. An atmospheric river barreling toward the region looks to make February much wetter.`\
+https://nytimes.com/2025/02/21/weather/oregon-washington-rain-snow-forecast.html
+
 **Tottenham are asking not to be called Tottenham**\
 `An email sent to broadcasters, seen by The Athletic, reveals the club 'have requested that they are not referred to as Tottenham'`\
 https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148109/2025/02/21/oilers-roster-depth-salary-cap-b
 **When They Stop Selling Your Favorite Thing**\
 `Shoppers are going online to pay dearly for discontinued items, from the perfect lip pencil to Tab.`\
 https://nytimes.com/2025/02/21/style/when-they-stop-selling-your-favorite-thing.html
-
-**Olympic hockey stock watch: Risers, fallers, lines that work and other learnings from 4 Nations**\
-`Here are five things we learned about each of the teams involved in 4 Nations that can be applied to their Olympic rosters.`\
-https://nytimes.com/athletic/6145001/2025/02/21/olympic-hockey-stock-watch-4-nations/
 
