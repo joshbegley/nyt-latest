@@ -1,3 +1,7 @@
+**Trump Administration Shakes Up ICE Leadership**\
+`The leadership change comes as the president aims to make good on a promise of mass deportations and arrests of undocumented immigrants across the United States.`\
+https://nytimes.com/2025/02/21/us/politics/trump-ice-leadership.html
+
 **Mel Bochner, Conceptual Artist Who Played With Language, Dies at 84**\
 `His early work made use of unexpected materials like pennies and masking tape. Later, he created trenchant word paintings that provoked and delighted.`\
 https://nytimes.com/2025/02/21/arts/mel-bochner-dead.html
