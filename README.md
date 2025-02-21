@@ -1,3 +1,15 @@
+**Hayley Ladd: Everton's unselfish Wales defender - and the perfect carpool companion**\
+`Ladd is set to play her 100th game for Wales this week and would become just the 10th Welsh footballer, male or female, to do so`\
+https://nytimes.com/athletic/6118690/2025/02/21/hayley-ladd-wales-100-cap-euro-2025/
+
+**Arsenal look to hone Merino as makeshift No 9, but can ill afford to write off Sterling**\
+`Mikel Arteta has been giving more serious thought to Merino’s new position in training after the Spaniard's impact at Leicester City`\
+https://nytimes.com/athletic/6148248/2025/02/21/arsenal-merino-sterling-trossard-arteta-willian/
+
+**Trump Names ‘Pardon Czar’ to Advise on Clemency**\
+`President Trump commuted Alice Johnson’s life sentence during his first term, and later pardoned her for her drug conviction. She will advise him on similar cases.`\
+https://nytimes.com/live/2025/02/20/us/donald-trump-news/trump-names-pardon-czar-to-advise-on-clemency
+
 **Friday Briefing**\
 `Germans head to the polls.`\
 https://nytimes.com/2025/02/21/briefing/german-election-gaza-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6148244/2025/02/21/elliot-anderson-newcastle-nottin
 **Manchester United is Sir Dave Brailsford's toughest challenge - can 'Mission 21' fix a faltering club?**\
 `Sir Dave Brailsford’s voice is a familiar one around Manchester United as the marginal gains expert strives to bring about major change`\
 https://nytimes.com/athletic/6149776/2025/02/21/dave-brailsford-manchester-united-mission-21/
-
-**Salah's Ballon d'Or ambition - and why it could help Liverpool in contract talks**\
-`The Egyptian wants and deserves the sport's biggest individual accolade but he will not get it by moving to Saudi Arabia`\
-https://nytimes.com/athletic/6148746/2025/02/21/mohamed-salah-ballon-dor-liverpool/
-
-**Could Mbappe match Ronaldo at Real Madrid? Ancelotti thinks so**\
-`Ancelotti suggested Mbappe could reach Ronaldo's heights after his hat-trick against Manchester City, but is that fanciful?`\
-https://nytimes.com/athletic/6148299/2025/02/21/kylian-mbappe-cristiano-ronaldo-goals/
-
-**The return of David Moyes: How Everton have been revived by a familiar face back at the helm**\
-`Moyes has galvanised Everton since his January reappointment, lifting the mood at the training ground and in the stands on matchdays`\
-https://nytimes.com/athletic/6148341/2025/02/21/moyes-everton-revival-goodison/
 
