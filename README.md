@@ -1,3 +1,15 @@
+**Nelson could be out for season after hamstring surgery - Marco Silva**\
+`With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
+https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/
+
+**3 People Killed in Shooting Outside a Kentucky Driver’s License Office**\
+`Louisville police said they were still investigating and had not yet identified any suspects.`\
+https://nytimes.com/2025/02/21/us/kentucky-shooting-drivers-license-office.html
+
+**Canucks sign goalie Kevin Lankinen to splashy long-term extension**\
+`The Vancouver Canucks announced Wednesday that they had agreed to terms with goaltender Kevin Lankinen on a five-year, $22.`\
+https://nytimes.com/athletic/6151740/2025/02/21/canucks-sign-kevin-lankinen/
+
 **Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
 `The man, Hadi Matar, 27, faces up to 32 years in prison. He also faces federal terrorism-related charges.`\
 https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/rubio-russia-putin.html
 **William R. Lucas, Official Blamed in Challenger Tragedy, Dies at 102**\
 `The strong-willed director of NASA’s Marshall Space Flight Center, he failed to pass on warnings from engineers that the space shuttle launch was at risk.`\
 https://nytimes.com/2025/02/21/us/william-r-lucas-dead.html
-
-**Firings Squeeze National Parks: ‘You Won’t Have the Full Experience’**\
-`With 1,000 full-time employees out, and the fate of thousands more seasonal workers unclear, tours are being canceled and some wonder who will empty the trash.`\
-https://nytimes.com/2025/02/21/travel/national-park-service-firings.html
-
-**For Clara Tauson's tennis progress, less is more**\
-`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
-https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
-
-**Olga James, a Star of ‘Carmen Jones’ and ‘Mr. Wonderful,’ Dies at 95**\
-`An operatic soprano, she had high-profile roles on film and stage in the 1950s. But after that, she mostly spent her career away from the limelight.`\
-https://nytimes.com/2025/02/21/arts/music/olga-james-dead.html
 
