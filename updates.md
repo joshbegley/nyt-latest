@@ -1,3 +1,7 @@
+**Coinbase Says S.E.C. Will Drop Crypto Lawsuit**\
+`The end of a court fight with the largest U.S. crypto company would be a big win for an industry that financially backed President Trump.`\
+https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
+
 **The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
 `Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
 https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
