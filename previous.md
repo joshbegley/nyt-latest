@@ -1,3 +1,7 @@
+**Overnight ‘Vote-a-Rama’ in the Senate Frames a Contentious Budget Debate**\
+`Before adopting Republicans’ budget resolution, senators were engaging in an all-night parliamentary marathon that Democrats used to try to force the G.O.P. into politically damaging votes.`\
+https://nytimes.com/2025/02/20/us/politics/senate-vote-budget.html
+
 **Trump Claims Power to Fire Administrative Law Judges at Will**\
 `The Justice Department said a law protecting the officials from arbitrary removal is an unconstitutional intrusion on presidential authority.`\
 https://nytimes.com/2025/02/20/us/politics/trump-power-administrative-law-judges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/us/colorado-deputy-christian-glass-shooting.html
 **Corrections: Feb. 21, 2025**\
 `Corrections that appeared in print on Friday, Feb. 21, 2025.`\
 https://nytimes.com/2025/02/20/pageoneplus/corrections-feb-21-2025.html
-
-**Trump Marks Black History Month, Even as He Slams the Value of Diversity**\
-`President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as he has eviscerated federal programs aimed at combating inequality in America.`\
-https://nytimes.com/2025/02/20/us/politics/trump-black-history-month-dei-tiger-woods.html
 

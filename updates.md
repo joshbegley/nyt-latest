@@ -1,3 +1,7 @@
+**Overnight ‘Vote-a-Rama’ in the Senate Frames a Contentious Budget Debate**\
+`Before adopting Republicans’ budget resolution, senators were engaging in an all-night parliamentary marathon that Democrats used to try to force the G.O.P. into politically damaging votes.`\
+https://nytimes.com/2025/02/20/us/politics/senate-vote-budget.html
+
 **Trump Claims Power to Fire Administrative Law Judges at Will**\
 `The Justice Department said a law protecting the officials from arbitrary removal is an unconstitutional intrusion on presidential authority.`\
 https://nytimes.com/2025/02/20/us/politics/trump-power-administrative-law-judges.html
