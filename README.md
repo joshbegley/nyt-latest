@@ -1,3 +1,7 @@
+**Trump Marks Black History Month, Even as He Slams the Value of Diversity**\
+`President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as has eviscerated federal programs aimed at combating inequality in America.`\
+https://nytimes.com/2025/02/20/us/politics/trump-black-history-month-dei-tiger-woods.html
+
 **Musk and His Millions Enter Wisconsin Supreme Court Race**\
 `Elon Musk’s super PAC has spent $1 million on canvassing operations supporting the conservative candidate in the race, his first election spending after the 2024 campaign.`\
 https://nytimes.com/2025/02/20/us/politics/elon-musk-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150324/2025/02/20/4-nations-final-scratches-usa-ca
 **2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
 `Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
 https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Man Who Kidnapped Ride Share Driver Gets 12 Years in Prison**\
-`The ride share driver was held at gunpoint and forced to drive over 1,300 miles from Texas to Florida, prosecutors said.`\
-https://nytimes.com/2025/02/20/us/ride-share-kidnapping-texas-florida.html
 
