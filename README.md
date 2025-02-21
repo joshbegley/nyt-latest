@@ -1,3 +1,11 @@
+**Yankees Part With Tradition: Beards Are Now Allowed**\
+`The team is ending its longstanding policy on facial hair and will allow “well-groomed beards moving forward,” Hal Steinbrenner said.`\
+https://nytimes.com/2025/02/21/sports/baseball/yankees-beards-facial-hair-policy.html
+
+**Van de Ven, Romero 'should' return around Europa League first leg**\
+`Neither defender has played in the Premier League since sustaining injuries in December's 4-3 loss against Chelsea.`\
+https://nytimes.com/athletic/6151251/2025/02/21/tottenham-team-news-van-de-ven-romero/
+
 **The Bounce: How does Victor Wembanyama's season-ending injury affect his NBA future?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6150975/2025/02/21/victor-wembanyama-spurs-lebron-james-lakers-nba-the-bounce-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/your-money/taxes-reselling-gig-workers.html
 **Saint Mary's sports the look of a March Madness Cinderella in the making**\
 `Can Saint Mary's make a deep run during this year's NCAA Tournament? You bet. `\
 https://nytimes.com/athletic/6149698/2025/02/21/saint-marys-march-madness-tournament-2025-cinderalla/
-
-**How the Bucks plan to move forward after Bobby Portis' 25-game suspension**\
-`Portis is one of the league's top bench producers, and he adds even more intangibles. Milwaukee will need other players to step up.`\
-https://nytimes.com/athletic/6148955/2025/02/21/bobby-portis-suspension-bucks-how-to-fill-in-for-bobby-portis-plan/
-
-**Senate G.O.P. Passes Budget Resolution, and Punts on Tough Questions**\
-`Approval of the Republican budget plan left major questions about tax cuts and spending reduction for another day.`\
-https://nytimes.com/2025/02/21/us/politics/senate-republicans-budget.html
 
