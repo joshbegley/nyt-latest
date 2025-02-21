@@ -1,3 +1,11 @@
+**Mark Williams, agent dispute Lakers' decision to fail his physical**\
+`The Lakers rescinded their trade with the Hornets for Williams earlier this month.`\
+https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-lakers/
+
+**Steiner, Haas legal case dismissed after parties reach agreement in mediation**\
+`Steiner, 59, had filed a lawsuit against his former F1 team over alleged unpaid commissions and unauthorized use of his name and likeness.`\
+https://nytimes.com/athletic/6151374/2025/02/21/guenther-steiner-haas-lawsuit-f1/
+
 **Two Concerts Reveal the Limits of a Pianist’s Broad Repertoire**\
 `Performing in New York, Seong-Jin Cho presented a marathon survey of Ravel’s solo piano works and appeared in Prokofiev’s Second Piano Concerto.`\
 https://nytimes.com/2025/02/21/arts/music/seong-jin-cho-piano.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-gen
 **OpenAI Uncovers Evidence of A.I.-Powered Chinese Surveillance Tool**\
 `The company said a Chinese operation had built the tool to identify anti-Chinese posts on social media services in Western countries.`\
 https://nytimes.com/2025/02/21/technology/openai-chinese-surveillance.html
-
-**Yankees announce changes to team's longstanding facial hair policy**\
-`The team will now allow 'well-groomed beards' moving forward. `\
-https://nytimes.com/athletic/6151207/2025/02/21/new-york-yankees-facial-hair/
-
-**Fantasy trends and hidden gems: Ryan O’Reilly a top streaming target as NHL returns**\
-`Shayna Goldman helps you get your rosters prepared for the return of NHL action and an extended week to navigate in fantasy hockey.`\
-https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gems-week-19-waiver-wire/
 
