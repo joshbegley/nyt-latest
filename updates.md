@@ -1,3 +1,15 @@
+**Trump Administration Stalls Scientific Research Despite Court Ruling**\
+`Using an arcane law, officials have effectively delayed funding from the National Institutes of Health, leaving medical studies in jeopardy.`\
+https://nytimes.com/2025/02/21/science/nih-research-funding-delays.html
+
+**U.S.-Canada 4 Nations Face-Off final matchup draws 9.3 million viewers**\
+`The earlier round game between the United States and Canada averaged 4.4 million viewers on ABC and peaked with 5.2 million viewers`\
+https://nytimes.com/athletic/6152078/2025/02/21/us-canada-viewership-four-nations/
+
+**What strong 4 Nations showings for Wild could mean down the stretch**\
+`The confidence-building moments for key players at the tournament could loom large for Minnesota as it shifts focus to winning the Cup.`\
+https://nytimes.com/athletic/6152063/2025/02/21/4-nations-face-off-wild-nhl/
+
 **Red Sox future on display as Marcelo Mayer, Kristian Campbell start spring opener**\
 `Roman Anthony was a late scratch, but with Marcelo Mayer and Kristian Campbell in the lineup, the spring opener was a preview of the future.`\
 https://nytimes.com/athletic/6152152/2025/02/21/red-sox-spring-debut-marcelo-mayer-kristian-campbell/

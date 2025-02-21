@@ -1,3 +1,15 @@
+**Trump Administration Stalls Scientific Research Despite Court Ruling**\
+`Using an arcane law, officials have effectively delayed funding from the National Institutes of Health, leaving medical studies in jeopardy.`\
+https://nytimes.com/2025/02/21/science/nih-research-funding-delays.html
+
+**U.S.-Canada 4 Nations Face-Off final matchup draws 9.3 million viewers**\
+`The earlier round game between the United States and Canada averaged 4.4 million viewers on ABC and peaked with 5.2 million viewers`\
+https://nytimes.com/athletic/6152078/2025/02/21/us-canada-viewership-four-nations/
+
+**What strong 4 Nations showings for Wild could mean down the stretch**\
+`The confidence-building moments for key players at the tournament could loom large for Minnesota as it shifts focus to winning the Cup.`\
+https://nytimes.com/athletic/6152063/2025/02/21/4-nations-face-off-wild-nhl/
+
 **Red Sox future on display as Marcelo Mayer, Kristian Campbell start spring opener**\
 `Roman Anthony was a late scratch, but with Marcelo Mayer and Kristian Campbell in the lineup, the spring opener was a preview of the future.`\
 https://nytimes.com/athletic/6152152/2025/02/21/red-sox-spring-debut-marcelo-mayer-kristian-campbell/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/21/us/trump-news/usaid-job-cuts
 **Associated Press Sues Trump Officials Over White House Ban**\
 `The wire service sued three of them for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
 https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
-
-**NFL investigating sexual misconduct allegations against Justin Tucker**\
-`Sixteen women across eight spas in the Baltimore area have come forward with allegations.`\
-https://nytimes.com/athletic/6151879/2025/02/21/justin-tucker-allegations-nfl-investigation-ravens/
-
-**Stocks Notch Worst Week Since Trump’s Inauguration**\
-`Fueling a 1.7 percent decline on Friday was an unexpected drop in the University of Michigan’s consumer sentiment index, as Americans worried about stubborn inflation.`\
-https://nytimes.com/2025/02/21/business/stock-market-declines-trump.html
-
-**Tell Us: What Are Your Questions About Elon Musk?**\
-`Share your questions with the On Politics newsletter.`\
-https://nytimes.com/2025/02/21/us/politics/musk-doge-questions.html
 
