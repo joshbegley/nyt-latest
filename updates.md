@@ -1,3 +1,11 @@
+**Jerry Butler, Singer Known as the Iceman, Dies at 85**\
+`Known for his resounding baritone and his courtly manner, he briefly led the Impressions before beginning a successful solo career.`\
+https://nytimes.com/2025/02/21/arts/music/jerry-butler-dead.html
+
+**Supreme Court Rejects Holocaust Survivors’ Suit Against Hungary**\
+`The justices unanimously ruled that the plaintiffs had not established a connection to the United States required by the Foreign Sovereign Immunities Act.`\
+https://nytimes.com/2025/02/21/us/politics/scotus-holocaust-survivors-hungary.html
+
 **Who Comes After Trump? As Vance Establishes Himself, the Right Cheers.**\
 `The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
 https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
