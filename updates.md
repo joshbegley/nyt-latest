@@ -1,3 +1,19 @@
+**‘Yellowjackets’ Season 3, Episode 3 Recap: It Wants More**\
+`The Wilderness is becoming very vocal lately. And awfully demanding, too.`\
+https://nytimes.com/2025/02/21/arts/television/yellowjackets-recap-season-3-episode-3.html
+
+**Tate McRae Dances in and Out of Love, and 10 More New Songs**\
+`Hear tracks by Ledisi, Perfume Genius featuring Aldous Harding, Smerz and others.`\
+https://nytimes.com/2025/02/21/arts/music/playlist-tate-mcrae-selena-gomez-benny-blanco.html
+
+**I.R.S. Bars Musk Ally From Seeing Personal Information**\
+`A document setting the terms of work at the I.R.S. by Gavin Kliger, a software engineer on Elon Musk’s team, only allows him to see anonymized taxpayer information.`\
+https://nytimes.com/2025/02/21/us/politics/irs-bars-musk-ally-from-seeing-personal-information.html
+
+**Blackhawks' Seth Jones seeking trade to play 'meaningful' games**\
+`Jones' contract will make a trade difficult, but the veteran defenseman would like to play for a contending NHL team.`\
+https://nytimes.com/athletic/6151583/2025/02/21/blackhawks-seth-jones-trade-request/
+
 **Blackhawks' Seth Jones seeking trade to play 'meaningful' games**\
 `Jones' contract will make it difficult, but the veteran defenseman would like to play for a contending NHL team.`\
 https://nytimes.com/athletic/6151583/2025/02/21/blackhawks-seth-jones-trade-request/
