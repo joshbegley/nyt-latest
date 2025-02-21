@@ -1,3 +1,7 @@
+**Chinese Warships’ Plan for Live Fire Drills Unnerves Australia and New Zealand**\
+`The vessels were sailing in the Tasman Sea, and their announced intent to perform exercises prompted a call for commercial flights to divert course.`\
+https://nytimes.com/2025/02/21/world/australia/chinese-warships-drills-new-zealand.html
+
 **Premier League accumulator tips: The best bets to add to your treble**\
 `Sam Tighe offers his betting insights on which bets to add to your accumulator ahead of this weekend’s Premier League action. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6146274/2025/02/21/arsenal-live-qa-art-de-roche-ans
 **Catarina Macario and the USWNT moment she's been working towards for years**\
 `Macario scored her first goal in years for the USWNT after struggling with a comeback from injury`\
 https://nytimes.com/athletic/6150811/2025/02/21/catarina-macario-uswnt-return-colombia/
-
-**This Week in Sports Trivia: Feb. 21, 2025**\
-`How closely have you been following news across the sports world? Test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6150398/2025/02/21/this-week-in-sports-trivia-feb-21-2025/
 
