@@ -1,3 +1,11 @@
+**Listen: UConn's Geno Auriemma on his 40 years at the top and how the NCAA has evolved**\
+`On the Women's Basketball Show, Auriemma explains how college basketball has changed in his four decades at UConn.`\
+https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-geno-auriemma/
+
+**OpenAI Uncovers Evidence of A.I.-Powered Chinese Surveillance Tool**\
+`The company said a Chinese operation had built the tool to identify anti-Chinese posts on social media services in Western countries.`\
+https://nytimes.com/2025/02/21/technology/openai-chinese-surveillance.html
+
 **Yankees announce changes to team's longstanding facial hair policy**\
 `The team will now allow 'well-groomed beards' moving forward. `\
 https://nytimes.com/athletic/6151207/2025/02/21/new-york-yankees-facial-hair/
