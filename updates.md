@@ -1,3 +1,15 @@
+**Who Comes After Trump? As Vance Establishes Himself, the Right Cheers.**\
+`The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
+https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
+
+**Judge in Adams Case Appoints Lawyer to Argue Against Dropping of Charges**\
+`Judge Dale E. Ho said that with New York’s mayor and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
+https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
+
+**Read Judge Ho’s Order in the Eric Adams Corruption Case**\
+`Judge Dale E. Ho appointed a lawyer to present independent arguments on the federal government’s motion to drop the charges against New York City’s mayor.`\
+https://nytimes.com/interactive/2025/02/21/us/139-adams-order.html
+
 **Bannon Salute, Echoing Musk, Draws Criticism From French Right**\
 `Jordan Bardella, the president of France’s far-right National Rally, canceled his planned speech at the conference, saying the gesture referred to “Nazi ideology.”`\
 https://nytimes.com/2025/02/21/us/politics/bannon-salute-cpac-musk.html

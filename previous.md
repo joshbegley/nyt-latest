@@ -1,3 +1,15 @@
+**Who Comes After Trump? As Vance Establishes Himself, the Right Cheers.**\
+`The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
+https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
+
+**Judge in Adams Case Appoints Lawyer to Argue Against Dropping of Charges**\
+`Judge Dale E. Ho said that with New York’s mayor and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
+https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
+
+**Read Judge Ho’s Order in the Eric Adams Corruption Case**\
+`Judge Dale E. Ho appointed a lawyer to present independent arguments on the federal government’s motion to drop the charges against New York City’s mayor.`\
+https://nytimes.com/interactive/2025/02/21/us/139-adams-order.html
+
 **Bannon Salute, Echoing Musk, Draws Criticism From French Right**\
 `Jordan Bardella, the president of France’s far-right National Rally, canceled his planned speech at the conference, saying the gesture referred to “Nazi ideology.”`\
 https://nytimes.com/2025/02/21/us/politics/bannon-salute-cpac-musk.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-c
 **In Berlin, Anxious Movies for Dark Times**\
 `At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
 https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
-
-**Rubiales has appeal against three-year football ban dismissed by CAS**\
-`FIFA imposed the ban on Rubiales in October 2023 following incidents at the Women’s World Cup final.`\
-https://nytimes.com/athletic/6151514/2025/02/21/luis-rubiales-football-suspension-fifa/
-
-**Rangers' Vincent Trocheck suffered broken finger at 4 Nations playing for Team USA: Sources**\
-`Trocheck played 10:03 in the OT loss to Canada on Thursday. Only Rangers teammate Chris Kreider played less among the U.S. players.`\
-https://nytimes.com/athletic/6151452/2025/02/21/vincent-trocheck-broken-finger-rangers-4-nations/
-
-**F.D.A. Firings Decimated Teams Reviewing A.I. and Food Safety**\
-`Staff units evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
-https://nytimes.com/2025/02/21/health/fda-trump-layoffs-device-and-food-safety.html
 
