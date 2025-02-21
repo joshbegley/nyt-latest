@@ -1,3 +1,19 @@
+**Confusion abounds at the National Park Service, which is hiring, after firing.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2025/02/21/us/trump-news/confusion-abounds-at-the-national-park-service-which-is-hiring-after-firing
+
+**Voletta Wallace, Mother Who Shaped the Notorious B.I.G.’s Legacy, Dies at 78**\
+`She played the rapper music as a child, stood by his side during his meteoric career and navigated the legal and artistic questions that arose after his killing.`\
+https://nytimes.com/2025/02/21/arts/music/voletta-wallace-notorious-big-mother-dead.html
+
+**The 4 Nations Face-Off ravaged the Bruins in more ways than one**\
+`Brad Marchand, Elias Lindholm and Jeremy Swayman have no choice but to deliver returning to the Bruins, who are up against it. `\
+https://nytimes.com/athletic/6151679/2025/02/21/bruins-4-nations-injury-roles/
+
+**Ukraine Promises Swift Deal for Minerals as Trump Cuts Kyiv Out of Peace Talks**\
+`President Trump on Friday said the Ukrainian president had been negotiating “with no cards” and did not need to participate in all the diplomatic meetings to end the war.`\
+https://nytimes.com/2025/02/21/world/europe/ukraine-zelensky-minerals-peace.html
+
 **Warriors at Kings: How to watch, odds as Jimmy Butler and Zach LaVine duel on new squads**\
 `Two of the trade deadline's biggest factors show off their new squads Friday night, with the Warriors as slight favorites in Sacramento.`\
 https://nytimes.com/athletic/6151688/2025/02/21/warriors-kings-how-to-watch-preview-curry-butler-lavine-sabonis/
