@@ -1,3 +1,11 @@
+**Trump, After G.O.P. Criticism, Reverses Cuts to 9/11 Survivors’ Program**\
+`About 20 percent of the World Trade Central Health Program’s staff had been terminated amid President Trump’s slashing of the federal work force.`\
+https://nytimes.com/2025/02/21/nyregion/trump-doge-cuts-world-trade-center-health-program.html
+
+**U.S. Firing Squad Executions Are Rare, but Their History Is Long**\
+`During the Civil War, both sides used firing squads to kill deserting soldiers. Today, people on death row can choose to die that way in some states.`\
+https://nytimes.com/2025/02/21/us/firing-squad-executions-us.html
+
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
 `The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
 https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts

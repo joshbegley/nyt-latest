@@ -1,3 +1,11 @@
+**Trump, After G.O.P. Criticism, Reverses Cuts to 9/11 Survivors’ Program**\
+`About 20 percent of the World Trade Central Health Program’s staff had been terminated amid President Trump’s slashing of the federal work force.`\
+https://nytimes.com/2025/02/21/nyregion/trump-doge-cuts-world-trade-center-health-program.html
+
+**U.S. Firing Squad Executions Are Rare, but Their History Is Long**\
+`During the Civil War, both sides used firing squads to kill deserting soldiers. Today, people on death row can choose to die that way in some states.`\
+https://nytimes.com/2025/02/21/us/firing-squad-executions-us.html
+
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
 `The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
 https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6152282/2025/02/21/dodgers-tony-gonsolin-yoshinobu-
 **Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
 `The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
 https://nytimes.com/2025/02/21/us/politics/supreme-court-trump-special-counsel.html
-
-**Trump Administration Shakes Up ICE Leadership**\
-`The leadership change comes as the president aims to make good on a promise of mass deportations and arrests of undocumented immigrants across the United States.`\
-https://nytimes.com/2025/02/21/us/politics/trump-ice-leadership.html
-
-**Mel Bochner, Conceptual Artist Who Played With Language, Dies at 84**\
-`His early work made use of unexpected materials like pennies and masking tape. Later, he created trenchant word paintings that provoked and delighted.`\
-https://nytimes.com/2025/02/21/arts/mel-bochner-dead.html
 
