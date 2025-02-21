@@ -1,3 +1,7 @@
+**Is it possible to have a small squad in modern club football?**\
+`An increasing number of games and player fatigue means managers are struggling to balance their player pools`\
+https://nytimes.com/athletic/6148206/2025/02/21/small-squad-modern-club-football/
+
 **Nunez, Jackson, Havertz (or Jesus) or Hojlund? Which striker would our writers pick?**\
 `A number of the Premier League's biggest clubs have been struggling for form from their strikers — while others want to add new options`\
 https://nytimes.com/athletic/6148287/2025/02/21/premier-league-strikers-analysis/
