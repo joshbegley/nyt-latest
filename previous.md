@@ -1,5 +1,17 @@
+**Prime Tire: Why F1 will be so 'tough' in 2025**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6152099/2025/02/21/f1-2025-lewis-hamilton-ferrari-prime-tire/
+
+**Three Poets: The Tale of Gerd, Carl & Allen**\
+`Gerd Stern, who has died at 96, formed a lifelong bond with Allen Ginsberg and Carl Solomon. Ten years ago, he wrote about how they had met in a psychiatric hospital.`\
+https://nytimes.com/2025/02/21/books/three-poets-the-tale-of-gerd-carl-allen.html
+
+**The plan to dismiss U.S.A.I.D. employees would all but dismantle the nation’s chief foreign aid agency.**\
+`The plan, which also involves forcing staffers posted overseas to return home, would all but dismantle the nation’s chief foreign aid agency.`\
+https://nytimes.com/live/2025/02/21/us/trump-news/usaid-job-cuts
+
 **Associated Press Sues Trump Officials Over White House Ban**\
-`The wire service sued three top Trump administration officials for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
+`The wire service sued three of them for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
 https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
 
 **NFL investigating sexual misconduct allegations against Justin Tucker**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6151975/2025/02/21/new-york-yankees-team-barber-pos
 **What we're seeing at Astros spring training as Grapefruit League games begin**\
 `Jose Altuve is embracing his new left-field experiment, but does he have the arm for it?`\
 https://nytimes.com/athletic/6151980/2025/02/21/astros-spring-training-jose-altuve-left-field/
-
-**Braves' Spencer Strider takes next step toward return, feels energized by it**\
-`Strider vowed to keep his curveball amid fan speculation that it caused his injury: "Those people, kindly, don't have all the information." `\
-https://nytimes.com/athletic/6151923/2025/02/21/braves-spencer-strider-injury-2/
-
-**Medicaid Cuts Pose Budget Conundrum for Valadao and Republicans Nationwide**\
-`For Representative David Valadao of California and other Republicans whose constituents depend on Medicaid, a vote for their party’s budget could be politically fatal. President Trump’s agenda hangs in the balance.`\
-https://nytimes.com/2025/02/21/us/politics/medicaid-republicans-budget.html
-
-**How to watch Knicks vs. Cavaliers: Brunson and Towns face conference-leading Cleveland**\
-`The East-leading Cleveland Cavaliers host the hot-shooting New York Knicks in a national TV spot on Friday night.`\
-https://nytimes.com/athletic/6148022/2025/02/21/knicks-cavs-how-to-watch-preview-brunson-towns-mitchell-garland-mobley/
 
