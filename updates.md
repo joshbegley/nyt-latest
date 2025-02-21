@@ -1,3 +1,7 @@
+**What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
+`Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
+https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
+
 **Review: In ‘Liberation,’ the Feminist Revolution Will Be Dramatized**\
 `Bess Wohl’s moving new play, about a group of women in 1970s Ohio, explores the power of sisterhood and the limits of motherhood.`\
 https://nytimes.com/2025/02/20/theater/bess-wohl-liberation-review.html
