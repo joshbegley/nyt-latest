@@ -1,3 +1,11 @@
+**How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
+`Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
+https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
+
+**NBA trends I'm watching: Shooting, shooting and more shooting**\
+`A three-time MVP is even better from long range than you might think, and Orlando can't buy a bucket.`\
+https://nytimes.com/athletic/6151195/2025/02/21/nikola-jokic-shooting-magic-nba-trends/
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include stories about a vengeful bombmaker, a blind assassin and more.`\
 https://nytimes.com/2025/02/21/movies/action-movies-streaming.html

@@ -1,3 +1,11 @@
+**How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
+`Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
+https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
+
+**NBA trends I'm watching: Shooting, shooting and more shooting**\
+`A three-time MVP is even better from long range than you might think, and Orlando can't buy a bucket.`\
+https://nytimes.com/athletic/6151195/2025/02/21/nikola-jokic-shooting-magic-nba-trends/
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include stories about a vengeful bombmaker, a blind assassin and more.`\
 https://nytimes.com/2025/02/21/movies/action-movies-streaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/dining/german-pancake-breakfast-recipe.html
 **Kawhi Leonard's viability and 4 more Clippers concerns going forward**\
 `The Clippers aren't a scrappy underdog now. They're in the top six in the West, with a host of teams trying to chase them down.`\
 https://nytimes.com/athletic/6150964/2025/02/21/kawhi-leonard-clippers-concerns-nba-second-half/
-
-**Champions League last-16 draw: Liverpool-PSG tops bill alongside big all-Spain, all-German clashes**\
-`Six writers from The Athletic analyse the draw for the Champions League last-16 ties and the road to Munich in May`\
-https://nytimes.com/athletic/6150950/2025/02/21/champions-league-draw-liverpool-psg-real-madrid-bayern/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 26?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6143591/2025/02/21/premier-league-predicted-line-ups-gameweek-26/
 
