@@ -1,3 +1,7 @@
+**Olga James, a Star of ‘Carmen Jones’ and ‘Mr. Wonderful,’ Dies at 95**\
+`An operatic soprano, she had high-profile roles on film and stage in the 1950s. But after that, she mostly spent her career away from the limelight.`\
+https://nytimes.com/2025/02/21/arts/music/olga-james-dead.html
+
 **‘Yellowjackets’ Season 3, Episode 3 Recap: It Wants More**\
 `The Wilderness is becoming very vocal lately. And awfully demanding, too.`\
 https://nytimes.com/2025/02/21/arts/television/yellowjackets-recap-season-3-episode-3.html
