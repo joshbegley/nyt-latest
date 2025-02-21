@@ -1,3 +1,15 @@
+**What That Chain Saw Was Really About**\
+`Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
+https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
+
+**Trump Suggests Taking Control of the Postal Service**\
+`The president said he was considering merging the mail service, an independent agency, with the Commerce Department.`\
+https://nytimes.com/2025/02/21/us/politics/trump-usps.html
+
+**Jaguars hire former Rams executive James Gladstone as GM**\
+`Jaguars owner Shad Khan: We chose Gladstone "following a painstaking but energizing interview process that left nothing to doubt."`\
+https://nytimes.com/athletic/6152044/2025/02/21/jaguars-gm-hire-james-gladstone/
+
 **Trump Deportees Arrived in ‘Visible Distress,’ Costa Rica’s Ombudsman Says**\
 `The migrants from around the world did not know where they were or what would happen to them, according to an independent government entity.`\
 https://nytimes.com/2025/02/21/us/politics/trump-deportations-costa-rica-migrants.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/21/arts/mel-bochner-dead.html
 **Adams Sues Trump Administration Over Clawback of Migrant Shelter Funds**\
 `More than $80 million disappeared from a city bank account without warning. New York City wants it back.`\
 https://nytimes.com/2025/02/21/nyregion/eric-adams-trump-lawsuit-fema-migrants.html
-
-**D.C. Police Investigating Florida Congressman After Alleged Assault**\
-`In a statement, the office of Representative Cory Mills denied any wrongdoing on his behalf.`\
-https://nytimes.com/2025/02/21/us/politics/cory-mills-assault-investigation.html
-
-**I’ve Learned My Sister’s Therapist Is Also a Spiritual Medium. Help!**\
-`The magazine’s Ethicist columnist on the trouble with merging psychotherapy and spiritualism.`\
-https://nytimes.com/2025/02/21/magazine/sisters-therapist-spiritual-medium-ethics.html
-
-**Relievers Daniel Palencia, Brad Keller open Cubs' eyes in Cactus League opener**\
-`Whether it's Keller, Palencia or another name not on the radar, the Cubs will need pitchers whom nobody expects to be key pieces to step up.`\
-https://nytimes.com/athletic/6152180/2025/02/21/chicago-cubs-cactus-league-opener-observations/
 
