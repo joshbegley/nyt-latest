@@ -1,3 +1,7 @@
+**Under Government Pressure, Apple Pulls Security Feature in Britain**\
+`Law enforcement in the country was pressuring the company to create a tool that would act like a back door into customers’ data.`\
+https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
+
 **Nelson could be out for season after hamstring surgery - Marco Silva**\
 `With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
 https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151689/2025/02/21/saints-brandon-staley-defensive-
 **Rubio’s Dilemma: Cutting Trump’s Deal With ‘Bloodthirsty’ Putin**\
 `As a senator, Marco Rubio prided himself on challenging tyrants. But as secretary of state, President Trump has tasked him with helping to potentially turn Russia from an enemy into an ally.`\
 https://nytimes.com/2025/02/21/us/politics/rubio-russia-putin.html
-
-**William R. Lucas, Official Blamed in Challenger Tragedy, Dies at 102**\
-`The strong-willed director of NASA’s Marshall Space Flight Center, he failed to pass on warnings from engineers that the space shuttle launch was at risk.`\
-https://nytimes.com/2025/02/21/us/william-r-lucas-dead.html
 
