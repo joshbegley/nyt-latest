@@ -1,40 +1,40 @@
-**Chelsea's Madueke out until after international break**\
-`Madueke, 22, sustained the injury during last Friday's 3-0 loss at Brighton and is in line to miss Chelsea's next six fixtures.`\
-https://nytimes.com/athletic/6149175/2025/02/21/noni-madueke-hamstring-injury-chelsea/
+**Trump 2.0: Rewriting Histories**\
+`How is Trump rewriting history from who is responsible for the Ukraine war, to upending our understanding of the Constitution with his executive orders on independent agencies and finally, to what moving the Kennedy Center under his supervision means culturally.`\
+https://nytimes.com/video/podcasts/the-daily/100000010002060/trump-2-0-rewriting-histories.html
 
-**For Clara Tauson's tennis progress, less is more**\
-`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
-https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
+**Could Vladimir Guerrero Jr. reset the first baseman market? It's complicated**\
+`Even with Guerrero entering the market at 27, his free agency case is harder to pinpoint than it was for someone like Juan Soto.`\
+https://nytimes.com/athletic/6149827/2025/02/21/vladimir-guerrero-jr-blue-jays-extension-free-agent/
 
-**Man United owe £300m in outstanding transfer fees, club's financial results reveal**\
-`United's results also revealed the club invested a further £37.7m in the playing squad during the January transfer window.`\
-https://nytimes.com/athletic/6150806/2025/02/21/manchester-united-transfer-fees-owed/
+**The F.B.I.’s New Boss, and the Foreign Aid Fallout**\
+`Plus, a James Bond takeover.`\
+https://nytimes.com/2025/02/21/podcasts/the-headlines/the-fbis-new-boss-and-the-foreign-aid-fallout.html
 
-**As Truce Talks Stall, Fears Mount for Israeli Hostages in Gaza After 500 Days**\
-`“I was in Gaza. I survived. Keith survived. Others will not,” said Aviva Siegel, who with her husband was taken hostage on Oct. 7, 2023. She urged the Israeli government to secure the release of others.`\
-https://nytimes.com/2025/02/21/world/middleeast/israel-gaza-hostages.html
+**Universal’s Theme Parks, Long in Disney’s Shadow, Expand at Dizzying Pace**\
+`Universal is going after Disney, the industry leader, with new parks in Florida and Texas: “We want people to think of us first.”`\
+https://nytimes.com/2025/02/21/business/universal-theme-parks-expansion-disney.html
 
-**Archaeologists Find a Pharoah’s Tomb, the First Since King Tut, Egypt Says**\
-`The Ministry of Antiquities said the discovery of the tomb of Thutmose II, whose wife, Hatshepsut, took the throne after his death, was the first excavation of a royal tomb since 1922.`\
-https://nytimes.com/2025/02/21/world/middleeast/egypt-tomb-archaeologists.html
+**Trump 2.0: Rewriting Histories**\
+`Watch or listen to our political round table breaking down President Trump’s latest week in office.`\
+https://nytimes.com/2025/02/21/podcasts/the-daily/trump-2-0-rewriting-histories.html
 
-**Sweden Investigates New Cable Break Under Baltic Sea**\
-`The authorities are looking into possible damage to an undersea line east of Gotland island. NATO has stepped up its surveillance of the region.`\
-https://nytimes.com/2025/02/21/world/europe/baltic-sea-cable-sweden.html
+**Toronto Tempo's first GM Monica Wright Rogers sets vision for WNBA expansion team's future**\
+`A former WNBA player, college coach and NBA executive, Wright Rogers is tasked with helping create a winning culture in Toronto.`\
+https://nytimes.com/athletic/6149561/2025/02/21/monica-wright-rogers-wnba-toronto-tempo-expansion/
 
-**Germany’s Economy Was Once the Envy of Europe. Not Anymore**\
-`Metrics reveal an economy sliding backward. It will be one of the biggest issues in the election set for Sunday.`\
-https://nytimes.com/interactive/2025/02/21/world/europe/germany-economy-election.html
+**Connections Companion No. 622**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Feb. 22, 2025.`\
+https://nytimes.com/2025/02/21/crosswords/connections-companion-622.html
 
-**Rams mock draft 1.0: Setting aside the Matthew Stafford situation and hitting needs first**\
-`Will the Rams target left tackle in Round 1 if they need one? What pass-catcher options out there could fit well with Sean McVay's offense?`\
-https://nytimes.com/athletic/6150247/2025/02/21/rams-mock-draft-left-tackle-tight-end/
+**Wordle Review No. 1,344**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Feb. 22, 2025.`\
+https://nytimes.com/2025/02/21/crosswords/wordle-review-1344.html
 
-**The House Wants to Pass Trump’s Agenda in One Big Bill. Here’s What’s in It.**\
-`The G.O.P. bill would extend tax cuts and almost certainly make big reductions to programs serving the poor. Passing it may be hard, though.`\
-https://nytimes.com/interactive/2025/02/21/upshot/house-gop-budget-blueprint.html
+**Marchand: With ESPN opt-out, MLB commissioner Rob Manfred creates another TV mess**\
+`MLB is in a tough position with its TV rights after the league and ESPN announced an early end to their current deal after this season.`\
+https://nytimes.com/athletic/6150314/2025/02/21/mlb-ends-deal-espn-rob-manfred-jimmy-pitaro-roku/
 
-**6 Things E.R. Doctors Wish You’d Avoid**\
-`We asked emergency physicians what lessons they’d learned from their job.`\
-https://nytimes.com/2025/02/21/well/er-doctors-t.html
+**Fate of Bibas Family Recalls Trauma of Oct. 7, Renewing Fears for Gaza Truce**\
+`Hamas said it had returned the bodies of Shira Bibas and her two sons. The Israeli military announced that the boys were murdered in Gaza and that Ms. Bibas’s body was that of someone else.`\
+https://nytimes.com/2025/02/21/world/middleeast/israel-gaza-hamas-bibas-hostages.html
 
