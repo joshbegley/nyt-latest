@@ -1,3 +1,11 @@
+**Stocks Notch Worst Week Since Trump’s Inauguration**\
+`Fueling a 1.7 percent decline on Friday was an unexpected drop in the University of Michigan’s consumer sentiment index, as Americans worried about stubborn inflation.`\
+https://nytimes.com/2025/02/21/business/stock-market-declines-trump.html
+
+**For the Yankees' team barber, a changing policy opens a new realm of possibilities**\
+`David "Davey Cuts" Castillo has been shaping up the team's players for the past decade. `\
+https://nytimes.com/athletic/6151975/2025/02/21/new-york-yankees-team-barber-possibilities/
+
 **Tell Us: What Are Your Questions About Elon Musk?**\
 `Share your questions with the On Politics newsletter.`\
 https://nytimes.com/2025/02/21/us/politics/musk-doge-questions.html
