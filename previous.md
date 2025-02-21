@@ -1,3 +1,7 @@
+**The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/02/21/us/trump-news/the-firings-are-the-first-of-what-is-expected-to-be-a-vast-wave-of-layoffs-at-the-defense-department
+
 **What That Chain Saw Was Really About**\
 `Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
 https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/trump-ice-leadership.html
 **Mel Bochner, Conceptual Artist Who Played With Language, Dies at 84**\
 `His early work made use of unexpected materials like pennies and masking tape. Later, he created trenchant word paintings that provoked and delighted.`\
 https://nytimes.com/2025/02/21/arts/mel-bochner-dead.html
-
-**Adams Sues Trump Administration Over Clawback of Migrant Shelter Funds**\
-`More than $80 million disappeared from a city bank account without warning. New York City wants it back.`\
-https://nytimes.com/2025/02/21/nyregion/eric-adams-trump-lawsuit-fema-migrants.html
 

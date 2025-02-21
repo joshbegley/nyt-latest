@@ -1,3 +1,7 @@
+**The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/02/21/us/trump-news/the-firings-are-the-first-of-what-is-expected-to-be-a-vast-wave-of-layoffs-at-the-defense-department
+
 **Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
 `The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
 https://nytimes.com/2025/02/21/us/politics/supreme-court-trump-special-counsel.html
