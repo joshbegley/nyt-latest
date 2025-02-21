@@ -1,3 +1,11 @@
+**Tottenham are asking not to be called Tottenham**\
+`An email sent to broadcasters, seen by The Athletic, reveals the club 'have requested that they are not referred to as Tottenham'`\
+https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
+
+**49ers Enterprises set to buy majority stake in Scottish soccer club Rangers**\
+`The 49ers Enterprises is looking to sell a 10 per cent stake in the NFL franchise and is scouting to invest in sporting opportunites.`\
+https://nytimes.com/athletic/6150980/2025/02/21/rangers-takeover-san-francisco-49ers/
+
 **How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
 `Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
 https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
