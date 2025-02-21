@@ -1,3 +1,11 @@
+**Associated Press Sues Trump Officials Over White House Ban**\
+`The wire service sued three top Trump administration officials for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
+https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
+
+**NFL investigating sexual misconduct allegations against Justin Tucker**\
+`Sixteen women across eight spas in the Baltimore area have come forward with allegations.`\
+https://nytimes.com/athletic/6151879/2025/02/21/justin-tucker-allegations-nfl-investigation-ravens/
+
 **Stocks Notch Worst Week Since Trump’s Inauguration**\
 `Fueling a 1.7 percent decline on Friday was an unexpected drop in the University of Michigan’s consumer sentiment index, as Americans worried about stubborn inflation.`\
 https://nytimes.com/2025/02/21/business/stock-market-declines-trump.html

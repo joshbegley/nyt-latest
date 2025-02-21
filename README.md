@@ -1,5 +1,5 @@
 **Associated Press Sues Trump Officials Over White House Ban**\
-`The wire service sued three top Trump administration officials for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
+`The wire service sued three of them for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
 https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
 
 **NFL investigating sexual misconduct allegations against Justin Tucker**\

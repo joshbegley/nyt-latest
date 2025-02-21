@@ -1,3 +1,11 @@
+**Associated Press Sues Trump Officials Over White House Ban**\
+`The wire service sued three top Trump administration officials for denying its reporters access to press events. The White House has objected to The A.P.’s references to the Gulf of Mexico in articles.`\
+https://nytimes.com/2025/02/21/business/media/ap-white-house-ban-lawsuit.html
+
+**NFL investigating sexual misconduct allegations against Justin Tucker**\
+`Sixteen women across eight spas in the Baltimore area have come forward with allegations.`\
+https://nytimes.com/athletic/6151879/2025/02/21/justin-tucker-allegations-nfl-investigation-ravens/
+
 **Stocks Notch Worst Week Since Trump’s Inauguration**\
 `Fueling a 1.7 percent decline on Friday was an unexpected drop in the University of Michigan’s consumer sentiment index, as Americans worried about stubborn inflation.`\
 https://nytimes.com/2025/02/21/business/stock-market-declines-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/medicaid-republicans-budget.html
 **How to watch Knicks vs. Cavaliers: Brunson and Towns face conference-leading Cleveland**\
 `The East-leading Cleveland Cavaliers host the hot-shooting New York Knicks in a national TV spot on Friday night.`\
 https://nytimes.com/athletic/6148022/2025/02/21/knicks-cavs-how-to-watch-preview-brunson-towns-mitchell-garland-mobley/
-
-**Berlin Stabbing Attack at Holocaust Memorial Injures One**\
-`The police said they had detained a suspect in the assault, which occurred among the labyrinth of concrete slabs at one of the German capital’s most sacrosanct sites.`\
-https://nytimes.com/2025/02/21/world/europe/berlin-stabbing-holocaust-memorial.html
-
-**'It's a big deal': Current and former Yankees react to the team's new facial hair policy**\
-`Austin Wells, Gerrit Cole, Gleyber Torres and more all weighed in on the surprising change to a longstanding Yankee tradition.`\
-https://nytimes.com/athletic/6151787/2025/02/21/yankees-facial-hair-policy-reactions/
 
