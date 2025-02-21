@@ -1,3 +1,11 @@
+**Jerry Butler, Singer Known as the Iceman, Dies at 85**\
+`Known for his resounding baritone and his courtly manner, he briefly led the Impressions before beginning a successful solo career.`\
+https://nytimes.com/2025/02/21/arts/music/jerry-butler-dead.html
+
+**Supreme Court Rejects Holocaust Survivors’ Suit Against Hungary**\
+`The justices unanimously ruled that the plaintiffs had not established a connection to the United States required by the Foreign Sovereign Immunities Act.`\
+https://nytimes.com/2025/02/21/us/politics/scotus-holocaust-survivors-hungary.html
+
 **Who Comes After Trump? As Vance Establishes Himself, the Right Cheers.**\
 `The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
 https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/us/execution-firing-squad-south-carolina.html
 **Bills mock offseason: A blockbuster trade, a free-agency splash and the draft**\
 `The championship window is wide open for the Bills and that will impact their offseason moves.`\
 https://nytimes.com/athletic/6149415/2025/02/21/bills-2025-mock-offseason-free-agent/
-
-**Egon Schiele Watercolor, Said to Be Nazi-Looted, Set for Auction**\
-`Christie’s, which values the work at more than $1 million, said the proceeds from any sale would be shared with the heirs of an art collector killed in a concentration camp.`\
-https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-christies-auction.html
-
-**In Berlin, Anxious Movies for Dark Times**\
-`At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
-https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
 
