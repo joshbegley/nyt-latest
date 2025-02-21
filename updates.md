@@ -1,3 +1,11 @@
+**Under Government Pressure, Apple Pulls Security Feature in Britain**\
+`Law enforcement in the country was pressuring the company to create a tool that would act like a back door into customers’ data.`\
+https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
+
+**Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
+`The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at a literary festival and stabbed the famed author about 15 times.`\
+https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
+
 **Nelson could be out for season after hamstring surgery - Marco Silva**\
 `With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
 https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/

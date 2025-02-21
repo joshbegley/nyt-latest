@@ -15,7 +15,7 @@ https://nytimes.com/2025/02/21/us/kentucky-shooting-drivers-license-office.html
 https://nytimes.com/athletic/6151740/2025/02/21/canucks-sign-kevin-lankinen/
 
 **Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
-`The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at a literary festival and stabbed the famed author about 15 times.`\
+`The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at an arts conference and stabbed the famed author about 15 times.`\
 https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
 
 **A Playlist Packed With Crossword Clues**\
