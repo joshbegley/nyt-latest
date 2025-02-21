@@ -1,3 +1,7 @@
+**Charles Leclerc faces the biggest test of his F1 career: Lewis Hamilton at Ferrari**\
+`To become a true title contender, Ferrari's 'Golden Boy' will have to beat his legendary new teammate.`\
+https://nytimes.com/athletic/6146353/2025/02/21/charles-leclerc-lewis-hamilton-ferrari-f1/
+
 **Trudeau Thumbs Nose at Trump as Canadians Revel in Hockey Win**\
 `Canada beat the U.S. in a championship game with added meaning because of political tensions caused by President Trump’s taunts and economic threats.`\
 https://nytimes.com/2025/02/21/world/canada/trudeau-trump-hockey-canada-us-feud.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6143602/2025/02/21/fantasy-premier-league-advice-gw
 **Live Q&A: Talking baseball with Eno Sarris on Friday 2/21 at 3:00 p.m. ET**\
 `Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat. `\
 https://nytimes.com/athletic/6150015/2025/02/21/mlb-eno-sarris-live-chat-2-21/
-
-**Word of the Day: behoove**\
-`This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/21/learning/word-of-the-day-behoove.html
 
