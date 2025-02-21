@@ -1,3 +1,11 @@
+**Champions League last-16 draw: Liverpool-PSG tops bill alongside big all-Spain, all-German clashes**\
+`Six writers from The Athletic analyse the draw for the Champions League last-16 ties and the road to Munich in May`\
+https://nytimes.com/athletic/6150950/2025/02/21/champions-league-draw-liverpool-psg-real-madrid-bayern/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 26?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6143591/2025/02/21/premier-league-predicted-line-ups-gameweek-26/
+
 **The education of Dalton Rushing: How the Dodgers are preparing to catching prospect**\
 `For Rushing, the lessons are a chance to prove himself while getting comfortable in front of an All-Star pitching staff.`\
 https://nytimes.com/athletic/6150540/2025/02/21/dodgers-dalton-rushing-playing-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/sports/baseball/yankees-beards-facial-hair-policy
 **Van de Ven, Romero 'should' return around Europa League first leg**\
 `Neither defender has played in the Premier League since sustaining injuries in December's 4-3 defeat against Chelsea.`\
 https://nytimes.com/athletic/6151251/2025/02/21/tottenham-team-news-van-de-ven-romero/
-
-**The Bounce: How does Victor Wembanyama's season-ending injury affect his NBA future?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6150975/2025/02/21/victor-wembanyama-spurs-lebron-james-lakers-nba-the-bounce-2/
-
-**Listen: UConn's Geno Auriemma on his 40 years at the top and how the NCAA has evolved**\
-`On the Women's Basketball Show, Auriemma explains how college basketball has changed in his four decades at UConn.`\
-https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-geno-auriemma/
 
