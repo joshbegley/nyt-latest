@@ -1,3 +1,11 @@
+**LeBrun: Against a backdrop of political tensions, Canada's 4 Nations win is bigger than hockey**\
+`The country that gave the world the sport of hockey celebrated its 4 Nations win for all kinds of reasons.`\
+https://nytimes.com/athletic/6150708/2025/02/21/4-nations-face-off-canada-champions/
+
+**‘Safe House’ Review: Singing a Song of Loneliness**\
+`Enda Walsh’s formal experiment, at St. Ann’s Warehouse, finds him in pared-back mode.`\
+https://nytimes.com/2025/02/21/theater/safe-house-review-enda-walsh.html
+
 **40 for 40: LeBron James 'defies anything that's normal' in win over Trail Blazers**\
 `Without Luka Dončić and playing a back-to-back, James became the first player in NBA history with multiple 40-point games past age 40.`\
 https://nytimes.com/athletic/6150771/2025/02/21/lebron-james-lakers-40-points-portland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6146815/2025/02/21/raiders-john-spytek-cmv-awarenes
 **Andrew Painter's 2-year rehab changed the Phillies prospect as a person and pitcher**\
 `The time away from actual competition has made Painter even more curious about the why. Now, he can slow everything down. `\
 https://nytimes.com/athletic/6149701/2025/02/21/andrew-painter-rehab-phillies-prospect/
-
-**Would more CFP auto-bids mean less selection committee? Big Ten, SEC seem to hope so**\
-`The subjectivity baked into the process of determining a national champ, a longstanding tradition in the sport, is maddening and alluring.`\
-https://nytimes.com/athletic/6150006/2025/02/21/college-football-playoff-selection-committee-format/
-
-**Analysis: Mets don't plan to add to rotation after Frankie Montas injury. But should they?**\
-`The Mets boast enough starting pitchers to absorb Montas’ injury, but several of them are question marks heading into the season.`\
-https://nytimes.com/athletic/6150357/2025/02/21/mets-rotation-frankie-montas-injury/
 
