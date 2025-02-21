@@ -1,3 +1,7 @@
+**Ukraine Promises Swift Deal for Minerals as Trump Cuts Kyiv Out of Peace Talks**\
+`President Trump on Friday said the Ukrainian president had been negotiating “with no cards” and did not need to participate in all the diplomatic meetings to end the war.`\
+https://nytimes.com/2025/02/21/world/europe/ukraine-zelensky-minerals-peace.html
+
 **Warriors at Kings: How to watch, odds as Jimmy Butler and Zach LaVine duel on new squads**\
 `Two of the trade deadline's biggest factors show off their new squads Friday night, with the Warriors as slight favorites in Sacramento.`\
 https://nytimes.com/athletic/6151688/2025/02/21/warriors-kings-how-to-watch-preview-curry-butler-lavine-sabonis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/trump-cdc-atlanta.html
 **Under Government Pressure, Apple Pulls Security Feature in Britain**\
 `Law enforcement in the country was pressuring the company to create a tool that would act like a back door into customers’ data.`\
 https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
-
-**Nelson could be out for season after hamstring surgery - Marco Silva**\
-`With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
-https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/
 
