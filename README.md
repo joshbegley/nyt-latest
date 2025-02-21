@@ -1,3 +1,7 @@
+**‘See You in Court’: Maine Governor Clashes With Trump Over Trans Rights**\
+`President Trump asked Gov. Janet Mills if her state would comply with the executive order he signed banning transgender athletes from women’s sports. He didn’t like her answer.`\
+https://nytimes.com/2025/02/21/us/politics/trump-maine-governor-transgender-athletes.html
+
 **Prime Tire: Why F1 will be so 'tough' in 2025**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6152099/2025/02/21/f1-2025-lewis-hamilton-ferrari-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/business/horseracing-drug-violations.html
 **For the Yankees' team barber, a changing policy opens a new realm of possibilities**\
 `David "Davey Cuts" Castillo has been shaping up the team's players for the past decade. `\
 https://nytimes.com/athletic/6151975/2025/02/21/new-york-yankees-team-barber-possibilities/
-
-**What we're seeing at Astros spring training as Grapefruit League games begin**\
-`Jose Altuve is embracing his new left-field experiment, but does he have the arm for it?`\
-https://nytimes.com/athletic/6151980/2025/02/21/astros-spring-training-jose-altuve-left-field/
 
