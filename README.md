@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/21/sports/baseball/yankees-beards-facial-hair-policy.html
 
 **Van de Ven, Romero 'should' return around Europa League first leg**\
-`Neither defender has played in the Premier League since sustaining injuries in December's 4-3 loss against Chelsea.`\
+`Neither defender has played in the Premier League since sustaining injuries in December's 4-3 defeat against Chelsea.`\
 https://nytimes.com/athletic/6151251/2025/02/21/tottenham-team-news-van-de-ven-romero/
 
 **The Bounce: How does Victor Wembanyama's season-ending injury affect his NBA future?**\
