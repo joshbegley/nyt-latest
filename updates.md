@@ -1,3 +1,15 @@
+**Canada lands a forward on the rise – one with significant Promise**\
+`Promise David is a breakout star in Belgium, and he's the latest addition to a Canada men's national team on the rise.`\
+https://nytimes.com/athletic/6152079/2025/02/21/promise-david-canada-nigeria-marsch/
+
+**Kepner: Hair today, gone tomorrow. On the silly, stodgy tradition that was part of the Yankees’ identity**\
+`The Yankees' surprise announcement adapting their longstanding facial hair policy is the latest step in the evolution of the team's brand.`\
+https://nytimes.com/athletic/6152186/2025/02/21/new-york-yankees-hair-tradition-identity/
+
+**Hamas Says It Has Returned Another Body It Believes Is Shiri Bibas**\
+`Less than 24 hours after Israel found that remains delivered by Hamas did not belong to Ms. Bibas, a slain Israeli hostage, the militant group said it had returned another body.`\
+https://nytimes.com/2025/02/21/world/middleeast/hamas-israel-shiri-bibas.html
+
 **Trump Administration Stalls Scientific Research Despite Court Ruling**\
 `Using an arcane law, officials have effectively delayed funding from the National Institutes of Health, leaving medical studies in jeopardy.`\
 https://nytimes.com/2025/02/21/science/nih-research-funding-delays.html
