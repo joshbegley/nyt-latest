@@ -1,3 +1,7 @@
+**Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
+`The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
+https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html
+
 **Former Sheriff’s Deputy Is Convicted in Killing of Colorado Man**\
 `Andrew Buen was found guilty of criminally negligent homicide in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
 https://nytimes.com/2025/02/20/us/colorado-deputy-christian-glass-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.h
 **Ref who asked Lionel Messi for his jersey disciplined by CONCACAF**\
 `Statement from CONCACAF does not detail any punishment, but says official “acknowledged his mistake" and apologized for the incident.`\
 https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who-asked-lionel-messi-for-his-jersey-after-match/
-
-**Fani Willis assails the Justice Department over its handling of the case against Eric Adams.**\
-`By Danny Hakim`\
-https://nytimes.com/live/2025/02/20/us/donald-trump-news/fani-willis-assails-the-justice-department-over-its-handling-of-the-case-against-eric-adams
 

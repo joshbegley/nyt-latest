@@ -1,3 +1,7 @@
+**Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
+`The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
+https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html
+
 **Trump Marks Black History Month, Even as He Slams the Value of Diversity**\
 `President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as he has eviscerated federal programs aimed at combating inequality in America.`\
 https://nytimes.com/2025/02/20/us/politics/trump-black-history-month-dei-tiger-woods.html
