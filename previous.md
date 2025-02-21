@@ -1,40 +1,40 @@
-**After Netflix Success, ‘Suits’ Opens Another Firm**\
-`The creator of the legal drama didn’t expect to make any more spinoffs. But after “Suits” became a rerun hit on Netflix, “Suits LA” was born.`\
-https://nytimes.com/2025/02/21/arts/television/suits-la.html
+**Rams mock draft 1.0: Setting aside the Matthew Stafford situation and hitting needs first**\
+`Will the Rams target left tackle in Round 1 if they need one? What pass-catcher options out there could fit well with Sean McVay's offense?`\
+https://nytimes.com/athletic/6150247/2025/02/21/rams-mock-draft-left-tackle-tight-end/
 
-**I Bought a House. I Got a Neighborhood.**\
-`Sometimes when you’re looking for a refuge, what you really need is a community.`\
-https://nytimes.com/2025/02/21/well/live/new-to-neighborhood.html
+**The House Wants to Pass Trump’s Agenda in One Big Bill. Here’s What’s in It.**\
+`The G.O.P. bill would extend tax cuts and almost certainly make big reductions to programs serving the poor. Passing it may be hard, though.`\
+https://nytimes.com/interactive/2025/02/21/upshot/house-gop-budget-blueprint.html
 
-**Reeling Texas Democrats Get a Rare Sight: Their National Chair**\
-`Though victory in the state feels farther away than ever, some Democrats, including their new leader, say Texas could still be a key part of their party’s future.`\
-https://nytimes.com/2025/02/21/us/democrats-texas.html
+**6 Things E.R. Doctors Wish You’d Avoid**\
+`We asked emergency physicians what lessons they’d learned from their job.`\
+https://nytimes.com/2025/02/21/well/er-doctors-t.html
 
-**Like Us, Theo James Is Freaked Out by the Toy in ‘The Monkey’**\
-`The actor discusses playing twins in Osgood Perkins’s horror film, finding humor in dark situations and why that monkey is so, so creepy.`\
-https://nytimes.com/2025/02/21/movies/theo-james-interview-the-monkey.html
+**Here Are the Digital Clues to What Musk Is Really Up To**\
+`What will DOGE do with access to personal data on almost all Americans?`\
+https://nytimes.com/2025/02/21/opinion/musk-doge-personal-data.html
 
-**The Artists Finding New Ways to Depict the Human Body**\
-`At a time of increasing anxiety about physical anatomy, figurative sculptors are breathing new life into one of the world’s oldest media.`\
-https://nytimes.com/2025/02/21/t-magazine/contemporary-body-figurative-sculpture.html
+**The New York Times News Quiz, Feb. 21, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/02/21/briefing/trump-asap-rocky-delta-plane-crash.html
 
-**Why Children Love Edward Gorey: A Centenary Tribute**\
-`He made the uncanny cool for a kid like me, whose dollhouse contained a miniature Ouija board in the child’s room and a ghost made of Kleenex and cotton balls in the attic.`\
-https://nytimes.com/2025/02/21/books/review/edward-gorey-children.html
+**Watch Austin Butler in Battle in ‘Dune: Part Two’**\
+`The director Denis Villeneuve narrates a sequence from his film, which is nominated for five Academy Awards, including best picture.`\
+https://nytimes.com/2025/02/21/movies/dune-part-two-clip.html
 
-**This Spring, Try Monochromatic Dressing**\
-`With floor-sweeping hems and bold colors, this season’s fashion isn’t messing around.`\
-https://nytimes.com/2025/02/21/t-magazine/monochrome-spring-fashion.html
+**‘Still Laughing, Years Later’: ‘S.N.L.’ Lines Readers Love**\
+`Hundreds of you told us about your favorite “Saturday Night Live” catchphrases. Here are the 10 that came up the most.`\
+https://nytimes.com/2025/02/21/arts/television/saturday-night-live-quotes-readers.html
 
-**The Showgirl Must Go on**\
-`Gypsy Wood, a dancer and cabaret artist, is more than at home on the stage. But it was her Las Vegas ranch house that landed a big role in the film, “The Last Showgirl.”`\
-https://nytimes.com/2025/02/21/realestate/showgirl-movie-las-vegas-house.html
+**‘​The World Is There for the Carving’: Two Columnists on the Trump-Putin Alliance**\
+`We’ve never seen anything like this: a president who appears aligned with a Russian dictator in targeting the weak and the vulnerable.`\
+https://nytimes.com/2025/02/21/opinion/trump-putin-ukraine.html
 
-**How to watch Timberwolves at Rockets, as Anthony Edwards faces Houston's tough defense**\
-`Friday's national TV look between Minnesota and Houston features two stout (if inconsistent) playoff hopefuls out West.`\
-https://nytimes.com/athletic/6146421/2025/02/21/timberwolves-rockets-how-to-watch-preview-anthony-edwards-fred-vanvleet/
+**Bernie Sanders Isn’t Giving Up His Fight**\
+`The senator worries that too many Democrats remain reluctant to shake up the system. But he does not regret defending Joseph R. Biden Jr. until the very end.`\
+https://nytimes.com/2025/02/21/us/politics/bernie-sanders-iowa-trump.html
 
-**These Actors Made Broadway Debuts as Children. Now They’re Back.**\
-`Nick Jonas, Sadie Sink and Christian Slater are among this year’s unusually large cohort of stars who first appeared onstage as tweens or even younger.`\
-https://nytimes.com/2025/02/21/theater/broadway-children-nick-jonas-sadie-sink.html
+**Neko Case, Illuminated**\
+`A playlist to accompany her revealing memoir.`\
+https://nytimes.com/2025/02/21/podcasts/neko-case-illuminated.html
 
