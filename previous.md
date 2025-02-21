@@ -1,3 +1,11 @@
+**Former Sheriff’s Deputy Is Convicted in Killing of Colorado Man**\
+`Andrew Buen was found guilty of criminally negligent homicide in the 2022 killing of Christian Glass, who was experiencing a mental health crisis on a mountain road.`\
+https://nytimes.com/2025/02/20/us/colorado-deputy-christian-glass-shooting.html
+
+**Corrections: Feb. 21, 2025**\
+`Corrections that appeared in print on Friday, Feb. 21, 2025.`\
+https://nytimes.com/2025/02/20/pageoneplus/corrections-feb-21-2025.html
+
 **Trump Marks Black History Month, Even as He Slams the Value of Diversity**\
 `President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as has eviscerated federal programs aimed at combating inequality in America.`\
 https://nytimes.com/2025/02/20/us/politics/trump-black-history-month-dei-tiger-woods.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who
 **Fani Willis assails the Justice Department over its handling of the case against Eric Adams.**\
 `By Danny Hakim`\
 https://nytimes.com/live/2025/02/20/us/donald-trump-news/fani-willis-assails-the-justice-department-over-its-handling-of-the-case-against-eric-adams
-
-**U.S.'s Kyle Connor, Canada's Josh Morrissey out for 4 Nations final — Chris Kreider, Thomas Harley in**\
-`The Jets teammates Connor and Morrissey were scratched in favor of the Rangers' Kreider and the Stars' Harley.`\
-https://nytimes.com/athletic/6150324/2025/02/20/4-nations-final-scratches-usa-canada/
-
-**2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
-`Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
-https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
