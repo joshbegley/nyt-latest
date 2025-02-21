@@ -1,3 +1,7 @@
+**Do Elon Musk and His Father Get Along?**\
+`Errol Musk questioned his son’s parenting ability on a podcast, but said that his comments had been taken out of context and that they were on good terms.`\
+https://nytimes.com/2025/02/21/style/elon-musk-father-errol-comments.html
+
 **Confusion abounds at the National Park Service, which is hiring, after firing.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/02/21/us/trump-news/confusion-abounds-at-the-national-park-service-which-is-hiring-after-firing
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/migrants-military-sites.html
 **Los Angeles Mayor Removes Fire Chief, Blaming Her for Lack of Preparation**\
 `Mayor Karen Bass criticized Kristin Crowley for sending firefighters home before a blaze devastated the Pacific Palisades neighborhood.`\
 https://nytimes.com/2025/02/21/us/los-angeles-fire-chief-removed.html
-
-**Judge Extends Block on N.I.H. Medical Research Cuts**\
-`A federal judge in Massachusetts indicated she would move quickly to consider a more lasting injunction after hearing a laundry list of potential adverse effects of the Trump administration move to cut billions in funding.`\
-https://nytimes.com/2025/02/21/us/politics/judge-nih-medical-research-cuts-universities.html
 

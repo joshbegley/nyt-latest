@@ -1,3 +1,7 @@
+**Do Elon Musk and His Father Get Along?**\
+`Errol Musk questioned his son’s parenting ability on a podcast, but said that his comments had been taken out of context and that they were on good terms.`\
+https://nytimes.com/2025/02/21/style/elon-musk-father-errol-comments.html
+
 **Confusion abounds at the National Park Service, which is hiring, after firing.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/02/21/us/trump-news/confusion-abounds-at-the-national-park-service-which-is-hiring-after-firing
