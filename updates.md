@@ -1,3 +1,7 @@
+**Two Concerts Reveal the Limits of a Pianist’s Broad Repertoire**\
+`Performing in New York, Seong-Jin Cho presented a marathon survey of Ravel’s solo piano works and appeared in Prokofiev’s Second Piano Concerto.`\
+https://nytimes.com/2025/02/21/arts/music/seong-jin-cho-piano.html
+
 **2025 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
 `Jake Ciely provides his customizable 2025 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
 https://nytimes.com/athletic/6119696/2025/02/21/2025-fantasy-baseball-cheat-sheet-customizable-rankings-and-projections-tool/
