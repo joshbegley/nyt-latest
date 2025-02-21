@@ -1,3 +1,11 @@
+**William R. Lucas, Official Blamed in Challenger Tragedy, Dies at 102**\
+`The strong-willed director of NASA’s Marshall Space Flight Center, he failed to pass on warnings from engineers that the space shuttle launch was at risk.`\
+https://nytimes.com/2025/02/21/us/william-r-lucas-dead.html
+
+**Firings Squeeze National Parks: ‘You Won’t Have the Full Experience’**\
+`With 1,000 full-time employees out, and the fate of thousands more seasonal workers unclear, tours are being canceled and some wonder who will empty the trash.`\
+https://nytimes.com/2025/02/21/travel/national-park-service-firings.html
+
 **Judge Defers Ruling in Adams Case, Appointing Lawyer to Guide Decision**\
 `Judge Dale E. Ho said that with Eric Adams’s lawyer and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
 https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html

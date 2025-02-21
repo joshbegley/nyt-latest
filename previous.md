@@ -1,3 +1,11 @@
+**William R. Lucas, Official Blamed in Challenger Tragedy, Dies at 102**\
+`The strong-willed director of NASA’s Marshall Space Flight Center, he failed to pass on warnings from engineers that the space shuttle launch was at risk.`\
+https://nytimes.com/2025/02/21/us/william-r-lucas-dead.html
+
+**Firings Squeeze National Parks: ‘You Won’t Have the Full Experience’**\
+`With 1,000 full-time employees out, and the fate of thousands more seasonal workers unclear, tours are being canceled and some wonder who will empty the trash.`\
+https://nytimes.com/2025/02/21/travel/national-park-service-firings.html
+
 **Olga James, a Star of ‘Carmen Jones’ and ‘Mr. Wonderful,’ Dies at 95**\
 `An operatic soprano, she had high-profile roles on film and stage in the 1950s. But after that, she mostly spent her career away from the limelight.`\
 https://nytimes.com/2025/02/21/arts/music/olga-james-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/arts/music/jerry-butler-dead.html
 **Supreme Court Rejects Holocaust Survivors’ Suit Against Hungary**\
 `The justices unanimously ruled that the plaintiffs had not established a connection to the United States required by the Foreign Sovereign Immunities Act.`\
 https://nytimes.com/2025/02/21/us/politics/scotus-holocaust-survivors-hungary.html
-
-**Who Comes After Trump? As Vance Establishes Himself, the Right Cheers.**\
-`The Conservative Political Action Conference this week was abuzz with talk about President Trump’s Republican heir. And much of that centered on JD Vance.`\
-https://nytimes.com/2025/02/21/us/politics/trump-successor-jd-vance-republicans.html
-
-**Judge Defers Ruling in Adams Case, Appointing Lawyer to Guide Decision**\
-`Judge Dale E. Ho said that with Eric Adams’s lawyer and federal prosecutors agreeing to end the case, he needed to hear independent arguments.`\
-https://nytimes.com/2025/02/21/nyregion/adams-corruption-judge-independent-lawyer.html
 
