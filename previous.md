@@ -1,41 +1,40 @@
-**'You can't write it better': McDavid opens next chapter for Team Canada**\
-`McDavid's winner Thursday night appropriately evoked memories of Sidney Crosby's Golden Goal.`\
-https://nytimes.com/athletic/6150720/2025/02/21/connor-mcdavid-canada-4-nations-face-off-usa/
+**The Athletic’s Friday football quiz question #43**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6149562/2025/02/21/the-athletics-friday-football-quiz-question-43/
 
-**The Pulse: Of course it went to overtime**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6149305/2025/02/21/canada-usa-overtime-mcdavid-4-nations-the-pulse/
+**Mavericks made Anthony Davis trade to go big. Injuries have forced them to go small**\
+`The Mavericks will be without their top three big men for the next seven games. The team has pivoted by playing small-ball lineups.`\
+https://nytimes.com/athletic/6149968/2025/02/21/mavericks-anthony-davis-trade-nba-luka/
 
-**Chinese Warships’ Plan for Live Fire Drills Unnerves Australia and New Zealand**\
-`The vessels were sailing in the Tasman Sea, and their announced intent to perform exercises prompted a call for commercial flights to divert course.`\
-https://nytimes.com/2025/02/21/world/australia/chinese-warships-drills-new-zealand.html
+**Giants notes: Justin Verlander gets a birthday serenade but Keaton Winn's gift can't be topped**\
+`Winn threw to hitters on Thursday. It was his first time facing batters since landing on the IL last June.`\
+https://nytimes.com/athletic/6150261/2025/02/21/sf-giants-keaton-winn-injury-return/
 
-**Premier League accumulator tips: The best bets to add to your treble**\
-`Sam Tighe offers his betting insights on which bets to add to your accumulator ahead of this weekend’s Premier League action. 
-`\
-https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
+**Rosenthal: At 42, Justin Verlander is still striving for greatness, not just longevity**\
+`The three-time Cy Young winner has already been calling his shots on pitches in his first week of camp with the Giants.`\
+https://nytimes.com/athletic/6150229/2025/02/21/justin-verlander-giants-pitching/
 
-**Maresca welcomes Chelsea backing**\
-`Maresca said on Friday he is 'not here to survive' but to 'win games and to fight for titles'.`\
-https://nytimes.com/athletic/6150865/2025/02/21/enzo-maresca-chelsea-ambition/
+**An MLS XI of intrigue: Players with much to gain in 2025**\
+`We look at some of the players who merit the most attention this season include World Cup hopefuls, rising stars and reclamation projects`\
+https://nytimes.com/athletic/6149569/2025/02/21/mls-players-watch-2025-zaha-campana-luna/
 
-**Bears combine mailbag: Is Trey Smith worth the contract? Will Campbell or Mason Graham?**\
-`The Bears enter the NFL combine with plenty of cap space and draft capital. Discussing their options in a pre-combine mailbag.`\
-https://nytimes.com/athletic/6149236/2025/02/21/bears-mailbag-trey-smith-nfl-combine/
+**Why Raiders GM John Spytek and his wife are fighting for CMV awareness**\
+`The Spyteks daughter, Evelyn, was diagnosed at birth with CMV and died in 2014 at 21 months old.`\
+https://nytimes.com/athletic/6146815/2025/02/21/raiders-john-spytek-cmv-awareness-foundation/
 
-**D.J. Humphries wants to prove he can be the Chiefs’ solution at left tackle**\
-`A hamstring injury limited Humphries to four games in 2024 after he joined the Chiefs in November. He's eager for a do-over in 2025.`\
-https://nytimes.com/athletic/6149633/2025/02/21/chiefs-dj-humphries-left-tackle/
+**Andrew Painter's 2-year rehab changed the Phillies prospect as a person and pitcher**\
+`The time away from actual competition has made Painter even more curious about the why. Now, he can slow everything down. `\
+https://nytimes.com/athletic/6149701/2025/02/21/andrew-painter-rehab-phillies-prospect/
 
-**The 'Euro stop' is sweeping through the NBA thanks to ... Nemanja Bjelica?**\
-`Yes, it's an unlikely origin, but every trend starts somewhere, and this one is all the rage across the league.`\
-https://nytimes.com/athletic/6142509/2025/02/21/nba-euro-stop-harrison-barnes-anthony-edwards/
+**Would more CFP auto-bids mean less selection committee? Big Ten, SEC seem to hope so**\
+`The subjectivity baked into the process of determining a national champ, a longstanding tradition in the sport, is maddening and alluring.`\
+https://nytimes.com/athletic/6150006/2025/02/21/college-football-playoff-selection-committee-format/
 
-**For Clara Tauson's tennis progress, less is more**\
-`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
-https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
+**Analysis: Mets don't plan to add to rotation after Frankie Montas injury. But should they?**\
+`The Mets boast enough starting pitchers to absorb Montas’ injury, but several of them are question marks heading into the season.`\
+https://nytimes.com/athletic/6150357/2025/02/21/mets-rotation-frankie-montas-injury/
 
-**'That's the big one': Team USA, stung by 4 Nations loss, draws inspiration from Olympics**\
-`The Americans recognized the opportunity they lost at the 4 Nations Face-Off, but will be strong next year in Italy.`\
-https://nytimes.com/athletic/6150672/2025/02/21/usa-canada-olympics-4-nations/
+**To lead Louisville, Chucky Hepburn had to face the losses that fueled him**\
+`Hepburn's reckoning with the string of off-the-court tragedies that hung over his on-court breakout helped him set a new tone at Louisville.`\
+https://nytimes.com/athletic/6134209/2025/02/21/chucky-hepburn-louisville-basketball/
 
