@@ -1,3 +1,11 @@
+**Mark Williams, agent dispute Lakers' decision to fail his physical**\
+`The Lakers rescinded their trade with the Hornets for Williams earlier this month.`\
+https://nytimes.com/athletic/6151255/2025/02/21/mark-williams-failed-physical-lakers/
+
+**Steiner, Haas legal case dismissed after parties reach agreement in mediation**\
+`Steiner, 59, had filed a lawsuit against his former F1 team over alleged unpaid commissions and unauthorized use of his name and likeness.`\
+https://nytimes.com/athletic/6151374/2025/02/21/guenther-steiner-haas-lawsuit-f1/
+
 **Two Concerts Reveal the Limits of a Pianist’s Broad Repertoire**\
 `Performing in New York, Seong-Jin Cho presented a marathon survey of Ravel’s solo piano works and appeared in Prokofiev’s Second Piano Concerto.`\
 https://nytimes.com/2025/02/21/arts/music/seong-jin-cho-piano.html
