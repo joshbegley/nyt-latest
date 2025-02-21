@@ -1,3 +1,11 @@
+**Los Angeles Mayor Removes Fire Chief, Blaming Her for Lack of Preparation**\
+`Mayor Karen Bass criticized Kristin Crowley for sending firefighters home before a blaze devastated the Pacific Palisades neighborhood.`\
+https://nytimes.com/2025/02/21/us/los-angeles-fire-chief-removed.html
+
+**Judge Extends Block on N.I.H. Medical Research Cuts**\
+`A federal judge in Massachusetts indicated she would move quickly to consider a more lasting injunction after hearing a laundry list of potential adverse effects of the Trump administration move to cut billions in funding.`\
+https://nytimes.com/2025/02/21/us/politics/judge-nih-medical-research-cuts-universities.html
+
 **New York Pulls Funds for 2 Yeshivas That Fail to Offer Secular Education**\
 `The decision is the first time that the State Department of Education has withheld money from private Hasidic schools for not teaching sufficient math and English skills.`\
 https://nytimes.com/2025/02/21/nyregion/hasidic-yeshiva-education-closure.html
