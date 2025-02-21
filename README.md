@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
 `President Trump referring to himself as a king “is the thing presidents are not supposed to do,” Colbert said on Thursday.`\
 https://nytimes.com/2025/02/21/arts/television/stephen-colbert-trump-doge.html
 
-**Whatever Happens Next, Germany Is in Big Trouble**\
+**Germany Is in Big Trouble, and Nobody Knows What to Do About It**\
 `Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
 https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
 
