@@ -1,3 +1,7 @@
+**Maresca welcomes Chelsea backing**\
+`Maresca said on Friday he is 'not here to survive' but to 'win games and to fight for titles'.`\
+https://nytimes.com/athletic/6150865/2025/02/21/enzo-maresca-chelsea-ambition/
+
 **Bears combine mailbag: Is Trey Smith worth the contract? Will Campbell or Mason Graham?**\
 `The Bears enter the NFL combine with plenty of cap space and draft capital. Discussing their options in a pre-combine mailbag.`\
 https://nytimes.com/athletic/6149236/2025/02/21/bears-mailbag-trey-smith-nfl-combine/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6149633/2025/02/21/chiefs-dj-humphries-left-tackle/
 **The 'Euro stop' is sweeping through the NBA thanks to ... Nemanja Bjelica?**\
 `Yes, it's an unlikely origin, but every trend starts somewhere, and this one is all the rage across the league.`\
 https://nytimes.com/athletic/6142509/2025/02/21/nba-euro-stop-harrison-barnes-anthony-edwards/
+
+**For Clara Tauson's tennis progress, less is more**\
+`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
+https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
 
 **'That's the big one': Team USA, stung by 4 Nations loss, draws inspiration from Olympics**\
 `The Americans recognized the opportunity they lost at the 4 Nations Face-Off, but will be strong next year in Italy.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6150398/2025/02/21/this-week-in-sports-trivia-feb-2
 **Jordan Binnington quiets doubters with all-time overtime performance for Canada**\
 `Binnington saved the game multiple times in overtime for Canada, and at the same time quieted the concern over the country's goaltending.`\
 https://nytimes.com/athletic/6150690/2025/02/21/jordan-binnington-4-nations-face-off-canada-usa/
-
-**Tkachuk brothers, with their 'insatiable appetite to win,' will remain the heartbeats of Team USA**\
-`In the 4 Nations Face-Off, Brady Tkachuk stepped out of his brother’s shadow as one of Team USA's best forwards.`\
-https://nytimes.com/athletic/6150695/2025/02/21/brady-matthew-tkachuk-usa-olympics/
-
-**Trump 2.0: Rewriting Histories**\
-`How is Trump rewriting history from who is responsible for the Ukraine war, to upending our understanding of the Constitution with his executive orders on independent agencies and finally, to what moving the Kennedy Center under his supervision means culturally.`\
-https://nytimes.com/video/podcasts/the-daily/100000010002060/trump-2-0-rewriting-histories.html
 
