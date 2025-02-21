@@ -1,3 +1,7 @@
+**Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
+`The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at an arts conference and stabbed the famed author about 15 times.`\
+https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
+
 **Under Government Pressure, Apple Pulls Security Feature in Britain**\
 `Law enforcement in the country was pressuring the company to create a tool that would act like a back door into customers’ data.`\
 https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
