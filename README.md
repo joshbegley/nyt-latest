@@ -7,7 +7,7 @@ https://nytimes.com/2025/02/20/us/colorado-deputy-christian-glass-shooting.html
 https://nytimes.com/2025/02/20/pageoneplus/corrections-feb-21-2025.html
 
 **Trump Marks Black History Month, Even as He Slams the Value of Diversity**\
-`President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as has eviscerated federal programs aimed at combating inequality in America.`\
+`President Trump arrived at a packed White House celebration alongside Tiger Woods to a roaring crowd. The event came as he has eviscerated federal programs aimed at combating inequality in America.`\
 https://nytimes.com/2025/02/20/us/politics/trump-black-history-month-dei-tiger-woods.html
 
 **Musk and His Millions Enter Wisconsin Supreme Court Race**\
