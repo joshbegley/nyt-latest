@@ -1,3 +1,15 @@
+**Row Z: Ronaldo's outlook on MLS' quality and Chelsea defender shines (but not for them)**\
+`Tim Spiers takes his weekly look at the sillier side of football...`\
+https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-renato-veiga/
+
+**Hamas Failed to Return the Body of One Hostage. What Now?**\
+`The Palestinian armed group said it had handed over the remains of Shiri Bibas along with her two young children and another man. Israel said forensic testing found that it wasn’t her.`\
+https://nytimes.com/2025/02/21/world/middleeast/israel-hamas-shiri-bibas.html
+
+**Pondering the Trump Effect**\
+`The president has moved swiftly to remake Washington. But for business leaders, that volatility has often been hard to navigate.`\
+https://nytimes.com/2025/02/21/business/dealbook/trump-effect-first-month.html
+
 **Reds roster projection 2.0: What the Reds roster looks like entering the Cactus League**\
 `The start of Cactus League games is the next big signifier that baseball season is coming.`\
 https://nytimes.com/athletic/6149981/2025/02/21/reds-2025-roster-projection-2-0/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6146782/2025/02/21/tyler-herro-bam-adebayo-erik-spo
 **Court Vision: College basketball coaches with the hottest seats? A Final Four dark horse**\
 `There's a long list of ACC coaches who may not return. Plus, what to make of Duke-Illinois in Madison Square Garden, in February? `\
 https://nytimes.com/athletic/6150173/2025/02/21/college-basketball-coaches-hot-seats/
-
-**How the Pistons can reach the postseason for the first time since 2019**\
-`Detroit has a winning record in February for the first time since 2018. How can the Pistons earn their first playoff bid since 2019?`\
-https://nytimes.com/athletic/6128095/2025/02/21/pistons-postseason-cade-cunningham-nba/
-
-**Predicting the Big Ten's 2025 Friday night schedule**\
-`The Big Ten wants to put a game on every Friday of football season. Here’s an attempt to project which 2025 games could make the move.`\
-https://nytimes.com/athletic/6143921/2025/02/21/big-ten-football-schedule-friday-night-games/
-
-**Seth Jones trade watch: Tiering potential destinations for the Blackhawks' defenseman**\
-`Going through every team in the playoff hunt to explore the realistic options for where the 30-year-old defenseman could end up.`\
-https://nytimes.com/athletic/6150366/2025/02/21/seth-jones-blackhawks-nhl-trade-destinations/
 
