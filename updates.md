@@ -1,3 +1,7 @@
+**Hamas Failed to Return the Body of a Hostage. What Now?**\
+`The Palestinian armed group said it had handed over the remains of Shiri Bibas along with her two young children and another man. Israel said forensic testing found that it wasn’t her.`\
+https://nytimes.com/2025/02/21/world/middleeast/israel-hamas-shiri-bibas.html
+
 **Row Z: Ronaldo's outlook on MLS' quality and Chelsea defender shines (but not for them)**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-renato-veiga/

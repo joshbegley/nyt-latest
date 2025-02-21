@@ -1,3 +1,7 @@
+**The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
+`Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
+https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
+
 **Row Z: Ronaldo's outlook on MLS' quality and Chelsea defender shines (but not for them)**\
 `Tim Spiers takes his weekly look at the sillier side of football...`\
 https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-renato-veiga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149700/2025/02/21/islanders-mailbag-lamoriello-lee
 **Heat Today: Led by Tyler Herro, Bam Adebayo, Heat eye stretch run: 'We’re trying to put it together'**\
 `The Heat return from All-Star break with their sights set on making a playoff push to cap a challenging season.`\
 https://nytimes.com/athletic/6146782/2025/02/21/tyler-herro-bam-adebayo-erik-spoelstra-heat-nba/
-
-**Court Vision: College basketball coaches with the hottest seats? A Final Four dark horse**\
-`There's a long list of ACC coaches who may not return. Plus, what to make of Duke-Illinois in Madison Square Garden, in February? `\
-https://nytimes.com/athletic/6150173/2025/02/21/college-basketball-coaches-hot-seats/
 
