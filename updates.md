@@ -1,3 +1,19 @@
+**Trump Plans to Use Military Bases to Detain Migrants**\
+`Also, archaeologists found a pharaoh’s tomb. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/02/21/briefing/trump-military-base-migrants-yankees-beards.html
+
+**The Election Just Ended and We Already Have a New Michael Wolff Book**\
+`In “All or Nothing,” the Trump biographer shows that he is his favorite subject’s perfect twin.`\
+https://nytimes.com/2025/02/21/books/review/all-or-nothing-michael-wolff.html
+
+**Canada lands a forward on the rise – one with significant Promise**\
+`Promise David is a breakout star in Belgium, and he's the latest addition to a Canada men's national team that's thinking big.`\
+https://nytimes.com/athletic/6152079/2025/02/21/promise-david-canada-nigeria-marsch/
+
+**Antonio recovery after car accident 'moving in right direction' - Potter**\
+`The 34-year-old striker had surgery on a lower limb fracture in December.`\
+https://nytimes.com/athletic/6151693/2025/02/21/michail-antonio-recovery-update/
+
 **Canada lands a forward on the rise – one with significant Promise**\
 `Promise David is a breakout star in Belgium, and he's the latest addition to a Canada men's national team on the rise.`\
 https://nytimes.com/athletic/6152079/2025/02/21/promise-david-canada-nigeria-marsch/
