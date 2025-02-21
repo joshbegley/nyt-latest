@@ -1,3 +1,15 @@
+**Ref who asked Lionel Messi for his jersey disciplined by CONCACAF**\
+`Statement from CONCACAF does not detail any punishment, but says official “acknowledged his mistake" and apologized for the incident.`\
+https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who-asked-lionel-messi-for-his-jersey-after-match/
+
+**Fani Willis assails the Justice Department over its handling of the case against Eric Adams.**\
+`By Danny Hakim`\
+https://nytimes.com/live/2025/02/20/us/donald-trump-news/fani-willis-assails-the-justice-department-over-its-handling-of-the-case-against-eric-adams
+
+**U.S.'s Kyle Connor, Canada's Josh Morrissey out for 4 Nations final — Chris Kreider, Thomas Harley in**\
+`The Jets teammates Connor and Morrissey were scratched in favor of the Rangers' Kreider and the Stars' Harley.`\
+https://nytimes.com/athletic/6150324/2025/02/20/4-nations-final-scratches-usa-canada/
+
 **2024-25 MLB Top 40 Free Agent Big Board: Pete Alonso returns to Mets, Alex Bregman goes to Red Sox**\
 `Analysis, best fits, and contract projections on a strong class that includes Pete Alonso and Alex Bregman.`\
 https://nytimes.com/athletic/5891633/2025/02/20/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6149815/2025/02/20/yankees-aaron-boone-extension-aa
 **A New Look at the History of ‘S.N.L.’**\
 `Photos, scripts, hate mail and other artifacts donated by Lorne Michaels trace the show’s path from idea to institution.`\
 https://nytimes.com/interactive/2025/02/20/arts/television/snl-lorne-michaels-archives.html
-
-**Dodgers' Bobby Miller in concussion protocol after being struck in head by line drive**\
-`Roberts said Miller has not yet gone for scans beyond the team medical staff’s initial evaluation.`\
-https://nytimes.com/athletic/6150139/2025/02/20/dodgers-bobby-miller-concussion-protocol-struck-in-head/
-
-**Are Birkenstocks a Work of Art? A German Court Says No.**\
-`The famous sandal company lost a battle over copyright law, leaving room for imitations to spawn.`\
-https://nytimes.com/2025/02/20/style/birkenstock-copyright-law-german-court.html
-
-**Cubs pitcher wins first ABS challenge in spring training game**\
-`Cody Poteet challenged a called ball to Max Muncy. Upon further review, the pitch was ruled a strike.`\
-https://nytimes.com/athletic/6150076/2025/02/20/robot-umps-abs-successful-challenge-cubs-dodgers/
 
