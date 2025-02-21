@@ -1,3 +1,7 @@
+**Chelsea's Madueke out until after international break**\
+`Madueke, 22, sustained the injury during last Friday's 3-0 loss at Brighton and is in line to miss Chelsea's next six fixtures.`\
+https://nytimes.com/athletic/6149175/2025/02/21/noni-madueke-hamstring-injury-chelsea/
+
 **For Clara Tauson's tennis progress, less is more**\
 `Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
 https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
