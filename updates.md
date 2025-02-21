@@ -1,3 +1,11 @@
+**What we're seeing at Astros spring training as Grapefruit League games begin**\
+`Jose Altuve is embracing his new left-field experiment, but does he have the arm for it?`\
+https://nytimes.com/athletic/6151980/2025/02/21/astros-spring-training-jose-altuve-left-field/
+
+**Braves' Spencer Strider takes next step toward return, feels energized by it**\
+`Strider vowed to keep his curveball amid fan speculation that it caused his injury: "Those people, kindly, don't have all the information." `\
+https://nytimes.com/athletic/6151923/2025/02/21/braves-spencer-strider-injury-2/
+
 **Medicaid Cuts Pose Budget Conundrum for Valadao and Republicans Nationwide**\
 `For Representative David Valadao of California and other Republicans whose constituents depend on Medicaid, a vote for their party’s budget could be politically fatal. President Trump’s agenda hangs in the balance.`\
 https://nytimes.com/2025/02/21/us/politics/medicaid-republicans-budget.html
