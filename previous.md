@@ -1,3 +1,7 @@
+**In Berlin, Anxious Movies for Dark Times**\
+`At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
+https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
+
 **Rubiales has appeal against three-year football ban dismissed by CAS**\
 `FIFA imposed the ban on Rubiales in October 2023 following incidents at the Women’s World Cup final.`\
 https://nytimes.com/athletic/6151514/2025/02/21/luis-rubiales-football-suspension-fifa/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6151514/2025/02/21/luis-rubiales-football-suspensio
 `Trocheck played 10:03 in the OT loss to Canada on Thursday. Only Rangers teammate Chris Kreider played less among the U.S. players.`\
 https://nytimes.com/athletic/6151452/2025/02/21/vincent-trocheck-broken-finger-rangers-4-nations/
 
-**F.D.A. Staffed Up to Review A.I. and Food Safety. Those Hires Are Now Gone.**\
-`Teams evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
+**F.D.A. Firings Decimated Teams Reviewing A.I. and Food Safety**\
+`Staff units evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
 https://nytimes.com/2025/02/21/health/fda-trump-layoffs-device-and-food-safety.html
 
 **Celebrating 100 Years of Edward Gorey**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150980/2025/02/21/rangers-takeover-san-francisco-4
 **How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
 `Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
 https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
-
-**NBA trends I'm watching: Shooting, shooting and more shooting**\
-`A three-time MVP is even better from long range than you might think, and Orlando can't buy a bucket.`\
-https://nytimes.com/athletic/6151195/2025/02/21/nikola-jokic-shooting-magic-nba-trends/
 

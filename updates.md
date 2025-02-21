@@ -1,3 +1,11 @@
+**In Berlin, Anxious Movies for Dark Times**\
+`At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
+https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
+
+**F.D.A. Firings Decimated Teams Reviewing A.I. and Food Safety**\
+`Staff units evaluating high-tech surgical robots and insulin-delivery systems were gutted by Trump layoffs even though industry fees, not taxpayers, financed the employee salaries.`\
+https://nytimes.com/2025/02/21/health/fda-trump-layoffs-device-and-food-safety.html
+
 **Rubiales has appeal against three-year football ban dismissed by CAS**\
 `FIFA imposed the ban on Rubiales in October 2023 following incidents at the Women’s World Cup final.`\
 https://nytimes.com/athletic/6151514/2025/02/21/luis-rubiales-football-suspension-fifa/
