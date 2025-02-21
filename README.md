@@ -1,7 +1,3 @@
-**Bills mock offseason: A blockbuster trade, a free-agency splash and the draft**\
-`The championship window is wide open for the Bills and that will impact their offseason moves.`\
-https://nytimes.com/athletic/6149415/2025/02/21/bills-2025-mock-offseason-free-agent/
-
 **Egon Schiele Watercolor, Said to Be Nazi-Looted, Set for Auction**\
 `Christie’s, which values the work at more than $1 million, said the proceeds from any sale would be shared with the heirs of an art collector killed in a concentration camp.`\
 https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-christies-auction.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/21/weather/oregon-washington-rain-snow-forecast.html
 **Tottenham are asking not to be called Tottenham**\
 `An email sent to broadcasters, seen by The Athletic, reveals the club 'have requested that they are not referred to as Tottenham'`\
 https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
+
+**49ers Enterprises set to buy majority stake in Scottish soccer club Rangers**\
+`The 49ers Enterprises is looking to sell a 10 per cent stake in the NFL franchise and is scouting to invest in sporting opportunites.`\
+https://nytimes.com/athletic/6150980/2025/02/21/rangers-takeover-san-francisco-49ers/
 
