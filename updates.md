@@ -1,3 +1,7 @@
+**Saint Mary's sports the look of a March Madness Cinderella in the making**\
+`Can Saint Mary's make a deep run during this year's NCAA Tournament? You bet. `\
+https://nytimes.com/athletic/6149698/2025/02/21/saint-marys-march-madness-tournament-2025-cinderalla/
+
 **How the Bucks plan to move forward after Bobby Portis' 25-game suspension**\
 `Portis is one of the league's top bench producers, and he adds even more intangibles. Milwaukee will need other players to step up.`\
 https://nytimes.com/athletic/6148955/2025/02/21/bobby-portis-suspension-bucks-how-to-fill-in-for-bobby-portis-plan/
