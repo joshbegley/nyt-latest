@@ -1,3 +1,7 @@
+**Egon Schiele Watercolor, Said to Be Nazi-Looted, Set for Auction**\
+`Christie’s, which values the work at more than $1 million, said the proceeds from any sale would be shared with the heirs of an art collector killed in a concentration camp.`\
+https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-christies-auction.html
+
 **In Berlin, Anxious Movies for Dark Times**\
 `At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
 https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
