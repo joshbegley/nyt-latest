@@ -1,3 +1,7 @@
+**Germany’s Economy Was Once the Envy of Europe. Not Anymore**\
+`Metrics reveal an economy sliding backward. It will be one of the biggest issues in the election set for Sunday.`\
+https://nytimes.com/interactive/2025/02/21/world/europe/germany-economy-election.html
+
 **Rams mock draft 1.0: Setting aside the Matthew Stafford situation and hitting needs first**\
 `Will the Rams target left tackle in Round 1 if they need one? What pass-catcher options out there could fit well with Sean McVay's offense?`\
 https://nytimes.com/athletic/6150247/2025/02/21/rams-mock-draft-left-tackle-tight-end/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/opinion/trump-putin-ukraine.html
 **Bernie Sanders Isn’t Giving Up His Fight**\
 `The senator worries that too many Democrats remain reluctant to shake up the system. But he does not regret defending Joseph R. Biden Jr. until the very end.`\
 https://nytimes.com/2025/02/21/us/politics/bernie-sanders-iowa-trump.html
-
-**Neko Case, Illuminated**\
-`A playlist to accompany her revealing memoir.`\
-https://nytimes.com/2025/02/21/podcasts/neko-case-illuminated.html
 
