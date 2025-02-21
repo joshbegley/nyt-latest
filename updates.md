@@ -1,3 +1,7 @@
+**Whatever Happens Next, Germany Is in Big Trouble**\
+`Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
+https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
+
 **Trump Names ‘Pardon Czar’ to Advise on Clemency**\
 `President Trump commuted Alice Johnson’s life sentence during his first term, and later pardoned her for her drug conviction. She will advise him on similar cases.`\
 https://nytimes.com/2025/02/20/us/politics/trump-pardon-czar-johnson.html
