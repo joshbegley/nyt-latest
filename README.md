@@ -1,7 +1,3 @@
-**A Trump Siege at the C.D.C. and Atlanta’s ‘Global Health Capital’**\
-`The cluster of medical facilities in the city around Emory University and the Centers for Disease Control and Prevention carry prestige. They feel under attack.`\
-https://nytimes.com/2025/02/21/us/trump-cdc-atlanta.html
-
 **Under Government Pressure, Apple Pulls Security Feature in Britain**\
 `Law enforcement in the country was pressuring the company to create a tool that would act like a back door into customers’ data.`\
 https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/21/opinion/trump-cabinet-musk.html
 **Saints to hire ex-Chargers HC Brandon Staley as defensive coordinator: Sources**\
 `Staley heads to New Orleans following a one-year stint as an assistant head coach for the San Francisco 49ers.`\
 https://nytimes.com/athletic/6151689/2025/02/21/saints-brandon-staley-defensive-coordinator-kellen-moore/
+
+**Rubio’s Dilemma: Cutting Trump’s Deal With ‘Bloodthirsty’ Putin**\
+`As a senator, Marco Rubio prided himself on challenging tyrants. But as secretary of state, President Trump has tasked him with helping to potentially turn Russia from an enemy into an ally.`\
+https://nytimes.com/2025/02/21/us/politics/rubio-russia-putin.html
 
