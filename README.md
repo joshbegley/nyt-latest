@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6148248/2025/02/21/arsenal-merino-sterling-trossard
 
 **Trump Names ‘Pardon Czar’ to Advise on Clemency**\
 `President Trump commuted Alice Johnson’s life sentence during his first term, and later pardoned her for her drug conviction. She will advise him on similar cases.`\
-https://nytimes.com/live/2025/02/20/us/donald-trump-news/trump-names-pardon-czar-to-advise-on-clemency
+https://nytimes.com/2025/02/20/us/politics/trump-names-pardon-czar-to-advise-on-clemency.html
 
 **Friday Briefing**\
 `Germans head to the polls.`\
