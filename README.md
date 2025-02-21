@@ -1,3 +1,19 @@
+**Warriors at Kings: How to watch, odds as Jimmy Butler and Zach LaVine duel on new squads**\
+`Two of the trade deadline's biggest factors show off their new squads Friday night, with the Warriors as slight favorites in Sacramento.`\
+https://nytimes.com/athletic/6151688/2025/02/21/warriors-kings-how-to-watch-preview-curry-butler-lavine-sabonis/
+
+**It’s Been 5 Years Since Covid Hit. Do You Travel Differently Now?**\
+`The pandemic was declared in March 2020, shutting down travel for months. How did the lockdowns, and then the surge in demand, change the way you travel?`\
+https://nytimes.com/2025/02/21/travel/covid-pandemic-travel-changes-callout.html
+
+**Terry Francona says Reds will opt out of ABS testing: 'Why work on strategy we’re not going to use?'**\
+`Five parks in Arizona and eight in Florida have been fitted with the ABS challenge system technology this spring.`\
+https://nytimes.com/athletic/6151856/2025/02/21/terry-francona-reds-roboumps-spring-training-2/
+
+**Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants**\
+`The move would be a drastic escalation by the White House to militarize immigration enforcement.`\
+https://nytimes.com/2025/02/21/us/politics/migrants-military-sites.html
+
 **Los Angeles Mayor Removes Fire Chief, Blaming Her for Lack of Preparation**\
 `Mayor Karen Bass criticized Kristin Crowley for sending firefighters home before a blaze devastated the Pacific Palisades neighborhood.`\
 https://nytimes.com/2025/02/21/us/los-angeles-fire-chief-removed.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/21/technology/apple-security-feature-uk.html
 **Nelson could be out for season after hamstring surgery - Marco Silva**\
 `With Nelson closing in on a return to first-team action, he suffered a separate hamstring injury in his other leg.`\
 https://nytimes.com/athletic/6151754/2025/02/21/reiss-nelson-injury-update/
-
-**3 People Killed in Shooting Outside a Kentucky Driver’s License Office**\
-`Louisville police said they were still investigating and had not yet identified any suspects.`\
-https://nytimes.com/2025/02/21/us/kentucky-shooting-drivers-license-office.html
-
-**Canucks sign goalie Kevin Lankinen to splashy long-term extension**\
-`Lankinen will be an unrestricted free agent in the summer of 2030.`\
-https://nytimes.com/athletic/6151740/2025/02/21/canucks-sign-kevin-lankinen/
-
-**Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
-`The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at an arts conference and stabbed the famed author about 15 times.`\
-https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
-
-**A Playlist Packed With Crossword Clues**\
-`Sia! Abba! ELO! Let us help you solve some puzzles with this compilation of songs by crossword-famous musicians.`\
-https://nytimes.com/2025/02/21/arts/music/amplifier-newsletter-crossword-clues.html
 
