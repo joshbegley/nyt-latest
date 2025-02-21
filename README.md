@@ -1,3 +1,11 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 2/21 at 3:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat. `\
+https://nytimes.com/athletic/6150015/2025/02/21/mlb-eno-sarris-live-chat-2-21/
+
+**Word of the Day: behoove**\
+`This word has appeared in 78 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/21/learning/word-of-the-day-behoove.html
+
 **Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
 `"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
 https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/briefing/german-election-gaza-ukraine.html
 **'It's an apathetic experience': London Stadium frustrations are boiling over again**\
 `West Ham moved to the London Stadium in 2016 — but frustration with the atmosphere at the ground is growing again`\
 https://nytimes.com/athletic/6145968/2025/02/21/west-ham-london-stadium-atmosphere/
-
-**Fantasy Premier League: Who to choose as your assistant manager in Gameweek 26**\
-`Should you be looking to make a managerial switch?`\
-https://nytimes.com/athletic/6141654/2025/02/21/fpl-assistant-manager-chip-tips-gw-26/
-
-**Why Argentine club Ferro Carril Oeste are launching an Aston Villa-inspired kit**\
-`Ferro have links with Aston Villa going back more than a century — they just are not exactly sure how those connections came about`\
-https://nytimes.com/athletic/6148250/2025/02/21/argentina-ferro-aston-villa-kit/
 
