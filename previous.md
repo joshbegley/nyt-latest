@@ -28,7 +28,7 @@ https://nytimes.com/2025/02/21/arts/music/playlist-tate-mcrae-selena-gomez-benny
 
 **I.R.S. Bars Musk Ally From Seeing Personal Information**\
 `A document setting the terms of work at the I.R.S. by Gavin Kliger, a software engineer on Elon Musk’s team, only allows him to see anonymized taxpayer information.`\
-https://nytimes.com/2025/02/21/us/politics/irs-bars-musk-ally-from-seeing-personal-information.html
+https://nytimes.com/2025/02/21/us/politics/irs-doge-gavin-kliger.html
 
 **Blackhawks' Seth Jones seeking trade to play 'meaningful' games**\
 `Jones' contract will make a trade difficult, but the veteran defenseman would like to play for a contending NHL team.`\

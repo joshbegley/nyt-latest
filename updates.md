@@ -1,3 +1,7 @@
+**I.R.S. Bars Musk Ally From Seeing Personal Information**\
+`A document setting the terms of work at the I.R.S. by Gavin Kliger, a software engineer on Elon Musk’s team, only allows him to see anonymized taxpayer information.`\
+https://nytimes.com/2025/02/21/us/politics/irs-doge-gavin-kliger.html
+
 **Saints to hire ex-Chargers HC Brandon Staley as defensive coordinator: Sources**\
 `Staley heads to New Orleans following a one-year stint as an assistant head coach for the San Francisco 49ers.`\
 https://nytimes.com/athletic/6151689/2025/02/21/saints-brandon-staley-defensive-coordinator-kellen-moore/
