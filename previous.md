@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Ryan O’Reilly a top streaming target as NHL returns**\
+`Shayna Goldman helps you get your rosters prepared for the return of NHL action and an extended week to navigate in fantasy hockey.`\
+https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gems-week-19-waiver-wire/
+
 **Watch: Manchester United's 'last century' data department and complacency - a discussion**\
 `The Athletic FC Podcast discuss whether Manchester United’s decision to forgo a data-driven approach has contributed to their downfall.`\
 https://nytimes.com/athletic/6148904/2025/02/21/athletic-fc-podcast-manchester-united-data/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
 **The Athletic FC: Rubiales - reaction to guilty verdict, Champions League draw, ref's Messi shirt request**\
 `Today in TAFC: Reaction to Rubiales being found guilty of sexual assault plus all the Champions League and Europa League draw news.`\
 https://nytimes.com/athletic/6150886/2025/02/21/rubiales-reaction-champions-league-draw-messi-shirt/
-
-**Row Z: Ronaldo's outlook on MLS' quality and Chelsea defender shines (but not for them)**\
-`Tim Spiers takes his weekly look at the sillier side of football...`\
-https://nytimes.com/athletic/6143254/2025/02/21/cristiano-ronaldo-mls-chelsea-renato-veiga/
 

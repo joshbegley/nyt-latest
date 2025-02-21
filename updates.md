@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Ryan O’Reilly a top streaming target as NHL returns**\
+`Shayna Goldman helps you get your rosters prepared for the return of NHL action and an extended week to navigate in fantasy hockey.`\
+https://nytimes.com/athletic/6150036/2025/02/21/fantasy-hockey-trends-hidden-gems-week-19-waiver-wire/
+
 **Watch: Manchester United's 'last century' data department and complacency - a discussion**\
 `The Athletic FC Podcast discuss whether Manchester United’s decision to forgo a data-driven approach has contributed to their downfall.`\
 https://nytimes.com/athletic/6148904/2025/02/21/athletic-fc-podcast-manchester-united-data/
