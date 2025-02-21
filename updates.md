@@ -1,3 +1,7 @@
+**With No Buy-in From Egypt or Jordan, Trump Appears to Back Away From His Gaza Plan**\
+`Earlier this month, the president said he favored taking control of Gaza and displacing the Palestinian population of the devastated seaside enclave. But Egypt and Jordan flatly rejected cooperating.`\
+https://nytimes.com/2025/02/21/us/politics/trump-gaza-egypt-jordan.html
+
 **Penguins' Sullivan on Crosby's health, Mike Lange and 4 Nations**\
 `Sullivan endured quite a wild ride over the past couple of weeks.`\
 https://nytimes.com/athletic/6151841/2025/02/21/penguins-mike-sullivan-4-nations-face-off/
