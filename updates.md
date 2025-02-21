@@ -1,3 +1,15 @@
+**Trump Claims Power to Fire Administrative Law Judges at Will**\
+`The Justice Department said a law protecting the officials from arbitrary removal is an unconstitutional intrusion on presidential authority.`\
+https://nytimes.com/live/2025/02/20/us/donald-trump-news/trump-power-administrative-law-judges
+
+**Justice Dept. to Drop Discrimination Case Against Elon Musk’s SpaceX**\
+`The Justice Department had sued SpaceX in 2023, accusing the company of violating federal law by refusing to hire refugees and people granted asylum in the United States.`\
+https://nytimes.com/2025/02/20/us/politics/spacex-elon-musk-discrimination-doj.html
+
+**USWNT SheBelieves Cup takeaways: Who is U.S. goalscorer Ally Sentnor?**\
+`Here's how the USWNT won its first game of the 2025 SheBelieves Cup`\
+https://nytimes.com/athletic/6150447/2025/02/20/uswnt-colombia-cat-macario-return-ally-sentnor-goal/
+
 **What we know about the burglaries at the homes of NFL, NBA and NHL athletes**\
 `Federal prosecutors have charged seven Chilean men for their alleged roles in six recent burglaries at pro athletes' homes.`\
 https://nytimes.com/athletic/6146947/2025/02/20/athlete-home-burglaries-what-to-know-nfl-nba-nhl/
