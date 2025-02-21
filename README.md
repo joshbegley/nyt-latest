@@ -1,3 +1,7 @@
+**Estupinan in contention for Brighton return vs Southampton**\
+`The Ecuador international left-back has missed the last four matches with a muscle injury.`\
+https://nytimes.com/athletic/6150797/2025/02/21/brighton-team-news-estupinan-injury/
+
 **Charles Leclerc faces the biggest test of his F1 career: Lewis Hamilton at Ferrari**\
 `To become a true title contender, Ferrari's 'Golden Boy' will have to beat his legendary new teammate.`\
 https://nytimes.com/athletic/6146353/2025/02/21/charles-leclerc-lewis-hamilton-ferrari-f1/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/02/21/crosswords/spelling-bee-forum.html
 **FPL live Q&A: FPL Gameweek 26 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 26 FPL Q&A from 12pm-1pm GMT`\
 https://nytimes.com/athletic/6143602/2025/02/21/fantasy-premier-league-advice-gw26-tips/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 2/21 at 3:00 p.m. ET**\
-`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat. `\
-https://nytimes.com/athletic/6150015/2025/02/21/mlb-eno-sarris-live-chat-2-21/
 

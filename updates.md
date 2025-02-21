@@ -223,6 +223,11 @@ https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview
 `\
 https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
 
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
 **Charles Leclerc faces the biggest test of his F1 career: Lewis Hamilton at Ferrari**\
 `To become a true title contender, Ferrari's 'Golden Boy' will have to beat his legendary new teammate.`\
 https://nytimes.com/athletic/6146353/2025/02/21/charles-leclerc-lewis-hamilton-ferrari-f1/
