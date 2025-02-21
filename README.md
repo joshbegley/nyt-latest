@@ -1,3 +1,7 @@
+**Explaining why Real Madrid lost appeal against Bellingham's two-match ban**\
+`Bellingham, 21, will miss La Liga games against Girona and Real Betis.`\
+https://nytimes.com/athletic/6146428/2025/02/21/jude-bellingham-real-madrid-ban-appeal/
+
 **Haaland a doubt for Liverpool, Stones may need surgery**\
 `Haaland missed Wednesday's game against Real Madrid, while Stones was withdrawn eight minutes into the 3-1 loss after sustaining an injury.`\
 https://nytimes.com/athletic/6139677/2025/02/21/erling-haaland-john-stones-injury-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150229/2025/02/21/justin-verlander-giants-pitching
 **An MLS XI of intrigue: Players with much to gain in 2025**\
 `We look at some of the players who merit the most attention this season include World Cup hopefuls, rising stars and reclamation projects`\
 https://nytimes.com/athletic/6149569/2025/02/21/mls-players-watch-2025-zaha-campana-luna/
-
-**Why Raiders GM John Spytek and his wife are fighting for CMV awareness**\
-`The Spyteks daughter, Evelyn, was diagnosed at birth with CMV and died in 2014 at 21 months old.`\
-https://nytimes.com/athletic/6146815/2025/02/21/raiders-john-spytek-cmv-awareness-foundation/
 
