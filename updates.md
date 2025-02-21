@@ -1,3 +1,15 @@
+**New York Pulls Funds for 2 Yeshivas That Fail to Offer Secular Education**\
+`The decision is the first time that the State Department of Education has withheld money from private Hasidic schools for not teaching sufficient math and English skills.`\
+https://nytimes.com/2025/02/21/nyregion/hasidic-yeshiva-education-closure.html
+
+**A Trump Siege at the C.D.C. and Atlanta’s ‘Global Health Capital’**\
+`The cluster of medical facilities in the city around Emory University and the Centers for Disease Control and Prevention carry prestige. They feel under attack.`\
+https://nytimes.com/2025/02/21/us/trump-cdc-atlanta.html
+
+**Canucks sign goalie Kevin Lankinen to splashy long-term extension**\
+`Lankinen will be an unrestricted free agent in the summer of 2030.`\
+https://nytimes.com/athletic/6151740/2025/02/21/canucks-sign-kevin-lankinen/
+
 **Man Who Stabbed Salman Rushdie Is Found Guilty of Attempted Murder**\
 `The man, Hadi Matar, faces up to 32 years in prison. Prosecutors said he rushed onstage at an arts conference and stabbed the famed author about 15 times.`\
 https://nytimes.com/2025/02/21/nyregion/salman-rushdie-hadi-matar-verdict.html
