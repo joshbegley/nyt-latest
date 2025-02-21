@@ -1,3 +1,7 @@
+**Berlin Stabbing Attack at Holocaust Memorial Injures One**\
+`The police said they had detained a suspect in the assault, which occurred among the labyrinth of concrete slabs at one of the German capital’s most sacrosanct sites.`\
+https://nytimes.com/2025/02/21/world/europe/berlin-stabbing-holocaust-memorial.html
+
 **'It's a big deal': Current and former Yankees react to the team's new facial hair policy**\
 `Austin Wells, Gerrit Cole, Gleyber Torres and more all weighed in on the surprising change to a longstanding Yankee tradition.`\
 https://nytimes.com/athletic/6151787/2025/02/21/yankees-facial-hair-policy-reactions/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/21/us/trump-news/confusion-abounds-at-the-natio
 **Voletta Wallace, Mother Who Shaped the Notorious B.I.G.’s Legacy, Dies at 78**\
 `She played the rapper music as a child, stood by his side during his meteoric career and navigated the legal and artistic questions that arose after his killing.`\
 https://nytimes.com/2025/02/21/arts/music/voletta-wallace-notorious-big-mother-dead.html
-
-**The 4 Nations Face-Off ravaged the Bruins in more ways than one**\
-`Brad Marchand, Elias Lindholm and Jeremy Swayman have no choice but to deliver returning to the Bruins, who are up against it. `\
-https://nytimes.com/athletic/6151679/2025/02/21/bruins-4-nations-injury-roles/
 
