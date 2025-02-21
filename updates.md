@@ -1,3 +1,19 @@
+**Trump Deportees Arrived in ‘Visible Distress,’ Costa Rica’s Ombudsman Says**\
+`The migrants from around the world did not know where they were or what would happen to them, according to an independent government entity.`\
+https://nytimes.com/2025/02/21/us/politics/trump-deportations-costa-rica-migrants.html
+
+**Patsy Grimaldi, Whose Name Became Synonymous With Pizza, Dies at 93**\
+`His coal-oven pizzeria in the shadow of the Brooklyn Bridge has drawn patrons from New York City and beyond.`\
+https://nytimes.com/2025/02/21/dining/patsy-grimaldi-dead.html
+
+**Dodger Details: Don't forget about Tony Gonsolin, Yoshinobu Yamamoto's breakfast pal and more**\
+`Yamamoto feels more comfortable communicating with his teammates in his second season with the Dodgers.`\
+https://nytimes.com/athletic/6152282/2025/02/21/dodgers-tony-gonsolin-yoshinobu-yamamoto-blake-snell-breakfast/
+
+**Supreme Court Rejects, for Now, Trump’s Bid to Fire Government Watchdog**\
+`The court’s order indicated that it may return to the issue as soon as next week, when a trial judge’s temporary restraining order is set to expire.`\
+https://nytimes.com/2025/02/21/us/supreme-court-trump-special-counsel.html
+
 **Trump Administration Shakes Up ICE Leadership**\
 `The leadership change comes as the president aims to make good on a promise of mass deportations and arrests of undocumented immigrants across the United States.`\
 https://nytimes.com/2025/02/21/us/politics/trump-ice-leadership.html
