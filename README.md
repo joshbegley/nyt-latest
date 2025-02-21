@@ -1,3 +1,11 @@
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`The 36-team league stage is done and the last 16 confirmed. Here's how the rest of the new-look Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/02/21/champions-league-projections/
+
+**South Carolina Death Row Inmate Chooses to Be Executed by a Firing Squad**\
+`The state has never used that method to execute a prisoner. The last time an inmate was killed by a firing squad was in 2010 in Utah.`\
+https://nytimes.com/2025/02/21/us/execution-firing-squad-south-carolina.html
+
 **Bills mock offseason: A blockbuster trade, a free-agency splash and the draft**\
 `The championship window is wide open for the Bills and that will impact their offseason moves.`\
 https://nytimes.com/athletic/6149415/2025/02/21/bills-2025-mock-offseason-free-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/books/review/podcast-edward-gorey-centennial.html
 **Scoop City: Why a Myles Garrett trade is difficult for Cleveland's cap**\
 `Inside: Why the Browns probably can&#8217;t trade Myles Garrett, plus explaining void years, sampling a beat reporter mock draft, and a Cowboys legend to retire.`\
 https://nytimes.com/athletic/6151513/2025/02/21/myles-garrett-how-void-years-work-nfl-scoop-city/
-
-**Strong Storm Poised to Bring ‘a Wet Couple of Days’ to the Pacific Northwest**\
-`January was unusually dry in Washington and Oregon. An atmospheric river barreling toward the region looks to make February much wetter.`\
-https://nytimes.com/2025/02/21/weather/oregon-washington-rain-snow-forecast.html
-
-**Tottenham are asking not to be called Tottenham**\
-`An email sent to broadcasters, seen by The Athletic, reveals the club 'have requested that they are not referred to as Tottenham'`\
-https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
 
