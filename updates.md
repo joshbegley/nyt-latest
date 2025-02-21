@@ -1,3 +1,7 @@
+**The Bounce: How does Victor Wembanyama's season-ending injury affect his NBA future?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6150975/2025/02/21/victor-wembanyama-spurs-lebron-james-lakers-nba-the-bounce-2/
+
 **Listen: UConn's Geno Auriemma on his 40 years at the top and how the NCAA has evolved**\
 `On the Women's Basketball Show, Auriemma explains how college basketball has changed in his four decades at UConn.`\
 https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-geno-auriemma/

@@ -1,3 +1,7 @@
+**The Bounce: How does Victor Wembanyama's season-ending injury affect his NBA future?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6150975/2025/02/21/victor-wembanyama-spurs-lebron-james-lakers-nba-the-bounce-2/
+
 **Listen: UConn's Geno Auriemma on his 40 years at the top and how the NCAA has evolved**\
 `On the Women's Basketball Show, Auriemma explains how college basketball has changed in his four decades at UConn.`\
 https://nytimes.com/athletic/6150952/2025/02/21/womens-basketball-show-uconn-geno-auriemma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148955/2025/02/21/bobby-portis-suspension-bucks-ho
 **Senate G.O.P. Passes Budget Resolution, and Punts on Tough Questions**\
 `Approval of the Republican budget plan left major questions about tax cuts and spending reduction for another day.`\
 https://nytimes.com/2025/02/21/us/politics/senate-republicans-budget.html
-
-**Mikaela Shiffrin returns to giant slalom for first time since injury, finishes 25th**\
-`After pulling out of the same event at world championships, Mikaela Shiffrin returned to the giant slalom Friday on the World Cup tour.`\
-https://nytimes.com/athletic/6150264/2025/02/21/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
 
