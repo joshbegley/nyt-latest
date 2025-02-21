@@ -4,7 +4,7 @@ https://nytimes.com/2025/02/21/arts/mel-bochner-dead.html
 
 **Adams Sues Trump Administration Over Clawback of Migrant Shelter Funds**\
 `More than $80 million disappeared from a city bank account without warning. New York City wants it back.`\
-https://nytimes.com/2025/02/21/nyregion/eric-adams-nyc-sue-trump-administration-fema-migrant.html
+https://nytimes.com/2025/02/21/nyregion/eric-adams-trump-lawsuit-fema-migrants.html
 
 **D.C. Police Investigating Florida Congressman After Alleged Assault**\
 `In a statement, the office of Representative Cory Mills denied any wrongdoing on his behalf.`\
