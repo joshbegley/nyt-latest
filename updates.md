@@ -1,3 +1,19 @@
+**When They Stop Selling Your Favorite Thing**\
+`Shoppers are going online to pay dearly for discontinued items, from the perfect lip pencil to Tab.`\
+https://nytimes.com/2025/02/21/style/when-they-stop-selling-your-favorite-thing.html
+
+**Olympic hockey stock watch: Risers, fallers, lines that work and other learnings from 4 Nations**\
+`Here are five things we learned about each of the teams involved in 4 Nations that can be applied to their Olympic rosters.`\
+https://nytimes.com/athletic/6145001/2025/02/21/olympic-hockey-stock-watch-4-nations/
+
+**A Breakfast by Any Other Name**\
+`Whatever you call it — German pancake, Dutch baby — you should make this puffy and crisp confection that has a puddinglike interior.`\
+https://nytimes.com/2025/02/21/dining/german-pancake-breakfast-recipe.html
+
+**Kawhi Leonard's viability and 4 more Clippers concerns going forward**\
+`The Clippers aren't a scrappy underdog now. They're in the top six in the West, with a host of teams trying to chase them down.`\
+https://nytimes.com/athletic/6150964/2025/02/21/kawhi-leonard-clippers-concerns-nba-second-half/
+
 **Champions League last-16 draw: Liverpool-PSG tops bill alongside big all-Spain, all-German clashes**\
 `Six writers from The Athletic analyse the draw for the Champions League last-16 ties and the road to Munich in May`\
 https://nytimes.com/athletic/6150950/2025/02/21/champions-league-draw-liverpool-psg-real-madrid-bayern/
