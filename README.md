@@ -1,3 +1,11 @@
+**Tell Us: What Are Your Questions About Elon Musk?**\
+`Share your questions with the On Politics newsletter.`\
+https://nytimes.com/2025/02/21/us/politics/musk-doge-questions.html
+
+**Veterinarian and 13 Horse Trainers Violated Drug Rules, U.S. Regulator Says**\
+`Thirty percent of the horses never raced again and seven died, the Horseracing Integrity and Safety Authority said.`\
+https://nytimes.com/2025/02/21/business/horseracing-drug-violations.html
+
 **What we're seeing at Astros spring training as Grapefruit League games begin**\
 `Jose Altuve is embracing his new left-field experiment, but does he have the arm for it?`\
 https://nytimes.com/athletic/6151980/2025/02/21/astros-spring-training-jose-altuve-left-field/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010005252/maine-trump-transgender.ht
 **Coming Soon to Trump’s Kennedy Center: A Celebration of Christ**\
 `Richard Grenell, the center’s new president, told a conservative gathering that the “big change” at the center would be a “huge celebration of the birth of Christ at Christmas.”`\
 https://nytimes.com/2025/02/21/arts/music/richard-grenell-kennedy-center-trump.html
-
-**Tarrio Arrested on Charges of Assaulting Protester Outside Capitol**\
-`Enrique Tarrio, a former leader of the Proud Boys, had appeared with several other Jan. 6 defendants outside the very building that sat at the center of the riot that sent many of them to prison.`\
-https://nytimes.com/2025/02/21/us/politics/tarrio-proud-boys-capitol.html
-
-**With No Buy-in From Egypt or Jordan, Trump Appears to Back Away From His Gaza Plan**\
-`Earlier this month, the president said he favored taking control of Gaza and displacing the Palestinian population of the devastated seaside enclave. But Egypt and Jordan flatly rejected cooperating.`\
-https://nytimes.com/2025/02/21/us/politics/trump-gaza-egypt-jordan.html
 
