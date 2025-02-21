@@ -1,3 +1,7 @@
+**Egon Schiele Watercolor, Said to Be Nazi-Looted, Set for Auction**\
+`Christie’s, which values the work at more than $1 million, said the proceeds from any sale would be shared with the heirs of an art collector killed in a concentration camp.`\
+https://nytimes.com/2025/02/21/arts/design/egon-schiele-watercolor-nazi-looted-christies-auction.html
+
 **In Berlin, Anxious Movies for Dark Times**\
 `At the Berlin International Film Festival, the onscreen mood was downbeat, but the program still held some gems.`\
 https://nytimes.com/2025/02/21/movies/berlin-film-festival-berlinale-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6143432/2025/02/21/tottenham-hotspur-name-spurs/
 **49ers Enterprises set to buy majority stake in Scottish soccer club Rangers**\
 `The 49ers Enterprises is looking to sell a 10 per cent stake in the NFL franchise and is scouting to invest in sporting opportunites.`\
 https://nytimes.com/athletic/6150980/2025/02/21/rangers-takeover-san-francisco-49ers/
-
-**How Trump’s Tariffs Could Reorder Asia Trade and Exclude the U.S.**\
-`Asian countries are among the most vulnerable to President Trump’s economic grievances. But they are also best placed to make deals to minimize their exposure.`\
-https://nytimes.com/2025/02/21/business/trump-tariffs-asia-impact.html
 
