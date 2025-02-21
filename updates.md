@@ -1,3 +1,7 @@
+**Red Sox future on display as Marcelo Mayer, Kristian Campbell start spring opener**\
+`Roman Anthony was a late scratch, but with Marcelo Mayer and Kristian Campbell in the lineup, the spring opener was a preview of the future.`\
+https://nytimes.com/athletic/6152152/2025/02/21/red-sox-spring-debut-marcelo-mayer-kristian-campbell/
+
 **Who Is Paul Clement, the Lawyer Appointed to Help Judge in Adams Case?**\
 `A former solicitor general, Mr. Clement has argued over 100 cases before the Supreme Court. Now he will present independent arguments as a judge decides whether to drop the charges against the mayor.`\
 https://nytimes.com/2025/02/21/nyregion/adams-case-who-is-paul-clement.html
