@@ -1,3 +1,7 @@
+**Ugarte, Yoro back fit for Everton trip**\
+`Christian Eriksen is also fit to return after missing last weekend's 1-0 defeat by Tottenham.`\
+https://nytimes.com/athletic/6151115/2025/02/21/man-utd-team-news-ugarte-yoro-eriksen/
+
 **Coinbase Says S.E.C. Will Drop Crypto Lawsuit**\
 `The end of a court fight with the largest U.S. crypto company would be a big win for an industry that financially backed President Trump.`\
 https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150362/2025/02/21/matt-canterino-injuries-twins-20
 **Which teams' transfer portal classes face the most pressure in 2025?**\
 `Let's examine which transfer portal classes will hold the most stakes next season.`\
 https://nytimes.com/athletic/6149932/2025/02/21/college-football-transfer-portal-classes-2025/
-
-**Lee trades, improved PK and could the Islanders be the next Capitals? Mailbag, part 2**\
-`Plus potential candidates to replace Lamoriello and the value of a separate president of hockey operations.`\
-https://nytimes.com/athletic/6149700/2025/02/21/islanders-mailbag-lamoriello-lee-trade-penalty-kill/
 
