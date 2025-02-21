@@ -1,3 +1,11 @@
+**Review: In ‘Liberation,’ the Feminist Revolution Will Be Dramatized**\
+`Bess Wohl’s moving new play, about a group of women in 1970s Ohio, explores the power of sisterhood and the limits of motherhood.`\
+https://nytimes.com/2025/02/20/theater/bess-wohl-liberation-review.html
+
+**All the Bells and Whistles**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/02/20/crosswords/daily-puzzle-2025-02-21.html
+
 **Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
 `The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
 https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html

@@ -1,3 +1,11 @@
+**Review: In ‘Liberation,’ the Feminist Revolution Will Be Dramatized**\
+`Bess Wohl’s moving new play, about a group of women in 1970s Ohio, explores the power of sisterhood and the limits of motherhood.`\
+https://nytimes.com/2025/02/20/theater/bess-wohl-liberation-review.html
+
+**All the Bells and Whistles**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/02/20/crosswords/daily-puzzle-2025-02-21.html
+
 **Costa Rica Receives First Flight of Trump Deportees From Faraway Countries**\
 `The flight from San Diego landed in San José, the Costa Rican capital, on Thursday evening. The group of migrants on board included dozens of children, officials said.`\
 https://nytimes.com/2025/02/20/us/politics/deportation-flights-costa-rica-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/02/20/us/willis-letter-to-jordan.html
 **Trump Administration Questions Funding for California High-Speed Rail**\
 `The transportation secretary, Sean Duffy, said the government would conduct a “compliance review” on a $3.1 billion grant, potentially threatening the viability of the troubled project.`\
 https://nytimes.com/2025/02/20/us/california-high-speed-rail-federal-funding.html
-
-**Multiple Bus Explosions in Israel Put Country on Terrorism Alert**\
-`The attempted attacks on Thursday, which injured no one but shut down buses and trains across the country, came amid Israel’s ongoing raids in the West Bank and as its cease-fire with Hamas in Gaza nears its end.`\
-https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.html
-
-**Ref who asked Lionel Messi for his jersey disciplined by CONCACAF**\
-`Statement from CONCACAF does not detail any punishment, but says official “acknowledged his mistake" and apologized for the incident.`\
-https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who-asked-lionel-messi-for-his-jersey-after-match/
 
