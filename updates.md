@@ -1,3 +1,28 @@
+**Facing Trump’s Threats, New York’s Governor Adopts a ‘Rambo’ Attitude**\
+`Gov. Kathy Hochul has embraced a more aggressive stance as she takes on President Trump, deals with Mayor Eric Adams and nears a competitive election next year.`\
+https://nytimes.com/2025/02/21/nyregion/hochul-trump-adams-congestion-pricing.html
+
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
+**Baby Seal**\
+`How did this baby seal get here? Tell us a story inspired by this image.`\
+https://nytimes.com/2025/02/21/learning/baby-seal.html
+
+**Will New York Force More Mentally Ill People Into Treatment?**\
+`Gov. Kathy Hochul has proposed changes to the state’s mental health laws, but they face opposition from lawmakers and civil-rights groups.`\
+https://nytimes.com/2025/02/21/nyregion/kathy-hochul-nyc-homeless-involuntary-commitment.html
+
+**Man City vs Liverpool betting preview: Can Citizens thwart Reds’ title plans?**\
+`Julia Ranney takes a look at the best bets around this weekend’s heavyweight clash between Manchester City and Liverpool.`\
+https://nytimes.com/athletic/6149087/2025/02/21/manchester-city-liverpool-betting-preview-odds/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/21/crosswords/spelling-bee-forum.html
+
 **Germany Is in Big Trouble, and Nobody Knows What to Do About It**\
 `Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
 https://nytimes.com/2025/02/21/opinion/germany-election-economy.html

@@ -1,3 +1,28 @@
+**Facing Trump’s Threats, New York’s Governor Adopts a ‘Rambo’ Attitude**\
+`Gov. Kathy Hochul has embraced a more aggressive stance as she takes on President Trump, deals with Mayor Eric Adams and nears a competitive election next year.`\
+https://nytimes.com/2025/02/21/nyregion/hochul-trump-adams-congestion-pricing.html
+
+**Arsenal vs West Ham betting preview: Gunners look to pile pressure on Reds**\
+`Sam Tighe takes a look at the best bets around this weekend’s clash between Arsenal and West Ham.
+`\
+https://nytimes.com/athletic/6149056/2025/02/21/arsenal-west-ham-betting-preview-odds/
+
+**Baby Seal**\
+`How did this baby seal get here? Tell us a story inspired by this image.`\
+https://nytimes.com/2025/02/21/learning/baby-seal.html
+
+**Will New York Force More Mentally Ill People Into Treatment?**\
+`Gov. Kathy Hochul has proposed changes to the state’s mental health laws, but they face opposition from lawmakers and civil-rights groups.`\
+https://nytimes.com/2025/02/21/nyregion/kathy-hochul-nyc-homeless-involuntary-commitment.html
+
+**Man City vs Liverpool betting preview: Can Citizens thwart Reds’ title plans?**\
+`Julia Ranney takes a look at the best bets around this weekend’s heavyweight clash between Manchester City and Liverpool.`\
+https://nytimes.com/athletic/6149087/2025/02/21/manchester-city-liverpool-betting-preview-odds/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/21/crosswords/spelling-bee-forum.html
+
 **FPL live Q&A: FPL Gameweek 26 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 26 FPL Q&A from 12pm-1pm GMT`\
 https://nytimes.com/athletic/6143602/2025/02/21/fantasy-premier-league-advice-gw26-tips/
@@ -13,28 +38,4 @@ https://nytimes.com/2025/02/21/learning/word-of-the-day-behoove.html
 **Jayson Tatum might never reach Larry Bird's status in Boston, but he's 'a great guy to chase'**\
 `"If you aspire to chase (Bird)," Tatum said, "it comes with a level of focus and motivation every single day to be the best you can."`\
 https://nytimes.com/athletic/6150636/2025/02/21/jayson-tatum-chasing-larry-bird/
-
-**Stephen Colbert Crowns Trump the Troll King**\
-`President Trump referring to himself as a king “is the thing presidents are not supposed to do,” Colbert said on Thursday.`\
-https://nytimes.com/2025/02/21/arts/television/stephen-colbert-trump-doge.html
-
-**Germany Is in Big Trouble, and Nobody Knows What to Do About It**\
-`Its economy is trapped in a vicious cycle and nobody seems to know what to do about it.`\
-https://nytimes.com/2025/02/21/opinion/germany-election-economy.html
-
-**Hayley Ladd: Everton's unselfish Wales defender - and the perfect carpool companion**\
-`Ladd is set to play her 100th game for Wales this week and would become just the 10th Welsh footballer, male or female, to do so`\
-https://nytimes.com/athletic/6118690/2025/02/21/hayley-ladd-wales-100-cap-euro-2025/
-
-**Arsenal look to hone Merino as makeshift No 9, but can ill afford to write off Sterling**\
-`Mikel Arteta has been giving more serious thought to Merino’s new position in training after the Spaniard's impact at Leicester City`\
-https://nytimes.com/athletic/6148248/2025/02/21/arsenal-merino-sterling-trossard-arteta-willian/
-
-**Trump Names ‘Pardon Czar’ to Advise on Clemency**\
-`President Trump commuted Alice Johnson’s life sentence during his first term, and later pardoned her for her drug conviction. She will advise him on similar cases.`\
-https://nytimes.com/2025/02/20/us/politics/trump-pardon-czar-johnson.html
-
-**Friday Briefing**\
-`Germans head to the polls.`\
-https://nytimes.com/2025/02/21/briefing/german-election-gaza-ukraine.html
 
