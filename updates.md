@@ -1,3 +1,7 @@
+**Multiple Bus Explosions in Israel Put Country on Terrorism Alert**\
+`The attempted attacks on Thursday, which injured no one but shut down buses and trains across the country, came amid Israel’s ongoing raids in the West Bank and as its cease-fire with Hamas in Gaza nears its end.`\
+https://nytimes.com/2025/02/20/world/middleeast/bus-explosions-israel-tel-aviv.html
+
 **Ref who asked Lionel Messi for his jersey disciplined by CONCACAF**\
 `Statement from CONCACAF does not detail any punishment, but says official “acknowledged his mistake" and apologized for the incident.`\
 https://nytimes.com/athletic/6150318/2025/02/20/concacaf-disciplines-referee-who-asked-lionel-messi-for-his-jersey-after-match/
