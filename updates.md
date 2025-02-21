@@ -1,3 +1,7 @@
+**Trump Names ‘Pardon Czar’ to Advise on Clemency**\
+`President Trump commuted Alice Johnson’s life sentence during his first term, and later pardoned her for her drug conviction. She will advise him on similar cases.`\
+https://nytimes.com/2025/02/20/us/politics/trump-pardon-czar-johnson.html
+
 **Hayley Ladd: Everton's unselfish Wales defender - and the perfect carpool companion**\
 `Ladd is set to play her 100th game for Wales this week and would become just the 10th Welsh footballer, male or female, to do so`\
 https://nytimes.com/athletic/6118690/2025/02/21/hayley-ladd-wales-100-cap-euro-2025/
