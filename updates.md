@@ -1,3 +1,11 @@
+**Maresca welcomes Chelsea backing**\
+`Maresca said on Friday he is 'not here to survive' but to 'win games and to fight for titles'.`\
+https://nytimes.com/athletic/6150865/2025/02/21/enzo-maresca-chelsea-ambition/
+
+**For Clara Tauson's tennis progress, less is more**\
+`Tauson's junior triumph at the 2019 Australian Open looked set to be the birth of a star, but she has found security in steadier progress.`\
+https://nytimes.com/athletic/6149259/2025/02/21/tennis-clara-tauson-wta/
+
 **Bears combine mailbag: Is Trey Smith worth the contract? Will Campbell or Mason Graham?**\
 `The Bears enter the NFL combine with plenty of cap space and draft capital. Discussing their options in a pre-combine mailbag.`\
 https://nytimes.com/athletic/6149236/2025/02/21/bears-mailbag-trey-smith-nfl-combine/
