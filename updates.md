@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betti
 `\
 https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
 
+**Premier League accumulator tips: The best bets to add to your treble**\
+`Sam Tighe offers his betting insights on which bets to add to your accumulator ahead of this weekend’s Premier League action. 
+`\
+https://nytimes.com/athletic/6150870/2025/02/21/premier-league-accumulator-betting-tips/
+
 **Maresca welcomes Chelsea backing**\
 `Maresca said on Friday he is 'not here to survive' but to 'win games and to fight for titles'.`\
 https://nytimes.com/athletic/6150865/2025/02/21/enzo-maresca-chelsea-ambition/
