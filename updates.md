@@ -1,3 +1,7 @@
+**Ugarte, Yoro back fit for Everton trip**\
+`Christian Eriksen is also fit to return after missing last weekend's 1-0 defeat by Tottenham.`\
+https://nytimes.com/athletic/6151115/2025/02/21/man-utd-team-news-ugarte-yoro-eriksen/
+
 **Coinbase Says S.E.C. Will Drop Crypto Lawsuit**\
 `The end of a court fight with the largest U.S. crypto company would be a big win for an industry that financially backed President Trump.`\
 https://nytimes.com/2025/02/21/technology/coinbase-sec-lawsuit.html
