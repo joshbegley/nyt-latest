@@ -128,6 +128,16 @@ https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset
 `\
 https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
 
+**Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
+`From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
+`\
+https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset-ranking/
+
+**Inside the unique connection between Anders Sörensen and William Nylander**\
+`Sörensen and Nylander's shared history dates back more than 20 years and isn't the ordinary one between an opposing NHL coach and player. 
+`\
+https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
+
 **Shocked by Trump, Europe Turns Its Hopes to Germany’s Election**\
 `Germany’s economy is stalled and its politics fractured. But it sees an opening for a new chancellor to lead Europe’s response to a changing America.`\
 https://nytimes.com/2025/02/22/world/europe/germany-election-trump.html
