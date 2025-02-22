@@ -1,3 +1,7 @@
+**Arteta 'angry' and 'disappointed' as West Ham defeat dents Arsenal's title hopes**\
+`Arteta described himself as “very angry” as Arsenal's home defeat to West Ham dented their title hopes.`\
+https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
+
 **Hurzeler: Difference-maker Rutter starting to show his quality**\
 `Rutter has six goals in his last eight games, having initially started slowly following his £40m summer move from Leeds.`\
 https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151448/2025/02/22/arsenal-west-ham-analysis/
 **Headstrong Francis Put the Church Above His Health, Vatican Observers Say**\
 `Many who know him said that Francis, driven by a sense of mission and a discipline born of his early training, essentially worked himself into the hospital.`\
 https://nytimes.com/2025/02/22/world/europe/francis-pope-church-health.html
-
-**Amid Changes at the National Archives, the Carter Library Cancels a Civil Rights Book Event**\
-`After President Trump put in new leadership at the National Archives, the Jimmy Carter Presidential Library in Atlanta abruptly canceled several events.`\
-https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-event.html
 
