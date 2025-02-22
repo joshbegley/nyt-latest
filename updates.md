@@ -1,3 +1,11 @@
+**In the Rearview**\
+`Daniel Grinberg and Rafael Musa’s puzzle tells solvers, “Back it up, bub.”`\
+https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html
+
+**Third-period collapse dooms Detroit in return from break: 5 thoughts**\
+`The Red Wings kicked off the season's homestretch Saturday but let a late two-goal lead slip against Minnesota.`\
+https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
+
 **At CPAC, Trump Revels in Political Payback**\
 `Speaking to a crowd of supporters that included pardoned Jan. 6 rioters, the president gleefully recounted his efforts to purge the government of his political enemies.`\
 https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html

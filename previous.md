@@ -1,3 +1,7 @@
+**In the Rearview**\
+`Daniel Grinberg and Rafael Musa’s puzzle tells solvers, “Back it up, bub.”`\
+https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html
+
 **At CPAC, Trump Revels in Political Payback**\
 `Speaking to a crowd of supporters that included pardoned Jan. 6 rioters, the president gleefully recounted his efforts to purge the government of his political enemies.`\
 https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
 **Third-period collapse dooms Detroit in return from break: 5 thoughts**\
-`The Red Wings kicked off the season's home stretch Saturday, but let a late two-goal lead slip against Minnesota.`\
+`The Red Wings kicked off the season's homestretch Saturday but let a late two-goal lead slip against Minnesota.`\
 https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
 
 **Carlos Diegues, Filmmaker Who Celebrated Brazil’s Diversity, Dies at 84**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners
 **Nine-Month Manhunt for French Fugitive Finally Produces an Arrest**\
 `A French convict was arrested in Romania months after he had been freed in a brazen daytime ambush that killed two prison guards, authorities said.`\
 https://nytimes.com/2025/02/22/world/europe/france-manhunt-prison-break-arrest.html
-
-**‘Dreams,’ Film About Teen Infatuation, Takes Top Prize at Berlin International Film Festival**\
-`The event’s other honorees include the actress Rose Byrne, a performance as the composer Richard Rodgers and an Argentine film about a girl who seems to speak to animals.`\
-https://nytimes.com/2025/02/22/arts/dreams-berlin-international-film-festival.html
 
