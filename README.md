@@ -36,5 +36,5 @@ https://nytimes.com/2025/02/21/us/firing-squad-executions-us.html
 
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
 `The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
-https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
+https://nytimes.com/2025/02/21/us/politics/pentagon-job-cuts.html
 
