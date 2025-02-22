@@ -1,9 +1,13 @@
+**Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
+`The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
+https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
+
 **Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Command**\
 `The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 
 **Meghan’s New Name? He’s Been Using It for Years.**\
-`The founder of a Brooklyn clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
+`The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
 https://nytimes.com/2025/02/21/style/meghans-new-name-hes-been-using-it-for-years.html
 
 **What They Took**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
 **USC lands 4-star Jonas Williams after QB flipped commitment from Oregon**\
 `Williams is the 10th commitment for the Trojans in the 2026 class.`\
 https://nytimes.com/athletic/6151606/2025/02/21/usc-recruiting-jonas-williams-commitment-oregon/
-
-**Trump, After G.O.P. Criticism, Reverses Cuts to 9/11 Survivors’ Program**\
-`About 20 percent of the World Trade Central Health Program’s staff had been terminated amid President Trump’s slashing of the federal work force.`\
-https://nytimes.com/2025/02/21/nyregion/trump-doge-cuts-world-trade-center-health-program.html
 
