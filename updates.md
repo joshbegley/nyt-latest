@@ -1,3 +1,7 @@
+**Live Updates: Hamas Starts Releasing More Hostages**\
+`Two of the six hostages slated for release as part of a swap for Palestinian prisoners have been freed. Earlier, Hamas handed over the body of Shiri Bibas, easing tensions that it had raised by turning over the wrong body.`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
+
 **Surging Warriors like their new starting lineup that is small but succeeding**\
 `"It'd be nice to stick with this for the rest of the season," coach Steve Kerr said Friday after a blowout win in Sacramento.`\
 https://nytimes.com/athletic/6152574/2025/02/22/golden-state-warriors-small-lineup/
