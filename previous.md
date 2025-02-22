@@ -2,7 +2,7 @@
 `Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
 https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
 
-**Yankees' Devin Williams met with Hal Steinbrenner over facial hair policy**\
+**Devin Williams requested Hal Steinbrenner meeting over facial hair policy**\
 `The Yankees amended their facial hair policy after it had been a topic of internal conversation for around 10 years.`\
 https://nytimes.com/athletic/6152905/2025/02/22/devin-williams-yankees-facial-hair-policy/
 
