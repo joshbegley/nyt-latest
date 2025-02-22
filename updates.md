@@ -1,3 +1,15 @@
+**Surging Warriors like their new starting lineup that is small but succeeding**\
+`"It'd be nice to stick with this for the rest of the season," coach Steve Kerr said Friday after a blowout win in Sacramento.`\
+https://nytimes.com/athletic/6152574/2025/02/22/golden-state-warriors-small-lineup/
+
+**Watching Burnley: The team that don't concede goals, and could coax JJ Watt out of retirement**\
+`The Championship club's defence has not been breached since December 21, which is 12 games or 18 hours and 10 minutes of football ago`\
+https://nytimes.com/athletic/6152361/2025/02/22/burnley-jj-watt-trafford-parker-concede/
+
+**Players and board have taken flak at Leicester City, but should more scrutiny be on Van Nistelrooy?**\
+`The Dutchman's curious reluctance to instigate tactical change, or hand Facundo Buonanotte more game time, is undermining his position`\
+https://nytimes.com/athletic/6152450/2025/02/22/leicester-van-nistelrooy-rudkin-board-scrutiny/
+
 **Jumaane Williams Says He’s Ready and Willing to Take Mayor Adams’s Place**\
 `Mr. Williams, the New York City public advocate, is preparing himself to serve as interim mayor if Eric Adams resigns or is removed.`\
 https://nytimes.com/2025/02/22/nyregion/jumaane-williams-mayor-adams.html
