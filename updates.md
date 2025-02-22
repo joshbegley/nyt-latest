@@ -1,3 +1,7 @@
+**2 Books Chock-Full of Worthwhile Ideas**\
+`A study of human fatigue; a cranky travel memoir.`\
+https://nytimes.com/2025/02/22/books/read-like-wind-recommendations.html
+
 **Michigan State and lessons from the old school**\
 `Friday's victory against Michigan was proof of concept for a program that still willfully does things its own way.`\
 https://nytimes.com/athletic/6152773/2025/02/22/michigan-state-basketball-tom-izzo-ncaa-tournament/
