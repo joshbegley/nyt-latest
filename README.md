@@ -1,5 +1,5 @@
 **Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
-`A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk to access government data.`\
+`A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk access to government data.`\
 https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
 
 **Hegseth Fires Navy’s Top Officer**\
