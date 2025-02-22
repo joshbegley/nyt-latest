@@ -2,7 +2,7 @@
 `Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
 https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
 
-**Israel is set to free largest group of Palestinian prisoners since truce began.**\
+**Israel is set to free the largest group of Palestinian prisoners since the truce began.**\
 `By Adam Rasgon and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/israel-palestinian-prisoners-ceasefire
 
