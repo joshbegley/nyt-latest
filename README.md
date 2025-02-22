@@ -1,3 +1,7 @@
+**Third-period collapse dooms Detroit in return from break: 5 thoughts**\
+`The Red Wings kicked off the season's home stretch Saturday, but let a late two-goal lead slip against Minnesota.`\
+https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
+
 **Carlos Diegues, Filmmaker Who Celebrated Brazil’s Diversity, Dies at 84**\
 `Seeking to shed the gauzy influence of Hollywood and focus on Brazil’s ethnic richness and troubled history, he helped forge a new path for his country’s cinema.`\
 https://nytimes.com/2025/02/22/movies/carlos-diegues-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
 **2 Virginia Beach Police Officers Are Fatally Shot During a Traffic Stop**\
 `The officers spotted a car with expired licensed plates and ordered the driver to stop, the police said. The driver who opened fire was later found dead.`\
 https://nytimes.com/2025/02/22/us/virginia-beach-police-shooting.html
-
-**George Floyd Killing Separated Trump From His Generals**\
-`A four-minute video appears to have been a turning point for the president and Gen. Charles Q. Brown Jr., the ousted Joint Chiefs chairman.`\
-https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
 
