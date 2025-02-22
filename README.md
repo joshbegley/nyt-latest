@@ -1,5 +1,5 @@
 **Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
-`According to league sources, at least one more team has joined the Astros in talks with the Cardinals to acquire the veteran third baseman.`\
+`According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
 **Third-period collapse dooms Detroit in return from break: 5 thoughts**\
