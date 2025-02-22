@@ -1,3 +1,11 @@
+**Prison Officials Detail Treatment of Trans Inmates Under Trump Gender Order**\
+`The federal Bureau of Prisons is banning the use of preferred pronouns, stopping special pat-down procedures and rejecting underwear requests from transgender prisoners.`\
+https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
+
+**Giants' Logan Webb to join illustrious list with fourth consecutive Opening Day start**\
+`"I never take this stuff for granted," Webb, who will kick the season off against the Reds, said. `\
+https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-starter-logan-webb/
+
 **F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
 `The timeline for identifying the agents and employees who would move from the Washington area to field offices and a sprawling campus in Huntsville, Ala., was not immediately clear.`\
 https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/trump-usps.html
 **Jaguars hire former Rams executive James Gladstone as GM**\
 `Jaguars owner Shad Khan: We chose Gladstone "following a painstaking but energizing interview process that left nothing to doubt."`\
 https://nytimes.com/athletic/6152044/2025/02/21/jaguars-gm-hire-james-gladstone/
-
-**Trump Deportees Arrived in ‘Visible Distress,’ Costa Rica’s Ombudsman Says**\
-`The migrants from around the world did not know where they were or what would happen to them, according to an independent government entity.`\
-https://nytimes.com/2025/02/21/us/politics/trump-deportations-costa-rica-migrants.html
-
-**Patsy Grimaldi, Whose Name Became Synonymous With Pizza, Dies at 93**\
-`His coal-oven pizzeria in the shadow of the Brooklyn Bridge has drawn patrons from New York City and beyond.`\
-https://nytimes.com/2025/02/21/dining/patsy-grimaldi-dead.html
 
