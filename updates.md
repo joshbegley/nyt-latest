@@ -1,3 +1,11 @@
+**Measles Outbreaks in Texas and New Mexico Sicken Nearly 100 People**\
+`Texas reported 90 cases this week, while New Mexico reported nine. A majority of the cases have been in a Texas county where vaccination rates have lagged behind the rest of the state.`\
+https://nytimes.com/2025/02/22/us/texas-measles-outbreak.html
+
+**The Perfect Girl Next Door**\
+`How do you live your mediocre life in the shadow of a hipster goddess?`\
+https://nytimes.com/2025/02/22/style/the-perfect-girl-next-door.html
+
 **Mikaela Shiffrin, still finding form, struggles in return to giant slalom races**\
 `After pulling out of the giant slalom at world championships, Mikaela Shiffrin returned to the event this weekend on the World Cup tour.`\
 https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
