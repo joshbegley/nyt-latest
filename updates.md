@@ -1,3 +1,23 @@
+**Jumaane Williams Says He’s Ready and Willing to Take Mayor Adams’s Place**\
+`Mr. Williams, the New York City public advocate, is preparing himself to serve as interim mayor if Eric Adams resigns or is removed.`\
+https://nytimes.com/2025/02/22/nyregion/jumaane-williams-mayor-adams.html
+
+**How the Co-Founder of an Immigrant Theater Spends Her Sundays**\
+`Mino Lora, who co-founded the People’s Theatre with her husband, has a double breakfast, a dance break and a bilingual reading session to wrap up her night.`\
+https://nytimes.com/2025/02/22/nyregion/mino-lora-peoples-theatre.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/22/crosswords/spelling-bee-forum.html
+
+**Brighton's Baleba resilience key for high volume of games - Hurzeler**\
+`The 21-year-old Cameroon international has featured in 25 of Brighton's 30 games across all competitions so far this season, with 23 starts`\
+https://nytimes.com/athletic/6150909/2025/02/22/carlos-baleba-brighton-fixtures-hurzeler/
+
+**Live Updates: Hamas Starts Releasing More Hostages**\
+`Two hostages were released as the exchange of six hostages for Palestinian prisoners held in Israel moved ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
+
 **Watching Burnley: The team that don't concede goals, and could coax JJ Watt out of retirement**\
 `The Championship club's defence has not been breached since December 21, which 12 games or 18 hours and 10 minutes of football ago`\
 https://nytimes.com/athletic/6152361/2025/02/22/burnley-jj-watt-trafford-parker-concede/
