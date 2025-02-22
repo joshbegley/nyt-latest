@@ -1,3 +1,7 @@
+**Andrew Friedman on Ohtani, extending Roberts, and Dodgers' dominance: 5 things we learned**\
+`On his visit to Starkville, the Dodgers' president of baseball operations talked about Ohtani, Sasaki, his club's global ambitions and more.`\
+https://nytimes.com/athletic/6152738/2025/02/22/andrew-friedman-dodgers-payroll-ohtani-sasaki/
+
 **Lost Causes**\
 `When we lose things, it’s tempting to think we need to keep better track of them, to hold on to stuff more tightly. What if the opposite is true?`\
 https://nytimes.com/2025/02/22/briefing/lost-causes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/magazine/ed-yong-interview.html
 **How to watch Tennessee at Texas A&M men's basketball: A top-10 SEC rock fight**\
 `Defense should be plentiful in Saturday morning's college basketball starter. No. 6 Tennessee visits No. 7 Texas A&M in College Station.`\
 https://nytimes.com/athletic/6151728/2025/02/22/how-to-watch-tennessee-texas-am-sec-ncaa/
-
-**Big Day for Crypto Goes South in a Hurry After a Giant Hack**\
-`Hours after Coinbase said the S.E.C. was dropping a lawsuit against it, another major cryptocurrency exchange reported a potentially record-setting theft.`\
-https://nytimes.com/2025/02/22/technology/crypto-exchange-bybit-hack.html
 
