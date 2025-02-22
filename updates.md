@@ -1,3 +1,7 @@
+**Kneeling in the Snow: A Village Mourns Its Fifth Fallen Soldier**\
+`In a pair of Ukrainian villages with about 400 people between them, every loss is felt keenly.`\
+https://nytimes.com/card/2025/02/23/world/ukraine-village-soldier-funeral
+
 **With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
 `The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term pictures.`\
 https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/

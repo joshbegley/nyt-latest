@@ -1,3 +1,7 @@
+**Kneeling in the Snow: A Village Mourns Its Fifth Fallen Soldier**\
+`In a pair of Ukrainian villages with about 400 people between them, every loss is felt keenly.`\
+https://nytimes.com/card/2025/02/23/world/ukraine-village-soldier-funeral
+
 **With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
 `The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term pictures.`\
 https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/movies/carlos-diegues-dead.html
 **Lakers at Nuggets: How to watch Nikola Jokić host LeBron James and Luka Dončić**\
 `LeBron James, Luka Dončić and the Lakers ascend to the Mile High City to face Nikola Jokić's Nuggets on Saturday.`\
 https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-jokic-lebron-luka-nba/
-
-**Hamas Frees 6 Hostages and Returns Remains of Shiri Bibas**\
-`It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
-https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
 
