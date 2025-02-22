@@ -1,5 +1,5 @@
 **Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
-`According to league sources, at least one more team has joined the Astros in talks with the Cardinals to acquire the veteran third baseman.`\
+`According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
 **Third-period collapse dooms Detroit in return from break: 5 thoughts**\
@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-joki
 `It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
 https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
 
-**Musk Tells Government Workers to Detail Their Workweek or Face Termination**\
+**Musk Says Government Workers Must Detail Their Workweek or Face Termination**\
 `Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
 https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
 

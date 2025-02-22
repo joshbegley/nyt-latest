@@ -1,4 +1,12 @@
 **Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
+`According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
+https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
+
+**Musk Says Government Workers Must Detail Their Workweek or Face Termination**\
+`Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
+https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
+
+**Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
 `According to league sources, at least one more team has joined the Astros in talks with the Cardinals to acquire the veteran third baseman.`\
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
