@@ -1,3 +1,7 @@
+**Hegseth Fires Navy’s Top Officer**\
+`Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
+https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
+
 **Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
 `The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
 https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-start
 **F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
 `The timeline for identifying the agents and employees who would move from the Washington area to field offices and a sprawling campus in Huntsville, Ala., was not immediately clear.`\
 https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
-
-**USC lands 4-star Jonas Williams after QB flipped commitment from Oregon**\
-`Williams is the 10th commitment for the Trojans in the 2026 class.`\
-https://nytimes.com/athletic/6151606/2025/02/21/usc-recruiting-jonas-williams-commitment-oregon/
 
