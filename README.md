@@ -1,3 +1,11 @@
+**Measles Outbreaks in Texas and New Mexico Sicken Nearly 100 People**\
+`Texas reported 90 cases this week, while New Mexico reported nine. A majority of the cases have been in a Texas county where vaccination rates have lagged behind the rest of the state.`\
+https://nytimes.com/2025/02/22/us/texas-measles-outbreak.html
+
+**The Perfect Girl Next Door**\
+`How do you live your mediocre life in the shadow of a hipster goddess?`\
+https://nytimes.com/2025/02/22/style/the-perfect-girl-next-door.html
+
 **Mikaela Shiffrin, still finding form, struggles in return to giant slalom races**\
 `After pulling out of the giant slalom at world championships, Mikaela Shiffrin returned to the event this weekend on the World Cup tour.`\
 https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/22/business/traffic-safety-agency-firings-elon-musk.
 **A Tale of Two Cost-Cutters**\
 `Elon Musk’s hyperfocus on the bottom line has made him influential in Washington and Silicon Valley. How does that compare with the last famous cost-cutter, Jack Welch?`\
 https://nytimes.com/2025/02/22/business/dealbook/elon-musk-jack-welch-cuts.html
-
-**Timberwolves' Chris Finch will need to be extra creative with lineups down the stretch**\
-`Jaylen Clark, Terrence Shannon Jr. and Rob Dillingham have had big stretches in games recently, opportunity created by a rash of injuries.`\
-https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injuries-lineups-nba/
-
-**A Closer Look at the 6 Freed Israeli Hostages**\
-`Two of the captives had been in the hands of Hamas for about 10 years. The rest were taken during the attack on Israel on Oct. 7, 2023.`\
-https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
 
