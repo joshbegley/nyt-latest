@@ -1,5 +1,5 @@
 **Twins regroup after Justin Ishbia drops bid for White Sox deal: 'Everything's on the table'**\
-`The Twins are hustling to regroup after learning lthis week that a leading contender in their search for a new owner has abandoned his bid. `\
+`The Twins are hustling to regroup after learning this week that a leading contender in their search for a new owner has abandoned his bid. `\
 https://nytimes.com/athletic/6152097/2025/02/21/justin-ishbia-out-minnesota-twins-sale/
 
 **Michigan State moves atop Big Ten standings with win at No. 12 Michigan**\
