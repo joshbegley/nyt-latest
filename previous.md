@@ -1,3 +1,15 @@
+**Third-period collapse dooms Detroit in return from break: 5 thoughts**\
+`The Red Wings kicked off the season's home stretch Saturday, but let a late two-goal lead slip against Minnesota.`\
+https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
+
+**Carlos Diegues, Filmmaker Who Celebrated Brazil’s Diversity, Dies at 84**\
+`Seeking to shed the gauzy influence of Hollywood and focus on Brazil’s ethnic richness and troubled history, he helped forge a new path for his country’s cinema.`\
+https://nytimes.com/2025/02/22/movies/carlos-diegues-dead.html
+
+**Lakers at Nuggets: How to watch Nikola Jokić host LeBron James and Luka Dončić**\
+`LeBron James, Luka Dončić and the Lakers ascend to the Mile High City to face Nikola Jokić's Nuggets on Saturday.`\
+https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-jokic-lebron-luka-nba/
+
 **Hamas Frees 6 Hostages and Returns Remains of Shiri Bibas**\
 `It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
 https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
 **2 Virginia Beach Police Officers Are Fatally Shot During a Traffic Stop**\
 `The officers spotted a car with expired licensed plates and ordered the driver to stop, the police said. The driver who opened fire was later found dead.`\
 https://nytimes.com/2025/02/22/us/virginia-beach-police-shooting.html
-
-**George Floyd Killing Separated Trump From His Generals**\
-`A four-minute video appears to have been a turning point for the president and Gen. Charles Q. Brown Jr., the ousted Joint Chiefs chairman.`\
-https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
-
-**Braves ace Chris Sale crisp in his spring training debut, but Dylan Dodd not so much**\
-`Sale retired all six batters he faced in the Braves' Grapefruit League opener against the Minnesota Twins.`\
-https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
-
-**Tigers' Kenta Maeda opens spring with everything to prove**\
-`Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
-https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
 
