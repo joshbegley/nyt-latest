@@ -1,3 +1,11 @@
+**For families of freed hostages, a mix of euphoria and grief for those who didn’t survive.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
+
+**Police Respond to ‘Active Threat’ at a Pennsylvania Hospital**\
+`The police said they had responded to UPMC Memorial hospital in York County, Pa.`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
 `Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
 https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
 **Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\
 `Warren Buffett’s conglomerate held $334 billion in cash at the end of 2024, helping to stabilize earnings in the face of declines at more than half of the nearly 200 businesses it operates.`\
 https://nytimes.com/2025/02/22/business/dealbook/berkshire-hathaway-earnings.html
-
-**Moyes: I don't understand why penalty was overturned**\
-`The incident occurred in second-half added time, with Harry Maguire initially penalised for fouling Ashley Young in the box.`\
-https://nytimes.com/athletic/6152900/2025/02/22/everton-penalty-man-utd-moyes/
-
-**Vaughn Vreeland’s Triple-Chocolate Brownies Are Perfectly, Wonderfully Extra**\
-`Bittersweet, milk and white chocolate — plus a good dose of cocoa powder — are all invited to the brownie dance floor.`\
-https://nytimes.com/2025/02/22/dining/vaughn-vreelands-triple-chocolate-brownies-recipe.html
 
