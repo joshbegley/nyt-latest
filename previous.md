@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
+
+**Live Updates: Hamas Is Set to Release 6 More Hostages**\
+`The exchange of hostages for Palestinian prisoners held in Israel appeared likely to go ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
+
 **'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
 `Kuzma reflected on his tenure in Washington, saying, "I wouldn’t trade this experience and being here and being a Wizard for anything."`\
 https://nytimes.com/athletic/6152636/2025/02/22/kyle-kuzma-washington-wizards-milwaukee-bucks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/22/world/asia/india-beerbiceps.html
 **As the U.S. Exits Foreign Aid, Who Will Fill the Gap?**\
 `China could reap the soft-power advantage, but like Western governments, the country is cutting back on aid. Philanthropies say they cannot replace the United States.`\
 https://nytimes.com/2025/02/22/health/usaid-who-trump-china.html
-
-**Emboldened Kremlin Steps Up Efforts to Seize Businesses in Russia**\
-`The legal onslaught on Moscow’s second-largest airport has been seen as part of the Kremlin’s wartime drive to seize control of key assets still in private hands.`\
-https://nytimes.com/2025/02/22/world/europe/russia-nationalization-airport.html
-
-**Coffee Prices Are at a 50-Year High. Producers Aren’t Celebrating.**\
-`Climate change is behind the windfall gains, and growers are worried about whether they can adapt.`\
-https://nytimes.com/2025/02/22/business/coffee-prices-climate-change.html
 

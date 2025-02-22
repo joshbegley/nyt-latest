@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
+
+**Live Updates: Hamas Is Set to Release 6 More Hostages**\
+`The exchange of hostages for Palestinian prisoners held in Israel appeared likely to go ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
+
 **'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
 `Kuzma reflected on his tenure in Washington, saying, "I wouldn’t trade this experience and being here and being a Wizard for anything."`\
 https://nytimes.com/athletic/6152636/2025/02/22/kyle-kuzma-washington-wizards-milwaukee-bucks/
