@@ -1,3 +1,11 @@
+**Consumer bureau was told to vacate its Washington office as its lease is canceled.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/21/us/trump-news/consumer-bureau-was-told-to-vacate-its-washington-office-as-its-lease-is-canceled
+
+**What a Bout!**\
+`Rose Conlon presents a punchy themeless puzzle.`\
+https://nytimes.com/2025/02/21/crosswords/daily-puzzle-2025-02-22.html
+
 **Corrections: Feb. 22, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 22, 2025.`\
 https://nytimes.com/2025/02/21/pageoneplus/corrections-feb-22-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 **Meghan’s New Name? He’s Been Using It for Years.**\
 `The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
 https://nytimes.com/2025/02/21/style/meghan-markle-as-ever-brand-name-controversy.html
-
-**What They Took**\
-`They rushed to flee the fires in Southern California, grabbing their belongings and their pets. They took the precious and the mundane, each with its own story to tell.`\
-https://nytimes.com/interactive/2025/02/21/us/la-fires-survivors-palisades-eaton.html
-
-**Michigan, Dusty May agree to multi-year contract extension**\
-`In his first season at Michigan, May has the Wolverines in the hunt for a Big Ten championship`\
-https://nytimes.com/athletic/6152355/2025/02/21/michigan-dusty-may-contract-extension/
 

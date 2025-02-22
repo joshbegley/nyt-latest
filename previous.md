@@ -23,7 +23,7 @@ https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
 https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
 
 **Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
-`The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
+`The general made an impression in 2018 when he said, according to the president, that the Islamic State could be defeated in a week.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 
 **Meghan’s New Name? He’s Been Using It for Years.**\

@@ -1,3 +1,7 @@
+**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
+`The general made an impression in 2018 when he said, according to the president, that the Islamic State could be defeated in a week.`\
+https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
+
 **Corrections: Feb. 22, 2025**\
 `Corrections that appeared in print on Saturday, Feb. 22, 2025.`\
 https://nytimes.com/2025/02/21/pageoneplus/corrections-feb-22-2025.html
