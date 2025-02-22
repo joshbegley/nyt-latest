@@ -1,3 +1,7 @@
+**Hurzeler: Difference-maker Rutter starting to show his quality**\
+`Rutter has six goals in his last eight games, having initially started slowly following his £40m summer move from Leeds.`\
+https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzeler/
+
 **FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
 `The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
 https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/world/europe/francis-pope-church-health.html
 **Amid Changes at the National Archives, the Carter Library Cancels a Civil Rights Book Event**\
 `After President Trump put in new leadership at the National Archives, the Jimmy Carter Presidential Library in Atlanta abruptly canceled several events.`\
 https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-event.html
-
-**Firing of Joint Chiefs Chairman and Others Draws Criticism**\
-`Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
-https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 
