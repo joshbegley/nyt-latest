@@ -1,3 +1,7 @@
+**Takeaways: How Wild pulled off thrilling overtime comeback — 'There's no quit'**\
+`Marco Rossi scored in overtime as the Wild rallied for a 4-3 victory over the Red Wings on Saturday.`\
+https://nytimes.com/athletic/6153235/2025/02/22/wild-red-wings-takeaways-overtime-comeback/
+
 **In the Rearview**\
 `Daniel Grinberg and Rafael Musa’s puzzle tells solvers, “Back it up, bub.”`\
 https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html

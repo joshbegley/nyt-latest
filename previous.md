@@ -1,3 +1,7 @@
+**Takeaways: How Wild pulled off thrilling overtime comeback — 'There's no quit'**\
+`Marco Rossi scored in overtime as the Wild rallied for a 4-3 victory over the Red Wings on Saturday.`\
+https://nytimes.com/athletic/6153235/2025/02/22/wild-red-wings-takeaways-overtime-comeback/
+
 **In the Rearview**\
 `Daniel Grinberg and Rafael Musa’s puzzle tells solvers, “Back it up, bub.”`\
 https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.htm
 **2025 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home a winner at the Indy Spirit Awards, held on the beach in Santa Monica, Calif., on Saturday.`\
 https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners-list.html
-
-**Nine-Month Manhunt for French Fugitive Finally Produces an Arrest**\
-`A French convict was arrested in Romania months after he had been freed in a brazen daytime ambush that killed two prison guards, authorities said.`\
-https://nytimes.com/2025/02/22/world/europe/france-manhunt-prison-break-arrest.html
 
