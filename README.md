@@ -1,3 +1,7 @@
+**Billionaire Justin Ishbia abandons bid for Twins to boost his stake in White Sox: Sources**\
+`Ishbia has dropped his pursuit of the Twins, The Athletic has learned, and will instead increase his minority stake in the White Sox.`\
+https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-jerry-reinsdorf/
+
 **DOGE’s Only Public Ledger Is Riddled With Mistakes**\
 `The figures from Elon Musk’s team of outsiders represent billions in government cuts. They are also full of accounting errors, outdated data and other miscalculations.`\
 https://nytimes.com/2025/02/21/upshot/doge-musk-trump-errors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.
 **Hegseth Fires Navy’s Top Officer**\
 `Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
 https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
-
-**Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
-`The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
-https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
 
