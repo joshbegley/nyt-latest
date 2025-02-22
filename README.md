@@ -6,7 +6,7 @@ https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
 `The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
 https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
 
-**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Command**\
+**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
 `The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 
