@@ -1,3 +1,7 @@
+**Watching Burnley: The team that don't concede goals, and could coax JJ Watt out of retirement**\
+`The Championship club's defence has not been breached since December 21, 12 games or 18 hours and 10 minutes of football ago`\
+https://nytimes.com/athletic/6152361/2025/02/22/burnley-jj-watt-trafford-parker-concede/
+
 **Here’s the latest.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150770/2025/02/22/champions-league-travel-liverpoo
 **India’s Outrage Machine Devours a Star YouTuber Over a Crude One-Liner**\
 `A joke made by Ranveer Allahbadia, a Joe Rogan for online Indians, has brought him death threats and criminal charges.`\
 https://nytimes.com/2025/02/22/world/asia/india-beerbiceps.html
-
-**As the U.S. Exits Foreign Aid, Who Will Fill the Gap?**\
-`China could reap the soft-power advantage, but like Western governments, the country is cutting back on aid. Philanthropies say they cannot replace the United States.`\
-https://nytimes.com/2025/02/22/health/usaid-who-trump-china.html
 
