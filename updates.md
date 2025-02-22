@@ -1,3 +1,7 @@
+**Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
+`The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
+https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
+
 **Pistons get halftime message from J.B. Bickerstaff, beat Spurs for fifth consecutive win**\
 `“We're just growing as a team,” Pistons center Jalen Duren said after the 125-110 win. “The chemistry is there. We all like each other."`\
 https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickerstaff/
