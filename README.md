@@ -1,3 +1,7 @@
+**Braves ace Chris Sale crisp in his spring training debut, but Dylan Dodd not so much**\
+`Sale retired all six batters he faced in the Braves' Grapefruit League opener against the Minnesota Twins.`\
+https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
+
 **Tigers' Kenta Maeda opens spring with everything to prove**\
 `Kenta Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
 https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-t
 **Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
 `The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
 https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
-
-**Pistons get halftime message from J.B. Bickerstaff, beat Spurs for fifth consecutive win**\
-`“We're just growing as a team,” Pistons center Jalen Duren said after the 125-110 win. “The chemistry is there. We all like each other."`\
-https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickerstaff/
 
