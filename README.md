@@ -22,7 +22,7 @@ https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-eve
 `Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
 https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 
-**Former USMNT goalkeeper Meola suffers heart attack on 56th birthday**\
+**Former USMNT goalkeeper Meola suffers heart attack**\
 `Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
 https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
 
