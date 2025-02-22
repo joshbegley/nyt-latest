@@ -1,3 +1,15 @@
+**Corrections: Feb. 22, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 22, 2025.`\
+https://nytimes.com/2025/02/21/pageoneplus/corrections-feb-22-2025.html
+
+**The judge’s ruling temporarily halts any stoppage on federal diversity initiatives.**\
+`Judge Adam B. Abelson wrote that orders by President Trump targeting diversity, equity and inclusion programs violated freedom of speech protections.`\
+https://nytimes.com/live/2025/02/21/us/trump-news/the-judges-ruling-temporarily-halts-any-stoppage-on-federal-diversity-initiatives
+
+**Woman Lured, Drugged and Stole From Older Men in Deadly Scheme, U.S. Says**\
+`The 43-year-old woman was arrested in Mexico after a “romance scam on steroids,” an F.B.I. agent said.`\
+https://nytimes.com/2025/02/21/us/woman-lured-drugged-and-stole-from-older-men-in-deadly-scheme-us-says.html
+
 **Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
 `A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk access to government data.`\
 https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html

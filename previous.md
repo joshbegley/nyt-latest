@@ -1,3 +1,15 @@
+**Corrections: Feb. 22, 2025**\
+`Corrections that appeared in print on Saturday, Feb. 22, 2025.`\
+https://nytimes.com/2025/02/21/pageoneplus/corrections-feb-22-2025.html
+
+**The judge’s ruling temporarily halts any stoppage on federal diversity initiatives.**\
+`Judge Adam B. Abelson wrote that orders by President Trump targeting diversity, equity and inclusion programs violated freedom of speech protections.`\
+https://nytimes.com/live/2025/02/21/us/trump-news/the-judges-ruling-temporarily-halts-any-stoppage-on-federal-diversity-initiatives
+
+**Woman Lured, Drugged and Stole From Older Men in Deadly Scheme, U.S. Says**\
+`The 43-year-old woman was arrested in Mexico after a “romance scam on steroids,” an F.B.I. agent said.`\
+https://nytimes.com/2025/02/21/us/woman-lured-drugged-and-stole-from-older-men-in-deadly-scheme-us-says.html
+
 **Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
 `A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk access to government data.`\
 https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/02/21/us/la-fires-survivors-palisades-eaton
 **Michigan, Dusty May agree to multi-year contract extension**\
 `In his first season at Michigan, May has the Wolverines in the hunt for a Big Ten championship`\
 https://nytimes.com/athletic/6152355/2025/02/21/michigan-dusty-may-contract-extension/
-
-**Trump Fires Joint Chiefs Chairman Amid Turmoil at Pentagon**\
-`The decision to fire Gen. Charles Q. Brown Jr. reflects the president’s insistence that the military’s leadership is too mired in diversity issues and has lost sight of its combat role.`\
-https://nytimes.com/2025/02/21/us/politics/trump-fires-cq-brown-pentagon.html
-
-**Prison Officials Detail Treatment of Trans Inmates Under Trump Gender Order**\
-`The federal Bureau of Prisons is banning the use of preferred pronouns, stopping special pat-down procedures and rejecting underwear requests from transgender prisoners.`\
-https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
-
-**Giants' Logan Webb to join illustrious list with fourth consecutive Opening Day start**\
-`"I never take this stuff for granted," said Webb, who will kick the season off against the Reds. `\
-https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-starter-logan-webb/
 
