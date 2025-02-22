@@ -1,3 +1,15 @@
+**Timberwolves' Chris Finch will need to be extra creative with lineups down the stretch**\
+`Jaylen Clark, Terrence Shannon Jr. and Rob Dillingham have had big stretches in games recently, opportunity created by a rash of injuries.`\
+https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injuries-lineups-nba/
+
+**A Closer Look at the 6 Freed Israeli Hostages**\
+`Two of the captives had been in the hands of Hamas for about 10 years. The rest were taken during the attack on Israel on Oct. 7, 2023.`\
+https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
+
+**New Proposal for Ukraine’s Minerals Is Nearly Identical to Rejected Version**\
+`The Trump administration appears to be insisting that Ukraine relinquish half of its revenues from natural resource extraction, with no security guarantee in exchange.`\
+https://nytimes.com/2025/02/22/world/europe/ukraine-trump-minerals.html
+
 **A Tale of Two Cost-Cutters**\
 `Elon Musk’s hyperfocus on the bottom line has made him influential in Washington and Silicon Valley. How does that compare with the last famous cost-cutter, Jack Welch?`\
 https://nytimes.com/2025/02/22/business/dealbook/elon-musk-jack-welch-cuts.html
@@ -27,16 +39,4 @@ https://nytimes.com/2025/02/22/opinion/trump-king-ukraine.html
 **2 Books Chock-Full of Worthwhile Ideas**\
 `A study of human fatigue; a cranky travel memoir.`\
 https://nytimes.com/2025/02/22/books/read-like-wind-recommendations.html
-
-**Michigan State and lessons from the old school**\
-`Friday's victory against Michigan was proof of concept for a program that still willfully does things its own way.`\
-https://nytimes.com/athletic/6152773/2025/02/22/michigan-state-basketball-tom-izzo-ncaa-tournament/
-
-**NHL Awards Watch: Quinn Hughes or Cale Makar for the Norris?**\
-`With the NHL gearing up for the stretch run, most of the awards races are still very much in play.`\
-https://nytimes.com/athletic/6147987/2025/02/22/nhl-quinn-hughes-cale-makar-norris-trophy/
-
-**Mets prospect notes: Brandon Sproat's new pitch, Drew Gilbert's old injury issues**\
-`The next wave of Mets talent is on the way, but injuries and other hurdles stymied progress last season.`\
-https://nytimes.com/athletic/6151458/2025/02/22/mets-prospects-brandon-sproat-drew-gilbert/
 
