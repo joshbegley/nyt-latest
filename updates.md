@@ -1,3 +1,25 @@
+**Timberwolves' Chris Finch will need to be extra creative with lineups down the stretch**\
+`Jaylen Clark, Terrence Shannon Jr. and Rob Dillingham have had big stretches in games recently, opportunity created by a rash of injuries.`\
+https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injuries-lineups-nba/
+
+**A Closer Look at the 6 Freed Israeli Hostages**\
+`Two of the captives had been in the hands of Hamas for about 10 years. The rest were taken during the attack on Israel on Oct. 7, 2023.`\
+https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
+
+**New Proposal for Ukraine’s Minerals Is Nearly Identical to Rejected Version**\
+`The Trump administration appears to be insisting that Ukraine relinquish half of its revenues from natural resource extraction, with no security guarantee in exchange.`\
+https://nytimes.com/2025/02/22/world/europe/ukraine-trump-minerals.html
+
+**Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
+`From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
+`\
+https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset-ranking/
+
+**Inside the unique connection between Anders Sörensen and William Nylander**\
+`Sörensen and Nylander's shared history dates back more than 20 years and isn't the ordinary one between an opposing NHL coach and player. 
+`\
+https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
+
 **Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
 `From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
 `\
