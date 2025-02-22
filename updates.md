@@ -1,3 +1,7 @@
+**Michigan State moves atop Big Ten standings with win at No. 12 Michigan**\
+`Jase Richardson led Michigan State with 21 points, and Tre Holloman added 18, which included back-to-back-to-back 3s.`\
+https://nytimes.com/athletic/6152562/2025/02/21/michigan-michigan-state-analysis-big-ten-standings/
+
 **Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
 `Rizzo knows the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
 https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/

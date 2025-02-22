@@ -1,3 +1,7 @@
+**Michigan State moves atop Big Ten standings with win at No. 12 Michigan**\
+`Jase Richardson led Michigan State with 21 points, and Tre Holloman added 18, which included back-to-back-to-back 3s.`\
+https://nytimes.com/athletic/6152562/2025/02/21/michigan-michigan-state-analysis-big-ten-standings/
+
 **Billionaire Justin Ishbia abandons bid for Twins to boost his stake in White Sox: Sources**\
 `Ishbia has dropped his pursuit of the Twins, The Athletic has learned, and will instead increase his minority stake in the White Sox.`\
 https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-jerry-reinsdorf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/woman-lured-drugged-and-stole-from-older-men-i
 **Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
 `A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk access to government data.`\
 https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
-
-**Hegseth Fires Navy’s Top Officer**\
-`Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
-https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
 
