@@ -1,3 +1,7 @@
+**‘Terrorist’ Attack at Market in France Leaves One Dead**\
+`France’s president, Emmanuel Macron, said there was “no doubt” that the stabbing was a terrorist attack, and the police are investigating it as such.`\
+https://nytimes.com/2025/02/22/world/europe/terrorist-attack-at-market-in-france-leaves-one-dead.html
+
 **The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
 `Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
 https://nytimes.com/athletic/6151450/2025/02/22/aston-villa-chelsea-analysis/
