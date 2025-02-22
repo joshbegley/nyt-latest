@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6152450/2025/02/22/leicester-van-nistelrooy-rudkin-
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
 
 **Live Updates: Hamas Starts Releasing More Hostages**\
-`Two hostages were released as the exchange of six hostages for Palestinian prisoners held in Israel moved ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
+`Two of the six hostages slated for release as part of a swap for Palestinian prisoners have been freed. Earlier, Hamas handed over the body of Shiri Bibas, easing tensions that it had raised by turning over the wrong body.`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
 
 **'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
