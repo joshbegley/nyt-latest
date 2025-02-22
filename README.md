@@ -1,3 +1,7 @@
+**DOGE’s Only Public Ledger Is Riddled With Mistakes**\
+`The figures from Elon Musk’s team of outsiders represent billions in government cuts. They are also full of accounting errors, outdated data and other miscalculations.`\
+https://nytimes.com/2025/02/21/upshot/doge-musk-trump-errors.html
+
 **Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
 `Rizzo knows that the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
 https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
 **Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
 `The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
 https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
-
-**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
-`The general made an impression in 2018 when he said, according to the president, that the Islamic State could be defeated in a week.`\
-https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 
