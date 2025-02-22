@@ -1,3 +1,11 @@
+**Headstrong Francis Put the Church Above His Health, Vatican Observers Say**\
+`Many who know him said that Francis, driven by a sense of mission and a discipline born of his early training, essentially worked himself into the hospital.`\
+https://nytimes.com/2025/02/22/world/europe/francis-pope-church-health.html
+
+**Amid Changes at the National Archives, the Carter Library Cancels a Civil Rights Book Event**\
+`After President Trump put in new leadership at the National Archives, the Jimmy Carter Presidential Library in Atlanta abruptly canceled several events.`\
+https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-event.html
+
 **Firing of Joint Chiefs Chairman and Others Draws Criticism**\
 `Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
 https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
