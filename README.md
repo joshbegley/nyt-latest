@@ -1,3 +1,7 @@
+**Musk Tells Government Workers to Detail Their Workweek or Face Termination**\
+`Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
+https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
+
 **2025 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home a winner at the Indy Spirit Awards, held on the beach in Santa Monica, Calif., on Saturday.`\
 https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners-list.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
 https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
 
 **Tigers' Kenta Maeda opens spring with everything to prove**\
-`Kenta Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
+`Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
 https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
 
 **Florida Sheriff Puts 7 Deputies on Leave After Domestic Violence Case Turns Deadly**\
 `The sheriff said the deputies failed to take actions that could have prevented three deaths. “There will be people that will lose their job over this,” he said.`\
 https://nytimes.com/2025/02/22/us/broward-county-florida-sheriff-deputies.html
-
-**2025 Film Independent Spirit Awards: See the Looks From the Blue Carpet**\
-`What do stars wear to an awards show held in the middle of the day?`\
-https://nytimes.com/2025/02/22/style/2025-film-independent-spirit-awards-red-carpet-looks.html
 
