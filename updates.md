@@ -1,3 +1,7 @@
+**Florida Sheriff Puts 7 Deputies on Leave After Domestic Violence Case Turns Deadly**\
+`The sheriff said the deputies failed to take actions that could have prevented three deaths. “There will be people that will lose their job over this,” he said.`\
+https://nytimes.com/2025/02/22/us/broward-county-florida-sheriff-deputies.html
+
 **2025 Film Independent Spirit Awards: See the Looks From the Blue Carpet**\
 `What do stars wear to an awards show held in the middle of the day?`\
 https://nytimes.com/2025/02/22/style/2025-film-independent-spirit-awards-red-carpet-looks.html

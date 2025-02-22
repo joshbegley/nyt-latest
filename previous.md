@@ -1,3 +1,7 @@
+**Florida Sheriff Puts 7 Deputies on Leave After Domestic Violence Case Turns Deadly**\
+`The sheriff said the deputies failed to take actions that could have prevented three deaths. “There will be people that will lose their job over this,” he said.`\
+https://nytimes.com/2025/02/22/us/broward-county-florida-sheriff-deputies.html
+
 **2025 Film Independent Spirit Awards: See the Looks From the Blue Carpet**\
 `What do stars wear to an awards show held in the middle of the day?`\
 https://nytimes.com/2025/02/22/style/2025-film-independent-spirit-awards-red-carpet-looks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickers
 **Arsenal ‘nowhere near the level’ required to challenge for Premier League - Arteta**\
 `Arsenal lost 1-0 at home against West Ham to leave them eight points behind PL leaders Liverpool`\
 https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
-
-**Hurzeler: Difference-maker Rutter starting to show his quality**\
-`Rutter has six goals in his last eight games, having initially started slowly following his £40m summer move from Leeds.`\
-https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzeler/
 
