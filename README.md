@@ -1,3 +1,7 @@
+**Israel is set to free largest group of Palestinian prisoners since truce began.**\
+`By Adam Rasgon and Fatima AbdulKarim`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/israel-palestinian-prisoners-ceasefire
+
 **Shocked by Trump, Europe Turns Its Hopes to Germany’s Election**\
 `Germany’s economy is stalled and its politics fractured. But it sees an opening for a new chancellor to lead Europe’s response to a changing America.`\
 https://nytimes.com/2025/02/22/world/europe/germany-election-trump.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injurie
 `Two of the captives had been in the hands of Hamas for about 10 years. The rest were taken during the attack on Israel on Oct. 7, 2023.`\
 https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
 
-**New Proposal for Ukraine’s Minerals Is Nearly Identical to Rejected Version**\
+**U.S. Pressing Tough Demands in Revised Deal for Ukraine’s Minerals**\
 `The Trump administration appears to be insisting that Ukraine relinquish half of its revenues from natural resource extraction, with no security guarantee in exchange.`\
 https://nytimes.com/2025/02/22/world/europe/ukraine-trump-minerals.html
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset
 `Sörensen and Nylander's shared history dates back more than 20 years and isn't the ordinary one between an opposing NHL coach and player. 
 `\
 https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
-
-**Is Mikko Rantanen a bad fit in Carolina? Only if you're not paying attention**\
-`After participating in the 4 Nations, Rantanen is facing questions about his future and adjusting to his new surroundings.`\
-https://nytimes.com/athletic/6152107/2025/02/22/mikko-rantanen-hurricanes-trade-rumors-contract/
 
