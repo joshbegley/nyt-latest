@@ -1,3 +1,7 @@
+**Tigers' Kenta Maeda opens spring with everything to prove**\
+`Kenta Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
+https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
+
 **Florida Sheriff Puts 7 Deputies on Leave After Domestic Violence Case Turns Deadly**\
 `The sheriff said the deputies failed to take actions that could have prevented three deaths. “There will be people that will lose their job over this,” he said.`\
 https://nytimes.com/2025/02/22/us/broward-county-florida-sheriff-deputies.html
