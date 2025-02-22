@@ -1,3 +1,11 @@
+**What to Know About Janet Mills, the Maine Governor Who Told Trump, ‘See You in Court’**\
+`The state’s first female governor and first female district attorney, the longtime Democratic politician has a history of supporting law enforcement.`\
+https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
+
+**2 Virginia Beach Police Officers Are Fatally Shot During a Traffic Stop**\
+`The officers spotted a car with expired licensed plates and ordered the driver to stop, the police said. The driver who opened fire was later found dead.`\
+https://nytimes.com/2025/02/22/us/virginia-beach-police-shooting.html
+
 **George Floyd Killing Separated Trump From His Generals**\
 `A four-minute video appears to have been a turning point for the president and Gen. Charles Q. Brown Jr., the ousted Joint Chiefs chairman.`\
 https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/22/world/europe/terrorist-attack-france-market.html
 **The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
 `Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
 https://nytimes.com/athletic/6151450/2025/02/22/aston-villa-chelsea-analysis/
-
-**Tesla Is Again Showing Signs It Wants to Sell Cars in India**\
-`Bringing showrooms filled with high-end American-made electric vehicles to India would mark a symbolic victory for President Trump’s ally.`\
-https://nytimes.com/2025/02/22/business/tesla-india-elon-musk.html
-
-**Juan Soto crushes home run in first Mets at-bat in spring training game**\
-`Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
-https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/
 
