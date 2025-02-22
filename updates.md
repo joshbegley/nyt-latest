@@ -1,3 +1,7 @@
+**Braves ace Chris Sale crisp in his spring training debut, but Dylan Dodd not so much**\
+`Sale retired all six batters he faced in the Braves' Grapefruit League opener against the Minnesota Twins.`\
+https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
+
 **Tigers' Kenta Maeda opens spring with everything to prove**\
 `Kenta Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
 https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
