@@ -1,3 +1,11 @@
+**FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
+`The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
+https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
+
+**Police Respond to a Shooting at a Pennsylvania Hospital**\
+`The police had responded to a shooting at UPMC Memorial hospital in York County, Pa., where an official said the threat had been “neutralized.”`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
 **'My time ran out': Khris Middleton reflects on emotional trade, Bucks career**\
 `The three-time All-Star opened up about his relationship with Giannis, how he found out he was headed to Washington and more.`\
 https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-giannis/
