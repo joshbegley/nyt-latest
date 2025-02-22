@@ -1,3 +1,7 @@
+**Twins regroup after Justin Ishbia drops bid for White Sox deal: 'Everything's on the table'**\
+`The Twins are hustling to regroup after learning lthis week that a leading contender in their search for a new owner has abandoned his bid. `\
+https://nytimes.com/athletic/6152097/2025/02/21/justin-ishbia-out-minnesota-twins-sale/
+
 **Michigan State moves atop Big Ten standings with win at No. 12 Michigan**\
 `Jase Richardson led Michigan State with 21 points, and Tre Holloman added 18, which included back-to-back-to-back 3s.`\
 https://nytimes.com/athletic/6152562/2025/02/21/michigan-michigan-state-analysis-big-ten-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/21/us/trump-news/the-judges-ruling-temporarily-
 **Woman Lured, Drugged and Stole From Older Men in Deadly Scheme, U.S. Says**\
 `The 43-year-old woman was arrested in Mexico after a “romance scam on steroids,” an F.B.I. agent said.`\
 https://nytimes.com/2025/02/21/us/woman-lured-drugged-and-stole-from-older-men-in-deadly-scheme-us-says.html
-
-**Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
-`A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk access to government data.`\
-https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
 
