@@ -1,3 +1,7 @@
+**Officials Fired at Traffic Safety Agency Investigating Musk’s Company**\
+`The National Highway Traffic Safety Administration has raised questions about crashes involving Tesla’s self-driving technology.`\
+https://nytimes.com/2025/02/22/business/traffic-safety-agency-firings-elon-musk.html
+
 **A Tale of Two Cost-Cutters**\
 `Elon Musk’s hyperfocus on the bottom line has made him influential in Washington and Silicon Valley. How does that compare with the last famous cost-cutter, Jack Welch?`\
 https://nytimes.com/2025/02/22/business/dealbook/elon-musk-jack-welch-cuts.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6151823/2025/02/22/hockey-hometowns-defensive-pairs
 **‘King’ Trump Makes the Founding Fathers Roll Over**\
 `A guide to the fifth week of his presidency.`\
 https://nytimes.com/2025/02/22/opinion/trump-king-ukraine.html
-
-**2 Books Chock-Full of Worthwhile Ideas**\
-`A study of human fatigue; a cranky travel memoir.`\
-https://nytimes.com/2025/02/22/books/read-like-wind-recommendations.html
 
