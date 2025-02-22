@@ -1,3 +1,11 @@
+**Michigan, Dusty May agree to multi-year contract extension**\
+`In his first season at Michigan, May has the Wolverines in the hunt for a Big Ten championship`\
+https://nytimes.com/athletic/6152355/2025/02/21/michigan-dusty-may-contract-extension/
+
+**Trump Fires Joint Chiefs Chairman Amid Turmoil at Pentagon**\
+`The decision to fire Gen. Charles Q. Brown Jr. reflects the president’s insistence that the military’s leadership is too mired in diversity issues and has lost sight of its combat role.`\
+https://nytimes.com/2025/02/21/us/politics/trump-fires-cq-brown-pentagon.html
+
 **Prison Officials Detail Treatment of Trans Inmates Under Trump Gender Order**\
 `The federal Bureau of Prisons is banning the use of preferred pronouns, stopping special pat-down procedures and rejecting underwear requests from transgender prisoners.`\
 https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
 **What That Chain Saw Was Really About**\
 `Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
 https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
-
-**Trump Suggests Taking Control of the Postal Service**\
-`The president said he was considering merging the mail service, an independent agency, with the Commerce Department.`\
-https://nytimes.com/2025/02/21/us/politics/trump-usps.html
-
-**Jaguars hire former Rams executive James Gladstone as GM**\
-`Jaguars owner Shad Khan: We chose Gladstone "following a painstaking but energizing interview process that left nothing to doubt."`\
-https://nytimes.com/athletic/6152044/2025/02/21/jaguars-gm-hire-james-gladstone/
 
