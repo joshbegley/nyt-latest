@@ -1,3 +1,7 @@
+**Tigers' Kenta Maeda opens spring with everything to prove**\
+`Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
+https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
+
 **2025 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home a winner at the Indy Spirit Awards, held on the beach in Santa Monica, Calif., on Saturday.`\
 https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners-list.html
