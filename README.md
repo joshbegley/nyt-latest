@@ -1,3 +1,7 @@
+**Michigan State and lessons from the old school**\
+`Friday's victory against Michigan was proof of concept for a program that still willfully does things its own way.`\
+https://nytimes.com/athletic/6152773/2025/02/22/michigan-state-basketball-tom-izzo-ncaa-tournament/
+
 **NHL Awards Watch: Quinn Hughes or Cale Makar for the Norris?**\
 `With the NHL gearing up for the stretch run, most of the awards races are still very much in play.`\
 https://nytimes.com/athletic/6147987/2025/02/22/nhl-quinn-hughes-cale-makar-norris-trophy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/opinion/trump-germany-election.html
 **What Trump Can Learn From the Last G.O.P. Disaster**\
 `How the vibe shift of 2025 could be squandered.`\
 https://nytimes.com/2025/02/22/opinion/trump-bush-republican-disaster.html
-
-**Andrew Friedman on Ohtani, extending Roberts, Dodgers' dominance, and more: 5 things we learned**\
-`On his visit to Starkville, the Dodgers' president of baseball operations talked about Ohtani, Sasaki, his club's global ambitions and more.`\
-https://nytimes.com/athletic/6152738/2025/02/22/andrew-friedman-dodgers-payroll-ohtani-sasaki/
 
