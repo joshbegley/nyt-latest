@@ -1,3 +1,7 @@
+**Arsenal ‘nowhere near the level’ required to challenge for Premier League - Arteta**\
+`Arsenal lost 1-0 at home against West Ham to leave them eight points behind PL leaders Liverpool`\
+https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
+
 **Arteta 'angry' and 'disappointed' as West Ham defeat dents Arsenal's title hopes**\
 `Arteta described himself as “very angry” as Arsenal's home defeat to West Ham dented their title hopes.`\
 https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
