@@ -1,3 +1,15 @@
+**The Briefing: Ipswich 1 Tottenham 4: Spence influence growing, Johnson's welcome return**\
+`Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
+https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
+
+**Yankees' Devin Williams met with Hal Steinbrenner over facial hair policy**\
+`The Yankees amended their facial hair policy after it had been a topic of internal conversation for around 10 years.`\
+https://nytimes.com/athletic/6152905/2025/02/22/devin-williams-yankees-facial-hair-policy/
+
+**The Briefing: Arsenal 0 West Ham 1 - unbeaten run over, Lewis-Skelly's red and the Merino experiment**\
+`Art de Roche analyses they key talking points from Arsenal's home loss to West Ham`\
+https://nytimes.com/athletic/6151448/2025/02/22/arsenal-west-ham-analysis/
+
 **Headstrong Francis Put the Church Above His Health, Vatican Observers Say**\
 `Many who know him said that Francis, driven by a sense of mission and a discipline born of his early training, essentially worked himself into the hospital.`\
 https://nytimes.com/2025/02/22/world/europe/francis-pope-church-health.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6152900/2025/02/22/everton-penalty-man-utd-moyes/
 **Vaughn Vreeland’s Triple-Chocolate Brownies Are Perfectly, Wonderfully Extra**\
 `Bittersweet, milk and white chocolate — plus a good dose of cocoa powder — are all invited to the brownie dance floor.`\
 https://nytimes.com/2025/02/22/dining/vaughn-vreelands-triple-chocolate-brownies-recipe.html
-
-**Weegee Pix End Up in Morgue!**\
-`Evidence has been uncovered that decades-old street snaps by the famed photographer are still stashed in old files at The Times.`\
-https://nytimes.com/2025/02/22/insider/weegee-pix-end-up-in-morgue.html
-
-**The Young Voices Shaping ‘New Sonic Futures’**\
-`A new project from T magazine highlights a group of female singer-songwriters who are reinventing R&B.`\
-https://nytimes.com/2025/02/22/insider/the-young-voices-shaping-new-sonic-futures.html
-
-**Measles Outbreaks in Texas and New Mexico Sicken Nearly 100 People**\
-`Texas reported 90 cases this week, while New Mexico reported nine. A majority of the cases have been in a Texas county where vaccination rates have lagged behind the rest of the state.`\
-https://nytimes.com/2025/02/22/us/texas-measles-outbreak.html
 
