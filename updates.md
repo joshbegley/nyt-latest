@@ -1,3 +1,11 @@
+**Oregon stuns Wisconsin with 17-point rally. Are the Ducks poised for a late-season run?**\
+`This victory gave Oregon its ninth Quad 1 win of the season, trailing only Auburn’s absurd 14.`\
+https://nytimes.com/athletic/6153105/2025/02/22/oregon-wisconsin-rally-big-ten/
+
+**‘Terrorist’ Attack at Market in France Leaves One Dead**\
+`France’s president, Emmanuel Macron, said there was “no doubt” that the stabbing was a terrorist attack, and the police are investigating it as such.`\
+https://nytimes.com/2025/02/22/world/europe/terrorist-attack-france-market.html
+
 **‘Terrorist’ Attack at Market in France Leaves One Dead**\
 `France’s president, Emmanuel Macron, said there was “no doubt” that the stabbing was a terrorist attack, and the police are investigating it as such.`\
 https://nytimes.com/2025/02/22/world/europe/terrorist-attack-at-market-in-france-leaves-one-dead.html
