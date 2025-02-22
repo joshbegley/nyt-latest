@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
+`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
+https://nytimes.com/athletic/6151450/2025/02/22/aston-villa-chelsea-analysis/
+
+**Tesla Is Again Showing Signs It Wants to Sell Cars in India**\
+`Bringing showrooms filled with high-end American-made electric vehicles to India would mark a symbolic victory for President Trump’s ally.`\
+https://nytimes.com/2025/02/22/business/tesla-india-elon-musk.html
+
 **Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
 `The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but at least four people were evaluated at a nearby hospital.`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
