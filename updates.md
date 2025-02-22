@@ -1,3 +1,7 @@
+**Fresno State withholding 2 players due to potential gambling violation**\
+`Jalen Weaver is the team’s second-leading scorer at 12.5 points per game while Zaon Collins is tied for third at 12.0.`\
+https://nytimes.com/athletic/6153426/2025/02/22/fresno-state-basketball-gambling/
+
 **Matvei Michkov, who 'needed a break,' dazzles in Flyers' impressive victory**\
 `The rookie recorded one goal and two assists in the Flyers' 6-3 win over the Oilers on Saturday.`\
 https://nytimes.com/athletic/6153328/2025/02/22/flyers-matvei-michkov-oilers/
