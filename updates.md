@@ -1,3 +1,7 @@
+**‘Dreams,’ Film About Teen Infatuation, Takes Top Prize at Berlin International Film Festival**\
+`The event’s other honorees include the actress Rose Byrne, a performance as the composer Richard Rodgers and an Argentine film about a girl who seems to speak to animals.`\
+https://nytimes.com/2025/02/22/arts/dreams-berlin-international-film-festival.html
+
 **What to Know About Janet Mills, the Maine Governor Who Told Trump, ‘See You in Court’**\
 `The state’s first female governor and first female district attorney, the longtime Democratic politician has a history of supporting law enforcement.`\
 https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
