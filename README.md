@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-joki
 `It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
 https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
 
-**Musk Tells Government Workers to Detail Their Workweek or Face Termination**\
+**Musk Says Government Workers Must Detail Their Workweek or Face Termination**\
 `Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
 https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
 
