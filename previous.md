@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, still finding form, struggles in return to giant slalom races**\
+`After pulling out of the giant slalom at world championships, Mikaela Shiffrin returned to the event this weekend on the World Cup tour.`\
+https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
+
 **On the Ropes, Olaf Scholz Keeps Punching**\
 `The German chancellor, who defied calls to step aside after his government fell apart, is down in the polls but insisting he can still win.`\
 https://nytimes.com/2025/02/22/world/europe/germany-scholz-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injurie
 **A Closer Look at the 6 Freed Israeli Hostages**\
 `Two of the captives had been in the hands of Hamas for about 10 years. The rest were taken during the attack on Israel on Oct. 7, 2023.`\
 https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
-
-**U.S. Pressing Tough Demands in Revised Deal for Ukraine’s Minerals**\
-`The Trump administration appears to be insisting that Ukraine relinquish half of its revenues from natural resource extraction, with no security guarantee in exchange.`\
-https://nytimes.com/2025/02/22/world/europe/ukraine-trump-minerals.html
 

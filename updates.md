@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, still finding form, struggles in return to giant slalom races**\
+`After pulling out of the giant slalom at world championships, Mikaela Shiffrin returned to the event this weekend on the World Cup tour.`\
+https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
+
 **The Briefing: Everton 2 Man United 2 - Players show Amorim some fight, but should penalty have stood?**\
 `Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
 https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
