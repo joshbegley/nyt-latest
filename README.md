@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6152361/2025/02/22/burnley-jj-watt-trafford-parker-
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
 
-**Live Updates: Hamas Is Set to Release 6 More Hostages**\
-`The exchange of hostages for Palestinian prisoners held in Israel appeared likely to go ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
+**Live Updates: Hamas Starts Releasing More Hostages**\
+`Two hostages were released as the exchange of six hostages for Palestinian prisoners held in Israel moved ahead, despite Israeli anger over Hamas’s handover of a misidentified body.`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
 
 **'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
