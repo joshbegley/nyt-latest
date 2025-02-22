@@ -1,4 +1,4 @@
-**Anthony Rizzo remains without a team after battling injuries: "I want to play"**\
+**Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
 `Rizzo knows that the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
 https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/
 
