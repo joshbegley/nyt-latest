@@ -1,3 +1,7 @@
+**The Briefing: Everton 2 Man United 2 - Players show Amorim some fight, but should penalty have stood?**\
+`Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
+https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
+
 **On the Ropes, Olaf Scholz Keeps Punching**\
 `The German chancellor, who defied calls to step aside after his government fell apart, is down in the polls but insisting he can still win.`\
 https://nytimes.com/2025/02/22/world/europe/germany-scholz-election.html
