@@ -1,3 +1,7 @@
+**Former USMNT goalkeeper Meola suffers heart attack on 56th birthday**\
+`Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
+https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
+
 **Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\
 `Warren Buffett’s conglomerate held $334 billion in cash at the end of 2024, helping to stabilize earnings in the face of declines at more than half of the nearly 200 businesses it operates.`\
 https://nytimes.com/2025/02/22/business/dealbook/berkshire-hathaway-earnings.html
