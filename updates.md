@@ -1,3 +1,7 @@
+**Lost Causes**\
+`When we lose things, it’s tempting to think we need to keep better track of them, to hold on to stuff more tightly. What if the opposite is true?`\
+https://nytimes.com/2025/02/22/briefing/lost-causes.html
+
 **Canada’s Hockey Victory Sends a Message to Trump: Hands Off**\
 `The routine friendly bet between leaders of Canada and the United States before hockey games was replaced by taunts and heightened stakes on Thursday.`\
 https://nytimes.com/2025/02/22/world/canada/trudeau-canada-us-hockey-trump.html

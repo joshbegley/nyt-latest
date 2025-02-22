@@ -1,3 +1,7 @@
+**Lost Causes**\
+`When we lose things, it’s tempting to think we need to keep better track of them, to hold on to stuff more tightly. What if the opposite is true?`\
+https://nytimes.com/2025/02/22/briefing/lost-causes.html
+
 **Canada’s Hockey Victory Sends a Message to Trump: Hands Off**\
 `The routine friendly bet between leaders of Canada and the United States before hockey games was replaced by taunts and heightened stakes on Thursday.`\
 https://nytimes.com/2025/02/22/world/canada/trudeau-canada-us-hockey-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151728/2025/02/22/how-to-watch-tennessee-texas-am-
 **Big Day for Crypto Goes South in a Hurry After a Giant Hack**\
 `Hours after Coinbase said the S.E.C. was dropping a lawsuit against it, another major cryptocurrency exchange reported a potentially record-setting theft.`\
 https://nytimes.com/2025/02/22/technology/crypto-exchange-bybit-hack.html
-
-**Judges in D.C., Once Flooded With Jan. 6 Cases, Turn to Trump’s Executive Actions**\
-`The jurists are grappling with how to handle a different sort of bid for power by Mr. Trump, sometimes halting his blizzard of executive orders and sometimes letting them move forward.`\
-https://nytimes.com/2025/02/22/us/federal-judges-trump-executive-orders.html
 
