@@ -1,40 +1,40 @@
-**Andrew Friedman on Ohtani, extending Roberts, and Dodgers' dominance: 5 things we learned**\
+**NHL Awards Watch: Quinn Hughes or Cale Makar for the Norris?**\
+`With the NHL gearing up for the stretch run, most of the awards races are still very much in play.`\
+https://nytimes.com/athletic/6147987/2025/02/22/nhl-quinn-hughes-cale-makar-norris-trophy/
+
+**Mets prospect notes: Brandon Sproat's new pitch, Drew Gilbert's old injury issues**\
+`The next wave of Mets talent is on the way, but injuries and other hurdles stymied progress last season.`\
+https://nytimes.com/athletic/6151458/2025/02/22/mets-prospects-brandon-sproat-drew-gilbert/
+
+**Join My Bewildered Liberals Book Club**\
+`Democrats will have no shot at containing Trump if they don’t first understand why voters turn to him.`\
+https://nytimes.com/2025/02/22/opinion/democrats-books-trump.html
+
+**Trump’s Misguided Strategies for Peace in Ukraine**\
+`In their silence, Republicans are betraying the Ukrainians, national security and their own party’s values.`\
+https://nytimes.com/2025/02/22/opinion/trump-ukraine-russia-republicans.html
+
+**I’ve Seen Presidents Clash With the Press. This Is Different.**\
+`As a former White House reporter, I’m familiar with the conventional disputes between journalists and the president. This isn’t one of those.`\
+https://nytimes.com/2025/02/22/opinion/donald-trump-press-ap.html
+
+**Desperate for Drug Treatment**\
+`Readers respond to Nicholas Kristof’s column about his friend’s struggle with addiction.`\
+https://nytimes.com/2025/02/22/opinion/drug-treatment.html
+
+**Fail, Caesar!**\
+`We can’t let Trump be a cruel emperor.`\
+https://nytimes.com/2025/02/22/opinion/trump-king-third-term.html
+
+**The Trump Administration Is Playing With Fire in Germany**\
+`For the United States to put its considerable clout behind a German political party whose leaders minimize Nazi crimes is a blunder of historic proportions.`\
+https://nytimes.com/2025/02/22/opinion/trump-germany-election.html
+
+**What Trump Can Learn From the Last G.O.P. Disaster**\
+`How the vibe shift of 2025 could be squandered.`\
+https://nytimes.com/2025/02/22/opinion/trump-bush-republican-disaster.html
+
+**Andrew Friedman on Ohtani, extending Roberts, Dodgers' dominance, and more: 5 things we learned**\
 `On his visit to Starkville, the Dodgers' president of baseball operations talked about Ohtani, Sasaki, his club's global ambitions and more.`\
 https://nytimes.com/athletic/6152738/2025/02/22/andrew-friedman-dodgers-payroll-ohtani-sasaki/
-
-**Lost Causes**\
-`When we lose things, it’s tempting to think we need to keep better track of them, to hold on to stuff more tightly. What if the opposite is true?`\
-https://nytimes.com/2025/02/22/briefing/lost-causes.html
-
-**Canada’s Hockey Victory Sends a Message to Trump: Hands Off**\
-`The routine friendly bet between leaders of Canada and the United States before hockey games was replaced by taunts and heightened stakes on Thursday.`\
-https://nytimes.com/2025/02/22/world/canada/trudeau-canada-us-hockey-trump.html
-
-**They Invented a New Language for War**\
-`The words of war and the war of words.`\
-https://nytimes.com/2025/02/22/opinion/ukraine-war-poetry-poets.html
-
-**Wordle Review No. 1,345**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 23, 2025.`\
-https://nytimes.com/2025/02/22/crosswords/wordle-review-1345.html
-
-**Amid the 4 Nations noise, Canada reclaims its throne as 'the king of hockey'**\
-`Fans from across Canada traveled great distances to cheer on their team and assert their national pride.`\
-https://nytimes.com/athletic/6151877/2025/02/22/4-nations-face-off-canada-u-s-hockey/
-
-**Connections Companion No. 623**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 23, 2025.`\
-https://nytimes.com/2025/02/22/crosswords/connections-companion-623.html
-
-**MLS new kit superlatives: A look at every new design for 2025**\
-`An assessment of each MLS team's new kits for the 2025 campaign`\
-https://nytimes.com/athletic/6151570/2025/02/22/mls-2025-new-kits-jerseys-uniforms/
-
-**Ed Yong Wants to Show You the Hidden Reality of the World**\
-`The Pulitzer Prize-winning science writer talks about burnout from covering the pandemic and how bird-watching gave him a new sense of hope.`\
-https://nytimes.com/2025/02/22/magazine/ed-yong-interview.html
-
-**How to watch Tennessee at Texas A&M men's basketball: A top-10 SEC rock fight**\
-`Defense should be plentiful in Saturday morning's college basketball starter. No. 6 Tennessee visits No. 7 Texas A&M in College Station.`\
-https://nytimes.com/athletic/6151728/2025/02/22/how-to-watch-tennessee-texas-am-sec-ncaa/
 
