@@ -1,3 +1,7 @@
+**Notebook: Lankinen's extension and the stakes of Vancouver's next 7 games**\
+`We’re in for a high-leverage stretch run for Vancouver, with the team heavily favoured to secure a playoff spot in the Western Conference.`\
+https://nytimes.com/athletic/6152598/2025/02/22/canucks-kevin-lankinen-extension-schedule/
+
 **Officials Fired at Traffic Safety Agency Investigating Musk’s Company**\
 `The National Highway Traffic Safety Administration has raised questions about crashes involving Tesla’s self-driving technology.`\
 https://nytimes.com/2025/02/22/business/traffic-safety-agency-firings-elon-musk.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6152107/2025/02/22/mikko-rantanen-hurricanes-trade-
 **Which hockey hometown can create the best defensive pairs? Ranking them 1 to 15**\
 `Cale Makar and Josh Morrissey? Or Charlie McAvoy and Adam Fox? Here are our rankings of the defensive pairs different hometowns could form.`\
 https://nytimes.com/athletic/6151823/2025/02/22/hockey-hometowns-defensive-pairs-ranked/
-
-**‘King’ Trump Makes the Founding Fathers Roll Over**\
-`A guide to the fifth week of his presidency.`\
-https://nytimes.com/2025/02/22/opinion/trump-king-ukraine.html
 
