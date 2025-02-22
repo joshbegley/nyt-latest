@@ -1,3 +1,7 @@
+**'My time ran out': Khris Middleton reflects on emotional trade, Bucks career**\
+`The three-time All-Star opened up about his relationship with Giannis, how he found out he was headed to Washington and more.`\
+https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-giannis/
+
 **Police Respond to a Shooting at a Pennsylvania Hospital**\
 `The police had responded to an “active threat” at UPMC Memorial hospital in York County, Pa., where a hospital official said the gunman had been apprehended.`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html

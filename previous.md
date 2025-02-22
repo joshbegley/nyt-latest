@@ -1,3 +1,7 @@
+**'My time ran out': Khris Middleton reflects on emotional trade, Bucks career**\
+`The three-time All-Star opened up about his relationship with Giannis, how he found out he was headed to Washington and more.`\
+https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-giannis/
+
 **For families of freed hostages, a mix of euphoria and grief for those who didn’t survive.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 **Former USMNT goalkeeper Meola suffers heart attack**\
 `Former USMNT goalkeeper Tony Meola suffered a heart attack on Thursday.`\
 https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
-
-**Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\
-`Warren Buffett’s conglomerate held $334 billion in cash at the end of 2024, helping to stabilize earnings in the face of declines at more than half of the nearly 200 businesses it operates.`\
-https://nytimes.com/2025/02/22/business/dealbook/berkshire-hathaway-earnings.html
 
