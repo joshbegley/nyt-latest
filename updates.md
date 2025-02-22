@@ -1,3 +1,7 @@
+**England haunted by familiar frailties as the focus fixes on Wiegman's in-game management**\
+`First-half promise came to nothing as a hesitancy to make changes helped hand Portugal the initiative in Friday's Nations League tie`\
+https://nytimes.com/athletic/6152475/2025/02/22/england-portugal-wiegman-clinton-management/
+
 **Live Updates: Hamas Starts Releasing More Hostages**\
 `Two of the six hostages slated for release as part of a swap for Palestinian prisoners have been freed. Earlier, Hamas handed over the body of Shiri Bibas, easing tensions that it had raised by turning over the wrong body.`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza

@@ -1,3 +1,7 @@
+**England haunted by familiar frailties as the focus fixes on Wiegman's in-game management**\
+`First-half promise came to nothing as a hesitancy to make changes helped hand Portugal the initiative in Friday's Nations League tie`\
+https://nytimes.com/athletic/6152475/2025/02/22/england-portugal-wiegman-clinton-management/
+
 **Surging Warriors like their new starting lineup that is small but succeeding**\
 `"It'd be nice to stick with this for the rest of the season," coach Steve Kerr said Friday after a blowout win in Sacramento.`\
 https://nytimes.com/athletic/6152574/2025/02/22/golden-state-warriors-small-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-l
 **Live Updates: Hamas Starts Releasing More Hostages**\
 `Two of the six hostages slated for release as part of a swap for Palestinian prisoners have been freed. Earlier, Hamas handed over the body of Shiri Bibas, easing tensions that it had raised by turning over the wrong body.`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
-
-**'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
-`Kuzma reflected on his tenure in Washington, saying, "I wouldn’t trade this experience and being here and being a Wizard for anything."`\
-https://nytimes.com/athletic/6152636/2025/02/22/kyle-kuzma-washington-wizards-milwaukee-bucks/
 
