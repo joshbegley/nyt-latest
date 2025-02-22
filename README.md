@@ -1,3 +1,7 @@
+**Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
+`The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
+https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
+
 **Pistons get halftime message from J.B. Bickerstaff, beat Spurs for fifth consecutive win**\
 `“We're just growing as a team,” Pistons center Jalen Duren said after the 125-110 win. “The chemistry is there. We all like each other."`\
 https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickerstaff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-joh
 **Devin Williams requested Hal Steinbrenner meeting over facial hair policy**\
 `The Yankees amended their facial hair policy after it had been a topic of internal conversation for around 10 years.`\
 https://nytimes.com/athletic/6152905/2025/02/22/devin-williams-yankees-facial-hair-policy/
-
-**The Briefing: Arsenal 0 West Ham 1 - unbeaten run over, Lewis-Skelly's red and the Merino experiment**\
-`Art de Roche analyses they key talking points from Arsenal's home loss to West Ham`\
-https://nytimes.com/athletic/6151448/2025/02/22/arsenal-west-ham-analysis/
 
