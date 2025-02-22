@@ -1,6 +1,6 @@
 **Firing of Joint Chiefs Chairman and Others Draws Criticism**\
 `Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
-https://nytimes.com/2025/02/22/us/politics/firing-of-joint-chiefs-chairman-and-others-draws-criticism.html
+https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 
 **Former USMNT goalkeeper Meola suffers heart attack on 56th birthday**\
 `Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
