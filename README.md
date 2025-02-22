@@ -12,7 +12,7 @@ https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
 
 **Meghan’s New Name? He’s Been Using It for Years.**\
 `The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
-https://nytimes.com/2025/02/21/style/meghans-new-name-hes-been-using-it-for-years.html
+https://nytimes.com/2025/02/21/style/meghan-markle-as-ever-brand-name-controversy.html
 
 **What They Took**\
 `They rushed to flee the fires in Southern California, grabbing their belongings and their pets. They took the precious and the mundane, each with its own story to tell.`\
