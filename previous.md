@@ -2,8 +2,8 @@
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
 
-**Police Respond to ‘Active Threat’ at a Pennsylvania Hospital**\
-`The police said they had responded to UPMC Memorial hospital in York County, Pa.`\
+**Police Respond to a Shooting at a Pennsylvania Hospital**\
+`The police had responded to an “active threat” at UPMC Memorial hospital in York County, Pa., where a hospital official said the gunman had been apprehended.`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
 
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
@@ -31,7 +31,7 @@ https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-eve
 https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 
 **Former USMNT goalkeeper Meola suffers heart attack**\
-`Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
+`Former USMNT goalkeeper Tony Meola suffered a heart attack on Thursday.`\
 https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
 
 **Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\

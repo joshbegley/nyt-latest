@@ -1,3 +1,11 @@
+**Police Respond to a Shooting at a Pennsylvania Hospital**\
+`The police had responded to an “active threat” at UPMC Memorial hospital in York County, Pa., where a hospital official said the gunman had been apprehended.`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
+**Former USMNT goalkeeper Meola suffers heart attack**\
+`Former USMNT goalkeeper Tony Meola suffered a heart attack on Thursday.`\
+https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
+
 **For families of freed hostages, a mix of euphoria and grief for those who didn’t survive.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
