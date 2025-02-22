@@ -1,3 +1,7 @@
+**George Floyd Killing Separated Trump From His Generals**\
+`A four-minute video appears to have been a turning point for the president and Gen. Charles Q. Brown Jr., the ousted Joint Chiefs chairman.`\
+https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
+
 **Braves ace Chris Sale crisp in his spring training debut, but Dylan Dodd not so much**\
 `Sale retired all six batters he faced in the Braves' Grapefruit League opener against the Minnesota Twins.`\
 https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/business/tesla-india-elon-musk.html
 **Juan Soto crushes home run in first Mets at-bat in spring training game**\
 `Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
 https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/
-
-**Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
-`The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
-https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
 

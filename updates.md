@@ -1,3 +1,7 @@
+**George Floyd Killing Separated Trump From His Generals**\
+`A four-minute video appears to have been a turning point for the president and Gen. Charles Q. Brown Jr., the ousted Joint Chiefs chairman.`\
+https://nytimes.com/2025/02/22/us/politics/trump-cq-brown-george-floyd.html
+
 **Braves ace Chris Sale crisp in his spring training debut, but Dylan Dodd not so much**\
 `Sale retired all six batters he faced in the Braves' Grapefruit League opener against the Minnesota Twins.`\
 https://nytimes.com/athletic/6153168/2025/02/22/braves-chris-sale-dylan-dodd-spring-training/
