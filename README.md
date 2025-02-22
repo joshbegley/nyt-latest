@@ -1,4 +1,4 @@
-**The Briefing: Everton 2 Manchester United 2: Set-piece frailty, but was this a team fighting for Amorim?**\
+**The Briefing: Everton 2 Man United 2: First-half frailty, but was this a team fighting for Amorim?**\
 `Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
 https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
 

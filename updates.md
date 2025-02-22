@@ -88,6 +88,16 @@ https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset
 `\
 https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
 
+**Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
+`From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
+`\
+https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset-ranking/
+
+**Inside the unique connection between Anders Sörensen and William Nylander**\
+`Sörensen and Nylander's shared history dates back more than 20 years and isn't the ordinary one between an opposing NHL coach and player. 
+`\
+https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-nylander-anders-sorensen/
+
 **Israel is set to free largest group of Palestinian prisoners since truce began.**\
 `By Adam Rasgon and Fatima AbdulKarim`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/israel-palestinian-prisoners-ceasefire
