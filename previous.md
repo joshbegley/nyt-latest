@@ -1,40 +1,40 @@
-**England haunted by familiar frailties as the focus fixes on Wiegman's in-game management**\
-`First-half promise came to nothing as a hesitancy to make changes helped hand Portugal the initiative in Friday's Nations League tie`\
-https://nytimes.com/athletic/6152475/2025/02/22/england-portugal-wiegman-clinton-management/
+**How to watch Tennessee at Texas A&M men's basketball: A top-10 SEC rock fight**\
+`Defense should be plentiful in Saturday morning's college basketball starter. No. 6 Tennessee visits No. 7 Texas A&M in College Station.`\
+https://nytimes.com/athletic/6151728/2025/02/22/how-to-watch-tennessee-texas-am-sec-ncaa/
 
-**Surging Warriors like their new starting lineup that is small but succeeding**\
-`"It'd be nice to stick with this for the rest of the season," coach Steve Kerr said Friday after a blowout win in Sacramento.`\
-https://nytimes.com/athletic/6152574/2025/02/22/golden-state-warriors-small-lineup/
+**Big Day for Crypto Goes South in a Hurry After a Giant Hack**\
+`Hours after Coinbase said the S.E.C. was dropping a lawsuit against it, another major cryptocurrency exchange reported a potentially record-setting theft.`\
+https://nytimes.com/2025/02/22/technology/crypto-exchange-bybit-hack.html
 
-**Jumaane Williams Says He’s Ready and Willing to Take Mayor Adams’s Place**\
-`Mr. Williams, the New York City public advocate, is preparing himself to serve as interim mayor if Eric Adams resigns or is removed.`\
-https://nytimes.com/2025/02/22/nyregion/jumaane-williams-mayor-adams.html
+**Judges in D.C., Once Flooded With Jan. 6 Cases, Turn to Trump’s Executive Actions**\
+`The jurists are grappling with how to handle a different sort of bid for power by Mr. Trump, sometimes halting his blizzard of executive orders and sometimes letting them move forward.`\
+https://nytimes.com/2025/02/22/us/federal-judges-trump-executive-orders.html
 
-**How the Co-Founder of an Immigrant Theater Spends Her Sundays**\
-`Mino Lora, who co-founded the People’s Theatre with her husband, has a double breakfast, a dance break and a bilingual reading session to wrap up her night.`\
-https://nytimes.com/2025/02/22/nyregion/mino-lora-peoples-theatre.html
+**At CPAC, Leaders of the Global Right See a New World, Led by Trump**\
+`Emissaries of right-wing parties overseas who gathered at the flagship conservative conference described a fight spanning continents, supercharged by the new American president.`\
+https://nytimes.com/2025/02/22/us/politics/cpac-trump-liz-truss-orban-germany-spain.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/22/crosswords/spelling-bee-forum.html
+**She Got a Baby, but Lost a Bonus**\
+`Is it fair for management to dock someone’s annual incentive pay because of a maternity or medical leave?`\
+https://nytimes.com/2025/02/22/business/bonus-maternity-leave-work-advice.html
 
-**Baleba resilience key for high volume of games - Hurzeler**\
-`The 21-year-old Cameroon international has featured in 25 of Brighton's 30 games across all competitions so far this season, with 23 starts.`\
-https://nytimes.com/athletic/6150909/2025/02/22/carlos-baleba-brighton-fixtures-hurzeler/
+**Frustrated Democrats Urge Leaders to Show More Fight Against Trump**\
+`Voters, activists and even some governors, like Josh Shapiro of Pennsylvania, are growing exasperated with congressional Democrats’ restrained approach.`\
+https://nytimes.com/2025/02/22/us/politics/democrats-trump.html
 
-**Watching Burnley: The team that don't concede goals, and could coax JJ Watt out of retirement**\
-`The Championship club's defence has not been breached since December 21, which is 12 games or 18 hours and 10 minutes of football ago`\
-https://nytimes.com/athletic/6152361/2025/02/22/burnley-jj-watt-trafford-parker-concede/
+**Markets and Corporate America Are Unfazed by Washington Chaos, for Now**\
+`The federal budget debate has big implications for the economy. Businesses are betting that tax cuts will be extended and the math will work out.`\
+https://nytimes.com/2025/02/22/business/economy/markets-tax-cuts-economy.html
 
-**Players and board have taken flak at Leicester City, but should more scrutiny be on Van Nistelrooy?**\
-`The Dutchman's curious reluctance to instigate tactical change, or hand Facundo Buonanotte more game time, is undermining his position`\
-https://nytimes.com/athletic/6152450/2025/02/22/leicester-van-nistelrooy-rudkin-board-scrutiny/
+**5 Smart and Silly Specials to Entertain You**\
+`Stand-up shows from Josh Johnson, Rosebud Baker, Craig Ferguson and others investigate Kendrick Lamar’s halftime show, motherhood and the politics of dumplings.`\
+https://nytimes.com/2025/02/22/arts/television/comedy-ferguson-treyger-karmel.html
 
-**Here’s the latest.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/heres-the-latest
+**Accessibility Initiatives Are Taking a Hit Across the Sciences**\
+`Confusion has ensued about the future of programs and research supporting people with disabilities as a result of President Trump’s executive order.`\
+https://nytimes.com/2025/02/22/science/trump-accessibility-research.html
 
-**Live Updates: Hamas Starts Releasing More Hostages**\
-`Two of the six hostages slated for release as part of a swap for Palestinian prisoners have been freed. Earlier, Hamas handed over the body of Shiri Bibas, easing tensions that it had raised by turning over the wrong body.`\
-https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza
+**The Unabashedly Provocative Youth Driving Germany’s Far Right**\
+`A new band of influencers unafraid of confrontation has helped elevate the Alternative for Germany party to second in pre-election polls.`\
+https://nytimes.com/2025/02/22/world/europe/alternative-for-germany-youth.html
 
