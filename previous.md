@@ -1,3 +1,15 @@
+**Sport and swearing: It's ****ing complicated**\
+`Swearing has a fine tradition in sport — the sound of an athlete swearing should not be especially surprising or jarring`\
+https://nytimes.com/athletic/6149335/2025/02/22/swearing-in-sport/
+
+**Ronald Araujo has a Barcelona deal until 2031. So why could he still leave?**\
+`The Uruguay centre-back just extended his contract, but it doesn't necessarily mean he's staying put at Barca`\
+https://nytimes.com/athletic/6151261/2025/02/22/ronald-araujo-barcelona-premier-league-transfers/
+
+**Is Salah about to break Henry and De Bruyne's Premier League assists record?**\
+`The Liverpool forward has started every league match this season and is having his best-ever Premier League campaign for assists`\
+https://nytimes.com/athletic/5968582/2025/02/22/is-mohamed-salah-about-to-break-thierry-henry-and-kevin-de-bruynes-premier-league-assists-record/
+
 **How European travel impacts performance - and why it's bad news for Arsenal**\
 `Draining foreign trips are disruptive for clubs fighting on multiple fronts`\
 https://nytimes.com/athletic/6150770/2025/02/22/champions-league-travel-liverpool-arsenal-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/22/business/xi-jinping-jack-ma.html
 **Quote of the Day: While Russia Talks Peace, It Expands Invasion**\
 `Quotation of the Day for Saturday, February 22, 2025.`\
 https://nytimes.com/2025/02/21/pageoneplus/quote-of-the-day-while-russia-talks-peace-it-expands-invasion.html
-
-**Twins regroup after Justin Ishbia drops bid for White Sox deal: 'Everything's on the table'**\
-`The Twins are hustling to regroup after learning this week that a leading contender in their search for a new owner has abandoned his bid. `\
-https://nytimes.com/athletic/6152097/2025/02/21/justin-ishbia-out-minnesota-twins-sale/
-
-**Michigan State moves atop Big Ten standings with win at No. 12 Michigan**\
-`Jase Richardson led Michigan State with 21 points, and Tre Holloman added 18, which included back-to-back-to-back 3s.`\
-https://nytimes.com/athletic/6152562/2025/02/21/michigan-michigan-state-analysis-big-ten-standings/
-
-**Billionaire Justin Ishbia abandons bid for Twins to boost his stake in White Sox: Sources**\
-`Ishbia has dropped his pursuit of the Twins, The Athletic has learned, and will instead increase his minority stake in the White Sox.`\
-https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-jerry-reinsdorf/
 
