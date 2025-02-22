@@ -1,3 +1,7 @@
+**Amorim has the support of the fans - but he needs more results like Moyes**\
+`As well as being above United, former boss David Moyes has given Everton the lift that fans hoped Amorim would give his new club`\
+https://nytimes.com/athletic/6148587/2025/02/22/amorim-has-the-support-of-manchester-uniteds-fans-but-he-needs-more-results-like-moyes/
+
 **Sport and swearing: It's ****ing complicated**\
 `Swearing has a fine tradition in sport — the sound of an athlete swearing should not be especially surprising or jarring`\
 https://nytimes.com/athletic/6149335/2025/02/22/swearing-in-sport/
