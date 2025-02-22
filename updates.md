@@ -1,3 +1,7 @@
+**Andrew Friedman on Ohtani, extending Roberts, and Dodgers' dominance: 5 things we learned**\
+`On his visit to Starkville, the Dodgers' president of baseball operations talked about Ohtani, Sasaki, his club's global ambitions and more.`\
+https://nytimes.com/athletic/6152738/2025/02/22/andrew-friedman-dodgers-payroll-ohtani-sasaki/
+
 **Lost Causes**\
 `When we lose things, it’s tempting to think we need to keep better track of them, to hold on to stuff more tightly. What if the opposite is true?`\
 https://nytimes.com/2025/02/22/briefing/lost-causes.html
