@@ -1,3 +1,7 @@
+**2 Books Chock-Full of Worthwhile Ideas**\
+`A study of human fatigue; a cranky travel memoir.`\
+https://nytimes.com/2025/02/22/books/read-like-wind-recommendations.html
+
 **Michigan State and lessons from the old school**\
 `Friday's victory against Michigan was proof of concept for a program that still willfully does things its own way.`\
 https://nytimes.com/athletic/6152773/2025/02/22/michigan-state-basketball-tom-izzo-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/opinion/trump-king-third-term.html
 **The Trump Administration Is Playing With Fire in Germany**\
 `For the United States to put its considerable clout behind a German political party whose leaders minimize Nazi crimes is a blunder of historic proportions.`\
 https://nytimes.com/2025/02/22/opinion/trump-germany-election.html
-
-**What Trump Can Learn From the Last G.O.P. Disaster**\
-`How the vibe shift of 2025 could be squandered.`\
-https://nytimes.com/2025/02/22/opinion/trump-bush-republican-disaster.html
 
