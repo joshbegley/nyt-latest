@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
+`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
+https://nytimes.com/athletic/6151450/2025/02/22/aston-villa-chelsea-analysis/
+
+**Tesla Is Again Showing Signs It Wants to Sell Cars in India**\
+`Bringing showrooms filled with high-end American-made electric vehicles to India would mark a symbolic victory for President Trump’s ally.`\
+https://nytimes.com/2025/02/22/business/tesla-india-elon-musk.html
+
 **Juan Soto crushes home run in first Mets at-bat in spring training game**\
 `Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
 https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-gi
 **For families of freed hostages, a mix of euphoria and grief for those who didn’t survive.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
-
-**Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
-`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but at least four people were evaluated at a nearby hospital.`\
-https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
-
-**The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
-`Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
-https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
 

@@ -1,3 +1,7 @@
+**Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
+`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but at least four people were evaluated at a nearby hospital.`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
 **Juan Soto crushes home run in first Mets at-bat in spring training game**\
 `Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
 https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/

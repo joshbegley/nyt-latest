@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-gi
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
 
 **Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
-`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but it was unknown if others were injured.`\
+`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but at least four people were evaluated at a nearby hospital.`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
 
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
