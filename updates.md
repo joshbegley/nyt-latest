@@ -1,3 +1,7 @@
+**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
+`The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
+https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
+
 **Hegseth Fires Navy’s Top Officer**\
 `Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
 https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
