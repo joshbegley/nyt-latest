@@ -1,3 +1,7 @@
+**A Tale of Two Cost-Cutters**\
+`Elon Musk’s hyperfocus on the bottom line has made him influential in Washington and Silicon Valley. How does that compare with the last famous cost-cutter, Jack Welch?`\
+https://nytimes.com/2025/02/22/business/dealbook/elon-musk-jack-welch-cuts.html
+
 **Timberwolves' Chris Finch will need to be extra creative with lineups down the stretch**\
 `Jaylen Clark, Terrence Shannon Jr. and Rob Dillingham have had big stretches in games recently, opportunity created by a rash of injuries.`\
 https://nytimes.com/athletic/6152552/2025/02/22/chris-finch-timberwolves-injuries-lineups-nba/
@@ -9,10 +13,6 @@ https://nytimes.com/2025/02/22/world/middleeast/israeli-free-hostages-hamas.html
 **New Proposal for Ukraine’s Minerals Is Nearly Identical to Rejected Version**\
 `The Trump administration appears to be insisting that Ukraine relinquish half of its revenues from natural resource extraction, with no security guarantee in exchange.`\
 https://nytimes.com/2025/02/22/world/europe/ukraine-trump-minerals.html
-
-**A Tale of Two Cost-Cutters**\
-`Elon Musk’s hyperfocus on the bottom line has made him influential in Washington and Silicon Valley. How does that compare with the last famous cost-cutter, Jack Welch?`\
-https://nytimes.com/2025/02/22/business/dealbook/elon-musk-jack-welch-cuts.html
 
 **Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
 `From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
