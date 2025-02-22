@@ -1,3 +1,7 @@
+**Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
+`A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk to access government data.`\
+https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
+
 **Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
 `The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html

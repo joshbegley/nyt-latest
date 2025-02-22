@@ -1,3 +1,7 @@
+**Federal Judge Banishes Musk’s DOGE Aides From Treasury Dept. Systems**\
+`A group of state attorneys general sued to block the Trump administration’s policy of allowing political appointees and “special government employees” championed by Elon Musk to access government data.`\
+https://nytimes.com/2025/02/21/nyregion/sdny-doge-elon-musk-treasury-injunction.html
+
 **Hegseth Fires Navy’s Top Officer**\
 `Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
 https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
 **Giants' Logan Webb to join illustrious list with fourth consecutive Opening Day start**\
 `"I never take this stuff for granted," said Webb, who will kick the season off against the Reds. `\
 https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-starter-logan-webb/
-
-**F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
-`The timeline for identifying the agents and employees who would move from the Washington area to field offices and a sprawling campus in Huntsville, Ala., was not immediately clear.`\
-https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
 
