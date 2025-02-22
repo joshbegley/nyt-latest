@@ -1,3 +1,7 @@
+**Pistons get halftime message from J.B. Bickerstaff, beat Spurs for fifth consecutive win**\
+`“We're just growing as a team,” Pistons center Jalen Duren said after the 125-110 win. “The chemistry is there. We all like each other."`\
+https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickerstaff/
+
 **Arsenal ‘nowhere near the level’ required to challenge for Premier League - Arteta**\
 `Arsenal lost 1-0 at home against West Ham to leave them eight points behind PL leaders Liverpool`\
 https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-gi
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
 
-**Police Respond to a Shooting at a Pennsylvania Hospital**\
-`The police had responded to a shooting at UPMC Memorial hospital in York County, Pa., where an official said the threat had been “neutralized.”`\
+**Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
+`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but it was unknown if others were injured.`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
 
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6152905/2025/02/22/devin-williams-yankees-facial-ha
 **The Briefing: Arsenal 0 West Ham 1 - unbeaten run over, Lewis-Skelly's red and the Merino experiment**\
 `Art de Roche analyses they key talking points from Arsenal's home loss to West Ham`\
 https://nytimes.com/athletic/6151448/2025/02/22/arsenal-west-ham-analysis/
-
-**Headstrong Francis Put the Church Above His Health, Vatican Observers Say**\
-`Many who know him said that Francis, driven by a sense of mission and a discipline born of his early training, essentially worked himself into the hospital.`\
-https://nytimes.com/2025/02/22/world/europe/francis-pope-church-health.html
 

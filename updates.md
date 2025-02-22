@@ -1,3 +1,11 @@
+**Pistons get halftime message from J.B. Bickerstaff, beat Spurs for fifth consecutive win**\
+`“We're just growing as a team,” Pistons center Jalen Duren said after the 125-110 win. “The chemistry is there. We all like each other."`\
+https://nytimes.com/athletic/6152674/2025/02/22/pistons-spurs-cunningham-bickerstaff/
+
+**Gunman in Pennsylvania Hospital Shooting Is Dead, Officials Say**\
+`The police responded on Saturday morning to a shooting at UPMC Memorial hospital in York County, Pa. No patients were hurt, an official said, but it was unknown if others were injured.`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
 **Arsenal ‘nowhere near the level’ required to challenge for Premier League - Arteta**\
 `Arsenal lost 1-0 at home against West Ham to leave them eight points behind PL leaders Liverpool`\
 https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-league/
