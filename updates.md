@@ -1,3 +1,7 @@
+**2025 Film Independent Spirit Awards: Complete Winners List**\
+`Here’s who went home a winner at the Indy Spirit Awards, held on the beach in Santa Monica, Calif., on Saturday.`\
+https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners-list.html
+
 **Nine-Month Manhunt for French Fugitive Finally Produces an Arrest**\
 `A French convict was arrested in Romania months after he had been freed in a brazen daytime ambush that killed two prison guards, authorities said.`\
 https://nytimes.com/2025/02/22/world/europe/france-manhunt-prison-break-arrest.html
