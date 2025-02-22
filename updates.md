@@ -1,3 +1,7 @@
+**Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
+`According to league sources, at least one more team has joined the Astros in talks with the Cardinals to acquire the veteran third baseman.`\
+https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
+
 **Third-period collapse dooms Detroit in return from break: 5 thoughts**\
 `The Red Wings kicked off the season's home stretch Saturday, but let a late two-goal lead slip against Minnesota.`\
 https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
