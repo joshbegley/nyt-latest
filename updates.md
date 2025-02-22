@@ -1,3 +1,7 @@
+**How European travel impacts performance - and why it's bad news for Arsenal**\
+`Draining foreign trips are disruptive for clubs fighting on multiple fronts`\
+https://nytimes.com/athletic/6150770/2025/02/22/champions-league-travel-liverpool-arsenal-aston-villa/
+
 **India’s Outrage Machine Devours a Star YouTuber Over a Crude One-Liner**\
 `A joke made by Ranveer Allahbadia, a Joe Rogan for online Indians, has brought him death threats and criminal charges.`\
 https://nytimes.com/2025/02/22/world/asia/india-beerbiceps.html
