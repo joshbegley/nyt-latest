@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
 
 **Giants' Logan Webb to join illustrious list with fourth consecutive Opening Day start**\
-`"I never take this stuff for granted," Webb, who will kick the season off against the Reds, said. `\
+`"I never take this stuff for granted," said Webb, who will kick the season off against the Reds. `\
 https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-starter-logan-webb/
 
 **F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
