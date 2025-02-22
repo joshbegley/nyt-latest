@@ -1,3 +1,7 @@
+**Hurzeler: Difference-maker Rutter starting to show his quality**\
+`Rutter has six goals in his last eight games, having initially started slowly following his £40m summer move from Leeds.`\
+https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzeler/
+
 **FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
 `The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
 https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
