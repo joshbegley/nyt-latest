@@ -1,3 +1,7 @@
+**Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
+`Rizzo knows the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
+https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/
+
 **Billionaire Justin Ishbia abandons bid for Twins to boost his stake in White Sox: Sources**\
 `Ishbia has dropped his pursuit of the Twins, The Athletic has learned, and will instead increase his minority stake in the White Sox.`\
 https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-jerry-reinsdorf/
