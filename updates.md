@@ -1,3 +1,7 @@
+**Billionaire Justin Ishbia abandons bid for Twins to boost his stake in White Sox: Sources**\
+`Ishbia has dropped his pursuit of the Twins, The Athletic has learned, and will instead increase his minority stake in the White Sox.`\
+https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-jerry-reinsdorf/
+
 **DOGE’s Only Public Ledger Is Riddled With Mistakes**\
 `The figures from Elon Musk’s team of outsiders represent billions in government cuts. They are also full of accounting errors, outdated data and other miscalculations.`\
 https://nytimes.com/2025/02/21/upshot/doge-musk-trump-errors.html
