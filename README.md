@@ -1,3 +1,7 @@
+**Juan Soto crushes home run in first Mets at-bat in spring training game**\
+`Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
+https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/
+
 **Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
 `The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
 https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
 `Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
 https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
-
-**Devin Williams requested Hal Steinbrenner meeting over facial hair policy**\
-`The Yankees amended their facial hair policy after it had been a topic of internal conversation for around 10 years.`\
-https://nytimes.com/athletic/6152905/2025/02/22/devin-williams-yankees-facial-hair-policy/
 
