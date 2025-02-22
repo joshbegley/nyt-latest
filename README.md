@@ -31,7 +31,7 @@ https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-eve
 https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
 
 **Former USMNT goalkeeper Meola suffers heart attack**\
-`Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
+`Former USMNT goalkeeper Tony Meola suffered a heart attack on Thursday.`\
 https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
 
 **Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\
