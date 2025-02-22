@@ -1,3 +1,7 @@
+**Shocked by Trump, Europe Turns Its Hopes to Germany’s Election**\
+`Germany’s economy is stalled and its politics fractured. But it sees an opening for a new chancellor to lead Europe’s response to a changing America.`\
+https://nytimes.com/2025/02/22/world/europe/germany-election-trump.html
+
 **Notebook: Lankinen's extension and the stakes of Vancouver's next 7 games**\
 `We’re in for a high-leverage stretch run for Vancouver, with the team heavily favoured to secure a playoff spot in the Western Conference.`\
 https://nytimes.com/athletic/6152598/2025/02/22/canucks-kevin-lankinen-extension-schedule/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6152419/2025/02/22/blackhawks-maple-leafs-william-n
 **Is Mikko Rantanen a bad fit in Carolina? Only if you're not paying attention**\
 `After participating in the 4 Nations, Rantanen is facing questions about his future and adjusting to his new surroundings.`\
 https://nytimes.com/athletic/6152107/2025/02/22/mikko-rantanen-hurricanes-trade-rumors-contract/
-
-**Which hockey hometown can create the best defensive pairs? Ranking them 1 to 15**\
-`Cale Makar and Josh Morrissey? Or Charlie McAvoy and Adam Fox? Here are our rankings of the defensive pairs different hometowns could form.`\
-https://nytimes.com/athletic/6151823/2025/02/22/hockey-hometowns-defensive-pairs-ranked/
 
