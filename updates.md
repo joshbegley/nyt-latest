@@ -1,3 +1,7 @@
+**Juan Soto crushes home run in first Mets at-bat in spring training game**\
+`Soto hit a 426-foot home run to center field off the Astros' Colton Gordon in the bottom of the first inning.`\
+https://nytimes.com/athletic/6153057/2025/02/22/juan-soto-home-run-mets-spring-training/
+
 **Pope Francis in Critical Condition After ‘Respiratory Crisis,’ Vatican Says**\
 `The announcement on Saturday evening indicated that Francis’ medical condition had become more complicated since an update from his doctors on Friday.`\
 https://nytimes.com/2025/02/22/world/europe/pope-francis-critical-condition.html
