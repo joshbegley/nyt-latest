@@ -1,3 +1,11 @@
+**Prison Officials Detail Treatment of Trans Inmates Under Trump Gender Order**\
+`The federal Bureau of Prisons is banning the use of preferred pronouns, stopping special pat-down procedures and rejecting underwear requests from transgender prisoners.`\
+https://nytimes.com/2025/02/21/us/trump-trans-women-prison.html
+
+**Giants' Logan Webb to join illustrious list with fourth consecutive Opening Day start**\
+`"I never take this stuff for granted," said Webb, who will kick the season off against the Reds. `\
+https://nytimes.com/athletic/6152400/2025/02/21/sf-giants-2025-opening-day-starter-logan-webb/
+
 **F.B.I. Director Plans to Move Hundreds of Agents to Field Offices**\
 `The timeline for identifying the agents and employees who would move from the Washington area to field offices and a sprawling campus in Huntsville, Ala., was not immediately clear.`\
 https://nytimes.com/2025/02/21/us/politics/kash-patel-fbi-staff-transfer.html
