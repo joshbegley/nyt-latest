@@ -1,3 +1,7 @@
+**FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
+`The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
+https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
+
 **'My time ran out': Khris Middleton reflects on emotional trade, Bucks career**\
 `The three-time All-Star opened up about his relationship with Giannis, how he found out he was headed to Washington and more.`\
 https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-giannis/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-gi
 https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
 
 **Police Respond to a Shooting at a Pennsylvania Hospital**\
-`The police had responded to an “active threat” at UPMC Memorial hospital in York County, Pa., where a hospital official said the gunman had been apprehended.`\
+`The police had responded to a shooting at UPMC Memorial hospital in York County, Pa., where an official said the threat had been “neutralized.”`\
 https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
 
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/arts/national-archives-carter-library-cancels-eve
 **Firing of Joint Chiefs Chairman and Others Draws Criticism**\
 `Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
 https://nytimes.com/2025/02/22/us/politics/joint-chiefs-cq-brown-military.html
-
-**Former USMNT goalkeeper Meola suffers heart attack**\
-`Former USMNT goalkeeper Tony Meola suffered a heart attack on Thursday.`\
-https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
 
