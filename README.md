@@ -1,3 +1,7 @@
+**Former USMNT goalkeeper Meola suffers heart attack on 56th birthday**\
+`Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
+https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
+
 **Berkshire Posts Gain in Profits, Boosted by U.S. Treasury Holdings**\
 `Warren Buffett’s conglomerate held $334 billion in cash at the end of 2024, helping to stabilize earnings in the face of declines at more than half of the nearly 200 businesses it operates.`\
 https://nytimes.com/2025/02/22/business/dealbook/berkshire-hathaway-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-wo
 **On the Ropes, Olaf Scholz Keeps Punching**\
 `The German chancellor, who defied calls to step aside after his government fell apart, is down in the polls but insisting he can still win.`\
 https://nytimes.com/2025/02/22/world/europe/germany-scholz-election.html
-
-**The Briefing: Everton 2 Man United 2 - Players show Amorim some fight, but should penalty have stood?**\
-`Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
-https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
 
