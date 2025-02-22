@@ -1,3 +1,27 @@
+**India’s Outrage Machine Devours a Star YouTuber Over a Crude One-Liner**\
+`A joke made by Ranveer Allahbadia, a Joe Rogan for online Indians, has brought him death threats and criminal charges.`\
+https://nytimes.com/2025/02/22/world/asia/india-beerbiceps.html
+
+**As the U.S. Exits Foreign Aid, Who Will Fill the Gap?**\
+`China could reap the soft-power advantage, but like Western governments, the country is cutting back on aid. Philanthropies say they cannot replace the United States.`\
+https://nytimes.com/2025/02/22/health/usaid-who-trump-china.html
+
+**Emboldened Kremlin Steps Up Efforts to Seize Businesses in Russia**\
+`The legal onslaught on Moscow’s second-largest airport has been seen as part of the Kremlin’s wartime drive to seize control of key assets still in private hands.`\
+https://nytimes.com/2025/02/22/world/europe/russia-nationalization-airport.html
+
+**Coffee Prices Are at a 50-Year High. Producers Aren’t Celebrating.**\
+`Climate change is behind the windfall gains, and growers are worried about whether they can adapt.`\
+https://nytimes.com/2025/02/22/business/coffee-prices-climate-change.html
+
+**Is Xi’s Sudden Embrace of Business for Real? China Is Left Guessing.**\
+`The uncertain reaction to Xi Jinping’s display of warmth made sense: Executives are eager for a reset after years in the cold but ever wary of meddling.`\
+https://nytimes.com/2025/02/22/business/xi-jinping-jack-ma.html
+
+**Quote of the Day: While Russia Talks Peace, It Expands Invasion**\
+`Quotation of the Day for Saturday, February 22, 2025.`\
+https://nytimes.com/2025/02/21/pageoneplus/quote-of-the-day-while-russia-talks-peace-it-expands-invasion.html
+
 **Twins regroup after Justin Ishbia drops bid for White Sox deal: 'Everything's on the table'**\
 `The Twins are hustling to regroup after learning this week that a leading contender in their search for a new owner has abandoned his bid. `\
 https://nytimes.com/athletic/6152097/2025/02/21/justin-ishbia-out-minnesota-twins-sale/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6150455/2025/02/21/white-sox-twins-justin-ishbia-je
 **DOGE’s Only Public Ledger Is Riddled With Mistakes**\
 `The figures from Elon Musk’s team of outsiders represent billions in government cuts. They are also full of accounting errors, outdated data and other miscalculations.`\
 https://nytimes.com/2025/02/21/upshot/doge-musk-trump-errors.html
-
-**Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
-`Rizzo knows the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
-https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/
-
-**Consumer bureau was told to vacate its Washington office as its lease is canceled.**\
-`By Stacy Cowley`\
-https://nytimes.com/live/2025/02/21/us/trump-news/consumer-bureau-was-told-to-vacate-its-washington-office-as-its-lease-is-canceled
-
-**What a Bout!**\
-`Rose Conlon presents a punchy themeless puzzle.`\
-https://nytimes.com/2025/02/21/crosswords/daily-puzzle-2025-02-22.html
-
-**Corrections: Feb. 22, 2025**\
-`Corrections that appeared in print on Saturday, Feb. 22, 2025.`\
-https://nytimes.com/2025/02/21/pageoneplus/corrections-feb-22-2025.html
-
-**The judge’s ruling temporarily halts any stoppage on federal diversity initiatives.**\
-`Judge Adam B. Abelson wrote that orders by President Trump targeting diversity, equity and inclusion programs violated freedom of speech protections.`\
-https://nytimes.com/live/2025/02/21/us/trump-news/the-judges-ruling-temporarily-halts-any-stoppage-on-federal-diversity-initiatives
-
-**Woman Lured, Drugged and Stole From Older Men in Deadly Scheme, U.S. Says**\
-`The 43-year-old woman was arrested in Mexico after a “romance scam on steroids,” an F.B.I. agent said.`\
-https://nytimes.com/2025/02/21/us/woman-lured-drugged-and-stole-from-older-men-in-deadly-scheme-us-says.html
 
