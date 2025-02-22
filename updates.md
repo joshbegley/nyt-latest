@@ -1,3 +1,11 @@
+**Hegseth Fires Navy’s Top Officer**\
+`Adm. Lisa Franchetti spent roughly half of her 40-year career at sea, commanding a destroyer, two carrier strike groups and the U.S. Sixth Fleet.`\
+https://nytimes.com/2025/02/21/us/politics/hegseth-navy-lisa-franchetti.html
+
+**Meghan’s New Name? He’s Been Using It for Years.**\
+`The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
+https://nytimes.com/2025/02/21/style/meghan-markle-as-ever-brand-name-controversy.html
+
 **Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
 `The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
 https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
