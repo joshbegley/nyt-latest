@@ -1,3 +1,11 @@
+**Hamas Frees 6 Hostages and Returns Remains of Shiri Bibas**\
+`It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
+https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
+
+**Musk Tells Government Workers to Detail Their Workweek or Face Termination**\
+`Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
+https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
+
 **Tigers' Kenta Maeda opens spring with everything to prove**\
 `Maeda threw two innings in the Tigers' Grapefruit League opener, striking out four batters and validating an offseason of change.`\
 https://nytimes.com/athletic/6153119/2025/02/22/detroit-tigers-kenta-maeda-spring-training/
