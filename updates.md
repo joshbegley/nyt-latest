@@ -1,3 +1,15 @@
+**Colorado Snowboarder Becomes Fourth Person Killed in Avalanche This Week**\
+`The victim was traveling on a terrain feature known as The Nose near Silverton, Colo., when the avalanche occurred on Thursday, officials said.`\
+https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
+
+**Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Command**\
+`The general made an impression on the president in 2018 when he said the Islamic State could be defeated in a week, according to the president.`\
+https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
+
+**Meghan’s New Name? He’s Been Using It for Years.**\
+`The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
+https://nytimes.com/2025/02/21/style/meghans-new-name-hes-been-using-it-for-years.html
+
 **Defense Department to Cut Over 5,000 Workers**\
 `The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
 https://nytimes.com/2025/02/21/us/politics/pentagon-job-cuts.html
