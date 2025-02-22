@@ -1,3 +1,7 @@
+**2025 Film Independent Spirit Awards: See the Looks From the Blue Carpet**\
+`What do stars wear to an awards show held in the middle of the day?`\
+https://nytimes.com/2025/02/22/style/2025-film-independent-spirit-awards-red-carpet-looks.html
+
 **Oregon stuns Wisconsin with 17-point rally. Are the Ducks poised for a late-season run?**\
 `This victory gave Oregon its ninth Quad 1 win of the season, trailing only Auburn’s absurd 14.`\
 https://nytimes.com/athletic/6153105/2025/02/22/oregon-wisconsin-rally-big-ten/

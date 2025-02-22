@@ -1,3 +1,7 @@
+**2025 Film Independent Spirit Awards: See the Looks From the Blue Carpet**\
+`What do stars wear to an awards show held in the middle of the day?`\
+https://nytimes.com/2025/02/22/style/2025-film-independent-spirit-awards-red-carpet-looks.html
+
 **Oregon stuns Wisconsin with 17-point rally. Are the Ducks poised for a late-season run?**\
 `This victory gave Oregon its ninth Quad 1 win of the season, trailing only Auburn’s absurd 14.`\
 https://nytimes.com/athletic/6153105/2025/02/22/oregon-wisconsin-rally-big-ten/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153047/2025/02/22/arsenal-arteta-west-ham-premier-
 **Hurzeler: Difference-maker Rutter starting to show his quality**\
 `Rutter has six goals in his last eight games, having initially started slowly following his £40m summer move from Leeds.`\
 https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzeler/
-
-**FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
-`The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
-https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
 
