@@ -1,3 +1,11 @@
+**With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
+`The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term picture.`\
+https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/
+
+**In Pursuit of a ‘Warrior Ethos,’ Hegseth Targets Military’s Top Lawyers**\
+`The defense secretary has repeatedly derided the military lawyers for war crime prosecutions and battlefield rules of engagement.`\
+https://nytimes.com/2025/02/22/us/politics/hegseth-firings-military-lawyers-jag.html
+
 **Takeaways: How Wild pulled off thrilling overtime comeback — 'There's no quit'**\
 `Marco Rossi scored in overtime as the Wild rallied for a 4-3 victory over the Red Wings on Saturday.`\
 https://nytimes.com/athletic/6153235/2025/02/22/wild-red-wings-takeaways-overtime-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-joki
 **Hamas Frees 6 Hostages and Returns Remains of Shiri Bibas**\
 `It was a day of emotional homecomings for Israelis as six hostages were returned home from Hamas. But Israel delayed the handover of more than 600 Palestinians it was expected to free in the exchange.`\
 https://nytimes.com/video/world/middleeast/100000010006776/israel-hamas-hostage-prisoner-swap.html
-
-**Musk Says Government Workers Must Detail Their Workweek or Face Termination**\
-`Elon Musk has drawn inspiration from his 2022 takeover of X, then known as Twitter, as he works to overhaul the federal government.`\
-https://nytimes.com/2025/02/22/us/politics/elon-musk-email-federal-employees.html
-
-**2025 Film Independent Spirit Awards: Complete Winners List**\
-`Here’s who went home a winner at the Indy Spirit Awards, held on the beach in Santa Monica, Calif., on Saturday.`\
-https://nytimes.com/2025/02/22/style/film-independent-spirit-awards-2025-winners-list.html
 
