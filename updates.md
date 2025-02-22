@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset-ranking/
 
+**Trade asset tiers: Ranking what the Leafs have to offer at the deadline**\
+`From most value to least, we sort the players and picks the Leafs could conceivably move ahead of March 7. 
+`\
+https://nytimes.com/athletic/6146997/2025/02/22/maple-leafs-trade-deadline-asset-ranking/
+
 **The Briefing: Everton 2 Man United 2: First-half frailty, but was this a team fighting for Amorim?**\
 `Analysis of United's last trip to Goodison Park as the visitors came from two down and survived a late penalty scare to earn a point`\
 https://nytimes.com/athletic/6151447/2025/02/22/manchester-united-amorim-everton-briefing/
