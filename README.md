@@ -1,3 +1,7 @@
+**At CPAC, Trump Revels in Political Payback**\
+`Speaking to a crowd of supporters that included pardoned Jan. 6 rioters, the president gleefully recounted his efforts to purge the government of his political enemies.`\
+https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
+
 **Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
 `According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/world/europe/france-manhunt-prison-break-arrest.h
 **‘Dreams,’ Film About Teen Infatuation, Takes Top Prize at Berlin International Film Festival**\
 `The event’s other honorees include the actress Rose Byrne, a performance as the composer Richard Rodgers and an Argentine film about a girl who seems to speak to animals.`\
 https://nytimes.com/2025/02/22/arts/dreams-berlin-international-film-festival.html
-
-**What to Know About Janet Mills, the Maine Governor Who Told Trump, ‘See You in Court’**\
-`The state’s first female governor and first female district attorney, the longtime Democratic politician has a history of supporting law enforcement.`\
-https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
 
