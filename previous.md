@@ -18,8 +18,8 @@ https://nytimes.com/2025/02/22/nyregion/mino-lora-peoples-theatre.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/02/22/crosswords/spelling-bee-forum.html
 
-**Brighton's Baleba resilience key for high volume of games - Hurzeler**\
-`The 21-year-old Cameroon international has featured in 25 of Brighton's 30 games across all competitions so far this season, with 23 starts`\
+**Baleba resilience key for high volume of games - Hurzeler**\
+`The 21-year-old Cameroon international has featured in 25 of Brighton's 30 games across all competitions so far this season, with 23 starts.`\
 https://nytimes.com/athletic/6150909/2025/02/22/carlos-baleba-brighton-fixtures-hurzeler/
 
 **Watching Burnley: The team that don't concede goals, and could coax JJ Watt out of retirement**\

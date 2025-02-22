@@ -1,3 +1,7 @@
+**Baleba resilience key for high volume of games - Hurzeler**\
+`The 21-year-old Cameroon international has featured in 25 of Brighton's 30 games across all competitions so far this season, with 23 starts.`\
+https://nytimes.com/athletic/6150909/2025/02/22/carlos-baleba-brighton-fixtures-hurzeler/
+
 **England haunted by familiar frailties as the focus fixes on Wiegman's in-game management**\
 `First-half promise came to nothing as a hesitancy to make changes helped hand Portugal the initiative in Friday's Nations League tie`\
 https://nytimes.com/athletic/6152475/2025/02/22/england-portugal-wiegman-clinton-management/
