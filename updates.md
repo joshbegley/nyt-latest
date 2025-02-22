@@ -1,3 +1,7 @@
+**Nine-Month Manhunt for French Fugitive Finally Produces an Arrest**\
+`A French convict was arrested in Romania months after he had been freed in a brazen daytime ambush that killed two prison guards, authorities said.`\
+https://nytimes.com/2025/02/22/world/europe/france-manhunt-prison-break-arrest.html
+
 **‘Dreams,’ Film About Teen Infatuation, Takes Top Prize at Berlin International Film Festival**\
 `The event’s other honorees include the actress Rose Byrne, a performance as the composer Richard Rodgers and an Argentine film about a girl who seems to speak to animals.`\
 https://nytimes.com/2025/02/22/arts/dreams-berlin-international-film-festival.html
