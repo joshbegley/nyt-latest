@@ -1,3 +1,27 @@
+**Canada’s Hockey Victory Sends a Message to Trump: Hands Off**\
+`The routine friendly bet between leaders of Canada and the United States before hockey games was replaced by taunts and heightened stakes on Thursday.`\
+https://nytimes.com/2025/02/22/world/canada/trudeau-canada-us-hockey-trump.html
+
+**They Invented a New Language for War**\
+`The words of war and the war of words.`\
+https://nytimes.com/2025/02/22/opinion/ukraine-war-poetry-poets.html
+
+**Wordle Review No. 1,345**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 23, 2025.`\
+https://nytimes.com/2025/02/22/crosswords/wordle-review-1345.html
+
+**Amid the 4 Nations noise, Canada reclaims its throne as 'the king of hockey'**\
+`Fans from across Canada traveled great distances to cheer on their team and assert their national pride.`\
+https://nytimes.com/athletic/6151877/2025/02/22/4-nations-face-off-canada-u-s-hockey/
+
+**Connections Companion No. 623**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 23, 2025.`\
+https://nytimes.com/2025/02/22/crosswords/connections-companion-623.html
+
+**MLS new kit superlatives: A look at every new design for 2025**\
+`An assessment of each MLS team's new kits for the 2025 campaign`\
+https://nytimes.com/athletic/6151570/2025/02/22/mls-2025-new-kits-jerseys-uniforms/
+
 **Ed Yong Wants to Show You the Hidden Reality of the World**\
 `The Pulitzer Prize-winning science writer talks about burnout from covering the pandemic and how bird-watching gave him a new sense of hope.`\
 https://nytimes.com/2025/02/22/magazine/ed-yong-interview.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/02/22/technology/crypto-exchange-bybit-hack.html
 **Judges in D.C., Once Flooded With Jan. 6 Cases, Turn to Trump’s Executive Actions**\
 `The jurists are grappling with how to handle a different sort of bid for power by Mr. Trump, sometimes halting his blizzard of executive orders and sometimes letting them move forward.`\
 https://nytimes.com/2025/02/22/us/federal-judges-trump-executive-orders.html
-
-**At CPAC, Leaders of the Global Right See a New World, Led by Trump**\
-`Emissaries of right-wing parties overseas who gathered at the flagship conservative conference described a fight spanning continents, supercharged by the new American president.`\
-https://nytimes.com/2025/02/22/us/politics/cpac-trump-liz-truss-orban-germany-spain.html
-
-**She Got a Baby, but Lost a Bonus**\
-`Is it fair for management to dock someone’s annual incentive pay because of a maternity or medical leave?`\
-https://nytimes.com/2025/02/22/business/bonus-maternity-leave-work-advice.html
-
-**Frustrated Democrats Urge Leaders to Show More Fight Against Trump**\
-`Voters, activists and even some governors, like Josh Shapiro of Pennsylvania, are growing exasperated with congressional Democrats’ restrained approach.`\
-https://nytimes.com/2025/02/22/us/politics/democrats-trump.html
-
-**Markets and Corporate America Are Unfazed by Washington Chaos, for Now**\
-`The federal budget debate has big implications for the economy. Businesses are betting that tax cuts will be extended and the math will work out.`\
-https://nytimes.com/2025/02/22/business/economy/markets-tax-cuts-economy.html
-
-**5 Smart and Silly Specials to Entertain You**\
-`Stand-up shows from Josh Johnson, Rosebud Baker, Craig Ferguson and others investigate Kendrick Lamar’s halftime show, motherhood and the politics of dumplings.`\
-https://nytimes.com/2025/02/22/arts/television/comedy-ferguson-treyger-karmel.html
-
-**Accessibility Initiatives Are Taking a Hit Across the Sciences**\
-`Confusion has ensued about the future of programs and research supporting people with disabilities as a result of President Trump’s executive order.`\
-https://nytimes.com/2025/02/22/science/trump-accessibility-research.html
 
