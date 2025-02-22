@@ -1,3 +1,7 @@
+**Ed Yong Wants to Show You the Hidden Reality of the World**\
+`The Pulitzer Prize-winning science writer talks about burnout from covering the pandemic and how bird-watching gave him a new sense of hope.`\
+https://nytimes.com/2025/02/22/magazine/ed-yong-interview.html
+
 **How to watch Tennessee at Texas A&M men's basketball: A top-10 SEC rock fight**\
 `Defense should be plentiful in Saturday morning's college basketball starter. No. 6 Tennessee visits No. 7 Texas A&M in College Station.`\
 https://nytimes.com/athletic/6151728/2025/02/22/how-to-watch-tennessee-texas-am-sec-ncaa/
