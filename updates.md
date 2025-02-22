@@ -1,3 +1,11 @@
+**Consumer bureau was told to vacate its Washington office as its lease is canceled.**\
+`By Stacy Cowley`\
+https://nytimes.com/live/2025/02/21/us/trump-news/consumer-bureau-was-told-to-vacate-its-washington-office-as-its-lease-is-canceled
+
+**What a Bout!**\
+`Rose Conlon presents a punchy themeless puzzle.`\
+https://nytimes.com/2025/02/21/crosswords/daily-puzzle-2025-02-22.html
+
 **Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
 `The general made an impression in 2018 when he said, according to the president, that the Islamic State could be defeated in a week.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
