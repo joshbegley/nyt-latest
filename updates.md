@@ -1,3 +1,11 @@
+**For families of freed hostages, a mix of euphoria and grief for those who didn’t survive.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/02/22/world/israel-hostages-hamas-gaza/for-families-of-freed-hostages-a-mix-of-euphoria-and-grief-for-those-who-didnt-survive
+
+**Police Respond to ‘Active Threat’ at a Pennsylvania Hospital**\
+`The police said they had responded to UPMC Memorial hospital in York County, Pa.`\
+https://nytimes.com/2025/02/22/us/hospital-shooting-upmc-york.html
+
 **The Briefing: Ipswich 1 Tottenham 4 - Spence influence growing, Johnson's welcome return**\
 `Spurs continued their recent Premier League revival with a comfortable win at Portman Road`\
 https://nytimes.com/athletic/6151449/2025/02/22/ipswich-1-tottenham-4-spence-johnson/
