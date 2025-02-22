@@ -1,5 +1,5 @@
 **With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
-`The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term picture.`\
+`The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term pictures.`\
 https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/
 
 **In Pursuit of a ‘Warrior Ethos,’ Hegseth Targets Military’s Top Lawyers**\
