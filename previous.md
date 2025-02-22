@@ -1,3 +1,7 @@
+**Firing of Joint Chiefs Chairman and Others Draws Criticism**\
+`Democratic lawmakers and retired military officers expressed concern about the politicization of the military under President Trump and Defense Secretary Pete Hegseth.`\
+https://nytimes.com/2025/02/22/us/politics/firing-of-joint-chiefs-chairman-and-others-draws-criticism.html
+
 **Former USMNT goalkeeper Meola suffers heart attack on 56th birthday**\
 `Former USMNT goalkeeper Tony Meola suffered a heart attack on Friday.`\
 https://nytimes.com/athletic/6152925/2025/02/22/usmnt-tony-meola-heart-attack/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/style/the-perfect-girl-next-door.html
 **Mikaela Shiffrin, still finding form, struggles in return to giant slalom races**\
 `After pulling out of the giant slalom at world championships, Mikaela Shiffrin returned to the event this weekend on the World Cup tour.`\
 https://nytimes.com/athletic/6150264/2025/02/22/mikaela-shiffrin-giant-slalom-world-cup-sestriere/
-
-**On the Ropes, Olaf Scholz Keeps Punching**\
-`The German chancellor, who defied calls to step aside after his government fell apart, is down in the polls but insisting he can still win.`\
-https://nytimes.com/2025/02/22/world/europe/germany-scholz-election.html
 
