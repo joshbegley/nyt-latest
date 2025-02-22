@@ -1,6 +1,10 @@
+**Oregon stuns Wisconsin with 17-point rally. Are the Ducks poised for a late-season run?**\
+`This victory gave Oregon its ninth Quad 1 win of the season, trailing only Auburn’s absurd 14.`\
+https://nytimes.com/athletic/6153105/2025/02/22/oregon-wisconsin-rally-big-ten/
+
 **‘Terrorist’ Attack at Market in France Leaves One Dead**\
 `France’s president, Emmanuel Macron, said there was “no doubt” that the stabbing was a terrorist attack, and the police are investigating it as such.`\
-https://nytimes.com/2025/02/22/world/europe/terrorist-attack-at-market-in-france-leaves-one-dead.html
+https://nytimes.com/2025/02/22/world/europe/terrorist-attack-france-market.html
 
 **The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
 `Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153038/2025/02/22/georginio-rutter-brighton-hurzel
 **FIA rebukes ‘tribalist’ booing of Horner and Verstappen at F1 75 Live**\
 `The FIA’s president, Mohammed Ben Sulayem, has made combatting online abuse a key part of his presidency.`\
 https://nytimes.com/athletic/6153008/2025/02/22/fia-max-verstappen-christian-horner-booed-f1-75-live/
-
-**'My time ran out': Khris Middleton reflects on emotional trade, Bucks career**\
-`The three-time All-Star opened up about his relationship with Giannis, how he found out he was headed to Washington and more.`\
-https://nytimes.com/athletic/6152732/2025/02/22/khris-middleton-wizards-bucks-giannis/
 
