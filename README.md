@@ -11,7 +11,7 @@ https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
 **Third-period collapse dooms Detroit in return from break: 5 thoughts**\
-`The Red Wings kicked off the season's home stretch Saturday, but let a late two-goal lead slip against Minnesota.`\
+`The Red Wings kicked off the season's homestretch Saturday but let a late two-goal lead slip against Minnesota.`\
 https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
 
 **Carlos Diegues, Filmmaker Who Celebrated Brazil’s Diversity, Dies at 84**\
