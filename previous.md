@@ -1,3 +1,7 @@
+**Anthony Rizzo remains without a team after battling injuries: 'I want to play'**\
+`Rizzo knows that the current environment is not kind to veteran players: "It’s what happens to the older guys. They kind of get squeezed."`\
+https://nytimes.com/athletic/6152452/2025/02/21/anthony-rizzo-world-series-game-5-free-agency/
+
 **Consumer bureau was told to vacate its Washington office as its lease is canceled.**\
 `By Stacy Cowley`\
 https://nytimes.com/live/2025/02/21/us/trump-news/consumer-bureau-was-told-to-vacate-its-washington-office-as-its-lease-is-canceled
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/colorado-avalanche-snowboarder-killed.html
 **Dan Caine, Trump’s Joint Chiefs Pick, Had Unusual Path to Top Ranks**\
 `The general made an impression in 2018 when he said, according to the president, that the Islamic State could be defeated in a week.`\
 https://nytimes.com/2025/02/21/us/politics/dan-caine-trump-joint-chiefs.html
-
-**Meghan’s New Name? He’s Been Using It for Years.**\
-`The founder of a New York clothing brand learned that he had something in common with the Duchess of Sussex this week: a business called As Ever.`\
-https://nytimes.com/2025/02/21/style/meghan-markle-as-ever-brand-name-controversy.html
 
