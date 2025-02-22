@@ -1,3 +1,7 @@
+**Matvei Michkov, who 'needed a break,' dazzles in Flyers' impressive victory**\
+`The rookie recorded one goal and two assists in the Flyers' 6-3 win over the Oilers on Saturday.`\
+https://nytimes.com/athletic/6153328/2025/02/22/flyers-matvei-michkov-oilers/
+
 **Kneeling in the Snow: A Village Mourns Its Fifth Fallen Soldier**\
 `In a pair of Ukrainian villages with about 400 people between them, every loss is felt keenly.`\
 https://nytimes.com/card/2025/02/23/world/ukraine-village-soldier-funeral
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
 **Carlos Diegues, Filmmaker Who Celebrated Brazil’s Diversity, Dies at 84**\
 `Seeking to shed the gauzy influence of Hollywood and focus on Brazil’s ethnic richness and troubled history, he helped forge a new path for his country’s cinema.`\
 https://nytimes.com/2025/02/22/movies/carlos-diegues-dead.html
-
-**Lakers at Nuggets: How to watch Nikola Jokić host LeBron James and Luka Dončić**\
-`LeBron James, Luka Dončić and the Lakers ascend to the Mile High City to face Nikola Jokić's Nuggets on Saturday.`\
-https://nytimes.com/athletic/6151771/2025/02/22/lakers-nuggets-how-to-watch-jokic-lebron-luka-nba/
 
