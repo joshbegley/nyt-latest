@@ -1,3 +1,7 @@
+**Defense Department to Cut Over 5,000 Workers**\
+`The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
+https://nytimes.com/2025/02/21/us/politics/pentagon-job-cuts.html
+
 **What They Took**\
 `They rushed to flee the fires in Southern California, grabbing their belongings and their pets. They took the precious and the mundane, each with its own story to tell.`\
 https://nytimes.com/interactive/2025/02/21/us/la-fires-survivors-palisades-eaton.html
