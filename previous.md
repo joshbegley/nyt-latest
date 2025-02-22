@@ -1,3 +1,7 @@
+**What They Took**\
+`They rushed to flee the fires in Southern California, grabbing their belongings and their pets. They took the precious and the mundane, each with its own story to tell.`\
+https://nytimes.com/interactive/2025/02/21/us/la-fires-survivors-palisades-eaton.html
+
 **Michigan, Dusty May agree to multi-year contract extension**\
 `In his first season at Michigan, May has the Wolverines in the hunt for a Big Ten championship`\
 https://nytimes.com/athletic/6152355/2025/02/21/michigan-dusty-may-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/21/us/firing-squad-executions-us.html
 **The firings are the first of what is expected to be a vast wave of layoffs at the Defense Department.**\
 `The firings are the first of what is expected to be a vast wave of layoffs by the Pentagon.`\
 https://nytimes.com/live/2025/02/21/us/trump-news/pentagon-job-cuts
-
-**What That Chain Saw Was Really About**\
-`Waving a chain saw onstage at CPAC, Elon Musk showed how he has emulated a right-wing leader.`\
-https://nytimes.com/2025/02/21/us/politics/elon-musk-doge-cpac-chainsaw.html
 

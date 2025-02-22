@@ -1,3 +1,7 @@
+**What They Took**\
+`They rushed to flee the fires in Southern California, grabbing their belongings and their pets. They took the precious and the mundane, each with its own story to tell.`\
+https://nytimes.com/interactive/2025/02/21/us/la-fires-survivors-palisades-eaton.html
+
 **Michigan, Dusty May agree to multi-year contract extension**\
 `In his first season at Michigan, May has the Wolverines in the hunt for a Big Ten championship`\
 https://nytimes.com/athletic/6152355/2025/02/21/michigan-dusty-may-contract-extension/
