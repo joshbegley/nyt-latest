@@ -1,3 +1,7 @@
+**'Everything in life really has an expiration date': Kyle Kuzma on his Wizards tenure**\
+`Kuzma reflected on his tenure in Washington, saying, "I wouldn’t trade this experience and being here and being a Wizard for anything."`\
+https://nytimes.com/athletic/6152636/2025/02/22/kyle-kuzma-washington-wizards-milwaukee-bucks/
+
 **Amorim has the support of the fans - but he needs more results like Moyes**\
 `As well as being above United, former boss David Moyes has given Everton the lift that fans hoped Amorim would give his new club`\
 https://nytimes.com/athletic/6148587/2025/02/22/amorim-has-the-support-of-manchester-uniteds-fans-but-he-needs-more-results-like-moyes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/world/europe/russia-nationalization-airport.html
 **Coffee Prices Are at a 50-Year High. Producers Aren’t Celebrating.**\
 `Climate change is behind the windfall gains, and growers are worried about whether they can adapt.`\
 https://nytimes.com/2025/02/22/business/coffee-prices-climate-change.html
-
-**Is Xi’s Sudden Embrace of Business for Real? China Is Left Guessing.**\
-`The uncertain reaction to Xi Jinping’s display of warmth made sense: Executives are eager for a reset after years in the cold but ever wary of meddling.`\
-https://nytimes.com/2025/02/22/business/xi-jinping-jack-ma.html
 
