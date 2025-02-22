@@ -1,3 +1,7 @@
+**‘Dreams,’ Film About Teen Infatuation, Takes Top Prize at Berlin International Film Festival**\
+`The event’s other honorees include the actress Rose Byrne, a performance as the composer Richard Rodgers and an Argentine film about a girl who seems to speak to animals.`\
+https://nytimes.com/2025/02/22/arts/dreams-berlin-international-film-festival.html
+
 **What to Know About Janet Mills, the Maine Governor Who Told Trump, ‘See You in Court’**\
 `The state’s first female governor and first female district attorney, the longtime Democratic politician has a history of supporting law enforcement.`\
 https://nytimes.com/2025/02/22/us/politics/janet-mills-maine-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153105/2025/02/22/oregon-wisconsin-rally-big-ten/
 **‘Terrorist’ Attack at Market in France Leaves One Dead**\
 `France’s president, Emmanuel Macron, said there was “no doubt” that the stabbing was a terrorist attack, and the police are investigating it as such.`\
 https://nytimes.com/2025/02/22/world/europe/terrorist-attack-france-market.html
-
-**The Briefing: Aston Villa 2 Chelsea 1 - Jorgensen's costly error, Palmer's frustration and James' new role**\
-`Simon Johnson and Anantaajith Raghuraman analyse the main talking points from Chelsea's defeat at Aston Villa`\
-https://nytimes.com/athletic/6151450/2025/02/22/aston-villa-chelsea-analysis/
 
