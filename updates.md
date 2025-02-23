@@ -1,3 +1,7 @@
+**Chris Pronger's advice to Blues fans regarding Colton Parayko: 'Enjoy what you have'**\
+`The Hockey Hall of Famer says Parayko impressed him with Team Canada and his attributes shouldn't be overlooked.`\
+https://nytimes.com/athletic/6081791/2025/02/23/colton-parayko-blues-chris-pronger-4-nations/
+
 **Catholics Pray for Ailing Pope Francis at Sunday Mass**\
 `The 88-year-old pontiff has been hospitalized for more than a week and was given oxygen and a blood transfusion on Saturday.`\
 https://nytimes.com/2025/02/23/world/asia/mass-pope-francis-prayers-photos.html
