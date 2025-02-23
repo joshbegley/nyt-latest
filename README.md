@@ -1,5 +1,5 @@
 **'Deserved to get booed': No-show first period costs Bruins vs. Ducks**\
-`Fans booed Boston after it fell two goals behind Anaheim after the first period in an eventual 3-2 loss for the Bruins.`\
+`Fans booed Boston when it fell two goals behind Anaheim after the first period in an eventual 3-2 loss.`\
 https://nytimes.com/athletic/6153728/2025/02/22/bruins-ducks-booed-score/
 
 **Report cards: Leafs start strong, survive late surge by Hurricanes**\
