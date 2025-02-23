@@ -1,3 +1,11 @@
+**Swiss Peak**\
+`Rena Cohen offers a series of clarifications.`\
+https://nytimes.com/2025/02/23/crosswords/daily-puzzle-2025-02-24.html
+
+**SAG Awards Photos: See the Looks From the 2025 Red Carpet**\
+`See what film and television stars wore as they arrived for the Screen Actors Guild Awards.`\
+https://nytimes.com/2025/02/23/style/sag-awards-red-carpet-looks.html
+
 **Braves notes: Ian Anderson's rough spring debut, Eli White shifts positions and more**\
 `The Braves would love to get Anderson back to top form, as the right-hander is 4-0 with a 1.25 ERA in the postseason.`\
 https://nytimes.com/athletic/6155135/2025/02/23/braves-ian-anderson-eli-white/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6154977/2025/02/23/antony-real-betis-red-card/
 **‘The lesser evil’: Some Merz voters aren’t excited about him.**\
 `By Catherine Odom and Adam Sella`\
 https://nytimes.com/live/2025/02/23/world/germany-election/the-lesser-evil-some-merz-voters-arent-excited-about-him
-
-**Why had Wrexham's defence suddenly become so leaky? And is it fixed?**\
-`Wrexham had just two clean sheets in 13 games, during which 17 goals were conceded`\
-https://nytimes.com/athletic/6148295/2025/02/23/why-had-wrexhams-defence-suddenly-become-so-leaky-and-is-it-fixed/
-
-**Monday Briefing: Conservatives Near Victory in Germany**\
-`Plus, a pharaoh’s tomb was unearthed.`\
-https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
 
