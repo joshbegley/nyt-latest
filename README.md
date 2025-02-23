@@ -18,7 +18,7 @@ https://nytimes.com/2025/02/23/us/politics/trump-dan-caine-joint-chiefs-chairman
 `A Red Storm team that can shoot could be scary. Meanwhile, UConn remains in solid shape for an NCAA bid despite loss.`\
 https://nytimes.com/athletic/6154889/2025/02/23/st-johns-routs-uconn-big-east/
 
-**Some Agencies Urge Staff Not to Comply With Musk’s Ultimatum**\
+**Some Trump Officials Push Back Against Musk’s Ultimatum to Workers**\
 `The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
 https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
 
