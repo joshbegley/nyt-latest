@@ -1,8 +1,12 @@
+**Hurricanes mailbag: Will Mikko Rantanen get re-signed? Or flipped in a trade?**\
+`Plus, is there any chance Carolina might replace Rod Brind’Amour? Should Jaccob Slavin's minutes increase?`\
+https://nytimes.com/athletic/6152343/2025/02/23/hurricanes-rantanen-trade-slavin/
+
 **Got Ground Meat? Cook Some Keema.**\
 `Tejal Rao’s keema is simple and comforting, perfect for a Sunday night.`\
 https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
 
-**The Briefing: Newcastle 4 N Forest 3 - Eleven-minute flurry, nervy ending and fifty up for Isak**\
+**The Briefing: Newcastle 4 Forest 3 - 11-minute flurry, nervy ending and 50 for Isak**\
 `Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park.`\
 https://nytimes.com/athletic/6148363/2025/02/23/newcastle-forest-isak-comeback/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump
 **For Mikaela Shiffrin, 100 World Cup wins and a female-led team guiding the way**\
 `Mikaela Shiffrin has reached an unprecedented milestone of Alpine skiing success. But there's another legacy she's leaving.`\
 https://nytimes.com/athletic/5947905/2025/02/23/mikaela-shiffrin-100-world-cup-wins-female-coaches/
-
-**Why Sixers must shut down Joel Embiid before it's too late**\
-`It's time for Philadelphia to prioritize getting Joel Embiid healthy, adding an asset this summer and coming back stronger next season.`\
-https://nytimes.com/athletic/6153879/2025/02/23/joel-embiid-76ers-shut-down-lottery-pick-nba-draft/
 
