@@ -1,3 +1,7 @@
+**Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
+`"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
+https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/
+
 **Gabbard accuses security agencies of eroding privacy and civil liberties.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/23/us/trump-news/gabbard-accuses-security-agencies-of-eroding-privacy-and-civil-liberties
