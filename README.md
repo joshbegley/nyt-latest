@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6152343/2025/02/23/hurricanes-rantanen-trade-slavin
 https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
 
 **The Briefing: Newcastle 4 Forest 3 - 11-minute flurry, nervy ending and 50 for Isak**\
-`Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park.`\
+`Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park`\
 https://nytimes.com/athletic/6148363/2025/02/23/newcastle-forest-isak-comeback/
 
 **Here are the latest developments.**\
