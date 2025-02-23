@@ -53,6 +53,11 @@ https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-
 `\
 https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
 
+**Report cards: Leafs start strong, survive late surge by Hurricanes**\
+`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
+`\
+https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
+
 **'Deserved to get booed': No-show first period costs Bruins vs. Ducks**\
 `Fans booed Boston when it fell two goals behind Anaheim after the first period in an eventual 3-2 loss.`\
 https://nytimes.com/athletic/6153728/2025/02/22/bruins-ducks-booed-score/
