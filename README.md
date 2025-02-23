@@ -1,3 +1,7 @@
+**Catholics Pray for Ailing Pope Francis at Sunday Mass**\
+`The 88-year-old pontiff has been hospitalized for more than a week and was given oxygen and a blood transfusion on Saturday.`\
+https://nytimes.com/2025/02/23/world/asia/mass-pope-francis-prayers-photos.html
+
 **‘Running Point,’ Plus 5 Things to Watch on TV This Week**\
 `Kate Hudson stars as a basketball team executive in a new comedy on Netflix, and the Oscars air on Sunday night.`\
 https://nytimes.com/2025/02/23/arts/television/running-point-plus-5-things-to-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151651/2025/02/23/could-russian-football-be-brough
 **Macron and Starmer Have Played Trump’s Game Before, but the Rules Are Changing**\
 `The leaders of France and Britain are both due to meet with President Trump this week. Approaches previously tried with him may no longer work.`\
 https://nytimes.com/2025/02/23/world/europe/france-uk-trump-macron-starmer.html
-
-**Germans Are Voting. Here’s What to Watch For.**\
-`What Germans decide in national elections that are likely to produce a new chancellor will be of critical importance as Europe re-evaluates relations with the Trump administration.`\
-https://nytimes.com/2025/02/23/world/europe/germans-are-voting-heres-what-to-watch-for.html
 
