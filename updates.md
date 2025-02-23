@@ -1,3 +1,11 @@
+**Mets notes: What to watch for with Clay Holmes' new mix, Mark Vientos’ defensive task**\
+`Holmes' cutter could unlock a new level of production, plus notes on Ryan Clifford and Vientos working on his defensive range.`\
+https://nytimes.com/athletic/6153649/2025/02/23/mets-clay-holmes-mark-vientos/
+
+**‘We think it was a penalty’ - Everton's feeling of injustice and missed opportunity**\
+`The nature of Saturday’s 2-2 draw with Manchester United made it feel ‘close to a defeat’ according to Everton manager David Moyes`\
+https://nytimes.com/athletic/6153034/2025/02/23/everton-manchester-united-penalty-young/
+
 **Israel and Hamas Trade Accusations of Violating Fragile Cease-Fire**\
 `Hamas criticized Israel’s decision to delay the release of hundreds of Palestinian prisoners, amid growing tensions and concerns for the future of the truce in Gaza.`\
 https://nytimes.com/2025/02/23/world/middleeast/israel-and-hamas-trade-accusations-of-violating-fragile-cease-fire.html
