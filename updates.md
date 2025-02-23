@@ -1,3 +1,7 @@
+**Corrections: Feb. 23, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 23, 2025.`\
+https://nytimes.com/2025/02/22/pageoneplus/corrections-feb-23-2025.html
+
 **Alabama overpowers shorthanded Kentucky to shake off 2-game losing streak**\
 `After back-to-back losses against Auburn and Missouri, Alabama snagged a 96-83 win over the No. 17 Wildcats.`\
 https://nytimes.com/athletic/6153601/2025/02/22/alabama-kentucky-basketball-score-takeaways/

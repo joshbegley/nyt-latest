@@ -1,3 +1,7 @@
+**Corrections: Feb. 23, 2025**\
+`Corrections that appeared in print on Sunday, Feb. 23, 2025.`\
+https://nytimes.com/2025/02/22/pageoneplus/corrections-feb-23-2025.html
+
 **Alabama overpowers shorthanded Kentucky to shake off 2-game losing streak**\
 `After back-to-back losses against Auburn and Missouri, Alabama snagged a 96-83 win over the No. 17 Wildcats.`\
 https://nytimes.com/athletic/6153601/2025/02/22/alabama-kentucky-basketball-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153369/2025/02/22/penguins-honor-broadcaster-mike-
 **Dodge begins process of gaining approval to rejoin NASCAR Truck Series**\
 `Once a mainstay in the popular Truck Series, Dodge fielded entries from the series’ inception in 1995 through the 2016 season.`\
 https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
-
-**Tito's back: Terry Francona returns to the dugout with the Reds**\
-`Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games Saturday.`\
-https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
 
