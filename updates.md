@@ -1,3 +1,7 @@
+**Brian Campbell stuns with his first win on PGA Tour: 'I'm freaking out'**\
+`Light-hitting veteran defeats 20-year-old prodigy Aldrich Potgieter in sudden-death playoff at Mexican Open.`\
+https://nytimes.com/athletic/6155384/2025/02/23/brian-campbell-stuns-with-mexican-open-win/
+
 **Trump, Again, Chooses Loyalty Over Leadership**\
 `The firing of the nation’s top military officer is the latest example of the president prioritizing fealty over sound policy and expertise.`\
 https://nytimes.com/2025/02/23/opinion/trump-pentagon-military-firings.html
