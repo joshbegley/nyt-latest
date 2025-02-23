@@ -1,3 +1,7 @@
+**Trump, Again, Chooses Loyalty Over Leadership**\
+`The firing of the nation’s top military officer is the latest example of the president prioritizing fealty over sound policy and expertise.`\
+https://nytimes.com/2025/02/23/opinion/trump-pentagon-military-firings.html
+
 **Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
 `May and Ohtani both reached significant milestones in their comebacks from surgery.`\
 https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155135/2025/02/23/braves-ian-anderson-eli-white/
 **Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
 `Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
 https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor-election.html
-
-**Germany’s Votes Are Cast. What Happens Now?**\
-`The country appears headed for a coalition government. But the process of building one could take months.`\
-https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html
 
