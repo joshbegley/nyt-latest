@@ -1,3 +1,7 @@
+**Rangers sack manager Clement**\
+`The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
+https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
+
 **Blue Jackets Sunday Gathering: James van Riemsdyk is the NHL's top outdoorsman**\
 `Saturday's Stadium Series between the Blue Jackets and Red Wings at Ohio Stadium will be van Riemsdyk's eighth outdoor game.`\
 https://nytimes.com/athletic/6153069/2025/02/23/blue-jackets-nhl-james-van-riemsdyk/
