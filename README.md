@@ -1,9 +1,13 @@
+**2025 MLB Draft scouting: A look at UCSB's Tyler Bremner, other potential first-rounders**\
+`A trip to southern California got Law looks at one of the top college arms and one of the top high school bats, as well as several others.`\
+https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-bremner-nick-dumesnil/
+
 **Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
 `The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
 https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
 
 **Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
-`Boilermakers clearly miss Zach Edey, as they're exposed inside by Indiana's big men in defeat.`\
+`The Boilermakers miss Zach Edey, as they were exposed inside by Indiana's big men in Sunday's loss.`\
 https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
 
 **Antony sent off for late tackle in Betis win over Getafe**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score
 **Tens of Thousands Mourn Hezbollah’s Former Leader**\
 `Hezbollah supporters gathered to pay tribute to Hassan Nasrallah, the group’s former leader, and Hashem Safieddine, another top official, at a funeral service held months after both were killed by Israel.`\
 https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-funeral-lebanon.html
-
-**Firewall? Why the Far Right Is Unlikely to Join Germany’s Next Government**\
-`The collective shunning of the AfD party is part of a longstanding attempt to blunt its move into the mainstream.`\
-https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
 
