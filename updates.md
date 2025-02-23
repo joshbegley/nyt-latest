@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-
 `\
 https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
 
+**Report cards: Leafs start strong, survive late surge by Hurricanes**\
+`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
+`\
+https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
+
 **Victor Wembanyama card sells for record price despite injury news**\
 `Saturday's sale blows past the previous record for a Wembanyama card`\
 https://nytimes.com/athletic/6153477/2025/02/22/victor-wembanyama-card-record-sale/
