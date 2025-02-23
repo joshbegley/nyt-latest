@@ -1,3 +1,7 @@
+**Rangers sack manager Clement**\
+`The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
+https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
+
 **Blue Jackets Sunday Gathering: James van Riemsdyk is the NHL's top outdoorsman**\
 `Saturday's Stadium Series between the Blue Jackets and Red Wings at Ohio Stadium will be van Riemsdyk's eighth outdoor game.`\
 https://nytimes.com/athletic/6153069/2025/02/23/blue-jackets-nhl-james-van-riemsdyk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
 **Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
 `Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
 https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
-
-**Voters Took Note of U.S. Meddling in Campaign**\
-`Several voters took note of a speech by Vice President JD Vance this month, when he told European leaders to stop shunning parties deemed “extreme.”`\
-https://nytimes.com/2025/02/23/world/europe/trump-us-germany-election.html
 
