@@ -1,3 +1,11 @@
+**In a city shaken by a killing, voters on all sides were upset.**\
+`By Sam Gurwitt`\
+https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a-killing-voters-on-all-sides-were-upset
+
+**The Briefing: Man City 0 Liverpool 2 - Is the title race already over?**\
+`The big talking points from the Etihad dissected as Liverpool took another big step towards the title`\
+https://nytimes.com/athletic/6148375/2025/02/23/manchester-city-liverpool-analysis-result/
+
 **Fiorentina's Kean taken to hospital after sustaining head injury against Verona**\
 `Kean initially returned to the pitch after having his head bandaged before collapsing on the field shortly after coming back on.`\
 https://nytimes.com/athletic/6154653/2025/02/23/moise-kean-fiorentina-head-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/world/europe/trump-us-germany-election.html
 **What Project Is Changing Your Community?**\
 `Headway, a team at The New York Times that reports on progress and possibility, wants to hear about the efforts shaping your community. What’s working? What’s not? What should we look into?`\
 https://nytimes.com/2025/02/23/headway/projects-changing-community-neighborhoods-progress.html
-
-**Hurricanes mailbag: Will Mikko Rantanen get re-signed? Or flipped in a trade?**\
-`Plus, is there any chance Carolina might replace Rod Brind’Amour? Should Jaccob Slavin's minutes increase?`\
-https://nytimes.com/athletic/6152343/2025/02/23/hurricanes-rantanen-trade-slavin/
-
-**Got Ground Meat? Cook Some Keema.**\
-`Tejal Rao’s keema is simple and comforting, perfect for a Sunday night.`\
-https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
 

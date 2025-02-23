@@ -1,3 +1,11 @@
+**In a city shaken by a killing, voters on all sides were upset.**\
+`By Sam Gurwitt`\
+https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a-killing-voters-on-all-sides-were-upset
+
+**The Briefing: Man City 0 Liverpool 2 - Is the title race already over?**\
+`The big talking points from the Etihad dissected as Liverpool took another big step towards the title`\
+https://nytimes.com/athletic/6148375/2025/02/23/manchester-city-liverpool-analysis-result/
+
 **Fiorentina's Kean taken to hospital after sustaining head injury against Verona**\
 `Kean initially returned to the pitch after having his head bandaged before collapsing on the field shortly after coming back on.`\
 https://nytimes.com/athletic/6154653/2025/02/23/moise-kean-fiorentina-head-injury/
