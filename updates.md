@@ -1,3 +1,7 @@
+**Giants spring opener observations: Bryce Eldridge steals the show**\
+`The Giants' first spring game of 2025 carried several storylines. Then Eldridge hit a 450-foot bomb.`\
+https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-eldridge-home-run/
+
 **‘Religious Motivation’ Possible in Berlin Stabbing, Police Say**\
 `The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
 https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html

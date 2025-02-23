@@ -1,3 +1,7 @@
+**Giants spring opener observations: Bryce Eldridge steals the show**\
+`The Giants' first spring game of 2025 carried several storylines. Then Eldridge hit a 450-foot bomb.`\
+https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-eldridge-home-run/
+
 **‘Religious Motivation’ Possible in Berlin Stabbing, Police Say**\
 `The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
 https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/02/23/world/ukraine-village-soldier-funeral
 **With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
 `The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term pictures.`\
 https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/
-
-**In Pursuit of a ‘Warrior Ethos,’ Hegseth Targets Military’s Top Lawyers**\
-`The defense secretary has repeatedly derided the military lawyers for war crime prosecutions and battlefield rules of engagement.`\
-https://nytimes.com/2025/02/22/us/politics/hegseth-firings-military-lawyers-jag.html
 
