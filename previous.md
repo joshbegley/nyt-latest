@@ -1,3 +1,7 @@
+**Tito's back: Terry Francona returns to the dugout with the Reds**\
+`Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games on Saturday.`\
+https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
+
 **Fresno State withholding 2 players due to potential gambling violation**\
 `Jalen Weaver is the team’s second-leading scorer at 12.5 points per game while Zaon Collins is tied for third at 12.0.`\
 https://nytimes.com/athletic/6153426/2025/02/22/fresno-state-basketball-gambling/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
 **Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
 `According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
 https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
-
-**Third-period collapse dooms Detroit in return from break: 5 thoughts**\
-`The Red Wings kicked off the season's homestretch Saturday but let a late two-goal lead slip against Minnesota.`\
-https://nytimes.com/athletic/6153185/2025/02/22/red-wings-wild-score-analysis/
 

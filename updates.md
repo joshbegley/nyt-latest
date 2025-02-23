@@ -1,3 +1,7 @@
+**Tito's back: Terry Francona returns to the dugout with the Reds**\
+`Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games on Saturday.`\
+https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
+
 **Fresno State withholding 2 players due to potential gambling violation**\
 `Jalen Weaver is the team’s second-leading scorer at 12.5 points per game while Zaon Collins is tied for third at 12.0.`\
 https://nytimes.com/athletic/6153426/2025/02/22/fresno-state-basketball-gambling/
