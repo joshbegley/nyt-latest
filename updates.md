@@ -1,3 +1,7 @@
+**Meet the Man Poised to Be Germany’s Next Chancellor**\
+`Friedrich Merz, leader of the conservative Christian Democratic Union, has vowed to bring stronger leadership in Europe at a time when the new Trump administration has sowed anxiety on the continent.`\
+https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor.html
+
 **Expanding West Bank Campaign, Israel Sends Tanks for First Time in Decades**\
 `Israel’s defense minister, Israel Katz, said that 40,000 Palestinian residents displaced from militant hotbeds would not be allowed to return to their homes.`\
 https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
