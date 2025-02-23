@@ -1,3 +1,15 @@
+**Some Agencies Urge Staff Not to Comply With Musk’s Ultimatum**\
+`The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
+https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
+
+**Germany’s smaller parties could have an outsized effect on who’s in the governing coalition.**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-parties-could-have-an-outsized-effect-on-whos-in-the-governing-coalition
+
+**French referees union condemn corruption accusations from Marseille president**\
+`Longoria criticised referee Jeremy Stinat after his decision to show defender Derek Cornelius a second yellow card against Auxerre.`\
+https://nytimes.com/athletic/6154095/2025/02/23/marseille-ligue-1-corruption-referee-france/
+
 **‘Much more cautious approach’: Sweeney's buying days seem over, and what's next for Marchand?**\
 `For nine straight seasons, Sweeney added reinforcements at the trade deadline. But going all in has caught up to the Bruins.`\
 https://nytimes.com/athletic/6154811/2025/02/23/bruins-trade-deadline-don-sweeney-brad-marchand/
