@@ -1,3 +1,11 @@
+**Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
+`Slafkovský had a game Saturday in Ottawa that exemplified everything the Canadiens hope he can become when they are ready to win.`\
+https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
+
+**Manchester United, an unlikely comeback and a search for existence**\
+`A half-time altercation feels emblematic of United’s position in the Premier League food chain right now: vulnerable and there to be mocked.`\
+https://nytimes.com/athletic/6153544/2025/02/23/man-united-amorim-everton/
+
 **'Just keep grinding': Suns' big three help snap 4-game skid with win over Bulls**\
 `Kevin Durant, Devin Booker and Bradley Beal came up big against Chicago. "We’ve got to build off it," Suns coach Mike Budenholzer said.`\
 https://nytimes.com/athletic/6153864/2025/02/23/kevin-durant-suns-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/opinion/ukraine-war-army.html
 **'Never refer to us as Tottenham' may seem a small edict but it says a lot about the modern game**\
 `The story that emerged this week that Spurs do not want to be called 'Tottenham' is indicative of how some clubs want to project themselves`\
 https://nytimes.com/athletic/6153098/2025/02/23/tottenham-hotspur-spurs-edict/
-
-**Zach Werenski resumes red-hot play, production after 4 Nations**\
-`Werenski had a 3-point game, including a length-of-the-ice breakaway goal, to lead the Blue Jackets to a 5-1 win over the Blackhawks.`\
-https://nytimes.com/athletic/6153682/2025/02/23/blue-jackets-zach-werenski-4-nations-face-off/
-
-**Man City vs Liverpool dissected: Will rivalry return and where will the game be won?**\
-`Our experts analyse both clubs' contrasting fortunes, who will win the Haaland vs Van Dijk battle and make their predictions `\
-https://nytimes.com/athletic/6149297/2025/02/23/manchester-city-liverpool-prediction-rivalry-tactics/
 
