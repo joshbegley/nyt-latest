@@ -1,3 +1,7 @@
+**Shakes Sold to Nursing Homes Recalled After Deadly Listeria Outbreak**\
+`The frozen supplemental drinks have been linked to an outbreak of listeria that has killed at least 11 people and hospitalized 37.`\
+https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
+
 **Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
 `Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
 https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
