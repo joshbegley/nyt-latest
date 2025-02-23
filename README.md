@@ -1,3 +1,7 @@
+**NYCFC player taunts Messi with Ronaldo celebration in season-opening draw**\
+`Mitja Ilenic tried to pull one over on Messi, who got the last laugh with a game-tying assist deep into second-half stoppage time.`\
+https://nytimes.com/athletic/6153659/2025/02/22/inter-miami-nycfc-mls-messi-ronaldo-celebration-ilenic/
+
 **Corrections: Feb. 23, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 23, 2025.`\
 https://nytimes.com/2025/02/22/pageoneplus/corrections-feb-23-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
 **Hockey nights in Pittsburgh will always belong to Mike Lange**\
 `Lange, the voice of Penguins hockey for nearly 50 years, cast an everlasting shadow over a city and its hockey team.`\
 https://nytimes.com/athletic/6153369/2025/02/22/penguins-honor-broadcaster-mike-lange-ceremony/
-
-**Dodge begins process of gaining approval to rejoin NASCAR Truck Series**\
-`Once a mainstay in the popular Truck Series, Dodge fielded entries from the series’ inception in 1995 through the 2016 season.`\
-https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
 
