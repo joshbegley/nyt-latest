@@ -1,3 +1,7 @@
+**The Paris basketball court that's a tourist attraction and a changing work of art**\
+`A basketball court in Paris brings colour and a sense of community to a neighborhood and the fans who visit.`\
+https://nytimes.com/athletic/6066220/2025/02/23/pigalle-duperre-paris-basketball-court-stephane-ashpool/
+
 **For Fearful Immigrants, It’s the Card They All Want Right Now**\
 `Distributed by a legal aid group, the “red card” lays out key rights and protections. Demand for them has surged since President Trump returned to office.`\
 https://nytimes.com/2025/02/23/us/immigration-red-card.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/crosswords/spelling-bee-forum.html
 **Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
 `Slafkovský's game Saturday in Ottawa exemplified everything the Canadiens hope he can become when they are ready to win.`\
 https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
-
-**Manchester United, an unlikely comeback and a search for existence**\
-`A half-time altercation feels emblematic of United’s position in the Premier League food chain: vulnerable and there to be mocked`\
-https://nytimes.com/athletic/6153544/2025/02/23/man-united-amorim-everton/
 
