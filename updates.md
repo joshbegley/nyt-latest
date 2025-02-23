@@ -1,3 +1,7 @@
+**Trump Appointees Fire Hundreds at U.S.A.I.D. Working on Urgent Aid**\
+`The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
+https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
+
 **Corrections: Feb. 23, 2025**\
 `Corrections that appeared in print on Sunday, Feb. 23, 2025.`\
 https://nytimes.com/2025/02/22/pageoneplus/corrections-feb-23-2025.html
