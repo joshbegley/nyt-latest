@@ -1,3 +1,7 @@
+**NC State upsets No. 1 Notre Dame in OT, shakes up NCAA title favorites pool**\
+`The Irish fell on the road to the Wolfpack 104-95 in double overtime Sunday.`\
+https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score/
+
 **Tens of Thousands Mourn Hezbollah’s Former Leader**\
 `Hezbollah supporters gathered to pay tribute to Hassan Nasrallah, the group’s former leader, and Hashem Safieddine, another top official, at a funeral service held months after both were killed by Israel.`\
 https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-funeral-lebanon.html

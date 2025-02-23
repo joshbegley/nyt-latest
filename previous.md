@@ -1,3 +1,7 @@
+**NC State upsets No. 1 Notre Dame in OT, shakes up NCAA title favorites pool**\
+`The Irish fell on the road to the Wolfpack 104-95 in double overtime Sunday.`\
+https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score/
+
 **Tens of Thousands Mourn Hezbollah’s Former Leader**\
 `Hezbollah supporters gathered to pay tribute to Hassan Nasrallah, the group’s former leader, and Hashem Safieddine, another top official, at a funeral service held months after both were killed by Israel.`\
 https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-funeral-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154811/2025/02/23/bruins-trade-deadline-don-sweene
 **Immigration was a central concern heading into the vote.**\
 `A series of attacks helped fuel debate about immigration in the weeks before German voters cast their ballots for a new Parliament.`\
 https://nytimes.com/live/2025/02/23/world/germany-election/immigration-was-a-central-concern-heading-into-the-vote
-
-**Ken Rosenthal, Founder of Panera Bread’s Forerunner, Dies at 81**\
-`He built a small chain of bakery cafes, with sourdough bread as its star. A few years after it was sold, it became nationally famous under a new name.`\
-https://nytimes.com/2025/02/23/business/ken-rosenthal-dead.html
 
