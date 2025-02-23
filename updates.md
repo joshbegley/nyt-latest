@@ -1,3 +1,7 @@
+**Hamas Frees 6 Hostages as Israel Delays Palestinian Prisoner Release**\
+`The six Israelis were the last living captives set to be released in the first phase of the cease-fire. The agreement, strained for weeks, has an uncertain future.`\
+https://nytimes.com/2025/02/22/world/middleeast/israel-hostage-hamas-ceasefire.html
+
 **Yohe's 10 observations: Penguins embarrassed on home ice by indomitable Capitals**\
 `Pittsburgh played pretty well for 30 minutes, and then the bottom fell out as it was embarrassed in an 8-3 loss against Washington.`\
 https://nytimes.com/athletic/6153270/2025/02/22/penguins-capitals-sidney-crosby/
