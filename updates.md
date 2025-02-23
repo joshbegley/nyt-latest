@@ -1,3 +1,7 @@
+**The Paris basketball court that's a tourist attraction and a changing work of art**\
+`A basketball court in Paris brings colour and a sense of community to a neighborhood and the fans who visit.`\
+https://nytimes.com/athletic/6066220/2025/02/23/pigalle-duperre-paris-basketball-court-stephane-ashpool/
+
 **Manchester United, an unlikely comeback and a search for existence**\
 `A half-time altercation feels emblematic of United’s position in the Premier League food chain: vulnerable and there to be mocked`\
 https://nytimes.com/athletic/6153544/2025/02/23/man-united-amorim-everton/
