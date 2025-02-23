@@ -1,3 +1,8 @@
+**Report cards: Leafs start strong, survive late surge by Hurricanes**\
+`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
+`\
+https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
+
 **Victor Wembanyama card sells for record price despite injury news**\
 `Saturday's sale blows past the previous record for a Wembanyama card`\
 https://nytimes.com/athletic/6153477/2025/02/22/victor-wembanyama-card-record-sale/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/02/22/world/middleeast/israel-hostage-hamas-ceasefire.h
 **Yohe's 10 observations: Penguins embarrassed on home ice by indomitable Capitals**\
 `Pittsburgh played pretty well for 30 minutes, and then the bottom fell out as it was embarrassed in an 8-3 loss against Washington.`\
 https://nytimes.com/athletic/6153270/2025/02/22/penguins-capitals-sidney-crosby/
-
-**Giants spring opener observations: Bryce Eldridge steals the show**\
-`The Giants' first spring game of 2025 carried several storylines. Then Eldridge hit a 450-foot bomb.`\
-https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-eldridge-home-run/
 
