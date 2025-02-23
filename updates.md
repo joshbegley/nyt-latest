@@ -1,3 +1,7 @@
+**U.S.A.I.D. Appointees Fire Hundreds Working on Urgent Humanitarian Aid**\
+`The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
+https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
+
 **Hockey nights in Pittsburgh will always belong to Mike Lange**\
 `Lange, the voice of Penguins hockey for nearly 50 years, cast an everlasting shadow over a city and its hockey team.`\
 https://nytimes.com/athletic/6153369/2025/02/22/penguins-honor-broadcaster-mike-lange-ceremony/
