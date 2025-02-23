@@ -1,4 +1,8 @@
-**Rangers sack manager Clement**\
+**Ken Rosenthal, Founder of Panera Bread’s Forerunner, Dies at 81**\
+`He built a small chain of bakery cafes, with sourdough bread as its star. A few years after it was sold, it became nationally famous under a new name.`\
+https://nytimes.com/2025/02/23/business/ken-rosenthal-dead.html
+
+**Rangers set to sack manager Clement**\
 `The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
 https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154429/2025/02/23/arizona-byu-chant-apology/
 **Shakes Sold to Nursing Homes Recalled After Deadly Listeria Outbreak**\
 `The frozen supplemental drinks have been linked to an outbreak of listeria that has killed at least 11 people and hospitalized 37.`\
 https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
-
-**Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
-`Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
-https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
 
