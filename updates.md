@@ -1,3 +1,7 @@
+**Israel and Hamas Trade Accusations of Violating Fragile Cease-Fire**\
+`Hamas criticized Israel’s decision to delay the release of hundreds of Palestinian prisoners, amid growing tensions and concerns for the future of the truce in Gaza.`\
+https://nytimes.com/2025/02/23/world/middleeast/israel-and-hamas-trade-accusations-of-violating-fragile-cease-fire.html
+
 **Cubs focusing on keeping staff ace Justin Steele healthy ahead of 2025 season**\
 `"We both have the same goals and mindset going into the season," Steele said of manager Craig Counsell.`\
 https://nytimes.com/athletic/6153297/2025/02/23/chicago-cubs-justin-steele-2025-plan/
