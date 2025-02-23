@@ -2,7 +2,7 @@
 `The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
 https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
 
-**Germany’s smaller parties could have an outsized effect on who’s in the governing coalition.**\
+**Germany’s smaller parties could have an outsize effect on who’s in the governing coalition.**\
 `By Christopher F. Schuetze`\
 https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-parties-could-have-an-outsized-effect-on-whos-in-the-governing-coalition
 
