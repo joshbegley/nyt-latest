@@ -1,3 +1,11 @@
+**Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
+`May and Ohtani both reached significant milestones in their comebacks from surgery.`\
+https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
+
+**Trump Appointees Fire 2,000 U.S.A.I.D. Employees and Put Others Worldwide on Leave**\
+`The announcement, by email, came two days after a judge said the Trump administration could proceed with plans that amount to dismantling the aid agency.`\
+https://nytimes.com/2025/02/23/us/politics/trump-usaid-employees-firing.html
+
 **Shedeur Sanders won't work out at NFL combine: Reports**\
 `Colorado star is widely considered a top two quarterback in the 2025 NFL Draft class with Miami’s Cam Ward.`\
 https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor-el
 **Germany’s Votes Are Cast. What Happens Now?**\
 `The country appears headed for a coalition government. But the process of building one could take months.`\
 https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html
-
-**2025 MLB Draft scouting: A look at UCSB's Tyler Bremner, other potential first-rounders**\
-`A trip to southern California got Law looks at one of the top college arms and one of the top high school bats, as well as several others.`\
-https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-bremner-nick-dumesnil/
-
-**Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
-`The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
-https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
 
