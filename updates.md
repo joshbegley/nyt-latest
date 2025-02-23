@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-
 `\
 https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
 
+**Report cards: Leafs start strong, survive late surge by Hurricanes**\
+`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
+`\
+https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
+
 **Blackhawks' latest challenge: Matching contenders' intensity while playing only for pride**\
 `For a while, Connor Bedard seemed to be the only Blackhawks player participating in the game against the Blue Jackets. Columbus won 5-1.`\
 https://nytimes.com/athletic/6153667/2025/02/22/blackhawks-blue-jackets-nhl-contenders/
