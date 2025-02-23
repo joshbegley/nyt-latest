@@ -1,3 +1,7 @@
+**'Just keep grinding': Suns' big three help snap 4-game skid with win over Bulls**\
+`Kevin Durant, Devin Booker and Bradley Beal came up big against Chicago. "We’ve got to build off it," Suns coach Mike Budenholzer said.`\
+https://nytimes.com/athletic/6153864/2025/02/23/kevin-durant-suns-bulls/
+
 **Canucks fall to Golden Knights despite Kevin Lankinen's brilliance: 3 takeaways**\
 `Lankinen stood tall while facing a dizzying number of high-quality looks, deflections and shots from Vegas.`\
 https://nytimes.com/athletic/6153818/2025/02/23/canucks-lose-in-vegas-kevin-lankinen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153682/2025/02/23/blue-jackets-zach-werenski-4-nat
 **Man City vs Liverpool dissected: Will rivalry return and where will the game be won?**\
 `Our experts analyse both clubs' contrasting fortunes, who will win the Haaland vs Van Dijk battle and make their predictions `\
 https://nytimes.com/athletic/6149297/2025/02/23/manchester-city-liverpool-prediction-rivalry-tactics/
-
-**Crossing is back on the menu in the Premier League**\
-`In this Premier League season - and for the first time in five years - the number of open-play crosses per game is up on the previous one`\
-https://nytimes.com/athletic/6152743/2025/02/23/premier-league-crosses/
 
