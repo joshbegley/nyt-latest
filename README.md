@@ -1,3 +1,7 @@
+**'He's back': Luka Dončić shows his 'killer' side for first time since Lakers trade**\
+`For his first time with Los Angeles, Dončić was in complete control of the offense, spurring a win over the Nuggets.`\
+https://nytimes.com/athletic/6153182/2025/02/23/luka-doncic-lakers-nuggets-nba/
+
 **Censoring Games**\
 `What China’s influence over Marvel Rivals reveals about censorship.`\
 https://nytimes.com/2025/02/23/briefing/censoring-games.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/podcasts/the-daily/juvenile-prison-crime-rates.ht
 **Trump Has One Idea**\
 `What do Ukraine and the Justice Department have in common?`\
 https://nytimes.com/2025/02/23/opinion/trump-ukraine-justice-zelensky.html
-
-**Wordle Review No. 1,346**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 24, 2025.`\
-https://nytimes.com/2025/02/23/crosswords/wordle-review-1346.html
 
