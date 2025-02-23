@@ -1,3 +1,11 @@
+**Hurricanes mailbag: Will Mikko Rantanen get re-signed? Or flipped in a trade?**\
+`Plus, is there any chance Carolina might replace Rod Brind’Amour? Should Jaccob Slavin's minutes increase?`\
+https://nytimes.com/athletic/6152343/2025/02/23/hurricanes-rantanen-trade-slavin/
+
+**The Briefing: Newcastle 4 Forest 3 - 11-minute flurry, nervy ending and 50 for Isak**\
+`Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park`\
+https://nytimes.com/athletic/6148363/2025/02/23/newcastle-forest-isak-comeback/
+
 **Got Ground Meat? Cook Some Keema.**\
 `Tejal Rao’s keema is simple and comforting, perfect for a Sunday night.`\
 https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
