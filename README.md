@@ -1,3 +1,15 @@
+**Firewall? Why the Far Right Is Unlikely to Join Germany’s Next Government**\
+`The collective shunning of the AfD party is part of a longstanding attempt to blunt its move into the mainstream.`\
+https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
+
+**Trump’s Frustration With Generals Resulted in an Unconventional Pick**\
+`Lt. Gen. Dan Caine, a retired three-star Air Force officer, quickly moved up the list of candidates to be the next chairman of the Joint Chiefs of Staff.`\
+https://nytimes.com/2025/02/23/us/politics/trump-dan-caine-joint-chiefs-chairman.html
+
+**Can St. John’s shoot now? Rout of UConn reveals formula of a contender**\
+`A Red Storm team that can shoot could be scary. Meanwhile, UConn remains in solid shape for an NCAA bid despite loss.`\
+https://nytimes.com/athletic/6154889/2025/02/23/st-johns-routs-uconn-big-east/
+
 **Some Agencies Urge Staff Not to Comply With Musk’s Ultimatum**\
 `The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
 https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/23/business/ken-rosenthal-dead.html
 **Rangers set to sack manager Clement**\
 `The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
 https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
-
-**Blue Jackets Sunday Gathering: James van Riemsdyk is the NHL's top outdoorsman**\
-`Saturday's Stadium Series between the Blue Jackets and Red Wings at Ohio Stadium will be van Riemsdyk's eighth outdoor game.`\
-https://nytimes.com/athletic/6153069/2025/02/23/blue-jackets-nhl-james-van-riemsdyk/
-
-**In a city shaken by a killing, voters on all sides were upset.**\
-`By Sam Gurwitt`\
-https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a-killing-voters-on-all-sides-were-upset
-
-**The Briefing: Man City 0 Liverpool 2 - Is the title race already over?**\
-`The big talking points from the Etihad dissected as Liverpool took another big step towards the title`\
-https://nytimes.com/athletic/6148375/2025/02/23/manchester-city-liverpool-analysis-result/
 
