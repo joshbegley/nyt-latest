@@ -1,3 +1,7 @@
+**Amid Regional Diplomatic Furor, Sudan’s Paramilitaries Forge a Rival Government**\
+`The Rapid Support Forces said it was paving the way to an end to the civil war. Critics called it an audacious gambit by a group that the United States has accused of genocide.`\
+https://nytimes.com/2025/02/23/world/africa/sudan-rsf-paramilitaries-kenya-charter-government-civil-war.html
+
 **Mandel: SEC/Big Ten Playoff push for 4 autobids is as dumb as it sounds. History proves it**\
 `Let me show you how stupid the SEC and Big Ten's push for more automatic bids in an expanded Playoff is.`\
 https://nytimes.com/athletic/6153417/2025/02/23/college-football-playoff-expansion-big-ten-sec-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153821/2025/02/23/4-nations-yankees-beards-astros-
 **Mets notes: What to watch for with Clay Holmes' new mix, Mark Vientos’ defensive task**\
 `Holmes' cutter could unlock a new level of production, plus notes on Ryan Clifford and Vientos working on his defensive range.`\
 https://nytimes.com/athletic/6153649/2025/02/23/mets-clay-holmes-mark-vientos/
-
-**‘We think it was a penalty’ - Everton's feeling of injustice and missed opportunity**\
-`The nature of Saturday’s 2-2 draw with Manchester United made it feel ‘close to a defeat’ according to Everton manager David Moyes`\
-https://nytimes.com/athletic/6153034/2025/02/23/everton-manchester-united-penalty-young/
 
