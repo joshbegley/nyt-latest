@@ -1,3 +1,7 @@
+**Mikaela Shiffrin gets historic 100th World Cup win one month after return from injury**\
+`Mikaela Shiffrin became the first Alpine skier to hit 100 career World Cup wins, topping the podium in a slalom race Sunday in Italy.`\
+https://nytimes.com/athletic/6154072/2025/02/23/mikaela-shiffrin-100th-world-cup-win-alpine-skiing/
+
 **The Pulse: Farewell to a 50-year-old rule**\
 `Welome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6153821/2025/02/23/4-nations-yankees-beards-astros-the-pulse/
