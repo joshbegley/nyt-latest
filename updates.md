@@ -1,3 +1,11 @@
+**Censoring Games**\
+`What China’s influence over Marvel Rivals reveals about censorship.`\
+https://nytimes.com/2025/02/23/briefing/censoring-games.html
+
+**Israel and Hamas Trade Accusations of Violating Fragile Cease-Fire**\
+`Hamas criticized Israel’s decision to delay the release of hundreds of Palestinian prisoners, amid growing tensions and concerns for the future of the truce in Gaza.`\
+https://nytimes.com/2025/02/23/world/middleeast/israel-hamas-hostage-cease-fire.html
+
 **Mikaela Shiffrin gets historic 100th World Cup win one month after return from injury**\
 `Mikaela Shiffrin became the first Alpine skier to hit 100 career World Cup wins, topping the podium in a slalom race Sunday in Italy.`\
 https://nytimes.com/athletic/6154072/2025/02/23/mikaela-shiffrin-100th-world-cup-win-alpine-skiing/
