@@ -1,3 +1,7 @@
+**Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
+`Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
+https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor-election.html
+
 **Braves notes: Ian Anderson's rough spring debut, Eli White shifts positions and more**\
 `The Braves would love to get Anderson back to top form, as the right-hander is 4-0 with a 1.25 ERA in the postseason.`\
 https://nytimes.com/athletic/6155135/2025/02/23/braves-ian-anderson-eli-white/
