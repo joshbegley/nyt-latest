@@ -1,3 +1,7 @@
+**What Project Is Changing Your Community?**\
+`Headway, a team at The New York Times that reports on progress and possibility, wants to hear about the efforts shaping your community. What’s working? What’s not? What should we look into?`\
+https://nytimes.com/2025/02/23/headway/projects-changing-community-neighborhoods-progress.html
+
 **Hurricanes mailbag: Will Mikko Rantanen get re-signed? Or flipped in a trade?**\
 `Plus, is there any chance Carolina might replace Rod Brind’Amour? Should Jaccob Slavin's minutes increase?`\
 https://nytimes.com/athletic/6152343/2025/02/23/hurricanes-rantanen-trade-slavin/
