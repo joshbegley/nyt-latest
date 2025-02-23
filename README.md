@@ -1,3 +1,7 @@
+**‘Religious Motivation’ Possible in Berlin Stabbing, Police Say**\
+`The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
+https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html
+
 **U.S.A.I.D. Appointees Fire Hundreds Working on Urgent Humanitarian Aid**\
 `The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
 https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-dea
 **In Pursuit of a ‘Warrior Ethos,’ Hegseth Targets Military’s Top Lawyers**\
 `The defense secretary has repeatedly derided the military lawyers for war crime prosecutions and battlefield rules of engagement.`\
 https://nytimes.com/2025/02/22/us/politics/hegseth-firings-military-lawyers-jag.html
-
-**Takeaways: How Wild pulled off thrilling overtime comeback — 'There's no quit'**\
-`Marco Rossi scored in overtime as the Wild rallied for a 4-3 victory over the Red Wings on Saturday.`\
-https://nytimes.com/athletic/6153235/2025/02/22/wild-red-wings-takeaways-overtime-comeback/
 
