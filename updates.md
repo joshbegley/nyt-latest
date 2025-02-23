@@ -1,3 +1,7 @@
+**Victor Wembanyama card sells for record price despite injury news**\
+`Saturday's sale blows past the previous record for a Wembanyama card`\
+https://nytimes.com/athletic/6153477/2025/02/22/victor-wembanyama-card-record-sale/
+
 **Blackhawks' latest challenge: Matching contenders' intensity while playing only for pride**\
 `The Blackhawks will be looking to match playoff contenders' intensity while having little to play for in the last 26 games of the season.`\
 https://nytimes.com/athletic/6153667/2025/02/22/blackhawks-blue-jackets-nhl-contenders/
