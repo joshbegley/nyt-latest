@@ -1,3 +1,11 @@
+**At this rate, Chelsea and Maresca will be left relying on Conference League success**\
+`With each passing week, the Conference League is growing in importance for Chelsea and Enzo Maresca. It was not meant to be like this.`\
+https://nytimes.com/athletic/6153846/2025/02/23/chelsea-maresca-conference-league/
+
+**Pope Francis, in Critical Condition, Has a Restful Night, Vatican Says**\
+`The Vatican did not provide further details about the condition of the pope, who has been in the hospital for more than a week.`\
+https://nytimes.com/2025/02/23/world/europe/pope-francis-health.html
+
 **Las Palmas 0-2 Barca: Olmo steps up, Yamal's assists record and VAR controversy**\
 `It was not a pretty performance, but Barca's victory at Las Palmas on Saturday meant they retain La Liga’s top spot for another week.`\
 https://nytimes.com/athletic/6153447/2025/02/23/barcelona-olmo-yamal-la-liga/

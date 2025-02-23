@@ -1,3 +1,11 @@
+**At this rate, Chelsea and Maresca will be left relying on Conference League success**\
+`With each passing week, the Conference League is growing in importance for Chelsea and Enzo Maresca. It was not meant to be like this.`\
+https://nytimes.com/athletic/6153846/2025/02/23/chelsea-maresca-conference-league/
+
+**Pope Francis, in Critical Condition, Has a Restful Night, Vatican Says**\
+`The Vatican did not provide further details about the condition of the pope, who has been in the hospital for more than a week.`\
+https://nytimes.com/2025/02/23/world/europe/pope-francis-health.html
+
 **Las Palmas 0-2 Barca: Olmo steps up, Yamal's assists record and VAR controversy**\
 `It was not a pretty performance, but Barca's victory at Las Palmas on Saturday meant they retain La Liga’s top spot for another week.`\
 https://nytimes.com/athletic/6153447/2025/02/23/barcelona-olmo-yamal-la-liga/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/nyregion/metropolitan-diary.html
 **They Help Make the Hamptons the Hamptons, and Now They’re Living in Fear**\
 `Latino immigrants care for some of America’s most lavish beachside mansions. Their disappearance would affect the wealthy, too.`\
 https://nytimes.com/2025/02/23/nyregion/east-hampton-immigration-nannies.html
-
-**The Teacher in Room 1214**\
-`When a gunman killed two of her students, Ivy Schamis was the only adult in the room. Her journey through guilt and healing sheds light on the impossible role of American teachers.`\
-https://nytimes.com/2025/02/23/health/teacher-shooting-parkland-florida.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/23/crosswords/spelling-bee-forum.html
 
