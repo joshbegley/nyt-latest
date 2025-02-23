@@ -1,3 +1,11 @@
+**Monday Briefing: Conservatives Near Victory in Germany**\
+`Plus, a pharaoh’s tomb was unearthed.`\
+https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
+
+**Guardiola: Haaland will be back 'soon' after missing Liverpool defeat**\
+`Manchester City manager Pep Guardiola expects Erling Haaland to be back &#8216;soon&#8217; after missing the 2-0 loss against Liverpool due to an injury, potentially as early as on Wednesday against Tottenham Hotspur.`\
+https://nytimes.com/athletic/6154450/2025/02/23/erling-haaland-injury-pep-guardiola/
+
 **Some Trump Officials Push Back Against Musk’s Ultimatum to Workers**\
 `The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
 https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html

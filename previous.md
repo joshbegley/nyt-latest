@@ -1,3 +1,11 @@
+**Monday Briefing: Conservatives Near Victory in Germany**\
+`Plus, a pharaoh’s tomb was unearthed.`\
+https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
+
+**Guardiola: Haaland will be back 'soon' after missing Liverpool defeat**\
+`Manchester City manager Pep Guardiola expects Erling Haaland to be back &#8216;soon&#8217; after missing the 2-0 loss against Liverpool due to an injury, potentially as early as on Wednesday against Tottenham Hotspur.`\
+https://nytimes.com/athletic/6154450/2025/02/23/erling-haaland-injury-pep-guardiola/
+
 **NC State upsets No. 1 Notre Dame in OT, shakes up NCAA title favorites pool**\
 `The Irish fell on the road to the Wolfpack 104-95 in double overtime Sunday.`\
 https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-part
 **French referees union condemn corruption accusations from Marseille president**\
 `Longoria criticised referee Jeremy Stinat after his decision to show defender Derek Cornelius a second yellow card against Auxerre.`\
 https://nytimes.com/athletic/6154095/2025/02/23/marseille-ligue-1-corruption-referee-france/
-
-**‘Much more cautious approach’: Sweeney's buying days seem over, and what's next for Marchand?**\
-`For nine straight seasons, Sweeney added reinforcements at the trade deadline. But going all in has caught up to the Bruins.`\
-https://nytimes.com/athletic/6154811/2025/02/23/bruins-trade-deadline-don-sweeney-brad-marchand/
-
-**Immigration was a central concern heading into the vote.**\
-`A series of attacks helped fuel debate about immigration in the weeks before German voters cast their ballots for a new Parliament.`\
-https://nytimes.com/live/2025/02/23/world/germany-election/immigration-was-a-central-concern-heading-into-the-vote
 
