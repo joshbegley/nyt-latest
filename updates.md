@@ -1,3 +1,11 @@
+**Swiss Peak**\
+`Rena Cohen offers a series of clarifications.`\
+https://nytimes.com/2025/02/23/crosswords/daily-puzzle-2025-02-24.html
+
+**SAG Awards Photos: See the Looks From the 2025 Red Carpet**\
+`See what film and television stars wore as they arrived for the Screen Actors Guild Awards.`\
+https://nytimes.com/2025/02/23/style/sag-awards-red-carpet-looks.html
+
 **Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
 `Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
 https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor-election.html
