@@ -1,3 +1,7 @@
+**Tens of Thousands Mourn Hezbollah’s Former Leader**\
+`Hezbollah supporters gathered to pay tribute to Hassan Nasrallah, the group’s former leader, and Hashem Safieddine, another top official, at a funeral service held months after both were killed by Israel.`\
+https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-funeral-lebanon.html
+
 **Firewall? Why the Far Right Is Unlikely to Join Germany’s Next Government**\
 `The collective shunning of the AfD party is part of a longstanding attempt to blunt its move into the mainstream.`\
 https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
