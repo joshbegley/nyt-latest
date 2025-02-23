@@ -1,3 +1,7 @@
+**Gabbard accuses security agencies of eroding privacy and civil liberties.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/02/23/us/trump-news/gabbard-accuses-security-agencies-of-eroding-privacy-and-civil-liberties
+
 **Republicans Face Angry Voters at Town Halls, Hinting at Broader Backlash**\
 `After a monthlong honeymoon for the G.O.P. at the start of President Trump’s term, lawmakers are confronting a groundswell of fear and disaffection in districts around the country.`\
 https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153417/2025/02/23/college-football-playoff-expansi
 **Watch: Which players will own the NFL combine?**\
 `"The Athletic Football Show" discusses the players to look out for in this week's NFL Scouting Combine.`\
 https://nytimes.com/athletic/6151423/2025/02/23/athletic-football-show-nfl-combine-preview-2025/
-
-**'It was awesome': Twins' Zebby Matthews reflects on rapid rise to majors and how to stick**\
-`Matthews, who pitched two scoreless innings in his 2025 spring debut, is focused on honing his command.`\
-https://nytimes.com/athletic/6153435/2025/02/23/twins-pitcher-zebby-matthews/
 
