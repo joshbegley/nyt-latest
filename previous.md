@@ -1,3 +1,7 @@
+**Arizona apologizes for fans' 'unacceptable chant' directed at BYU**\
+`The chant started after BYU upset No. 19 Arizona in a wild 96-95 win Saturday night.`\
+https://nytimes.com/athletic/6154429/2025/02/23/arizona-byu-chant-apology/
+
 **Shakes Sold to Nursing Homes Recalled After Deadly Listeria Outbreak**\
 `The frozen supplemental drinks have been linked to an outbreak of listeria that has killed at least 11 people and hospitalized 37.`\
 https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/23/world/germany-election/here-are-the-latest-d
 **Thanks to carnival season, some Germans are casting votes in costume.**\
 `Germany’s federal elections typically take place in late summer or early fall. The timing of this snap election prompted fresh voting guidelines to take the festivities into account.`\
 https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carnival-costumes
-
-**'It's been bugging me:' Drew Doughty wants everyone to know he's still got it, at age 35**\
-`After missing much of the NHL season with a broken ankle, Doughty is rejuvenated and motivated.`\
-https://nytimes.com/athletic/6154056/2025/02/23/kings-doughty-4-nations-canada/
 
