@@ -1,3 +1,7 @@
+**Immigration was a central concern heading into the vote.**\
+`A series of attacks helped fuel debate about immigration in the weeks before German voters cast their ballots for a new Parliament.`\
+https://nytimes.com/live/2025/02/23/world/germany-election/immigration-was-a-central-concern-heading-into-the-vote
+
 **Ken Rosenthal, Founder of Panera Bread’s Forerunner, Dies at 81**\
 `He built a small chain of bakery cafes, with sourdough bread as its star. A few years after it was sold, it became nationally famous under a new name.`\
 https://nytimes.com/2025/02/23/business/ken-rosenthal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
 **Arizona apologizes for fans' 'unacceptable chant' directed at BYU**\
 `The chant started after BYU upset No. 19 Arizona in a wild 96-95 win Saturday night.`\
 https://nytimes.com/athletic/6154429/2025/02/23/arizona-byu-chant-apology/
-
-**Shakes Sold to Nursing Homes Recalled After Deadly Listeria Outbreak**\
-`The frozen supplemental drinks have been linked to an outbreak of listeria that has killed at least 11 people and hospitalized 37.`\
-https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
 
