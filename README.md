@@ -1,3 +1,7 @@
+**Canucks fall to Golden Knights despite Kevin Lankinen's brilliance: 3 takeaways**\
+`Lankinen stood tall while facing a dizzying number of high-quality looks, deflections and shots from Vegas.`\
+https://nytimes.com/athletic/6153818/2025/02/23/canucks-lose-in-vegas-kevin-lankinen/
+
 **Chris Pronger's advice to Blues fans regarding Colton Parayko: 'Enjoy what you have'**\
 `The Hockey Hall of Famer says Parayko impressed him with Team Canada and his attributes shouldn't be overlooked.`\
 https://nytimes.com/athletic/6081791/2025/02/23/colton-parayko-blues-chris-pronger-4-nations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149297/2025/02/23/manchester-city-liverpool-predic
 **Crossing is back on the menu in the Premier League**\
 `In this Premier League season - and for the first time in five years - the number of open-play crosses per game is up on the previous one`\
 https://nytimes.com/athletic/6152743/2025/02/23/premier-league-crosses/
-
-**After Donald Trump's comments, could Russian football be brought in from the cold?**\
-`Russian football teams, both at club and national team level, have not played in UEFA competitions since their suspension in February 2022`\
-https://nytimes.com/athletic/6151651/2025/02/23/could-russian-football-be-brought-in-from-the-cold/
 
