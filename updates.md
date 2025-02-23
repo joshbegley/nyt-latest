@@ -1,3 +1,7 @@
+**NYCFC player taunts Messi with Ronaldo celebration in season-opening draw**\
+`Mitja Ilenic tried to pull one over on Messi, who got the last laugh with a game-tying assist deep into second-half stoppage time.`\
+https://nytimes.com/athletic/6153659/2025/02/22/inter-miami-nycfc-mls-messi-ronaldo-celebration-ilenic/
+
 **Trump Appointees Fire Hundreds at U.S.A.I.D. Working on Urgent Aid**\
 `The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
 https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
