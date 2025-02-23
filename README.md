@@ -1,3 +1,7 @@
+**Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
+`"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
+https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/
+
 **Gabbard accuses security agencies of eroding privacy and civil liberties.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/02/23/us/trump-news/gabbard-accuses-security-agencies-of-eroding-privacy-and-civil-liberties
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/world/africa/sudan-rsf-paramilitaries-kenya-chart
 **Mandel: SEC/Big Ten Playoff push for 4 autobids is as dumb as it sounds. History proves it**\
 `Let me show you how stupid the SEC and Big Ten's push for more automatic bids in an expanded Playoff is.`\
 https://nytimes.com/athletic/6153417/2025/02/23/college-football-playoff-expansion-big-ten-sec-history/
-
-**Watch: Which players will own the NFL combine?**\
-`"The Athletic Football Show" discusses the players to look out for in this week's NFL Scouting Combine.`\
-https://nytimes.com/athletic/6151423/2025/02/23/athletic-football-show-nfl-combine-preview-2025/
 
