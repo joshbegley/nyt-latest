@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-el
 `The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
 https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html
 
-**U.S.A.I.D. Appointees Fire Hundreds Working on Urgent Humanitarian Aid**\
+**Trump Appointees Fire Hundreds at U.S.A.I.D. Working on Urgent Aid**\
 `The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
 https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
 
