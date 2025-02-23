@@ -1,3 +1,7 @@
+**Takeaways: Sabres show they haven't given up on season after dominating Rangers**\
+`Buffalo was dominant from the drop of the puck, racing out to a 5-0 first-period lead on its way to an 8-2 win over New York.`\
+https://nytimes.com/athletic/6153654/2025/02/22/sabres-rangers-takeaways-rasmus-dahlin/
+
 **NYCFC player taunts Messi with Ronaldo celebration in season-opening draw**\
 `Mitja Ilenic tried to pull one over on Messi, who got the last laugh with a game-tying assist deep into second-half stoppage time.`\
 https://nytimes.com/athletic/6153659/2025/02/22/inter-miami-nycfc-mls-messi-ronaldo-celebration-ilenic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.h
 **Trump Appointees Fire Hundreds at U.S.A.I.D. Working on Urgent Aid**\
 `The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
 https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
-
-**Hockey nights in Pittsburgh will always belong to Mike Lange**\
-`Lange, the voice of Penguins hockey for nearly 50 years, cast an everlasting shadow over a city and its hockey team.`\
-https://nytimes.com/athletic/6153369/2025/02/22/penguins-honor-broadcaster-mike-lange-ceremony/
 

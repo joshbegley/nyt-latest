@@ -1,3 +1,7 @@
+**Takeaways: Sabres show they haven't given up on season after dominating Rangers**\
+`Buffalo was dominant from the drop of the puck, racing out to a 5-0 first-period lead on its way to an 8-2 win over New York.`\
+https://nytimes.com/athletic/6153654/2025/02/22/sabres-rangers-takeaways-rasmus-dahlin/
+
 **NYCFC player taunts Messi with Ronaldo celebration in season-opening draw**\
 `Mitja Ilenic tried to pull one over on Messi, who got the last laugh with a game-tying assist deep into second-half stoppage time.`\
 https://nytimes.com/athletic/6153659/2025/02/22/inter-miami-nycfc-mls-messi-ronaldo-celebration-ilenic/
