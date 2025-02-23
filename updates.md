@@ -1,3 +1,11 @@
+**Dodge begins process of gaining approval to rejoin NASCAR Truck Series**\
+`Once a mainstay in the popular Truck Series, Dodge fielded entries from the series’ inception in 1995 through the 2016 season.`\
+https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
+
+**Tito's back: Terry Francona returns to the dugout with the Reds**\
+`Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games Saturday.`\
+https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
+
 **Tito's back: Terry Francona returns to the dugout with the Reds**\
 `Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games on Saturday.`\
 https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
