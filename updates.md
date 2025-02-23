@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: James van Riemsdyk is the NHL's top outdoorsman**\
+`Saturday's Stadium Series between the Blue Jackets and Red Wings at Ohio Stadium will be van Riemsdyk's eighth outdoor game.`\
+https://nytimes.com/athletic/6153069/2025/02/23/blue-jackets-nhl-james-van-riemsdyk/
+
 **In a city shaken by a killing, voters on all sides were upset.**\
 `By Sam Gurwitt`\
 https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a-killing-voters-on-all-sides-were-upset
