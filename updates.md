@@ -1,3 +1,7 @@
+**Yankees will no longer play Frank Sinatra's 'New York, New York' after losses**\
+`The Yankees played Sinatra’s "That's Life" instead of the usual "New York, New York" on the loudspeakers after Sunday's 4-0 defeat.`\
+https://nytimes.com/athletic/6155176/2025/02/23/yankees-frank-sinatra-new-york-new-york/
+
 **Swiss Peak**\
 `Rena Cohen offers a series of clarifications.`\
 https://nytimes.com/2025/02/23/crosswords/daily-puzzle-2025-02-24.html

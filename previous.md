@@ -1,3 +1,7 @@
+**Yankees will no longer play Frank Sinatra's 'New York, New York' after losses**\
+`The Yankees played Sinatra’s "That's Life" instead of the usual "New York, New York" on the loudspeakers after Sunday's 4-0 defeat.`\
+https://nytimes.com/athletic/6155176/2025/02/23/yankees-frank-sinatra-new-york-new-york/
+
 **Swiss Peak**\
 `Rena Cohen offers a series of clarifications.`\
 https://nytimes.com/2025/02/23/crosswords/daily-puzzle-2025-02-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tourn
 **Antony sent off for late tackle in Betis win over Getafe**\
 `The Brazil international will miss his side's next La Liga game against Real Madrid.`\
 https://nytimes.com/athletic/6154977/2025/02/23/antony-real-betis-red-card/
-
-**‘The lesser evil’: Some Merz voters aren’t excited about him.**\
-`By Catherine Odom and Adam Sella`\
-https://nytimes.com/live/2025/02/23/world/germany-election/the-lesser-evil-some-merz-voters-arent-excited-about-him
 
