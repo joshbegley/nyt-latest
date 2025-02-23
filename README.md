@@ -1,5 +1,5 @@
 **Yohe's 10 observations: Penguins embarrassed on home ice by indomitable Capitals**\
-`The Penguins played pretty well for 30 minutes, and then the bottom fell out as they were embarrassed in an 8-3 loss against Washington.`\
+`Pittsburgh played pretty well for 30 minutes, and then the bottom fell out as it was embarrassed in an 8-3 loss against Washington.`\
 https://nytimes.com/athletic/6153270/2025/02/22/penguins-capitals-sidney-crosby/
 
 **Giants spring opener observations: Bryce Eldridge steals the show**\
