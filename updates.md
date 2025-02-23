@@ -1,3 +1,7 @@
+**Arsenal's season has been derailed - the title now feels beyond them**\
+`Saturday's 1-0 defeat to West Ham was the day all of the club's problems caught up with them`\
+https://nytimes.com/athletic/6153130/2025/02/23/arsenal-premier-league-title-over/
+
 **Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
 `Slafkovský's game Saturday in Ottawa exemplified everything the Canadiens hope he can become when they are ready to win.`\
 https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
