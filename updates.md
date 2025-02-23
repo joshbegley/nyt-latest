@@ -1,3 +1,7 @@
+**Trump, Again, Chooses Loyalty Over Leadership**\
+`The firing of the nation’s top military officer is the latest example of the president prioritizing fealty over sound policy and expertise.`\
+https://nytimes.com/2025/02/23/opinion/trump-pentagon-military-firings.html
+
 **Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
 `May and Ohtani both reached significant milestones in their comebacks from surgery.`\
 https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
