@@ -1,3 +1,19 @@
+**Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
+`Boilermakers clearly miss Zach Edey, as they're exposed inside by Indiana's big men in defeat.`\
+https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
+
+**Antony sent off for late tackle in Betis win over Getafe**\
+`The Brazil international will miss his side's next La Liga game against Real Madrid.`\
+https://nytimes.com/athletic/6154977/2025/02/23/antony-real-betis-red-card/
+
+**‘The lesser evil’: Some Merz voters aren’t excited about him.**\
+`By Catherine Odom and Adam Sella`\
+https://nytimes.com/live/2025/02/23/world/germany-election/the-lesser-evil-some-merz-voters-arent-excited-about-him
+
+**Why had Wrexham's defence suddenly become so leaky? And is it fixed?**\
+`Wrexham had just two clean sheets in 13 games, during which 17 goals were conceded`\
+https://nytimes.com/athletic/6148295/2025/02/23/why-had-wrexhams-defence-suddenly-become-so-leaky-and-is-it-fixed/
+
 **Monday Briefing: Conservatives Near Victory in Germany**\
 `Plus, a pharaoh’s tomb was unearthed.`\
 https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
 **Trump’s Frustration With Generals Resulted in an Unconventional Pick**\
 `Lt. Gen. Dan Caine, a retired three-star Air Force officer, quickly moved up the list of candidates to be the next chairman of the Joint Chiefs of Staff.`\
 https://nytimes.com/2025/02/23/us/politics/trump-dan-caine-joint-chiefs-chairman.html
-
-**Can St. John’s shoot now? Rout of UConn reveals formula of a contender**\
-`A Red Storm team that can shoot could be scary. Meanwhile, UConn remains in solid shape for an NCAA bid despite loss.`\
-https://nytimes.com/athletic/6154889/2025/02/23/st-johns-routs-uconn-big-east/
-
-**Some Trump Officials Push Back Against Musk’s Ultimatum to Workers**\
-`The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
-https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
-
-**Germany’s smaller parties could have an outsize effect on who’s in the governing coalition.**\
-`By Christopher F. Schuetze`\
-https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-parties-could-have-an-outsized-effect-on-whos-in-the-governing-coalition
-
-**French referees union condemn corruption accusations from Marseille president**\
-`Longoria criticised referee Jeremy Stinat after his decision to show defender Derek Cornelius a second yellow card against Auxerre.`\
-https://nytimes.com/athletic/6154095/2025/02/23/marseille-ligue-1-corruption-referee-france/
 
