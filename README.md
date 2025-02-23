@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins embarrassed on home ice by indomitable Capitals**\
+`The Penguins played pretty well for 30 minutes, and then the bottom fell out as they were embarrassed in an 8-3 loss against Washington.`\
+https://nytimes.com/athletic/6153270/2025/02/22/penguins-capitals-sidney-crosby/
+
 **Giants spring opener observations: Bryce Eldridge steals the show**\
 `The Giants' first spring game of 2025 carried several storylines. Then Eldridge hit a 450-foot bomb.`\
 https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-eldridge-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153328/2025/02/22/flyers-matvei-michkov-oilers/
 **Kneeling in the Snow: A Village Mourns Its Fifth Fallen Soldier**\
 `In a pair of Ukrainian villages with about 400 people between them, every loss is felt keenly.`\
 https://nytimes.com/card/2025/02/23/world/ukraine-village-soldier-funeral
-
-**With the trade deadline looming, why Matt Savoie's effective Oilers debut matters**\
-`The Oilers’ overall performance was dreadful Saturday, but Savoie’s effort was potentially impactful in the bigger and long-term pictures.`\
-https://nytimes.com/athletic/6153334/2025/02/22/matt-savoie-oilers-nhl-trade-deadline/
 
