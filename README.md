@@ -1,4 +1,4 @@
-**Victor Wembanyama card sells for record price after injury news**\
+**Victor Wembanyama card sells for record price despite injury news**\
 `Saturday's sale blows past the previous record for a Wembanyama card`\
 https://nytimes.com/athletic/6153477/2025/02/22/victor-wembanyama-card-record-sale/
 
