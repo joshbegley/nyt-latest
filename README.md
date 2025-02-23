@@ -1,3 +1,7 @@
+**Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
+`The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
+https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
+
 **Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
 `Boilermakers clearly miss Zach Edey, as they're exposed inside by Indiana's big men in defeat.`\
 https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-f
 **Firewall? Why the Far Right Is Unlikely to Join Germany’s Next Government**\
 `The collective shunning of the AfD party is part of a longstanding attempt to blunt its move into the mainstream.`\
 https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
-
-**Trump’s Frustration With Generals Resulted in an Unconventional Pick**\
-`Lt. Gen. Dan Caine, a retired three-star Air Force officer, quickly moved up the list of candidates to be the next chairman of the Joint Chiefs of Staff.`\
-https://nytimes.com/2025/02/23/us/politics/trump-dan-caine-joint-chiefs-chairman.html
 

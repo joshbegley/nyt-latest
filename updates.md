@@ -1,3 +1,19 @@
+**Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
+`Boilermakers clearly miss Zach Edey, as they're exposed inside by Indiana's big men in defeat.`\
+https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
+
+**Antony sent off for late tackle in Betis win over Getafe**\
+`The Brazil international will miss his side's next La Liga game against Real Madrid.`\
+https://nytimes.com/athletic/6154977/2025/02/23/antony-real-betis-red-card/
+
+**‘The lesser evil’: Some Merz voters aren’t excited about him.**\
+`By Catherine Odom and Adam Sella`\
+https://nytimes.com/live/2025/02/23/world/germany-election/the-lesser-evil-some-merz-voters-arent-excited-about-him
+
+**Why had Wrexham's defence suddenly become so leaky? And is it fixed?**\
+`Wrexham had just two clean sheets in 13 games, during which 17 goals were conceded`\
+https://nytimes.com/athletic/6148295/2025/02/23/why-had-wrexhams-defence-suddenly-become-so-leaky-and-is-it-fixed/
+
 **Monday Briefing: Conservatives Near Victory in Germany**\
 `Plus, a pharaoh’s tomb was unearthed.`\
 https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
