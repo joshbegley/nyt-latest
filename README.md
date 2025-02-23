@@ -1,3 +1,7 @@
+**Germany’s Votes Are Cast. What Happens Now?**\
+`The country appears headed for a coalition government. But the process of building one could take months.`\
+https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html
+
 **2025 MLB Draft scouting: A look at UCSB's Tyler Bremner, other potential first-rounders**\
 `A trip to southern California got Law looks at one of the top college arms and one of the top high school bats, as well as several others.`\
 https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-bremner-nick-dumesnil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154450/2025/02/23/erling-haaland-injury-pep-guardi
 **NC State upsets No. 1 Notre Dame in OT, shakes up NCAA title favorites pool**\
 `The Irish fell on the road to the Wolfpack 104-95 in double overtime Sunday.`\
 https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score/
-
-**Tens of Thousands Mourn Hezbollah’s Former Leader**\
-`Hezbollah supporters gathered to pay tribute to Hassan Nasrallah, the group’s former leader, and Hashem Safieddine, another top official, at a funeral service held months after both were killed by Israel.`\
-https://nytimes.com/video/world/middleeast/100000010007825/nasrallah-hezbollah-funeral-lebanon.html
 
