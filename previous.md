@@ -1,3 +1,7 @@
+**The Pulse: Farewell to a 50-year-old rule**\
+`Welome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6153821/2025/02/23/4-nations-yankees-beards-astros-the-pulse/
+
 **Mets notes: What to watch for with Clay Holmes' new mix, Mark Vientos’ defensive task**\
 `Holmes' cutter could unlock a new level of production, plus notes on Ryan Clifford and Vientos working on his defensive range.`\
 https://nytimes.com/athletic/6153649/2025/02/23/mets-clay-holmes-mark-vientos/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/opinion/america-refugees-refoulement-trump.html
 **Why You, Too, Need a Nemesis**\
 `Many successful people understand the power of a grudge — athletes, pop stars, your mother-in-law, our president.`\
 https://nytimes.com/2025/02/23/opinion/success-goals-motivation-enemy.html
-
-**I Teach at Harvard. Store Managers See Me as a Threat.**\
-`Maybe I just wanted to be seen as something other than a threat, a nuisance, because I happen to be Black.`\
-https://nytimes.com/2025/02/23/opinion/black-prison-forgiveness.html
 
