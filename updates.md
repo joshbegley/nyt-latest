@@ -1,3 +1,11 @@
+**Ken Rosenthal, Founder of Panera Bread’s Forerunner, Dies at 81**\
+`He built a small chain of bakery cafes, with sourdough bread as its star. A few years after it was sold, it became nationally famous under a new name.`\
+https://nytimes.com/2025/02/23/business/ken-rosenthal-dead.html
+
+**Rangers set to sack manager Clement**\
+`The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
+https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
+
 **Rangers sack manager Clement**\
 `The Belgian enjoyed a successful start to his reign but he has been under pressure from early in the season.`\
 https://nytimes.com/athletic/6154766/2025/02/23/rangers-sack-philippe-clement/
