@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-
 `\
 https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
 
+**Report cards: Leafs start strong, survive late surge by Hurricanes**\
+`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
+`\
+https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
+
 **After Donald Trump's comments, could Russian football be brought in from the cold?**\
 `Russian football teams, both at club and national team level, have not played in UEFA competitions since their suspension in February 2022`\
 https://nytimes.com/athletic/6151651/2025/02/23/could-russian-football-be-brought-in-from-the-cold/
