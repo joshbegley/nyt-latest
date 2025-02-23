@@ -1,3 +1,7 @@
+**Shakes Sold to Nursing Homes Recalled After Deadly Listeria Outbreak**\
+`The frozen supplemental drinks have been linked to an outbreak of listeria that has killed at least 11 people and hospitalized 37.`\
+https://nytimes.com/2025/02/23/us/shake-recall-listeria-nursing-homes.html
+
 **Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
 `Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
 https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carn
 **'It's been bugging me:' Drew Doughty wants everyone to know he's still got it, at age 35**\
 `After missing much of the NHL season with a broken ankle, Doughty is rejuvenated and motivated.`\
 https://nytimes.com/athletic/6154056/2025/02/23/kings-doughty-4-nations-canada/
-
-**Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
-`"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
-https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/
 
