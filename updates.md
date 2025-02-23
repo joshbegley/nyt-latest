@@ -1,3 +1,7 @@
+**Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
+`Slafkovský's game Saturday in Ottawa exemplified everything the Canadiens hope he can become when they are ready to win.`\
+https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
+
 **Manchester United, an unlikely comeback and a search for existence**\
 `A half-time altercation feels emblematic of United’s position in the Premier League food chain: vulnerable and there to be mocked`\
 https://nytimes.com/athletic/6153544/2025/02/23/man-united-amorim-everton/
