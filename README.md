@@ -1,3 +1,7 @@
+**As U.S. and Ukraine Haggle Over Minerals, Russia Attacks With Drones**\
+`President Trump stepped up pressure on Kyiv to agree to a deal at talks. Russia later launched more than 250 drones at Ukraine, Kyiv said.`\
+https://nytimes.com/2025/02/23/world/europe/ukraine-trump-mineral-deal.html
+
 **Joy Reid’s MSNBC Show Canceled in Major Shake-Up**\
 `Ms. Reid’s 7 p.m. program will be replaced by a panel show co-hosted by Symone Sanders Townsend, Alicia Menendez and Michael Steele.`\
 https://nytimes.com/2025/02/23/business/msnbc-joy-reid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/movies/sag-awards-how-to-watch.html
 **How to watch Grizzlies at Cavaliers, with DPOY leaders Jaren Jackson Jr. and Evan Mobley**\
 `Ja Morant and the Grizz hit the road and face the best of the Eastern Conference in the Cleveland Cavaliers. `\
 https://nytimes.com/athletic/6151769/2025/02/23/how-to-watch-grizzlies-cavaliers-ja-morant-donovan-mitchell-mobley-jackson-dpoy/
-
-**What We Know About Guantánamo Bay’s Migrant Camp**\
-`Last month, President Trump announced plans to construct a migrant holding facility in Guantanamo Bay, Cuba. Carol Rosenberg breaks down what we know about the operation, along with New York Times photographer Doug Mills, who captured the first independent images of the facility.`\
-https://nytimes.com/video/us/100000009991748/what-we-know-about-guantanamo-bays-migrant-camp.html
 
