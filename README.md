@@ -1,3 +1,7 @@
+**Braves notes: Ian Anderson's rough spring debut, Eli White shifts positions and more**\
+`The Braves would love to get Anderson back to top form, as the right-hander is 4-0 with a 1.25 ERA in the postseason.`\
+https://nytimes.com/athletic/6155135/2025/02/23/braves-ian-anderson-eli-white/
+
 **Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
 `Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
 https://nytimes.com/2025/02/23/world/europe/friedrich-merz-a-conservative-appears-poised-to-be-germanys-next-chancellor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148295/2025/02/23/why-had-wrexhams-defence-suddenl
 **Monday Briefing: Conservatives Near Victory in Germany**\
 `Plus, a pharaoh’s tomb was unearthed.`\
 https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelensky-nato.html
-
-**Guardiola: Haaland will be back 'soon' after missing Liverpool defeat**\
-`Manchester City manager Pep Guardiola expects Erling Haaland to be back &#8216;soon&#8217; after missing the 2-0 loss against Liverpool due to an injury, potentially as early as on Wednesday against Tottenham Hotspur.`\
-https://nytimes.com/athletic/6154450/2025/02/23/erling-haaland-injury-pep-guardiola/
 
