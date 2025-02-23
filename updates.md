@@ -1,3 +1,7 @@
+**As U.S. and Ukraine Haggle Over Minerals, Russia Attacks With Drones**\
+`President Trump stepped up pressure on Kyiv to agree to a deal at talks. Russia later launched more than 250 drones at Ukraine, Kyiv said.`\
+https://nytimes.com/2025/02/23/world/europe/ukraine-trump-mineral-deal.html
+
 **Joy Reid’s MSNBC Show Canceled in Major Shake-Up**\
 `Ms. Reid’s 7 p.m. program will be replaced by a panel show co-hosted by Symone Sanders Townsend, Alicia Menendez and Michael Steele.`\
 https://nytimes.com/2025/02/23/business/msnbc-joy-reid.html
