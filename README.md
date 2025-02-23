@@ -1,3 +1,7 @@
+**‘Much more cautious approach’: Sweeney's buying days seem over, and what's next for Marchand?**\
+`For nine straight seasons, Sweeney added reinforcements at the trade deadline. But going all in has caught up to the Bruins.`\
+https://nytimes.com/athletic/6154811/2025/02/23/bruins-trade-deadline-don-sweeney-brad-marchand/
+
 **Immigration was a central concern heading into the vote.**\
 `A series of attacks helped fuel debate about immigration in the weeks before German voters cast their ballots for a new Parliament.`\
 https://nytimes.com/live/2025/02/23/world/germany-election/immigration-was-a-central-concern-heading-into-the-vote
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor.ht
 **Expanding West Bank Campaign, Israel Sends Tanks for First Time in Decades**\
 `Israel’s defense minister, Israel Katz, said that 40,000 Palestinian residents displaced from militant hotbeds would not be allowed to return to their homes.`\
 https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
-
-**Arizona apologizes for fans' 'unacceptable chant' directed at BYU**\
-`The chant started after BYU upset No. 19 Arizona in a wild 96-95 win Saturday night.`\
-https://nytimes.com/athletic/6154429/2025/02/23/arizona-byu-chant-apology/
 
