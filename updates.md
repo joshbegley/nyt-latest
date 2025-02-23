@@ -1,3 +1,11 @@
+**Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
+`Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
+https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
+
+**Voters Took Note of U.S. Meddling in Campaign**\
+`Several voters took note of a speech by Vice President JD Vance this month, when he told European leaders to stop shunning parties deemed “extreme.”`\
+https://nytimes.com/2025/02/23/world/europe/trump-us-germany-election.html
+
 **What Project Is Changing Your Community?**\
 `Headway, a team at The New York Times that reports on progress and possibility, wants to hear about the efforts shaping your community. What’s working? What’s not? What should we look into?`\
 https://nytimes.com/2025/02/23/headway/projects-changing-community-neighborhoods-progress.html
