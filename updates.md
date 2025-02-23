@@ -1,3 +1,15 @@
+**Firewall? Why the Far Right Is Unlikely to Join Germany’s Next Government**\
+`The collective shunning of the AfD party is part of a longstanding attempt to blunt its move into the mainstream.`\
+https://nytimes.com/2025/02/23/world/europe/germany-election-firewall-afd.html
+
+**Trump’s Frustration With Generals Resulted in an Unconventional Pick**\
+`Lt. Gen. Dan Caine, a retired three-star Air Force officer, quickly moved up the list of candidates to be the next chairman of the Joint Chiefs of Staff.`\
+https://nytimes.com/2025/02/23/us/politics/trump-dan-caine-joint-chiefs-chairman.html
+
+**Can St. John’s shoot now? Rout of UConn reveals formula of a contender**\
+`A Red Storm team that can shoot could be scary. Meanwhile, UConn remains in solid shape for an NCAA bid despite loss.`\
+https://nytimes.com/athletic/6154889/2025/02/23/st-johns-routs-uconn-big-east/
+
 **Germany’s smaller parties could have an outsize effect on who’s in the governing coalition.**\
 `By Christopher F. Schuetze`\
 https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-parties-could-have-an-outsized-effect-on-whos-in-the-governing-coalition
