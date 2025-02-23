@@ -1,3 +1,7 @@
+**Arsenal's season has been derailed - the title now feels beyond them**\
+`Saturday's 1-0 defeat to West Ham was the day all of the club's problems caught up with them`\
+https://nytimes.com/athletic/6153130/2025/02/23/arsenal-premier-league-title-over/
+
 **Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
 `Slafkovský's game Saturday in Ottawa exemplified everything the Canadiens hope he can become when they are ready to win.`\
 https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/opinion/john-roberts-trump-supreme-court.html
 **This Is Our Country, and We Have No Other**\
 `How long can Ukraine stand? For as long as Ukrainian soldiers, bent over from the extreme pressure, can hold on.`\
 https://nytimes.com/2025/02/23/opinion/ukraine-war-army.html
-
-**'Never refer to us as Tottenham' may seem a small edict but it says a lot about the modern game**\
-`The story that emerged this week that Spurs do not want to be called 'Tottenham' is indicative of how some clubs want to project themselves`\
-https://nytimes.com/athletic/6153098/2025/02/23/tottenham-hotspur-spurs-edict/
 
