@@ -1,3 +1,7 @@
+**Censoring Games**\
+`What China’s influence over Marvel Rivals reveals about censorship.`\
+https://nytimes.com/2025/02/23/briefing/censoring-games.html
+
 **Mikaela Shiffrin gets historic 100th World Cup win one month after return from injury**\
 `Mikaela Shiffrin became the first Alpine skier to hit 100 career World Cup wins, topping the podium in a slalom race Sunday in Italy.`\
 https://nytimes.com/athletic/6154072/2025/02/23/mikaela-shiffrin-100th-world-cup-win-alpine-skiing/
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6153034/2025/02/23/everton-manchester-united-penalt
 
 **Israel and Hamas Trade Accusations of Violating Fragile Cease-Fire**\
 `Hamas criticized Israel’s decision to delay the release of hundreds of Palestinian prisoners, amid growing tensions and concerns for the future of the truce in Gaza.`\
-https://nytimes.com/2025/02/23/world/middleeast/israel-and-hamas-trade-accusations-of-violating-fragile-cease-fire.html
+https://nytimes.com/2025/02/23/world/middleeast/israel-hamas-hostage-cease-fire.html
 
 **Cubs focusing on keeping staff ace Justin Steele healthy ahead of 2025 season**\
 `"We both have the same goals and mindset going into the season," Steele said of manager Craig Counsell.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/opinion/trump-ukraine-justice-zelensky.html
 **Wordle Review No. 1,346**\
 `Scroll down for hints and conversation about the puzzle for Monday, Feb. 24, 2025.`\
 https://nytimes.com/2025/02/23/crosswords/wordle-review-1346.html
-
-**America Loses Its Soul When It Rejects People Fleeing Danger**\
-`A civilized society protects the world’s most vulnerable.`\
-https://nytimes.com/2025/02/23/opinion/america-refugees-refoulement-trump.html
 
