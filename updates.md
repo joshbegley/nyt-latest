@@ -1,3 +1,11 @@
+**Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
+`May and Ohtani both reached significant milestones in their comebacks from surgery.`\
+https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
+
+**Trump Appointees Fire 2,000 U.S.A.I.D. Employees and Put Others Worldwide on Leave**\
+`The announcement, by email, came two days after a judge said the Trump administration could proceed with plans that amount to dismantling the aid agency.`\
+https://nytimes.com/2025/02/23/us/politics/trump-usaid-employees-firing.html
+
 **Shedeur Sanders won't work out at NFL combine: Reports**\
 `Colorado star is widely considered a top two quarterback in the 2025 NFL Draft class with Miami’s Cam Ward.`\
 https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
