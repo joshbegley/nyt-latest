@@ -1,3 +1,7 @@
+**Blackhawks' latest challenge: Matching contenders' intensity while playing only for pride**\
+`The Blackhawks will be looking to match playoff contenders' intensity while having little to play for in the last 26 games of the season.`\
+https://nytimes.com/athletic/6153667/2025/02/22/blackhawks-blue-jackets-nhl-contenders/
+
 **Takeaways: Sabres show they haven't given up on season after dominating Rangers**\
 `Buffalo was dominant from the drop of the puck, racing out to a 5-0 first-period lead on its way to an 8-2 win over New York.`\
 https://nytimes.com/athletic/6153654/2025/02/22/sabres-rangers-takeaways-rasmus-dahlin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-el
 **‘Religious Motivation’ Possible in Berlin Stabbing, Police Say**\
 `The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
 https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html
-
-**Trump Appointees Fire Hundreds at U.S.A.I.D. Working on Urgent Aid**\
-`The firings added to doubts about whether Secretary of State Marco Rubio, the agency’s acting head, supports lifesaving humanitarian assistance, as he has said he does.`\
-https://nytimes.com/2025/02/22/us/politics/usaid-urgent-aid-firings.html
 
