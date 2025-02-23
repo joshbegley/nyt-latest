@@ -1,3 +1,7 @@
+**Hockey nights in Pittsburgh will always belong to Mike Lange**\
+`Lange, the voice of Penguins hockey for nearly 50 years, cast an everlasting shadow over a city and its hockey team.`\
+https://nytimes.com/athletic/6153369/2025/02/22/penguins-honor-broadcaster-mike-lange-ceremony/
+
 **Dodge begins process of gaining approval to rejoin NASCAR Truck Series**\
 `Once a mainstay in the popular Truck Series, Dodge fielded entries from the series’ inception in 1995 through the 2016 season.`\
 https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153235/2025/02/22/wild-red-wings-takeaways-overtim
 **In the Rearview**\
 `Daniel Grinberg and Rafael Musa’s puzzle tells solvers, “Back it up, bub.”`\
 https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html
-
-**At CPAC, Trump Revels in Political Payback**\
-`Speaking to a crowd of supporters that included pardoned Jan. 6 rioters, the president gleefully recounted his efforts to purge the government of his political enemies.`\
-https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
 
