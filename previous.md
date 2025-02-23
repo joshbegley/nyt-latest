@@ -1,3 +1,35 @@
+**For Fearful Immigrants, It’s the Card They All Want Right Now**\
+`Distributed by a legal aid group, the “red card” lays out key rights and protections. Demand for them has surged since President Trump returned to office.`\
+https://nytimes.com/2025/02/23/us/immigration-red-card.html
+
+**In Trump’s Alternative Reality, Lies and Distortions Drive Change**\
+`Condoms for Gaza? Ukraine started the war with Russia? The president’s manipulations of the truth lay the groundwork for radical change.`\
+https://nytimes.com/2025/02/23/us/politics/trump-alternative-reality.html
+
+**The Red Card Fighting Trump’s Deportation Agenda**\
+`The “red card” lists practical tips and legal rights for immigrants who might find themselves targeted by federal agents.`\
+https://nytimes.com/video/upshot/100000010001584/the-red-card-fighting-trumps-deportation-agenda.html
+
+**An N.Y.C. Panel Is Tackling the Housing Crisis. Here’s How You Can Help.**\
+`The Charter Revision Commission, created by Mayor Eric Adams, could give New Yorkers a rare chance to decide how the city deals with the housing crisis.`\
+https://nytimes.com/2025/02/23/nyregion/nyc-charter-revision-commission-housing-crisis.html
+
+**‘I Turned to See a Woman in Running Gear Walking Toward an Older Man’**\
+`Stooping to help on a Manhattan sidewalk, an A train dance party and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/02/23/nyregion/metropolitan-diary.html
+
+**They Help Make the Hamptons the Hamptons, and Now They’re Living in Fear**\
+`Latino immigrants care for some of America’s most lavish beachside mansions. Their disappearance would affect the wealthy, too.`\
+https://nytimes.com/2025/02/23/nyregion/east-hampton-immigration-nannies.html
+
+**The Teacher in Room 1214**\
+`When a gunman killed two of her students, Ivy Schamis was the only adult in the room. Her journey through guilt and healing sheds light on the impossible role of American teachers.`\
+https://nytimes.com/2025/02/23/health/teacher-shooting-parkland-florida.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/23/crosswords/spelling-bee-forum.html
+
 **Arsenal's season has been derailed - the title now feels beyond them**\
 `Saturday's 1-0 defeat to West Ham was the day all of the club's problems caught up with them`\
 https://nytimes.com/athletic/6153130/2025/02/23/arsenal-premier-league-title-over/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6153130/2025/02/23/arsenal-premier-league-title-ove
 **Did Juraj Slafkovský find his NHL identity? The Canadiens can only hope so**\
 `Slafkovský's game Saturday in Ottawa exemplified everything the Canadiens hope he can become when they are ready to win.`\
 https://nytimes.com/athletic/6153893/2025/02/23/juraj-slafkovsky-nhl-identity-canadiens/
-
-**Manchester United, an unlikely comeback and a search for existence**\
-`A half-time altercation feels emblematic of United’s position in the Premier League food chain: vulnerable and there to be mocked`\
-https://nytimes.com/athletic/6153544/2025/02/23/man-united-amorim-everton/
-
-**'Just keep grinding': Suns' big three help snap 4-game skid with win over Bulls**\
-`Kevin Durant, Devin Booker and Bradley Beal came up big against Chicago. "We’ve got to build off it," Suns coach Mike Budenholzer said.`\
-https://nytimes.com/athletic/6153864/2025/02/23/kevin-durant-suns-bulls/
-
-**Canucks fall to Golden Knights despite Kevin Lankinen's brilliance: 3 takeaways**\
-`Lankinen stood tall while facing a dizzying number of high-quality looks, deflections and shots from Vegas.`\
-https://nytimes.com/athletic/6153818/2025/02/23/canucks-lose-in-vegas-kevin-lankinen/
-
-**Chris Pronger's advice to Blues fans regarding Colton Parayko: 'Enjoy what you have'**\
-`The Hockey Hall of Famer says Parayko impressed him with Team Canada and his attributes shouldn't be overlooked.`\
-https://nytimes.com/athletic/6081791/2025/02/23/colton-parayko-blues-chris-pronger-4-nations/
-
-**Catholics Pray for Ailing Pope Francis at Sunday Mass**\
-`The 88-year-old pontiff has been hospitalized for more than a week and was given oxygen and a blood transfusion on Saturday.`\
-https://nytimes.com/2025/02/23/world/asia/mass-pope-francis-prayers-photos.html
-
-**‘Running Point,’ Plus 5 Things to Watch on TV This Week**\
-`Kate Hudson stars as a basketball team executive in a new comedy on Netflix, and the Oscars air on Sunday night.`\
-https://nytimes.com/2025/02/23/arts/television/running-point-plus-5-things-to-watch-on-tv-this-week.html
-
-**John Roberts Is on a Collision Course With Trump**\
-`Besieged on all sides, the chief justice faces his greatest test yet.`\
-https://nytimes.com/2025/02/23/opinion/john-roberts-trump-supreme-court.html
-
-**This Is Our Country, and We Have No Other**\
-`How long can Ukraine stand? For as long as Ukrainian soldiers, bent over from the extreme pressure, can hold on.`\
-https://nytimes.com/2025/02/23/opinion/ukraine-war-army.html
 
