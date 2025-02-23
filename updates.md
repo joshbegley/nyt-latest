@@ -1,3 +1,7 @@
+**Fiorentina's Kean taken to hospital after sustaining head injury against Verona**\
+`Kean initially returned to the pitch after having his head bandaged before collapsing on the field shortly after coming back on.`\
+https://nytimes.com/athletic/6154653/2025/02/23/moise-kean-fiorentina-head-injury/
+
 **Meet the Man Poised to Be Germany’s Next Chancellor**\
 `Friedrich Merz, leader of the conservative Christian Democratic Union, has vowed to bring stronger leadership in Europe at a time when the new Trump administration has sowed anxiety on the continent.`\
 https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor.html
