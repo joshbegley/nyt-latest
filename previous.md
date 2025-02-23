@@ -1,3 +1,7 @@
+**Robin van Persie appointed Feyenoord head coach**\
+`Former Arsenal and Man United striker Van Persie has been appointed new Feyenoord head coach`\
+https://nytimes.com/athletic/6149672/2025/02/23/robin-van-persie-feyenoord-manager/
+
 **At this rate, Chelsea and Maresca will be left relying on Conference League success**\
 `With each passing week, the Conference League is growing in importance for Chelsea and Enzo Maresca. It was not meant to be like this.`\
 https://nytimes.com/athletic/6153846/2025/02/23/chelsea-maresca-conference-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/nyregion/nyc-charter-revision-commission-housing-
 **‘I Turned to See a Woman in Running Gear Walking Toward an Older Man’**\
 `Stooping to help on a Manhattan sidewalk, an A train dance party and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/02/23/nyregion/metropolitan-diary.html
-
-**They Help Make the Hamptons the Hamptons, and Now They’re Living in Fear**\
-`Latino immigrants care for some of America’s most lavish beachside mansions. Their disappearance would affect the wealthy, too.`\
-https://nytimes.com/2025/02/23/nyregion/east-hampton-immigration-nannies.html
 

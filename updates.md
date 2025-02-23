@@ -1,3 +1,7 @@
+**Robin van Persie appointed Feyenoord head coach**\
+`Former Arsenal and Man United striker Van Persie has been appointed new Feyenoord head coach`\
+https://nytimes.com/athletic/6149672/2025/02/23/robin-van-persie-feyenoord-manager/
+
 **At this rate, Chelsea and Maresca will be left relying on Conference League success**\
 `With each passing week, the Conference League is growing in importance for Chelsea and Enzo Maresca. It was not meant to be like this.`\
 https://nytimes.com/athletic/6153846/2025/02/23/chelsea-maresca-conference-league/
