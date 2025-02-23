@@ -1,3 +1,11 @@
+**Thanks to carnival season, some Germans are casting votes in costume.**\
+`Germany’s federal elections typically take place in late summer or early fall. The timing of this snap election prompted fresh voting guidelines to take the festivities into account.`\
+https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carnival-costumes
+
+**'It's been bugging me:' Drew Doughty wants everyone to know he's still got it, at age 35**\
+`After missing much of the NHL season with a broken ankle, Doughty is rejuvenated and motivated.`\
+https://nytimes.com/athletic/6154056/2025/02/23/kings-doughty-4-nations-canada/
+
 **Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
 `"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
 https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/

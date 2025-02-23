@@ -1,3 +1,11 @@
+**Thanks to carnival season, some Germans are casting votes in costume.**\
+`Germany’s federal elections typically take place in late summer or early fall. The timing of this snap election prompted fresh voting guidelines to take the festivities into account.`\
+https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carnival-costumes
+
+**'It's been bugging me:' Drew Doughty wants everyone to know he's still got it, at age 35**\
+`After missing much of the NHL season with a broken ankle, Doughty is rejuvenated and motivated.`\
+https://nytimes.com/athletic/6154056/2025/02/23/kings-doughty-4-nations-canada/
+
 **Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
 `"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
 https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/opinion/usaid.html
 **How Asensio's movement and positioning led to Villa's victory against Chelsea**\
 `If Asensio is to replicate this performance moving forward, being in the right place at the right time should be the norm not the exception`\
 https://nytimes.com/athletic/6153965/2025/02/23/marco-asensio-villa-chelsea/
-
-**Amid Regional Diplomatic Furor, Sudan’s Paramilitaries Forge a Rival Government**\
-`The Rapid Support Forces said it was paving the way to an end to the civil war. Critics called it an audacious gambit by a group that the United States has accused of genocide.`\
-https://nytimes.com/2025/02/23/world/africa/sudan-rsf-paramilitaries-kenya-charter-government-civil-war.html
-
-**Mandel: SEC/Big Ten Playoff push for 4 autobids is as dumb as it sounds. History proves it**\
-`Let me show you how stupid the SEC and Big Ten's push for more automatic bids in an expanded Playoff is.`\
-https://nytimes.com/athletic/6153417/2025/02/23/college-football-playoff-expansion-big-ten-sec-history/
 
