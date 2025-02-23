@@ -1,3 +1,15 @@
+**‘Running Point,’ Plus 5 Things to Watch on TV This Week**\
+`Kate Hudson stars as a basketball team executive in a new comedy on Netflix, and the Oscars air on Sunday night.`\
+https://nytimes.com/2025/02/23/arts/television/running-point-plus-5-things-to-watch-on-tv-this-week.html
+
+**John Roberts Is on a Collision Course With Trump**\
+`Besieged on all sides, the chief justice faces his greatest test yet.`\
+https://nytimes.com/2025/02/23/opinion/john-roberts-trump-supreme-court.html
+
+**This Is Our Country, and We Have No Other**\
+`How long can Ukraine stand? For as long as Ukrainian soldiers, bent over from the extreme pressure, can hold on.`\
+https://nytimes.com/2025/02/23/opinion/ukraine-war-army.html
+
 **'Never refer to us as Tottenham' may seem a small edict but it says a lot about the modern game**\
 `The story that emerged this week that Spurs do not want to be called 'Tottenham' is indicative of how some clubs want to project themselves`\
 https://nytimes.com/athletic/6153098/2025/02/23/tottenham-hotspur-spurs-edict/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/23/world/europe/france-uk-trump-macron-starmer.html
 **Germans Are Voting. Here’s What to Watch For.**\
 `What Germans decide in national elections that are likely to produce a new chancellor will be of critical importance as Europe re-evaluates relations with the Trump administration.`\
 https://nytimes.com/2025/02/23/world/europe/germans-are-voting-heres-what-to-watch-for.html
-
-**Hezbollah Plans Show of Strength at Funeral for Assassinated Leader**\
-`The Iran-backed Lebanese militant group is staging an elaborate commemoration for its longtime leader, Hassan Nasrallah, who was killed by Israel in September.`\
-https://nytimes.com/2025/02/23/world/middleeast/hezbollah-nasrallah-funeral-lebanon.html
-
-**The Battle of Iwo Jima: A History**\
-`U.S. Marines raised an American flag on the Japanese island’s highest peak exactly 80 years ago. But the fighting, some of the deadliest of World War II, would rage on for a month.`\
-https://nytimes.com/2025/02/23/world/asia/the-battle-of-iwo-jima-a-history.html
-
-**Russia Is Wooing Western Energy Companies, but Will They Return?**\
-`Industry experts say Western companies will need to weigh potential access to oil and gas riches against political risks and other hazards of doing business in Russia.`\
-https://nytimes.com/2025/02/23/business/russia-sanctions-oil-gas-energy.html
 

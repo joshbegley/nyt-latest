@@ -1,3 +1,15 @@
+**‘Running Point,’ Plus 5 Things to Watch on TV This Week**\
+`Kate Hudson stars as a basketball team executive in a new comedy on Netflix, and the Oscars air on Sunday night.`\
+https://nytimes.com/2025/02/23/arts/television/running-point-plus-5-things-to-watch-on-tv-this-week.html
+
+**John Roberts Is on a Collision Course With Trump**\
+`Besieged on all sides, the chief justice faces his greatest test yet.`\
+https://nytimes.com/2025/02/23/opinion/john-roberts-trump-supreme-court.html
+
+**This Is Our Country, and We Have No Other**\
+`How long can Ukraine stand? For as long as Ukrainian soldiers, bent over from the extreme pressure, can hold on.`\
+https://nytimes.com/2025/02/23/opinion/ukraine-war-army.html
+
 **'Never refer to us as Tottenham' may seem a small edict but it says a lot about the modern game**\
 `The story that emerged this week that Spurs do not want to be called 'Tottenham' is indicative of how some clubs want to project themselves`\
 https://nytimes.com/athletic/6153098/2025/02/23/tottenham-hotspur-spurs-edict/
