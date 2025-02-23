@@ -1,3 +1,7 @@
+**Gabbard accuses security agencies of eroding privacy and civil liberties.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/02/23/us/trump-news/gabbard-accuses-security-agencies-of-eroding-privacy-and-civil-liberties
+
 **Republicans Face Angry Voters at Town Halls, Hinting at Broader Backlash**\
 `After a monthlong honeymoon for the G.O.P. at the start of President Trump’s term, lawmakers are confronting a groundswell of fear and disaffection in districts around the country.`\
 https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump.html
