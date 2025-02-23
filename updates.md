@@ -1,3 +1,7 @@
+**Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
+`Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
+https://nytimes.com/2025/02/23/world/europe/friedrich-merz-a-conservative-appears-poised-to-be-germanys-next-chancellor.html
+
 **Germany’s Votes Are Cast. What Happens Now?**\
 `The country appears headed for a coalition government. But the process of building one could take months.`\
 https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html

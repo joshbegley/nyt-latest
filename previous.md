@@ -1,3 +1,7 @@
+**Friedrich Merz, a Conservative, Appears Poised to Be Germany’s Next Chancellor**\
+`Whether he can form a strong coalition remains to be seen, but whatever he does will be an essential part of Europe’s response to President Trump’s reshuffling of alliances.`\
+https://nytimes.com/2025/02/23/world/europe/friedrich-merz-a-conservative-appears-poised-to-be-germanys-next-chancellor.html
+
 **Germany’s Votes Are Cast. What Happens Now?**\
 `The country appears headed for a coalition government. But the process of building one could take months.`\
 https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/briefing/germany-election-israel-west-bank-zelens
 **Guardiola: Haaland will be back 'soon' after missing Liverpool defeat**\
 `Manchester City manager Pep Guardiola expects Erling Haaland to be back &#8216;soon&#8217; after missing the 2-0 loss against Liverpool due to an injury, potentially as early as on Wednesday against Tottenham Hotspur.`\
 https://nytimes.com/athletic/6154450/2025/02/23/erling-haaland-injury-pep-guardiola/
-
-**NC State upsets No. 1 Notre Dame in OT, shakes up NCAA title favorites pool**\
-`The Irish fell on the road to the Wolfpack 104-95 in double overtime Sunday.`\
-https://nytimes.com/athletic/6154909/2025/02/23/nc-state-notre-dame-result-score/
 
