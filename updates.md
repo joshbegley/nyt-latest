@@ -1,3 +1,7 @@
+**Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
+`The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
+https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
+
 **Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
 `Boilermakers clearly miss Zach Edey, as they're exposed inside by Indiana's big men in defeat.`\
 https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
