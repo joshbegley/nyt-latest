@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: James van Riemsdyk is the NHL's top outdoorsman**\
+`Saturday's Stadium Series between the Blue Jackets and Red Wings at Ohio Stadium will be van Riemsdyk's eighth outdoor game.`\
+https://nytimes.com/athletic/6153069/2025/02/23/blue-jackets-nhl-james-van-riemsdyk/
+
 **In a city shaken by a killing, voters on all sides were upset.**\
 `By Sam Gurwitt`\
 https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a-killing-voters-on-all-sides-were-upset
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
 **Voters Took Note of U.S. Meddling in Campaign**\
 `Several voters took note of a speech by Vice President JD Vance this month, when he told European leaders to stop shunning parties deemed “extreme.”`\
 https://nytimes.com/2025/02/23/world/europe/trump-us-germany-election.html
-
-**What Project Is Changing Your Community?**\
-`Headway, a team at The New York Times that reports on progress and possibility, wants to hear about the efforts shaping your community. What’s working? What’s not? What should we look into?`\
-https://nytimes.com/2025/02/23/headway/projects-changing-community-neighborhoods-progress.html
 
