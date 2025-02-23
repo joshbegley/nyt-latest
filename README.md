@@ -1,3 +1,11 @@
+**Hegseth Defends Trump’s Firing of Joint Chiefs Chairman**\
+`Defense Secretary Pete Hegseth said in an interview on Sunday that Gen. Charles Q. Brown Jr. was “not the right man for the moment” and praised President Trump’s handling of the war in Ukraine.`\
+https://nytimes.com/2025/02/23/us/politics/hegseth-trump-cq-brown-pentagon.html
+
+**Voters Took Note of U.S. Meddling in Campaign**\
+`Several voters took note of a speech by Vice President JD Vance this month, when he told European leaders to stop shunning parties deemed “extreme.”`\
+https://nytimes.com/2025/02/23/world/europe/trump-us-germany-election.html
+
 **What Project Is Changing Your Community?**\
 `Headway, a team at The New York Times that reports on progress and possibility, wants to hear about the efforts shaping your community. What’s working? What’s not? What should we look into?`\
 https://nytimes.com/2025/02/23/headway/projects-changing-community-neighborhoods-progress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6154056/2025/02/23/kings-doughty-4-nations-canada/
 **Kevin Durant showcases greatness, graciousness and 'impact' in Chicago**\
 `"I try to always impact the game, because you never know who’s watching," Durant said Saturday night in Chicago.`\
 https://nytimes.com/athletic/6153958/2025/02/23/kevin-durant-nba-suns-bulls/
-
-**Gabbard accuses security agencies of eroding privacy and civil liberties.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2025/02/23/us/trump-news/gabbard-accuses-security-agencies-of-eroding-privacy-and-civil-liberties
-
-**Republicans Face Angry Voters at Town Halls, Hinting at Broader Backlash**\
-`After a monthlong honeymoon for the G.O.P. at the start of President Trump’s term, lawmakers are confronting a groundswell of fear and disaffection in districts around the country.`\
-https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump.html
 
