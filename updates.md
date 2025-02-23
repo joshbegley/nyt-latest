@@ -1,3 +1,7 @@
+**Germany’s Votes Are Cast. What Happens Now?**\
+`The country appears headed for a coalition government. But the process of building one could take months.`\
+https://nytimes.com/2025/02/23/world/europe/germany-election-voting.html
+
 **2025 MLB Draft scouting: A look at UCSB's Tyler Bremner, other potential first-rounders**\
 `A trip to southern California got Law looks at one of the top college arms and one of the top high school bats, as well as several others.`\
 https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-bremner-nick-dumesnil/
