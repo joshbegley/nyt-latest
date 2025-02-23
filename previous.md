@@ -1,3 +1,7 @@
+**Republicans Face Angry Voters at Town Halls, Hinting at Broader Backlash**\
+`After a monthlong honeymoon for the G.O.P. at the start of President Trump’s term, lawmakers are confronting a groundswell of fear and disaffection in districts around the country.`\
+https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump.html
+
 **For Mikaela Shiffrin, 100 World Cup wins and a female-led team guiding the way**\
 `Mikaela Shiffrin has reached an unprecedented milestone of Alpine skiing success. But there's another legacy she's leaving.`\
 https://nytimes.com/athletic/5947905/2025/02/23/mikaela-shiffrin-100-world-cup-wins-female-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151423/2025/02/23/athletic-football-show-nfl-combi
 **'It was awesome': Twins' Zebby Matthews reflects on rapid rise to majors and how to stick**\
 `Matthews, who pitched two scoreless innings in his 2025 spring debut, is focused on honing his command.`\
 https://nytimes.com/athletic/6153435/2025/02/23/twins-pitcher-zebby-matthews/
-
-**Lowetide: Oilers' recall possibilities lack strong prospect option with Matt Savoie in the NHL**\
-`After Savoie's recall, are there any young players in Bakersfield who can follow in his footsteps and help Edmonton?`\
-https://nytimes.com/athletic/6152965/2025/02/23/oilers-matt-savoie-nhl-recall/
 

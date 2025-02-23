@@ -1,3 +1,7 @@
+**Republicans Face Angry Voters at Town Halls, Hinting at Broader Backlash**\
+`After a monthlong honeymoon for the G.O.P. at the start of President Trump’s term, lawmakers are confronting a groundswell of fear and disaffection in districts around the country.`\
+https://nytimes.com/2025/02/23/us/politics/republicans-congress-town-halls-trump.html
+
 **For Mikaela Shiffrin, 100 World Cup wins and a female-led team guiding the way**\
 `Mikaela Shiffrin has reached an unprecedented milestone of Alpine skiing success. But there's another legacy she's leaving.`\
 https://nytimes.com/athletic/5947905/2025/02/23/mikaela-shiffrin-100-world-cup-wins-female-coaches/
