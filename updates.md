@@ -1,3 +1,7 @@
+**Crossing is back on the menu in the Premier League**\
+`In this Premier League season - and for the first time in five years - the number of open-play crosses per game is up on the previous one`\
+https://nytimes.com/athletic/6152743/2025/02/23/premier-league-crosses/
+
 **Report cards: Leafs start strong, survive late surge by Hurricanes**\
 `The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
 `\
