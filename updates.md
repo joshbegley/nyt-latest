@@ -1,3 +1,11 @@
+**2025 MLB Draft scouting: A look at UCSB's Tyler Bremner, other potential first-rounders**\
+`A trip to southern California got Law looks at one of the top college arms and one of the top high school bats, as well as several others.`\
+https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-bremner-nick-dumesnil/
+
+**Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
+`The Boilermakers miss Zach Edey, as they were exposed inside by Indiana's big men in Sunday's loss.`\
+https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
+
 **Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
 `The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
 https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
