@@ -1,3 +1,7 @@
+**Catholics Pray for Ailing Pope Francis at Sunday Mass**\
+`The 88-year-old pontiff has been hospitalized for more than a week and was given oxygen and a blood transfusion on Saturday.`\
+https://nytimes.com/2025/02/23/world/asia/mass-pope-francis-prayers-photos.html
+
 **‘Running Point,’ Plus 5 Things to Watch on TV This Week**\
 `Kate Hudson stars as a basketball team executive in a new comedy on Netflix, and the Oscars air on Sunday night.`\
 https://nytimes.com/2025/02/23/arts/television/running-point-plus-5-things-to-watch-on-tv-this-week.html
