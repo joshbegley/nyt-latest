@@ -1,4 +1,4 @@
-**Expanding West Bank Campaign, Israel Sends Tanks for 1st Time in Decades**\
+**Expanding West Bank Campaign, Israel Sends Tanks for First Time in Decades**\
 `Israel’s defense minister, Israel Katz, said that 40,000 Palestinian residents displaced from militant hotbeds would not be allowed to return to their homes.`\
 https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
 

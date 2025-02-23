@@ -1,3 +1,7 @@
+**Expanding West Bank Campaign, Israel Sends Tanks for 1st Time in Decades**\
+`Israel’s defense minister, Israel Katz, said that 40,000 Palestinian residents displaced from militant hotbeds would not be allowed to return to their homes.`\
+https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
+
 **Arizona apologizes for fans' 'unacceptable chant' directed at BYU**\
 `The chant started after BYU upset No. 19 Arizona in a wild 96-95 win Saturday night.`\
 https://nytimes.com/athletic/6154429/2025/02/23/arizona-byu-chant-apology/
