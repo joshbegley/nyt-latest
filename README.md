@@ -1,3 +1,7 @@
+**Victor Wembanyama card sells for record price after injury news**\
+`Saturday's sale blows past the previous record for a Wembanyama card`\
+https://nytimes.com/athletic/6153477/2025/02/22/victor-wembanyama-card-record-sale/
+
 **Blackhawks' latest challenge: Matching contenders' intensity while playing only for pride**\
 `The Blackhawks will be looking to match playoff contenders' intensity while having little to play for in the last 26 games of the season.`\
 https://nytimes.com/athletic/6153667/2025/02/22/blackhawks-blue-jackets-nhl-contenders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153270/2025/02/22/penguins-capitals-sidney-crosby/
 **Giants spring opener observations: Bryce Eldridge steals the show**\
 `The Giants' first spring game of 2025 carried several storylines. Then Eldridge hit a 450-foot bomb.`\
 https://nytimes.com/athletic/6153495/2025/02/22/sf-giants-spring-opener-bryce-eldridge-home-run/
-
-**‘Religious Motivation’ Possible in Berlin Stabbing, Police Say**\
-`The suspect, a Syrian refugee, told the police that a plan had come into his mind to kill Jews. The attack raises tensions just before an election in which immigration is a big issue.`\
-https://nytimes.com/2025/02/22/world/europe/berlin-stabbing-holocaust-memorial.html
 
