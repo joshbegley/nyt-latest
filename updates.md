@@ -1,3 +1,7 @@
+**Las Palmas 0-2 Barca: Olmo steps up, Yamal's assists record and VAR controversy**\
+`It was not a pretty performance, but Barca's victory at Las Palmas on Saturday meant they retain La Liga’s top spot for another week.`\
+https://nytimes.com/athletic/6153447/2025/02/23/barcelona-olmo-yamal-la-liga/
+
 **The Paris basketball court that's a tourist attraction and a changing work of art**\
 `A basketball court in Paris brings colour and a sense of community to a neighborhood and the fans who visit.`\
 https://nytimes.com/athletic/6066220/2025/02/23/pigalle-duperre-paris-basketball-court-stephane-ashpool/
