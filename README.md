@@ -1,3 +1,23 @@
+**Mandel: SEC/Big Ten Playoff push for 4 autobids is as dumb as it sounds. History proves it**\
+`Let me show you how stupid the SEC and Big Ten's push for more automatic bids in an expanded Playoff is.`\
+https://nytimes.com/athletic/6153417/2025/02/23/college-football-playoff-expansion-big-ten-sec-history/
+
+**Watch: Which players will own the NFL combine?**\
+`"The Athletic Football Show" discusses the players to look out for in this week's NFL Scouting Combine.`\
+https://nytimes.com/athletic/6151423/2025/02/23/athletic-football-show-nfl-combine-preview-2025/
+
+**'It was awesome': Twins' Zebby Matthews reflects on rapid rise to majors and how to stick**\
+`Matthews, who pitched two scoreless innings in his 2025 spring debut, is focused on honing his command.`\
+https://nytimes.com/athletic/6153435/2025/02/23/twins-pitcher-zebby-matthews/
+
+**Lowetide: Oilers' recall possibilities lack strong prospect option with Matt Savoie in the NHL**\
+`After Savoie's recall, are there any young players in Bakersfield who can follow in his footsteps and help Edmonton?`\
+https://nytimes.com/athletic/6152965/2025/02/23/oilers-matt-savoie-nhl-recall/
+
+**'He's back': Luka Dončić shows his 'killer' side for first time since Lakers trade**\
+`For his first time with Los Angeles, Dončić was in complete control of the offense, spurring a win over the Nuggets.`\
+https://nytimes.com/athletic/6153182/2025/02/23/luka-doncic-lakers-nuggets-nba/
+
 **Censoring Games**\
 `What China’s influence over Marvel Rivals reveals about censorship.`\
 https://nytimes.com/2025/02/23/briefing/censoring-games.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6153649/2025/02/23/mets-clay-holmes-mark-vientos/
 **‘We think it was a penalty’ - Everton's feeling of injustice and missed opportunity**\
 `The nature of Saturday’s 2-2 draw with Manchester United made it feel ‘close to a defeat’ according to Everton manager David Moyes`\
 https://nytimes.com/athletic/6153034/2025/02/23/everton-manchester-united-penalty-young/
-
-**Israel and Hamas Trade Accusations of Violating Fragile Cease-Fire**\
-`Hamas criticized Israel’s decision to delay the release of hundreds of Palestinian prisoners, amid growing tensions and concerns for the future of the truce in Gaza.`\
-https://nytimes.com/2025/02/23/world/middleeast/israel-hamas-hostage-cease-fire.html
-
-**Cubs focusing on keeping staff ace Justin Steele healthy ahead of 2025 season**\
-`"We both have the same goals and mindset going into the season," Steele said of manager Craig Counsell.`\
-https://nytimes.com/athletic/6153297/2025/02/23/chicago-cubs-justin-steele-2025-plan/
-
-**The Sunday Read: ‘What Happened When America Emptied Its Youth Prisons’**\
-`Lessons from a radical 20-year experiment and a quiet triumph of public policy.`\
-https://nytimes.com/2025/02/23/podcasts/the-daily/juvenile-prison-crime-rates.html
-
-**Trump Has One Idea**\
-`What do Ukraine and the Justice Department have in common?`\
-https://nytimes.com/2025/02/23/opinion/trump-ukraine-justice-zelensky.html
-
-**Wordle Review No. 1,346**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 24, 2025.`\
-https://nytimes.com/2025/02/23/crosswords/wordle-review-1346.html
 
