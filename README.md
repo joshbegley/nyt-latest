@@ -1,7 +1,3 @@
-**Dodge begins process of gaining approval to rejoin NASCAR Truck Series**\
-`Once a mainstay in the popular Truck Series, Dodge fielded entries from the series’ inception in 1995 through the 2016 season.`\
-https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
-
 **Tito's back: Terry Francona returns to the dugout with the Reds**\
 `Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games on Saturday.`\
 https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/22/crosswords/daily-puzzle-2025-02-23.html
 **At CPAC, Trump Revels in Political Payback**\
 `Speaking to a crowd of supporters that included pardoned Jan. 6 rioters, the president gleefully recounted his efforts to purge the government of his political enemies.`\
 https://nytimes.com/2025/02/22/us/politics/trump-cpac-speech.html
+
+**Cardinals, Astros briefly talked Nolan Arenado deal; stance on no-trade is unchanged: Sources**\
+`According to league sources, the Astros circled back with the Cardinals after Alex Bregman signed with the Red Sox.`\
+https://nytimes.com/athletic/6153242/2025/02/22/nolan-arenado-trade-cardinals-astros/
 
