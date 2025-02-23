@@ -1,3 +1,15 @@
+**Some Agencies Urge Staff Not to Comply With Musk’s Ultimatum**\
+`The F.B.I. director, Kash Patel, the director of national intelligence, Tulsi Gabbard, and others told employees not to respond to a directive from Mr. Musk to summarize their accomplishments.`\
+https://nytimes.com/2025/02/23/us/politics/elon-musk-email-federal-workers.html
+
+**Germany’s smaller parties could have an outsized effect on who’s in the governing coalition.**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/live/2025/02/23/world/germany-election/germanys-smaller-parties-could-have-an-outsized-effect-on-whos-in-the-governing-coalition
+
+**French referees union condemn corruption accusations from Marseille president**\
+`Longoria criticised referee Jeremy Stinat after his decision to show defender Derek Cornelius a second yellow card against Auxerre.`\
+https://nytimes.com/athletic/6154095/2025/02/23/marseille-ligue-1-corruption-referee-france/
+
 **‘Much more cautious approach’: Sweeney's buying days seem over, and what's next for Marchand?**\
 `For nine straight seasons, Sweeney added reinforcements at the trade deadline. But going all in has caught up to the Bruins.`\
 https://nytimes.com/athletic/6154811/2025/02/23/bruins-trade-deadline-don-sweeney-brad-marchand/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/02/23/world/germany-election/in-a-city-shaken-by-a
 **The Briefing: Man City 0 Liverpool 2 - Is the title race already over?**\
 `The big talking points from the Etihad dissected as Liverpool took another big step towards the title`\
 https://nytimes.com/athletic/6148375/2025/02/23/manchester-city-liverpool-analysis-result/
-
-**Fiorentina's Kean taken to hospital after sustaining head injury against Verona**\
-`Kean initially returned to the pitch after having his head bandaged before collapsing on the field shortly after coming back on.`\
-https://nytimes.com/athletic/6154653/2025/02/23/moise-kean-fiorentina-head-injury/
-
-**Meet the Man Poised to Be Germany’s Next Chancellor**\
-`Friedrich Merz, leader of the conservative Christian Democratic Union, has vowed to bring stronger leadership in Europe at a time when the new Trump administration has sowed anxiety on the continent.`\
-https://nytimes.com/2025/02/23/world/europe/friedrich-merz-germany-chancellor.html
-
-**Expanding West Bank Campaign, Israel Sends Tanks for First Time in Decades**\
-`Israel’s defense minister, Israel Katz, said that 40,000 Palestinian residents displaced from militant hotbeds would not be allowed to return to their homes.`\
-https://nytimes.com/2025/02/23/world/middleeast/israel-west-bank-tanks.html
 
