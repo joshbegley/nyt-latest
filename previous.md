@@ -1,3 +1,15 @@
+**Got Ground Meat? Cook Some Keema.**\
+`Tejal Rao’s keema is simple and comforting, perfect for a Sunday night.`\
+https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
+
+**The Briefing: Newcastle 4 N Forest 3 - Eleven-minute flurry, nervy ending and fifty up for Isak**\
+`Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park.`\
+https://nytimes.com/athletic/6148363/2025/02/23/newcastle-forest-isak-comeback/
+
+**Here are the latest developments.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/02/23/world/germany-election/here-are-the-latest-developments
+
 **Thanks to carnival season, some Germans are casting votes in costume.**\
 `Germany’s federal elections typically take place in late summer or early fall. The timing of this snap election prompted fresh voting guidelines to take the festivities into account.`\
 https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carnival-costumes
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5947905/2025/02/23/mikaela-shiffrin-100-world-cup-w
 **Why Sixers must shut down Joel Embiid before it's too late**\
 `It's time for Philadelphia to prioritize getting Joel Embiid healthy, adding an asset this summer and coming back stronger next season.`\
 https://nytimes.com/athletic/6153879/2025/02/23/joel-embiid-76ers-shut-down-lottery-pick-nba-draft/
-
-**Knicks at Celtics: How to watch the NBA's Sunday showcase game between East rivals**\
-`It's the Larry Bird jersey in a sweltering Brooklyn summer from Do The Right Thing. It's the Knicks and the Celtics, facing off Sunday.`\
-https://nytimes.com/athletic/6149402/2025/02/23/knicks-celtics-how-to-watch-preview-brunson-towns-brown-tatum/
-
-**In Memory of Our Decency: ‘That Was U.S.A.I.D.’**\
-`Reflections on the dismantling of the aid agency. Also: Birthright citizenship and the 14th Amendment; transgender policies; eagerness to march again.`\
-https://nytimes.com/2025/02/23/opinion/usaid.html
-
-**How Asensio's movement and positioning led to Villa's victory against Chelsea**\
-`If Asensio is to replicate this performance moving forward, being in the right place at the right time should be the norm not the exception`\
-https://nytimes.com/athletic/6153965/2025/02/23/marco-asensio-villa-chelsea/
 

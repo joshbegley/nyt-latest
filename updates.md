@@ -1,3 +1,15 @@
+**Got Ground Meat? Cook Some Keema.**\
+`Tejal Rao’s keema is simple and comforting, perfect for a Sunday night.`\
+https://nytimes.com/2025/02/23/dining/ground-meat-keema.html
+
+**The Briefing: Newcastle 4 N Forest 3 - Eleven-minute flurry, nervy ending and fifty up for Isak**\
+`Chris Waugh and George Caulkin break down an entertaining (yet nerve-jangling) comeback win at St James' Park.`\
+https://nytimes.com/athletic/6148363/2025/02/23/newcastle-forest-isak-comeback/
+
+**Here are the latest developments.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/02/23/world/germany-election/here-are-the-latest-developments
+
 **Thanks to carnival season, some Germans are casting votes in costume.**\
 `Germany’s federal elections typically take place in late summer or early fall. The timing of this snap election prompted fresh voting guidelines to take the festivities into account.`\
 https://nytimes.com/live/2025/02/23/world/germany-election/germany-election-carnival-costumes
