@@ -1,5 +1,9 @@
+**Shedeur Sanders won't work out at NFL combine: Reports**\
+`Colorado star is widely considered a top two quarterback in the 2025 NFL Draft class with Miami’s Cam Ward.`\
+https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
+
 **At Least 3 Dead After Boat Capsizes Near Staten Island, Officials Say**\
-`The U.S. Coast Guard said one person was missing and one person was in critical condition after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
+`The U.S. Coast Guard said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
 https://nytimes.com/2025/02/23/nyregion/staten-island-overturned-boat.html
 
 **Yankees will no longer play Frank Sinatra's 'New York, New York' after losses**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155004/2025/02/23/mlb-draft-2025-scouting-tyler-br
 **Knicks' defensive issues against NBA's best teams continue in loss to Celtics**\
 `The Knicks are 0-7 against the Celtics, Cavaliers and Thunder this season.`\
 https://nytimes.com/athletic/6155005/2025/02/23/knicks-celtics-result/
-
-**Hoosiers on bubble? Indiana makes case with upset of No. 13 Purdue**\
-`The Boilermakers miss Zach Edey, as they were exposed inside by Indiana's big men in Sunday's loss.`\
-https://nytimes.com/athletic/6155034/2025/02/23/indiana-upsets-purdue-ncaa-tournament-bubble/
 
