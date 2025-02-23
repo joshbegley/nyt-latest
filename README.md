@@ -1,3 +1,7 @@
+**Crossing is back on the menu in the Premier League**\
+`In this Premier League season - and for the first time in five years - the number of open-play crosses per game is up on the previous one`\
+https://nytimes.com/athletic/6152743/2025/02/23/premier-league-crosses/
+
 **After Donald Trump's comments, could Russian football be brought in from the cold?**\
 `Russian football teams, both at club and national team level, have not played in UEFA competitions since their suspension in February 2022`\
 https://nytimes.com/athletic/6151651/2025/02/23/could-russian-football-be-brought-in-from-the-cold/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6153709/2025/02/22/maple-leafs-alex-steeves-nhl-goa
 **'Deserved to get booed': No-show first period costs Bruins vs. Ducks**\
 `Fans booed Boston when it fell two goals behind Anaheim after the first period in an eventual 3-2 loss.`\
 https://nytimes.com/athletic/6153728/2025/02/22/bruins-ducks-booed-score/
-
-**Report cards: Leafs start strong, survive late surge by Hurricanes**\
-`The Maple Leafs jumped to an early lead and weathered a third-period storm for a 6-3 victory over Carolina on Saturday.
-`\
-https://nytimes.com/athletic/6153742/2025/02/22/maple-leafs-hurricanes-analysis-grades/
 
