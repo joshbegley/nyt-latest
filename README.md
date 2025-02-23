@@ -1,3 +1,11 @@
+**Alabama overpowers shorthanded Kentucky to shake off 2-game losing streak**\
+`After back-to-back losses against Auburn and Missouri, Alabama snagged a 96-83 win over the No. 17 Wildcats.`\
+https://nytimes.com/athletic/6153601/2025/02/22/alabama-kentucky-basketball-score-takeaways/
+
+**Rangers showed plenty in no-show effort out of 4 Nations break**\
+`New York reverted to its losing ways after allowing 5 goals to Buffalo in the first period of an eventual 8-2 loss.`\
+https://nytimes.com/athletic/6151760/2025/02/22/rangers-sabres-4-nations-face-off/
+
 **Hamas Frees 6 Hostages as Israel Delays Palestinian Prisoner Release**\
 `The six Israelis were the last living captives set to be released in the first phase of the cease-fire. The agreement, strained for weeks, has an uncertain future.`\
 https://nytimes.com/2025/02/22/world/middleeast/israel-hostage-hamas-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6153434/2025/02/22/dodge-nascar-truck-series/
 **Tito's back: Terry Francona returns to the dugout with the Reds**\
 `Graham Ashcraft had a good start to his spring and Elly De La Cruz crushed two homers as the Reds split two games Saturday.`\
 https://nytimes.com/athletic/6153431/2025/02/22/reds-terry-francona-return/
-
-**Fresno State withholding 2 players due to potential gambling violation**\
-`Jalen Weaver is the team’s second-leading scorer at 12.5 points per game while Zaon Collins is tied for third at 12.0.`\
-https://nytimes.com/athletic/6153426/2025/02/22/fresno-state-basketball-gambling/
-
-**Matvei Michkov, who 'needed a break,' dazzles in Flyers' impressive victory**\
-`The rookie recorded one goal and two assists in the Flyers' 6-3 win over the Oilers on Saturday.`\
-https://nytimes.com/athletic/6153328/2025/02/22/flyers-matvei-michkov-oilers/
 
