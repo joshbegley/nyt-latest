@@ -1,3 +1,11 @@
+**Fair or Not, Zelensky Is Angering Trump. Is His Style Hurting Ukraine?**\
+`Through three years of wartime leadership, Ukraine’s president has mostly played weak hands wisely. But his approach has fallen flat with the Trump administration.`\
+https://nytimes.com/2025/02/24/world/europe/ukraine-zelensky-trump.html
+
+**Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
+`Carney Chukwuemeka’s debut for Borussia Dortmund was described as “sensationally good” by head coach Niko Kovac, following the 6-0 Bundesliga win over Union Berlin on Saturday.`\
+https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
+
 **Chiefs NFL Draft big board: 20 players to watch in the first 3 rounds for positions of need**\
 `With the NFL combine starting this week, we identify 20 prospects who could be a fit for the Chiefs in the draft.`\
 https://nytimes.com/athletic/6152473/2025/02/24/chiefs-2025-nfl-draft-big-board/
