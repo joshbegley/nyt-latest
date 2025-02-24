@@ -1,3 +1,7 @@
+**Richard Jefferson to join Breen, Burke on ESPN's top NBA broadcast team**\
+`ESPN’s NBA booth has been in flux since the network let longtime analysts Jeff Van Gundy and Mark Jackson go in 2023.`\
+https://nytimes.com/athletic/6156321/2025/02/24/nba-finals-espn-tv-richard-jefferson/
+
 **College baseball week in review: Aces emerging at Florida, Wake Forest**\
 `Are Texas A&M's early-season offensive struggles an area of concern? Is UCLA back? Omaha pulls off a stunner. UMES wins!`\
 https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-forest-lsu-tennessee/
