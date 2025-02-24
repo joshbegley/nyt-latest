@@ -1,3 +1,7 @@
+**Putin Dangles Rare Earths Deals for U.S. in Russia and Occupied Ukraine**\
+`In an interview broadcast on Monday, President Vladimir Putin said U.S. companies stood to profit in Russia, but suggested a Ukraine peace deal was still far-off.`\
+https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-russia.html
+
 **Alvin F. Poussaint, Pioneering Expert on Black Mental Health, Dies at 90**\
 `A psychiatrist at Harvard and an adviser to Jesse Jackson and Bill Cosby, he challenged Black Americans to stand up to systemic racism.`\
 https://nytimes.com/2025/02/24/us/alvin-poussaint-dead.html

@@ -1,3 +1,7 @@
+**Putin Dangles Rare Earths Deals for U.S. in Russia and Occupied Ukraine**\
+`In an interview broadcast on Monday, President Vladimir Putin said U.S. companies stood to profit in Russia, but suggested a Ukraine peace deal was still far-off.`\
+https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-russia.html
+
 **Alvin F. Poussaint, Pioneering Expert on Black Mental Health, Dies at 90**\
 `A psychiatrist at Harvard and an adviser to Jesse Jackson and Bill Cosby, he challenged Black Americans to stand up to systemic racism.`\
 https://nytimes.com/2025/02/24/us/alvin-poussaint-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157511/2025/02/24/michigan-biff-poggi-coach-jim-ha
 **Logan Webb is a safe bet for the Giants, but there's a pitch worth monitoring**\
 `Webb is one of the most reliably consistent pitchers in the league, but one pitch has fluctuated in effectiveness a bit the past two years.`\
 https://nytimes.com/athletic/6156735/2025/02/24/sf-giants-logan-webb-pitch-analysis/
-
-**Ducks' Zegras suspended 3 games for hit on Red Wings' Rasmussen**\
-`Zegras is eligible to return March 4, when the Ducks play at Edmonton. `\
-https://nytimes.com/athletic/6157047/2025/02/24/zegras-suspension-ducks-red-wings/
 
