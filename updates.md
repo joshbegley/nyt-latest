@@ -1,3 +1,7 @@
+**The Pentagon Purge, and the Danger Ahead**\
+`Readers discuss the dismissal of military leaders. Also: A refusal to obey; the Supreme Court’s dilemma; students with disabilities; company profits; tenderness.`\
+https://nytimes.com/2025/02/24/opinion/trump-pentagon-purge.html
+
 **Drake Returns to No. 1 With PartyNextDoor**\
 `Their collaborative album “Some Sexy Songs 4 U” opens atop the Billboard 200, unseating his foe Kendrick Lamar’s “GNX,” which surged after the Super Bowl halftime show.`\
 https://nytimes.com/2025/02/24/arts/music/drake-partynextdoor-some-sexy-songs-4-u-chart.html
