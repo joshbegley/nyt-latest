@@ -1,3 +1,15 @@
+**Embracing Darkness on the Isle of Rum**\
+`Europe’s newest dark-sky sanctuary is a wild Scottish island with 40 residents and celestial lighting.`\
+https://nytimes.com/2025/02/24/science/astronomy-dark-sky-rum.html
+
+**Gutting the I.R.S. Is the Opposite of Fiscal Responsibility**\
+`The Trump administration’s decision to fire over 6,000 I.R.S. workers will make the government less effective and less efficient, not more.`\
+https://nytimes.com/2025/02/24/opinion/irs-taxes-trump.html
+
+**How 12 Americans See Life After Watching a Lot of TikTok**\
+`People who use TikTok daily talk about why they love the app, how consuming and addicting social media can be and why they wouldn’t want their kids to use it.`\
+https://nytimes.com/interactive/2025/02/24/opinion/tiktok-users-focus-group.html
+
 **This is why Villa signed Rashford and Asensio**\
 `Villa's marquee January signings made all the difference in turning a 1-0 deficit into a precious 2-1 win over Chelsea`\
 https://nytimes.com/athletic/6152835/2025/02/24/marcus-rashford-marco-asensio-aston-villa-sign/
