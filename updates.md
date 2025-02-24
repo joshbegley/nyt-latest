@@ -1,3 +1,11 @@
+**Federal Personnel Office Tells Agencies That Musk’s Directive Is ‘Voluntary’**\
+`President Trump said employees would be “sort of semi-fired” or fired if they didn’t comply with an Elon Musk order to detail their work. Some agencies told staff members to ignore it. Federal workers said they didn’t know what to do.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
+
+**How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
+`The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
+https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
+
 **Institute Asks Judge in Trump Documents Case to Disclose Special Counsel Report**\
 `The report is the second volume of a report Jack Smith wrote after dropping the federal criminal cases he brought against Donald J. Trump because of his 2024 election victory.`\
 https://nytimes.com/2025/02/24/us/trump-documents-report.html
