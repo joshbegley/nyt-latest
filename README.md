@@ -1,3 +1,7 @@
+**How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
+`The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
+https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
+
 **Shelter at Roosevelt Hotel Will Close as N.Y.C. Migrant Crisis Eases**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
 **Cody Zeller not expected to play for Rockets this season: Sources**\
 `The veteran big man has not played since the end of the 2023-24 regular season. `\
 https://nytimes.com/athletic/6156707/2025/02/24/cody-zeller-rockets-contract-status/
-
-**British Couple Arrested by Taliban in Afghanistan, Family Says**\
-`Peter and Barbie Reynolds were arrested on Feb. 1, their children told U.K. news outlets. The couple had run an education company in Afghanistan for almost two decades.`\
-https://nytimes.com/2025/02/24/world/europe/reynolds-couple-arrested-afghanistan.html
 
