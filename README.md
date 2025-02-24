@@ -1,3 +1,7 @@
+**Federal Judge Shields More Transgender Inmates From Trump Order**\
+`A group of transgender women in federal prisons who would have been moved into men’s facilities can stay where they are for now.`\
+https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.html
+
 **Stefanik’s Confirmation Is on Ice as Republicans Guard Their Scant Majority**\
 `The congresswoman from New York is in line to be confirmed as the U.S. ambassador to the United Nations. But first, her colleagues need her vote to pass their embattled budget plan.`\
 https://nytimes.com/2025/02/24/us/politics/elise-stefanik-un-ambassador-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157225/2025/02/24/kuzmenko-flyers-trade-contract/
 **How long should NFL teams wait to draft a quarterback this year?**\
 `On "The Athletic Football Show," a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
 https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
-
-**Green Bay Packers propose 'tush push' ban: Sources**\
-`Hurts led all NFL QBs with 14 rushing touchdowns with 13 of those coming in goal to go situations, according to TruMedia.`\
-https://nytimes.com/athletic/6157243/2025/02/24/green-bay-packers-tush-push-ban/
 
