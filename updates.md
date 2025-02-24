@@ -1,3 +1,7 @@
+**A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
+`Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
+https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
+
 **What I’m hearing and seeing about the Canadiens nearing the NHL trade deadline**\
 `Montreal is said to be exploring a package deal of Jake Evans and Joel Armia.`\
 https://nytimes.com/athletic/6155854/2025/02/24/montreal-canadiens-nhl-trade-deadline/

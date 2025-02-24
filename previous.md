@@ -1,3 +1,7 @@
+**A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
+`Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
+https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
+
 **What I’m hearing and seeing about the Canadiens nearing the NHL trade deadline**\
 `Montreal is said to be exploring a package deal of Jake Evans and Joel Armia.`\
 https://nytimes.com/athletic/6155854/2025/02/24/montreal-canadiens-nhl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-
 **MLS's record signings make immediate impact for their trophy-hungry clubs**\
 `For the two players who broke MLS's incoming transfer record, the 2025 season couldn't have started much better`\
 https://nytimes.com/athletic/6155720/2025/02/24/latte-lath-atlanta-denkey-cincinnati-mls-record-signings-goals/
-
-**Wild insider: How will Kirill Kaprizov's injury affect the trade deadline? 5 burning questions**\
-`When will Kaprizov return? How will Bill Guerin and the Wild approach the March 7 deadline?`\
-https://nytimes.com/athletic/6149430/2025/02/24/wild-trade-deadline-kirill-kaprizov-injury/
 
