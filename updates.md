@@ -1,3 +1,7 @@
+**SAG Awards 2025: Complete List of Winners**\
+`“Conclave” took home the top film prize, while Demi Moore and Timothée Chalamet won top individual honors.`\
+https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
+
 **Kenyan Police Officer Fatally Injured in Haiti in Anti-Gang Operation**\
 `The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
 https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
