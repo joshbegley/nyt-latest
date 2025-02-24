@@ -1,3 +1,7 @@
+**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
+`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
+https://nytimes.com/athletic/6129807/2025/02/24/2025-fantasy-baseball-draft-kit-mlb/
+
 **Francis Is in Critical Condition. What Happens When a Pope Dies?**\
 `Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
 https://nytimes.com/article/francis-what-happens-when-pope-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/arts/music/roberta-flack-songs.html
 **Star Maestro, Facing Recurrence of Brain Cancer, Scales Back Concerts**\
 `Michael Tilson Thomas, who led the San Francisco Symphony for 25 years, said, “Now is the time to wind down my public appearances.”`\
 https://nytimes.com/2025/02/24/arts/music/michael-tilson-thomas-brain-cancer.html
-
-**Farmers Sue Over Deletion of Climate Data From Government Websites**\
-`The data, which disappeared from Agriculture Department sites in recent weeks, was useful to farmers for business planning, the lawsuit said.`\
-https://nytimes.com/2025/02/24/climate/agriculture-farmer-website-data-lawsuit.html
 
