@@ -1,3 +1,15 @@
+**NIU's non-football programs headed to Horizon League, pending Board of Trustees approval**\
+`NIU recently announced it will join the Mountain West Conference as a football-only member in 2026.`\
+https://nytimes.com/athletic/6157419/2025/02/24/northern-illinois-horizon-league/
+
+**Supreme Court Justices Appear Narrowly Divided Over Death Row Prisoner Plea for DNA Testing**\
+`The justices heard arguments in the case of a man on death row in Texas who claims DNA testing could spare his life.`\
+https://nytimes.com/2025/02/24/us/politics/supreme-court-dna-death-row.html
+
+**Two Members of Privacy Watchdog, Summarily Fired by Trump, File Lawsuit**\
+`The case joins a rising number of legal challenges to President Trump’s firing spree that has violated limits on his power.`\
+https://nytimes.com/2025/02/24/us/politics/trump-privacy-watchdog-firings-lawsuit.html
+
 **Watch: Whose season has been worse — Suns or Sixers?**\
 `Our NBA Daily crew discusses two of the NBA's bigger disappointments this season.`\
 https://nytimes.com/athletic/6156810/2025/02/24/nba-daily-sixers-suns-worst-season/
