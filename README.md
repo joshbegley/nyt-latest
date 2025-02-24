@@ -1,3 +1,7 @@
+**Why Tensions Are Rising in the West Bank**\
+`Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
+https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html
+
 **U.S. Clashes With European Allies at the U.N. Over Ukraine**\
 `The United States voted against a Ukrainian resolution, backed by most of Europe, demanding Russian withdrawal from Ukraine — a deep fissure between allies, and a sharp shift in American policy.`\
 https://nytimes.com/2025/02/24/world/middleeast/us-eurpe-russia-ukraine-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156661/2025/02/24/mets-sean-manaea-oblique-injury/
 **Giants catcher Patrick Bailey — a pitch framing savant — 'not a fan' of automated strike zone**\
 `Bailey, a Gold Glover, isn't a fan of the ABS system. "I think it's going to change the game a lot more than people realize."`\
 https://nytimes.com/athletic/6155868/2025/02/24/sf-giants-patrick-bailey-automated-ball-strike-system/
-
-**Starbucks to Lay Off 1,100 Corporate Employees Amid Sluggish Sales**\
-`The jobs cuts, which will affect about 7 percent of the chain’s non-retail staff, are part of its new chief executive’s plan to win back customers.`\
-https://nytimes.com/2025/02/24/business/starbucks-layoffs.html
 
