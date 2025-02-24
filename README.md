@@ -1,3 +1,15 @@
+**Bird Flu Is Spreading. Are Eggs Safe?**\
+`Is it safe to eat eggs right now? Yes — but Megan Thielking, a Well editor, details a few things to know.`\
+https://nytimes.com/video/well/100000009990030/bird-flu-is-spreading-are-eggs-safe.html
+
+**Angels' Cole Fontenelle works to move on mentally and physically from 'horrible injury'**\
+`Fontenelle was on a fast track to the majors before he dislocated his ankle and fractured his fibula on May 4, 2024.`\
+https://nytimes.com/athletic/6155150/2025/02/24/angels-cole-fontenelle-injury/
+
+**The Athletic college baseball Top 25: SEC teams claim top five spots**\
+`Virginia dropped 11 spots after losing two games at the Karbach Round Rock Classic. Oklahoma, which beat UVA on Sunday, checks in at No. 23.`\
+https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
+
 **A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
 `Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
 https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-fo
 **Drake Batherson discusses his recent offensive struggles: 'You just got to turn the page'**\
 `The Senators need Batherson, among other players, to return to form over their next 25 games as they seek a playoff berth.`\
 https://nytimes.com/athletic/6155246/2025/02/24/senators-batherson-goals-offence-nhl/
-
-**Rangers appoint Ferguson as manager until end of season**\
-`Ferguson scored 60 goals in 431 first-team appearances at Rnagers as a player and his arrival follows the sacking of Philippe Clement.`\
-https://nytimes.com/athletic/6156316/2025/02/24/barry-ferguson-rangers-manager/
-
-**Lewis Hall is Newcastle's new attacking weapon - as Nottingham Forest discovered**\
-`Why Eddie Howe's patient restructure of his defence is paying dividends `\
-https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-attacks/
-
-**MLS's record signings make immediate impact for their trophy-hungry clubs**\
-`For the two players who broke MLS's incoming transfer record, the 2025 season couldn't have started much better`\
-https://nytimes.com/athletic/6155720/2025/02/24/latte-lath-atlanta-denkey-cincinnati-mls-record-signings-goals/
 
