@@ -1,3 +1,7 @@
+**6 Takeaways From Alec and Hilaria Baldwin’s TLC Reality Show**\
+`The series begins just before he was scheduled to stand trial in the fatal shooting on the set of “Rust.” The reviews have been somewhat uneasy.`\
+https://nytimes.com/2025/02/23/arts/television/the-baldwins-premiere-tlc-reality-show.html
+
 **Mystics trade All-Star Ariel Atkins to Sky for No. 3 draft pick**\
 `Washington also receives swap rights for Chicago's 2027 first round pick and acquires its second-round pick`\
 https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155384/2025/02/23/brian-campbell-stuns-with-mexica
 **Trump, Again, Chooses Loyalty Over Leadership**\
 `The firing of the nation’s top military officer is the latest example of the president prioritizing fealty over sound policy and expertise.`\
 https://nytimes.com/2025/02/23/opinion/trump-pentagon-military-firings.html
-
-**Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
-`May and Ohtani reached significant milestones in their comebacks from surgery.`\
-https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
 
