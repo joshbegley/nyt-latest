@@ -1,3 +1,11 @@
+**Abdul Carter to work out at Penn State pro day instead of NFL combine: Source**\
+`Carter, The Athletic's No. 2-ranked prospect, is recovering from a shoulder injury he played through in Penn State's Orange Bowl loss.`\
+https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-pro-day/
+
+**What Makes a Good Red-Carpet Host?**\
+`Lilly Singh caught some flak for what online critics called cringey interviews before the Screen Actors Guild Awards ceremony. The job may be tougher than it looks.`\
+https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
+
 **NHL reduces Ryan Hartman's suspension to 8 games — hopes it's a 'wake-up call' for Wild forward**\
 `Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
 https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
