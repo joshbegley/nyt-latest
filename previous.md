@@ -1,3 +1,7 @@
+**Marseille president Longoria backtracks on corruption comments**\
+`After Marseille's loss against Auxerre on Saturday, Longoria had said: 'This is corruption. It’s planned, it’s rigged.'`\
+https://nytimes.com/athletic/6156181/2025/02/24/marseille-referees-longoria-ligue-1/
+
 **Massive Trial Opens for French Doctor Accused of Abusing Hundreds**\
 `A former surgeon is accused of raping or sexually assaulting 299 people, mostly children, over 25 years. It is considered to be the country’s largest-ever pedophilia case.`\
 https://nytimes.com/2025/02/24/world/europe/france-surgeon-trial-patient-abuse-le-scouarnec.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151502/2025/02/24/cleveland-guardians-starting-pit
 **Four Chargers questions we'll be looking to answer at the NFL combine**\
 `In the second year of the Jim Harbaugh-Joe Hortiz regime, the Chargers have ample cap space and plenty of options at their disposal. `\
 https://nytimes.com/athletic/6147747/2025/02/24/chargers-nfl-combine-questions/
-
-**Everything to know about the 2025 NFL Scouting Combine: Schedule, drills**\
-`Find out what days position groups will work out, the different drills that will be done and more about the annual event in Indianapolis.`\
-https://nytimes.com/athletic/6147017/2025/02/24/nfl-2025-combine-schedule-tests-drills/
 
