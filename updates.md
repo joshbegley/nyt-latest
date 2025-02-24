@@ -1,3 +1,11 @@
+**Hurzeler says Brighton 'needed to adapt' defensive approach**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler consulted with his players to change the way his side defend.`\
+https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hurzeler/
+
+**Word of the Day: enunciation**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/24/learning/word-of-the-day-enunciation.html
+
 **Graft and fight: What this image tells us about Szoboszlai and Slot's Liverpool**\
 `Szoboszlai played a key role as Liverpool beat Manchester City at the Etihad Stadium on Sunday`\
 https://nytimes.com/athletic/6155131/2025/02/24/liverpool-dominik-szoboszlai-manchester-city/
