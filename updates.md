@@ -1,3 +1,11 @@
+**Is Andrei Kuzmenko trade bait, or could he be a longer-term fit for Flyers?**\
+`Kuzmenko is in the final season of a two-year, $11 million deal that also has a modified 12-team no-trade clause.`\
+https://nytimes.com/athletic/6157225/2025/02/24/kuzmenko-flyers-trade-contract/
+
+**How long should teams wait to draft a quarterback this year?**\
+`On "The Athletic Football Show," a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
+https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
+
 **How long should teams wait to draft a quarterback this year?**\
 `On The Athletic Football Show, a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
 https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
