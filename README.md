@@ -1,3 +1,7 @@
+**Federal Judge Bars Elon Musk’s Team From Student Loan Databases**\
+`The American Federation of Teachers, a union representing more than 1.8 million educators, had sued to keep members of Mr. Musk’s government efficiency team out of the Education Department’s systems.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-doge-department-of-education-data-ban.html
+
 **UEFA's Ceferin: '99 per cent of people' satisfied with new CL format**\
 `The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
 https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
@@ -33,8 +37,4 @@ https://nytimes.com/video/well/100000009990030/bird-flu-is-spreading-are-eggs-sa
 **Angels' Cole Fontenelle works to move on mentally and physically from 'horrible injury'**\
 `Fontenelle was on a fast track to the majors before he dislocated his ankle and fractured his fibula on May 4, 2024.`\
 https://nytimes.com/athletic/6155150/2025/02/24/angels-cole-fontenelle-injury/
-
-**The Athletic college baseball Top 25: SEC teams claim top five spots**\
-`Virginia dropped 11 spots after losing two games at the Karbach Round Rock Classic. Oklahoma, which beat UVA on Sunday, checks in at No. 23.`\
-https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
 

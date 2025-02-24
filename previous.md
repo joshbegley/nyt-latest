@@ -1,3 +1,7 @@
+**UEFA's Ceferin: '99 per cent of people' satisfied with new CL format**\
+`The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
+https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
+
 **Four reasons why the Canucks must exercise patience at the trade deadline**\
 `This season has been a significant disappointment. The time has come for the Canucks, as an organization, to look forward.`\
 https://nytimes.com/athletic/6155254/2025/02/24/canucks-nhl-trade-deadline-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155150/2025/02/24/angels-cole-fontenelle-injury/
 **The Athletic college baseball Top 25: SEC teams claim top five spots**\
 `Virginia dropped 11 spots after losing two games at the Karbach Round Rock Classic. Oklahoma, which beat UVA on Sunday, checks in at No. 23.`\
 https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
-
-**A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
-`Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
-https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
 

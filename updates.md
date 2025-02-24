@@ -1,3 +1,7 @@
+**UEFA's Ceferin: '99 per cent of people' satisfied with new CL format**\
+`The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
+https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
+
 **Four reasons why the Canucks must exercise patience at the trade deadline**\
 `This season has been a significant disappointment. The time has come for the Canucks, as an organization, to look forward.`\
 https://nytimes.com/athletic/6155254/2025/02/24/canucks-nhl-trade-deadline-2025/
