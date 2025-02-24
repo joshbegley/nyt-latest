@@ -1,3 +1,11 @@
+**Abdul Carter to work out at Penn State pro day instead of NFL combine: Source**\
+`Carter, The Athletic's No. 2-ranked prospect, is recovering from a shoulder injury he played through in Penn State's Orange Bowl loss.`\
+https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-pro-day/
+
+**What Makes a Good Red-Carpet Host?**\
+`Lilly Singh caught some flak for what online critics called cringey interviews before the Screen Actors Guild Awards ceremony. The job may be tougher than it looks.`\
+https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
+
 **NHL reduces Ryan Hartman's suspension to 8 games — hopes it's a 'wake-up call' for Wild forward**\
 `Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
 https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-fina
 **NIU's non-football programs headed to Horizon League, pending Board of Trustees approval**\
 `NIU recently announced it will join the Mountain West Conference as a football-only member in 2026.`\
 https://nytimes.com/athletic/6157419/2025/02/24/northern-illinois-horizon-league/
-
-**Supreme Court Justices Appear Narrowly Divided Over Death Row Prisoner Plea for DNA Testing**\
-`The justices heard arguments in the case of a man on death row in Texas who claims DNA testing could spare his life.`\
-https://nytimes.com/2025/02/24/us/politics/supreme-court-dna-death-row.html
-
-**Two Members of Privacy Watchdog, Summarily Fired by Trump, File Lawsuit**\
-`The case joins a rising number of legal challenges to President Trump’s firing spree that has violated limits on his power.`\
-https://nytimes.com/2025/02/24/us/politics/trump-privacy-watchdog-firings-lawsuit.html
 
