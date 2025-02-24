@@ -1,3 +1,7 @@
+**What I’m hearing and seeing about the Canadiens nearing the NHL trade deadline**\
+`Montreal is said to be exploring a package deal of Jake Evans and Joel Armia.`\
+https://nytimes.com/athletic/6155854/2025/02/24/montreal-canadiens-nhl-trade-deadline/
+
 **How do you win an NBA title with small guards? Cavs hope it's by 'stockpiling wings'**\
 `To offset 6-foot-1 Darius Garland and 6-3 Donovan Mitchell, Cleveland has added a bevy of rugged defenders on the wing.`\
 https://nytimes.com/athletic/6155784/2025/02/24/cavaliers-wings-nba-title-small-guards/
