@@ -1,3 +1,7 @@
+**Trump Administration Moves More Migrants to Guantánamo Bay**\
+`The base had been cleared of migrants since Thursday, after the government sent 177 to Venezuela and one back to the United States.`\
+https://nytimes.com/2025/02/23/us/politics/trump-migrants-guantanamo-bay.html
+
 **Cardinals camp: 3 storylines to watch as Grapefruit League play begins**\
 `Shortstop prospect JJ Wetherholt delivered the Cardinals' first homer of spring as the fight for jobs is underway.  `\
 https://nytimes.com/athletic/6152977/2025/02/23/cardinals-lineups-jj-wetherholt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
 **At Least 3 Dead After Boat Capsizes Near Staten Island, Officials Say**\
 `Officials said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
 https://nytimes.com/2025/02/23/nyregion/staten-island-overturned-boat.html
-
-**Yankees will no longer play Frank Sinatra's 'New York, New York' after losses**\
-`The Yankees played Sinatra’s "That's Life" instead of the usual "New York, New York" on the loudspeakers after Sunday's 4-0 defeat.`\
-https://nytimes.com/athletic/6155176/2025/02/23/yankees-frank-sinatra-new-york-new-york/
 

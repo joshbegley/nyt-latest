@@ -1,3 +1,7 @@
+**At Least 3 Dead After Boat Capsizes Near Staten Island, Officials Say**\
+`Officials said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
+https://nytimes.com/2025/02/23/nyregion/staten-island-overturned-boat.html
+
 **Brian Campbell stuns with his first win on PGA Tour: 'I'm freaking out'**\
 `The light-hitting veteran defeated 20-year-old prodigy Aldrich Potgieter in sudden-death playoff at Mexican Open.`\
 https://nytimes.com/athletic/6155384/2025/02/23/brian-campbell-stuns-with-mexican-open-win/
