@@ -1,3 +1,15 @@
+**Watch: Whose season has been worse — Suns or Sixers?**\
+`Our NBA Daily crew discusses two of the NBA's bigger disappointments this season.`\
+https://nytimes.com/athletic/6156810/2025/02/24/nba-daily-sixers-suns-worst-season/
+
+**Protesters Display Upside-Down American Flag at Yosemite**\
+`Organizers said the inverted flag, historically used as a sign of distress, was meant to draw attention to the Trump administration’s cuts to the National Park Service.`\
+https://nytimes.com/2025/02/24/us/yosemite-upside-down-flag-protest.html
+
+**Ukraine Nears a Deal to Give U.S. a Share of Its Mineral Wealth**\
+`President Trump said that Ukraine’s president may soon visit the White House to sign a deal, though how it ties in to efforts to end the Russian invasion and guarantee Ukraine’s security is unclear.`\
+https://nytimes.com/2025/02/24/world/europe/ukraine-us-mineral-wealth-deal.html
+
 **Ukraine Nears a Deal to Give U.S. a Share of Its Mineral Wealth**\
 `President Trump said that Ukraine’s president may soon visit the White House to sign a deal, though how it ties in to efforts to end the Russian invasion and guarantee Ukraine’s security is unclear.`\
 https://nytimes.com/live/2025/02/24/us/trump-musk-news/ukraine-us-mineral-wealth-deal
