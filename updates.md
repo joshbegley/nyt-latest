@@ -1,3 +1,11 @@
+**Roberta Flack, ‘Killing Me Softly’ Singer, Dies at 88**\
+`As a Grammy Award-winning singer and pianist, Roberta Flack topped the charts as one of the most popular artists of the 1970s.`\
+https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.html
+
+**Tracking Tropical Cyclone Alfred**\
+`See the likely path and wind arrival times for Alfred.`\
+https://nytimes.com/interactive/2025/02/24/world/australia/alfred-map-path-tracker.html
+
 **A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
 `Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
 https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
