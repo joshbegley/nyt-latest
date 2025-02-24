@@ -1,3 +1,7 @@
+**Graft and fight: What this image tells us about Szoboszlai and Slot's Liverpool**\
+`Szoboszlai played a key role as Liverpool beat Manchester City at the Etihad Stadium on Sunday`\
+https://nytimes.com/athletic/6155131/2025/02/24/liverpool-dominik-szoboszlai-manchester-city/
+
 **Embracing Darkness on the Isle of Rum**\
 `Europe’s newest dark-sky sanctuary is a wild Scottish island with 40 residents and celestial lighting.`\
 https://nytimes.com/2025/02/24/science/astronomy-dark-sky-rum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148264/2025/02/24/brighton-possession-hurzeler-coa
 **Lacroix, Andersen and a transfer blueprint for Crystal Palace**\
 `Allowing the Dane to leave and signing Lacroix to replace him was a risk - but it has paid off handsomely`\
 https://nytimes.com/athletic/6143866/2025/02/24/maxence-lacroix-joachim-andersen-crystal-palace/
-
-**It was the best of Newcastle, it was the worst of Newcastle: A tale of two sides**\
-`Eddie Howe's team are suffering inconsistency between games and inconsistency during games`\
-https://nytimes.com/athletic/6153903/2025/02/24/it-was-the-best-of-newcastle-it-was-the-worst-of-newcastle-a-tale-of-two-sides/
 

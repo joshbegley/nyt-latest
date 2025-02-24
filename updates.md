@@ -1,3 +1,7 @@
+**Graft and fight: What this image tells us about Szoboszlai and Slot's Liverpool**\
+`Szoboszlai played a key role as Liverpool beat Manchester City at the Etihad Stadium on Sunday`\
+https://nytimes.com/athletic/6155131/2025/02/24/liverpool-dominik-szoboszlai-manchester-city/
+
 **Embracing Darkness on the Isle of Rum**\
 `Europe’s newest dark-sky sanctuary is a wild Scottish island with 40 residents and celestial lighting.`\
 https://nytimes.com/2025/02/24/science/astronomy-dark-sky-rum.html
