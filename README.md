@@ -1,3 +1,11 @@
+**With Jimmy Butler, Warriors are thriving in the minutes when Steph Curry rests**\
+`Before the Butler trade the Warriors were a cumulative minus-90 without Curry in 51 games. Since the trade it's plus-30 in six games.`\
+https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
+
+**‘The White Lotus’ Season 3, Episode 2 Recap: Who Was That Masked Man?**\
+`There are no answers this week — or even hints — to the identity of the dead body in the season premiere, but we do see a robbery.`\
+https://nytimes.com/2025/02/23/arts/television/the-white-lotus-season-3-episode-2-recap.html
+
 **Quotation of the Day: Catholics Around the Globe Pray for Francis at Sunday Mass**\
 `Quotation of the Day for Monday, February 24, 2025.`\
 https://nytimes.com/2025/02/23/pageoneplus/quotation-of-the-day-catholics-around-the-globe-pray-for-francis-at-sunday-mass.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/podcasts/ten-things-i-dont-want-to-hate-about-you
 **Trump Administration Moves More Migrants to Guantánamo Bay**\
 `The base had been cleared of migrants since Thursday, after the government sent 177 to Venezuela and one back to the United States.`\
 https://nytimes.com/2025/02/23/us/politics/trump-migrants-guantanamo-bay.html
-
-**Cardinals camp: 3 storylines to watch as Grapefruit League play begins**\
-`Shortstop prospect JJ Wetherholt delivered the Cardinals' first homer of spring as the fight for jobs is underway.  `\
-https://nytimes.com/athletic/6152977/2025/02/23/cardinals-lineups-jj-wetherholt/
-
-**Igor Shesterkin saves Rangers from disastrous second period, Chris Kreider hurt: Takeaways**\
-`The Penguins dominated play in the second period, but the Rangers pulled it together to score three unanswered goals.`\
-https://nytimes.com/athletic/6155363/2025/02/23/rangers-shesterkin-bounce-back-kreider-penguins/
 
