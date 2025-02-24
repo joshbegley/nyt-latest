@@ -1,3 +1,7 @@
+**JJ Redick says Luka Dončić's first game vs. Mavericks will be 'weird'**\
+`Dončić is averaging 19.0 points, 7.5 rebounds, 5.8 assists and 1.5 steals per game in his four games as a Laker.`\
+https://nytimes.com/athletic/6157422/2025/02/24/luka-doncic-lakers-mavericks-matchup-comments/
+
 **Full Time: USWNT one win from a trophy**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-final-full-time/

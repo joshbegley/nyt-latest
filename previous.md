@@ -1,3 +1,7 @@
+**JJ Redick says Luka Dončić's first game vs. Mavericks will be 'weird'**\
+`Dončić is averaging 19.0 points, 7.5 rebounds, 5.8 assists and 1.5 steals per game in his four games as a Laker.`\
+https://nytimes.com/athletic/6157422/2025/02/24/luka-doncic-lakers-mavericks-matchup-comments/
+
 **Full Time: USWNT one win from a trophy**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-final-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/yosemite-upside-down-flag-protest.html
 **Utah fires basketball coach Craig Smith after nearly 4 seasons**\
 `The Utes were just 65-62 under Smith across nearly four seasons, with no appearances in the NCAA Tournament.`\
 https://nytimes.com/athletic/6157223/2025/02/24/utah-craig-smith-fired/
-
-**If Braves' pen is to remain elite, some pitchers will likely need to up their games**\
-`The Braves didn’t spend for any of the top available set-up men during the offseason, but team officials have confidence in this group.`\
-https://nytimes.com/athletic/6157279/2025/02/24/braves-bullpen-pierce-johnson-aaron-bummer/
 
