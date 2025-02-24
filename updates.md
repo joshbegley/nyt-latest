@@ -1,3 +1,7 @@
+**Saying ‘No’ to Musk**\
+`Some cabinet officials are showing a glimmer of willingness to check the billionaire’s power.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-trump-washington.html
+
 **Crypto Firm Pleads Guilty to Operating Illegally in U.S.**\
 `Federal prosecutors said OKX, based in Seychelles, violated anti-money laundering laws for years. The company agreed to pay more than $500 million in fines and penalties.`\
 https://nytimes.com/2025/02/24/business/okx-crypto-exchange-guilty-plea.html
