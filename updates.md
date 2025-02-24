@@ -1,3 +1,11 @@
+**NBA Rewind: Luka Dončić takes on the Mavericks, and the Spurs face big questions**\
+`Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
+https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
+
+**Warren raises concerns about DOGE’s ability to access sensitive commerce data.**\
+`By Madeleine Ngo and Ana Swanson`\
+https://nytimes.com/live/2025/02/24/us/trump-news/warren-raises-concerns-about-doges-ability-to-access-sensitive-commerce-data
+
 **Should the Blues try to capitalize on Binnington's 4 Nations success with a trade?**\
 `With Binnington's performance for Team Canada earning plenty of plaudits, the Blues must decide if winning now or later is more important.`\
 https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nations-trade-options/

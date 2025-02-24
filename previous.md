@@ -1,3 +1,11 @@
+**NBA Rewind: Luka Dončić takes on the Mavericks, and the Spurs face big questions**\
+`Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
+https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
+
+**Warren raises concerns about DOGE’s ability to access sensitive commerce data.**\
+`By Madeleine Ngo and Ana Swanson`\
+https://nytimes.com/live/2025/02/24/us/trump-news/warren-raises-concerns-about-doges-ability-to-access-sensitive-commerce-data
+
 **Should the Blues try to capitalize on Binnington's 4 Nations success with a trade?**\
 `With Binnington's performance for Team Canada earning plenty of plaudits, the Blues must decide if winning now or later is more important.`\
 https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nations-trade-options/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990189/2025/02/24/daniel-jebbison-canada-england-j
 **Cubs hope top pitching prospect Cade Horton can bounce back from injury-marred 2024**\
 `Horton, a former college quarterback, is leaning into his athleticism as he works toward making his MLB debut.`\
 https://nytimes.com/athletic/6155096/2025/02/24/cubs-prospect-cade-horton/
-
-**Takeaways from Padres camp: Dylan Cease's new pitches, position battles and more**\
-`A long winter is in the rearview and the Padres have begun Cactus League play. A month from Opening Day, here are four takeaways from camp.`\
-https://nytimes.com/athletic/6152529/2025/02/24/padres-takeaways-spring-training/
-
-**SEC coaches hot-seat rankings for 2025-26 season**\
-`Which coach is in the most precarious position — and who seems the safest — here's a ranking, going from the hottest seat to the coolest.`\
-https://nytimes.com/athletic/6146590/2025/02/24/sec-football-coaches-trouble-ranking-firing/
 
