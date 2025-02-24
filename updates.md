@@ -1,3 +1,11 @@
+**F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
+`The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
+https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
+
+**Cody Zeller not expected to play for Rockets this season: Sources**\
+`The veteran big man has not played since the end of the 2023-24 regular season. `\
+https://nytimes.com/athletic/6156707/2025/02/24/cody-zeller-rockets-contract-status/
+
 **British Couple Arrested by Taliban in Afghanistan, Family Says**\
 `Peter and Barbie Reynolds were arrested on Feb. 1, their children told U.K. news outlets. The couple had run an education company in Afghanistan for almost two decades.`\
 https://nytimes.com/2025/02/24/world/europe/reynolds-couple-arrested-afghanistan.html
