@@ -22,7 +22,7 @@ https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
 `He headed U.S. embassies around the world and relished the role, bringing a gregarious style to promoting American interests. But he clashed with the Obama White House.`\
 https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html
 
-**NBA Rewind: Luka Dončić takes on the Mavericks, and the Spurs face big questions**\
+**NBA Rewind: NBA Rewind: Luka Dončić resembles old self at the right time**\
 `Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
 https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
 
