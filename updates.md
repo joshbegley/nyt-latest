@@ -1,3 +1,7 @@
+**Trial Opens for French Doctor Accused of Abusing Hundreds**\
+`A former surgeon is accused of raping or sexually assaulting 299 people, mostly children, over 25 years. It is considered to be the country’s largest-ever pedophilia case.`\
+https://nytimes.com/2025/02/24/world/europe/france-surgeon-trial-patient-abuse-le-scouarnec.html
+
 **Marseille president Longoria backtracks on corruption comments**\
 `After Marseille's loss against Auxerre on Saturday, Longoria had said: 'This is corruption. It’s planned, it’s rigged.'`\
 https://nytimes.com/athletic/6156181/2025/02/24/marseille-referees-longoria-ligue-1/
