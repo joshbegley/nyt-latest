@@ -1,3 +1,7 @@
+**MLS 2025 kits put on display at Atlanta diner fashion show**\
+`The intersection of MLS and fashion has taken the league's kits to some unusual places.`\
+https://nytimes.com/athletic/6156795/2025/02/24/mls-2025-kits-fashion-show-atlanta-diner/
+
 **JJ Redick says Luka Dončić's first game vs. Mavericks will be 'weird'**\
 `Dončić is averaging 19.0 points, 7.5 rebounds, 5.8 assists and 1.5 steals per game in his four games as a Laker.`\
 https://nytimes.com/athletic/6157422/2025/02/24/luka-doncic-lakers-mavericks-matchup-comments/
