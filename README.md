@@ -1,3 +1,7 @@
+**The Athletic FC: What's left to play for in Premier League? Messi taunted, Neymar's olimpico**\
+`Today in TAFC: What is left to play for in the Premier League? MLS kicks off with some taunting of Messi, Neymar score incredible olimpico.`\
+https://nytimes.com/athletic/6155917/2025/02/24/liverpool-city-title-race-messi-neymar-olimpico/
+
 **Have 49ers begun talks with Brock Purdy? Ten questions ahead of NFL combine**\
 `The 49ers will head to the NFL combine with plenty on their to-do list, including meeting the agents of their soon-to-be free agents.`\
 https://nytimes.com/athletic/6151705/2025/02/24/49ers-nfl-combine-brock-purdy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155098/2025/02/24/knicks-film-breakdown-defense-nb
 **Observations from Red Sox camp as Grapefruit League play gets underway**\
 `Thoughts on the first two weeks of camp, including Alex Bregman's defensive work, Kristian Campbell's progress and much more.`\
 https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-observations/
-
-**This Week in Mets: Why Vladimir Guerrero Jr. doesn't look like a fit for the Mets**\
-`Steve Cohen has spent plenty of time emphasizing that the Mets will eventually need to develop more talent internally.`\
-https://nytimes.com/athletic/6155689/2025/02/24/mets-vladimir-guerrero-juan-soto/
 

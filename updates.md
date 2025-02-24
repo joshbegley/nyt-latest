@@ -1,3 +1,7 @@
+**This Week in Mets: Why Vladimir Guerrero Jr. doesn't look like a fit for the Mets**\
+`Steve Cohen has spent plenty of time emphasizing that the Mets will eventually need to develop more talent internally.`\
+https://nytimes.com/athletic/6155689/2025/02/24/mets-vladimir-guerrero-juan-soto/
+
 **Have 49ers begun talks with Brock Purdy? Ten questions ahead of NFL combine**\
 `The 49ers will head to the NFL combine with plenty on their to-do list, including meeting the agents of their soon-to-be free agents.`\
 https://nytimes.com/athletic/6151705/2025/02/24/49ers-nfl-combine-brock-purdy/

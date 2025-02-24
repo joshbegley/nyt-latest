@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6155098/2025/02/24/knicks-film-breakdown-defense-nb
 `Thoughts on the first two weeks of camp, including Alex Bregman's defensive work, Kristian Campbell's progress and much more.`\
 https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-observations/
 
-**The Babe Ruth of bunting is helping the Reds lay down the lumber**\
-`Reds players are excited to work with Brett Butler, who put down 245 bunt singles during his 17-year big-league career.`\
-https://nytimes.com/athletic/6155303/2025/02/24/reds-bunting-brett-butler/
+**This Week in Mets: Why Vladimir Guerrero Jr. doesn't look like a fit for the Mets**\
+`Steve Cohen has spent plenty of time emphasizing that the Mets will eventually need to develop more talent internally.`\
+https://nytimes.com/athletic/6155689/2025/02/24/mets-vladimir-guerrero-juan-soto/
 
