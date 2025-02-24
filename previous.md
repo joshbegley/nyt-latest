@@ -1,3 +1,7 @@
+**Green Bay Packers propose 'tush push' ban: Sources**\
+`Hurts led all NFL QBs with 14 rushing touchdowns with 13 of those coming in goal to go situations, according to TruMedia.`\
+https://nytimes.com/athletic/6157243/2025/02/24/green-bay-packers-tush-push-ban/
+
 **Roberta Flack, ‘Killing Me Softly’ Singer, Dies at 88**\
 `As a Grammy Award-winning singer and pianist, Roberta Flack topped the charts as one of the most popular artists of the 1970s.`\
 https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.html
@@ -7,7 +11,7 @@ https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.
 https://nytimes.com/interactive/2025/02/24/world/australia/alfred-map-path-tracker.html
 
 **Rams, Stafford should get more clarity in agent talks at NFL combine**\
-`The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved`\
+`The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved.`\
 https://nytimes.com/athletic/6157057/2025/02/24/rams-matthew-stafford-contract-situation-combine/
 
 **Nikola Jović's broken hand adds new blow to tough Heat season. 'I really feel for Niko'**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/24/us/delta-atlanta-flight-haze.html
 **DeSantis Talks Up Wife as Potential Successor, Clashing With Trump**\
 `Far from tamping down chatter that Casey DeSantis could run for governor of Florida, Gov. Ron DeSantis praised her popularity and “intestinal fortitude.”`\
 https://nytimes.com/2025/02/24/us/ron-desantis-casey-desantis-governor-florida.html
-
-**Judge Blocks Immigration Raids in Certain Places of Worship**\
-`Religious organizations are challenging a Trump administration policy that allows ICE to conduct operations in sensitive locations. The judge declined to pause the policy more broadly.`\
-https://nytimes.com/2025/02/24/us/politics/immigration-ice-raids-blocked-religious-locations.html
 
