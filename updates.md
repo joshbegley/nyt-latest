@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Nick Robertson, fourth line flourish against Blackhawks**\
+`Robertson scored twice in the second period to lead the Leafs to a comfortable road win over Chicago.`\
+https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-robertson-domi-blackhawks/
+
 **Maple Leafs report cards: Robertson, fourth line flourish against Blackhawks**\
 `Nick Robertson scored twice in the second period to lead the Leafs to a comfortable road win over Chicago.`\
 https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-robertson-domi-blackhawks/
