@@ -1,3 +1,15 @@
+**Francis Is in Critical Condition. What Happens When a Pope Dies?**\
+`Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
+https://nytimes.com/article/francis-what-happens-when-pope-dies.html
+
+**Liverpool's strikerless '4-2-4-0' system shows you don't need a No 9 to win Premier League**\
+`Liverpool played without a striker at the Etihad Stadium on Sunday but managed to win the game and move 11 clear at the top of the league`\
+https://nytimes.com/athletic/6155947/2025/02/24/liverpool-manchester-city-analysis-arne-slot/
+
+**USMNT Player Tracker: Sargent eases Pochettino concerns, Richards steps up, praise for Adams**\
+`Our weekly round-up of the Europe-based U.S. contingent's weekend contributions also includes Weston McKennie getting back to winning ways`\
+https://nytimes.com/athletic/6156282/2025/02/24/usmnt-sargent-adams-reyna-richards/
+
 **Oh, This Old, Tattered, Moth-Eaten Thing?**\
 `So-called thrashed clothes — garments resembling something closer to rags — are coveted by vintage fanatics.`\
 https://nytimes.com/2025/02/24/style/thrashed-distressed-vintage-clothing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/24/arts/music/michael-tilson-thomas-brain-cancer.htm
 **Farmers Sue Over Deletion of Climate Data From Government Websites**\
 `The data, which disappeared from Agriculture Department sites in recent weeks, was useful to farmers for business planning, the lawsuit said.`\
 https://nytimes.com/2025/02/24/climate/agriculture-farmer-website-data-lawsuit.html
-
-**Who Is Friedrich Merz, Germany’s Likely New Chancellor?**\
-`After an election dominated by immigration and economic issues, Germany’s likely new chancellor is Friedrich Merz, the leader of the conservative Christian Democrats. His party finished first with just under 29 percent of the vote and will need to form a coalition government.`\
-https://nytimes.com/video/world/europe/100000009999139/who-is-friedrich-merz-germany.html
-
-**Chefs Are Pushing the Boundaries of What Can Crab Rangoon**\
-`The Chinese American restaurant staple is so beloved among American chefs that it’s appearing in bagels, on pizza and even in doughnuts.`\
-https://nytimes.com/2025/02/24/dining/crab-rangoon.html
-
-**The Windup: Yankees enter their beard era**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6156422/2025/02/24/yankees-beards-devin-williams-the-windup/
 
