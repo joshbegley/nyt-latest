@@ -1,3 +1,15 @@
+**Nottingham Forest's identity crisis - and how they can rediscover their best qualities**\
+`Nuno's side could still achieve something remarkable but will need to rediscover their resolve that has been missing`\
+https://nytimes.com/athletic/6154624/2025/02/24/nottingham-forest-newcastle-identity-crisis/
+
+**From unnecessary to irreplaceable: How Vitor Pereira turned Andre into Wolves' key player**\
+`With a guttural roar against Bournemouth, Andre summed up the spirit of a rejuvenated Wolverhampton Wanderers  `\
+https://nytimes.com/athletic/6154022/2025/02/24/andre-wolverhampton-wanderers-bournemouth-win-recap/
+
+**Why Brighton do better when they have less of the ball**\
+`The transformation in results without dominating possession bodes well for a tough run of games for Hurzeler's side`\
+https://nytimes.com/athletic/6148264/2025/02/24/brighton-possession-hurzeler-coaching/
+
 **Lacroix, Andersen and a transfer blueprint for Crystal Palace**\
 `Allowing the Dane to leave and signing Lacroix to replace him was a risk - but it has paid off handsomely`\
 https://nytimes.com/athletic/6143866/2025/02/24/maxence-lacroix-joachim-andersen-crystal-palace/
