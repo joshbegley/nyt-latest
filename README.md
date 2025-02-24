@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
 `Marchand still believes in what the Bruins can accomplish: "We haven’t played our best yet. When we do, we can play with any team."`\
 https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadline-candidate/
 
-**Trump, Meeting With French President, Says He Might Visit Russia**\
+**The French president is visiting as the U.S. sidelines Europe in Ukraine peace talks.**\
 `The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
 https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
 
