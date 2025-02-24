@@ -1,7 +1,3 @@
-**AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
-`Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
-https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
-
 **‘I’ve always planned on playing here my entire career’: Brad Marchand is not up for a trade**\
 `Marchand still believes in what the Bruins can accomplish: "We haven’t played our best yet. When we do, we can play with any team."`\
 https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadline-candidate/
@@ -14,7 +10,7 @@ https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
 `The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
 https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
 
-**-Shelter at Roosevelt Hotel Will Close a N.Y.C. Migrant Crisis Eases**\
+**Shelter at Roosevelt Hotel Will Close a N.Y.C. Migrant Crisis Eases**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
 
