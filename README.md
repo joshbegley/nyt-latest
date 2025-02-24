@@ -1,40 +1,40 @@
-**5 Photos Show How the Ukraine War Changed**\
-`On the third anniversary of Russia’s invasion of Ukraine, Tyler Hicks, a war photographer for The New York Times, looks back at five photos he took during the conflict and reflects on how the rules of engagement have changed, affecting what he can document and what the world can witness.`\
-https://nytimes.com/video/world/europe/100000009987270/photos-show-ukraine-war.html
+**Will the Panthers focus on defense? 8 storylines we'll be watching at the combine**\
+`Is it defense or bust this year? Would the Panthers consider trading back? Is Jalon Walker a top-10 pick?`\
+https://nytimes.com/athletic/6151550/2025/02/24/carolina-panthers-nfl-combine-draft-free-agency-storylines/
 
-**Can Supplements Actually Boost Your Immune System?**\
-`We asked experts about whether they have real benefits.`\
-https://nytimes.com/2025/02/24/well/do-immune-boosting-supplements-work.html
+**Rams' top 8 free agents: Left tackle, cornerback emerge as positions of need**\
+`How important is Jimmy Garoppolo for the Rams? Left tackle Alaric Jackson is certain to get looks from other teams.`\
+https://nytimes.com/athletic/6142468/2025/02/24/rams-top-free-agents-alaric-jackson-jimmy-garoppolo/
 
-**Your Resort’s ‘Perfect’ Beach Is a Lie**\
-`White sand, coconut palms, a gently sloping strand? That idea of tropical paradise is often manufactured. Resorts around the world are now embracing beaches in their more natural states.`\
-https://nytimes.com/2025/02/24/travel/beach-resorts-design.html
+**The Singular Charm of Parker Posey**\
+`For years, the "indie queen” has had trouble finding satisfying work in Hollywood’s shifting landscape. Then, along came “The White Lotus.”`\
+https://nytimes.com/2025/02/24/magazine/parker-posey-white-lotus.html
 
-**What’s Your Exercise Routine?**\
-`What can you learn about fitness from four cultures that make it a part of daily life?`\
-https://nytimes.com/2025/02/24/learning/whats-your-exercise-routine.html
+**Falcons mailbag: Is the GM on the hot seat? Was Kirk Cousins hurt or not?**\
+`Falcons GM Terry Fontenot and coach Raheem Morris will be in Indianapolis this week for the NFL combine as they look to improve the roster.`\
+https://nytimes.com/athletic/6148912/2025/02/24/falcons-mailbag-terry-fontenot-kirk-cousins/
 
-**Dr. Oz: How His Millions Collide With Medicare**\
-`The TV celebrity and Trump nominee has pledged to divest from most of his financial interests. But they touch nearly every corner of health care, from insurance to blood pressure cuffs and vitamins, leading experts and lawmakers to doubt he could make impartial decisions.`\
-https://nytimes.com/2025/02/24/health/dr-oz-medicare-finances-conflicts.html
+**Patriots mailbag: If Tee Higgins stays with the Bengals, what do Pats do at WR?**\
+`We check the mailbag and answer your Patriots-related questions as the NFL combine kicks off this week.`\
+https://nytimes.com/athletic/6146144/2025/02/24/patriots-wide-receiver-tee-higgins-mailbag/
 
-**100 Years Ago Recording Studios Got a New Tool: Microphones**\
-`On Feb. 25, 1925, Art Gillham’s session made history. The technology changed who was heard in recordings, how artists approach their music and how we hear it.`\
-https://nytimes.com/2025/02/24/arts/music/100th-anniversary-microphone-recording.html
+**Hawaii Man Wrongfully Convicted of Murder Is Freed After 30 Years**\
+`Gordon Cordeiro, 51, who was serving a life sentence for a 1994 murder on Maui, was released on Friday after DNA evidence was presented in his case.`\
+https://nytimes.com/2025/02/24/us/hawaii-gordon-cordeiro-wrongful-conviction.html
 
-**How to Fix Retirement Insecurity**\
-`Americans need to pay more attention to making sure the money they’ve saved will last through retirement.`\
-https://nytimes.com/2025/02/24/opinion/how-to-fix-retirement-insecurity.html
+**America Has a Rogue President**\
+`The firing of three judge advocate generals is one more element of this administration’s attack on the rule of law.`\
+https://nytimes.com/2025/02/24/opinion/trump-hegseth-cq-brown-pentagon-firings-jag.html
 
-**Human Therapists Prepare for Battle Against A.I. Pretenders**\
-`Chatbots posing as therapists may encourage users to commit harmful acts, the nation’s largest psychological organization warned federal regulators.`\
-https://nytimes.com/2025/02/24/health/ai-therapists-chatbots.html
+**An Important Judicial Tool Mysteriously Goes Missing at the Supreme Court**\
+`The justices have all but stopped issuing summary reversals, which are unsigned decisions used to correct clear errors by lower courts.`\
+https://nytimes.com/2025/02/24/us/supreme-court-summary-reversals.html
 
-**Curtis Sittenfeld’s New Stories Revel in Life’s Delicious Mess**\
-`Her story collection is about the thorny conundrums of being alive.`\
-https://nytimes.com/2025/02/24/books/review/show-dont-tell-curtis-sittenfeld.html
+**Corporate America Is Not Raring to Return to Russia if Trump Lifts Sanctions**\
+`The White House promised “incredible opportunities” if Moscow ended the war in Ukraine. But Russia’s economy is struggling and the business environment is unpredictable.`\
+https://nytimes.com/2025/02/24/business/trump-russia-ukraine-invest.html
 
-**How Can I Lower My Climate Risk When Buying a House?**\
-`The danger from extreme weather is growing, and so are insurance costs. Here’s what to know.`\
-https://nytimes.com/2025/02/24/climate/climate-change-home-buying.html
+**Met Museum Returning Ancient Bronze Thought Stolen from Greek Museum**\
+`The head of a griffin from 7th century B.C. is believed to have been taken from a museum in Olympia in the 1930s and later sold on the art market.`\
+https://nytimes.com/2025/02/24/arts/design/met-museum-return-greek-griffin-head.html
 
