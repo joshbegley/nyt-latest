@@ -1,3 +1,7 @@
+**The Trump administration further cracks down on Iranian oil sales.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/02/24/us/trump-musk-news/the-trump-administration-further-cracks-down-on-iranian-oil-sales
+
 **1 Person Is Still Missing After Boat Capsizes Off the Coast of Queens**\
 `Rescue crews were still searching for a man after a small boat overturned in the Ambrose Channel on Sunday. At least three of the six people aboard died and two remained hospitalized, officials said.`\
 https://nytimes.com/2025/02/24/nyregion/nyc-boat-capsizes-staten-island.html
