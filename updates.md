@@ -1,3 +1,15 @@
+**Trump and Europe Clashed Over Ukraine**\
+`Also, the virtuoso Roberta Flack died at 88. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flack.html
+
+**Judge Questions Constitutionality of Musk’s Cost-Cutting Operation**\
+`The judge expressed concern over the unresolved issues about who is in charge of Elon Musk’s so-called Department of Government Efficiency, if it is not Mr. Musk, as the White House has claimed.`\
+https://nytimes.com/2025/02/24/us/politics/doge-elon-musk-lawsuits.html
+
+**NHL reduces Ryan Hartman's suspension to 8 games, hopes it's a 'wake-up call' for Wild forward**\
+`Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
+https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
+
 **Judge Declines to Intervene in Associated Press Lawsuit Over Trump Access**\
 `The wire service had sued Trump administration officials after they restricted reporters from press events citing The A.P.’s references to the Gulf of Mexico in articles.`\
 https://nytimes.com/2025/02/24/us/politics/trump-ap-lawsuit-gulf-of-mexico.html
