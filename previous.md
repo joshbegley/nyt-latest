@@ -1,3 +1,7 @@
+**Ten Things I Don’t Want To Hate About You**\
+`A father and son try to mend a rift between them in a very unusual way.`\
+https://nytimes.com/2025/02/23/podcasts/ten-things-i-dont-want-to-hate-about-you-this-american-life-nyt-audio.html
+
 **Trump Administration Moves More Migrants to Guantánamo Bay**\
 `The base had been cleared of migrants since Thursday, after the government sent 177 to Venezuela and one back to the United States.`\
 https://nytimes.com/2025/02/23/us/politics/trump-migrants-guantanamo-bay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/us/politics/trump-usaid-employees-firing.html
 **Shedeur Sanders won't work out at NFL combine: Reports**\
 `Colorado star is widely considered a top two quarterback in the 2025 NFL Draft class with Miami’s Cam Ward.`\
 https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
-
-**At Least 3 Dead After Boat Capsizes Near Staten Island, Officials Say**\
-`Officials said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
-https://nytimes.com/2025/02/23/nyregion/staten-island-overturned-boat.html
 
