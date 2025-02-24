@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Closing the book on a memorable 4 Nations Face-Off**\
+`With only two days' worth of NHL action to review, the aftermath of the 4 Nations Face-Off offers more food for thought.`\
+https://nytimes.com/athletic/6154941/2025/02/24/nhl-weekend-rankings-4-nations-face-off/
+
 **The Meaning of Germany’s Election**\
 `We examine the role of immigration in the outcome.`\
 https://nytimes.com/2025/02/24/briefing/the-meaning-of-germanys-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151845/2025/02/24/packers-brian-gutekunst-nfl-scou
 **Will Travis Hunter do the unthinkable? NFL players debate if he should play WR, CB or both**\
 `"His ceiling as a CB is a lot more rare than his ceiling as a WR. He would become one of the 1-2-3 most dangerous DBs in the league."`\
 https://nytimes.com/athletic/6144413/2025/02/24/travis-hunter-nfl-draft-wide-receiver-cornerback-colorado/
-
-**Combine Preview: Lions enter 2025 with a new staff and an eye on the trenches**\
-`Colton Pouncy previews where the new-look Lions stand, how to break down a Brad Holmes presser and some prospects to know before April. `\
-https://nytimes.com/athletic/6150231/2025/02/24/detroit-lions-combine-draft-brad-holmes/
 

@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Closing the book on a memorable 4 Nations Face-Off**\
+`With only two days' worth of NHL action to review, the aftermath of the 4 Nations Face-Off offers more food for thought.`\
+https://nytimes.com/athletic/6154941/2025/02/24/nhl-weekend-rankings-4-nations-face-off/
+
 **The Meaning of Germany’s Election**\
 `We examine the role of immigration in the outcome.`\
 https://nytimes.com/2025/02/24/briefing/the-meaning-of-germanys-election.html
