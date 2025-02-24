@@ -1,3 +1,11 @@
+**DeSantis Talks Up Wife as Potential Successor, Clashing With Trump**\
+`Far from tamping down chatter that Casey DeSantis could run for governor of Florida, Gov. Ron DeSantis praised her popularity and “intestinal fortitude.”`\
+https://nytimes.com/2025/02/24/us/ron-desantis-casey-desantis-governor-florida.html
+
+**Judge Blocks Immigration Raids in Certain Places of Worship**\
+`Religious organizations are challenging a Trump administration policy that allows ICE to conduct operations in sensitive locations. The judge declined to pause the policy more broadly.`\
+https://nytimes.com/2025/02/24/us/politics/immigration-ice-raids-blocked-religious-locations.html
+
 **What Germany’s Election Result Means for Its Economy**\
 `The next German government faces calls to loosen borrowing rules, slash energy costs and spur innovation. It won’t be easy.`\
 https://nytimes.com/2025/02/24/business/economy/germany-election-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6156775/2025/02/24/chicago-bulls-mailbag-nba/
 **Federal Personnel Office Tells Agencies That Musk’s Directive Is ‘Voluntary’**\
 `President Trump said employees would be “sort of semi-fired” or fired if they didn’t comply with an Elon Musk order to detail their work. Some agencies told staff members to ignore it. Federal workers said they didn’t know what to do.`\
 https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
-
-**Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
-`The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
-https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
-
-**Broncos assistant Michael Wilhoite arrested on suspicion of assaulting officer**\
-`The Broncos issued a statement saying they were aware of an incident involving assistant coach and were gathering more information.`\
-https://nytimes.com/athletic/6156968/2025/02/24/broncos-michael-wilhoite-coach-arrest/
 

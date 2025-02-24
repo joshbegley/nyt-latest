@@ -1,3 +1,11 @@
+**DeSantis Talks Up Wife as Potential Successor, Clashing With Trump**\
+`Far from tamping down chatter that Casey DeSantis could run for governor of Florida, Gov. Ron DeSantis praised her popularity and “intestinal fortitude.”`\
+https://nytimes.com/2025/02/24/us/ron-desantis-casey-desantis-governor-florida.html
+
+**Judge Blocks Immigration Raids in Certain Places of Worship**\
+`Religious organizations are challenging a Trump administration policy that allows ICE to conduct operations in sensitive locations. The judge declined to pause the policy more broadly.`\
+https://nytimes.com/2025/02/24/us/politics/immigration-ice-raids-blocked-religious-locations.html
+
 **What Germany’s Election Result Means for Its Economy**\
 `The next German government faces calls to loosen borrowing rules, slash energy costs and spur innovation. It won’t be easy.`\
 https://nytimes.com/2025/02/24/business/economy/germany-election-economy.html
