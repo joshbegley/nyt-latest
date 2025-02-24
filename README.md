@@ -1,3 +1,7 @@
+**How do you win an NBA title with small guards? Cavs hope it's by 'stockpiling wings'**\
+`To offset 6-foot-1 Darius Garland and 6-3 Donovan Mitchell, Cleveland has added a bevy of rugged defenders on the wing.`\
+https://nytimes.com/athletic/6155784/2025/02/24/cavaliers-wings-nba-title-small-guards/
+
 **For a Mother and Son, Life Above a Brooklyn Library**\
 `When Miguelina Minier heard that her local library was being renovated with affordable housing added on top, she applied. It was about the 40th time she had tried a housing lottery.`\
 https://nytimes.com/2025/02/24/realestate/renters-sunset-park-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6149430/2025/02/24/wild-trade-deadline-kirill-kapri
 **Ryan O'Reilly? Brock Nelson? Or should the Jets go shopping for chemistry?**\
 `Could the Jets take a big swing at this year's trade deadline? Let's look at past history for clues.`\
 https://nytimes.com/athletic/6132114/2025/02/24/jets-nhl-ryan-oreilly-brock-nelson-trade-deadline/
-
-**‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
-`The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
-https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
 

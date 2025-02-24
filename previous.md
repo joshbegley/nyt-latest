@@ -1,3 +1,7 @@
+**For a Mother and Son, Life Above a Brooklyn Library**\
+`When Miguelina Minier heard that her local library was being renovated with affordable housing added on top, she applied. It was about the 40th time she had tried a housing lottery.`\
+https://nytimes.com/2025/02/24/realestate/renters-sunset-park-brooklyn.html
+
 **Richard Jefferson to join Breen, Burke on ESPN's top NBA broadcast team**\
 `ESPN’s NBA booth has been in flux since the network let longtime analysts Jeff Van Gundy and Mark Jackson go in 2023.`\
 https://nytimes.com/athletic/6156321/2025/02/24/nba-finals-espn-tv-richard-jefferson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6132114/2025/02/24/jets-nhl-ryan-oreilly-brock-nels
 **‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
 `The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
 https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
-
-**Frank G. Wisner, Diplomat With Impact on Foreign Policy, Dies at 86**\
-`He headed U.S. embassies around the world and relished the role, bringing a gregarious style to promoting American interests. But he clashed with the Obama White House.`\
-https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html
 
