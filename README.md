@@ -1,3 +1,7 @@
+**Saying ‘No’ to Musk**\
+`Some cabinet officials are showing a glimmer of willingness to check the billionaire’s power.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-trump-washington.html
+
 **Crypto Firm Pleads Guilty to Operating Illegally in U.S.**\
 `Federal prosecutors said OKX, based in Seychelles, violated anti-money laundering laws for years. The company agreed to pay more than $500 million in fines and penalties.`\
 https://nytimes.com/2025/02/24/business/okx-crypto-exchange-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/trump-ap-lawsuit-gulf-of-mexico.html
 **Abdul Carter to work out at Penn State pro day instead of NFL combine: Source**\
 `Carter, The Athletic's No. 2-ranked prospect, is recovering from a shoulder injury he played through in Penn State's Orange Bowl loss.`\
 https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-pro-day/
-
-**What Makes a Good Red-Carpet Host?**\
-`Lilly Singh caught some flak for what online critics called cringey interviews before the Screen Actors Guild Awards ceremony. The job may be tougher than it looks.`\
-https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
 
