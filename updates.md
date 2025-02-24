@@ -1,3 +1,11 @@
+**Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
+`The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
+https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
+
+**What we're seeing with the Bucks: Kyle Kuzma's versatility, Kevin Porter Jr.'s minutes**\
+`The Bucks have won three consecutive games since the All-Star break and four overall, and Kuzma has played an important part in each.`\
+https://nytimes.com/athletic/6155913/2025/02/24/bucks-kyle-kuzma-kevin-porter-jr/
+
 **Texas claims No. 1 spot in women's AP Top 25**\
 `Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
 https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/

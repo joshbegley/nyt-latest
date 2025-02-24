@@ -1,3 +1,11 @@
+**Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
+`The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
+https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
+
+**What we're seeing with the Bucks: Kyle Kuzma's versatility, Kevin Porter Jr.'s minutes**\
+`The Bucks have won three consecutive games since the All-Star break and four overall, and Kuzma has played an important part in each.`\
+https://nytimes.com/athletic/6155913/2025/02/24/bucks-kyle-kuzma-kevin-porter-jr/
+
 **Texas claims No. 1 spot in women's AP Top 25**\
 `Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
 https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/02/24/arts/music/drake-partynextdoor-some-sexy-songs-4-
 **Why Tensions Are Rising in the West Bank**\
 `Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
 https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html
-
-**U.S. Clashes With European Allies at the U.N. Over Ukraine**\
-`The United States voted against a Ukrainian resolution, backed by most of Europe, demanding Russian withdrawal from Ukraine — a deep fissure between allies, and a sharp shift in American policy.`\
-https://nytimes.com/2025/02/24/world/middleeast/us-eurpe-russia-ukraine-un.html
-
-**Musk Calls to Congratulate Leader of German Hard-Right Party**\
-`The leader of the party said she received the call after the party known as the AfD finished second in national elections, by far the best showing in its history.`\
-https://nytimes.com/2025/02/24/world/europe/musk-afd-weidel-call.html
 
