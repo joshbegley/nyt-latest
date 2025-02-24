@@ -1,3 +1,7 @@
+**Manhattan Hotel Shelter That Became Symbol of Migrant Crisis Will Close**\
+`Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in New York City’s response to the crisis.`\
+https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
+
 **Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
 `The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
 https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
