@@ -1,3 +1,11 @@
+**Cade Cunningham's monster half carries surging Pistons: 'He can do anything'**\
+`Detroit has won six in a row to build a comfortable cushion for the sixth spot in the East.`\
+https://nytimes.com/athletic/6155785/2025/02/24/cade-cunningham-pistons-hawks-nba/
+
+**‘The Left Lives’: How TikTok Helped Liberals Surprise in Germany**\
+`Struggling a month ago, the far-left Die Linke party surged into Parliament by riding a backlash against conservative immigration policy.`\
+https://nytimes.com/2025/02/24/world/europe/germany-election-die-linke.html
+
 **Bird Flu Is Spreading. Are Eggs Safe?**\
 `Is it safe to eat eggs right now? Yes — but Megan Thielking, a Well editor, details a few things to know.`\
 https://nytimes.com/video/well/100000009990030/bird-flu-is-spreading-are-eggs-safe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/realestate/renters-sunset-park-brooklyn.html
 **Richard Jefferson to join Breen, Burke on ESPN's top NBA broadcast team**\
 `ESPN’s NBA booth has been in flux since the network let longtime analysts Jeff Van Gundy and Mark Jackson go in 2023.`\
 https://nytimes.com/athletic/6156321/2025/02/24/nba-finals-espn-tv-richard-jefferson/
-
-**College baseball week in review: Aces emerging at Florida, Wake Forest**\
-`Are Texas A&M's early-season offensive struggles an area of concern? Is UCLA back? Omaha pulls off a stunner. UMES wins!`\
-https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-forest-lsu-tennessee/
-
-**Drake Batherson discusses his recent offensive struggles: 'You just got to turn the page'**\
-`The Senators need Batherson, among other players, to return to form over their next 25 games as they seek a playoff berth.`\
-https://nytimes.com/athletic/6155246/2025/02/24/senators-batherson-goals-offence-nhl/
 
