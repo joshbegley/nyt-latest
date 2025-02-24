@@ -1,3 +1,7 @@
+**The Trump administration further cracks down on Iranian oil sales.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/02/24/us/trump-musk-news/the-trump-administration-further-cracks-down-on-iranian-oil-sales
+
 **1 Person Is Still Missing After Boat Capsizes Off the Coast of Queens**\
 `Rescue crews were still searching for a man after a small boat overturned in the Ambrose Channel on Sunday. At least three of the six people aboard died and two remained hospitalized, officials said.`\
 https://nytimes.com/2025/02/24/nyregion/nyc-boat-capsizes-staten-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combi
 **Joann, 80-Year-Old Crafts and Fabrics Retailer, Will Close All Stores**\
 `The announcement that the chain would close all 800 of its stores in 49 states comes after a period of financial turmoil.`\
 https://nytimes.com/2025/02/24/business/joann-stores-closing.html
-
-**Putin Dangles Rare Earths Deals for U.S. in Russia and Occupied Ukraine**\
-`In an interview broadcast on Monday, President Vladimir Putin said U.S. companies stood to profit in Russia, but suggested a Ukraine peace deal was still far-off.`\
-https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-russia.html
 
