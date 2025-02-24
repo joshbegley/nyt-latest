@@ -1,3 +1,7 @@
+**Who Is Friedrich Merz, Germany’s Likely New Chancellor?**\
+`After an election dominated by immigration and economic issues, Germany’s likely new chancellor is Friedrich Merz, the leader of the conservative Christian Democrats. His party finished first with just under 29 percent of the vote and will need to form a coalition government.`\
+https://nytimes.com/video/world/europe/100000009999139/who-is-friedrich-merz-germany.html
+
 **America’s Love Affair With Crab Rangoon Goes Supernova**\
 `The Chinese American restaurant staple is so beloved among American chefs that it’s appearing in bagels, on pizza and even in doughnuts.`\
 https://nytimes.com/2025/02/24/dining/crab-rangoon.html
