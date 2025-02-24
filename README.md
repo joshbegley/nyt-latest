@@ -1,3 +1,11 @@
+**U.S. Clashes With European Allies at the U.N. Over Ukraine**\
+`The United States voted against a Ukrainian resolution, backed by most of Europe, demanding Russian withdrawal from Ukraine — a deep fissure between allies, and a sharp shift in American policy.`\
+https://nytimes.com/2025/02/24/world/middleeast/us-eurpe-russia-ukraine-un.html
+
+**Musk Calls to Congratulate Leader of German Hard-Right Party**\
+`The leader of the party said she received the call after the party known as the AfD finished second in national elections, by far the best showing in its history.`\
+https://nytimes.com/2025/02/24/world/europe/musk-afd-weidel-call.html
+
 **2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
 `Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
 https://nytimes.com/athletic/6129807/2025/02/24/2025-fantasy-baseball-draft-kit-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6155868/2025/02/24/sf-giants-patrick-bailey-automat
 **Starbucks to Lay Off 1,100 Corporate Employees Amid Sluggish Sales**\
 `The jobs cuts, which will affect about 7 percent of the chain’s non-retail staff, are part of its new chief executive’s plan to win back customers.`\
 https://nytimes.com/2025/02/24/business/starbucks-layoffs.html
-
-**Roberta Flack’s 11 Essential Songs**\
-`One of the supreme voices of the 1970s and a master of revelatory reinterpretation has died at 88.`\
-https://nytimes.com/2025/02/24/arts/music/roberta-flack-songs.html
-
-**Star Maestro, Facing Recurrence of Brain Cancer, Scales Back Concerts**\
-`Michael Tilson Thomas, who led the San Francisco Symphony for 25 years, said, “Now is the time to wind down my public appearances.”`\
-https://nytimes.com/2025/02/24/arts/music/michael-tilson-thomas-brain-cancer.html
 
