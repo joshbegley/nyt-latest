@@ -1,3 +1,15 @@
+**College baseball week in review: Aces emerging at Florida, Wake Forest**\
+`Are Texas A&M's early-season offensive struggles an area of concern? Is UCLA back? Omaha pulls off a stunner. UMES wins!`\
+https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-forest-lsu-tennessee/
+
+**Drake Batherson discusses his recent offensive struggles: 'You just got to turn the page'**\
+`The Senators need Batherson, among other players, to return to form over their next 25 games as they seek a playoff berth.`\
+https://nytimes.com/athletic/6155246/2025/02/24/senators-batherson-goals-offence-nhl/
+
+**Rangers appoint Ferguson as manager until end of season**\
+`Ferguson scored 60 goals in 431 first-team appearances at Rnagers as a player and his arrival follows the sacking of Philippe Clement.`\
+https://nytimes.com/athletic/6156316/2025/02/24/barry-ferguson-rangers-manager/
+
 **Lewis Hall is Newcastle's new attacking weapon - as Nottingham Forest discovered**\
 `Why Eddie Howe's patient restructure of his defence is paying dividends `\
 https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-attacks/
