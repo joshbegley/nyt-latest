@@ -1,3 +1,11 @@
+**A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
+`Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
+https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
+
+**Boise State RB Ashton Jeanty will skip on-field drills at NFL combine: Source**\
+`Jeanty is the No. 5 overall prospect on The Athletic's draft big board after posting 2,739 scrimmage yards and 30 touchdowns last season.`\
+https://nytimes.com/athletic/6156865/2025/02/24/ashton-jeanty-nfl-combine-workouts/
+
 **Roberta Flack, ‘Killing Me Softly’ Singer, Dies at 88**\
 `As a Grammy Award-winning singer and pianist, Roberta Flack topped the charts as one of the most popular artists of the 1970s.`\
 https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.html
