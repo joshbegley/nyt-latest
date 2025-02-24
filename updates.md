@@ -1,3 +1,11 @@
+**The Pulse: The NFL's QB mysteries**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine-the-pulse/
+
+**Arsenal fans: What are your priorities for the rest of the season?**\
+`Let us know your thoughts on the closing months of the season`\
+https://nytimes.com/athletic/6155925/2025/02/24/arsenal-fans-what-are-your-priorities-for-rest-of-the-season/
+
 **Jorgensen still Chelsea first-choice goalkeeper - Maresca**\
 `Jorgensen was at fault for Chelsea losing the game in the 89th minute as he allowed a tame shot from Marco Asensio to go under his body.`\
 https://nytimes.com/athletic/6156023/2025/02/24/filip-jorgensen-chelsea-goalkeeper-starter/
