@@ -1,3 +1,11 @@
+**This is why Villa signed Rashford and Asensio**\
+`Villa's marquee January signings made all the difference in turning a 1-0 deficit into a precious 2-1 win over Chelsea`\
+https://nytimes.com/athletic/6152835/2025/02/24/marcus-rashford-marco-asensio-aston-villa-sign/
+
+**Three compelling reasons why Spurs can still salvage this season**\
+`Returning players, a lighter schedule and new signings making their mark should give Spurs hope after an awful winter`\
+https://nytimes.com/athletic/6151302/2025/02/24/tottenham-can-save-season/
+
 **Nottingham Forest's identity crisis - and how they can rediscover their best qualities**\
 `Nuno's side could still achieve something remarkable but will need to rediscover their resolve that has been missing`\
 https://nytimes.com/athletic/6154624/2025/02/24/nottingham-forest-newcastle-identity-crisis/
