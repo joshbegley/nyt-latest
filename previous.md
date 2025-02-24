@@ -1,3 +1,7 @@
+**Trump, Meeting With French President, Says He Might Visit Russia**\
+`The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
+https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
+
 **How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
 `The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
 https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens
 **F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
 `The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
 https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
-
-**Cody Zeller not expected to play for Rockets this season: Sources**\
-`The veteran big man has not played since the end of the 2023-24 regular season. `\
-https://nytimes.com/athletic/6156707/2025/02/24/cody-zeller-rockets-contract-status/
 

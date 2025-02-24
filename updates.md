@@ -1,3 +1,7 @@
+**Trump, Meeting With French President, Says He Might Visit Russia**\
+`The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
+https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
+
 **How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
 `The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
 https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
