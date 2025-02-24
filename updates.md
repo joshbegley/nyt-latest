@@ -1,3 +1,7 @@
+**America’s Love Affair With Crab Rangoon Goes Supernova**\
+`The Chinese American restaurant staple is so beloved among American chefs that it’s appearing in bagels, on pizza and even in doughnuts.`\
+https://nytimes.com/2025/02/24/dining/crab-rangoon.html
+
 **The Windup: Yankees enter their beard era**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6156422/2025/02/24/yankees-beards-devin-williams-the-windup/
