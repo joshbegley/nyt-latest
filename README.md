@@ -1,3 +1,7 @@
+**The Meaning of Germany’s Election**\
+`We examine the role of immigration in the outcome.`\
+https://nytimes.com/2025/02/24/briefing/the-meaning-of-germanys-election.html
+
 **The Pulse: The NFL's QB mysteries**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6144413/2025/02/24/travis-hunter-nfl-draft-wide-rec
 **Combine Preview: Lions enter 2025 with a new staff and an eye on the trenches**\
 `Colton Pouncy previews where the new-look Lions stand, how to break down a Brad Holmes presser and some prospects to know before April. `\
 https://nytimes.com/athletic/6150231/2025/02/24/detroit-lions-combine-draft-brad-holmes/
-
-**Where will baseball’s labor fight go? Just check the emails**\
-`In spring training, it's becoming clearer where the battle lines are being drawn ahead of the next labor negotiation. `\
-https://nytimes.com/athletic/6155666/2025/02/24/mlb-labor-fight-emails-league-union/
 
