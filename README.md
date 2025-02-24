@@ -1,3 +1,7 @@
+**Watch: Whose season has been worse — Suns or Sixers?**\
+`Our NBA Daily crew discusses two of the NBA's bigger disappointments this season.`\
+https://nytimes.com/athletic/6156810/2025/02/24/nba-daily-sixers-suns-worst-season/
+
 **Federal Judge Shields More Transgender Inmates From Trump Order**\
 `A group of transgender women in federal prisons who would have been moved into men’s facilities can stay where they are for now.`\
 https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.
 https://nytimes.com/2025/02/24/us/politics/elise-stefanik-un-ambassador-budget.html
 
 **Protesters Display Upside-Down American Flag at Yosemite**\
-`Organizers said the inverted flag, historically used as a sign distress, was meant to draw attention to the Trump administration’s cuts to the National Park Service.`\
+`Organizers said the inverted flag, historically used as a sign of distress, was meant to draw attention to the Trump administration’s cuts to the National Park Service.`\
 https://nytimes.com/2025/02/24/us/yosemite-upside-down-flag-protest.html
 
 **Utah fires basketball coach Craig Smith after nearly 4 seasons**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/briefing/ukraine-war-anniversary-hamas-doubts-nor
 **Is Andrei Kuzmenko trade bait, or could he be a longer-term fit for Flyers?**\
 `Kuzmenko is in the final season of a two-year, $11 million deal that also has a modified 12-team no-trade clause.`\
 https://nytimes.com/athletic/6157225/2025/02/24/kuzmenko-flyers-trade-contract/
-
-**How long should NFL teams wait to draft a quarterback this year?**\
-`On "The Athletic Football Show," a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
-https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
 
