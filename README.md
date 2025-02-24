@@ -11,7 +11,7 @@ https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.
 https://nytimes.com/interactive/2025/02/24/world/australia/alfred-map-path-tracker.html
 
 **Rams, Stafford should get more clarity in agent talks at NFL combine**\
-`The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved`\
+`The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved.`\
 https://nytimes.com/athletic/6157057/2025/02/24/rams-matthew-stafford-contract-situation-combine/
 
 **Nikola Jović's broken hand adds new blow to tough Heat season. 'I really feel for Niko'**\
