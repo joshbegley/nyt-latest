@@ -1,3 +1,7 @@
+**Should the Blues try to capitalize on Binnington's 4 Nations success with a trade?**\
+`With Binnington's performance for Team Canada earning plenty of plaudits, the Blues must decide if winning now or later is more important.`\
+https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nations-trade-options/
+
 **Flick: Players 'must be protected' after Yamal foul frustration**\
 `The 17-year-old shared an image on social media of a blood-soaked sock on his left foot following Saturday's win over Las Palmas.`\
 https://nytimes.com/athletic/6156170/2025/02/24/lamine-yamal-barcelona-fouls-hansi-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6152529/2025/02/24/padres-takeaways-spring-training
 **SEC coaches hot-seat rankings for 2025-26 season**\
 `Which coach is in the most precarious position — and who seems the safest — here's a ranking, going from the hottest seat to the coolest.`\
 https://nytimes.com/athletic/6146590/2025/02/24/sec-football-coaches-trouble-ranking-firing/
-
-**Why the Premier League season is a long way from over (even if the title race might be)**\
-`There might not be as much jeaopardy as usual at the top and bottom but there are still lots of storylines to keep us interested`\
-https://nytimes.com/athletic/6154694/2025/02/24/premier-league-storylines-to-watch/
 
