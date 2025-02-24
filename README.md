@@ -1,3 +1,11 @@
+**Trump and Europe Clashed Over Ukraine**\
+`Also, the virtuoso Roberta Flack died at 88. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flack.html
+
+**Judge Questions Constitutionality of Musk’s Cost-Cutting Operation**\
+`The judge expressed concern over the unresolved issues about who is in charge of Elon Musk’s so-called Department of Government Efficiency, if it is not Mr. Musk, as the White House has claimed.`\
+https://nytimes.com/2025/02/24/us/politics/doge-elon-musk-lawsuits.html
+
 **Judge Declines to Intervene in Associated Press Lawsuit Over Trump Access**\
 `The wire service had sued Trump administration officials after they restricted reporters from press events citing The A.P.’s references to the Gulf of Mexico in articles.`\
 https://nytimes.com/2025/02/24/us/politics/trump-ap-lawsuit-gulf-of-mexico.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-
 `Lilly Singh caught some flak for what online critics called cringey interviews before the Screen Actors Guild Awards ceremony. The job may be tougher than it looks.`\
 https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
 
-**NHL reduces Ryan Hartman's suspension to 8 games — hopes it's a 'wake-up call' for Wild forward**\
+**NHL reduces Ryan Hartman's suspension to 8 games, hopes it's a 'wake-up call' for Wild forward**\
 `Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
 https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6157047/2025/02/24/zegras-suspension-ducks-red-wing
 **MLS 2025 kits put on display at Atlanta diner fashion show**\
 `The intersection of MLS and fashion has taken the league's kits to some unusual places.`\
 https://nytimes.com/athletic/6156795/2025/02/24/mls-2025-kits-fashion-show-atlanta-diner/
-
-**JJ Redick says Luka Dončić's first game vs. Mavericks will be 'weird'**\
-`Dončić is averaging 19.0 points, 7.5 rebounds, 5.8 assists and 1.5 steals per game in his four games as a Laker.`\
-https://nytimes.com/athletic/6157422/2025/02/24/luka-doncic-lakers-mavericks-matchup-comments/
-
-**Full Time: USWNT one win from a trophy**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-final-full-time/
 
