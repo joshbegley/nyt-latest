@@ -1,3 +1,7 @@
+**‘Night Went Well’ for Ailing Pope, Vatican Says**\
+`Francis is being treated for pneumonia, a complex infection and kidney problems that have left him in critical condition.`\
+https://nytimes.com/2025/02/24/world/europe/pope-francis-health-vatican-hospital.html
+
 **Kean discharged from hospital after collapsing on pitch from head injury**\
 `Kean was immediately taken to hospital in Verona after after sustaining a “head trauma” but tests performed came back negative.`\
 https://nytimes.com/athletic/6155870/2025/02/24/moise-kean-head-injury-update/

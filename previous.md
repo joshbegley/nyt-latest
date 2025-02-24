@@ -1,3 +1,7 @@
+**‘Night Went Well’ for Ailing Pope, Vatican Says**\
+`Francis is being treated for pneumonia, a complex infection and kidney problems that have left him in critical condition.`\
+https://nytimes.com/2025/02/24/world/europe/pope-francis-health-vatican-hospital.html
+
 **Kean discharged from hospital after collapsing on pitch from head injury**\
 `Kean was immediately taken to hospital in Verona after after sustaining a “head trauma” but tests performed came back negative.`\
 https://nytimes.com/athletic/6155870/2025/02/24/moise-kean-head-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hur
 **Word of the Day: enunciation**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/24/learning/word-of-the-day-enunciation.html
-
-**Graft and fight: What this image tells us about Szoboszlai and Slot's Liverpool**\
-`Szoboszlai played a key role as Liverpool beat Manchester City at the Etihad Stadium on Sunday`\
-https://nytimes.com/athletic/6155131/2025/02/24/liverpool-dominik-szoboszlai-manchester-city/
 
