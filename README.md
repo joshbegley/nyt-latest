@@ -1,3 +1,19 @@
+**NHL reduces Ryan Hartman's suspension from 10 games to 8, hopes Wild forward will get 'wake-up call'**\
+`Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
+https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
+
+**Michigan expected to bring back Biff Poggi as associate head coach: Source**\
+`The 64-year-old coach played a key role in helping Jim Harbaugh turn around a Wolverines program that won a national title in 2023.`\
+https://nytimes.com/athletic/6157511/2025/02/24/michigan-biff-poggi-coach-jim-harbaugh/
+
+**Logan Webb is a safe bet for the Giants, but there's a pitch worth monitoring**\
+`Webb is one of the most reliably consistent pitchers in the league, but one pitch has fluctuated in effectiveness a bit the past two years.`\
+https://nytimes.com/athletic/6156735/2025/02/24/sf-giants-logan-webb-pitch-analysis/
+
+**Ducks' Zegras suspended 3 games for hit on Red Wings' Rasmussen**\
+`Zegras is eligible to return March 4, when the Ducks play at Edmonton. `\
+https://nytimes.com/athletic/6157047/2025/02/24/zegras-suspension-ducks-red-wings/
+
 **MLS 2025 kits put on display at Atlanta diner fashion show**\
 `The intersection of MLS and fashion has taken the league's kits to some unusual places.`\
 https://nytimes.com/athletic/6156795/2025/02/24/mls-2025-kits-fashion-show-atlanta-diner/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/supreme-court-dna-death-row.html
 **Two Members of Privacy Watchdog, Summarily Fired by Trump, File Lawsuit**\
 `The case joins a rising number of legal challenges to President Trump’s firing spree that has violated limits on his power.`\
 https://nytimes.com/2025/02/24/us/politics/trump-privacy-watchdog-firings-lawsuit.html
-
-**Watch: Whose season has been worse — Suns or Sixers?**\
-`Our NBA Daily crew discusses two of the NBA's bigger disappointments this season.`\
-https://nytimes.com/athletic/6156810/2025/02/24/nba-daily-sixers-suns-worst-season/
-
-**Federal Judge Shields More Transgender Inmates From Trump Order**\
-`A group of transgender women in federal prisons who would have been moved into men’s facilities can stay where they are for now.`\
-https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.html
-
-**Stefanik’s Confirmation Is on Ice as Republicans Guard Their Scant Majority**\
-`The congresswoman from New York is in line to be confirmed as the U.S. ambassador to the United Nations. But first, her colleagues need her vote to pass their embattled budget plan.`\
-https://nytimes.com/2025/02/24/us/politics/elise-stefanik-un-ambassador-budget.html
-
-**Protesters Display Upside-Down American Flag at Yosemite**\
-`Organizers said the inverted flag, historically used as a sign of distress, was meant to draw attention to the Trump administration’s cuts to the National Park Service.`\
-https://nytimes.com/2025/02/24/us/yosemite-upside-down-flag-protest.html
 
