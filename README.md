@@ -1,3 +1,15 @@
+**Nottingham Forest's identity crisis - and how they can rediscover their best qualities**\
+`Nuno's side could still achieve something remarkable but will need to rediscover their resolve that has been missing`\
+https://nytimes.com/athletic/6154624/2025/02/24/nottingham-forest-newcastle-identity-crisis/
+
+**From unnecessary to irreplaceable: How Vitor Pereira turned Andre into Wolves' key player**\
+`With a guttural roar against Bournemouth, Andre summed up the spirit of a rejuvenated Wolverhampton Wanderers  `\
+https://nytimes.com/athletic/6154022/2025/02/24/andre-wolverhampton-wanderers-bournemouth-win-recap/
+
+**Why Brighton do better when they have less of the ball**\
+`The transformation in results without dominating possession bodes well for a tough run of games for Hurzeler's side`\
+https://nytimes.com/athletic/6148264/2025/02/24/brighton-possession-hurzeler-coaching/
+
 **Lacroix, Andersen and a transfer blueprint for Crystal Palace**\
 `Allowing the Dane to leave and signing Lacroix to replace him was a risk - but it has paid off handsomely`\
 https://nytimes.com/athletic/6143866/2025/02/24/maxence-lacroix-joachim-andersen-crystal-palace/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6154982/2025/02/24/real-madrid-2-girona-0-coping-wi
 **The Premier League is the promised land. But is promotion into it increasingly futile?**\
 `Promoted trio Southampton, Ipswich and Leicester are on track to record the lowest points tally of any Premier League bottom three`\
 https://nytimes.com/athletic/6154994/2025/02/24/premier-league-promotion-futile/
-
-**How Mbeumo became one of the Premier League's hottest properties**\
-`The forward has become a pivotal figure for Brentford and is likely to attract interest in the summer transfer window`\
-https://nytimes.com/athletic/6049089/2025/02/24/bryan-mbeumo-premier-league-brentford/
-
-**Andoni Iraola. Bournemouth. Frankenstein**\
-`The Bournemouth head coach talks philosophy, 'organised spontaneity' and his adopted town's unlikely association with Mary Shelley's monster`\
-https://nytimes.com/athletic/6148611/2025/02/24/andoni-iraola-bournemouth-frankenstein-shelley/
-
-**The Rubiales-Hermoso court case revealed so much - and the story is not complete yet**\
-`Laia Cervello Herrero reflects on the events in court and considers what comes next for its two highest-profile participants`\
-https://nytimes.com/athletic/6154176/2025/02/24/hermoso-rubiales-trial-conclusion/
 
