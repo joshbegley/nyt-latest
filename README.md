@@ -2,8 +2,8 @@
 `Robertson scored twice in the second period to lead the Leafs to a comfortable road win over Chicago.`\
 https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-robertson-domi-blackhawks/
 
-**SAG Awards 2025: Complete List of Winners**\
-`“Conclave” took home the top film prize, while Demi Moore and Timothée Chalamet won top individual honors.`\
+**SAG Awards 2025: ‘Conclave’ Comes on Strong**\
+`The thriller about choosing a new pope took home the top film prize, while Demi Moore and Timothée Chalamet won individual honors.`\
 https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
 
 **Kenyan Police Officer Fatally Injured in Haiti in Anti-Gang Operation**\
