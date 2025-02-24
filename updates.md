@@ -1,3 +1,7 @@
+**Why Tensions Are Rising in the West Bank**\
+`Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
+https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html
+
 **U.S. Clashes With European Allies at the U.N. Over Ukraine**\
 `The United States voted against a Ukrainian resolution, backed by most of Europe, demanding Russian withdrawal from Ukraine — a deep fissure between allies, and a sharp shift in American policy.`\
 https://nytimes.com/2025/02/24/world/middleeast/us-eurpe-russia-ukraine-un.html
