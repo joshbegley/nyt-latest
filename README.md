@@ -1,3 +1,7 @@
+**Tuesday Briefing: The Ukraine War’s 3rd Anniversary**\
+`Plus, letting resorts run wild.`\
+https://nytimes.com/2025/02/24/briefing/ukraine-war-anniversary-hamas-doubts-north-korea-fisherman.html
+
 **Is Andrei Kuzmenko trade bait, or could he be a longer-term fit for Flyers?**\
 `Kuzmenko is in the final season of a two-year, $11 million deal that also has a modified 12-team no-trade clause.`\
 https://nytimes.com/athletic/6157225/2025/02/24/kuzmenko-flyers-trade-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6156635/2025/02/24/nikola-jovic-tyler-herro-bam-ade
 **Cleveland Guardians owner Larry Dolan dies at 94**\
 `Larry Dolan, who spearheaded the longest ownership tenure in the history of Cleveland’s baseball franchise, died Sunday, the team announced.`\
 https://nytimes.com/athletic/6156901/2025/02/24/cleveland-guardians-owner-larry-dolan-dies/
-
-**Roque move from Barca to Palmeiras stalls over transfer rules**\
-`Roque joined Barcelona in January 2024 in a transfer worth €30million (£26m; $33m) in fixed fees, plus €31m more in add-ons.`\
-https://nytimes.com/athletic/6155906/2025/02/24/vitor-roque-barcelona-transfer-palmeiras-betis/
 
