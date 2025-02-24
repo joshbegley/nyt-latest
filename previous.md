@@ -3,7 +3,7 @@
 https://nytimes.com/2025/02/24/world/europe/ukraine-zelensky-trump.html
 
 **Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
-`Carney Chukwuemeka’s debut for Borussia Dortmund was described as “sensationally good” by head coach Niko Kovac, following the 6-0 Bundesliga win over Union Berlin on Saturday.`\
+`Chukwuemeka was introduced as a 70th minute substitute as Dortmund scored four times in the final 15 minutes.`\
 https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
 
 **Chiefs NFL Draft big board: 20 players to watch in the first 3 rounds for positions of need**\

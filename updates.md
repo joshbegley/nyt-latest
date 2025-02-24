@@ -1,3 +1,7 @@
+**Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
+`Chukwuemeka was introduced as a 70th minute substitute as Dortmund scored four times in the final 15 minutes.`\
+https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
+
 **Fair or Not, Zelensky Is Angering Trump. Is His Style Hurting Ukraine?**\
 `Through three years of wartime leadership, Ukraine’s president has mostly played weak hands wisely. But his approach has fallen flat with the Trump administration.`\
 https://nytimes.com/2025/02/24/world/europe/ukraine-zelensky-trump.html
