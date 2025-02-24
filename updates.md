@@ -1,3 +1,19 @@
+**Tennis Briefing: Mirra Andreeva makes a statement as the “Golden Swing” looks inward**\
+`Andreeva won the biggest title of her career, while Alexander Zverev's plans for a 'Golden Swing' went awry in South America.`\
+https://nytimes.com/athletic/6154408/2025/02/24/mirra-andreeva-tennis-wta/
+
+**Defying DOGE**\
+`Pushback against Elon Musk’s latest demand to government employees reveals potential limits to his harsh approach to management and cost-cutting.`\
+https://nytimes.com/2025/02/24/business/dealbook/defying-musk-trump-doge.html
+
+**Russian Officials Mark Ukraine War Anniversary With Resounding Silence**\
+`President Vladimir V. Putin of Russia is not scheduled to attend any events on Monday to mark the anniversary of the full-scale invasion that he ordered.`\
+https://nytimes.com/2025/02/24/world/europe/russia-ukraine-war-anniversary.html
+
+**Jimmy Butler-Warriors union has immaculate early vibes: 'Jimmy gives us some swagger'**\
+`The Warriors felt they were lacking a piece this year, but after trading for Butler, "that piece isn't missing anymore. That piece is him."`\
+https://nytimes.com/athletic/6155572/2025/02/24/jimmy-butler-steve-kerr-warriors-vibes-nba-championship/
+
 **Trial Opens for French Doctor Accused of Abusing Hundreds**\
 `A former surgeon is accused of raping or sexually assaulting 299 people, mostly children, over 25 years. It is considered to be the country’s largest-ever pedophilia case.`\
 https://nytimes.com/2025/02/24/world/europe/france-surgeon-trial-patient-abuse-le-scouarnec.html

@@ -1,3 +1,19 @@
+**Tennis Briefing: Mirra Andreeva makes a statement as the “Golden Swing” looks inward**\
+`Andreeva won the biggest title of her career, while Alexander Zverev's plans for a 'Golden Swing' went awry in South America.`\
+https://nytimes.com/athletic/6154408/2025/02/24/mirra-andreeva-tennis-wta/
+
+**Defying DOGE**\
+`Pushback against Elon Musk’s latest demand to government employees reveals potential limits to his harsh approach to management and cost-cutting.`\
+https://nytimes.com/2025/02/24/business/dealbook/defying-musk-trump-doge.html
+
+**Russian Officials Mark Ukraine War Anniversary With Resounding Silence**\
+`President Vladimir V. Putin of Russia is not scheduled to attend any events on Monday to mark the anniversary of the full-scale invasion that he ordered.`\
+https://nytimes.com/2025/02/24/world/europe/russia-ukraine-war-anniversary.html
+
+**Jimmy Butler-Warriors union has immaculate early vibes: 'Jimmy gives us some swagger'**\
+`The Warriors felt they were lacking a piece this year, but after trading for Butler, "that piece isn't missing anymore. That piece is him."`\
+https://nytimes.com/athletic/6155572/2025/02/24/jimmy-butler-steve-kerr-warriors-vibes-nba-championship/
+
 **Marseille president Longoria backtracks on corruption comments**\
 `After Marseille's loss against Auxerre on Saturday, Longoria had said: 'This is corruption. It’s planned, it’s rigged.'`\
 https://nytimes.com/athletic/6156181/2025/02/24/marseille-referees-longoria-ligue-1/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/02/24/business/apple-tariffs-jobs-investment.html
 **The Athletic FC: What's left to play for in Premier League? Messi taunted, Neymar's olimpico**\
 `Today in TAFC: What is left to play for in the Premier League? MLS kicks off with some taunting of Messi, Neymar score incredible olimpico.`\
 https://nytimes.com/athletic/6155917/2025/02/24/liverpool-city-title-race-messi-neymar-olimpico/
-
-**Have 49ers begun talks with Brock Purdy? Ten questions ahead of NFL combine**\
-`The 49ers will head to the NFL combine with plenty on their to-do list, including meeting the agents of their soon-to-be free agents.`\
-https://nytimes.com/athletic/6151705/2025/02/24/49ers-nfl-combine-brock-purdy/
-
-**Jace Jung's breakneck style could be his greatest asset in Tigers' roster competition**\
-`Jung, a Tigers rookie, enters camp trying to win a job at third base. Can his no-fear mindset and natural bat set him apart?`\
-https://nytimes.com/athletic/6155154/2025/02/24/detroit-tigers-jace-jung/
-
-**A guide to the Guardians' ample starting pitcher options**\
-`Here's everything you need to know about the Guardians' starting pitchers after the team spent the offseason stockpiling arms.`\
-https://nytimes.com/athletic/6151502/2025/02/24/cleveland-guardians-starting-pitchers/
-
-**Four Chargers questions we'll be looking to answer at the NFL combine**\
-`In the second year of the Jim Harbaugh-Joe Hortiz regime, the Chargers have ample cap space and plenty of options at their disposal. `\
-https://nytimes.com/athletic/6147747/2025/02/24/chargers-nfl-combine-questions/
 
