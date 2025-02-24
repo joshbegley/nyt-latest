@@ -1,3 +1,7 @@
+**How long should teams wait to draft a quarterback this year?**\
+`On The Athletic Football Show, a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
+https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
+
 **Green Bay Packers propose 'tush push' ban: Sources**\
 `Hurts led all NFL QBs with 14 rushing touchdowns with 13 of those coming in goal to go situations, according to TruMedia.`\
 https://nytimes.com/athletic/6157243/2025/02/24/green-bay-packers-tush-push-ban/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6155906/2025/02/24/vitor-roque-barcelona-transfer-p
 **Delta Flight Makes Emergency Landing After ‘Possible Smoke’ in Plane, F.A.A. Says**\
 `Flight 876 returned to Hartsfield-Jackson Atlanta International Airport on Monday after the crew reported seeing haze in the flight deck.`\
 https://nytimes.com/2025/02/24/us/delta-atlanta-flight-haze.html
-
-**DeSantis Talks Up Wife as Potential Successor, Clashing With Trump**\
-`Far from tamping down chatter that Casey DeSantis could run for governor of Florida, Gov. Ron DeSantis praised her popularity and “intestinal fortitude.”`\
-https://nytimes.com/2025/02/24/us/ron-desantis-casey-desantis-governor-florida.html
 
