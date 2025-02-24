@@ -1,3 +1,7 @@
+**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
+`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
+https://nytimes.com/athletic/6129807/2025/02/24/2025-fantasy-baseball-draft-kit-mlb/
+
 **Francis Is in Critical Condition. What Happens When a Pope Dies?**\
 `Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
 https://nytimes.com/article/francis-what-happens-when-pope-dies.html
