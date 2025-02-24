@@ -1,3 +1,15 @@
+**Oh, This Old, Tattered, Moth-Eaten Thing?**\
+`So-called thrashed clothes — garments resembling something closer to rags — are coveted by vintage fanatics.`\
+https://nytimes.com/2025/02/24/style/thrashed-distressed-vintage-clothing.html
+
+**Mets starter Sean Manaea to start season on IL with oblique strain**\
+`Manaea is the second Mets starter to go down since last week. Frankie Montas will be out for several weeks due to a high-grade lat strain.`\
+https://nytimes.com/athletic/6156661/2025/02/24/mets-sean-manaea-oblique-injury/
+
+**Giants catcher Patrick Bailey — a pitch framing savant — 'not a fan' of automated strike zone**\
+`Bailey, a Gold Glover, isn't a fan of the ABS system. "I think it's going to change the game a lot more than people realize."`\
+https://nytimes.com/athletic/6155868/2025/02/24/sf-giants-patrick-bailey-automated-ball-strike-system/
+
 **Starbucks to Lay Off 1,100 Corporate Employees Amid Sluggish Sales**\
 `The jobs cuts, which will affect about 7 percent of the chain’s non-retail staff, are part of its new chief executive’s plan to win back customers.`\
 https://nytimes.com/2025/02/24/business/starbucks-layoffs.html
