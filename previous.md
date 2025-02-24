@@ -1,3 +1,11 @@
+**Rosenthal: Early injuries increase concerns for Mets rotation, but it’s too soon to panic**\
+`Both Sean Manaea and Frankie Montas are expected to start the regular season on the injured list. `\
+https://nytimes.com/athletic/6157741/2025/02/24/mets-rotation-injuries-concern-manaea-montas/
+
+**Before Ascending to Top Tier of F.B.I., Bongino Fueled Right-Wing Disbelief**\
+`The post of deputy director will give Dan Bongino access to vast amounts of highly sensitive intelligence, as well as rumor, speculation and false accusations that F.B.I. agents regularly receive.`\
+https://nytimes.com/2025/02/24/us/politics/dan-bongino-trump-fbi-director-conspiracies.html
+
 **Stanford athletic director Bernard Muir expected to resign: Sources**\
 `Muir, at Stanford for 13 years, helped oversee transition to ACC after Pac-12's collapse.`\
 https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-director-resignation/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-ru
 **Alvin F. Poussaint, Pioneering Expert on Black Mental Health, Dies at 90**\
 `A psychiatrist at Harvard and an adviser to Jesse Jackson and Bill Cosby, he challenged Black Americans to stand up to systemic racism.`\
 https://nytimes.com/2025/02/24/us/alvin-poussaint-dead.html
-
-**Trump and Europe Clashed Over Ukraine**\
-`Also, the virtuoso Roberta Flack died at 88. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flack.html
-
-**Judge Questions Constitutionality of Musk’s Cost-Cutting Operation**\
-`The judge expressed concern over the unresolved issues about who is in charge of Elon Musk’s so-called Department of Government Efficiency, if it is not Mr. Musk, as the White House has claimed.`\
-https://nytimes.com/2025/02/24/us/politics/doge-elon-musk-lawsuits.html
 

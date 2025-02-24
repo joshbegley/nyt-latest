@@ -1,3 +1,11 @@
+**Rosenthal: Early injuries increase concerns for Mets rotation, but it’s too soon to panic**\
+`Both Sean Manaea and Frankie Montas are expected to start the regular season on the injured list. `\
+https://nytimes.com/athletic/6157741/2025/02/24/mets-rotation-injuries-concern-manaea-montas/
+
+**Before Ascending to Top Tier of F.B.I., Bongino Fueled Right-Wing Disbelief**\
+`The post of deputy director will give Dan Bongino access to vast amounts of highly sensitive intelligence, as well as rumor, speculation and false accusations that F.B.I. agents regularly receive.`\
+https://nytimes.com/2025/02/24/us/politics/dan-bongino-trump-fbi-director-conspiracies.html
+
 **Stanford athletic director Bernard Muir expected to resign: Sources**\
 `Muir, at Stanford for 13 years, helped oversee transition to ACC after Pac-12's collapse.`\
 https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-director-resignation/
