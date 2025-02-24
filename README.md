@@ -14,8 +14,8 @@ https://nytimes.com/2025/02/24/movies/jane-fonda-sag-awards-speech.html
 `It’s time for a temperature check, Bulls fans.`\
 https://nytimes.com/athletic/6156775/2025/02/24/chicago-bulls-mailbag-nba/
 
-**Confusion Reigns Over Musk’s ‘What Did You Do Last Week?’ Email**\
-`President Trump said workers would be “sort of semi-fired” or fired if they didn’t comply. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
+**Federal Personnel Office Tells Agencies That Musk’s Directive Is ‘Voluntary’**\
+`President Trump said employees would be “sort of semi-fired” or fired if they didn’t comply with an order to detail their work. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
 https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
 
 **Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
