@@ -1,3 +1,7 @@
+**The Athletic FC: What's left to play for in Premier League? Messi taunted, Neymar's olimpico**\
+`Today in TAFC: What is left to play for in the Premier League? MLS kicks off with some taunting of Messi, Neymar score incredible olimpico.`\
+https://nytimes.com/athletic/6155917/2025/02/24/liverpool-city-title-race-messi-neymar-olimpico/
+
 **This Week in Mets: Why Vladimir Guerrero Jr. doesn't look like a fit for the Mets**\
 `Steve Cohen has spent plenty of time emphasizing that the Mets will eventually need to develop more talent internally.`\
 https://nytimes.com/athletic/6155689/2025/02/24/mets-vladimir-guerrero-juan-soto/

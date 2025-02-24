@@ -1,3 +1,7 @@
+**Apple to Build A.I. Servers in Houston and Spend $500 Billion in U.S.**\
+`The company pledged the multibillion-dollar investment over the next four years, and said it would create 20,000 jobs. The new Texas facility is set to open in 2026.`\
+https://nytimes.com/2025/02/24/business/apple-500-million.html
+
 **The Athletic FC: What's left to play for in Premier League? Messi taunted, Neymar's olimpico**\
 `Today in TAFC: What is left to play for in the Premier League? MLS kicks off with some taunting of Messi, Neymar score incredible olimpico.`\
 https://nytimes.com/athletic/6155917/2025/02/24/liverpool-city-title-race-messi-neymar-olimpico/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155259/2025/02/24/yankees-workouts-world-series-di
 **Tale of the tape: Why the Knicks shouldn't yet be considered in the NBA's elite**\
 `The weekend reaffirmed what was already out there: the Knicks aren't there yet.`\
 https://nytimes.com/athletic/6155098/2025/02/24/knicks-film-breakdown-defense-nba/
-
-**Observations from Red Sox camp as Grapefruit League play gets underway**\
-`Thoughts on the first two weeks of camp, including Alex Bregman's defensive work, Kristian Campbell's progress and much more.`\
-https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-observations/
 
