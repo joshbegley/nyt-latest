@@ -1,4 +1,4 @@
-**Ukraine Nears a Deal to Give U.S. a Share of Its Minerals Wealth**\
+**Ukraine Nears a Deal to Give U.S. a Share of Its Mineral Wealth**\
 `President Trump said that Ukraine’s president may soon visit the White House to sign a deal, though how it ties in to efforts to end the Russian invasion and guarantee Ukraine’s security is unclear.`\
 https://nytimes.com/2025/02/24/world/europe/ukraine-us-mineral-wealth-deal.html
 
