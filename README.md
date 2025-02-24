@@ -1,3 +1,7 @@
+**Crypto Firm Pleads Guilty to Operating Illegally in U.S.**\
+`Federal prosecutors said OKX, based in Seychelles, violated anti-money laundering laws for years. The company agreed to pay more than $500 million in fines and penalties.`\
+https://nytimes.com/2025/02/24/business/okx-crypto-exchange-guilty-plea.html
+
 **Cowboys EVP Stephen Jones: Offseason plan is to be 'selectively aggressive'**\
 `The Cowboys are not usually a big player in free agency. Could that change after their divisional rival won the Super Bowl?`\
 https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combine-stephen-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-
 **What Makes a Good Red-Carpet Host?**\
 `Lilly Singh caught some flak for what online critics called cringey interviews before the Screen Actors Guild Awards ceremony. The job may be tougher than it looks.`\
 https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
-
-**NHL reduces Ryan Hartman's suspension to 8 games, hopes it's a 'wake-up call' for Wild forward**\
-`Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
-https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
 
