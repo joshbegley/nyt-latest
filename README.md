@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6155363/2025/02/23/rangers-shesterkin-bounce-back-k
 https://nytimes.com/2025/02/23/nyregion/auburn-prison-inmate-death.html
 
 **Brian Campbell stuns with his first win on PGA Tour: 'I'm freaking out'**\
-`Light-hitting veteran defeats 20-year-old prodigy Aldrich Potgieter in sudden-death playoff at Mexican Open.`\
+`The light-hitting veteran defeated 20-year-old prodigy Aldrich Potgieter in sudden-death playoff at Mexican Open.`\
 https://nytimes.com/athletic/6155384/2025/02/23/brian-campbell-stuns-with-mexican-open-win/
 
 **Trump, Again, Chooses Loyalty Over Leadership**\
