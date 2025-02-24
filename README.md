@@ -1,3 +1,7 @@
+**Richard Jefferson to join Breen, Burke on ESPN's top NBA broadcast team**\
+`ESPN’s NBA booth has been in flux since the network let longtime analysts Jeff Van Gundy and Mark Jackson go in 2023.`\
+https://nytimes.com/athletic/6156321/2025/02/24/nba-finals-espn-tv-richard-jefferson/
+
 **College baseball week in review: Aces emerging at Florida, Wake Forest**\
 `Are Texas A&M's early-season offensive struggles an area of concern? Is UCLA back? Omaha pulls off a stunner. UMES wins!`\
 https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-forest-lsu-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
 **Frank G. Wisner, Diplomat With Impact on Foreign Policy, Dies at 86**\
 `He headed U.S. embassies around the world and relished the role, bringing a gregarious style to promoting American interests. But he clashed with the Obama White House.`\
 https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html
-
-**NBA Rewind: NBA Rewind: Luka Dončić resembles old self at the right time**\
-`Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
-https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
 
