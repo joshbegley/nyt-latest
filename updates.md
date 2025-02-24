@@ -1,3 +1,11 @@
+**Mystics trade All-Star Ariel Atkins to Sky for No. 3 draft pick**\
+`Washington also receives swap rights for Chicago's 2027 first round pick and acquires its second-round pick`\
+https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
+
+**Lynne Marie Stewart, Miss Yvonne on ‘Pee-wee’s Playhouse,’ Dies at 78**\
+`She was the “most beautiful woman in Puppetland” in the 1980s children’s show starring Paul Reubens, and more recently had a recurring role in “It’s Always Sunny in Philadelphia.”`\
+https://nytimes.com/2025/02/23/arts/television/lynne-marie-stewart-dead.html
+
 **Ten Things I Don’t Want To Hate About You**\
 `A father and son try to mend a rift between them in a very unusual way.`\
 https://nytimes.com/2025/02/23/podcasts/ten-things-i-dont-want-to-hate-about-you-this-american-life-nyt-audio.html
