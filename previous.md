@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Even in defeat, Sidney Crosby's weekend should be appreciated**\
+`The Penguins endured a goaltending meltdown despite outplaying the Rangers by some margin for back-to-back losses.`\
+https://nytimes.com/athletic/6155294/2025/02/23/penguins-crosby-effort-blomqvist-rangers/
+
 **Jaylen Brown calls for Jrue Holiday to be more aggressive: 'He tells me all the time'**\
 `"Jrue is more than capable of doing more," Brown says of his teammate. `\
 https://nytimes.com/athletic/6155441/2025/02/23/celtics-jrue-holiday-jaylen-brown-agressive/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155363/2025/02/23/rangers-shesterkin-bounce-back-k
 **Inmate Dies at N.Y. Prison as Corrections Officers’ Strike Continues**\
 `The 61-year-old man was found unresponsive in his cell at Auburn Correctional Facility, one of dozens of state prisons where corrections officers have walked off the job over working conditions.`\
 https://nytimes.com/2025/02/23/nyregion/auburn-prison-inmate-death.html
-
-**Brian Campbell stuns with his first win on PGA Tour: 'I'm freaking out'**\
-`The light-hitting veteran defeated 20-year-old prodigy Aldrich Potgieter in sudden-death playoff at Mexican Open.`\
-https://nytimes.com/athletic/6155384/2025/02/23/brian-campbell-stuns-with-mexican-open-win/
 

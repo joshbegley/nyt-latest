@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Even in defeat, Sidney Crosby's weekend should be appreciated**\
+`The Penguins endured a goaltending meltdown despite outplaying the Rangers by some margin for back-to-back losses.`\
+https://nytimes.com/athletic/6155294/2025/02/23/penguins-crosby-effort-blomqvist-rangers/
+
 **Jaylen Brown calls for Jrue Holiday to be more aggressive: 'He tells me all the time'**\
 `"Jrue is more than capable of doing more," Brown says of his teammate. `\
 https://nytimes.com/athletic/6155441/2025/02/23/celtics-jrue-holiday-jaylen-brown-agressive/
