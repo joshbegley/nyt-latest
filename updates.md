@@ -1,3 +1,7 @@
+**Should the Blues try to capitalize on Binnington's 4 Nations success with a trade?**\
+`With Binnington's performance for Team Canada earning plenty of plaudits, the Blues must decide if winning now or later is more important.`\
+https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nations-trade-options/
+
 **Flick: Players 'must be protected' after Yamal foul frustration**\
 `The 17-year-old shared an image on social media of a blood-soaked sock on his left foot following Saturday's win over Las Palmas.`\
 https://nytimes.com/athletic/6156170/2025/02/24/lamine-yamal-barcelona-fouls-hansi-flick/
