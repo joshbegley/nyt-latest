@@ -1,4 +1,20 @@
-**UEFA's Ceferin: ‘99 per cent of people' satisfied with new CL format**\
+**Hamas Official Expresses Reservations About Oct. 7 Attack on Israel**\
+`Mousa Abu Marzouk, the head of Hamas’s foreign relations office, said he would not have supported such an attack on Israel had he known of the devastation it would wreak on Gaza.`\
+https://nytimes.com/2025/02/24/world/middleeast/hamas-official-interview-attack-israel.html
+
+**Hollinger: Wemby, AD absences have huge implications, plus ... a 50-loss Play-In team?**\
+`Those guys won't qualify for All-NBA or postseason awards. That could mean millions for whoever takes their place.`\
+https://nytimes.com/athletic/6156159/2025/02/24/victor-wembanyama-anthony-davis-nba-awards/
+
+**Explaining Man Utd's latest round of up to 200 job cuts**\
+`Man Utd CEO Omar Berrada said: 'These hard choices are necessary to put the club back on a stable financial footing.'`\
+https://nytimes.com/athletic/6156082/2025/02/24/manchester-united-redundancies-cuts-explained/
+
+**Federal Judge Bars Elon Musk’s Team From Student Loan Databases**\
+`The American Federation of Teachers, a union representing more than 1.8 million educators, had sued to keep members of Mr. Musk’s government efficiency team out of the Education Department’s systems.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-doge-department-of-education-data-ban.html
+
+**UEFA president: ‘99 per cent of people' satisfied with new CL format**\
 `The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
 https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6156484/2025/02/24/liverpool-premier-league-title-b
 **Cade Cunningham's monster half carries surging Pistons: 'Reminds me of a Luka Dončić'**\
 `Detroit has won six in a row to build a comfortable cushion for the sixth spot in the East.`\
 https://nytimes.com/athletic/6155785/2025/02/24/cade-cunningham-pistons-hawks-nba/
-
-**‘The Left Lives’: How TikTok Helped Liberals Surprise in Germany**\
-`Struggling a month ago, the far-left Die Linke party surged into Parliament by riding a backlash against conservative immigration policy.`\
-https://nytimes.com/2025/02/24/world/europe/germany-election-die-linke.html
-
-**Bird Flu Is Spreading. Are Eggs Safe?**\
-`Is it safe to eat eggs right now? Yes — but Megan Thielking, a Well editor, details a few things to know.`\
-https://nytimes.com/video/well/100000009990030/bird-flu-is-spreading-are-eggs-safe.html
-
-**Angels' Cole Fontenelle works to move on mentally and physically from 'horrible injury'**\
-`Fontenelle was on a fast track to the majors before he dislocated his ankle and fractured his fibula on May 4, 2024.`\
-https://nytimes.com/athletic/6155150/2025/02/24/angels-cole-fontenelle-injury/
-
-**The Athletic college baseball Top 25: SEC teams claim top five spots**\
-`Virginia dropped 11 spots after losing two games at the Karbach Round Rock Classic. Oklahoma, which beat UVA on Sunday, checks in at No. 23.`\
-https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
 

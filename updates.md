@@ -1,3 +1,23 @@
+**Hamas Official Expresses Reservations About Oct. 7 Attack on Israel**\
+`Mousa Abu Marzouk, the head of Hamas’s foreign relations office, said he would not have supported such an attack on Israel had he known of the devastation it would wreak on Gaza.`\
+https://nytimes.com/2025/02/24/world/middleeast/hamas-official-interview-attack-israel.html
+
+**Hollinger: Wemby, AD absences have huge implications, plus ... a 50-loss Play-In team?**\
+`Those guys won't qualify for All-NBA or postseason awards. That could mean millions for whoever takes their place.`\
+https://nytimes.com/athletic/6156159/2025/02/24/victor-wembanyama-anthony-davis-nba-awards/
+
+**Explaining Man Utd's latest round of up to 200 job cuts**\
+`Man Utd CEO Omar Berrada said: 'These hard choices are necessary to put the club back on a stable financial footing.'`\
+https://nytimes.com/athletic/6156082/2025/02/24/manchester-united-redundancies-cuts-explained/
+
+**Federal Judge Bars Elon Musk’s Team From Student Loan Databases**\
+`The American Federation of Teachers, a union representing more than 1.8 million educators, had sued to keep members of Mr. Musk’s government efficiency team out of the Education Department’s systems.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-doge-department-of-education-data-ban.html
+
+**UEFA president: ‘99 per cent of people' satisfied with new CL format**\
+`The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
+https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
+
 **UEFA's Ceferin: ‘99 per cent of people' satisfied with new CL format**\
 `The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
 https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
