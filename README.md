@@ -1,3 +1,7 @@
+**SAG Awards 2025: Complete List of Winners**\
+`“Conclave” took home the top film prize, while Demi Moore and Timothée Chalamet won top individual honors.`\
+https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
+
 **Kenyan Police Officer Fatally Injured in Haiti in Anti-Gang Operation**\
 `The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
 https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
 **Lynne Marie Stewart, Miss Yvonne on ‘Pee-wee’s Playhouse,’ Dies at 78**\
 `She was the “most beautiful woman in Puppetland” in the 1980s children’s show starring Paul Reubens, and more recently had a recurring role in “It’s Always Sunny in Philadelphia.”`\
 https://nytimes.com/2025/02/23/arts/television/lynne-marie-stewart-dead.html
-
-**Ten Things I Don’t Want To Hate About You**\
-`A father and son try to mend a rift between them in a very unusual way.`\
-https://nytimes.com/2025/02/23/podcasts/ten-things-i-dont-want-to-hate-about-you-this-american-life-nyt-audio.html
 
