@@ -1,3 +1,23 @@
+**Lewis Hall is Newcastle's new attacking weapon - as Nottingham Forest discovered**\
+`Why Eddie Howe's patient restructure of his defence is paying dividends `\
+https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-attacks/
+
+**MLS's record signings make immediate impact for their trophy-hungry clubs**\
+`For the two players who broke MLS's incoming transfer record, the 2025 season couldn't have started much better`\
+https://nytimes.com/athletic/6155720/2025/02/24/latte-lath-atlanta-denkey-cincinnati-mls-record-signings-goals/
+
+**Wild insider: How will Kirill Kaprizov's injury affect the trade deadline? 5 burning questions**\
+`When will Kaprizov return? How will Bill Guerin and the Wild approach the March 7 deadline?`\
+https://nytimes.com/athletic/6149430/2025/02/24/wild-trade-deadline-kirill-kaprizov-injury/
+
+**Ryan O'Reilly? Brock Nelson? Or should the Jets go shopping for chemistry?**\
+`Could the Jets take a big swing at this year's trade deadline? Let's look at past history for clues.`\
+https://nytimes.com/athletic/6132114/2025/02/24/jets-nhl-ryan-oreilly-brock-nelson-trade-deadline/
+
+**NBA Rewind: NBA Rewind: Luka Dončić resembles old self at the right time**\
+`Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
+https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
+
 **‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
 `The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
 https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
