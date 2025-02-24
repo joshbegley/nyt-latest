@@ -1,7 +1,3 @@
-**Carson Hocevar has a career-best day — and angers NASCAR's veterans in the process**\
-`The 22-year-old Hocevar finished second Sunday in Atlanta, but not without irking some of the sport's established stars.`\
-https://nytimes.com/athletic/6155697/2025/02/23/carson-hocevar-nascar-atlanta-veterans-controversy/
-
 **As Red Wings' playoff chase heats up, the moments are getting bigger**\
 `The Red Wings escaped Sunday with an overtime win. But another blown lead served to remind how precious each point is at this time of year.`\
 https://nytimes.com/athletic/6155585/2025/02/23/red-wings-playoff-chase-kane-kasper-ducks/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-roberts
 **SAG Awards 2025: ‘Conclave’ Comes on Strong**\
 `The thriller about choosing a new pope took home the top film prize, while Demi Moore and Timothée Chalamet won individual honors.`\
 https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
+
+**Kenyan Police Officer Killed in Haiti in Anti-Gang Operation**\
+`The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
+https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
 
