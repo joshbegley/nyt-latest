@@ -1,3 +1,23 @@
+**The Briefing: The Premier League title race is over, Rashford rejuvenated and the Palmer problem**\
+`Nick Miller dissects the main talking points from this weekend's Premier League action, from the title race to Cole Palmer's loss of form`\
+https://nytimes.com/athletic/6154930/2025/02/24/the-briefing-liverpool-title-race-marcus-rashford-cole-palmer/
+
+**Real Madrid 2 Girona 0: Coping without Bellingham, what Alaba return means and reactions to Modric wonderstrike**\
+`The key storylines from Real Madrid's win over Girona`\
+https://nytimes.com/athletic/6154982/2025/02/24/real-madrid-2-girona-0-coping-without-bellingham-what-alaba-return-means-and-reactions-to-modric-wonderstrike/
+
+**The Premier League is the promised land. But is promotion into it increasingly futile?**\
+`Promoted trio Southampton, Ipswich and Leicester are on track to record the lowest points tally of any Premier League bottom three`\
+https://nytimes.com/athletic/6154994/2025/02/24/premier-league-promotion-futile/
+
+**How Mbeumo became one of the Premier League's hottest properties**\
+`The forward has become a pivotal figure for Brentford and is likely to attract interest in the summer transfer window`\
+https://nytimes.com/athletic/6049089/2025/02/24/bryan-mbeumo-premier-league-brentford/
+
+**Andoni Iraola. Bournemouth. Frankenstein**\
+`The Bournemouth head coach talks philosophy, 'organised spontaneity' and his adopted town's unlikely association with Mary Shelley's monster`\
+https://nytimes.com/athletic/6148611/2025/02/24/andoni-iraola-bournemouth-frankenstein-shelley/
+
 **The Rubiales-Hermoso court case revealed so much - and the story is not complete yet**\
 `Laia Cervello Herrero reflects on the events in court and considers what comes next for its two highest-profile participants`\
 https://nytimes.com/athletic/6154176/2025/02/24/hermoso-rubiales-trial-conclusion/
@@ -14,27 +34,7 @@ https://nytimes.com/2025/02/24/world/asia/north-korea-china-fishing-boats.html
 `Results from Germany’s election.`\
 https://nytimes.com/2025/02/24/briefing/germany-election-west-bank.html
 
-**Three Years Into War in Ukraine, Trump Ushers in New World for Putin**\
-`Fresh possibilities have emerged for President Vladimir V. Putin of Russia with a change of power in Washington.`\
-https://nytimes.com/2025/02/24/world/europe/putin-trump-russia-ukraine-war.html
-
 **5 Takeaways From Germany’s Election**\
 `Friedrich Merz and his party won, Elon Musk didn’t seem to move voters, and more lessons from an early German vote with big implications for Europe.`\
 https://nytimes.com/2025/02/24/world/europe/takeaways-germany-election.html
-
-**In One Woman’s Life, the Story of Ukraine’s War, 3 Years On**\
-`In treatment for cancer and with her husband in a Russian prison, Olha Kurtmallaieva, 25, worries that time may be running out for her and, possibly, her country.`\
-https://nytimes.com/2025/02/24/world/europe/ukraine-prisoner-of-war.html
-
-**Europe Prepares to Face Russia as Trump’s America Steps Back**\
-`Europeans are debating additional funding and contemplating troops in Ukraine as American support appears ever more at risk.`\
-https://nytimes.com/2025/02/24/world/europe/europe-ukraine-anniversary.html
-
-**Carson Hocevar has a career-best day — and angers NASCAR's veterans in the process**\
-`The 22-year-old Hocevar finished second Sunday in Atlanta, but not without irking some of the sport's established stars.`\
-https://nytimes.com/athletic/6155697/2025/02/23/carson-hocevar-nascar-atlanta-veterans-controversy/
-
-**As Red Wings' playoff chase heats up, the moments are getting bigger**\
-`The Red Wings escaped Sunday with an overtime win. But another blown lead served to remind how precious each point is at this time of year.`\
-https://nytimes.com/athletic/6155585/2025/02/23/red-wings-playoff-chase-kane-kasper-ducks/
 
