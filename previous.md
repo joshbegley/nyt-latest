@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Robertson, fourth line flourish against Blackhawks**\
+`Nick Robertson scored twice in the second period to lead the Leafs to a comfortable road win over Chicago.`\
+https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-robertson-domi-blackhawks/
+
 **SAG Awards 2025: Complete List of Winners**\
 `“Conclave” took home the top film prize, while Demi Moore and Timothée Chalamet won top individual honors.`\
 https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/23/arts/television/the-baldwins-premiere-tlc-reality
 **Mystics trade All-Star Ariel Atkins to Sky for No. 3 draft pick**\
 `Washington also receives swap rights for Chicago's 2027 first round pick and acquires its second-round pick`\
 https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
-
-**Lynne Marie Stewart, Miss Yvonne on ‘Pee-wee’s Playhouse,’ Dies at 78**\
-`She was the “most beautiful woman in Puppetland” in the 1980s children’s show starring Paul Reubens, and more recently had a recurring role in “It’s Always Sunny in Philadelphia.”`\
-https://nytimes.com/2025/02/23/arts/television/lynne-marie-stewart-dead.html
 
