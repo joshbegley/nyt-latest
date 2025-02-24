@@ -1,3 +1,15 @@
+**Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
+`The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
+https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
+
+**Broncos assistant Michael Wilhoite arrested on suspicion of assaulting officer**\
+`The Broncos issued a statement saying they were aware of an incident involving assistant coach and were gathering more information.`\
+https://nytimes.com/athletic/6156968/2025/02/24/broncos-michael-wilhoite-coach-arrest/
+
+**Shelter at Roosevelt Hotel Will Close as N.Y.C. Migrant Crisis Eases**\
+`Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
+https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
+
 **AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
 `Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
 https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/

@@ -1,3 +1,11 @@
+**Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
+`The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
+https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
+
+**Broncos assistant Michael Wilhoite arrested on suspicion of assaulting officer**\
+`The Broncos issued a statement saying they were aware of an incident involving assistant coach and were gathering more information.`\
+https://nytimes.com/athletic/6156968/2025/02/24/broncos-michael-wilhoite-coach-arrest/
+
 **AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
 `Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
 https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
@@ -14,7 +22,7 @@ https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
 `The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
 https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
 
-**-Shelter at Roosevelt Hotel Will Close a N.Y.C. Migrant Crisis Eases**\
+**Shelter at Roosevelt Hotel Will Close as N.Y.C. Migrant Crisis Eases**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6156732/2025/02/24/nhl-trade-deadline-mikko-rantane
 **Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
 `The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
 https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
-
-**What we're seeing with the Bucks: Kyle Kuzma's versatility, Kevin Porter Jr.'s minutes**\
-`The Bucks have won three consecutive games since the All-Star break and four overall, and Kuzma has played an important part in each.`\
-https://nytimes.com/athletic/6155913/2025/02/24/bucks-kyle-kuzma-kevin-porter-jr/
-
-**Texas claims No. 1 spot in women's AP Top 25**\
-`Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
-https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/
 
