@@ -1,3 +1,7 @@
+**What I’m hearing and seeing about the Canadiens nearing the NHL trade deadline**\
+`Montreal is said to be exploring a package deal of Jake Evans and Joel Armia.`\
+https://nytimes.com/athletic/6155854/2025/02/24/montreal-canadiens-nhl-trade-deadline/
+
 **How do you win an NBA title with small guards? Cavs hope it's by 'stockpiling wings'**\
 `To offset 6-foot-1 Darius Garland and 6-3 Donovan Mitchell, Cleveland has added a bevy of rugged defenders on the wing.`\
 https://nytimes.com/athletic/6155784/2025/02/24/cavaliers-wings-nba-title-small-guards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155720/2025/02/24/latte-lath-atlanta-denkey-cincin
 **Wild insider: How will Kirill Kaprizov's injury affect the trade deadline? 5 burning questions**\
 `When will Kaprizov return? How will Bill Guerin and the Wild approach the March 7 deadline?`\
 https://nytimes.com/athletic/6149430/2025/02/24/wild-trade-deadline-kirill-kaprizov-injury/
-
-**Ryan O'Reilly? Brock Nelson? Or should the Jets go shopping for chemistry?**\
-`Could the Jets take a big swing at this year's trade deadline? Let's look at past history for clues.`\
-https://nytimes.com/athletic/6132114/2025/02/24/jets-nhl-ryan-oreilly-brock-nelson-trade-deadline/
 
