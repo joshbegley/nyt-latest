@@ -1,3 +1,15 @@
+**Francis Is in Critical Condition. What Happens When a Pope Dies?**\
+`Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
+https://nytimes.com/article/francis-what-happens-when-pope-dies.html
+
+**Liverpool's strikerless '4-2-4-0' system shows you don't need a No 9 to win Premier League**\
+`Liverpool played without a striker at the Etihad Stadium on Sunday but managed to win the game and move 11 clear at the top of the league`\
+https://nytimes.com/athletic/6155947/2025/02/24/liverpool-manchester-city-analysis-arne-slot/
+
+**USMNT Player Tracker: Sargent eases Pochettino concerns, Richards steps up, praise for Adams**\
+`Our weekly round-up of the Europe-based U.S. contingent's weekend contributions also includes Weston McKennie getting back to winning ways`\
+https://nytimes.com/athletic/6156282/2025/02/24/usmnt-sargent-adams-reyna-richards/
+
 **Oh, This Old, Tattered, Moth-Eaten Thing?**\
 `So-called thrashed clothes — garments resembling something closer to rags — are coveted by vintage fanatics.`\
 https://nytimes.com/2025/02/24/style/thrashed-distressed-vintage-clothing.html
