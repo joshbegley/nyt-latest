@@ -1,3 +1,7 @@
+**Cowboys questions we're most looking to get answered at this year's combine**\
+`Mike McCarthy is gone. Zack Martin is retiring. A lot has changed for the Cowboys in a short time. What are their priorities?`\
+https://nytimes.com/athletic/6151536/2025/02/24/cowboys-storylines-nfl-combine-draft/
+
 **Will the Panthers focus on defense? 8 storylines we'll be watching at the combine**\
 `Is it defense or bust this year? Would the Panthers consider trading back? Is Jalon Walker a top-10 pick?`\
 https://nytimes.com/athletic/6151550/2025/02/24/carolina-panthers-nfl-combine-draft-free-agency-storylines/
