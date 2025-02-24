@@ -1,3 +1,7 @@
+**Confusion Reigns Over Musk’s ‘What Did You Do Last Week?’ Email**\
+`President Trump said workers would be “sort of semi-fired” or fired if they didn’t comply. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
+
 **Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
 `The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
 https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/musk-trump-toes-video.html
 **LeBrun: Would Hurricanes trade Mikko Rantanen if they can't sign him by the trade deadline?**\
 `It seems Carolina’s only focus right now is keeping Rantanen, whether as an extended player or worst case as a rental.`\
 https://nytimes.com/athletic/6156732/2025/02/24/nhl-trade-deadline-mikko-rantanen-hurricanes/
-
-**Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
-`The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
-https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
 
