@@ -1,3 +1,7 @@
+**Ukraine Nears a Deal to Give U.S. a Share of Its Mineral Wealth**\
+`President Trump said that Ukraine’s president may soon visit the White House to sign a deal, though how it ties in to efforts to end the Russian invasion and guarantee Ukraine’s security is unclear.`\
+https://nytimes.com/live/2025/02/24/us/trump-musk-news/ukraine-us-mineral-wealth-deal
+
 **Federal Judge Shields More Transgender Inmates From Trump Order**\
 `A group of transgender women in federal prisons who would have been moved into men’s facilities can stay where they are for now.`\
 https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.html
