@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6154176/2025/02/24/hermoso-rubiales-trial-conclusio
 `Pep Guardiola's side are 20 points behind Liverpool, so attention now turns to whether City can evolve fast enough to challenge next season`\
 https://nytimes.com/athletic/6154878/2025/02/24/manchester-city-liverpool-transition/
 
-**North Koreans on Chinese Tuna Boats Trawl for Cash for Kim Jong-un**\
+**On Chinese Tuna Boats, North Koreans Trawl for Cash for Kim Jong-un**\
 `Thousands of miles from home, North Koreans work on Chinese tuna longliners in the Indian Ocean for pay that goes to their leader, a new study says.`\
 https://nytimes.com/2025/02/24/world/asia/north-korea-china-fishing-boats.html
 
