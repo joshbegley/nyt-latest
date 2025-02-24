@@ -1,3 +1,7 @@
+**Jorgensen still Chelsea first-choice goalkeeper - Maresca**\
+`Jorgensen was at fault for Chelsea losing the game in the 89th minute as he allowed a tame shot from Marco Asensio to go under his body.`\
+https://nytimes.com/athletic/6156023/2025/02/24/filip-jorgensen-chelsea-goalkeeper-starter/
+
 **Gaza Truce Could End in Days, With No Extension Agreed. What Happens Next?**\
 `Less than a week before it expires, Israel and Hamas have failed to agree to extend the cease-fire in Gaza. Here’s how the deal could still continue — and what happens if it doesn’t.`\
 https://nytimes.com/2025/02/24/world/middleeast/israel-hamas-gaza-ceasefire.html

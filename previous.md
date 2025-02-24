@@ -1,3 +1,7 @@
+**Jorgensen still Chelsea first-choice goalkeeper - Maresca**\
+`Jorgensen was at fault for Chelsea losing the game in the 89th minute as he allowed a tame shot from Marco Asensio to go under his body.`\
+https://nytimes.com/athletic/6156023/2025/02/24/filip-jorgensen-chelsea-goalkeeper-starter/
+
 **Gaza Truce Could End in Days, With No Extension Agreed. What Happens Next?**\
 `Less than a week before it expires, Israel and Hamas have failed to agree to extend the cease-fire in Gaza. Here’s how the deal could still continue — and what happens if it doesn’t.`\
 https://nytimes.com/2025/02/24/world/middleeast/israel-hamas-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155742/2025/02/24/bieber-carell-ferrell-hockey-cha
 **Phillies notes: Marchán at crossroads, Sánchez plays it cool, Marsh's robot revenge?**\
 `Plus updates on four other players, including a righty reliever who is someone to watch this spring. `\
 https://nytimes.com/athletic/6155152/2025/02/24/phillies-rafael-marchan-cristopher-sanchez-brandon-marsh/
-
-**Women’s college basketball power rankings: Who's the new No. 1 after Notre Dame falls?**\
-`As the regular season winds down, Chantel Jennings assesses power conference races. `\
-https://nytimes.com/athletic/6155599/2025/02/24/womens-college-basketball-power-rankings-notre-dame-loss/
 
