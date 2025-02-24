@@ -1,3 +1,19 @@
+**Stefanik’s Confirmation Is on Ice as Republicans Guard Their Scant Majority**\
+`The congresswoman from New York is in line to be confirmed as the U.S. ambassador to the United Nations. But first, her colleagues need her vote to pass their embattled budget plan.`\
+https://nytimes.com/2025/02/24/us/politics/elise-stefanik-un-ambassador-budget.html
+
+**Protesters Display Upside-Down American Flag at Yosemite**\
+`Organizers said the inverted flag, historically used as a sign distress, was meant to draw attention to the Trump administration’s cuts to the National Park Service.`\
+https://nytimes.com/2025/02/24/us/yosemite-upside-down-flag-protest.html
+
+**Utah fires basketball coach Craig Smith after nearly 4 seasons**\
+`The Utes were just 65-62 under Smith across nearly four seasons, with no appearances in the NCAA Tournament.`\
+https://nytimes.com/athletic/6157223/2025/02/24/utah-craig-smith-fired/
+
+**If Braves' pen is to remain elite, some pitchers will likely need to up their games**\
+`The Braves didn’t spend for any of the top available set-up men during the offseason, but team officials have confidence in this group.`\
+https://nytimes.com/athletic/6157279/2025/02/24/braves-bullpen-pierce-johnson-aaron-bummer/
+
 **Ukraine Nears a Deal to Give U.S. a Share of Its Mineral Wealth**\
 `President Trump said that Ukraine’s president may soon visit the White House to sign a deal, though how it ties in to efforts to end the Russian invasion and guarantee Ukraine’s security is unclear.`\
 https://nytimes.com/2025/02/24/world/europe/ukraine-us-mineral-wealth-deal.html
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-q
 **Green Bay Packers propose 'tush push' ban: Sources**\
 `Hurts led all NFL QBs with 14 rushing touchdowns with 13 of those coming in goal to go situations, according to TruMedia.`\
 https://nytimes.com/athletic/6157243/2025/02/24/green-bay-packers-tush-push-ban/
-
-**Roberta Flack, ‘Killing Me Softly’ Singer, Dies at 88**\
-`As a Grammy Award-winning singer and pianist, Roberta Flack topped the charts as one of the most popular artists of the 1970s.`\
-https://nytimes.com/video/arts/music/100000010009455/roberta-flack-singer-death.html
-
-**Tracking Tropical Cyclone Alfred**\
-`See the likely path and wind arrival times for Alfred.`\
-https://nytimes.com/interactive/2025/02/24/world/australia/alfred-map-path-tracker.html
-
-**Rams, Stafford should get more clarity in agent talks at NFL combine**\
-`The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved.`\
-https://nytimes.com/athletic/6157057/2025/02/24/rams-matthew-stafford-contract-situation-combine/
 
