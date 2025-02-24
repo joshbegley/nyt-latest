@@ -1,3 +1,7 @@
+**Kyle Davidson must do right by the Blackhawks, not Seth Jones. But will he be able to?**\
+`Now that Blackhawks teammates and fans are aware of Jones' trade request, how long can a mature, professional dynamic hold?`\
+https://nytimes.com/athletic/6155565/2025/02/23/blackhawks-seth-jones-kyle-davidson-trade-request/
+
 **Maple Leafs report cards: Nick Robertson, fourth line flourish against Blackhawks**\
 `Robertson scored twice in the second period to lead the Leafs to a comfortable road win over Chicago.`\
 https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-robertson-domi-blackhawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155441/2025/02/23/celtics-jrue-holiday-jaylen-brow
 **6 Takeaways From Alec and Hilaria Baldwin’s TLC Reality Show**\
 `The series begins just before he was scheduled to stand trial in the fatal shooting on the set of “Rust.” The reviews have been somewhat uneasy.`\
 https://nytimes.com/2025/02/23/arts/television/the-baldwins-premiere-tlc-reality-show.html
-
-**Mystics trade All-Star Ariel Atkins to Sky for No. 3 draft pick**\
-`Washington also receives swap rights for Chicago's 2027 first round pick and acquires its second-round pick`\
-https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
 

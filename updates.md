@@ -1,3 +1,7 @@
+**Kyle Davidson must do right by the Blackhawks, not Seth Jones. But will he be able to?**\
+`Now that Blackhawks teammates and fans are aware of Jones' trade request, how long can a mature, professional dynamic hold?`\
+https://nytimes.com/athletic/6155565/2025/02/23/blackhawks-seth-jones-kyle-davidson-trade-request/
+
 **SAG Awards 2025: ‘Conclave’ Comes on Strong**\
 `The thriller about choosing a new pope took home the top film prize, while Demi Moore and Timothée Chalamet won individual honors.`\
 https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
