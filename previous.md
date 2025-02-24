@@ -1,3 +1,11 @@
+**Right-Wing Commentator Named F.B.I. Deputy Director**\
+`The choice of Dan Bongino is a radical departure from the bureau’s history of having a veteran agent serve in the key role that oversees operations.`\
+https://nytimes.com/2025/02/23/us/politics/dan-bongino-fbi-deputy-director.html
+
+**Canucks leave the door open for Utah in familiarly frustrating loss: 3 takeaways**\
+`Another set of early penalties by Vancouver defencemen led to very similar back-to-back divisional losses.`\
+https://nytimes.com/athletic/6155257/2025/02/23/canucks-defence-penalties-chytil-mancini-utah/
+
 **Kyle Davidson must do right by the Blackhawks, not Seth Jones. But will he be able to?**\
 `Now that Blackhawks teammates and fans are aware of Jones' trade request, how long can a mature, professional dynamic hold?`\
 https://nytimes.com/athletic/6155565/2025/02/23/blackhawks-seth-jones-kyle-davidson-trade-request/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/pageoneplus/quotation-of-the-day-catholics-around
 **Yohe's 10 observations: Even in defeat, Sidney Crosby's weekend should be appreciated**\
 `The Penguins endured a goaltending meltdown despite outplaying the Rangers by some margin for back-to-back losses.`\
 https://nytimes.com/athletic/6155294/2025/02/23/penguins-crosby-effort-blomqvist-rangers/
-
-**Jaylen Brown calls for Jrue Holiday to be more aggressive: 'He tells me all the time'**\
-`"Jrue is more than capable of doing more," Brown says of his teammate. `\
-https://nytimes.com/athletic/6155441/2025/02/23/celtics-jrue-holiday-jaylen-brown-agressive/
-
-**6 Takeaways From Alec and Hilaria Baldwin’s TLC Reality Show**\
-`The series begins just before he was scheduled to stand trial in the fatal shooting on the set of “Rust.” The reviews have been somewhat uneasy.`\
-https://nytimes.com/2025/02/23/arts/television/the-baldwins-premiere-tlc-reality-show.html
 
