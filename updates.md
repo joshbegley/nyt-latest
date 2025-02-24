@@ -1,3 +1,11 @@
+**Confusion Reigns Over Musk’s ‘What Did You Do Last Week?’ Email**\
+`President Trump said workers would be “sort of semi-fired” or fired if they didn’t comply. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
+
+**The French president is visiting as the U.S. sidelines Europe in Ukraine peace talks.**\
+`The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
+https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
+
 **Manhattan Hotel Shelter That Became Symbol of Migrant Crisis Will Close**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in New York City’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html

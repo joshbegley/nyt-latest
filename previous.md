@@ -1,3 +1,7 @@
+**Confusion Reigns Over Musk’s ‘What Did You Do Last Week?’ Email**\
+`President Trump said workers would be “sort of semi-fired” or fired if they didn’t comply. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
+https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
+
 **Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
 `The former presidential candidate is seeking the top office in his home state after a brief stint on President Trump’s cost-cutting task force alongside Elon Musk.`\
 https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announcement.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
 `Marchand still believes in what the Bruins can accomplish: "We haven’t played our best yet. When we do, we can play with any team."`\
 https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadline-candidate/
 
-**Trump, Meeting With French President, Says He Might Visit Russia**\
+**The French president is visiting as the U.S. sidelines Europe in Ukraine peace talks.**\
 `The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
 https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/musk-trump-toes-video.html
 **LeBrun: Would Hurricanes trade Mikko Rantanen if they can't sign him by the trade deadline?**\
 `It seems Carolina’s only focus right now is keeping Rantanen, whether as an extended player or worst case as a rental.`\
 https://nytimes.com/athletic/6156732/2025/02/24/nhl-trade-deadline-mikko-rantanen-hurricanes/
-
-**Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
-`The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
-https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
 
