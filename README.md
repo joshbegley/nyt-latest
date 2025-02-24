@@ -1,3 +1,15 @@
+**College baseball week in review: Aces emerging at Florida, Wake Forest**\
+`Are Texas A&M's early-season offensive struggles an area of concern? Is UCLA back? Omaha pulls off a stunner. UMES wins!`\
+https://nytimes.com/athletic/6155474/2025/02/24/college-baseball-florida-wake-forest-lsu-tennessee/
+
+**Drake Batherson discusses his recent offensive struggles: 'You just got to turn the page'**\
+`The Senators need Batherson, among other players, to return to form over their next 25 games as they seek a playoff berth.`\
+https://nytimes.com/athletic/6155246/2025/02/24/senators-batherson-goals-offence-nhl/
+
+**Rangers appoint Ferguson as manager until end of season**\
+`Ferguson scored 60 goals in 431 first-team appearances at Rnagers as a player and his arrival follows the sacking of Philippe Clement.`\
+https://nytimes.com/athletic/6156316/2025/02/24/barry-ferguson-rangers-manager/
+
 **Lewis Hall is Newcastle's new attacking weapon - as Nottingham Forest discovered**\
 `Why Eddie Howe's patient restructure of his defence is paying dividends `\
 https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-attacks/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html
 **NBA Rewind: NBA Rewind: Luka Dončić resembles old self at the right time**\
 `Dallas plays at the Lakers on Tuesday night, and it will be a scene. Plus, the weekly stock report.`\
 https://nytimes.com/athletic/6147963/2025/02/24/nba-rewind-luka-doncic-takes-on-the-mavericks-and-the-spurs-face-big-questions/
-
-**Warren raises concerns about DOGE’s ability to access sensitive commerce data.**\
-`By Madeleine Ngo and Ana Swanson`\
-https://nytimes.com/live/2025/02/24/us/trump-news/warren-raises-concerns-about-doges-ability-to-access-sensitive-commerce-data
-
-**Should the Blues try to capitalize on Binnington's 4 Nations success with a trade?**\
-`With Binnington's performance for Team Canada earning plenty of plaudits, the Blues must decide if winning now or later is more important.`\
-https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nations-trade-options/
-
-**Flick: Players 'must be protected' after Yamal foul frustration**\
-`The 17-year-old shared an image on social media of a blood-soaked sock on his left foot following Saturday's win over Las Palmas.`\
-https://nytimes.com/athletic/6156170/2025/02/24/lamine-yamal-barcelona-fouls-hansi-flick/
 
