@@ -1,3 +1,11 @@
+**As Red Wings' playoff chase heats up, the moments are getting bigger**\
+`The Red Wings escaped Sunday with an overtime win. But another blown lead served to remind how precious each point is at this time of year.`\
+https://nytimes.com/athletic/6155585/2025/02/23/red-wings-playoff-chase-kane-kasper-ducks/
+
+**14 Unforgettable Looks at the SAG Awards**\
+`Angelic gowns, ‘Zoolander’ suits, pleated skirts and more.`\
+https://nytimes.com/2025/02/23/style/sag-awards-2025-best-looks.html
+
 **Germany Election Maps: How Conservatives Regained Power**\
 `Maps show how every district in Germany voted. The conservative Christian Democrats have won the most seats while the far-right AfD placed second.`\
 https://nytimes.com/interactive/2025/02/23/world/europe/germany-election-results-analysis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
 **Kenyan Police Officer Killed in Haiti in Anti-Gang Operation**\
 `The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
 https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
-
-**With Jimmy Butler, the Warriors are thriving when Steph Curry rests**\
-`Before the Butler trade, Golden State was a cumulative minus-90 without Curry in 51 games. Since the trade, it's plus-30 in six games.`\
-https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
-
-**‘The White Lotus’ Season 3, Episode 2 Recap: Who Was That Masked Man?**\
-`There are no answers this week — or even hints — to the identity of the dead body in the season premiere, but we do see a robbery.`\
-https://nytimes.com/2025/02/23/arts/television/the-white-lotus-season-3-episode-2-recap.html
 
