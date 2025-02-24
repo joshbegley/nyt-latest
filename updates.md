@@ -1,3 +1,7 @@
+**Jaylen Brown calls for Jrue Holiday to be more aggressive: 'He tells me all the time'**\
+`"Jrue is more than capable of doing more," Brown says of his teammate. `\
+https://nytimes.com/athletic/6155441/2025/02/23/celtics-jrue-holiday-jaylen-brown-agressive/
+
 **6 Takeaways From Alec and Hilaria Baldwin’s TLC Reality Show**\
 `The series begins just before he was scheduled to stand trial in the fatal shooting on the set of “Rust.” The reviews have been somewhat uneasy.`\
 https://nytimes.com/2025/02/23/arts/television/the-baldwins-premiere-tlc-reality-show.html
