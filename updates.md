@@ -1,3 +1,7 @@
+**‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
+`The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
+https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
+
 **Frank G. Wisner, Diplomat With Impact on Foreign Policy, Dies at 86**\
 `He headed U.S. embassies around the world and relished the role, bringing a gregarious style to promoting American interests. But he clashed with the Obama White House.`\
 https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html

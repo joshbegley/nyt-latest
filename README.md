@@ -1,3 +1,19 @@
+**Lewis Hall is Newcastle's new attacking weapon - as Nottingham Forest discovered**\
+`Why Eddie Howe's patient restructure of his defence is paying dividends `\
+https://nytimes.com/athletic/6156043/2025/02/24/lewis-hall-eddie-howe-newcastle-attacks/
+
+**MLS's record signings make immediate impact for their trophy-hungry clubs**\
+`For the two players who broke MLS's incoming transfer record, the 2025 season couldn't have started much better`\
+https://nytimes.com/athletic/6155720/2025/02/24/latte-lath-atlanta-denkey-cincinnati-mls-record-signings-goals/
+
+**Wild insider: How will Kirill Kaprizov's injury affect the trade deadline? 5 burning questions**\
+`When will Kaprizov return? How will Bill Guerin and the Wild approach the March 7 deadline?`\
+https://nytimes.com/athletic/6149430/2025/02/24/wild-trade-deadline-kirill-kaprizov-injury/
+
+**Ryan O'Reilly? Brock Nelson? Or should the Jets go shopping for chemistry?**\
+`Could the Jets take a big swing at this year's trade deadline? Let's look at past history for clues.`\
+https://nytimes.com/athletic/6132114/2025/02/24/jets-nhl-ryan-oreilly-brock-nelson-trade-deadline/
+
 **‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
 `The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
 https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6152206/2025/02/24/blues-jordan-binnington-4-nation
 **Flick: Players 'must be protected' after Yamal foul frustration**\
 `The 17-year-old shared an image on social media of a blood-soaked sock on his left foot following Saturday's win over Las Palmas.`\
 https://nytimes.com/athletic/6156170/2025/02/24/lamine-yamal-barcelona-fouls-hansi-flick/
-
-**Twins get first taste of ball-strike challenge system with future of catcher value in flux**\
-`Pitch framing isn't going anywhere for a while, and soon catchers will likely add ball-strike challenges to their responsibilities.`\
-https://nytimes.com/athletic/6154233/2025/02/24/twins-automated-ball-strike-system-catchers/
-
-**Rangers at 4 Nations: Fox's poor performance, Zibanejad's happiness and more**\
-`The Rangers sent six players to the best-on-best tournament. Here's how they did.`\
-https://nytimes.com/athletic/6154159/2025/02/24/4-nations-rangers-adam-fox-mika-zibanejad/
-
-**AJ Blubaugh is the 'honey guy' and the Astros' latest small-school success story**\
-`Blubaugh, who is on the cusp of earning a spot in Houston's rotation, shared bottles of homemade honey with his teammates.`\
-https://nytimes.com/athletic/6154965/2025/02/24/astros-aj-blubaugh-beekeper/
-
-**Luka Dončić trade is 'business of basketball' — and Jason Kidd can relate**\
-`Jason Kidd can relate to Luka Dončić's feelings after being traded. "It shocks you because you don’t know about that side of the business."`\
-https://nytimes.com/athletic/6153614/2025/02/24/luka-doncic-jason-kidd-mavericks-lakers-trade/
 
