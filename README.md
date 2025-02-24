@@ -31,7 +31,7 @@ https://nytimes.com/2025/02/23/us/politics/trump-usaid-employees-firing.html
 https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
 
 **At Least 3 Dead After Boat Capsizes Near Staten Island, Officials Say**\
-`The U.S. Coast Guard said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
+`Officials said one person was missing and two people were hospitalized after the boat, with six aboard, overturned on Sunday in the Ambrose Channel.`\
 https://nytimes.com/2025/02/23/nyregion/staten-island-overturned-boat.html
 
 **Yankees will no longer play Frank Sinatra's 'New York, New York' after losses**\
