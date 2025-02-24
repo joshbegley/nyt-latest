@@ -1,3 +1,7 @@
+**Full Time: USWNT one win from a trophy**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-final-full-time/
+
 **NIU's non-football programs headed to Horizon League, pending Board of Trustees approval**\
 `NIU recently announced it will join the Mountain West Conference as a football-only member in 2026.`\
 https://nytimes.com/athletic/6157419/2025/02/24/northern-illinois-horizon-league/
