@@ -1,3 +1,7 @@
+**The Meaning of Germany’s Election**\
+`We examine the role of immigration in the outcome.`\
+https://nytimes.com/2025/02/24/briefing/the-meaning-of-germanys-election.html
+
 **The Pulse: The NFL's QB mysteries**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine-the-pulse/
