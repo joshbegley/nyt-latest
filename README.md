@@ -1,5 +1,5 @@
 **Clint Hill, Who Sprang to Kennedys’ Side as Shots Were Fired, Dies at 93**\
-`A Secret Service agent, he leaped onto the president’s limousine in Dallas in 1963 and was credited with saving the first lady’s life, but he was haunted by his inability to save her husband.`\
+`A Secret Service agent, he leaped onto the president’s limousine in Dallas in 1963 and was credited with saving the first lady’s life. But he was haunted by his inability to save her husband.`\
 https://nytimes.com/2025/02/24/us/clint-hill-dead.html
 
 **Jane Fonda Says ‘Empathy Is Not Weak or Woke’ at the SAG Awards**\
