@@ -1,3 +1,11 @@
+**The Windup: Yankees enter their beard era**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6156422/2025/02/24/yankees-beards-devin-williams-the-windup/
+
+**The Bounce: After Spurs' latest bad news, what's next for Gregg Popovich's NBA career?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6156440/2025/02/24/gregg-popovich-victor-wembanyama-spurs-nba-the-bounce/
+
 **Lester Holt to Step Down as Anchor of ‘NBC Nightly News’**\
 `The longtime newscaster said he would leave the daily news show at the “start of summer.” NBC did not immediately name a successor.`\
 https://nytimes.com/2025/02/24/business/media/lester-holt-nbc-nightly-news.html
