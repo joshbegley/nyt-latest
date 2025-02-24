@@ -1,3 +1,11 @@
+**Chiefs NFL Draft big board: 20 players to watch in the first 3 rounds for positions of need**\
+`With the NFL combine starting this week, we identify 20 prospects who could be a fit for the Chiefs in the draft.`\
+https://nytimes.com/athletic/6152473/2025/02/24/chiefs-2025-nfl-draft-big-board/
+
+**Five Colts questions we’ll be looking to answer at the NFL combine**\
+`What level of "competition" will the Colts bring in for QB Anthony Richardson? Is GM Chris Ballard going to get aggressive in free agency?`\
+https://nytimes.com/athletic/6150616/2025/02/24/colts-nfl-scouting-combine-2025/
+
 **Cowboys questions we're most looking to get answered at this year's combine**\
 `Mike McCarthy is gone. Zack Martin is retiring. A lot has changed for the Cowboys in a short time. What are their priorities?`\
 https://nytimes.com/athletic/6151536/2025/02/24/cowboys-storylines-nfl-combine-draft/

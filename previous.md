@@ -1,3 +1,11 @@
+**Chiefs NFL Draft big board: 20 players to watch in the first 3 rounds for positions of need**\
+`With the NFL combine starting this week, we identify 20 prospects who could be a fit for the Chiefs in the draft.`\
+https://nytimes.com/athletic/6152473/2025/02/24/chiefs-2025-nfl-draft-big-board/
+
+**Five Colts questions we’ll be looking to answer at the NFL combine**\
+`What level of "competition" will the Colts bring in for QB Anthony Richardson? Is GM Chris Ballard going to get aggressive in free agency?`\
+https://nytimes.com/athletic/6150616/2025/02/24/colts-nfl-scouting-combine-2025/
+
 **Cowboys questions we're most looking to get answered at this year's combine**\
 `Mike McCarthy is gone. Zack Martin is retiring. A lot has changed for the Cowboys in a short time. What are their priorities?`\
 https://nytimes.com/athletic/6151536/2025/02/24/cowboys-storylines-nfl-combine-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/us/hawaii-gordon-cordeiro-wrongful-conviction.htm
 **America Has a Rogue President**\
 `The firing of three judge advocate generals is one more element of this administration’s attack on the rule of law.`\
 https://nytimes.com/2025/02/24/opinion/trump-hegseth-cq-brown-pentagon-firings-jag.html
-
-**An Important Judicial Tool Mysteriously Goes Missing at the Supreme Court**\
-`The justices have all but stopped issuing summary reversals, which are unsigned decisions used to correct clear errors by lower courts.`\
-https://nytimes.com/2025/02/24/us/supreme-court-summary-reversals.html
-
-**Corporate America Is Not Raring to Return to Russia if Trump Lifts Sanctions**\
-`The White House promised “incredible opportunities” if Moscow ended the war in Ukraine. But Russia’s economy is struggling and the business environment is unpredictable.`\
-https://nytimes.com/2025/02/24/business/trump-russia-ukraine-invest.html
 
