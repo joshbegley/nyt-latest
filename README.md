@@ -1,40 +1,40 @@
-**Exporting America’s Immigration Problem**\
-`The Trump administration has asked Panama to take in hundreds of people who cannot easily be sent back to their home countries.`\
-https://nytimes.com/2025/02/24/podcasts/the-daily/immigration-migrants-panama-trump.html
+**Gaza Truce Could End in Days, With No Extension Agreed. What Happens Next?**\
+`Less than a week before it expires, Israel and Hamas have failed to agree to extend the cease-fire in Gaza. Here’s how the deal could still continue — and what happens if it doesn’t.`\
+https://nytimes.com/2025/02/24/world/middleeast/israel-hamas-gaza-ceasefire.html
 
-**Wordle Review No. 1,347**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 25, 2025.`\
-https://nytimes.com/2025/02/24/crosswords/wordle-review-1347.html
+**What the Jets could learn from the Broncos' quarterback search**\
+`The Jets will continue their work on QBs at the NFL combine.`\
+https://nytimes.com/athletic/6152068/2025/02/24/new-york-jets-qb-search-nfl-combine/
 
-**Browns QB tracker: Evaluating the top passers and more at the NFL combine**\
-`Cleveland will get a chance to see (and meet) all the top QB prospects at the NFL combine in Indianapolis. `\
-https://nytimes.com/athletic/6151630/2025/02/24/browns-quarterback-tracker-nfl-combine/
+**Expect Commanders to gauge trade and free-agent market at NFL combine**\
+`Unlike in 2024, Washington’s roster-building path is more vague following a 12-5 regular season and surprise trip to the NFC championship. `\
+https://nytimes.com/athletic/6147346/2025/02/24/commanders-nfl-combine-free-agency-trade-market/
 
-**Republicans Face Backlash, and the Dangers of Fake A.I. Therapists**\
-`Plus, is the daytime soap opera back?`\
-https://nytimes.com/2025/02/24/podcasts/the-headlines/republican-backlash-musk-ai-therapists.html
+**Eight questions for Packers GM Brian Gutekunst at the NFL Scouting Combine**\
+`Gutekunst will speak with local reporters Tuesday morning in Indianapolis at the NFL Scouting Combine.`\
+https://nytimes.com/athletic/6151845/2025/02/24/packers-brian-gutekunst-nfl-scouting-combine/
 
-**Before the NHL, an all-Black hockey league helped to innovate the modern game**\
-`A commemorative game will be played Monday in Ottawa honoring the Colored Hockey League of the Maritimes' inaugural year of 1895.`\
-https://nytimes.com/athletic/6142035/2025/02/24/nhl-colored-hockey-league-ottawa-senators/
+**Will Travis Hunter do the unthinkable? NFL players debate if he should play WR, CB or both**\
+`"His ceiling as a CB is a lot more rare than his ceiling as a WR. He would become one of the 1-2-3 most dangerous DBs in the league."`\
+https://nytimes.com/athletic/6144413/2025/02/24/travis-hunter-nfl-draft-wide-receiver-cornerback-colorado/
 
-**Connections Companion No. 625**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Feb. 25, 2025.`\
-https://nytimes.com/2025/02/24/crosswords/connections-companion-625.html
+**Combine Preview: Lions enter 2025 with a new staff and an eye on the trenches**\
+`Colton Pouncy previews where the new-look Lions stand, how to break down a Brad Holmes presser and some prospects to know before April. `\
+https://nytimes.com/athletic/6150231/2025/02/24/detroit-lions-combine-draft-brad-holmes/
 
-**2025 NFL free-agency rankings top 150: Where do Aaron Rodgers, Tee Higgins, Sam Darnold fall?**\
-`The 2025 free-agent class is thin at the top, but there are still some quality players, including three Eagles in the top seven.`\
-https://nytimes.com/athletic/6119321/2025/02/24/nfl-2025-free-agent-rankings-best-available/
+**Where will baseball’s labor fight go? Just check the emails**\
+`In spring training, it's becoming clearer where the battle lines are being drawn ahead of the next labor negotiation. `\
+https://nytimes.com/athletic/6155666/2025/02/24/mlb-labor-fight-emails-league-union/
 
-**How Jannik Sinner's three-month ban could transform anti-doping in sports**\
-`The case of the world No. 1 in men's tennis is at the center of anti-doping protocols and reforms that could redefine its parameters.`\
-https://nytimes.com/athletic/6149390/2025/02/24/jannik-sinner-wada-deal-doping-ban/
+**'I got beat up by Justin Bieber': Steve Carell, Will Ferrell headline charity hockey game**\
+`Bieber "fought" Hockey Hall of Famer Jeremy Roenick — all in the name of raising money for Los Angeles fire victims.`\
+https://nytimes.com/athletic/6155742/2025/02/24/bieber-carell-ferrell-hockey-charity/
 
-**Fair or Not, Zelensky Is Angering Trump. Is His Style Hurting Ukraine?**\
-`Through three years of wartime leadership, Ukraine’s president has mostly played weak hands wisely. But his approach has fallen flat with the Trump administration.`\
-https://nytimes.com/2025/02/24/world/europe/ukraine-zelensky-trump.html
+**Phillies notes: Marchán at crossroads, Sánchez plays it cool, Marsh's robot revenge?**\
+`Plus updates on four other players, including a righty reliever who is someone to watch this spring. `\
+https://nytimes.com/athletic/6155152/2025/02/24/phillies-rafael-marchan-cristopher-sanchez-brandon-marsh/
 
-**Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
-`Chukwuemeka was introduced as a 70th minute substitute as Dortmund scored four times in the final 15 minutes.`\
-https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
+**Women’s college basketball power rankings: Who's the new No. 1 after Notre Dame falls?**\
+`As the regular season winds down, Chantel Jennings assesses power conference races. `\
+https://nytimes.com/athletic/6155599/2025/02/24/womens-college-basketball-power-rankings-notre-dame-loss/
 
