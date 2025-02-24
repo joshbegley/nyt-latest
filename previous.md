@@ -1,3 +1,19 @@
+**Four reasons why the Canucks must exercise patience at the trade deadline**\
+`This season has been a significant disappointment. The time has come for the Canucks, as an organization, to look forward.`\
+https://nytimes.com/athletic/6155254/2025/02/24/canucks-nhl-trade-deadline-2025/
+
+**How RZA Got Wu-Tang Clan Back Together for One Final Tour**\
+`The pathbreaking New York rap group, which has rarely performed as a full unit, is hitting the road for the last time.`\
+https://nytimes.com/2025/02/24/arts/music/rza-final-wu-tang-tour-interview.html
+
+**Eye test vs. analytics: What do you trust in Oilers player debates?**\
+`Defenceman Evan Bouchard and goaltender Stuart Skinner are under close scrutiny from Oilers fans.`\
+https://nytimes.com/athletic/6154512/2025/02/24/oilers-stats-bouchard-skinner-debate/
+
+**Liverpool to receive £2m Nike bonus if they win Premier League**\
+`Arne Slot's side extended their lead over second placed Arsenal to 11 points with an impressive 2-0 victory over Manchester City on Sunday`\
+https://nytimes.com/athletic/6156484/2025/02/24/liverpool-premier-league-title-bonus-nike/
+
 **Cade Cunningham's monster half carries surging Pistons: 'He can do anything'**\
 `Detroit has won six in a row to build a comfortable cushion for the sixth spot in the East.`\
 https://nytimes.com/athletic/6155785/2025/02/24/cade-cunningham-pistons-hawks-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
 **A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
 `Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
 https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
-
-**What I’m hearing and seeing about the Canadiens nearing the NHL trade deadline**\
-`Montreal is said to be exploring a package deal of Jake Evans and Joel Armia.`\
-https://nytimes.com/athletic/6155854/2025/02/24/montreal-canadiens-nhl-trade-deadline/
-
-**How do you win an NBA title with small guards? Cavs hope it's by 'stockpiling wings'**\
-`To offset 6-foot-1 Darius Garland and 6-3 Donovan Mitchell, Cleveland has added a bevy of rugged defenders on the wing.`\
-https://nytimes.com/athletic/6155784/2025/02/24/cavaliers-wings-nba-title-small-guards/
-
-**For a Mother and Son, Life Above a Brooklyn Library**\
-`When Miguelina Minier heard that her local library was being renovated with affordable housing added on top, she applied. It was about the 40th time she had tried a housing lottery.`\
-https://nytimes.com/2025/02/24/realestate/renters-sunset-park-brooklyn.html
-
-**Richard Jefferson to join Breen, Burke on ESPN's top NBA broadcast team**\
-`ESPN’s NBA booth has been in flux since the network let longtime analysts Jeff Van Gundy and Mark Jackson go in 2023.`\
-https://nytimes.com/athletic/6156321/2025/02/24/nba-finals-espn-tv-richard-jefferson/
 
