@@ -1,3 +1,11 @@
+**Mystics trade All-Star Ariel Atkins to Sky for No. 3 draft pick**\
+`Washington also receives swap rights for Chicago's 2027 first round pick and acquires its second-round pick`\
+https://nytimes.com/athletic/6155443/2025/02/23/mystics-sky-trade-ariel-atkins/
+
+**Lynne Marie Stewart, Miss Yvonne on ‘Pee-wee’s Playhouse,’ Dies at 78**\
+`She was the “most beautiful woman in Puppetland” in the 1980s children’s show starring Paul Reubens, and more recently had a recurring role in “It’s Always Sunny in Philadelphia.”`\
+https://nytimes.com/2025/02/23/arts/television/lynne-marie-stewart-dead.html
+
 **Ten Things I Don’t Want To Hate About You**\
 `A father and son try to mend a rift between them in a very unusual way.`\
 https://nytimes.com/2025/02/23/podcasts/ten-things-i-dont-want-to-hate-about-you-this-american-life-nyt-audio.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/23/opinion/trump-pentagon-military-firings.html
 **Dodger Details: Dustin May's return to the mound, Shohei Ohtani faces live pitching and more**\
 `May and Ohtani reached significant milestones in their comebacks from surgery.`\
 https://nytimes.com/athletic/6155289/2025/02/23/dodgers-dustin-may-shohei-ohtani/
-
-**Trump Appointees Fire 2,000 U.S.A.I.D. Employees and Put Others Worldwide on Leave**\
-`The announcement, by email, came two days after a judge said the Trump administration could proceed with plans that amount to dismantling the aid agency.`\
-https://nytimes.com/2025/02/23/us/politics/trump-usaid-employees-firing.html
-
-**Shedeur Sanders won't work out at NFL combine: Reports**\
-`Colorado star is widely considered a top two quarterback in the 2025 NFL Draft class with Miami’s Cam Ward.`\
-https://nytimes.com/athletic/6155269/2025/02/23/shedeur-sanders-nfl-combine/
 
