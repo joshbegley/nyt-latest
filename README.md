@@ -1,3 +1,11 @@
+**FPL Gameweek 27 preview: Cunha is hot property and a Salah-Palmer captaincy debate**\
+`With a short turnaround between gameweeks, Abdul Rehman looks ahead to a set of midweek fixtures in Fantasy Premier League`\
+https://nytimes.com/athletic/6155224/2025/02/24/fpl-gameweek-27-preview-cunha-salah-palmer/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm GMT (9am and 10am ET)`\
+https://nytimes.com/athletic/6155899/2025/02/24/inside-newcastle-live-qa-carabao-al-rumayyan-miley-pope/
+
 **Apple to Build A.I. Servers in Houston and Spend $500 Billion in U.S.**\
 `The company pledged the multibillion-dollar investment over the next four years, and said it would create 20,000 jobs. The new Texas facility is set to open in 2026.`\
 https://nytimes.com/2025/02/24/business/apple-500-million.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6147017/2025/02/24/nfl-2025-combine-schedule-tests-
 **Six Raiders questions as another new regime heads to the NFL Scouting Combine**\
 `The Raiders' future at quarterback continues to be the top question until Las Vegas finds a long-term solution at the position.`\
 https://nytimes.com/athletic/6150344/2025/02/24/raiders-nfl-combine-carroll-spytek/
-
-**After World Series disappointment, Yankees show up early with thoughts of revenge**\
-`After falling short against the Dodgers, several Yankees players got to work this winter: "Losing is the motivator."`\
-https://nytimes.com/athletic/6155259/2025/02/24/yankees-workouts-world-series-disappointment/
-
-**Tale of the tape: Why the Knicks shouldn't yet be considered in the NBA's elite**\
-`The weekend reaffirmed what was already out there: the Knicks aren't there yet.`\
-https://nytimes.com/athletic/6155098/2025/02/24/knicks-film-breakdown-defense-nba/
 
