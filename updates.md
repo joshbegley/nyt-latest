@@ -1,3 +1,7 @@
+**Tuesday Briefing: The Ukraine War’s 3rd Anniversary**\
+`Plus, letting resorts run wild.`\
+https://nytimes.com/2025/02/24/briefing/ukraine-war-anniversary-hamas-doubts-north-korea-fisherman.html
+
 **How long should NFL teams wait to draft a quarterback this year?**\
 `On "The Athletic Football Show," a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
 https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
