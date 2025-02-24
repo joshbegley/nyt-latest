@@ -1,3 +1,7 @@
+**Ukraine Marks War Anniversary With Somber Tone From Zelensky**\
+`For Ukrainians, Feb. 24 was a day to remember, without major ceremony, what has been lost in the three years since Russia’s invasion.`\
+https://nytimes.com/2025/02/24/world/europe/ukraine-war-anniversary-zelensky.html
+
 **‘Night Went Well’ for Ailing Pope, Vatican Says**\
 `Francis is being treated for pneumonia, a complex infection and kidney problems that have left him in critical condition.`\
 https://nytimes.com/2025/02/24/world/europe/pope-francis-health-vatican-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155774/2025/02/24/liverpool-premier-league-title-m
 **Hurzeler says Brighton 'needed to adapt' defensive approach**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler consulted with his players to change the way his side defend.`\
 https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hurzeler/
-
-**Word of the Day: enunciation**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/24/learning/word-of-the-day-enunciation.html
 

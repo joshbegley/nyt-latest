@@ -1,3 +1,7 @@
+**Ukraine Marks War Anniversary With Somber Tone From Zelensky**\
+`For Ukrainians, Feb. 24 was a day to remember, without major ceremony, what has been lost in the three years since Russia’s invasion.`\
+https://nytimes.com/2025/02/24/world/europe/ukraine-war-anniversary-zelensky.html
+
 **‘Night Went Well’ for Ailing Pope, Vatican Says**\
 `Francis is being treated for pneumonia, a complex infection and kidney problems that have left him in critical condition.`\
 https://nytimes.com/2025/02/24/world/europe/pope-francis-health-vatican-hospital.html
