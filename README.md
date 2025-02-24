@@ -1,3 +1,7 @@
+**‘True Friends’: Xi and Putin Emphasize Their Ties as Trump Courts Moscow**\
+`The Chinese and Russian leaders reaffirmed their relationship in a call on Monday, an apparent rebuff to the idea that the Trump administration could drive a wedge between the two countries.`\
+https://nytimes.com/2025/02/24/world/asia/xi-putin-call-russia-china-trump.html
+
 **Frank G. Wisner, Diplomat With Impact on Foreign Policy, Dies at 86**\
 `He headed U.S. embassies around the world and relished the role, bringing a gregarious style to promoting American interests. But he clashed with the Obama White House.`\
 https://nytimes.com/2025/02/24/us/politics/frank-g-wisner-ii-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154965/2025/02/24/astros-aj-blubaugh-beekeper/
 **Luka Dončić trade is 'business of basketball' — and Jason Kidd can relate**\
 `Jason Kidd can relate to Luka Dončić's feelings after being traded. "It shocks you because you don’t know about that side of the business."`\
 https://nytimes.com/athletic/6153614/2025/02/24/luka-doncic-jason-kidd-mavericks-lakers-trade/
-
-**Jebbison commits to Canada in significant dual-national coup**\
-`Canada lands another prized dual-national. Here's what went into his recruitment – and the significance of his commitment.`\
-https://nytimes.com/athletic/5990189/2025/02/24/daniel-jebbison-canada-england-jesse-marsch/
 
