@@ -1,3 +1,7 @@
+**LeBrun: Would Hurricanes trade Mikko Rantanen if they can't sign him by the trade deadline?**\
+`It seems Carolina’s only focus right now is keeping Rantanen, whether as an extended player or worst case as a rental.`\
+https://nytimes.com/athletic/6156732/2025/02/24/nhl-trade-deadline-mikko-rantanen-hurricanes/
+
 **Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
 `The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
 https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
