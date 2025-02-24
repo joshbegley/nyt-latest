@@ -1,3 +1,7 @@
+**Liverpool's giant step towards the Premier League title dispelled any lingering doubts**\
+`Liverpool's victory at Manchester City on Sunday put them even closer to the Premier League title`\
+https://nytimes.com/athletic/6155774/2025/02/24/liverpool-premier-league-title-manchester-city/
+
 **Hurzeler says Brighton 'needed to adapt' defensive approach**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler consulted with his players to change the way his side defend.`\
 https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hurzeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6151302/2025/02/24/tottenham-can-save-season/
 **Nottingham Forest's identity crisis - and how they can rediscover their best qualities**\
 `Nuno's side could still achieve something remarkable but will need to rediscover their resolve that has been missing`\
 https://nytimes.com/athletic/6154624/2025/02/24/nottingham-forest-newcastle-identity-crisis/
-
-**From unnecessary to irreplaceable: How Vitor Pereira turned Andre into Wolves' key player**\
-`With a guttural roar against Bournemouth, Andre summed up the spirit of a rejuvenated Wolverhampton Wanderers  `\
-https://nytimes.com/athletic/6154022/2025/02/24/andre-wolverhampton-wanderers-bournemouth-win-recap/
 

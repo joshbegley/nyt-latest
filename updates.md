@@ -1,3 +1,7 @@
+**Liverpool's giant step towards the Premier League title dispelled any lingering doubts**\
+`Liverpool's victory at Manchester City on Sunday put them even closer to the Premier League title`\
+https://nytimes.com/athletic/6155774/2025/02/24/liverpool-premier-league-title-manchester-city/
+
 **Hurzeler says Brighton 'needed to adapt' defensive approach**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler consulted with his players to change the way his side defend.`\
 https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hurzeler/
