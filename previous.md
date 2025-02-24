@@ -1,3 +1,11 @@
+**AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
+`Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
+https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
+
+**‘I’ve always planned on playing here my entire career’: Brad Marchand is not up for a trade**\
+`Marchand still believes in what the Bruins can accomplish: "We haven’t played our best yet. When we do, we can play with any team."`\
+https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadline-candidate/
+
 **Trump, Meeting With French President, Says He Might Visit Russia**\
 `The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
 https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
 `The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
 https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
 
-**Shelter at Roosevelt Hotel Will Close as N.Y.C. Migrant Crisis Eases**\
+**-Shelter at Roosevelt Hotel Will Close a N.Y.C. Migrant Crisis Eases**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
 
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6155913/2025/02/24/bucks-kyle-kuzma-kevin-porter-jr
 **Texas claims No. 1 spot in women's AP Top 25**\
 `Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
 https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/
-
-**F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
-`The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
-https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
 
