@@ -1,3 +1,7 @@
+**How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
+`The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
+https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
+
 **Shelter at Roosevelt Hotel Will Close as N.Y.C. Migrant Crisis Eases**\
 `Mayor Eric Adams announced on Monday that the hotel will stop housing migrants by June, calling the closure a milestone in the city’s response to the crisis.`\
 https://nytimes.com/2025/02/24/nyregion/roosevelt-hotel-migrant-shelter-closing.html
