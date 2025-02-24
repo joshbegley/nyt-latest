@@ -1,3 +1,7 @@
+**Cowboys questions we're most looking to get answered at this year's combine**\
+`Mike McCarthy is gone. Zack Martin is retiring. A lot has changed for the Cowboys in a short time. What are their priorities?`\
+https://nytimes.com/athletic/6151536/2025/02/24/cowboys-storylines-nfl-combine-draft/
+
 **Will the Panthers focus on defense? 8 storylines we'll be watching at the combine**\
 `Is it defense or bust this year? Would the Panthers consider trading back? Is Jalon Walker a top-10 pick?`\
 https://nytimes.com/athletic/6151550/2025/02/24/carolina-panthers-nfl-combine-draft-free-agency-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/supreme-court-summary-reversals.html
 **Corporate America Is Not Raring to Return to Russia if Trump Lifts Sanctions**\
 `The White House promised “incredible opportunities” if Moscow ended the war in Ukraine. But Russia’s economy is struggling and the business environment is unpredictable.`\
 https://nytimes.com/2025/02/24/business/trump-russia-ukraine-invest.html
-
-**Met Museum Returning Ancient Bronze Thought Stolen from Greek Museum**\
-`The head of a griffin from 7th century B.C. is believed to have been taken from a museum in Olympia in the 1930s and later sold on the art market.`\
-https://nytimes.com/2025/02/24/arts/design/met-museum-return-greek-griffin-head.html
 
