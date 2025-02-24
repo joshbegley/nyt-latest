@@ -1,3 +1,35 @@
+**Have 49ers begun talks with Brock Purdy? Ten questions ahead of NFL combine**\
+`The 49ers will head to the NFL combine with plenty on their to-do list, including meeting the agents of their soon-to-be free agents.`\
+https://nytimes.com/athletic/6151705/2025/02/24/49ers-nfl-combine-brock-purdy/
+
+**Jace Jung's breakneck style could be his greatest asset in Tigers' roster competition**\
+`Jung, a Tigers rookie, enters camp trying to win a job at third base. Can his no-fear mindset and natural bat set him apart?`\
+https://nytimes.com/athletic/6155154/2025/02/24/detroit-tigers-jace-jung/
+
+**A guide to the Guardians' ample starting pitcher options**\
+`Here's everything you need to know about the Guardians' starting pitchers after the team spent the offseason stockpiling arms.`\
+https://nytimes.com/athletic/6151502/2025/02/24/cleveland-guardians-starting-pitchers/
+
+**Four Chargers questions we'll be looking to answer at the NFL combine**\
+`In the second year of the Jim Harbaugh-Joe Hortiz regime, the Chargers have ample cap space and plenty of options at their disposal. `\
+https://nytimes.com/athletic/6147747/2025/02/24/chargers-nfl-combine-questions/
+
+**Everything to know about the 2025 NFL Scouting Combine: Schedule, drills**\
+`Find out what days position groups will work out, the different drills that will be done and more about the annual event in Indianapolis.`\
+https://nytimes.com/athletic/6147017/2025/02/24/nfl-2025-combine-schedule-tests-drills/
+
+**Six Raiders questions as another new regime heads to the NFL Scouting Combine**\
+`The Raiders' future at quarterback continues to be the top question until Las Vegas finds a long-term solution at the position.`\
+https://nytimes.com/athletic/6150344/2025/02/24/raiders-nfl-combine-carroll-spytek/
+
+**After World Series disappointment, Yankees show up early with thoughts of revenge**\
+`After falling short against the Dodgers, several Yankees players got to work this winter: "Losing is the motivator."`\
+https://nytimes.com/athletic/6155259/2025/02/24/yankees-workouts-world-series-disappointment/
+
+**Tale of the tape: Why the Knicks shouldn't yet be considered in the NBA's elite**\
+`The weekend reaffirmed what was already out there: the Knicks aren't there yet.`\
+https://nytimes.com/athletic/6155098/2025/02/24/knicks-film-breakdown-defense-nba/
+
 **Observations from Red Sox camp as Grapefruit League play gets underway**\
 `Thoughts on the first two weeks of camp, including Alex Bregman's defensive work, Kristian Campbell's progress and much more.`\
 https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-observations/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-ob
 **The Babe Ruth of bunting is helping the Reds lay down the lumber**\
 `Reds players are excited to work with Brett Butler, who put down 245 bunt singles during his 17-year big-league career.`\
 https://nytimes.com/athletic/6155303/2025/02/24/reds-bunting-brett-butler/
-
-**Examining the Broncos' NFL combine priorities as they look to build around QB Bo Nix**\
-`How will the Broncos stack a talented class of running backs? Can they find an elusive tight end asset for their young quarterback?`\
-https://nytimes.com/athletic/6151592/2025/02/24/broncos-nfl-scouting-combine-priorities/
-
-**In Brent Rooker, the A’s find a centerpiece for their new home**\
-`The 30-year-old slugger is the first A's star to sign a deal that extends his tenure with the team into its expected Vegas debut. `\
-https://nytimes.com/athletic/6155251/2025/02/24/brent-rooker-athletics-home-sacramento-vegas/
-
-**Projecting the 2030 Olympic men's hockey rosters for Canada and the U.S.**\
-`A look at the future of both the Canadian and American national teams and how the next wave of stars for both countries could fit in.`\
-https://nytimes.com/athletic/6150244/2025/02/24/winter-olympics-2030-hockey-canada-usa-rosters/
-
-**Brighton's Veltman sidelined for several weeks with foot injury**\
-`Veltman is expected to be ruled out for a number of key matches, beginning with Tuesday's home game against Bournemouth.`\
-https://nytimes.com/athletic/6156050/2025/02/24/joel-veltman-brighton-foot-injury/
-
-**Weekend NHL rankings: Closing the book on a memorable 4 Nations Face-Off**\
-`With only two days' worth of NHL action to review, the aftermath of the 4 Nations Face-Off offers more food for thought.`\
-https://nytimes.com/athletic/6154941/2025/02/24/nhl-weekend-rankings-4-nations-face-off/
-
-**The Meaning of Germany’s Election**\
-`We examine the role of immigration in the outcome.`\
-https://nytimes.com/2025/02/24/briefing/the-meaning-of-germanys-election.html
-
-**The Pulse: The NFL's QB mysteries**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine-the-pulse/
-
-**Arsenal fans: What are your priorities for the rest of the season?**\
-`Let us know your thoughts on the closing months of the season`\
-https://nytimes.com/athletic/6155925/2025/02/24/arsenal-fans-what-are-your-priorities-for-rest-of-the-season/
 
