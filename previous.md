@@ -1,3 +1,27 @@
+**Observations from Red Sox camp as Grapefruit League play gets underway**\
+`Thoughts on the first two weeks of camp, including Alex Bregman's defensive work, Kristian Campbell's progress and much more.`\
+https://nytimes.com/athletic/6152619/2025/02/24/red-sox-spring-training-early-observations/
+
+**The Babe Ruth of bunting is helping the Reds lay down the lumber**\
+`Reds players are excited to work with Brett Butler, who put down 245 bunt singles during his 17-year big-league career.`\
+https://nytimes.com/athletic/6155303/2025/02/24/reds-bunting-brett-butler/
+
+**Examining the Broncos' NFL combine priorities as they look to build around QB Bo Nix**\
+`How will the Broncos stack a talented class of running backs? Can they find an elusive tight end asset for their young quarterback?`\
+https://nytimes.com/athletic/6151592/2025/02/24/broncos-nfl-scouting-combine-priorities/
+
+**In Brent Rooker, the A’s find a centerpiece for their new home**\
+`The 30-year-old slugger is the first A's star to sign a deal that extends his tenure with the team into its expected Vegas debut. `\
+https://nytimes.com/athletic/6155251/2025/02/24/brent-rooker-athletics-home-sacramento-vegas/
+
+**Projecting the 2030 Olympic men's hockey rosters for Canada and the U.S.**\
+`A look at the future of both the Canadian and American national teams and how the next wave of stars for both countries could fit in.`\
+https://nytimes.com/athletic/6150244/2025/02/24/winter-olympics-2030-hockey-canada-usa-rosters/
+
+**Brighton's Veltman sidelined for several weeks with foot injury**\
+`Veltman is expected to be ruled out for a number of key matches, beginning with Tuesday's home game against Bournemouth.`\
+https://nytimes.com/athletic/6156050/2025/02/24/joel-veltman-brighton-foot-injury/
+
 **Weekend NHL rankings: Closing the book on a memorable 4 Nations Face-Off**\
 `With only two days' worth of NHL action to review, the aftermath of the 4 Nations Face-Off offers more food for thought.`\
 https://nytimes.com/athletic/6154941/2025/02/24/nhl-weekend-rankings-4-nations-face-off/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine
 **Arsenal fans: What are your priorities for the rest of the season?**\
 `Let us know your thoughts on the closing months of the season`\
 https://nytimes.com/athletic/6155925/2025/02/24/arsenal-fans-what-are-your-priorities-for-rest-of-the-season/
-
-**Jorgensen still Chelsea first-choice goalkeeper - Maresca**\
-`Jorgensen was at fault for Chelsea losing the game in the 89th minute as he allowed a tame shot from Marco Asensio to go under his body.`\
-https://nytimes.com/athletic/6156023/2025/02/24/filip-jorgensen-chelsea-goalkeeper-starter/
-
-**Gaza Truce Could End in Days, With No Extension Agreed. What Happens Next?**\
-`Less than a week before it expires, Israel and Hamas have failed to agree to extend the cease-fire in Gaza. Here’s how the deal could still continue — and what happens if it doesn’t.`\
-https://nytimes.com/2025/02/24/world/middleeast/israel-hamas-gaza-ceasefire.html
-
-**What the Jets could learn from the Broncos' quarterback search**\
-`The Jets will continue their work on QBs at the NFL combine.`\
-https://nytimes.com/athletic/6152068/2025/02/24/new-york-jets-qb-search-nfl-combine/
-
-**Expect Commanders to gauge trade and free-agent market at NFL combine**\
-`Unlike in 2024, Washington’s roster-building path is more vague following a 12-5 regular season and surprise trip to the NFC championship. `\
-https://nytimes.com/athletic/6147346/2025/02/24/commanders-nfl-combine-free-agency-trade-market/
-
-**Eight questions for Packers GM Brian Gutekunst at the NFL Scouting Combine**\
-`Gutekunst will speak with local reporters Tuesday morning in Indianapolis at the NFL Scouting Combine.`\
-https://nytimes.com/athletic/6151845/2025/02/24/packers-brian-gutekunst-nfl-scouting-combine/
-
-**Will Travis Hunter do the unthinkable? NFL players debate if he should play WR, CB or both**\
-`"His ceiling as a CB is a lot more rare than his ceiling as a WR. He would become one of the 1-2-3 most dangerous DBs in the league."`\
-https://nytimes.com/athletic/6144413/2025/02/24/travis-hunter-nfl-draft-wide-receiver-cornerback-colorado/
 
