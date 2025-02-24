@@ -1,3 +1,7 @@
+**Is Andrei Kuzmenko trade bait, or could he be a longer-term fit for Flyers?**\
+`Kuzmenko is in the final season of a two-year, $11 million deal that also has a modified 12-team no-trade clause.`\
+https://nytimes.com/athletic/6157225/2025/02/24/kuzmenko-flyers-trade-contract/
+
 **How long should teams wait to draft a quarterback this year?**\
 `On The Athletic Football Show, a discussion of how to approach an underwhelming 2025 NFL Draft quarterback class.`\
 https://nytimes.com/athletic/6156524/2025/02/24/athletic-football-show-mailbag-quarterback-draft/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6156901/2025/02/24/cleveland-guardians-owner-larry-
 **Roque move from Barca to Palmeiras stalls over transfer rules**\
 `Roque joined Barcelona in January 2024 in a transfer worth €30million (£26m; $33m) in fixed fees, plus €31m more in add-ons.`\
 https://nytimes.com/athletic/6155906/2025/02/24/vitor-roque-barcelona-transfer-palmeiras-betis/
-
-**Delta Flight Makes Emergency Landing After ‘Possible Smoke’ in Plane, F.A.A. Says**\
-`Flight 876 returned to Hartsfield-Jackson Atlanta International Airport on Monday after the crew reported seeing haze in the flight deck.`\
-https://nytimes.com/2025/02/24/us/delta-atlanta-flight-haze.html
 
