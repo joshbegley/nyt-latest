@@ -1,7 +1,3 @@
-**Tracking Tropical Cyclone Alfred**\
-`See the likely path and wind arrival times for Alfred.`\
-https://nytimes.com/interactive/2025/02/24/world/australia/alfred-map-path-tracker.html
-
 **Rams, Stafford should get more clarity in agent talks at NFL combine**\
 `The Rams can get little else done in free agency until the ongoing contract dispute with Matthew Stafford is resolved`\
 https://nytimes.com/athletic/6157057/2025/02/24/rams-matthew-stafford-contract-situation-combine/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/24/business/economy/germany-election-economy.html
 **A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
 `Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
 https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
+
+**Boise State RB Ashton Jeanty will skip on-field drills at NFL combine: Source**\
+`Jeanty is the No. 5 overall prospect on The Athletic's draft big board after posting 2,739 scrimmage yards and 30 touchdowns last season.`\
+https://nytimes.com/athletic/6156865/2025/02/24/ashton-jeanty-nfl-combine-workouts/
 
