@@ -1,3 +1,7 @@
+**Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
+`Carney Chukwuemeka’s debut for Borussia Dortmund was described as “sensationally good” by head coach Niko Kovac, following the 6-0 Bundesliga win over Union Berlin on Saturday.`\
+https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
+
 **Chiefs NFL Draft big board: 20 players to watch in the first 3 rounds for positions of need**\
 `With the NFL combine starting this week, we identify 20 prospects who could be a fit for the Chiefs in the draft.`\
 https://nytimes.com/athletic/6152473/2025/02/24/chiefs-2025-nfl-draft-big-board/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6146144/2025/02/24/patriots-wide-receiver-tee-higgi
 **Hawaii Man Wrongfully Convicted of Murder Is Freed After 30 Years**\
 `Gordon Cordeiro, 51, who was serving a life sentence for a 1994 murder on Maui, was released on Friday after DNA evidence was presented in his case.`\
 https://nytimes.com/2025/02/24/us/hawaii-gordon-cordeiro-wrongful-conviction.html
-
-**America Has a Rogue President**\
-`The firing of three judge advocate generals is one more element of this administration’s attack on the rule of law.`\
-https://nytimes.com/2025/02/24/opinion/trump-hegseth-cq-brown-pentagon-firings-jag.html
 
