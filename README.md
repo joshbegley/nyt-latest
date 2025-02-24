@@ -2,8 +2,8 @@
 `The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
 https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
 
-**With Jimmy Butler, Warriors are thriving in the minutes when Steph Curry rests**\
-`Before the Butler trade Golden State was a cumulative minus-90 without Curry in 51 games. Since the trade it's plus-30 in six games.`\
+**With Jimmy Butler, the Warriors are thriving when Steph Curry rests**\
+`Before the Butler trade, Golden State was a cumulative minus-90 without Curry in 51 games. Since the trade, it's plus-30 in six games.`\
 https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
 
 **‘The White Lotus’ Season 3, Episode 2 Recap: Who Was That Masked Man?**\
