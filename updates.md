@@ -1,3 +1,11 @@
+**Cowboys EVP Stephen Jones: Offseason plan is to be 'selectively aggressive'**\
+`The Cowboys are not usually a big player in free agency. Could that change after their divisional rival won the Super Bowl?`\
+https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combine-stephen-jones/
+
+**Joann, 80-Year-Old Crafts and Fabrics Retailer, Will Close All Stores**\
+`The announcement that the chain would close all 800 of its stores in 49 states comes after a period of financial turmoil.`\
+https://nytimes.com/2025/02/24/business/joann-stores-closing.html
+
 **Putin Dangles Rare Earths Deals for U.S. in Russia and Occupied Ukraine**\
 `In an interview broadcast on Monday, President Vladimir Putin said U.S. companies stood to profit in Russia, but suggested a Ukraine peace deal was still far-off.`\
 https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-russia.html

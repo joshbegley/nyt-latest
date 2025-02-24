@@ -1,3 +1,11 @@
+**Cowboys EVP Stephen Jones: Offseason plan is to be 'selectively aggressive'**\
+`The Cowboys are not usually a big player in free agency. Could that change after their divisional rival won the Super Bowl?`\
+https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combine-stephen-jones/
+
+**Joann, 80-Year-Old Crafts and Fabrics Retailer, Will Close All Stores**\
+`The announcement that the chain would close all 800 of its stores in 49 states comes after a period of financial turmoil.`\
+https://nytimes.com/2025/02/24/business/joann-stores-closing.html
+
 **Putin Dangles Rare Earths Deals for U.S. in Russia and Occupied Ukraine**\
 `In an interview broadcast on Monday, President Vladimir Putin said U.S. companies stood to profit in Russia, but suggested a Ukraine peace deal was still far-off.`\
 https://nytimes.com/2025/02/24/world/europe/putin-interview-business-deals-in-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/style/red-carpet-host-sag-awards-oscars.html
 **NHL reduces Ryan Hartman's suspension to 8 games, hopes it's a 'wake-up call' for Wild forward**\
 `Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
 https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
-
-**Michigan expected to bring back Biff Poggi as associate head coach: Source**\
-`The 64-year-old coach played a key role in helping Jim Harbaugh turn around a Wolverines program that won a national title in 2023.`\
-https://nytimes.com/athletic/6157511/2025/02/24/michigan-biff-poggi-coach-jim-harbaugh/
-
-**Logan Webb is a safe bet for the Giants, but there's a pitch worth monitoring**\
-`Webb is one of the most reliably consistent pitchers in the league, but one pitch has fluctuated in effectiveness a bit the past two years.`\
-https://nytimes.com/athletic/6156735/2025/02/24/sf-giants-logan-webb-pitch-analysis/
 
