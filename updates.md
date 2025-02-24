@@ -1,3 +1,7 @@
+**Apple to Build A.I. Servers in Houston and Spend $500 Billion in U.S.**\
+`The company pledged the multibillion-dollar investment over the next four years, and said it would create 20,000 jobs. The new Texas facility is set to open in 2026.`\
+https://nytimes.com/2025/02/24/business/apple-tariffs-jobs-investment.html
+
 **FPL Gameweek 27 preview: Cunha is hot property and a Salah-Palmer captaincy debate**\
 `With a short turnaround between gameweeks, Abdul Rehman looks ahead to a set of midweek fixtures in Fantasy Premier League`\
 https://nytimes.com/athletic/6155224/2025/02/24/fpl-gameweek-27-preview-cunha-salah-palmer/

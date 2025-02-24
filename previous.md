@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6155899/2025/02/24/inside-newcastle-live-qa-carabao
 
 **Apple to Build A.I. Servers in Houston and Spend $500 Billion in U.S.**\
 `The company pledged the multibillion-dollar investment over the next four years, and said it would create 20,000 jobs. The new Texas facility is set to open in 2026.`\
-https://nytimes.com/2025/02/24/business/apple-500-million.html
+https://nytimes.com/2025/02/24/business/apple-tariffs-jobs-investment.html
 
 **The Athletic FC: What's left to play for in Premier League? Messi taunted, Neymar's olimpico**\
 `Today in TAFC: What is left to play for in the Premier League? MLS kicks off with some taunting of Messi, Neymar score incredible olimpico.`\
