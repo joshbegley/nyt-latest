@@ -1,4 +1,4 @@
-**NHL reduces Ryan Hartman's suspension from 10 games to 8, hopes Wild forward will get 'wake-up call'**\
+**NHL reduces Ryan Hartman's suspension to 8 games — hopes it's a 'wake-up call' for Wild forward**\
 `Commissioner Gary Bettman wrote he hopes Hartman will "reevaluate his conduct on the ice and make positive changes to his game."`\
 https://nytimes.com/athletic/6151465/2025/02/24/ryan-hartman-loses-suspension-appeal-wild/
 
