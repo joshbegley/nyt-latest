@@ -1,3 +1,7 @@
+**1 Person Is Still Missing After Boat Capsizes Off the Coast of Queens**\
+`Rescue crews were still searching for a man after a small boat overturned in the Ambrose Channel on Sunday. At least three of the six people aboard died and two remained hospitalized, officials said.`\
+https://nytimes.com/2025/02/24/nyregion/nyc-boat-capsizes-staten-island.html
+
 **Rosenthal: Early injuries increase concerns for Mets rotation, but it’s too soon to panic**\
 `Both Sean Manaea and Frankie Montas are expected to start the regular season on the injured list. `\
 https://nytimes.com/athletic/6157741/2025/02/24/mets-rotation-injuries-concern-manaea-montas/
