@@ -1,3 +1,15 @@
+**Starbucks to Lay Off 1,100 Corporate Employees Amid Sluggish Sales**\
+`The jobs cuts, which will affect about 7 percent of the chain’s non-retail staff, are part of its new chief executive’s plan to win back customers.`\
+https://nytimes.com/2025/02/24/business/starbucks-layoffs.html
+
+**Roberta Flack’s 11 Essential Songs**\
+`One of the supreme voices of the 1970s and a master of revelatory reinterpretation has died at 88.`\
+https://nytimes.com/2025/02/24/arts/music/roberta-flack-songs.html
+
+**Star Maestro, Facing Recurrence of Brain Cancer, Scales Back Concerts**\
+`Michael Tilson Thomas, who led the San Francisco Symphony for 25 years, said, “Now is the time to wind down my public appearances.”`\
+https://nytimes.com/2025/02/24/arts/music/michael-tilson-thomas-brain-cancer.html
+
 **Farmers Sue Over Deletion of Climate Data From Government Websites**\
 `The data, which disappeared from Agriculture Department sites in recent weeks, was useful to farmers for business planning, the lawsuit said.`\
 https://nytimes.com/2025/02/24/climate/agriculture-farmer-website-data-lawsuit.html

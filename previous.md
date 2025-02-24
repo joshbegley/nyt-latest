@@ -1,3 +1,15 @@
+**Starbucks to Lay Off 1,100 Corporate Employees Amid Sluggish Sales**\
+`The jobs cuts, which will affect about 7 percent of the chain’s non-retail staff, are part of its new chief executive’s plan to win back customers.`\
+https://nytimes.com/2025/02/24/business/starbucks-layoffs.html
+
+**Roberta Flack’s 11 Essential Songs**\
+`One of the supreme voices of the 1970s and a master of revelatory reinterpretation has died at 88.`\
+https://nytimes.com/2025/02/24/arts/music/roberta-flack-songs.html
+
+**Star Maestro, Facing Recurrence of Brain Cancer, Scales Back Concerts**\
+`Michael Tilson Thomas, who led the San Francisco Symphony for 25 years, said, “Now is the time to wind down my public appearances.”`\
+https://nytimes.com/2025/02/24/arts/music/michael-tilson-thomas-brain-cancer.html
+
 **Farmers Sue Over Deletion of Climate Data From Government Websites**\
 `The data, which disappeared from Agriculture Department sites in recent weeks, was useful to farmers for business planning, the lawsuit said.`\
 https://nytimes.com/2025/02/24/climate/agriculture-farmer-website-data-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/24/business/media/lester-holt-nbc-nightly-news.html
 **NASCAR has put itself in a caution-flag conundrum with last-lap inconsistencies**\
 `To throw a caution flag or not on last-lap crashes? A string of tests of the policy — with inconsistent choices — has NASCAR in a pickle.`\
 https://nytimes.com/athletic/6155694/2025/02/24/nascar-caution-flag-last-lap-green-flag-rules/
-
-**Scoop City: 19 immediate impact players "available" this offseason**\
-`Inside: The latest here in Indianapolis.`\
-https://nytimes.com/athletic/6156441/2025/02/24/nfl-offseason-best-players-available-19-scoop-city/
-
-**Sequins, Merch, Chain Saws: Trump’s Return to CPAC**\
-`Inside the pro-Trump scene at the yearly conference.`\
-https://nytimes.com/2025/02/24/opinion/cpac-trump.html
-
-**These 5 Books Might Make You a Better Friend**\
-`Counselors, researchers and health professionals share the titles they recommend the most.`\
-https://nytimes.com/2025/02/24/well/friendship-books.html
 
