@@ -1,7 +1,3 @@
-**Institute Asks Judge in Trump Documents Case to Disclose Special Counsel Report**\
-`The report is the second volume of a report Jack Smith wrote after dropping the federal criminal cases he brought against Donald J. Trump because of his 2024 election victory.`\
-https://nytimes.com/2025/02/24/us/trump-documents-report.html
-
 **Clint Hill, Who Sprang to Kennedys’ Side as Shots Were Fired, Dies at 93**\
 `A Secret Service agent, he leaped onto the president’s limousine in Dallas in 1963 and was credited with saving the first lady’s life. But he was haunted by his inability to save her husband.`\
 https://nytimes.com/2025/02/24/us/clint-hill-dead.html
@@ -15,7 +11,7 @@ https://nytimes.com/2025/02/24/movies/jane-fonda-sag-awards-speech.html
 https://nytimes.com/athletic/6156775/2025/02/24/chicago-bulls-mailbag-nba/
 
 **Federal Personnel Office Tells Agencies That Musk’s Directive Is ‘Voluntary’**\
-`President Trump said employees would be “sort of semi-fired” or fired if they didn’t comply with an order to detail their work. The Office of Personnel Management said responses were voluntary. Federal workers said they didn’t know what to do.`\
+`President Trump said employees would be “sort of semi-fired” or fired if they didn’t comply with an Elon Musk order to detail their work. Some agencies told staff members to ignore it. Federal workers said they didn’t know what to do.`\
 https://nytimes.com/2025/02/24/us/politics/elon-musk-email-federal-workers.html
 
 **Vivek Ramaswamy to Kick Off Run for Ohio Governor in Cincinnati**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadl
 **The French president is visiting as the U.S. sidelines Europe in Ukraine peace talks.**\
 `The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
 https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
+
+**How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
+`The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
+https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
 
