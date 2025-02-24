@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6150231/2025/02/24/detroit-lions-combine-draft-brad
 `In spring training, it's becoming clearer where the battle lines are being drawn ahead of the next labor negotiation. `\
 https://nytimes.com/athletic/6155666/2025/02/24/mlb-labor-fight-emails-league-union/
 
-**'I got beat up by Justin Bieber': Steve Carell, Will Ferrell headline charity hockey game**\
-`Bieber "fought" Hockey Hall of Famer Jeremy Roenick — all in the name of raising money for Los Angeles fire victims.`\
-https://nytimes.com/athletic/6155742/2025/02/24/bieber-carell-ferrell-hockey-charity/
-
 **Phillies notes: Marchán at crossroads, Sánchez plays it cool, Marsh's robot revenge?**\
 `Plus updates on four other players, including a righty reliever who is someone to watch this spring. `\
 https://nytimes.com/athletic/6155152/2025/02/24/phillies-rafael-marchan-cristopher-sanchez-brandon-marsh/
+
+**'I got beat up by Justin Bieber': Steve Carell, Will Ferrell headline charity hockey game**\
+`Bieber "fought" Hockey Hall of Famer Jeremy Roenick — all in the name of raising money for Los Angeles fire victims.`\
+https://nytimes.com/athletic/6155742/2025/02/24/bieber-carell-ferrell-hockey-charity/
 
