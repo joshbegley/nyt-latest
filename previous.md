@@ -1,3 +1,7 @@
+**Judge Declines to Intervene in Associated Press Lawsuit Over Trump Access**\
+`The wire service had sued Trump administration officials after they restricted reporters from press events citing The A.P.’s references to the Gulf of Mexico in articles.`\
+https://nytimes.com/2025/02/24/us/politics/trump-ap-lawsuit-gulf-of-mexico.html
+
 **Abdul Carter to work out at Penn State pro day instead of NFL combine: Source**\
 `Carter, The Athletic's No. 2-ranked prospect, is recovering from a shoulder injury he played through in Penn State's Orange Bowl loss.`\
 https://nytimes.com/athletic/6157452/2025/02/24/penn-state-abdul-carter-combine-pro-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157422/2025/02/24/luka-doncic-lakers-mavericks-mat
 **Full Time: USWNT one win from a trophy**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6157408/2025/02/24/shebelieves-cup-uswnt-japan-final-full-time/
-
-**NIU's non-football programs headed to Horizon League, pending Board of Trustees approval**\
-`NIU recently announced it will join the Mountain West Conference as a football-only member in 2026.`\
-https://nytimes.com/athletic/6157419/2025/02/24/northern-illinois-horizon-league/
 
