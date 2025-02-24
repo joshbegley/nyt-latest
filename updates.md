@@ -1,4 +1,8 @@
 **With Jimmy Butler, Warriors are thriving in the minutes when Steph Curry rests**\
+`Before the Butler trade Golden State was a cumulative minus-90 without Curry in 51 games. Since the trade it's plus-30 in six games.`\
+https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
+
+**With Jimmy Butler, Warriors are thriving in the minutes when Steph Curry rests**\
 `Before the Butler trade the Warriors were a cumulative minus-90 without Curry in 51 games. Since the trade it's plus-30 in six games.`\
 https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
 
