@@ -1,3 +1,15 @@
+**A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
+`Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
+https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
+
+**Boise State RB Ashton Jeanty will skip on-field drills at NFL combine: Source**\
+`Jeanty is the No. 5 overall prospect on The Athletic's draft big board after posting 2,739 scrimmage yards and 30 touchdowns last season.`\
+https://nytimes.com/athletic/6156865/2025/02/24/ashton-jeanty-nfl-combine-workouts/
+
+**Institute Asks Judge in Trump Documents Case to Disclose Special Counsel Report**\
+`The report is the second volume of a report Jack Smith wrote after dropping the federal criminal cases he brought against Donald J. Trump because of his 2024 election victory.`\
+https://nytimes.com/2025/02/24/us/trump-documents-report.html
+
 **Clint Hill, Who Sprang to Kennedys’ Side as Shots Were Fired, Dies at 93**\
 `A Secret Service agent, he leaped onto the president’s limousine in Dallas in 1963 and was credited with saving the first lady’s life. But he was haunted by his inability to save her husband.`\
 https://nytimes.com/2025/02/24/us/clint-hill-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6156968/2025/02/24/broncos-michael-wilhoite-coach-a
 **AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
 `Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
 https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
-
-**‘I’ve always planned on playing here my entire career’: Brad Marchand is not up for a trade**\
-`Marchand still believes in what the Bruins can accomplish: "We haven’t played our best yet. When we do, we can play with any team."`\
-https://nytimes.com/athletic/6156908/2025/02/24/bruins-brad-marchand-trade-deadline-candidate/
-
-**The French president is visiting as the U.S. sidelines Europe in Ukraine peace talks.**\
-`The White House talks came amid simmering tensions over America’s turn toward President Vladimir Putin.`\
-https://nytimes.com/2025/02/24/us/politics/trump-macron-ukraine.html
-
-**How Friedrich Merz Will Try to Lead Europe Despite a Weakened Hand**\
-`The likely next chancellor is unpopular, and his country’s economy has stalled. But his penchant for risks could help lead to a European showdown with President Trump.`\
-https://nytimes.com/2025/02/24/world/europe/friedrich-merz-europe-germany.html
 
