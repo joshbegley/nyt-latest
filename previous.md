@@ -1,3 +1,7 @@
+**Texas claims No. 1 spot in women's AP Top 25**\
+`Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
+https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/
+
 **F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
 `The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
 https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/02/24/world/middleeast/us-eurpe-russia-ukraine-un.html
 **Musk Calls to Congratulate Leader of German Hard-Right Party**\
 `The leader of the party said she received the call after the party known as the AfD finished second in national elections, by far the best showing in its history.`\
 https://nytimes.com/2025/02/24/world/europe/musk-afd-weidel-call.html
-
-**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
-`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
-https://nytimes.com/athletic/6129807/2025/02/24/2025-fantasy-baseball-draft-kit-mlb/
-
-**Francis Is in Critical Condition. What Happens When a Pope Dies?**\
-`Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
-https://nytimes.com/article/francis-what-happens-when-pope-dies.html
 

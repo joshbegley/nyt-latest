@@ -1,3 +1,7 @@
+**Texas claims No. 1 spot in women's AP Top 25**\
+`Longhorns are the third different team to hold the top spot in the last three weeks, after Notre Dame and UCLA.`\
+https://nytimes.com/athletic/6156754/2025/02/24/texas-claims-no-1-spot-in-womens-ap-top-25/
+
 **F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
 `The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
 https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
