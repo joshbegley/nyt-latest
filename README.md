@@ -1,3 +1,7 @@
+**What Germany’s Election Result Means for Its Economy**\
+`The next German government faces calls to loosen borrowing rules, slash energy costs and spur innovation. It won’t be easy.`\
+https://nytimes.com/2025/02/24/business/economy/germany-election-economy.html
+
 **A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
 `Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
 https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/vivek-ramaswamy-ohio-governor-announc
 **Broncos assistant Michael Wilhoite arrested on suspicion of assaulting officer**\
 `The Broncos issued a statement saying they were aware of an incident involving assistant coach and were gathering more information.`\
 https://nytimes.com/athletic/6156968/2025/02/24/broncos-michael-wilhoite-coach-arrest/
-
-**AP Top 25: Auburn remains No. 1; Kansas out, ending 80-week streak**\
-`Houston has the nation's longest active streak in the AP Top 25 at 102 weeks.`\
-https://nytimes.com/athletic/6156643/2025/02/24/mens-ap-top-25-auburn-kansas/
 
