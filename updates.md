@@ -1,3 +1,7 @@
+**DoorDash to Pay $16.8 Million to Workers for Pocketing Their Tips**\
+`The payments, part of a settlement with the New York attorney general’s office, will return as much as $14,000 to some workers.`\
+https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html
+
 **Saying ‘No’ to Musk**\
 `Some cabinet officials are showing a glimmer of willingness to check the billionaire’s power.`\
 https://nytimes.com/2025/02/24/us/politics/elon-musk-trump-washington.html
