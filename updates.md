@@ -1,3 +1,15 @@
+**Bird Flu Is Spreading. Are Eggs Safe?**\
+`Is it safe to eat eggs right now? Yes — but Megan Thielking, a Well editor, details a few things to know.`\
+https://nytimes.com/video/well/100000009990030/bird-flu-is-spreading-are-eggs-safe.html
+
+**Angels' Cole Fontenelle works to move on mentally and physically from 'horrible injury'**\
+`Fontenelle was on a fast track to the majors before he dislocated his ankle and fractured his fibula on May 4, 2024.`\
+https://nytimes.com/athletic/6155150/2025/02/24/angels-cole-fontenelle-injury/
+
+**The Athletic college baseball Top 25: SEC teams claim top five spots**\
+`Virginia dropped 11 spots after losing two games at the Karbach Round Rock Classic. Oklahoma, which beat UVA on Sunday, checks in at No. 23.`\
+https://nytimes.com/athletic/6156312/2025/02/24/college-baseball-rankings-sec/
+
 **A Rising Star Rides the Stormy Seas in a Maritime ‘Hamlet’**\
 `Luke Thallon expertly blends sincerity and neediness as the embattled prince in the Royal Shakespeare Company’s latest production.`\
 https://nytimes.com/2025/02/24/theater/hamlet-luke-thallon-royal-shakespeare-company.html
