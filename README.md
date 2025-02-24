@@ -1,40 +1,40 @@
-**Ukraine Marks War Anniversary With Somber Tone From Zelensky**\
-`For Ukrainians, Feb. 24 was a day to remember, without major ceremony, what has been lost in the three years since Russia’s invasion.`\
-https://nytimes.com/2025/02/24/world/europe/ukraine-war-anniversary-zelensky.html
+**5 Photos Show How the Ukraine War Changed**\
+`On the third anniversary of Russia’s invasion of Ukraine, Tyler Hicks, a war photographer for The New York Times, looks back at five photos he took during the conflict and reflects on how the rules of engagement have changed, affecting what he can document and what the world can witness.`\
+https://nytimes.com/video/world/europe/100000009987270/photos-show-ukraine-war.html
 
-**‘Night Went Well’ for Ailing Pope, Vatican Says**\
-`Francis is being treated for pneumonia, a complex infection and kidney problems that have left him in critical condition.`\
-https://nytimes.com/2025/02/24/world/europe/pope-francis-health-vatican-hospital.html
+**Can Supplements Actually Boost Your Immune System?**\
+`We asked experts about whether they have real benefits.`\
+https://nytimes.com/2025/02/24/well/do-immune-boosting-supplements-work.html
 
-**Kean discharged from hospital after collapsing on pitch from head injury**\
-`Kean was immediately taken to hospital in Verona after after sustaining a “head trauma” but tests performed came back negative.`\
-https://nytimes.com/athletic/6155870/2025/02/24/moise-kean-head-injury-update/
+**Your Resort’s ‘Perfect’ Beach Is a Lie**\
+`White sand, coconut palms, a gently sloping strand? That idea of tropical paradise is often manufactured. Resorts around the world are now embracing beaches in their more natural states.`\
+https://nytimes.com/2025/02/24/travel/beach-resorts-design.html
 
-**A Parade of Planets Is Marching Through the Night Sky**\
-`With Mercury joining the show, all seven of Earth’s celestial neighbors will be present at dusk this week.`\
-https://nytimes.com/2025/02/24/science/astronomy-planets-stargazing.html
+**What’s Your Exercise Routine?**\
+`What can you learn about fitness from four cultures that make it a part of daily life?`\
+https://nytimes.com/2025/02/24/learning/whats-your-exercise-routine.html
 
-**For Savvy New Yorkers, It’s All About Cheap Eggs and Where to Find Them**\
-`A bird flu outbreak affecting eggs hits differently in a city where prices and availability differ from block to block.`\
-https://nytimes.com/2025/02/24/nyregion/egg-shortage-prices-new-york-city.html
+**Dr. Oz: How His Millions Collide With Medicare**\
+`The TV celebrity and Trump nominee has pledged to divest from most of his financial interests. But they touch nearly every corner of health care, from insurance to blood pressure cuffs and vitamins, leading experts and lawmakers to doubt he could make impartial decisions.`\
+https://nytimes.com/2025/02/24/health/dr-oz-medicare-finances-conflicts.html
 
-**Congestion Pricing Reduced Traffic. Now It’s Hitting Revenue Goals.**\
-`Revenue figures from the Manhattan tolling plan showed that the program is on track to raise billions for mass transit repairs.`\
-https://nytimes.com/2025/02/24/nyregion/congestion-pricing-reduced-traffic-now-its-hitting-revenue-goals.html
+**100 Years Ago Recording Studios Got a New Tool: Microphones**\
+`On Feb. 25, 1925, Art Gillham’s session made history. The technology changed who was heard in recordings, how artists approach their music and how we hear it.`\
+https://nytimes.com/2025/02/24/arts/music/100th-anniversary-microphone-recording.html
 
-**Greenpeace Is Going to Trial in $300 Million Suit That Poses Bankruptcy Risk**\
-`In a closely watched case, the owner of the Dakota Access Pipeline is claiming the environmental group masterminded protests that hurt the company’s business.`\
-https://nytimes.com/2025/02/24/climate/greenpeace-energy-transfer-dakota-access-lawsuit.html
+**How to Fix Retirement Insecurity**\
+`Americans need to pay more attention to making sure the money they’ve saved will last through retirement.`\
+https://nytimes.com/2025/02/24/opinion/how-to-fix-retirement-insecurity.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/24/crosswords/spelling-bee-forum.html
+**Human Therapists Prepare for Battle Against A.I. Pretenders**\
+`Chatbots posing as therapists may encourage users to commit harmful acts, the nation’s largest psychological organization warned federal regulators.`\
+https://nytimes.com/2025/02/24/health/ai-therapists-chatbots.html
 
-**Liverpool's giant step towards the Premier League title dispelled any lingering doubts**\
-`Liverpool's victory at Manchester City on Sunday put them even closer to the Premier League title`\
-https://nytimes.com/athletic/6155774/2025/02/24/liverpool-premier-league-title-manchester-city/
+**Curtis Sittenfeld’s New Stories Revel in Life’s Delicious Mess**\
+`Her story collection is about the thorny conundrums of being alive.`\
+https://nytimes.com/2025/02/24/books/review/show-dont-tell-curtis-sittenfeld.html
 
-**Hurzeler says Brighton 'needed to adapt' defensive approach**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler consulted with his players to change the way his side defend.`\
-https://nytimes.com/athletic/6153208/2025/02/24/brighton-southampton-defense-hurzeler/
+**How Can I Lower My Climate Risk When Buying a House?**\
+`The danger from extreme weather is growing, and so are insurance costs. Here’s what to know.`\
+https://nytimes.com/2025/02/24/climate/climate-change-home-buying.html
 
