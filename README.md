@@ -1,3 +1,11 @@
+**F.D.A. Reinstates Fired Medical Device, Food and Legal Staffers**\
+`The agency changed course just days after firing employees who oversee the safety of food and life-sustaining medical devices. Dozens of workers said they and others were back at work Monday.`\
+https://nytimes.com/2025/02/24/science/fda-safety-workers-reinstated.html
+
+**Cody Zeller not expected to play for Rockets this season: Sources**\
+`The veteran big man has not played since the end of the 2023-24 regular season. `\
+https://nytimes.com/athletic/6156707/2025/02/24/cody-zeller-rockets-contract-status/
+
 **British Couple Arrested by Taliban in Afghanistan, Family Says**\
 `Peter and Barbie Reynolds were arrested on Feb. 1, their children told U.K. news outlets. The couple had run an education company in Afghanistan for almost two decades.`\
 https://nytimes.com/2025/02/24/world/europe/reynolds-couple-arrested-afghanistan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6129807/2025/02/24/2025-fantasy-baseball-draft-kit-
 **Francis Is in Critical Condition. What Happens When a Pope Dies?**\
 `Time-honored rituals, drafted and refined over centuries, allow for ritual mourning and provide order at a dramatic moment of transition.`\
 https://nytimes.com/article/francis-what-happens-when-pope-dies.html
-
-**Liverpool's strikerless '4-2-4-0' system shows you don't need a No 9 to win Premier League**\
-`Liverpool played without a striker at the Etihad Stadium on Sunday but managed to win the game and move 11 clear at the top of the league`\
-https://nytimes.com/athletic/6155947/2025/02/24/liverpool-manchester-city-analysis-arne-slot/
-
-**USMNT Player Tracker: Sargent eases Pochettino concerns, Richards steps up, praise for Adams**\
-`Our weekly round-up of the Europe-based U.S. contingent's weekend contributions also includes Weston McKennie getting back to winning ways`\
-https://nytimes.com/athletic/6156282/2025/02/24/usmnt-sargent-adams-reyna-richards/
 
