@@ -1,3 +1,7 @@
+**Fair or Not, Zelensky Is Angering Trump. Is His Style Hurting Ukraine?**\
+`Through three years of wartime leadership, Ukraine’s president has mostly played weak hands wisely. But his approach has fallen flat with the Trump administration.`\
+https://nytimes.com/2025/02/24/world/europe/ukraine-zelensky-trump.html
+
 **Chukwuemeka can bring Dortmund 'joy' after 'sensationally good' debut - Kovac**\
 `Carney Chukwuemeka’s debut for Borussia Dortmund was described as “sensationally good” by head coach Niko Kovac, following the 6-0 Bundesliga win over Union Berlin on Saturday.`\
 https://nytimes.com/athletic/6155983/2025/02/24/carney-chukwuemeka-dortmund-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148912/2025/02/24/falcons-mailbag-terry-fontenot-k
 **Patriots mailbag: If Tee Higgins stays with the Bengals, what do Pats do at WR?**\
 `We check the mailbag and answer your Patriots-related questions as the NFL combine kicks off this week.`\
 https://nytimes.com/athletic/6146144/2025/02/24/patriots-wide-receiver-tee-higgins-mailbag/
-
-**Hawaii Man Wrongfully Convicted of Murder Is Freed After 30 Years**\
-`Gordon Cordeiro, 51, who was serving a life sentence for a 1994 murder on Maui, was released on Friday after DNA evidence was presented in his case.`\
-https://nytimes.com/2025/02/24/us/hawaii-gordon-cordeiro-wrongful-conviction.html
 
