@@ -1,3 +1,7 @@
+**Stanford athletic director Bernard Muir expected to resign: Sources**\
+`Muir, at Stanford for 13 years, helped oversee transition to ACC after Pac-12's collapse.`\
+https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-director-resignation/
+
 **DoorDash to Pay $16.8 Million to Workers for Pocketing Their Tips**\
 `The payments, part of a settlement with the New York attorney general’s office, will return as much as $14,000 to some workers.`\
 https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html

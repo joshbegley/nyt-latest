@@ -1,3 +1,7 @@
+**Stanford athletic director Bernard Muir expected to resign: Sources**\
+`Muir, at Stanford for 13 years, helped oversee transition to ACC after Pac-12's collapse.`\
+https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-director-resignation/
+
 **DoorDash to Pay $16.8 Million to Workers for Pocketing Their Tips**\
 `The payments, part of a settlement with the New York attorney general’s office, will return as much as $14,000 to some workers.`\
 https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flac
 **Judge Questions Constitutionality of Musk’s Cost-Cutting Operation**\
 `The judge expressed concern over the unresolved issues about who is in charge of Elon Musk’s so-called Department of Government Efficiency, if it is not Mr. Musk, as the White House has claimed.`\
 https://nytimes.com/2025/02/24/us/politics/doge-elon-musk-lawsuits.html
-
-**Judge Declines to Intervene in Associated Press Lawsuit Over Trump Access**\
-`The wire service had sued Trump administration officials after they restricted reporters from press events citing The A.P.’s references to the Gulf of Mexico in articles.`\
-https://nytimes.com/2025/02/24/us/politics/trump-ap-lawsuit-gulf-of-mexico.html
 
