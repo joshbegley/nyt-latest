@@ -1,3 +1,7 @@
+**Alvin F. Poussaint, Pioneering Expert on Black Mental Health, Dies at 90**\
+`A psychiatrist at Harvard and an adviser to Jesse Jackson and Bill Cosby, he challenged Black Americans to stand up to systemic racism.`\
+https://nytimes.com/2025/02/24/us/alvin-poussaint-dead.html
+
 **Trump and Europe Clashed Over Ukraine**\
 `Also, the virtuoso Roberta Flack died at 88. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156735/2025/02/24/sf-giants-logan-webb-pitch-analy
 **Ducks' Zegras suspended 3 games for hit on Red Wings' Rasmussen**\
 `Zegras is eligible to return March 4, when the Ducks play at Edmonton. `\
 https://nytimes.com/athletic/6157047/2025/02/24/zegras-suspension-ducks-red-wings/
-
-**MLS 2025 kits put on display at Atlanta diner fashion show**\
-`The intersection of MLS and fashion has taken the league's kits to some unusual places.`\
-https://nytimes.com/athletic/6156795/2025/02/24/mls-2025-kits-fashion-show-atlanta-diner/
 

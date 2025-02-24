@@ -1,3 +1,7 @@
+**Alvin F. Poussaint, Pioneering Expert on Black Mental Health, Dies at 90**\
+`A psychiatrist at Harvard and an adviser to Jesse Jackson and Bill Cosby, he challenged Black Americans to stand up to systemic racism.`\
+https://nytimes.com/2025/02/24/us/alvin-poussaint-dead.html
+
 **Trump and Europe Clashed Over Ukraine**\
 `Also, the virtuoso Roberta Flack died at 88. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/02/24/briefing/trump-macron-europe-ukraine-roberta-flack.html
