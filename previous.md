@@ -1,4 +1,4 @@
-**UEFA's Ceferin: '99 per cent of people' satisfied with new CL format**\
+**UEFA's Ceferin: ‘99 per cent of people' satisfied with new CL format**\
 `The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
 https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
 
@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6154512/2025/02/24/oilers-stats-bouchard-skinner-de
 `Arne Slot's side extended their lead over second placed Arsenal to 11 points with an impressive 2-0 victory over Manchester City on Sunday`\
 https://nytimes.com/athletic/6156484/2025/02/24/liverpool-premier-league-title-bonus-nike/
 
-**Cade Cunningham's monster half carries surging Pistons: 'He can do anything'**\
+**Cade Cunningham's monster half carries surging Pistons: 'Reminds me of a Luka Dončić'**\
 `Detroit has won six in a row to build a comfortable cushion for the sixth spot in the East.`\
 https://nytimes.com/athletic/6155785/2025/02/24/cade-cunningham-pistons-hawks-nba/
 

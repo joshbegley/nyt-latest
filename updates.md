@@ -1,3 +1,11 @@
+**UEFA's Ceferin: ‘99 per cent of people' satisfied with new CL format**\
+`The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
+https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
+
+**Cade Cunningham's monster half carries surging Pistons: 'Reminds me of a Luka Dončić'**\
+`Detroit has won six in a row to build a comfortable cushion for the sixth spot in the East.`\
+https://nytimes.com/athletic/6155785/2025/02/24/cade-cunningham-pistons-hawks-nba/
+
 **UEFA's Ceferin: '99 per cent of people' satisfied with new CL format**\
 `The competition's previous eight groups of four were replaced with a single 36-team league phase for the 2024-25 campaign.`\
 https://nytimes.com/athletic/6156333/2025/02/24/champions-league-format-popular-ceferin/
