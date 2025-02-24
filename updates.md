@@ -1,3 +1,7 @@
+**British Couple Arrested by Taliban in Afghanistan, Family Says**\
+`Peter and Barbie Reynolds were arrested on Feb. 1, their children told U.K. news outlets. The couple had run an education company in Afghanistan for almost two decades.`\
+https://nytimes.com/2025/02/24/world/europe/reynolds-couple-arrested-afghanistan.html
+
 **The Pentagon Purge, and the Danger Ahead**\
 `Readers discuss the dismissal of military leaders. Also: A refusal to obey; the Supreme Court’s dilemma; students with disabilities; company profits; tenderness.`\
 https://nytimes.com/2025/02/24/opinion/trump-pentagon-purge.html

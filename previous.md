@@ -1,3 +1,7 @@
+**British Couple Arrested by Taliban in Afghanistan, Family Says**\
+`Peter and Barbie Reynolds were arrested on Feb. 1, their children told U.K. news outlets. The couple had run an education company in Afghanistan for almost two decades.`\
+https://nytimes.com/2025/02/24/world/europe/reynolds-couple-arrested-afghanistan.html
+
 **The Pentagon Purge, and the Danger Ahead**\
 `Readers discuss the dismissal of military leaders. Also: A refusal to obey; the Supreme Court’s dilemma; students with disabilities; company profits; tenderness.`\
 https://nytimes.com/2025/02/24/opinion/trump-pentagon-purge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155947/2025/02/24/liverpool-manchester-city-analys
 **USMNT Player Tracker: Sargent eases Pochettino concerns, Richards steps up, praise for Adams**\
 `Our weekly round-up of the Europe-based U.S. contingent's weekend contributions also includes Weston McKennie getting back to winning ways`\
 https://nytimes.com/athletic/6156282/2025/02/24/usmnt-sargent-adams-reyna-richards/
-
-**Oh, This Old, Tattered, Moth-Eaten Thing?**\
-`So-called thrashed clothes — garments resembling something closer to rags — are coveted by vintage fanatics.`\
-https://nytimes.com/2025/02/24/style/thrashed-distressed-vintage-clothing.html
 
