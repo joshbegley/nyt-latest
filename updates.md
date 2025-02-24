@@ -1,3 +1,15 @@
+**Germany Election Maps: How Conservatives Regained Power**\
+`Maps show how every district in Germany voted. The conservative Christian Democrats have won the most seats while the far-right AfD placed second.`\
+https://nytimes.com/interactive/2025/02/23/world/europe/germany-election-results-analysis.html
+
+**Venus Williams won't play at Indian Wells despite receiving wild-card entry**\
+`Days after the BNP Paribas Open granted Venus Williams a wild card for the 2025 event, the tournament announced she won't be accepting it.`\
+https://nytimes.com/athletic/6155725/2025/02/23/venus-williams-indian-wells-wild-card/
+
+**Kenyan Police Officer Killed in Haiti in Anti-Gang Operation**\
+`The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
+https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
+
 **Right-Wing Commentator Named F.B.I. Deputy Director**\
 `The choice of Dan Bongino is a radical departure from the bureau’s history of having a veteran agent serve in the key role that oversees operations.`\
 https://nytimes.com/2025/02/23/us/politics/dan-bongino-fbi-deputy-director.html

@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2025/02/23/world/europe/germany-election-results-analysis.html
 
 **Venus Williams won't play at Indian Wells despite receiving wild-card entry**\
-`Days after the BNP Paribas Open granted Venus Williams a wild card for the 2025 event, the tournament announced she won't be accepting it.`\
+`Days after the BNP Paribas Open granted Williams a wild card for the 2025 event, the tournament announced she won't be accepting it.`\
 https://nytimes.com/athletic/6155725/2025/02/23/venus-williams-indian-wells-wild-card/
 
 **Right-Wing Commentator Named F.B.I. Deputy Director**\

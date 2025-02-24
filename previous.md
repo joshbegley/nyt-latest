@@ -1,3 +1,11 @@
+**Germany Election Maps: How Conservatives Regained Power**\
+`Maps show how every district in Germany voted. The conservative Christian Democrats have won the most seats while the far-right AfD placed second.`\
+https://nytimes.com/interactive/2025/02/23/world/europe/germany-election-results-analysis.html
+
+**Venus Williams won't play at Indian Wells despite receiving wild-card entry**\
+`Days after the BNP Paribas Open granted Venus Williams a wild card for the 2025 event, the tournament announced she won't be accepting it.`\
+https://nytimes.com/athletic/6155725/2025/02/23/venus-williams-indian-wells-wild-card/
+
 **Right-Wing Commentator Named F.B.I. Deputy Director**\
 `The choice of Dan Bongino is a radical departure from the bureau’s history of having a veteran agent serve in the key role that oversees operations.`\
 https://nytimes.com/2025/02/23/us/politics/dan-bongino-fbi-deputy-director.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6155617/2025/02/23/maple-leafs-report-cards-roberts
 `The thriller about choosing a new pope took home the top film prize, while Demi Moore and Timothée Chalamet won individual honors.`\
 https://nytimes.com/2025/02/23/movies/sag-awards-2025-winners-list.html
 
-**Kenyan Police Officer Fatally Injured in Haiti in Anti-Gang Operation**\
+**Kenyan Police Officer Killed in Haiti in Anti-Gang Operation**\
 `The officer’s death appeared to be the first among the Kenyan forces that were sent to Haiti last year as part of an international effort to subdue gang violence.`\
 https://nytimes.com/2025/02/23/world/americas/haiti-kenya-police-officer-killed.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriv
 **‘The White Lotus’ Season 3, Episode 2 Recap: Who Was That Masked Man?**\
 `There are no answers this week — or even hints — to the identity of the dead body in the season premiere, but we do see a robbery.`\
 https://nytimes.com/2025/02/23/arts/television/the-white-lotus-season-3-episode-2-recap.html
-
-**Quotation of the Day: Catholics Around the Globe Pray for Francis at Sunday Mass**\
-`Quotation of the Day for Monday, February 24, 2025.`\
-https://nytimes.com/2025/02/23/pageoneplus/quotation-of-the-day-catholics-around-the-globe-pray-for-francis-at-sunday-mass.html
-
-**Yohe's 10 observations: Even in defeat, Sidney Crosby's weekend should be appreciated**\
-`The Penguins endured a goaltending meltdown despite outplaying the Rangers by some margin for back-to-back losses.`\
-https://nytimes.com/athletic/6155294/2025/02/23/penguins-crosby-effort-blomqvist-rangers/
 
