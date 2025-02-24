@@ -1,3 +1,7 @@
+**Drake Returns to No. 1 With PartyNextDoor**\
+`Their collaborative album “Some Sexy Songs 4 U” opens atop the Billboard 200, unseating his foe Kendrick Lamar’s “GNX,” which surged after the Super Bowl halftime show.`\
+https://nytimes.com/2025/02/24/arts/music/drake-partynextdoor-some-sexy-songs-4-u-chart.html
+
 **Why Tensions Are Rising in the West Bank**\
 `Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
 https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html

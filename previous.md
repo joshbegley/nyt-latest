@@ -1,3 +1,7 @@
+**Drake Returns to No. 1 With PartyNextDoor**\
+`Their collaborative album “Some Sexy Songs 4 U” opens atop the Billboard 200, unseating his foe Kendrick Lamar’s “GNX,” which surged after the Super Bowl halftime show.`\
+https://nytimes.com/2025/02/24/arts/music/drake-partynextdoor-some-sexy-songs-4-u-chart.html
+
 **Why Tensions Are Rising in the West Bank**\
 `Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
 https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/style/thrashed-distressed-vintage-clothing.html
 **Mets starter Sean Manaea to start season on IL with oblique strain**\
 `Manaea is the second Mets starter to go down since last week. Frankie Montas will be out for several weeks due to a high-grade lat strain.`\
 https://nytimes.com/athletic/6156661/2025/02/24/mets-sean-manaea-oblique-injury/
-
-**Giants catcher Patrick Bailey — a pitch framing savant — 'not a fan' of automated strike zone**\
-`Bailey, a Gold Glover, isn't a fan of the ABS system. "I think it's going to change the game a lot more than people realize."`\
-https://nytimes.com/athletic/6155868/2025/02/24/sf-giants-patrick-bailey-automated-ball-strike-system/
 
