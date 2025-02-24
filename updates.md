@@ -1,3 +1,7 @@
+**Kean discharged from hospital after collapsing on pitch from head injury**\
+`Kean was immediately taken to hospital in Verona after after sustaining a “head trauma” but tests performed came back negative.`\
+https://nytimes.com/athletic/6155870/2025/02/24/moise-kean-head-injury-update/
+
 **A Parade of Planets Is Marching Through the Night Sky**\
 `With Mercury joining the show, all seven of Earth’s celestial neighbors will be present at dusk this week.`\
 https://nytimes.com/2025/02/24/science/astronomy-planets-stargazing.html
