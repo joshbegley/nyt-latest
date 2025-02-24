@@ -1,3 +1,15 @@
+**With Jimmy Butler, Warriors are thriving in the minutes when Steph Curry rests**\
+`Before the Butler trade the Warriors were a cumulative minus-90 without Curry in 51 games. Since the trade it's plus-30 in six games.`\
+https://nytimes.com/athletic/6155027/2025/02/23/warriors-non-curry-minutes-thriving/
+
+**‘The White Lotus’ Season 3, Episode 2 Recap: Who Was That Masked Man?**\
+`There are no answers this week — or even hints — to the identity of the dead body in the season premiere, but we do see a robbery.`\
+https://nytimes.com/2025/02/23/arts/television/the-white-lotus-season-3-episode-2-recap.html
+
+**Quotation of the Day: Catholics Around the Globe Pray for Francis at Sunday Mass**\
+`Quotation of the Day for Monday, February 24, 2025.`\
+https://nytimes.com/2025/02/23/pageoneplus/quotation-of-the-day-catholics-around-the-globe-pray-for-francis-at-sunday-mass.html
+
 **Yohe's 10 observations: Even in defeat, Sidney Crosby's weekend should be appreciated**\
 `The Penguins endured a goaltending meltdown despite outplaying the Rangers by some margin for back-to-back losses.`\
 https://nytimes.com/athletic/6155294/2025/02/23/penguins-crosby-effort-blomqvist-rangers/
