@@ -1,3 +1,7 @@
+**What Germany’s Election Result Means for Its Economy**\
+`The next German government faces calls to loosen borrowing rules, slash energy costs and spur innovation. It won’t be easy.`\
+https://nytimes.com/2025/02/24/business/economy/germany-election-economy.html
+
 **A Discovery of Lost Pages Brings to Light a ‘Last Great Yiddish Novel’**\
 `Editors waited decades for the final manuscript of Chaim Grade’s “Sons and Daughters.” Its appearance shook the Yiddish literary world.`\
 https://nytimes.com/2025/02/24/books/booksupdate/chaim-grade-sons-and-daughters.html
