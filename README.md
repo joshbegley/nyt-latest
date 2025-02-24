@@ -1,3 +1,7 @@
+**LeBrun: Would Hurricanes trade Mikko Rantanen if they can't sign him by the trade deadline?**\
+`It seems Carolina’s only focus right now is keeping Rantanen, whether as an extended player or worst case as a rental.`\
+https://nytimes.com/athletic/6156732/2025/02/24/nhl-trade-deadline-mikko-rantanen-hurricanes/
+
 **Jen Psaki Gets Nightly Prime-Time Show at MSNBC**\
 `The change is part of a broad shake-up at the network, including the cancellation of Joy Reid’s program.`\
 https://nytimes.com/2025/02/24/business/media/jen-psaki-msnbc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/02/24/opinion/trump-pentagon-purge.html
 **Drake Returns to No. 1 With PartyNextDoor**\
 `Their collaborative album “Some Sexy Songs 4 U” opens atop the Billboard 200, unseating his foe Kendrick Lamar’s “GNX,” which surged after the Super Bowl halftime show.`\
 https://nytimes.com/2025/02/24/arts/music/drake-partynextdoor-some-sexy-songs-4-u-chart.html
-
-**Why Tensions Are Rising in the West Bank**\
-`Amid the most intensive Israeli operations in the area in decades, Palestinians fear entrenched displacement and a return to military control in some towns.`\
-https://nytimes.com/2025/02/24/world/middleeast/israel-west-bank-what-why.html
 
