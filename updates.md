@@ -1,3 +1,7 @@
+**Massive Trial Opens for French Doctor Accused of Abusing Hundreds**\
+`A former surgeon is accused of raping or sexually assaulting 299 people, mostly children, over 25 years. It is considered to be the country’s largest-ever pedophilia case.`\
+https://nytimes.com/2025/02/24/world/europe/france-surgeon-trial-patient-abuse-le-scouarnec.html
+
 **Apple to Build A.I. Servers in Houston and Spend $500 Billion in U.S.**\
 `The company pledged the multibillion-dollar investment over the next four years, and said it would create 20,000 jobs. The new Texas facility is set to open in 2026.`\
 https://nytimes.com/2025/02/24/business/apple-tariffs-jobs-investment.html

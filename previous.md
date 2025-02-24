@@ -1,3 +1,7 @@
+**Massive Trial Opens for French Doctor Accused of Abusing Hundreds**\
+`A former surgeon is accused of raping or sexually assaulting 299 people, mostly children, over 25 years. It is considered to be the country’s largest-ever pedophilia case.`\
+https://nytimes.com/2025/02/24/world/europe/france-surgeon-trial-patient-abuse-le-scouarnec.html
+
 **FPL Gameweek 27 preview: Cunha is hot property and a Salah-Palmer captaincy debate**\
 `With a short turnaround between gameweeks, Abdul Rehman looks ahead to a set of midweek fixtures in Fantasy Premier League`\
 https://nytimes.com/athletic/6155224/2025/02/24/fpl-gameweek-27-preview-cunha-salah-palmer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6147747/2025/02/24/chargers-nfl-combine-questions/
 **Everything to know about the 2025 NFL Scouting Combine: Schedule, drills**\
 `Find out what days position groups will work out, the different drills that will be done and more about the annual event in Indianapolis.`\
 https://nytimes.com/athletic/6147017/2025/02/24/nfl-2025-combine-schedule-tests-drills/
-
-**Six Raiders questions as another new regime heads to the NFL Scouting Combine**\
-`The Raiders' future at quarterback continues to be the top question until Las Vegas finds a long-term solution at the position.`\
-https://nytimes.com/athletic/6150344/2025/02/24/raiders-nfl-combine-carroll-spytek/
 
