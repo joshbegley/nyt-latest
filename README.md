@@ -1,3 +1,11 @@
+**The Pulse: The NFL's QB mysteries**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6154407/2025/02/24/nfl-qbs-free-agent-trade-combine-the-pulse/
+
+**Arsenal fans: What are your priorities for the rest of the season?**\
+`Let us know your thoughts on the closing months of the season`\
+https://nytimes.com/athletic/6155925/2025/02/24/arsenal-fans-what-are-your-priorities-for-rest-of-the-season/
+
 **Jorgensen still Chelsea first-choice goalkeeper - Maresca**\
 `Jorgensen was at fault for Chelsea losing the game in the 89th minute as he allowed a tame shot from Marco Asensio to go under his body.`\
 https://nytimes.com/athletic/6156023/2025/02/24/filip-jorgensen-chelsea-goalkeeper-starter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6150231/2025/02/24/detroit-lions-combine-draft-brad
 **Where will baseball’s labor fight go? Just check the emails**\
 `In spring training, it's becoming clearer where the battle lines are being drawn ahead of the next labor negotiation. `\
 https://nytimes.com/athletic/6155666/2025/02/24/mlb-labor-fight-emails-league-union/
-
-**Phillies notes: Marchán at crossroads, Sánchez plays it cool, Marsh's robot revenge?**\
-`Plus updates on four other players, including a righty reliever who is someone to watch this spring. `\
-https://nytimes.com/athletic/6155152/2025/02/24/phillies-rafael-marchan-cristopher-sanchez-brandon-marsh/
-
-**'I got beat up by Justin Bieber': Steve Carell, Will Ferrell headline charity hockey game**\
-`Bieber "fought" Hockey Hall of Famer Jeremy Roenick — all in the name of raising money for Los Angeles fire victims.`\
-https://nytimes.com/athletic/6155742/2025/02/24/bieber-carell-ferrell-hockey-charity/
 
