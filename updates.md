@@ -1,3 +1,7 @@
+**Federal Judge Shields More Transgender Inmates From Trump Order**\
+`A group of transgender women in federal prisons who would have been moved into men’s facilities can stay where they are for now.`\
+https://nytimes.com/2025/02/24/us/federal-judge-transgender-inmates-trump-order.html
+
 **Stefanik’s Confirmation Is on Ice as Republicans Guard Their Scant Majority**\
 `The congresswoman from New York is in line to be confirmed as the U.S. ambassador to the United Nations. But first, her colleagues need her vote to pass their embattled budget plan.`\
 https://nytimes.com/2025/02/24/us/politics/elise-stefanik-un-ambassador-budget.html
