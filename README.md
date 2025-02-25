@@ -1,3 +1,7 @@
+**Trump’s New Deputy F.B.I. Director Has It Out for the ‘Scumbag Commie Libs’**\
+`Dan Bongino is in a place to turn wild notions from the right-wing internet into pretexts for federal investigations.`\
+https://nytimes.com/2025/02/24/opinion/fbi-trump-dan-bongino.html
+
 **Linda Henry pulls out from ownership stake in Boston's NWSL expansion team**\
 `The divestment process remains pending, with Henry informing the team her plans to exit their group two months ago.`\
 https://nytimes.com/athletic/6157790/2025/02/24/bos-nation-nwsl-expansion-ownership/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/dan-bongino-trump-fbi-director-conspi
 **Stanford athletic director Bernard Muir expected to resign: Sources**\
 `Muir, at Stanford for 13 years, helped oversee transition to ACC after Pac-12's collapse.`\
 https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-director-resignation/
-
-**DoorDash to Pay $16.8 Million to Workers for Pocketing Their Tips**\
-`The payments, part of a settlement with the New York attorney general’s office, will return as much as $14,000 to some workers.`\
-https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html
 
