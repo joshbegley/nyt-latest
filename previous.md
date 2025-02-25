@@ -1,3 +1,27 @@
+**How has Ruben Amorim changed Manchester United tactically – and is it working?**\
+`Our data and tactics writers discuss the impact the Portuguese head coach has had in his time at Old Trafford`\
+https://nytimes.com/athletic/6157061/2025/02/25/manchester-united-ruben-amorim-tactics-assessed/
+
+**Five Weeknight Dinners My Kids Will Gladly Eat**\
+`They don’t like everything, but they do like mojo chicken with pineapple, sesame salmon bowls and coconut ginger black beans.`\
+https://nytimes.com/2025/02/25/dining/kid-friendly-recipes.html
+
+**Want to Talk About Loss? For This Label Head’s Album, Many Stars Did.**\
+`Richard Russell of XL Recordings’ new album as Everything Is Recorded bridges life and death, with contributions from Florence Welch, Sampha, Noah Cyrus and more.`\
+https://nytimes.com/2025/02/25/arts/music/richard-russell-everything-is-recorded-temporary.html
+
+**For $18.75 Million, You Can Live Lavishly in the Waldorf Astoria**\
+`The building’s Art Deco charm has been adapted for the 372 residences and over 50,000 square feet of new amenities.`\
+https://nytimes.com/2025/02/25/realestate/waldorf-astoria-new-york-homes.html
+
+**What I'm hearing about a potential Penguins Erik Karlsson trade**\
+`The Penguins are willing to talk about a Karlsson trade if there are any takers.`\
+https://nytimes.com/athletic/6158547/2025/02/25/penguins-erik-karlsson-trade-rumors/
+
+**Supreme Court Grants New Trial to Death Row Inmate in Oklahoma**\
+`Both sides had told the justices that long-suppressed evidence had undermined the case the case against the inmate, Richard Glossip.`\
+https://nytimes.com/2025/02/25/us/supreme-court-death-row-oklahoma.html
+
 **USC recruiting on an uptick — why this surge feels more sustainable**\
 `The Trojans hold the No. 1 spot in the 2026 class rankings after landing commitments from two top-150 prospects. `\
 https://nytimes.com/athletic/6158362/2025/02/25/usc-football-recruiting-chad-bowden/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-
 **As G.O.P. Eyes Medicaid Cuts, States Could be Left With Vast Shortfalls**\
 `Republicans have proposed lowering the federal share of costs for Medicaid expansions, which could reshape the program by gutting one of the Affordable Care Act’s major provisions.`\
 https://nytimes.com/2025/02/25/us/politics/medicaid-cuts-republican-budget.html
-
-**Americans Are Expecting Higher Prices. That Could Unnerve the Fed.**\
-`More Americans are starting to brace for higher prices as President Trump’s policies begin to take effect.`\
-https://nytimes.com/2025/02/25/business/inflation-fed-trump.html
-
-**At France’s Oldest Theater, Things Change, but They Also Stay the Same**\
-`A new leader for the Comédie-Française, Clément Hervieu-Léger, is an insider who looks set to keep the venerable Paris company on a steady course.`\
-https://nytimes.com/2025/02/25/theater/clement-hervieu-leger-comedie-francaise.html
-
-**Huge Loss at German Central Bank Adds to Gloomy Outlook**\
-`The central bank’s president said it was “not possible to rule out” a third year of no economic growth.`\
-https://nytimes.com/2025/02/25/world/europe/germany-economy-central-bank-politics.html
-
-**Luka Dončić-Kobe Bryant mural in L.A. stirs still-fresh emotions for visiting Mavs fans**\
-`A Mavericks fan was brought to tears after seeing a West Hollywood mural of Dončić and Bryant. "They took our star away," he said.`\
-https://nytimes.com/athletic/6157720/2025/02/25/luka-doncic-kobe-bryant-lakers-mavericks-mural/
-
-**Delta Air Lines Flight Returns to Atlanta After Haze Fills Cabin**\
-`A flight headed for Columbia, S.C., from Atlanta turned back for an emergency landing on Monday after the crew reported “possible smoke” inside the aircraft.`\
-https://nytimes.com/video/us/100000010010943/delta-flight-atlanta-smoke-haze.html
-
-**Wolff: Horner booing shouldn't overshadow success of F1 75 Live**\
-`Horner, along with four-time world champion Max Verstappen, was booed when he appeared on the stage and shown on the screen.`\
-https://nytimes.com/athletic/6158537/2025/02/25/toto-wolff-christian-horner-booing/
 
