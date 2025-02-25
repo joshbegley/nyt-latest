@@ -1,3 +1,7 @@
+**Matthew Tkachuk recaps 4 Nations Face-Off with Jimmy Fallon**\
+`Sidelined with an injury suffered at the 4 Nations tournament, Tkachuk took a trip to New York to be on Fallon’s show`\
+https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-nations-face-off/
+
 **America and Russia Are on the Same Side Now**\
 `The U.S. is embracing European far-right parties in sympathy with Moscow — the opposite of how Washington dealt with Europe’s Communist parties in the Cold War.`\
 https://nytimes.com/2025/02/25/opinion/russia-europe-trump-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010010420/trump-macron-ukraine.html
 **The magic and madness of the Coupe de France - a competition structured to encourage upsets**\
 `Knockout competitions always throw up surprises, but in the Coupe de France, upsets are deliberately baked into the format`\
 https://nytimes.com/athletic/6156080/2025/02/25/coupe-de-france/
-
-**Why 12 Premier League teams are fighting for a place in next season's Champions League**\
-`There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
-https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
 
