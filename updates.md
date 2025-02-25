@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Russia-Ukraine War, Quantum Computing, S.N.L.**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/02/25/learning/25StudentNewsQuizLN.html
+
 **Rockets' reincorporation of Jabari Smith Jr. key to stretch run: The IkoSystem**\
 `"The threat of his shot is always there," said Rockets head coach Ime Udoka of Smith. `\
 https://nytimes.com/athletic/6155111/2025/02/25/rockets-jabari-smith-jr-return/
