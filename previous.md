@@ -1,3 +1,7 @@
+**America and Russia Are on the Same Side Now**\
+`The U.S. is embracing European far-right parties in sympathy with Moscow — the opposite of how Washington dealt with Europe’s Communist parties in the Cold War.`\
+https://nytimes.com/2025/02/25/opinion/russia-europe-trump-vance.html
+
 **Syria Begins a ‘National Dialogue,’ but Without a Major Player**\
 `Although the conference was called to chart the country’s future, the Kurdish-led militia that controls much of Syria’s northeast was not invited.`\
 https://nytimes.com/2025/02/25/world/middleeast/syria-national-dialogue-kurds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156080/2025/02/25/coupe-de-france/
 **Why 12 Premier League teams are fighting for a place in next season's Champions League**\
 `There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
 https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
-
-**Timberwolves erase 16-point fourth quarter deficit, beat Thunder in OT**\
-`With the win the Wolves snap a two-game skid and inch closer to the Los Angeles Clippers for the sixth spot in the West.`\
-https://nytimes.com/athletic/6157953/2025/02/25/thunder-timberwolves-overtime-analysis/
 
