@@ -1,3 +1,11 @@
+**Why 12 Premier League teams are fighting for a place in next season's Champions League**\
+`There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
+https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
+
+**Timberwolves erase 16-point fourth quarter deficit, beat Thunder in OT**\
+`With the win the Wolves snap a two-game skid and inch closer to the Los Angeles Clippers for the sixth spot in the West.`\
+https://nytimes.com/athletic/6157953/2025/02/25/thunder-timberwolves-overtime-analysis/
+
 **Tuesday Briefing**\
 `Tension between Europe and the U.S. over Ukraine.`\
 https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html

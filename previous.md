@@ -1,3 +1,11 @@
+**Why 12 Premier League teams are fighting for a place in next season's Champions League**\
+`There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
+https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
+
+**Timberwolves erase 16-point fourth quarter deficit, beat Thunder in OT**\
+`With the win the Wolves snap a two-game skid and inch closer to the Los Angeles Clippers for the sixth spot in the West.`\
+https://nytimes.com/athletic/6157953/2025/02/25/thunder-timberwolves-overtime-analysis/
+
 **Tuesday Briefing**\
 `Tension between Europe and the U.S. over Ukraine.`\
 https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/sports/al-trautwig-dead.html
 **3 Workers Killed in Highway Bridge Collapse in South Korea**\
 `Seven others were injured when part of a highway construction site broke apart on Tuesday morning, officials said.`\
 https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
-
-**Corrections: Feb. 25, 2025**\
-`Corrections that appeared in print on Tuesday, Feb. 25, 2025.`\
-https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html
-
-**‘Grangeville’ Review: Am I My Half Brother’s Keeper?**\
-`A story as old as Cain and Abel gets filtered through cellphone and video confrontations in Samuel D. Hunter’s bleak two-hander.`\
-https://nytimes.com/2025/02/24/theater/grangeville-review-samuel-d-hunter.html
 
