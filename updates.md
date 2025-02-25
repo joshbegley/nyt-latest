@@ -1,3 +1,7 @@
+**Could Casey Mittelstadt be on the move again? Which teams should be interested?**\
+`Colorado's front office has already shown it isn't afraid to shake up the team, and trading its 2C would qualify.`\
+https://nytimes.com/athletic/6157262/2025/02/25/nhl-trade-deadline-casey-mittelstadt-avalanche/
+
 **President Trump vs. Medical Research**\
 `How government cuts are slowing research.`\
 https://nytimes.com/2025/02/25/briefing/president-trump-vs-medical-research.html
