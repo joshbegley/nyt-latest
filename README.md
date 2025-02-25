@@ -1,3 +1,7 @@
+**Is Bird Flu the Only Reason Egg Prices Are Soaring?**\
+`The nation’s biggest egg producer has seen rising revenues and profits. Now some Democrats are calling for an investigation into pricing practices in the industry.`\
+https://nytimes.com/2025/02/25/business/egg-prices-bird-flu-producers.html
+
 **'Very soon, I won’t be able to come here any more': Are Spurs set for another ticket price hike?**\
 `As far as matters on the pitch are concerned, the gloom around Spurs is starting to lift, but there are still issues worrying the fanbase`\
 https://nytimes.com/athletic/6153945/2025/02/25/spurs-ticket-prices/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starm
 **Hegseth Returns to Guantánamo, This Time as Defense Secretary**\
 `Mr. Hegseth served at the U.S. Navy base as a National Guard lieutenant. The base is now being used to hold some migrants who face deportation.`\
 https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
-
-**Reinventing Life After a Rare Diagnosis**\
-`Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
-https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
 
