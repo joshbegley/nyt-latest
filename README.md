@@ -1,3 +1,11 @@
+**Word of the Day: herculean**\
+`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
+
+**Late Night Laughs at DOGE’s Work Force Demand**\
+`“It’s like the government is being run by BuzzFeed,” Jimmy Kimmel said on Monday about Elon Musk’s work-tracking request to federal employees.`\
+https://nytimes.com/2025/02/25/arts/television/late-night-elon-musk-emails.html
+
 **Matthew Tkachuk recaps 4 Nations Face-Off with Jimmy Fallon**\
 `Sidelined with an injury suffered at the 4 Nations tournament, Tkachuk took a trip to New York to be on Fallon’s show`\
 https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-nations-face-off/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6157584/2025/02/25/winstanley-stewart-chelsea-sport
 **Trump and Macron Showcase Friendship, and Some Differences**\
 `President Trump and President Emmanuel Macron of France traded compliments during a meeting at the White House. But they struck different tones on the war in Ukraine.`\
 https://nytimes.com/video/us/politics/100000010010420/trump-macron-ukraine.html
-
-**The magic and madness of the Coupe de France - a competition structured to encourage upsets**\
-`Knockout competitions always throw up surprises, but in the Coupe de France, upsets are deliberately baked into the format`\
-https://nytimes.com/athletic/6156080/2025/02/25/coupe-de-france/
-
-**Why 12 Premier League teams are fighting for a place in next season's Champions League**\
-`There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
-https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
 
