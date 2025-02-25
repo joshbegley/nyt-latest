@@ -1,3 +1,7 @@
+**Nebraska continues to confound. Where do the Huskers stand after Michigan loss?**\
+`Before Monday's loss, 96 of 97 projections on BracketMatrix.com listed Nebraska in the 68-team NCAA Tournament.`\
+https://nytimes.com/athletic/6158294/2025/02/25/nebraska-basketball-ncaa-bubble-michigan/
+
 **Trump Refocuses on Trade**\
 `The president has sent the message that he’s committed to tariffs, and that he sees room for deals with Ukraine and Russia.`\
 https://nytimes.com/2025/02/25/business/dealbook/trump-tariffs-ukraine-russia-minerals.html
