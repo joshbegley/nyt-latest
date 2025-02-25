@@ -1,3 +1,11 @@
+**Commanders give DT Jonathan Allen permission to seek trade**\
+`Allen, 30, has spent his entire career with the Washington, which selected him with the 17th overall pick in the 2017 NFL Draft.`\
+https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-permission/
+
+**As G.O.P. Eyes Medicaid Cuts, States Could be Left With Vast Shortfalls**\
+`Republicans have proposed lowering the federal share of costs for Medicaid expansions, which could reshape the program by gutting one of the Affordable Care Act’s major provisions.`\
+https://nytimes.com/2025/02/25/us/politics/medicaid-cuts-republican-budget.html
+
 **Americans Are Expecting Higher Prices. That Could Unnerve the Fed.**\
 `More Americans are starting to brace for higher prices as President Trump’s policies begin to take effect.`\
 https://nytimes.com/2025/02/25/business/inflation-fed-trump.html
