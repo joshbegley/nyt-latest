@@ -1,3 +1,11 @@
+**Keir Starmer Announces Defense Spending Increase**\
+`Prime Minister Keir Starmer of Britain said the move would amount to an increase in expenditure of 13.4 billion pounds, or $17 billion, a year on defense between now and 2027.`\
+https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starmer.html
+
+**Hegseth Returns to Guantánamo, This Time as Defense Secretary**\
+`Mr. Hegseth served at the U.S. Navy base as a National Guard lieutenant. The base is now being used to hold some migrants who face deportation.`\
+https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
+
 **Reinventing Life After a Rare Diagnosis**\
 `Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
 https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
