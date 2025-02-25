@@ -1,3 +1,11 @@
+**Trump and Macron Showcase Friendship, and Some Differences**\
+`President Trump and President Emmanuel Macron of France traded compliments during a meeting at the White House. But they struck different tones on the war in Ukraine.`\
+https://nytimes.com/video/us/politics/100000010010420/trump-macron-ukraine.html
+
+**The magic and madness of the Coupe de France - a competition structured to encourage upsets**\
+`Knockout competitions always throw up surprises, but in the Coupe de France, upsets are deliberately baked into the format`\
+https://nytimes.com/athletic/6156080/2025/02/25/coupe-de-france/
+
 **Why 12 Premier League teams are fighting for a place in next season's Champions League**\
 `There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
 https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
