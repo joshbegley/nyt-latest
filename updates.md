@@ -1,3 +1,43 @@
+**How Can Europe Talk to Trump? Flatter, Then Gently Resist.**\
+`Emmanuel Macron, the French president, epitomized how the continent’s leaders are trying to navigate President Trump’s increasingly hostile administration.`\
+https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
+
+**Brewers' Nestor Cortes embraces new home, but sting of Yankees' World Series loss remains**\
+`Cortes gave up the first game-ending grand slam in World Series history in Game 1 of last year's Fall Classic. `\
+https://nytimes.com/athletic/6156842/2025/02/25/nestor-cortes-brewers-yankees-world-series/
+
+**A look inside Jose Altuve's left-field learning curve: 'He's like a kid in a candy store'**\
+`Altuve is shadowing two Astros coaches, who worked with him for two weeks at Daikin Park to help prepare for a potential position change.`\
+https://nytimes.com/athletic/6157100/2025/02/25/astros-jose-altuve-left-field-learning-curve/
+
+**Greenberg: An owner like Justin Ishbia could bring in a lot of change to Chicago**\
+`From stadiums to rivalries with teams like the Cubs, Ishbia — and his deep pockets — could inject the White Sox with some new energy.`\
+https://nytimes.com/athletic/6156885/2025/02/25/justin-ishbia-white-sox-cubs/
+
+**Maple Leafs prospect stock watch: Who's up and down ahead of the trade deadline?**\
+`How have Toronto's top prospects been performing ahead of what could be a pivotal week in their careers?`\
+https://nytimes.com/athletic/6157407/2025/02/25/maple-leafs-prospect-trade-deadline/
+
+**Jordan Poole has rejuvenated his career — thanks to the coach who benched him**\
+`The turning point of Poole's tenure in Washington was Keefe's decision to make Poole the team's sixth man last season.`\
+https://nytimes.com/athletic/6157079/2025/02/25/jordan-poole-wizards-brian-keefe/
+
+**Carragher's AFCON comments reflect a wider issue of disrespect towards the tournament**\
+`The Sky Sports pundit dismissed the Africa Cup of Nations' status as a 'major tournament' but was quickly challenged by fellow panellists`\
+https://nytimes.com/athletic/6156700/2025/02/25/jamie-carragher-afrcon-disrespect/
+
+**Pronman: Top 2025 college, CHL and European free agents for NHL teams**\
+`Ranking this year's players to watch coming out of the CHL, NCAA and major European leagues.`\
+https://nytimes.com/athletic/6128943/2025/02/25/nhl-free-agents-2025-ncaa-chl-europe/
+
+**Ostriches, butt cheeks and relentless energy: How Austin Hedges became an indispensable MLB teammate**\
+`Despite historically low offensive numbers, the Guardians veteran is beloved for his abilities as a catcher and clubhouse connector.`\
+https://nytimes.com/athletic/6157109/2025/02/25/austin-hedges-guardians-teammate/
+
+**'Innovate or die': How NHL teams prepare top prospects with latest tech**\
+`Everyone has access to the newest data and analytics tools, but in an ever-changing game, it's about who uses them best.`\
+https://nytimes.com/athletic/5099349/2025/02/25/nhl-analytics-prospects-development/
+
 **Could Casey Mittelstadt be on the move again? Which teams should be interested?**\
 `Colorado's front office has already shown it isn't afraid to shake up the team, and trading its 2C would qualify.`\
 https://nytimes.com/athletic/6157262/2025/02/25/nhl-trade-deadline-casey-mittelstadt-avalanche/
