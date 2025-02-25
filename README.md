@@ -1,3 +1,7 @@
+**Delta Air Lines Flight Returns to Atlanta After Haze Fills Cabin**\
+`A flight headed for Columbia, S.C., from Atlanta turned back for an emergency landing on Monday after the crew reported “possible smoke” inside the aircraft.`\
+https://nytimes.com/video/us/100000010010943/delta-flight-atlanta-smoke-haze.html
+
 **Wolff: Horner booing shouldn't overshadow success of F1 75 Live**\
 `Horner, along with four-time world champion Max Verstappen, was booed when he appeared on the stage and shown on the screen.`\
 https://nytimes.com/athletic/6158537/2025/02/25/toto-wolff-christian-horner-booing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
 **How Van Dijk and Konate have taken their partnership to a new level**\
 `Liverpool's centre-backs showed against Manchester City why they have a case to be considered the best defensive pairing in Europe`\
 https://nytimes.com/athletic/6158184/2025/02/25/van-dijk-konate-partnership-liverpool/
-
-**To the Point: Short Novels Dominate International Booker Prize Nominees**\
-`Only one of the 13 titles nominated for the prestigious award for fiction translated into English is more than 300 pages long. But it is the one favored by critics.`\
-https://nytimes.com/2025/02/25/books/international-booker-prize-longlist.html
 
