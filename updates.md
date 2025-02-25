@@ -1,3 +1,19 @@
+**UNC basketball hiring longtime NBA agent Jim Tanner as GM: Source**\
+`Since Hubert Davis became UNC’s head coach in April 2021, he has maintained a preference for only having former Tar Heels on his staff.`\
+https://nytimes.com/athletic/6119169/2025/02/25/unc-basketball-general-manager-jim-tanner/
+
+**Johnson Grasps for Republican Votes to Pass Budget Plan**\
+`Speaker Mike Johnson pressed ahead with plans for a Tuesday night vote on the House G.O.P. budget resolution even as threatened defections piled up.`\
+https://nytimes.com/2025/02/25/world/europe/mike-johnson-budget-resolution-vote.html
+
+**‘A Thousand Blows’ Is a Knuckle Sandwich of a Series**\
+`From the creator of “Peaky Blinders” comes another brutal and dingy underworld drama, this one set among the boxers and criminals of 1880s London.`\
+https://nytimes.com/2025/02/25/arts/television/a-thousand-blows-hulu.html
+
+**Over 230,000 Sign Petition Calling for Musk’s Canadian Citizenship to Be Revoked**\
+`The petition accused Elon Musk of attacking Canadian sovereignty. The billionaire adviser to President Trump responded on X, saying “Canada is not a real country.”`\
+https://nytimes.com/2025/02/25/us/politics/elon-musk-canada-citizenship.html
+
 **Wild's Joel Eriksson Ek week-to-week with lower-body injury as hits keep coming**\
 `Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
 https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
