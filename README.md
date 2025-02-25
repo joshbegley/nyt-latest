@@ -1,3 +1,7 @@
+**Trump Refocuses on Trade**\
+`The president has sent the message that he’s committed to tariffs, and that he sees room for deals with Ukraine and Russia.`\
+https://nytimes.com/2025/02/25/business/dealbook/trump-tariffs-ukraine-russia-minerals.html
+
 **Why F1's preseason game of 'smoke and mirrors' will be more important than ever this year**\
 `When testing begins on Wednesday in Bahrain, lap times will tell only half-truths - real performance will remain deliberately obscured`\
 https://nytimes.com/athletic/6157070/2025/02/25/f1-preseason-testing-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157407/2025/02/25/maple-leafs-prospect-trade-deadl
 **Jordan Poole has rejuvenated his career — thanks to the coach who benched him**\
 `The turning point of Poole's tenure in Washington was Keefe's decision to make Poole the team's sixth man last season.`\
 https://nytimes.com/athletic/6157079/2025/02/25/jordan-poole-wizards-brian-keefe/
-
-**Carragher's AFCON comments reflect a wider issue of disrespect towards the tournament**\
-`The Sky Sports pundit dismissed the Africa Cup of Nations' status as a 'major tournament' but was quickly challenged by fellow panellists`\
-https://nytimes.com/athletic/6156700/2025/02/25/jamie-carragher-afrcon-disrespect/
 
