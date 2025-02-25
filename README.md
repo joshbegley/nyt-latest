@@ -1,3 +1,7 @@
+**Nebraska continues to confound. Where do the Huskers stand after Michigan loss?**\
+`Before Monday's loss, 96 of 97 projections on BracketMatrix.com listed Nebraska in the 68-team NCAA Tournament.`\
+https://nytimes.com/athletic/6158294/2025/02/25/nebraska-basketball-ncaa-bubble-michigan/
+
 **Trump Refocuses on Trade**\
 `The president has sent the message that he’s committed to tariffs, and that he sees room for deals with Ukraine and Russia.`\
 https://nytimes.com/2025/02/25/business/dealbook/trump-tariffs-ukraine-russia-minerals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156885/2025/02/25/justin-ishbia-white-sox-cubs/
 **Maple Leafs prospect stock watch: Who's up and down ahead of the trade deadline?**\
 `How have Toronto's top prospects been performing ahead of what could be a pivotal week in their careers?`\
 https://nytimes.com/athletic/6157407/2025/02/25/maple-leafs-prospect-trade-deadline/
-
-**Jordan Poole has rejuvenated his career — thanks to the coach who benched him**\
-`The turning point of Poole's tenure in Washington was Keefe's decision to make Poole the team's sixth man last season.`\
-https://nytimes.com/athletic/6157079/2025/02/25/jordan-poole-wizards-brian-keefe/
 
