@@ -1,3 +1,7 @@
+**Matthew Tkachuk recaps 4 Nations Face-Off with Jimmy Fallon**\
+`Sidelined with an injury suffered at the 4 Nations tournament, Tkachuk took a trip to New York to be on Fallon’s show`\
+https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-nations-face-off/
+
 **America and Russia Are on the Same Side Now**\
 `The U.S. is embracing European far-right parties in sympathy with Moscow — the opposite of how Washington dealt with Europe’s Communist parties in the Cold War.`\
 https://nytimes.com/2025/02/25/opinion/russia-europe-trump-vance.html
