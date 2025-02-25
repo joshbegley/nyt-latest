@@ -1,3 +1,7 @@
+**Man United appoint Vivell as full-time director of recruitment**\
+`The former Chelsea and RB Leipzig executive will lead United’s global recruitment operation.`\
+https://nytimes.com/athletic/6158217/2025/02/25/manchester-united-christopher-vivell-contract-new/
+
 **Commanders give DT Jonathan Allen permission to seek trade**\
 `Allen, 30, has spent his entire career with the Washington, which selected him with the 17th overall pick in the 2017 NFL Draft.`\
 https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-permission/

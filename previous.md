@@ -1,3 +1,7 @@
+**Man United appoint Vivell as full-time director of recruitment**\
+`The former Chelsea and RB Leipzig executive will lead United’s global recruitment operation.`\
+https://nytimes.com/athletic/6158217/2025/02/25/manchester-united-christopher-vivell-contract-new/
+
 **Commanders give DT Jonathan Allen permission to seek trade**\
 `Allen, 30, has spent his entire career with the Washington, which selected him with the 17th overall pick in the 2017 NFL Draft.`\
 https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-permission/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6158537/2025/02/25/toto-wolff-christian-horner-booi
 **How Far Do Trump’s Cuts to Science Reach? To the Ends of the Earth.**\
 `The National Science Foundation has fired workers at the office that manages polar research, raising fears about a reduced U.S. presence in two strategic regions.`\
 https://nytimes.com/2025/02/25/climate/trump-nsf-cuts-antarctica.html
-
-**State Election Officials Seek to Avert Deeper Cuts**\
-`The National Association of Secretaries of State, normally reluctant to wade into partisan politics, has asked the homeland security secretary to preserve election security programs.`\
-https://nytimes.com/2025/02/25/us/politics/election-security-federal-spending-cuts.html
 
