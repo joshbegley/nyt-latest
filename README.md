@@ -1,3 +1,7 @@
+**Could Casey Mittelstadt be on the move again? Which teams should be interested?**\
+`Colorado's front office has already shown it isn't afraid to shake up the team, and trading its 2C would qualify.`\
+https://nytimes.com/athletic/6157262/2025/02/25/nhl-trade-deadline-casey-mittelstadt-avalanche/
+
 **President Trump vs. Medical Research**\
 `How government cuts are slowing research.`\
 https://nytimes.com/2025/02/25/briefing/president-trump-vs-medical-research.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157885/2025/02/25/blue-jays-free-agency-vladimir-g
 **Cubs' Ben Brown, healthy and throwing, is looking to build off his impressive 2024**\
 `Over his final 53 2/3 innings, Brown posted a 2.68 ERA with a 30 percent strikeout rate and an 8.1 percent walk rate.`\
 https://nytimes.com/athletic/6157649/2025/02/25/chicago-cubs-ben-brown-health-progress/
-
-**Meet the tallest player in the NBA to have never dunked in a game**\
-`The 22-year-old holds a certain distinction, and if the long-awaited slam ever happens, one teammate "might do a backflip" to celebrate.`\
-https://nytimes.com/athletic/6157134/2025/02/25/magic-caleb-houstan-dunking-nba/
 
