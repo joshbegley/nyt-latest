@@ -1,3 +1,7 @@
+**Facing Trump’s Hostility, Ukraine Weighs Its Options. But They Are Few.**\
+`There is a broad reckoning in Ukraine: Washington can no longer be relied upon as a supporter. But Kyiv still has agency on the battlefield and can seek increased support from Europe.`\
+https://nytimes.com/2025/02/25/world/europe/trump-ukraine-russia-war.html
+
 **Galatasaray accuse Mourinho of 'racist statements', intend to initiate criminal proceedings**\
 `Fenerbahce say Mourinho's comments have been taken 'completely out of context and deliberately distorted'.`\
 https://nytimes.com/athletic/6157627/2025/02/25/jose-mourinho-racist-galatasaray-fenerbahce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157641/2025/02/25/nfl-mock-draft-college-prospects
 **Connor Zilisch on his NASCAR Cup debut at 18, future goals and more: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6151954/2025/02/25/connor-zilisch-nascar-cup-series-debut-12-questions/
-
-**Connections Companion No. 626**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Feb. 26, 2025.`\
-https://nytimes.com/2025/02/25/crosswords/connections-companion-626.html
 
