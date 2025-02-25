@@ -1,3 +1,7 @@
+**The NHL's most improved players of 2024-25, from Dylan Holloway to Logan Cooley**\
+`Every season, there are performances nobody saw coming. Here are some of the best from 2024-25.`\
+https://nytimes.com/athletic/6145570/2025/02/25/nhl-most-improved-players-2024-2025/
+
 **Nebraska continues to confound. Where do the Huskers stand after Michigan loss?**\
 `Before Monday's loss, 96 of 97 projections on BracketMatrix.com listed Nebraska in the 68-team NCAA Tournament.`\
 https://nytimes.com/athletic/6158294/2025/02/25/nebraska-basketball-ncaa-bubble-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157100/2025/02/25/astros-jose-altuve-left-field-le
 **Greenberg: An owner like Justin Ishbia could bring in a lot of change to Chicago**\
 `From stadiums to rivalries with teams like the Cubs, Ishbia — and his deep pockets — could inject the White Sox with some new energy.`\
 https://nytimes.com/athletic/6156885/2025/02/25/justin-ishbia-white-sox-cubs/
-
-**Maple Leafs prospect stock watch: Who's up and down ahead of the trade deadline?**\
-`How have Toronto's top prospects been performing ahead of what could be a pivotal week in their careers?`\
-https://nytimes.com/athletic/6157407/2025/02/25/maple-leafs-prospect-trade-deadline/
 
