@@ -1,3 +1,7 @@
+**Government Watchdog Moves to Protect Probationary Federal Workers**\
+`Hampton Dellinger, the head of the Office of Special Counsel, recommended pausing the mass firings of some probationary federal employees.`\
+https://nytimes.com/2025/02/24/us/politics/special-counsel-fired-federal-workers.html
+
 **Giants notes: Justin Verlander might be raising his sights by lowering his heights**\
 `Plus Bryce Eldridge is working with J.T. Snow on his defense at first base. Eldridge will make his first start on Tuesday.`\
 https://nytimes.com/athletic/6157831/2025/02/24/sf-giants-justin-verlander-release-point/
