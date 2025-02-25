@@ -1,3 +1,7 @@
+**3 Workers Killed in Collapse at Construction Site in South Korea**\
+`Five others were injured when part of a highway construction site collapsed on Tuesday morning, officials said.`\
+https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
+
 **Corrections: Feb. 25, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 25, 2025.`\
 https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html

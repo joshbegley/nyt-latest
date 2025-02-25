@@ -1,3 +1,7 @@
+**3 Workers Killed in Collapse at Construction Site in South Korea**\
+`Five others were injured when part of a highway construction site collapsed on Tuesday morning, officials said.`\
+https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
+
 **Corrections: Feb. 25, 2025**\
 `Corrections that appeared in print on Tuesday, Feb. 25, 2025.`\
 https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/business/media/paramount-trump-60-minutes-lawsuit
 **In Huntington Beach, Politics on a Plaque**\
 `MAGA references on a library plaque have divided the Southern California surf town and thrust it into the national spotlight.`\
 https://nytimes.com/2025/02/24/us/huntington-beach-maga-plaque.html
-
-**After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
-`Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
-https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
 
