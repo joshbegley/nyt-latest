@@ -1,3 +1,7 @@
+**Corrections: Feb. 25, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 25, 2025.`\
+https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html
+
 **‘Grangeville’ Review: Am I My Half Brother’s Keeper?**\
 `A story as old as Cain and Abel gets filtered through cellphone and video confrontations in Samuel D. Hunter’s bleak two-hander.`\
 https://nytimes.com/2025/02/24/theater/grangeville-review-samuel-d-hunter.html
