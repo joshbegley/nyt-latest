@@ -1,3 +1,7 @@
+**Corrections: Feb. 25, 2025**\
+`Corrections that appeared in print on Tuesday, Feb. 25, 2025.`\
+https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html
+
 **‘Grangeville’ Review: Am I My Half Brother’s Keeper?**\
 `A story as old as Cain and Abel gets filtered through cellphone and video confrontations in Samuel D. Hunter’s bleak two-hander.`\
 https://nytimes.com/2025/02/24/theater/grangeville-review-samuel-d-hunter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/huntington-beach-maga-plaque.html
 **After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
 `Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
 https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
-
-**The Trump administration further cracks down on Iranian oil sales.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/02/24/us/trump-musk-news/the-trump-administration-further-cracks-down-on-iranian-oil-sales
 
