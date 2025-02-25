@@ -1,3 +1,11 @@
+**Totally Beat**\
+`Greg Snitkin’s puzzle takes us back in time.`\
+https://nytimes.com/2025/02/24/crosswords/daily-puzzle-2025-02-25.html
+
+**Al Trautwig, a Mainstay in the TV Booth at Madison Square Garden, Dies at 68**\
+`The Long Island native covered 16 Olympics, and had cameos in the movie “Cool Runnings” and the TV show “Law & Order: Special Victims Unit.”`\
+https://nytimes.com/2025/02/24/sports/al-trautwig-dead.html
+
 **3 Workers Killed in Collapse at Construction Site in South Korea**\
 `Five others were injured when part of a highway construction site collapsed on Tuesday morning, officials said.`\
 https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
