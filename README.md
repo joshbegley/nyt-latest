@@ -1,3 +1,11 @@
+**Commanders give DT Jonathan Allen permission to seek trade**\
+`Allen, 30, has spent his entire career with the Washington, which selected him with the 17th overall pick in the 2017 NFL Draft.`\
+https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-permission/
+
+**As G.O.P. Eyes Medicaid Cuts, States Could be Left With Vast Shortfalls**\
+`Republicans have proposed lowering the federal share of costs for Medicaid expansions, which could reshape the program by gutting one of the Affordable Care Act’s major provisions.`\
+https://nytimes.com/2025/02/25/us/politics/medicaid-cuts-republican-budget.html
+
 **Americans Are Expecting Higher Prices. That Could Unnerve the Fed.**\
 `More Americans are starting to brace for higher prices as President Trump’s policies begin to take effect.`\
 https://nytimes.com/2025/02/25/business/inflation-fed-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/25/climate/trump-nsf-cuts-antarctica.html
 **State Election Officials Seek to Avert Deeper Cuts**\
 `The National Association of Secretaries of State, normally reluctant to wade into partisan politics, has asked the homeland security secretary to preserve election security programs.`\
 https://nytimes.com/2025/02/25/us/politics/election-security-federal-spending-cuts.html
-
-**The Bounce: Will Luka Dončić add to NBA's history of revenge games as Mavericks visit Lakers?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6158391/2025/02/25/luka-doncic-lebron-james-lakers-mavericks-nba-the-bounce/
-
-**The Iron Curtain Casts a Long Shadow Over Germany’s Election**\
-`The former East Germany still votes virtually as a separate country — and increasingly for a party that has been linked to neo-Nazis.`\
-https://nytimes.com/2025/02/25/world/europe/germany-election-east-west-iron-curtain.html
 
