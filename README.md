@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tan
 https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
 
 **Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
-`Manchester United have announced up to 200 further redundancies - this is how the news was broken, the reaction and the story behind it`\
+`Manchester United have announced up to 200 further redundancies. This is how the news was broken, the reaction and the story behind it`\
 https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
 
 **Word of the Day: herculean**\
