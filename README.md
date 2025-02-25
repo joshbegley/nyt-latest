@@ -1,3 +1,7 @@
+**Government Watchdog Moves to Protect Probationary Federal Workers**\
+`Hampton Dellinger, the head of the Office of Special Counsel, recommended pausing the mass firings of some probationary federal employees.`\
+https://nytimes.com/2025/02/24/us/politics/special-counsel-fired-federal-workers.html
+
 **Giants notes: Justin Verlander might be raising his sights by lowering his heights**\
 `Plus Bryce Eldridge is working with J.T. Snow on his defense at first base. Eldridge will make his first start on Tuesday.`\
 https://nytimes.com/athletic/6157831/2025/02/24/sf-giants-justin-verlander-release-point/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/nyregion/nyc-boat-capsizes-staten-island.html
 **Rosenthal: Early injuries increase concerns for Mets rotation, but it’s too soon to panic**\
 `Both Sean Manaea and Frankie Montas are expected to start the regular season on the injured list. `\
 https://nytimes.com/athletic/6157741/2025/02/24/mets-rotation-injuries-concern-manaea-montas/
-
-**Before Ascending to Top Tier of F.B.I., Bongino Fueled Right-Wing Disbelief**\
-`The post of deputy director will give Dan Bongino access to vast amounts of highly sensitive intelligence, as well as rumor, speculation and false accusations that F.B.I. agents regularly receive.`\
-https://nytimes.com/2025/02/24/us/politics/dan-bongino-trump-fbi-director-conspiracies.html
 
