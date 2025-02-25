@@ -1,3 +1,7 @@
+**Wild's Joel Eriksson Ek week-to-week with lower-body injury as hits keep coming**\
+`Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
+https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
+
 **Once the Center of the N.B.A. News Universe, These Phones Can Now Be Yours**\
 `Adrian Wojnarowski, the former king of the N.B.A. scoop at ESPN, is auctioning off personal items to raise money for his employer, St. Bonaventure University.`\
 https://nytimes.com/2025/02/25/sports/basketball/adrian-wojnarowski-auction-woj.html
