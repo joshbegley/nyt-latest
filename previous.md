@@ -1,3 +1,7 @@
+**Leeds United: Sometimes, it just feels like it's going to be your year**\
+`With a second successive late win against promotion rivals, Leeds are making glory feel like something of an inevitability this season`\
+https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tanaka-firpo/
+
 **Bridge Collapse Kills Several in South Korea**\
 `Emergency crews searched for survivors and worked to clear rubble from the site, which was part of a highway construction project in Cheonan, South Korea.`\
 https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6155883/2025/02/25/newcastle-inside-isak-pope-wilso
 **Spurs, a long-awaited academy generation and the hope for more nights 'made in Tottenham'**\
 `Club-trained youngsters have featured infrequently for Spurs this season - is the step up bigger than elsewhere?`\
 https://nytimes.com/athletic/6148631/2025/02/25/spurs-tottenham-academy-pathway/
-
-**A 'surreal' evening with Billy Davies: How did fans react to ex-manager's Forest tales?**\
-`Billy Davies is back in the limelight - but with Forest's recent success, how did his varied tales of near-promotion fare with fans?`\
-https://nytimes.com/athletic/6154198/2025/02/25/nottingham-forest-billy-davies-evening-with/
 
