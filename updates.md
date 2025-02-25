@@ -238,6 +238,11 @@ https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-cit
 `\
 https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-city-premier-league-betting-tips/
 
+**Can Son's Spurs deliver Guardiola a third straight loss?**\
+`Sam Tighe takes a look at the best bets around Tottenham Hotspur and Manchester City’s midweek clash.
+`\
+https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-city-premier-league-betting-tips/
+
 **Forest vs Arsenal: Will Gunners stay in title fight or are the odds in Forest’s favour?**\
 `Julia Ranney takes a look at the best bets around Arsenal and Nottingham Forest’s midweek clash.`\
 https://nytimes.com/athletic/6156585/2025/02/25/arsenal-nottingham-forest-premier-league-betting-tips/
