@@ -1,3 +1,7 @@
+**After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
+`Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
+https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
+
 **The Trump administration further cracks down on Iranian oil sales.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/02/24/us/trump-musk-news/the-trump-administration-further-cracks-down-on-iranian-oil-sales

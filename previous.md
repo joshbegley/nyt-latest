@@ -1,3 +1,7 @@
+**After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
+`Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
+https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
+
 **The Trump administration further cracks down on Iranian oil sales.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/02/24/us/trump-musk-news/the-trump-administration-further-cracks-down-on-iranian-oil-sales
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/business/okx-crypto-exchange-guilty-plea.html
 **Cowboys EVP Stephen Jones: Offseason plan is to be 'selectively aggressive'**\
 `The Cowboys are not usually a big player in free agency. Could that change after their divisional rival won the Super Bowl?`\
 https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combine-stephen-jones/
-
-**Joann, 80-Year-Old Crafts and Fabrics Retailer, Will Close All Stores**\
-`The announcement that the chain would close all 800 of its stores in 49 states comes after a period of financial turmoil.`\
-https://nytimes.com/2025/02/24/business/joann-stores-closing.html
 
