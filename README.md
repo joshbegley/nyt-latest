@@ -1,3 +1,7 @@
+**Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
+`Manchester United have announced up to 200 further redundancies - this is how the news was broken, the reaction and the story behind it`\
+https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
+
 **Word of the Day: herculean**\
 `This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6154198/2025/02/25/nottingham-forest-billy-davies-e
 **Chelsea's co-sporting directors were hired for the long term and that is how they will be judged**\
 `Laurence Stewart and Paul Winstanley are the subjects of fans' anger but they are key components of Chelsea's plans for the future`\
 https://nytimes.com/athletic/6157584/2025/02/25/winstanley-stewart-chelsea-sporting-directors/
-
-**Trump and Macron Showcase Friendship, and Some Differences**\
-`President Trump and President Emmanuel Macron of France traded compliments during a meeting at the White House. But they struck different tones on the war in Ukraine.`\
-https://nytimes.com/video/us/politics/100000010010420/trump-macron-ukraine.html
 
