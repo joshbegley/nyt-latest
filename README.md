@@ -1,3 +1,7 @@
+**The Pulse: The combine's most interesting prospects**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6156325/2025/02/25/nfl-combine-prospects-the-pulse/
+
 **Arteta says Arsenal will give up on PL title 'over my dead body'**\
 `The north London side trail league leaders Liverpool by 11 points following the weekend's Premier League results.`\
 https://nytimes.com/athletic/6158169/2025/02/25/arsenal-premier-league-title-arteta/
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/6157134/2025/02/25/magic-caleb-houstan-dunking-nba/
 **Who is Thomas Perry? Smartest, toughest NFL Draft prospect you've likely never seen play**\
 `Perry, a DIII All-American, put together an impressive performance at the Shrine Bowl and could hear his name called at April's draft.`\
 https://nytimes.com/athletic/6141640/2025/02/25/nfl-draft-2025-sleeper-prospect-thomas-perry/
-
-**She Fell in Love With ChatGPT. Like, Actual Love. With Sex.**\
-`The story of a woman who is dating an A.I. chatbot, and what it tells us about love and technology.`\
-https://nytimes.com/2025/02/25/podcasts/the-daily/ai-chatgpt-boyfriend-relationship.html
 
 **A Showdown on Ukraine, and a Judge Says DOGE Might Be Unconstitutional**\
 `Plus, Roberta Flack remembered.`\
