@@ -1,40 +1,40 @@
-**Could Casey Mittelstadt be on the move again? Which teams should be interested?**\
-`Colorado's front office has already shown it isn't afraid to shake up the team, and trading its 2C would qualify.`\
-https://nytimes.com/athletic/6157262/2025/02/25/nhl-trade-deadline-casey-mittelstadt-avalanche/
+**Brewers' Nestor Cortes embraces new home, but sting of Yankees' World Series loss remains**\
+`Cortes gave up the first game-ending grand slam in World Series history in Game 1 of last year's Fall Classic. `\
+https://nytimes.com/athletic/6156842/2025/02/25/nestor-cortes-brewers-yankees-world-series/
 
-**President Trump vs. Medical Research**\
-`How government cuts are slowing research.`\
-https://nytimes.com/2025/02/25/briefing/president-trump-vs-medical-research.html
+**A look inside Jose Altuve's left-field learning curve: 'He's like a kid in a candy store'**\
+`Altuve is shadowing two Astros coaches, who worked with him for two weeks at Daikin Park to help prepare for a potential position change.`\
+https://nytimes.com/athletic/6157100/2025/02/25/astros-jose-altuve-left-field-learning-curve/
 
-**Cruzeiro contact security forces over 'attacks, threats' towards players**\
-`Headless mannequins wearing the shirts of Marlon, William and Matheus Pereira were hung from a bridge.`\
-https://nytimes.com/athletic/6158153/2025/02/25/cruzeiro-mannequins-bridge-brazilian-football/
+**Greenberg: An owner like Justin Ishbia could bring in a lot of change to Chicago**\
+`From stadiums to rivalries with teams like the Cubs, Ishbia — and his deep pockets — could inject the White Sox with some new energy.`\
+https://nytimes.com/athletic/6156885/2025/02/25/justin-ishbia-white-sox-cubs/
 
-**The Pulse: The combine's most interesting prospects**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6156325/2025/02/25/nfl-combine-prospects-the-pulse/
+**Maple Leafs prospect stock watch: Who's up and down ahead of the trade deadline?**\
+`How have Toronto's top prospects been performing ahead of what could be a pivotal week in their careers?`\
+https://nytimes.com/athletic/6157407/2025/02/25/maple-leafs-prospect-trade-deadline/
 
-**Arteta says Arsenal will give up on PL title 'over my dead body'**\
-`The north London side trail league leaders Liverpool by 11 points following the weekend's Premier League results.`\
-https://nytimes.com/athletic/6158169/2025/02/25/arsenal-premier-league-title-arteta/
+**Jordan Poole has rejuvenated his career — thanks to the coach who benched him**\
+`The turning point of Poole's tenure in Washington was Keefe's decision to make Poole the team's sixth man last season.`\
+https://nytimes.com/athletic/6157079/2025/02/25/jordan-poole-wizards-brian-keefe/
 
-**Taiwan Detains a Chinese-Crewed Ship After Undersea Cable Severed**\
-`The Coast Guard said it was investigating how the cable was severed and said it could not rule out the possibility of sabotage.`\
-https://nytimes.com/2025/02/25/world/asia/taiwan-china-cable.html
+**Carragher's AFCON comments reflect a wider issue of disrespect towards the tournament**\
+`The Sky Sports pundit dismissed the Africa Cup of Nations' status as a 'major tournament' but was quickly challenged by fellow panellists`\
+https://nytimes.com/athletic/6156700/2025/02/25/jamie-carragher-afrcon-disrespect/
 
-**Facing Trump’s Hostility, Ukraine Weighs Its Options. But They Are Few.**\
-`There is a broad reckoning in Ukraine: Washington can no longer be relied upon as a supporter. But Kyiv still has agency on the battlefield and can seek increased support from Europe.`\
-https://nytimes.com/2025/02/25/world/europe/trump-ukraine-russia-war.html
+**Pronman: Top 2025 college, CHL and European free agents for NHL teams**\
+`Ranking this year's players to watch coming out of the CHL, NCAA and major European leagues.`\
+https://nytimes.com/athletic/6128943/2025/02/25/nhl-free-agents-2025-ncaa-chl-europe/
 
-**Galatasaray accuse Mourinho of 'racist statements', intend to initiate criminal proceedings**\
-`Fenerbahce say Mourinho's comments have been taken 'completely out of context and deliberately distorted'.`\
-https://nytimes.com/athletic/6157627/2025/02/25/jose-mourinho-racist-galatasaray-fenerbahce/
+**Ostriches, butt cheeks and relentless energy: How Austin Hedges became an indispensable MLB teammate**\
+`Despite historically low offensive numbers, the Guardians veteran is beloved for his abilities as a catcher and clubhouse connector.`\
+https://nytimes.com/athletic/6157109/2025/02/25/austin-hedges-guardians-teammate/
 
-**The Blue Jays ponder what might have been — the All-Almost-a-Blue-Jay Team — and what's ahead**\
-`Missing out on Ohtani, Soto, Burnes, Alonso and Sasaki. Failing to extend Vlad Jr. Is this becoming a thing? Taking the temp of those in TO.`\
-https://nytimes.com/athletic/6157885/2025/02/25/blue-jays-free-agency-vladimir-guerrero-2025-season/
+**'Innovate or die': How NHL teams prepare top prospects with latest tech**\
+`Everyone has access to the newest data and analytics tools, but in an ever-changing game, it's about who uses them best.`\
+https://nytimes.com/athletic/5099349/2025/02/25/nhl-analytics-prospects-development/
 
-**Cubs' Ben Brown, healthy and throwing, is looking to build off his impressive 2024**\
-`Over his final 53 2/3 innings, Brown posted a 2.68 ERA with a 30 percent strikeout rate and an 8.1 percent walk rate.`\
-https://nytimes.com/athletic/6157649/2025/02/25/chicago-cubs-ben-brown-health-progress/
+**Chase Lee went from failed walk-on to SEC sidearm sensation. Can he do it for Tigers?**\
+`Before he was one step away from the majors, Chase Lee spent a year taking lessons and watching YouTube to learn how to throw sidearm.`\
+https://nytimes.com/athletic/6157349/2025/02/25/tigers-chase-lee-prospect-sidearm-alabama/
 
