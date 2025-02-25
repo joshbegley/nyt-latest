@@ -1,3 +1,11 @@
+**Man City to make late call on Haaland fitness ahead of Spurs**\
+`The Norway international has missed City's last two games with a knee problem.`\
+https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-team-news/
+
+**Will NHL see a 4 Nations bump? Plus, Olsen's future, TGL's novelty and more: Media mailbag**\
+`Richard Deitsch's mailbag of reader questions returns with insights on Greg Olsen, Tom Brady, the NHL, coverage of Justin Tucker and more.`\
+https://nytimes.com/athletic/6144470/2025/02/25/nhl-4-nations-greg-olsen-tgl-nfl-ratings-mailbag/
+
 **Weekly Student News Quiz: Russia-Ukraine War, Quantum Computing, S.N.L.**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/25/learning/25StudentNewsQuizLN.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6155664/2025/02/25/blackhawks-kevin-dean-cancer/
 **What should Sabres do with their pending UFAs before the trade deadline?**\
 `Sabres GM Kevyn Adams has less than two weeks to make a decision on the team's players with expiring contracts.`\
 https://nytimes.com/athletic/6156449/2025/02/25/sabres-trade-deadline-zucker-greenway/
-
-**After thriving on national stage, Faber-Slavin give U.S. a no-brainer Olympic shutdown pair**\
-`People who don't watch many Wild or Hurricanes games could easily have missed just how good the duo are. Not anymore.`\
-https://nytimes.com/athletic/6157606/2025/02/25/brock-faber-jaccob-slavin-team-usa-olympics-4-nations/
-
-**What's the future of college football spring games? Coaches and staffers weigh in**\
-`Do players really get poached from spring games? What other factors are spurring changes in spring practice or spring games?`\
-https://nytimes.com/athletic/6157363/2025/02/25/college-football-spring-games-future-value/
 

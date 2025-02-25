@@ -1,3 +1,11 @@
+**Man City to make late call on Haaland fitness ahead of Spurs**\
+`The Norway international has missed City's last two games with a knee problem.`\
+https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-team-news/
+
+**Will NHL see a 4 Nations bump? Plus, Olsen's future, TGL's novelty and more: Media mailbag**\
+`Richard Deitsch's mailbag of reader questions returns with insights on Greg Olsen, Tom Brady, the NHL, coverage of Justin Tucker and more.`\
+https://nytimes.com/athletic/6144470/2025/02/25/nhl-4-nations-greg-olsen-tgl-nfl-ratings-mailbag/
+
 **Weekly Student News Quiz: Russia-Ukraine War, Quantum Computing, S.N.L.**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/02/25/learning/25StudentNewsQuizLN.html
