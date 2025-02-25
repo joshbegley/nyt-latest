@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6119169/2025/02/25/unc-basketball-general-manager-j
 
 **Johnson Grasps for Republican Votes to Pass Budget Plan**\
 `Speaker Mike Johnson pressed ahead with plans for a Tuesday night vote on the House G.O.P. budget resolution even as threatened defections piled up.`\
-https://nytimes.com/2025/02/25/world/europe/mike-johnson-budget-resolution-vote.html
+https://nytimes.com/2025/02/25/us/politics/mike-johnson-budget-resolution-vote.html
 
 **‘A Thousand Blows’ Is a Knuckle Sandwich of a Series**\
 `From the creator of “Peaky Blinders” comes another brutal and dingy underworld drama, this one set among the boxers and criminals of 1880s London.`\

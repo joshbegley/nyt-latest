@@ -1,3 +1,7 @@
+**Johnson Grasps for Republican Votes to Pass Budget Plan**\
+`Speaker Mike Johnson pressed ahead with plans for a Tuesday night vote on the House G.O.P. budget resolution even as threatened defections piled up.`\
+https://nytimes.com/2025/02/25/us/politics/mike-johnson-budget-resolution-vote.html
+
 **UNC basketball hiring longtime NBA agent Jim Tanner as GM: Source**\
 `Since Hubert Davis became UNC’s head coach in April 2021, he has maintained a preference for only having former Tar Heels on his staff.`\
 https://nytimes.com/athletic/6119169/2025/02/25/unc-basketball-general-manager-jim-tanner/
