@@ -1,3 +1,15 @@
+**A Second ‘Central Park Five’ Member Will Run for Office in New York**\
+`Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
+https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
+
+**Is Andrew Cuomo on the Verge of Announcing a Run for Mayor?**\
+`The former governor, who resigned in disgrace, has not officially entered the race for New York City mayor. But he has spent months laying the groundwork.`\
+https://nytimes.com/2025/02/25/nyregion/andrew-cuomo-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/25/crosswords/spelling-bee-forum.html
+
 **Leeds United: Sometimes, it just feels like it's going to be your year**\
 `With a second successive late win against promotion rivals, Leeds are making glory feel like something of an inevitability this season`\
 https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tanaka-firpo/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-n
 **America and Russia Are on the Same Side Now**\
 `The U.S. is embracing European far-right parties in sympathy with Moscow — the opposite of how Washington dealt with Europe’s Communist parties in the Cold War.`\
 https://nytimes.com/2025/02/25/opinion/russia-europe-trump-vance.html
-
-**Syria Begins a ‘National Dialogue,’ but Without a Major Player**\
-`Although the conference was called to chart the country’s future, the Kurdish-led militia that controls much of Syria’s northeast was not invited.`\
-https://nytimes.com/2025/02/25/world/middleeast/syria-national-dialogue-kurds.html
-
-**Inside Newcastle Q&A: Howe's cup final approach, Pope's future and Al-Rumayyan's visit**\
-`Chris Waugh answers subscribers' questions on a trip to Anfield, summer transfer plans and potential striker partners for Alexander Isak `\
-https://nytimes.com/athletic/6155883/2025/02/25/newcastle-inside-isak-pope-wilson/
-
-**Spurs, a long-awaited academy generation and the hope for more nights 'made in Tottenham'**\
-`Club-trained youngsters have featured infrequently for Spurs this season - is the step up bigger than elsewhere?`\
-https://nytimes.com/athletic/6148631/2025/02/25/spurs-tottenham-academy-pathway/
 
