@@ -1,41 +1,40 @@
-**Can Son's Spurs deliver Guardiola a third straight loss?**\
-`Sam Tighe takes a look at the best bets around Tottenham Hotspur and Manchester City’s midweek clash.
-`\
-https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-city-premier-league-betting-tips/
+**Salah's Ballon d'Or hopes depend on Liverpool titles - Slot**\
+`The Egyptian, who is out of contract in summer, has 41 direct goal involvements (25 goals, 16 assists) for Liverpool this season`\
+https://nytimes.com/athletic/6158136/2025/02/25/mohamed-salah-liverpool-ballon-dor/
 
-**Forest vs Arsenal: Will Gunners stay in title fight or are the odds in Forest’s favour?**\
-`Julia Ranney takes a look at the best bets around Arsenal and Nottingham Forest’s midweek clash.`\
-https://nytimes.com/athletic/6156585/2025/02/25/arsenal-nottingham-forest-premier-league-betting-tips/
+**Call It the Intimidation Agenda**\
+`The president and his allies are using their drive to slash the size of the federal work force to break the bonds of restraint.`\
+https://nytimes.com/2025/02/25/opinion/trump-agenda-firings-chaos.html
 
-**A Second ‘Central Park Five’ Member Will Run for Office in New York**\
-`Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
-https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
+**Trump’s Common-Sense Revolution Is No Revolution at All**\
+`A lot hinges on how the president invokes the term, which has a rich political history.`\
+https://nytimes.com/2025/02/25/opinion/trump-common-sense-paine.html
 
-**Is Andrew Cuomo on the Verge of Announcing a Run for Mayor?**\
-`The former governor, who resigned in disgrace, has not officially entered the race for New York City mayor. But he has spent months laying the groundwork.`\
-https://nytimes.com/2025/02/25/nyregion/andrew-cuomo-mayor.html
+**Taiwan Watches Trump Undercut Ukraine, Hoping It Won’t Be Next**\
+`As President Trump turns toward Russia, Taiwan grapples with its reliance on U.S. support in the face of conflict with China.`\
+https://nytimes.com/2025/02/25/world/asia/trump-ukraine-taiwan.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/25/crosswords/spelling-bee-forum.html
+**James Carville: The Best Thing Democrats Can Do in This Moment**\
+`There’s nothing Democrats can legitimately do to stop Trump, so we need a tactical pause in our fight to plan for the future.`\
+https://nytimes.com/2025/02/25/opinion/democrats-trump-congress.html
 
-**Leeds United: Sometimes, it just feels like it's going to be your year**\
-`With a second successive late win against promotion rivals, Leeds are making glory feel like something of an inevitability this season`\
-https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tanaka-firpo/
+**‘Exterior Night’ Review: Life in Perilous Times**\
+`The Italian master Marco Bellocchio turns to TV, revisiting the mysteries of the Aldo Moro affair.`\
+https://nytimes.com/2025/02/25/arts/television/exterior-night-review.html
 
-**Bridge Collapse Kills Several in South Korea**\
-`Emergency crews searched for survivors and worked to clear rubble from the site, which was part of a highway construction project in Cheonan, South Korea.`\
-https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
+**A Theory of Media That Explains 15 Years of Politics**\
+`Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
+https://nytimes.com/2025/02/25/opinion/ezra-klein-podcast-martin-gurri.html
 
-**Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
-`Manchester United have announced up to 200 further redundancies. This is how the news was broken, the reaction and the story behind it`\
-https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
+**A Conductor at the Top, and Still Learning on the Job**\
+`Antonio Pappano, who leads the London Symphony Orchestra, feels like he is always “playing catch-up” because he skipped music school.`\
+https://nytimes.com/2025/02/25/arts/music/antonio-pappano-london-symphony-orchestra.html
 
-**Word of the Day: herculean**\
-`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
+**A Theory of Media That Explains 15 Years of Politics**\
+`Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
+https://nytimes.com/video/opinion/100000010002674/a-theory-of-media-that-explains-15-years-of-politics.html
 
-**Late Night Laughs at DOGE’s Work Force Demand**\
-`“It’s like the government is being run by BuzzFeed,” Jimmy Kimmel said on Monday about Elon Musk’s work-tracking request to federal employees.`\
-https://nytimes.com/2025/02/25/arts/television/late-night-elon-musk-emails.html
+**Justice Dept.’s No. 2 Targets Old Office Where He Rose as a Prosecutor**\
+`The forceful approach that Emil Bove III has taken toward the Southern District of New York underscores his own fraught relationship with the office that gave him the expertise to do so.`\
+https://nytimes.com/2025/02/25/us/politics/emil-bove-trump-doj.html
 
