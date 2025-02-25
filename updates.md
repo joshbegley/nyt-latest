@@ -1,3 +1,11 @@
+**State Election Officials Seek to Avert Deeper Cuts**\
+`The National Association of Secretaries of State, normally reluctant to wade into partisan politics, has asked the homeland security secretary to preserve election security programs.`\
+https://nytimes.com/2025/02/25/us/politics/election-security-federal-spending-cuts.html
+
+**'Sometimes you learn the most from the worst': Andrey Rublev's new perspective**\
+`The Russian returns to the scene of one of his worst moments on the tennis court - with a new perspective on his own mind.`\
+https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-health-atp/
+
 **The Bounce: Will Luka Dončić add to NBA's history of revenge games as Mavericks visit Lakers?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6158391/2025/02/25/luka-doncic-lebron-james-lakers-mavericks-nba-the-bounce/
