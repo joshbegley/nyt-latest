@@ -1,3 +1,7 @@
+**Luka Dončić-Kobe Bryant mural in L.A. stirs still-fresh emotions for visiting Mavs fans**\
+`A Mavericks fan was brought to tears after seeing a West Hollywood mural of Dončić and Bryant. "They took our star away," he said.`\
+https://nytimes.com/athletic/6157720/2025/02/25/luka-doncic-kobe-bryant-lakers-mavericks-mural/
+
 **Delta Air Lines Flight Returns to Atlanta After Haze Fills Cabin**\
 `A flight headed for Columbia, S.C., from Atlanta turned back for an emergency landing on Monday after the crew reported “possible smoke” inside the aircraft.`\
 https://nytimes.com/video/us/100000010010943/delta-flight-atlanta-smoke-haze.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
 **Man United cost-cutting measures affecting everybody - Amorim**\
 `United announced on Monday a new 'transformation plan' including a further 150 to 200 redundancies.`\
 https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
-
-**How Van Dijk and Konate have taken their partnership to a new level**\
-`Liverpool's centre-backs showed against Manchester City why they have a case to be considered the best defensive pairing in Europe`\
-https://nytimes.com/athletic/6158184/2025/02/25/van-dijk-konate-partnership-liverpool/
 
