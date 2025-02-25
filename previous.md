@@ -1,3 +1,7 @@
+**Syria Begins a ‘National Dialogue,’ but Without a Major Player**\
+`Although the conference was called to chart the country’s future, the Kurdish-led militia that controls much of Syria’s northeast was not invited.`\
+https://nytimes.com/2025/02/25/world/middleeast/syria-national-dialogue-kurds.html
+
 **Inside Newcastle Q&A: Howe's cup final approach, Pope's future and Al-Rumayyan's visit**\
 `Chris Waugh answers subscribers' questions on a trip to Anfield, summer transfer plans and potential striker partners for Alexander Isak `\
 https://nytimes.com/athletic/6155883/2025/02/25/newcastle-inside-isak-pope-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-
 **Timberwolves erase 16-point fourth quarter deficit, beat Thunder in OT**\
 `With the win the Wolves snap a two-game skid and inch closer to the Los Angeles Clippers for the sixth spot in the West.`\
 https://nytimes.com/athletic/6157953/2025/02/25/thunder-timberwolves-overtime-analysis/
-
-**Tuesday Briefing**\
-`Tension between Europe and the U.S. over Ukraine.`\
-https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html
 

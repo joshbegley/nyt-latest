@@ -1,3 +1,7 @@
+**Syria Begins a ‘National Dialogue,’ but Without a Major Player**\
+`Although the conference was called to chart the country’s future, the Kurdish-led militia that controls much of Syria’s northeast was not invited.`\
+https://nytimes.com/2025/02/25/world/middleeast/syria-national-dialogue-kurds.html
+
 **Inside Newcastle Q&A: Howe's cup final approach, Pope's future and Al-Rumayyan's visit**\
 `Chris Waugh answers subscribers' questions on a trip to Anfield, summer transfer plans and potential striker partners for Alexander Isak `\
 https://nytimes.com/athletic/6155883/2025/02/25/newcastle-inside-isak-pope-wilson/
