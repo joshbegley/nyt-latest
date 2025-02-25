@@ -1,3 +1,7 @@
+**Houston's back-to-back Big 12 titles may be Kelvin Sampson's greatest achievement**\
+`With one more win, the Cougars will become the second program to repeat as outright Big 12 champs, redeeming a coach's pivotal decisions.`\
+https://nytimes.com/athletic/6158052/2025/02/25/kelvin-sampson-houston-basketball-big-12-titles/
+
 **Man City to make late call on Haaland fitness ahead of Spurs**\
 `The Norway international has missed City's last two games with a knee problem.`\
 https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156506/2025/02/25/ncaa-tournament-bracket-projecti
 **Blackhawks assistant coach's cancer surgery, Nick Lardis' scoring: 10 thoughts**\
 `Kevin Dean wants you to get screened for prostate cancer. Plus, why isn't Lardis getting more buzz with his eye-popping scoring?`\
 https://nytimes.com/athletic/6155664/2025/02/25/blackhawks-kevin-dean-cancer/
-
-**What should Sabres do with their pending UFAs before the trade deadline?**\
-`Sabres GM Kevyn Adams has less than two weeks to make a decision on the team's players with expiring contracts.`\
-https://nytimes.com/athletic/6156449/2025/02/25/sabres-trade-deadline-zucker-greenway/
 

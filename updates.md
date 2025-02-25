@@ -1,3 +1,7 @@
+**Houston's back-to-back Big 12 titles may be Kelvin Sampson's greatest achievement**\
+`With one more win, the Cougars will become the second program to repeat as outright Big 12 champs, redeeming a coach's pivotal decisions.`\
+https://nytimes.com/athletic/6158052/2025/02/25/kelvin-sampson-houston-basketball-big-12-titles/
+
 **Man City to make late call on Haaland fitness ahead of Spurs**\
 `The Norway international has missed City's last two games with a knee problem.`\
 https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-team-news/
