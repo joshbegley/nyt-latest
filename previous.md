@@ -1,3 +1,7 @@
+**As Francis Lingers in Critical Condition, an Anxious Wait Intensifies**\
+`Eleven days after the pope was hospitalized, speculation is mounting and prayers for his recovery verge on a vigil.`\
+https://nytimes.com/2025/02/25/world/europe/pope-francis-condition-prayers.html
+
 **How Can Europe Talk to Trump? Flatter, Then Gently Resist.**\
 `Emmanuel Macron, the French president, epitomized how the continent’s leaders are trying to navigate President Trump’s increasingly hostile administration.`\
 https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6128943/2025/02/25/nhl-free-agents-2025-ncaa-chl-eu
 **Ostriches, butt cheeks and relentless energy: How Austin Hedges became an indispensable MLB teammate**\
 `Despite historically low offensive numbers, the Guardians veteran is beloved for his abilities as a catcher and clubhouse connector.`\
 https://nytimes.com/athletic/6157109/2025/02/25/austin-hedges-guardians-teammate/
-
-**'Innovate or die': How NHL teams prepare top prospects with latest tech**\
-`Everyone has access to the newest data and analytics tools, but in an ever-changing game, it's about who uses them best.`\
-https://nytimes.com/athletic/5099349/2025/02/25/nhl-analytics-prospects-development/
 

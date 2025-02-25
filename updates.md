@@ -1,3 +1,7 @@
+**As Francis Lingers in Critical Condition, an Anxious Wait Intensifies**\
+`Eleven days after the pope was hospitalized, speculation is mounting and prayers for his recovery verge on a vigil.`\
+https://nytimes.com/2025/02/25/world/europe/pope-francis-condition-prayers.html
+
 **How Can Europe Talk to Trump? Flatter, Then Gently Resist.**\
 `Emmanuel Macron, the French president, epitomized how the continent’s leaders are trying to navigate President Trump’s increasingly hostile administration.`\
 https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
