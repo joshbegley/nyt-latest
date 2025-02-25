@@ -1,3 +1,7 @@
+**President Trump vs. Medical Research**\
+`How government cuts are slowing research.`\
+https://nytimes.com/2025/02/25/briefing/president-trump-vs-medical-research.html
+
 **Cruzeiro contact security forces over 'attacks, threats' towards players**\
 `Headless mannequins wearing the shirts of Marlon, William and Matheus Pereira were hung from a bridge.`\
 https://nytimes.com/athletic/6158153/2025/02/25/cruzeiro-mannequins-bridge-brazilian-football/

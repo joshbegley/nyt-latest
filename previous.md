@@ -1,3 +1,7 @@
+**President Trump vs. Medical Research**\
+`How government cuts are slowing research.`\
+https://nytimes.com/2025/02/25/briefing/president-trump-vs-medical-research.html
+
 **Cruzeiro contact security forces over 'attacks, threats' towards players**\
 `Headless mannequins wearing the shirts of Marlon, William and Matheus Pereira were hung from a bridge.`\
 https://nytimes.com/athletic/6158153/2025/02/25/cruzeiro-mannequins-bridge-brazilian-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157649/2025/02/25/chicago-cubs-ben-brown-health-pr
 **Meet the tallest player in the NBA to have never dunked in a game**\
 `The 22-year-old holds a certain distinction, and if the long-awaited slam ever happens, one teammate "might do a backflip" to celebrate.`\
 https://nytimes.com/athletic/6157134/2025/02/25/magic-caleb-houstan-dunking-nba/
-
-**Who is Thomas Perry? Smartest, toughest NFL Draft prospect you've likely never seen play**\
-`Perry, a DIII All-American, put together an impressive performance at the Shrine Bowl and could hear his name called at April's draft.`\
-https://nytimes.com/athletic/6141640/2025/02/25/nfl-draft-2025-sleeper-prospect-thomas-perry/
 
