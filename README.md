@@ -1,3 +1,7 @@
+**Linda Henry pulls out from ownership stake in Boston's NWSL expansion team**\
+`The divestment process remains pending, with Henry informing the team her plans to exit their group two months ago.`\
+https://nytimes.com/athletic/6157790/2025/02/24/bos-nation-nwsl-expansion-ownership/
+
 **Paramount and Trump Seek Mediator for CBS News Lawsuit**\
 `The move is another indicator that the two sides are exploring ways to resolve the case, over the editing of a “60 Minutes” interview, out of court.`\
 https://nytimes.com/2025/02/24/business/media/paramount-trump-60-minutes-lawsuit-cbs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157718/2025/02/24/bernard-muir-stanford-athletic-d
 **DoorDash to Pay $16.8 Million to Workers for Pocketing Their Tips**\
 `The payments, part of a settlement with the New York attorney general’s office, will return as much as $14,000 to some workers.`\
 https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html
-
-**Saying ‘No’ to Musk**\
-`Some cabinet officials are showing a glimmer of willingness to check the billionaire’s power.`\
-https://nytimes.com/2025/02/24/us/politics/elon-musk-trump-washington.html
 
