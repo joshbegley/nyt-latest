@@ -1,3 +1,7 @@
+**Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
+`Manchester United have announced up to 200 further redundancies - this is how the news was broken, the reaction and the story behind it`\
+https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
+
 **Word of the Day: herculean**\
 `This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
