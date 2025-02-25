@@ -1,3 +1,11 @@
+**Utah basketball coaching candidates: Will Utes go NBA route like rival BYU?**\
+`Utah fired men’s basketball coach Craig Smith on Monday, citing “greater aspirations." Who is the coach that can achieve them?`\
+https://nytimes.com/athletic/6158873/2025/02/25/utah-basketball-coaching-candidates/
+
+**Unrivaled promo to bring women's sports push to a new place — a NASCAR race**\
+`An Unrivaled-inspired paint scheme will adorn Alex Bowman's No. 48 car next month for a race in Florida.`\
+https://nytimes.com/athletic/6157255/2025/02/25/nascar-unrivaled-ally-womens-sports-alex-bowman/
+
 **Is Bird Flu the Only Reason Egg Prices Are Soaring?**\
 `The nation’s biggest egg producer has seen rising revenues and profits. Now some Democrats are calling for an investigation into pricing practices in the industry.`\
 https://nytimes.com/2025/02/25/business/egg-prices-bird-flu-producers.html
