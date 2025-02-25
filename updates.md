@@ -1,3 +1,7 @@
+**Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
+`Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month after the last commissioner stepped down at the beginning of President Trump’s term.`\
+https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html
+
 **3 Workers Killed in Highway Bridge Collapse in South Korea**\
 `Seven others were injured when part of a highway construction site broke apart on Tuesday morning, officials said.`\
 https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
