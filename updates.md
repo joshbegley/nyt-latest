@@ -1,3 +1,11 @@
+**Americans Are Expecting Higher Prices. That Could Unnerve the Fed.**\
+`More Americans are starting to brace for higher prices as President Trump’s policies begin to take effect.`\
+https://nytimes.com/2025/02/25/business/inflation-fed-trump.html
+
+**At France’s Oldest Theater, Things Change, but They Also Stay the Same**\
+`A new leader for the Comédie-Française, Clément Hervieu-Léger, is an insider who looks set to keep the venerable Paris company on a steady course.`\
+https://nytimes.com/2025/02/25/theater/clement-hervieu-leger-comedie-francaise.html
+
 **Huge Loss at German Central Bank Adds to Gloomy Outlook**\
 `The central bank’s president said it was “not possible to rule out” a third year of no economic growth.`\
 https://nytimes.com/2025/02/25/world/europe/germany-economy-central-bank-politics.html
