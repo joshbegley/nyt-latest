@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6158253/2025/02/25/nba-power-rankings-cavaliers-lak
 `Pushkin Industries, the podcast company that will release the show, is betting that documentary-style audio programs can still win an audience.`\
 https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
 
-**Amorim: INEOS cost-cutting measures affecting everybody at United**\
+**Man United cost-cutting measures affecting everybody - Amorim**\
 `United announced on Monday a new 'transformation plan' including a further 150 to 200 redundancies.`\
 https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
 
