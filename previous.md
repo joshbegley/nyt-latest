@@ -1,3 +1,7 @@
+**The Iron Curtain Casts a Long Shadow Over Germany’s Election**\
+`The former East Germany still votes virtually as a separate country — and increasingly for a party that has been linked to neo-Nazis.`\
+https://nytimes.com/2025/02/25/world/europe/germany-election-east-west-iron-curtain.html
+
 **NBA Power Rankings: Who will go on a streak after the break?**\
 `Who's soaring (Celtics, Pistons) and sinking (Clippers, Spurs) since the All-Star festivities?`\
 https://nytimes.com/athletic/6158253/2025/02/25/nba-power-rankings-cavaliers-lakers-warriors-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
 **Houston's back-to-back Big 12 titles may be Kelvin Sampson's greatest achievement**\
 `With one more win, the Cougars will become the second program to repeat as outright Big 12 champs, redeeming a coach's pivotal decisions.`\
 https://nytimes.com/athletic/6158052/2025/02/25/kelvin-sampson-houston-basketball-big-12-titles/
-
-**Man City to make late call on Haaland fitness ahead of Spurs**\
-`The Norway international has missed City's last two games with a knee problem.`\
-https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-team-news/
 
