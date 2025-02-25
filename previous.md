@@ -14,8 +14,8 @@ https://nytimes.com/2025/02/24/crosswords/daily-puzzle-2025-02-25.html
 `The Long Island native covered 16 Olympics, and had cameos in the movie “Cool Runnings” and the TV show “Law & Order: Special Victims Unit.”`\
 https://nytimes.com/2025/02/24/sports/al-trautwig-dead.html
 
-**3 Workers Killed in Collapse at Construction Site in South Korea**\
-`Five others were injured when part of a highway construction site collapsed on Tuesday morning, officials said.`\
+**3 Workers Killed in Highway Bridge Collapse in South Korea**\
+`Seven others were injured when part of a highway construction site broke apart on Tuesday morning, officials said.`\
 https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
 
 **Corrections: Feb. 25, 2025**\

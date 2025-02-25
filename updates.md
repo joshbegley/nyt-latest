@@ -1,3 +1,7 @@
+**3 Workers Killed in Highway Bridge Collapse in South Korea**\
+`Seven others were injured when part of a highway construction site broke apart on Tuesday morning, officials said.`\
+https://nytimes.com/2025/02/24/world/asia/south-korea-bridge-collapse.html
+
 **Bulls down 76ers 142-110 as Philadelphia loses eighth straight game**\
 `At 20-37, the Sixers are now incentivized to pivot sharply in the other direction.`\
 https://nytimes.com/athletic/6157901/2025/02/24/philadelphia-76ers-loss-chicago-bulls/
