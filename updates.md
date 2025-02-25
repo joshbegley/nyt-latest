@@ -1,3 +1,11 @@
+**Reinventing Life After a Rare Diagnosis**\
+`Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
+https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
+
+**Wild place Joel Eriksson Ek on IR with lower-body injury as hits keep coming**\
+`Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
+https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
+
 **How has Ruben Amorim changed Manchester United tactically – and is it working?**\
 `Our data and tactics writers discuss the impact the Portuguese head coach has had in his time at Old Trafford`\
 https://nytimes.com/athletic/6157061/2025/02/25/manchester-united-ruben-amorim-tactics-assessed/

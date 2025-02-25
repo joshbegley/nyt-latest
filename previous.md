@@ -1,3 +1,11 @@
+**Reinventing Life After a Rare Diagnosis**\
+`Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
+https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
+
+**Wild place Joel Eriksson Ek on IR with lower-body injury as hits keep coming**\
+`Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
+https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
+
 **How has Ruben Amorim changed Manchester United tactically – and is it working?**\
 `Our data and tactics writers discuss the impact the Portuguese head coach has had in his time at Old Trafford`\
 https://nytimes.com/athletic/6157061/2025/02/25/manchester-united-ruben-amorim-tactics-assessed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6158362/2025/02/25/usc-football-recruiting-chad-bow
 **Man Utd appoint Vivell as full-time director of recruitment**\
 `The former Chelsea and RB Leipzig executive will lead United’s global recruitment operation.`\
 https://nytimes.com/athletic/6158217/2025/02/25/manchester-united-christopher-vivell-contract-new/
-
-**Commanders give DT Jonathan Allen permission to seek trade**\
-`Allen, 30, has spent his entire career with Washington, which selected him with the 17th overall pick in the 2017 NFL Draft.`\
-https://nytimes.com/athletic/6158592/2025/02/25/commanders-jonathan-allen-trade-permission/
-
-**As G.O.P. Eyes Medicaid Cuts, States Could be Left With Vast Shortfalls**\
-`Republicans have proposed lowering the federal share of costs for Medicaid expansions, which could reshape the program by gutting one of the Affordable Care Act’s major provisions.`\
-https://nytimes.com/2025/02/25/us/politics/medicaid-cuts-republican-budget.html
 
