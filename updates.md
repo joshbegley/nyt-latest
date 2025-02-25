@@ -1,3 +1,15 @@
+**Arteta says Arsenal will give up on PL title 'over my dead body'**\
+`The north London side trail league leaders Liverpool by 11 points following the weekend's Premier League results.`\
+https://nytimes.com/athletic/6158169/2025/02/25/arsenal-premier-league-title-arteta/
+
+**Taiwan Detains a Chinese-Crewed Ship After Undersea Cable Severed**\
+`The Coast Guard said it was investigating how the cable was severed and said it could not rule out the possibility of sabotage.`\
+https://nytimes.com/2025/02/25/world/asia/taiwan-china-cable.html
+
+**She Fell in Love With ChatGPT. Like, Actual Love. With Sex.**\
+`The story of a woman who is dating an A.I. chatbot, and what it tells us about love and technology.`\
+https://nytimes.com/2025/02/25/podcasts/the-daily/ai-chatgpt-boyfriend-relationship.html
+
 **Facing Trump’s Hostility, Ukraine Weighs Its Options. But They Are Few.**\
 `There is a broad reckoning in Ukraine: Washington can no longer be relied upon as a supporter. But Kyiv still has agency on the battlefield and can seek increased support from Europe.`\
 https://nytimes.com/2025/02/25/world/europe/trump-ukraine-russia-war.html
