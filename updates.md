@@ -1,3 +1,11 @@
+**Paramount and Trump Seek Mediator for CBS News Lawsuit**\
+`The move is another indicator that the two sides are exploring ways to resolve the case, over the editing of a “60 Minutes” interview, out of court.`\
+https://nytimes.com/2025/02/24/business/media/paramount-trump-60-minutes-lawsuit-cbs.html
+
+**In Huntington Beach, Politics on a Plaque**\
+`MAGA references on a library plaque have divided the Southern California surf town and thrust it into the national spotlight.`\
+https://nytimes.com/2025/02/24/us/huntington-beach-maga-plaque.html
+
 **After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
 `Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
 https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
