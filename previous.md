@@ -1,3 +1,7 @@
+**From Jihadist to President: The Evolution of Syria’s New Leader**\
+`Ahmed al-Shara’s unlikely path from membership in Al Qaeda to head of state has raised questions about how he intends to govern Syria.`\
+https://nytimes.com/2025/02/25/world/middleeast/syria-president-ahmed-al-shara.html
+
 **Tesla Moves One Step Closer to Self-Driving Cars in China**\
 `The development marked a breakthrough for Tesla’s chief executive, Elon Musk, in a country where his company has faced increasingly tough competition.`\
 https://nytimes.com/2025/02/25/business/china-tesla-self-driving-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/25/opinion/ezra-klein-podcast-martin-gurri.html
 **A Conductor at the Top, and Still Learning on the Job**\
 `Antonio Pappano, who leads the London Symphony Orchestra, feels like he is always “playing catch-up” because he skipped music school.`\
 https://nytimes.com/2025/02/25/arts/music/antonio-pappano-london-symphony-orchestra.html
-
-**A Theory of Media That Explains 15 Years of Politics**\
-`Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
-https://nytimes.com/video/opinion/100000010002674/a-theory-of-media-that-explains-15-years-of-politics.html
 

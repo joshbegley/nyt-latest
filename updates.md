@@ -1,3 +1,7 @@
+**From Jihadist to President: The Evolution of Syria’s New Leader**\
+`Ahmed al-Shara’s unlikely path from membership in Al Qaeda to head of state has raised questions about how he intends to govern Syria.`\
+https://nytimes.com/2025/02/25/world/middleeast/syria-president-ahmed-al-shara.html
+
 **Tesla Moves One Step Closer to Self-Driving Cars in China**\
 `The development marked a breakthrough for Tesla’s chief executive, Elon Musk, in a country where his company has faced increasingly tough competition.`\
 https://nytimes.com/2025/02/25/business/china-tesla-self-driving-musk.html
