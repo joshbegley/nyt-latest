@@ -1,3 +1,7 @@
+**Facing Trump’s Hostility, Ukraine Weighs Its Options. But They Are Few.**\
+`There is a broad reckoning in Ukraine: Washington can no longer be relied upon as a supporter. But Kyiv still has agency on the battlefield and can seek increased support from Europe.`\
+https://nytimes.com/2025/02/25/world/europe/trump-ukraine-russia-war.html
+
 **Galatasaray accuse Mourinho of 'racist statements', intend to initiate criminal proceedings**\
 `Fenerbahce say Mourinho's comments have been taken 'completely out of context and deliberately distorted'.`\
 https://nytimes.com/athletic/6157627/2025/02/25/jose-mourinho-racist-galatasaray-fenerbahce/
