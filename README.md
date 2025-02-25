@@ -1,3 +1,11 @@
+**Ancelotti wants 'angry' players but denies issues with Guler, Endrick**\
+`Guler has started just seven of Madrid's 35 games across La Liga and the Champions League while Endrick has not started in La Liga`\
+https://nytimes.com/athletic/6158314/2025/02/25/real-madrid-ancelotti-guler-endrick/
+
+**Historic comeback against Thunder breathes life into Timberwolves' season**\
+`Down 25 in the second half — and trailing by 16 with 3:45 to go — Minnesota somehow found a way to beat the West's best team.`\
+https://nytimes.com/athletic/6158008/2025/02/25/timberwolves-anthony-edwards-comeback-thunder/
+
 **The NHL's most improved players of 2024-25, from Dylan Holloway to Logan Cooley**\
 `Every season, there are performances nobody saw coming. Here are some of the best from 2024-25.`\
 https://nytimes.com/athletic/6145570/2025/02/25/nhl-most-improved-players-2024-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
 **Brewers' Nestor Cortes embraces new home, but sting of Yankees' World Series loss remains**\
 `Cortes gave up the first game-ending grand slam in World Series history in Game 1 of last year's Fall Classic. `\
 https://nytimes.com/athletic/6156842/2025/02/25/nestor-cortes-brewers-yankees-world-series/
-
-**A look inside Jose Altuve's left-field learning curve: 'He's like a kid in a candy store'**\
-`Altuve is shadowing two Astros coaches, who worked with him for two weeks at Daikin Park to help prepare for a potential position change.`\
-https://nytimes.com/athletic/6157100/2025/02/25/astros-jose-altuve-left-field-learning-curve/
-
-**Greenberg: An owner like Justin Ishbia could bring in a lot of change to Chicago**\
-`From stadiums to rivalries with teams like the Cubs, Ishbia — and his deep pockets — could inject the White Sox with some new energy.`\
-https://nytimes.com/athletic/6156885/2025/02/25/justin-ishbia-white-sox-cubs/
 
