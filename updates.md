@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`Tension between Europe and the U.S. over Ukraine.`\
+https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html
+
+**How a Demographic ‘Doom Loop’ Helped Germany’s Far Right**\
+`Understanding the Alternative for Germany’s success in Sunday’s elections.`\
+https://nytimes.com/2025/02/25/world/how-a-demographic-doom-loop-helped-germanys-far-right.html
+
+**Quote of the Day: A Majestic Chart-Topper Who Thrilled Us Softly**\
+`Quotation of the Day for Tuesday, February 25, 2025.`\
+https://nytimes.com/2025/02/24/pageoneplus/quote-of-the-day-a-majestic-chart-topper-who-thrilled-us-softly.html
+
 **Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
 `Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month after the last commissioner stepped down at the beginning of President Trump’s term.`\
 https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html

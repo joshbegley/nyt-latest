@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`Tension between Europe and the U.S. over Ukraine.`\
+https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html
+
+**How a Demographic ‘Doom Loop’ Helped Germany’s Far Right**\
+`Understanding the Alternative for Germany’s success in Sunday’s elections.`\
+https://nytimes.com/2025/02/25/world/how-a-demographic-doom-loop-helped-germanys-far-right.html
+
+**Quote of the Day: A Majestic Chart-Topper Who Thrilled Us Softly**\
+`Quotation of the Day for Tuesday, February 25, 2025.`\
+https://nytimes.com/2025/02/24/pageoneplus/quote-of-the-day-a-majestic-chart-topper-who-thrilled-us-softly.html
+
 **Bulls down 76ers 142-110 as Philadelphia loses eighth straight game**\
 `At 20-37, the Sixers are now incentivized to pivot sharply in the other direction.`\
 https://nytimes.com/athletic/6157901/2025/02/24/philadelphia-76ers-loss-chicago-bulls/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/02/24/pageoneplus/corrections-feb-25-2025.html
 **‘Grangeville’ Review: Am I My Half Brother’s Keeper?**\
 `A story as old as Cain and Abel gets filtered through cellphone and video confrontations in Samuel D. Hunter’s bleak two-hander.`\
 https://nytimes.com/2025/02/24/theater/grangeville-review-samuel-d-hunter.html
-
-**NASA Gives ‘All Clear’ for Asteroid That Seemed to Threaten Earth**\
-`The odds that the space rock, 2024 YR4, will smash into our planet in 2032 have dropped to nearly zero, leading astronomers to conclude that we are no longer in danger.`\
-https://nytimes.com/2025/02/24/science/asteroid-2024-yr4.html
-
-**Government Watchdog Moves to Protect Probationary Federal Workers**\
-`Hampton Dellinger, the head of the Office of Special Counsel, recommended pausing the mass firings of some probationary federal employees.`\
-https://nytimes.com/2025/02/24/us/politics/special-counsel-fired-federal-workers.html
-
-**Giants notes: Justin Verlander might be raising his sights by lowering his heights**\
-`Plus Bryce Eldridge is working with J.T. Snow on his defense at first base. Eldridge will make his first start on Tuesday.`\
-https://nytimes.com/athletic/6157831/2025/02/24/sf-giants-justin-verlander-release-point/
 
