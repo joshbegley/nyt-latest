@@ -1,3 +1,7 @@
+**Bulls down 76ers 142-110 as Philadelphia loses eighth straight game**\
+`At 20-37, the Sixers are now incentivized to pivot sharply in the other direction.`\
+https://nytimes.com/athletic/6157901/2025/02/24/philadelphia-76ers-loss-chicago-bulls/
+
 **Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
 `The official, Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month, after the last commissioner stepped down at the beginning of President Trump’s term.`\
 https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html

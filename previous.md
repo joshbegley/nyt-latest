@@ -1,3 +1,7 @@
+**Bulls down 76ers 142-110 as Philadelphia loses eighth straight game**\
+`At 20-37, the Sixers are now incentivized to pivot sharply in the other direction.`\
+https://nytimes.com/athletic/6157901/2025/02/24/philadelphia-76ers-loss-chicago-bulls/
+
 **Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
 `The official, Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month, after the last commissioner stepped down at the beginning of President Trump’s term.`\
 https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/24/us/politics/special-counsel-fired-federal-workers
 **Giants notes: Justin Verlander might be raising his sights by lowering his heights**\
 `Plus Bryce Eldridge is working with J.T. Snow on his defense at first base. Eldridge will make his first start on Tuesday.`\
 https://nytimes.com/athletic/6157831/2025/02/24/sf-giants-justin-verlander-release-point/
-
-**Trump’s New Deputy F.B.I. Director Has It Out for the ‘Scumbag Commie Libs’**\
-`Dan Bongino is in a place to turn wild notions from the right-wing internet into pretexts for federal investigations.`\
-https://nytimes.com/2025/02/24/opinion/fbi-trump-dan-bongino.html
 
