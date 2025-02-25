@@ -14,7 +14,7 @@ https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
 `Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
 https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
 
-**Wild place Joel Eriksson Ek on IR with lower-body injury as hits keep coming**\
+**Wild's Joel Eriksson Ek week-to-week with lower-body injury as hits keep coming**\
 `Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
 https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
 
