@@ -1,3 +1,23 @@
+**Ravens GM calls allegations against Justin Tucker 'concerning'**\
+`Eric DeCosta said the Ravens will wait for more information after the allegations of improper sexual conduct against the kicker.`\
+https://nytimes.com/athletic/6158751/2025/02/25/ravens-justin-tucker-allegations-nfl/
+
+**FIA's profanity issue: Why F1's governing body is targeting swearing**\
+`The rules regarding misconduct, including swearing, escalated across motorsports during the offseason. `\
+https://nytimes.com/athletic/6157464/2025/02/25/fia-f1-swearing-penalties-explained/
+
+**Red Wings' Andrew Copp out for season after pectoral surgery**\
+`Copp, a key player in the Red Wings' playoff race, underwent successful surgery to repair his left pectoral tendon.`\
+https://nytimes.com/athletic/6158917/2025/02/25/red-wings-andrew-copp-injury-update/
+
+**How the Pistons became the NBA's most drastic turnaround in years**\
+`The Detroit Pistons are on a roll. What's been behind their success of late?`\
+https://nytimes.com/athletic/6158785/2025/02/25/detroit-pistons-win-streak-clippers/
+
+**What 15 Americans Think About Elon Musk’s Role in U.S. Government**\
+`Americans across the country are deeply split over Mr. Musk, with some welcoming his cuts to government and others outraged at what they saw as an abuse of power.`\
+https://nytimes.com/2025/02/25/us/elon-musk-doge-republicans.html
+
 **Utah basketball coaching candidates: Will Utes go NBA route like rival BYU?**\
 `Utah fired men’s basketball coach Craig Smith on Monday, citing “greater aspirations." Who is the coach that can achieve them?`\
 https://nytimes.com/athletic/6158873/2025/02/25/utah-basketball-coaching-candidates/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6153945/2025/02/25/spurs-ticket-prices/
 **Falcons say Kirk Cousins will be backup QB if he returns for 2025 season**\
 `Falcons general manager Terry Fontenot and coach Raheem Morris sidestepped questions about Cousins' health on Tuesday.`\
 https://nytimes.com/athletic/6158837/2025/02/25/falcons-kirk-cousins-backup-qb/
-
-**UNC basketball hiring longtime NBA agent Jim Tanner as GM: Source**\
-`Since Hubert Davis became UNC’s head coach in April 2021, he has maintained a preference for only having former Tar Heels on his staff.`\
-https://nytimes.com/athletic/6119169/2025/02/25/unc-basketball-general-manager-jim-tanner/
-
-**Johnson Grasps for Republican Votes to Pass Budget Plan**\
-`Speaker Mike Johnson pressed ahead with plans for a Tuesday night vote on the House G.O.P. budget resolution even as threatened defections piled up.`\
-https://nytimes.com/2025/02/25/us/politics/mike-johnson-budget-resolution-vote.html
-
-**‘A Thousand Blows’ Is a Knuckle Sandwich of a Series**\
-`From the creator of “Peaky Blinders” comes another brutal and dingy underworld drama, this one set among the boxers and criminals of 1880s London.`\
-https://nytimes.com/2025/02/25/arts/television/a-thousand-blows-hulu.html
-
-**Over 230,000 Sign Petition Calling for Musk’s Canadian Citizenship to Be Revoked**\
-`The petition accused Elon Musk of attacking Canadian sovereignty. The billionaire adviser to President Trump responded on X, saying “Canada is not a real country.”`\
-https://nytimes.com/2025/02/25/us/politics/elon-musk-canada-citizenship.html
-
-**Once the Center of the N.B.A. News Universe, These Phones Can Now Be Yours**\
-`Adrian Wojnarowski, the former king of the N.B.A. scoop at ESPN, is auctioning off personal items to raise money for his employer, St. Bonaventure University.`\
-https://nytimes.com/2025/02/25/sports/basketball/adrian-wojnarowski-auction-woj.html
 
