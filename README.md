@@ -1,3 +1,11 @@
+**Inside Newcastle Q&A: Howe's cup final approach, Pope's future and Al-Rumayyan's visit**\
+`Chris Waugh answers subscribers' questions on a trip to Anfield, summer transfer plans and potential striker partners for Alexander Isak `\
+https://nytimes.com/athletic/6155883/2025/02/25/newcastle-inside-isak-pope-wilson/
+
+**Spurs, a long-awaited academy generation and the hope for more nights 'made in Tottenham'**\
+`Club-trained youngsters have featured infrequently for Spurs this season - is the step up bigger than elsewhere?`\
+https://nytimes.com/athletic/6148631/2025/02/25/spurs-tottenham-academy-pathway/
+
 **A 'surreal' evening with Billy Davies: How did fans react to ex-manager's Forest tales?**\
 `Billy Davies is back in the limelight - but with Forest's recent success, how did his varied tales of near-promotion fare with fans?`\
 https://nytimes.com/athletic/6154198/2025/02/25/nottingham-forest-billy-davies-evening-with/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6157953/2025/02/25/thunder-timberwolves-overtime-an
 **Tuesday Briefing**\
 `Tension between Europe and the U.S. over Ukraine.`\
 https://nytimes.com/2025/02/25/briefing/tuesday-briefing.html
-
-**How a Demographic ‘Doom Loop’ Helped Germany’s Far Right**\
-`Understanding the Alternative for Germany’s success in Sunday’s elections.`\
-https://nytimes.com/2025/02/25/world/how-a-demographic-doom-loop-helped-germanys-far-right.html
-
-**Quote of the Day: A Majestic Chart-Topper Who Thrilled Us Softly**\
-`Quotation of the Day for Tuesday, February 25, 2025.`\
-https://nytimes.com/2025/02/24/pageoneplus/quote-of-the-day-a-majestic-chart-topper-who-thrilled-us-softly.html
 
