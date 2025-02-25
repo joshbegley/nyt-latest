@@ -1,3 +1,11 @@
+**NBA Power Rankings: Who will go on a streak after the break?**\
+`Who's soaring (Celtics, Pistons) and sinking (Clippers, Spurs) since the All-Star festivities?`\
+https://nytimes.com/athletic/6158253/2025/02/25/nba-power-rankings-cavaliers-lakers-warriors-thunder/
+
+**Man United cost-cutting measures affecting everybody - Amorim**\
+`United announced on Monday a new 'transformation plan' including a further 150 to 200 redundancies.`\
+https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
+
 **‘Heavyweight,’ an Acclaimed Narrative Podcast, Returns**\
 `Pushkin Industries, the podcast company that will release the show, is betting that documentary-style audio programs can still win an audience.`\
 https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
