@@ -1,3 +1,7 @@
+**Huge Loss at German Central Bank Adds to Gloomy Outlook**\
+`The central bank’s president said it was “not possible to rule out” a third year of no economic growth.`\
+https://nytimes.com/2025/02/25/world/europe/germany-economy-central-bank-politics.html
+
 **Luka Dončić-Kobe Bryant mural in L.A. stirs still-fresh emotions for visiting Mavs fans**\
 `A Mavericks fan was brought to tears after seeing a West Hollywood mural of Dončić and Bryant. "They took our star away," he said.`\
 https://nytimes.com/athletic/6157720/2025/02/25/luka-doncic-kobe-bryant-lakers-mavericks-mural/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6158253/2025/02/25/nba-power-rankings-cavaliers-lak
 **‘Heavyweight,’ an Acclaimed Narrative Podcast, Returns**\
 `Pushkin Industries, the podcast company that will release the show, is betting that documentary-style audio programs can still win an audience.`\
 https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
-
-**Man United cost-cutting measures affecting everybody - Amorim**\
-`United announced on Monday a new 'transformation plan' including a further 150 to 200 redundancies.`\
-https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
 
