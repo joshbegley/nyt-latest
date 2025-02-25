@@ -1,40 +1,40 @@
-**Bill Burr Is About to Hit Broadway. Broadway Better Duck.**\
-`The acerbic comic sounds like a Mamet character, and thanks to Nathan Lane, he’s making his Broadway debut as one in “Glengarry Glen Ross.”`\
-https://nytimes.com/2025/02/25/theater/bill-burr-broadway-glengarry-glen-ross.html
+**Salah's Ballon d'Or hopes depend on Liverpool titles - Slot**\
+`The Egyptian, who is out of contract in summer, has 41 direct goal involvements (25 goals, 16 assists) for Liverpool this season`\
+https://nytimes.com/athletic/6158136/2025/02/25/mohamed-salah-liverpool-ballon-dor/
 
-**A Ballerina Steps Into the Spotlight With Swan Queen Confidence**\
-`Miriam Miller, newly promoted to principal at New York City Ballet, is set to make her debut in “Swan Lake.”`\
-https://nytimes.com/2025/02/25/arts/dance/miriam-miller-swan-lake-new-york-city-ballet.html
+**Call It the Intimidation Agenda**\
+`The president and his allies are using their drive to slash the size of the federal work force to break the bonds of restraint.`\
+https://nytimes.com/2025/02/25/opinion/trump-agenda-firings-chaos.html
 
-**Government Workers Who Have Lost Their Jobs Worry About Their Housing**\
-`The abrupt firings have left federal workers and contractors throughout the country in flux, with many distressed over how they will pay the mortgage or rent.`\
-https://nytimes.com/2025/02/25/realestate/federal-workers-mortgage-rent-housing.html
+**Trump’s Common-Sense Revolution Is No Revolution at All**\
+`A lot hinges on how the president invokes the term, which has a rich political history.`\
+https://nytimes.com/2025/02/25/opinion/trump-common-sense-paine.html
 
-**I Tried Using an App to Unlock Cabinets at Drugstores**\
-`The CVS app is in use at three locations in Manhattan. It’s a mixed bag so far.`\
-https://nytimes.com/2025/02/25/nyregion/cvs-app-drugstores-locked.html
+**Taiwan Watches Trump Undercut Ukraine, Hoping It Won’t Be Next**\
+`As President Trump turns toward Russia, Taiwan grapples with its reliance on U.S. support in the face of conflict with China.`\
+https://nytimes.com/2025/02/25/world/asia/trump-ukraine-taiwan.html
 
-**The Morning Ritual That Helps Me Resist the Algorithm**\
-`Instead of defaulting to the notifications on my phone, poetry has inspired me to begin the day in a different way.`\
-https://nytimes.com/2025/02/25/magazine/morning-ritual-poetry-memorization.html
+**James Carville: The Best Thing Democrats Can Do in This Moment**\
+`There’s nothing Democrats can legitimately do to stop Trump, so we need a tactical pause in our fight to plan for the future.`\
+https://nytimes.com/2025/02/25/opinion/democrats-trump-congress.html
 
-**1,200 Acres of Powder for Around $100: Skiing a Vermont Gem**\
-`Brought back from the brink by devoted skiers and a new generation of a skiing family, Bolton Valley has cultivated a niche among Eastern ski areas as an affordable downhill and backcountry resort.`\
-https://nytimes.com/2025/02/25/travel/backcountry-downhill-skiing-vermont.html
+**‘Exterior Night’ Review: Life in Perilous Times**\
+`The Italian master Marco Bellocchio turns to TV, revisiting the mysteries of the Aldo Moro affair.`\
+https://nytimes.com/2025/02/25/arts/television/exterior-night-review.html
 
-**At This Architectural Gem, an Artist Was Present. Horses, Too.**\
-`The performance artist Marina Abramovic celebrated the announcement of a new cultural center in a private home designed by the famed Mexican architect Luis Barragán.`\
-https://nytimes.com/2025/02/25/arts/at-this-architectural-gem-an-artist-was-present-horses-too.html
+**A Theory of Media That Explains 15 Years of Politics**\
+`Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
+https://nytimes.com/2025/02/25/opinion/ezra-klein-podcast-martin-gurri.html
 
-**What You Hear if You Listen to the Costumes in ‘A Complete Unknown’**\
-`Costumes aren’t just for show. They can help develop the character, set a tone, create a feeling and underscore an emotion.`\
-https://nytimes.com/2025/02/25/opinion/complete-unknown-oscars-costumes.html
+**A Conductor at the Top, and Still Learning on the Job**\
+`Antonio Pappano, who leads the London Symphony Orchestra, feels like he is always “playing catch-up” because he skipped music school.`\
+https://nytimes.com/2025/02/25/arts/music/antonio-pappano-london-symphony-orchestra.html
 
-**A Gucci Bag That Puts Its Signature Front and Center**\
-`The brand’s latest iteration of a ’70s accessory makes the horse bit the main event.`\
-https://nytimes.com/2025/02/25/t-magazine/gucci-73-bag-horse-bit.html
+**A Theory of Media That Explains 15 Years of Politics**\
+`Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
+https://nytimes.com/video/opinion/100000010002674/a-theory-of-media-that-explains-15-years-of-politics.html
 
-**What happens when you pull a Jayden Daniels rookie card with a $200,000 bounty**\
-`Bounties have become increasingly common in the sports card world, but they add a layer of complexity to the euphoria `\
-https://nytimes.com/athletic/6157099/2025/02/25/jayden-daniels-paul-skenes-bounty-cards/
+**Justice Dept.’s No. 2 Targets Old Office Where He Rose as a Prosecutor**\
+`The forceful approach that Emil Bove III has taken toward the Southern District of New York underscores his own fraught relationship with the office that gave him the expertise to do so.`\
+https://nytimes.com/2025/02/25/us/politics/emil-bove-trump-doj.html
 
