@@ -1,3 +1,11 @@
+**Paramount and Trump Seek Mediator for CBS News Lawsuit**\
+`The move is another indicator that the two sides are exploring ways to resolve the case, over the editing of a “60 Minutes” interview, out of court.`\
+https://nytimes.com/2025/02/24/business/media/paramount-trump-60-minutes-lawsuit-cbs.html
+
+**In Huntington Beach, Politics on a Plaque**\
+`MAGA references on a library plaque have divided the Southern California surf town and thrust it into the national spotlight.`\
+https://nytimes.com/2025/02/24/us/huntington-beach-maga-plaque.html
+
 **After Public Clash Over Tolls, Hochul Tries to Persuade Trump Privately**\
 `Gov. Kathy Hochul of New York said that she and President Trump discussed congestion pricing, which Mr. Trump has moved to kill, in an unscheduled meeting on Friday.`\
 https://nytimes.com/2025/02/24/nyregion/hochul-trump-nyc-congestion-pricing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/24/nyregion/new-york-doordash-tip-settlement.html
 **Saying ‘No’ to Musk**\
 `Some cabinet officials are showing a glimmer of willingness to check the billionaire’s power.`\
 https://nytimes.com/2025/02/24/us/politics/elon-musk-trump-washington.html
-
-**Crypto Firm Pleads Guilty to Operating Illegally in U.S.**\
-`Federal prosecutors said OKX, based in Seychelles, violated anti-money laundering laws for years. The company agreed to pay more than $500 million in fines and penalties.`\
-https://nytimes.com/2025/02/24/business/okx-crypto-exchange-guilty-plea.html
-
-**Cowboys EVP Stephen Jones: Offseason plan is to be 'selectively aggressive'**\
-`The Cowboys are not usually a big player in free agency. Could that change after their divisional rival won the Super Bowl?`\
-https://nytimes.com/athletic/6157371/2025/02/24/cowboys-offseason-plan-nfl-combine-stephen-jones/
 
