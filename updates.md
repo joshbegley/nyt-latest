@@ -1,3 +1,7 @@
+**TAFC: Why Man Utd are cutting up to 200 jobs, Galatasaray accuse Mourinho of ‘racist statements’**\
+`Today in TAFC: Man Utd to cut more jobs and downgrade staff food, Flick wants more protection for Yamal, the French Cup that aids underdogs.`\
+https://nytimes.com/athletic/6158162/2025/02/25/manchester-united-job-cuts-mourinho-racism/
+
 **As Francis Lingers in Critical Condition, an Anxious Wait Intensifies**\
 `Eleven days after the pope was hospitalized, speculation is mounting and prayers for his recovery verge on a vigil.`\
 https://nytimes.com/2025/02/25/world/europe/pope-francis-condition-prayers.html
