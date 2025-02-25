@@ -1,3 +1,7 @@
+**Why 12 Premier League teams are fighting for a place in next season's Champions League**\
+`There should be an extra slot available to English sides in 2025-26 - but who needs it most?`\
+https://nytimes.com/athletic/6156399/2025/02/25/premier-league-champions-league-qualification-fifth/
+
 **Matthew Tkachuk recaps 4 Nations Face-Off with Jimmy Fallon**\
 `Sidelined with an injury suffered at the 4 Nations tournament, Tkachuk took a trip to New York to be on Fallon’s show`\
 https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-nations-face-off/
