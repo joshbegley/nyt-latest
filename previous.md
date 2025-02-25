@@ -1,3 +1,7 @@
+**Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
+`The official, Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month, after the last commissioner stepped down at the beginning of President Trump’s term.`\
+https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html
+
 **Totally Beat**\
 `Greg Snitkin’s puzzle takes us back in time.`\
 https://nytimes.com/2025/02/24/crosswords/daily-puzzle-2025-02-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157831/2025/02/24/sf-giants-justin-verlander-relea
 **Trump’s New Deputy F.B.I. Director Has It Out for the ‘Scumbag Commie Libs’**\
 `Dan Bongino is in a place to turn wild notions from the right-wing internet into pretexts for federal investigations.`\
 https://nytimes.com/2025/02/24/opinion/fbi-trump-dan-bongino.html
-
-**Linda Henry pulls out from ownership stake in Boston's NWSL expansion team**\
-`The divestment process remains pending, with Henry informing the team her plans to exit their group two months ago.`\
-https://nytimes.com/athletic/6157790/2025/02/24/bos-nation-nwsl-expansion-ownership/
 

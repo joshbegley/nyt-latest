@@ -1,3 +1,7 @@
+**Acting I.R.S. Commissioner Is Expected to Announce His Retirement**\
+`The official, Doug O’Donnell, a 40-year veteran of the I.R.S., was elevated last month, after the last commissioner stepped down at the beginning of President Trump’s term.`\
+https://nytimes.com/2025/02/24/us/politics/acting-irs-commissioner-retire.html
+
 **Totally Beat**\
 `Greg Snitkin’s puzzle takes us back in time.`\
 https://nytimes.com/2025/02/24/crosswords/daily-puzzle-2025-02-25.html
