@@ -1,3 +1,7 @@
+**Linda Henry pulls out from ownership stake in Boston's NWSL expansion team**\
+`The divestment process remains pending, with Henry informing the team her plans to exit their group two months ago.`\
+https://nytimes.com/athletic/6157790/2025/02/24/bos-nation-nwsl-expansion-ownership/
+
 **Paramount and Trump Seek Mediator for CBS News Lawsuit**\
 `The move is another indicator that the two sides are exploring ways to resolve the case, over the editing of a “60 Minutes” interview, out of court.`\
 https://nytimes.com/2025/02/24/business/media/paramount-trump-60-minutes-lawsuit-cbs.html
