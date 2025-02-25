@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Russia-Ukraine War, Quantum Computing, S.N.L.**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/02/25/learning/25StudentNewsQuizLN.html
+
 **Rockets' reincorporation of Jabari Smith Jr. key to stretch run: The IkoSystem**\
 `"The threat of his shot is always there," said Rockets head coach Ime Udoka of Smith. `\
 https://nytimes.com/athletic/6155111/2025/02/25/rockets-jabari-smith-jr-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157606/2025/02/25/brock-faber-jaccob-slavin-team-u
 **What's the future of college football spring games? Coaches and staffers weigh in**\
 `Do players really get poached from spring games? What other factors are spurring changes in spring practice or spring games?`\
 https://nytimes.com/athletic/6157363/2025/02/25/college-football-spring-games-future-value/
-
-**Explaining ‘play-in weekend’: What reimagined SEC, Big Ten championships would look like**\
-`Here are a few things to know about possible plans from the SEC and Big Ten to re-imagine their championship weekend.`\
-https://nytimes.com/athletic/6157071/2025/02/25/sec-big-ten-conference-championship-weekend/
 
