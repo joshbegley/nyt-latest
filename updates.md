@@ -1,3 +1,7 @@
+**Howe positive on Newcastle future after Al-Rumayyan talks**\
+`The Newcastle United chairman made a rare appearance on Tyneside on Sunday to watch the team’s 4-3 victory over Nottingham Forest.`\
+https://nytimes.com/athletic/6158147/2025/02/25/eddie-howe-yasir-al-rumayyan/
+
 **From Jihadist to President: The Evolution of Syria’s New Leader**\
 `Ahmed al-Shara’s unlikely path from membership in Al Qaeda to head of state has raised questions about how he intends to govern Syria.`\
 https://nytimes.com/2025/02/25/world/middleeast/syria-president-ahmed-al-shara.html

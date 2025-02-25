@@ -1,3 +1,7 @@
+**Howe positive on Newcastle future after Al-Rumayyan talks**\
+`The Newcastle United chairman made a rare appearance on Tyneside on Sunday to watch the team’s 4-3 victory over Nottingham Forest.`\
+https://nytimes.com/athletic/6158147/2025/02/25/eddie-howe-yasir-al-rumayyan/
+
 **From Jihadist to President: The Evolution of Syria’s New Leader**\
 `Ahmed al-Shara’s unlikely path from membership in Al Qaeda to head of state has raised questions about how he intends to govern Syria.`\
 https://nytimes.com/2025/02/25/world/middleeast/syria-president-ahmed-al-shara.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/25/arts/television/exterior-night-review.html
 **A Theory of Media That Explains 15 Years of Politics**\
 `Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
 https://nytimes.com/2025/02/25/opinion/ezra-klein-podcast-martin-gurri.html
-
-**A Conductor at the Top, and Still Learning on the Job**\
-`Antonio Pappano, who leads the London Symphony Orchestra, feels like he is always “playing catch-up” because he skipped music school.`\
-https://nytimes.com/2025/02/25/arts/music/antonio-pappano-london-symphony-orchestra.html
 
