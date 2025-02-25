@@ -1,3 +1,7 @@
+**Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
+`Manchester United have announced up to 200 further redundancies. This is how the news was broken, the reaction and the story behind it`\
+https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
+
 **A Second ‘Central Park Five’ Member Will Run for Office in New York**\
 `Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
 https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
