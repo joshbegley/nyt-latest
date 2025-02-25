@@ -1,7 +1,3 @@
-**Andrey Rublev returns to Dubai with a new default setting**\
-`The Russian returns to the scene of one of his worst moments on the tennis court — with a new perspective on his own mind`\
-https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-health-atp/
-
 **Six reasons why the Blue Jackets returning to the playoffs is not far-fetched**\
 `It's safe to check the NHL standings. The out-of-town scoreboard is of interest. The Blue Jackets are now in the throes of a playoff race.`\
 https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/02/25/world/europe/uk-defense-spending-starmer.html
 **College basketball buy, sell or hold? Look out for Clemson. Kansas and Purdue are spiraling**\
 `With less than two weeks left in the regular season, we drill down on what to make of a few key teams ahead of the postseason.`\
 https://nytimes.com/athletic/6157653/2025/02/25/college-basketball-duke-kansas-iowa-state/
+
+**NCAA Tournament 2025 Bracket Watch: Auburn and Duke avoidance is a smart Final Four play**\
+`Auburn and Duke are locked in as No. 1 seeds. There are four contenders — right now — for the other two top seeds. `\
+https://nytimes.com/athletic/6156506/2025/02/25/ncaa-tournament-bracket-projections-duke-auburn/
 
