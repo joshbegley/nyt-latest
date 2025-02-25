@@ -1,3 +1,23 @@
+**Ravens GM calls allegations against Justin Tucker 'concerning'**\
+`Eric DeCosta said the Ravens will wait for more information after the allegations of improper sexual conduct against the kicker.`\
+https://nytimes.com/athletic/6158751/2025/02/25/ravens-justin-tucker-allegations-nfl/
+
+**FIA's profanity issue: Why F1's governing body is targeting swearing**\
+`The rules regarding misconduct, including swearing, escalated across motorsports during the offseason. `\
+https://nytimes.com/athletic/6157464/2025/02/25/fia-f1-swearing-penalties-explained/
+
+**Red Wings' Andrew Copp out for season after pectoral surgery**\
+`Copp, a key player in the Red Wings' playoff race, underwent successful surgery to repair his left pectoral tendon.`\
+https://nytimes.com/athletic/6158917/2025/02/25/red-wings-andrew-copp-injury-update/
+
+**How the Pistons became the NBA's most drastic turnaround in years**\
+`The Detroit Pistons are on a roll. What's been behind their success of late?`\
+https://nytimes.com/athletic/6158785/2025/02/25/detroit-pistons-win-streak-clippers/
+
+**What 15 Americans Think About Elon Musk’s Role in U.S. Government**\
+`Americans across the country are deeply split over Mr. Musk, with some welcoming his cuts to government and others outraged at what they saw as an abuse of power.`\
+https://nytimes.com/2025/02/25/us/elon-musk-doge-republicans.html
+
 **Utah basketball coaching candidates: Will Utes go NBA route like rival BYU?**\
 `Utah fired men’s basketball coach Craig Smith on Monday, citing “greater aspirations." Who is the coach that can achieve them?`\
 https://nytimes.com/athletic/6158873/2025/02/25/utah-basketball-coaching-candidates/
