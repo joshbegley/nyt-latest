@@ -1,3 +1,15 @@
+**Is Bird Flu the Only Reason Egg Prices Are Soaring?**\
+`The nation’s biggest egg producer has seen rising revenues and profits. Now some Democrats are calling for an investigation into pricing practices in the industry.`\
+https://nytimes.com/2025/02/25/business/egg-prices-bird-flu-producers.html
+
+**'Very soon, I won’t be able to come here any more': Are Spurs set for another ticket price hike?**\
+`As far as matters on the pitch are concerned, the gloom around Spurs is starting to lift, but there are still issues worrying the fanbase`\
+https://nytimes.com/athletic/6153945/2025/02/25/spurs-ticket-prices/
+
+**Falcons say Kirk Cousins will be backup QB if he returns for 2025 season**\
+`Falcons general manager Terry Fontenot and coach Raheem Morris sidestepped questions about Cousins' health on Tuesday.`\
+https://nytimes.com/athletic/6158837/2025/02/25/falcons-kirk-cousins-backup-qb/
+
 **Johnson Grasps for Republican Votes to Pass Budget Plan**\
 `Speaker Mike Johnson pressed ahead with plans for a Tuesday night vote on the House G.O.P. budget resolution even as threatened defections piled up.`\
 https://nytimes.com/2025/02/25/us/politics/mike-johnson-budget-resolution-vote.html

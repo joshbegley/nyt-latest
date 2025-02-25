@@ -1,3 +1,15 @@
+**Is Bird Flu the Only Reason Egg Prices Are Soaring?**\
+`The nation’s biggest egg producer has seen rising revenues and profits. Now some Democrats are calling for an investigation into pricing practices in the industry.`\
+https://nytimes.com/2025/02/25/business/egg-prices-bird-flu-producers.html
+
+**'Very soon, I won’t be able to come here any more': Are Spurs set for another ticket price hike?**\
+`As far as matters on the pitch are concerned, the gloom around Spurs is starting to lift, but there are still issues worrying the fanbase`\
+https://nytimes.com/athletic/6153945/2025/02/25/spurs-ticket-prices/
+
+**Falcons say Kirk Cousins will be backup QB if he returns for 2025 season**\
+`Falcons general manager Terry Fontenot and coach Raheem Morris sidestepped questions about Cousins' health on Tuesday.`\
+https://nytimes.com/athletic/6158837/2025/02/25/falcons-kirk-cousins-backup-qb/
+
 **UNC basketball hiring longtime NBA agent Jim Tanner as GM: Source**\
 `Since Hubert Davis became UNC’s head coach in April 2021, he has maintained a preference for only having former Tar Heels on his staff.`\
 https://nytimes.com/athletic/6119169/2025/02/25/unc-basketball-general-manager-jim-tanner/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starm
 **Hegseth Returns to Guantánamo, This Time as Defense Secretary**\
 `Mr. Hegseth served at the U.S. Navy base as a National Guard lieutenant. The base is now being used to hold some migrants who face deportation.`\
 https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
-
-**Reinventing Life After a Rare Diagnosis**\
-`Matt Lafleur, who was told he had Friedreich ataxia as a child, is now on a mission of hope and advocacy for others.`\
-https://nytimes.com/paidpost/biogen/reinventing-life-after-a-rare-diagnosis.html
-
-**Wild's Joel Eriksson Ek week-to-week with lower-body injury as hits keep coming**\
-`Eriksson Ek, 28, has scored nine goals and 24 points in 42 games. He has missed 15 games this season due to four previous injuries.`\
-https://nytimes.com/athletic/6158699/2025/02/25/joel-eriksson-ek-wild-injury/
-
-**How has Ruben Amorim changed Manchester United tactically – and is it working?**\
-`Our data and tactics writers discuss the impact the Portuguese head coach has had in his time at Old Trafford`\
-https://nytimes.com/athletic/6157061/2025/02/25/manchester-united-ruben-amorim-tactics-assessed/
 
