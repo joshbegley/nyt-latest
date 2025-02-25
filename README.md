@@ -1,3 +1,7 @@
+**The Bounce: Will Luka Dončić add to NBA's history of revenge games as Mavericks visit Lakers?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6158391/2025/02/25/luka-doncic-lebron-james-lakers-mavericks-nba-the-bounce/
+
 **The Iron Curtain Casts a Long Shadow Over Germany’s Election**\
 `The former East Germany still votes virtually as a separate country — and increasingly for a party that has been linked to neo-Nazis.`\
 https://nytimes.com/2025/02/25/world/europe/germany-election-east-west-iron-curtain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-heal
 **Six reasons why the Blue Jackets returning to the playoffs is not far-fetched**\
 `It's safe to check the NHL standings. The out-of-town scoreboard is of interest. The Blue Jackets are now in the throes of a playoff race.`\
 https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
-
-**Houston's back-to-back Big 12 titles may be Kelvin Sampson's greatest achievement**\
-`With one more win, the Cougars will become the second program to repeat as outright Big 12 champs, redeeming a coach's pivotal decisions.`\
-https://nytimes.com/athletic/6158052/2025/02/25/kelvin-sampson-houston-basketball-big-12-titles/
 
