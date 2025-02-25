@@ -1,3 +1,15 @@
+**A Second ‘Central Park Five’ Member Will Run for Office in New York**\
+`Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
+https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
+
+**Is Andrew Cuomo on the Verge of Announcing a Run for Mayor?**\
+`The former governor, who resigned in disgrace, has not officially entered the race for New York City mayor. But he has spent months laying the groundwork.`\
+https://nytimes.com/2025/02/25/nyregion/andrew-cuomo-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/02/25/crosswords/spelling-bee-forum.html
+
 **Leeds United: Sometimes, it just feels like it's going to be your year**\
 `With a second successive late win against promotion rivals, Leeds are making glory feel like something of an inevitability this season`\
 https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tanaka-firpo/
