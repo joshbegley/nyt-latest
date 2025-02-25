@@ -1,3 +1,7 @@
+**Bridge Collapse Kills Several in South Korea**\
+`Emergency crews searched for survivors and worked to clear rubble from the site, which was part of a highway construction project in Cheonan, South Korea.`\
+https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
+
 **Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
 `Manchester United have announced up to 200 further redundancies - this is how the news was broken, the reaction and the story behind it`\
 https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/

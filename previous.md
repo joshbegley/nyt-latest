@@ -1,3 +1,7 @@
+**Bridge Collapse Kills Several in South Korea**\
+`Emergency crews searched for survivors and worked to clear rubble from the site, which was part of a highway construction project in Cheonan, South Korea.`\
+https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
+
 **Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
 `Manchester United have announced up to 200 further redundancies - this is how the news was broken, the reaction and the story behind it`\
 https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6148631/2025/02/25/spurs-tottenham-academy-pathway/
 **A 'surreal' evening with Billy Davies: How did fans react to ex-manager's Forest tales?**\
 `Billy Davies is back in the limelight - but with Forest's recent success, how did his varied tales of near-promotion fare with fans?`\
 https://nytimes.com/athletic/6154198/2025/02/25/nottingham-forest-billy-davies-evening-with/
-
-**Chelsea's co-sporting directors were hired for the long term and that is how they will be judged**\
-`Laurence Stewart and Paul Winstanley are the subjects of fans' anger but they are key components of Chelsea's plans for the future`\
-https://nytimes.com/athletic/6157584/2025/02/25/winstanley-stewart-chelsea-sporting-directors/
 
