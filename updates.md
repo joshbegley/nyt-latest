@@ -1,3 +1,15 @@
+**A 'surreal' evening with Billy Davies: How did fans react to ex-manager's Forest tales?**\
+`Billy Davies is back in the limelight - but with Forest's recent success, how did his varied tales of near-promotion fare with fans?`\
+https://nytimes.com/athletic/6154198/2025/02/25/nottingham-forest-billy-davies-evening-with/
+
+**Analysing Doku's 11 successful take-ons against Alexander-Arnold**\
+`The winger caused the right-back all sorts of problems - but Alexander-Arnold ended up making more of a decisive attacking contribution`\
+https://nytimes.com/athletic/6156492/2025/02/25/alexander-arnold-doku-take-ons/
+
+**Chelsea's co-sporting directors were hired for the long term and that is how they will be judged**\
+`Laurence Stewart and Paul Winstanley are the subjects of fans' anger but they are key components of Chelsea's plans for the future`\
+https://nytimes.com/athletic/6157584/2025/02/25/winstanley-stewart-chelsea-sporting-directors/
+
 **Trump and Macron Showcase Friendship, and Some Differences**\
 `President Trump and President Emmanuel Macron of France traded compliments during a meeting at the White House. But they struck different tones on the war in Ukraine.`\
 https://nytimes.com/video/us/politics/100000010010420/trump-macron-ukraine.html
