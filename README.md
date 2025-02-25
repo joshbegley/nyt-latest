@@ -1,3 +1,7 @@
+**Six reasons why the Blue Jackets returning to the playoffs is not far-fetched**\
+`It's safe to check the NHL standings. The out-of-town scoreboard is of interest. The Blue Jackets are now in the throes of a playoff race.`\
+https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
+
 **Houston's back-to-back Big 12 titles may be Kelvin Sampson's greatest achievement**\
 `With one more win, the Cougars will become the second program to repeat as outright Big 12 champs, redeeming a coach's pivotal decisions.`\
 https://nytimes.com/athletic/6158052/2025/02/25/kelvin-sampson-houston-basketball-big-12-titles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157653/2025/02/25/college-basketball-duke-kansas-i
 **NCAA Tournament 2025 Bracket Watch: Auburn and Duke avoidance is a smart Final Four play**\
 `Auburn and Duke are locked in as No. 1 seeds. There are four contenders — right now — for the other two top seeds. `\
 https://nytimes.com/athletic/6156506/2025/02/25/ncaa-tournament-bracket-projections-duke-auburn/
-
-**Blackhawks assistant coach's cancer surgery, Nick Lardis' scoring: 10 thoughts**\
-`Kevin Dean wants you to get screened for prostate cancer. Plus, why isn't Lardis getting more buzz with his eye-popping scoring?`\
-https://nytimes.com/athletic/6155664/2025/02/25/blackhawks-kevin-dean-cancer/
 
