@@ -1,3 +1,7 @@
+**Cruzeiro contact security forces over 'attacks, threats' towards players**\
+`Headless mannequins wearing the shirts of Marlon, William and Matheus Pereira were hung from a bridge.`\
+https://nytimes.com/athletic/6158153/2025/02/25/cruzeiro-mannequins-bridge-brazilian-football/
+
 **The Pulse: The combine's most interesting prospects**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6156325/2025/02/25/nfl-combine-prospects-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157134/2025/02/25/magic-caleb-houstan-dunking-nba/
 **Who is Thomas Perry? Smartest, toughest NFL Draft prospect you've likely never seen play**\
 `Perry, a DIII All-American, put together an impressive performance at the Shrine Bowl and could hear his name called at April's draft.`\
 https://nytimes.com/athletic/6141640/2025/02/25/nfl-draft-2025-sleeper-prospect-thomas-perry/
-
-**A Showdown on Ukraine, and a Judge Says DOGE Might Be Unconstitutional**\
-`Plus, Roberta Flack remembered.`\
-https://nytimes.com/2025/02/25/podcasts/the-headlines/ukraine-doge-trump-macron.html
 

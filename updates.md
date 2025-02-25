@@ -1,3 +1,7 @@
+**Cruzeiro contact security forces over 'attacks, threats' towards players**\
+`Headless mannequins wearing the shirts of Marlon, William and Matheus Pereira were hung from a bridge.`\
+https://nytimes.com/athletic/6158153/2025/02/25/cruzeiro-mannequins-bridge-brazilian-football/
+
 **The Pulse: The combine's most interesting prospects**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6156325/2025/02/25/nfl-combine-prospects-the-pulse/
