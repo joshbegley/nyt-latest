@@ -1,3 +1,7 @@
+**Once the Center of the N.B.A. News Universe, These Phones Can Now Be Yours**\
+`Adrian Wojnarowski, the former king of the N.B.A. scoop at ESPN, is auctioning off personal items to raise money for his employer, St. Bonaventure University.`\
+https://nytimes.com/2025/02/25/sports/basketball/adrian-wojnarowski-auction-woj.html
+
 **Keir Starmer Announces Defense Spending Increase**\
 `Prime Minister Keir Starmer of Britain said the move would amount to an increase in expenditure of 13.4 billion pounds, or $17 billion, a year on defense between now and 2027.`\
 https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starmer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/25/realestate/waldorf-astoria-new-york-homes.html
 **What I'm hearing about a potential Penguins Erik Karlsson trade**\
 `The Penguins are willing to talk about a Karlsson trade if there are any takers.`\
 https://nytimes.com/athletic/6158547/2025/02/25/penguins-erik-karlsson-trade-rumors/
-
-**Supreme Court Grants New Trial to Death Row Inmate in Oklahoma**\
-`Both sides had told the justices that long-suppressed evidence had undermined the case the case against the inmate, Richard Glossip.`\
-https://nytimes.com/2025/02/25/us/supreme-court-death-row-oklahoma.html
 
