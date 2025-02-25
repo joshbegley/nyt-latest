@@ -1,3 +1,11 @@
+**Americans Are Expecting Higher Prices. That Could Unnerve the Fed.**\
+`More Americans are starting to brace for higher prices as President Trump’s policies begin to take effect.`\
+https://nytimes.com/2025/02/25/business/inflation-fed-trump.html
+
+**At France’s Oldest Theater, Things Change, but They Also Stay the Same**\
+`A new leader for the Comédie-Française, Clément Hervieu-Léger, is an insider who looks set to keep the venerable Paris company on a steady course.`\
+https://nytimes.com/2025/02/25/theater/clement-hervieu-leger-comedie-francaise.html
+
 **Huge Loss at German Central Bank Adds to Gloomy Outlook**\
 `The central bank’s president said it was “not possible to rule out” a third year of no economic growth.`\
 https://nytimes.com/2025/02/25/world/europe/germany-economy-central-bank-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6158391/2025/02/25/luka-doncic-lebron-james-lakers-
 **The Iron Curtain Casts a Long Shadow Over Germany’s Election**\
 `The former East Germany still votes virtually as a separate country — and increasingly for a party that has been linked to neo-Nazis.`\
 https://nytimes.com/2025/02/25/world/europe/germany-election-east-west-iron-curtain.html
-
-**NBA Power Rankings: Who will go on a streak after the break?**\
-`Who's soaring (Celtics, Pistons) and sinking (Clippers, Spurs) since the All-Star festivities?`\
-https://nytimes.com/athletic/6158253/2025/02/25/nba-power-rankings-cavaliers-lakers-warriors-thunder/
-
-**‘Heavyweight,’ an Acclaimed Narrative Podcast, Returns**\
-`Pushkin Industries, the podcast company that will release the show, is betting that documentary-style audio programs can still win an audience.`\
-https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
 
