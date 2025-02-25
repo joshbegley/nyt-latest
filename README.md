@@ -1,3 +1,7 @@
+**Why F1's preseason game of 'smoke and mirrors' will be more important than ever this year**\
+`When testing begins on Wednesday in Bahrain, lap times will tell only half-truths - real performance will remain deliberately obscured`\
+https://nytimes.com/athletic/6157070/2025/02/25/f1-preseason-testing-2025/
+
 **TAFC: Why Man Utd are cutting up to 200 jobs, Galatasaray accuse Mourinho of ‘racist statements’**\
 `Today in TAFC: Man Utd to cut more jobs and downgrade staff food, Flick wants more protection for Yamal, the French Cup that aids underdogs.`\
 https://nytimes.com/athletic/6158162/2025/02/25/manchester-united-job-cuts-mourinho-racism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157079/2025/02/25/jordan-poole-wizards-brian-keefe
 **Carragher's AFCON comments reflect a wider issue of disrespect towards the tournament**\
 `The Sky Sports pundit dismissed the Africa Cup of Nations' status as a 'major tournament' but was quickly challenged by fellow panellists`\
 https://nytimes.com/athletic/6156700/2025/02/25/jamie-carragher-afrcon-disrespect/
-
-**Pronman: Top 2025 college, CHL and European free agents for NHL teams**\
-`Ranking this year's players to watch coming out of the CHL, NCAA and major European leagues.`\
-https://nytimes.com/athletic/6128943/2025/02/25/nhl-free-agents-2025-ncaa-chl-europe/
 
