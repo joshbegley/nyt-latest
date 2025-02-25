@@ -1,41 +1,40 @@
-**Can Son's Spurs deliver Guardiola a third straight loss?**\
-`Sam Tighe takes a look at the best bets around Tottenham Hotspur and Manchester City’s midweek clash.
-`\
-https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-city-premier-league-betting-tips/
+**Bill Burr Is About to Hit Broadway. Broadway Better Duck.**\
+`The acerbic comic sounds like a Mamet character, and thanks to Nathan Lane, he’s making his Broadway debut as one in “Glengarry Glen Ross.”`\
+https://nytimes.com/2025/02/25/theater/bill-burr-broadway-glengarry-glen-ross.html
 
-**Forest vs Arsenal: Will Gunners stay in title fight or are the odds in Forest’s favour?**\
-`Julia Ranney takes a look at the best bets around Arsenal and Nottingham Forest’s midweek clash.`\
-https://nytimes.com/athletic/6156585/2025/02/25/arsenal-nottingham-forest-premier-league-betting-tips/
+**A Ballerina Steps Into the Spotlight With Swan Queen Confidence**\
+`Miriam Miller, newly promoted to principal at New York City Ballet, is set to make her debut in “Swan Lake.”`\
+https://nytimes.com/2025/02/25/arts/dance/miriam-miller-swan-lake-new-york-city-ballet.html
 
-**A Second ‘Central Park Five’ Member Will Run for Office in New York**\
-`Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
-https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
+**Government Workers Who Have Lost Their Jobs Worry About Their Housing**\
+`The abrupt firings have left federal workers and contractors throughout the country in flux, with many distressed over how they will pay the mortgage or rent.`\
+https://nytimes.com/2025/02/25/realestate/federal-workers-mortgage-rent-housing.html
 
-**Is Andrew Cuomo on the Verge of Announcing a Run for Mayor?**\
-`The former governor, who resigned in disgrace, has not officially entered the race for New York City mayor. But he has spent months laying the groundwork.`\
-https://nytimes.com/2025/02/25/nyregion/andrew-cuomo-mayor.html
+**I Tried Using an App to Unlock Cabinets at Drugstores**\
+`The CVS app is in use at three locations in Manhattan. It’s a mixed bag so far.`\
+https://nytimes.com/2025/02/25/nyregion/cvs-app-drugstores-locked.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/02/25/crosswords/spelling-bee-forum.html
+**The Morning Ritual That Helps Me Resist the Algorithm**\
+`Instead of defaulting to the notifications on my phone, poetry has inspired me to begin the day in a different way.`\
+https://nytimes.com/2025/02/25/magazine/morning-ritual-poetry-memorization.html
 
-**Leeds United: Sometimes, it just feels like it's going to be your year**\
-`With a second successive late win against promotion rivals, Leeds are making glory feel like something of an inevitability this season`\
-https://nytimes.com/athletic/6158027/2025/02/25/leeds-united-sheffield-piroe-tanaka-firpo/
+**1,200 Acres of Powder for Around $100: Skiing a Vermont Gem**\
+`Brought back from the brink by devoted skiers and a new generation of a skiing family, Bolton Valley has cultivated a niche among Eastern ski areas as an affordable downhill and backcountry resort.`\
+https://nytimes.com/2025/02/25/travel/backcountry-downhill-skiing-vermont.html
 
-**Bridge Collapse Kills Several in South Korea**\
-`Emergency crews searched for survivors and worked to clear rubble from the site, which was part of a highway construction project in Cheonan, South Korea.`\
-https://nytimes.com/video/world/asia/100000010010529/south-korea-bridge-collapse.html
+**At This Architectural Gem, an Artist Was Present. Horses, Too.**\
+`The performance artist Marina Abramovic celebrated the announcement of a new cultural center in a private home designed by the famed Mexican architect Luis Barragán.`\
+https://nytimes.com/2025/02/25/arts/at-this-architectural-gem-an-artist-was-present-horses-too.html
 
-**Food cuts and sober mood: How Manchester United's latest redundancies meeting unfolded**\
-`Manchester United have announced up to 200 further redundancies. This is how the news was broken, the reaction and the story behind it`\
-https://nytimes.com/athletic/6157358/2025/02/25/manchester-united-job-cuts-details/
+**What You Hear if You Listen to the Costumes in ‘A Complete Unknown’**\
+`Costumes aren’t just for show. They can help develop the character, set a tone, create a feeling and underscore an emotion.`\
+https://nytimes.com/2025/02/25/opinion/complete-unknown-oscars-costumes.html
 
-**Word of the Day: herculean**\
-`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
+**A Gucci Bag That Puts Its Signature Front and Center**\
+`The brand’s latest iteration of a ’70s accessory makes the horse bit the main event.`\
+https://nytimes.com/2025/02/25/t-magazine/gucci-73-bag-horse-bit.html
 
-**Late Night Laughs at DOGE’s Work Force Demand**\
-`“It’s like the government is being run by BuzzFeed,” Jimmy Kimmel said on Monday about Elon Musk’s work-tracking request to federal employees.`\
-https://nytimes.com/2025/02/25/arts/television/late-night-elon-musk-emails.html
+**What happens when you pull a Jayden Daniels rookie card with a $200,000 bounty**\
+`Bounties have become increasingly common in the sports card world, but they add a layer of complexity to the euphoria `\
+https://nytimes.com/athletic/6157099/2025/02/25/jayden-daniels-paul-skenes-bounty-cards/
 
