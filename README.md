@@ -1,3 +1,7 @@
+**Keir Starmer Announces Defense Spending Increase**\
+`Prime Minister Keir Starmer of Britain said the move would amount to an increase in expenditure of 13.4 billion pounds, or $17 billion, a year on defense between now and 2027.`\
+https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starmer.html
+
 **Hegseth Returns to Guantánamo, This Time as Defense Secretary**\
 `Mr. Hegseth served at the U.S. Navy base as a National Guard lieutenant. The base is now being used to hold some migrants who face deportation.`\
 https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6158547/2025/02/25/penguins-erik-karlsson-trade-rum
 **Supreme Court Grants New Trial to Death Row Inmate in Oklahoma**\
 `Both sides had told the justices that long-suppressed evidence had undermined the case the case against the inmate, Richard Glossip.`\
 https://nytimes.com/2025/02/25/us/supreme-court-death-row-oklahoma.html
-
-**USC recruiting on an uptick — why this surge feels more sustainable**\
-`The Trojans hold the No. 1 spot in the 2026 class rankings after landing commitments from two top-150 prospects. `\
-https://nytimes.com/athletic/6158362/2025/02/25/usc-football-recruiting-chad-bowden/
 
