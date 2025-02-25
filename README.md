@@ -1,3 +1,12 @@
+**Can Son's Spurs deliver Guardiola a third straight loss?**\
+`Sam Tighe takes a look at the best bets around Tottenham Hotspur and Manchester City’s midweek clash.
+`\
+https://nytimes.com/athletic/6156610/2025/02/25/tottenham-hotspur-manchester-city-premier-league-betting-tips/
+
+**Forest vs Arsenal: Will Gunners stay in title fight or are the odds in Forest’s favour?**\
+`Julia Ranney takes a look at the best bets around Arsenal and Nottingham Forest’s midweek clash.`\
+https://nytimes.com/athletic/6156585/2025/02/25/arsenal-nottingham-forest-premier-league-betting-tips/
+
 **A Second ‘Central Park Five’ Member Will Run for Office in New York**\
 `Raymond Santana was wrongly imprisoned. Now, he wants to join Yusef Salaam, also wrongfully accused in the rape of a Central Park jogger, on the City Council.`\
 https://nytimes.com/2025/02/25/nyregion/raymond-santana-central-park-jogger.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/02/25/learning/word-of-the-day-herculean.html
 **Late Night Laughs at DOGE’s Work Force Demand**\
 `“It’s like the government is being run by BuzzFeed,” Jimmy Kimmel said on Monday about Elon Musk’s work-tracking request to federal employees.`\
 https://nytimes.com/2025/02/25/arts/television/late-night-elon-musk-emails.html
-
-**Matthew Tkachuk recaps 4 Nations Face-Off with Jimmy Fallon**\
-`Sidelined with an injury suffered at the 4 Nations tournament, Tkachuk took a trip to New York to be on Fallon’s show`\
-https://nytimes.com/athletic/6158001/2025/02/25/matthew-tkachuk-jimmy-fallon-4-nations-face-off/
-
-**America and Russia Are on the Same Side Now**\
-`The U.S. is embracing European far-right parties in sympathy with Moscow — the opposite of how Washington dealt with Europe’s Communist parties in the Cold War.`\
-https://nytimes.com/2025/02/25/opinion/russia-europe-trump-vance.html
 
