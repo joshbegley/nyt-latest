@@ -1,3 +1,27 @@
+**‘Heavyweight,’ an Acclaimed Narrative Podcast, Returns**\
+`Pushkin Industries, the podcast company that will release the show, is betting that documentary-style audio programs can still win an audience.`\
+https://nytimes.com/2025/02/25/business/media/heavyweight-podcast-returning.html
+
+**Amorim: INEOS cost-cutting measures affecting everybody at United**\
+`United announced on Monday a new 'transformation plan' including a further 150 to 200 redundancies.`\
+https://nytimes.com/athletic/6158481/2025/02/25/amorim-man-united-ineos-cuts/
+
+**How Van Dijk and Konate have taken their partnership to a new level**\
+`Liverpool's centre-backs showed against Manchester City why they have a case to be considered the best defensive pairing in Europe`\
+https://nytimes.com/athletic/6158184/2025/02/25/van-dijk-konate-partnership-liverpool/
+
+**To the Point: Short Novels Dominate International Booker Prize Nominees**\
+`Only one of the 13 titles nominated for the prestigious award for fiction translated into English is more than 300 pages long. But it is the one favored by critics.`\
+https://nytimes.com/2025/02/25/books/international-booker-prize-longlist.html
+
+**An Author Who Builds Outfits Around Hats**\
+`She also takes style cues from clowns.`\
+https://nytimes.com/2025/02/25/style/street-style-look-fun-hat.html
+
+**'Sometimes you learn the most from the worst': Andrey Rublev's new perspective**\
+`The Russian returns to the scene of one of his worst moments on the tennis court — with a new perspective on his own mind`\
+https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-health-atp/
+
 **Six reasons why the Blue Jackets returning to the playoffs is not far-fetched**\
 `It's safe to check the NHL standings. The out-of-town scoreboard is of interest. The Blue Jackets are now in the throes of a playoff race.`\
 https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6158401/2025/02/25/erling-haaland-injury-man-city-t
 **Will NHL see a 4 Nations bump? Plus, Olsen's future, TGL's novelty and more: Media mailbag**\
 `Richard Deitsch's mailbag of reader questions returns with insights on Greg Olsen, Tom Brady, the NHL, coverage of Justin Tucker and more.`\
 https://nytimes.com/athletic/6144470/2025/02/25/nhl-4-nations-greg-olsen-tgl-nfl-ratings-mailbag/
-
-**Weekly Student News Quiz: Russia-Ukraine War, Quantum Computing, S.N.L.**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/02/25/learning/25StudentNewsQuizLN.html
-
-**Rockets' reincorporation of Jabari Smith Jr. key to stretch run: The IkoSystem**\
-`"The threat of his shot is always there," said Rockets head coach Ime Udoka of Smith. `\
-https://nytimes.com/athletic/6155111/2025/02/25/rockets-jabari-smith-jr-return/
-
-**Immanuel Quickley's 3s, Gradey Dick's defence and more: What to watch from Raptors' final third**\
-`With the Raptors likely to use some unusual lineups, there will be plenty of noise to filter out in the season's final seven weeks.`\
-https://nytimes.com/athletic/6156652/2025/02/25/raptors-immanuel-quickley-gradey-dick-defence/
-
-**U.K. to Raise Military Spending to 2.5% of G.D.P. by 2027, Starmer Says**\
-`Prime Minister Keir Starmer set out a timeline to increase British spending on defense, now 2.3 percent. He is scheduled to meet with President Trump this week.`\
-https://nytimes.com/2025/02/25/world/europe/uk-defense-spending-starmer.html
-
-**College basketball buy, sell or hold? Look out for Clemson. Kansas and Purdue are spiraling**\
-`With less than two weeks left in the regular season, we drill down on what to make of a few key teams ahead of the postseason.`\
-https://nytimes.com/athletic/6157653/2025/02/25/college-basketball-duke-kansas-iowa-state/
-
-**NCAA Tournament 2025 Bracket Watch: Auburn and Duke avoidance is a smart Final Four play**\
-`Auburn and Duke are locked in as No. 1 seeds. There are four contenders — right now — for the other two top seeds. `\
-https://nytimes.com/athletic/6156506/2025/02/25/ncaa-tournament-bracket-projections-duke-auburn/
 
