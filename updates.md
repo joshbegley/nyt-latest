@@ -1,3 +1,7 @@
+**USC recruiting on an uptick — why this surge feels more sustainable**\
+`The Trojans hold the No. 1 spot in the 2026 class rankings after landing commitments from two top-150 prospects. `\
+https://nytimes.com/athletic/6158362/2025/02/25/usc-football-recruiting-chad-bowden/
+
 **Man Utd appoint Vivell as full-time director of recruitment**\
 `The former Chelsea and RB Leipzig executive will lead United’s global recruitment operation.`\
 https://nytimes.com/athletic/6158217/2025/02/25/manchester-united-christopher-vivell-contract-new/

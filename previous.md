@@ -1,3 +1,7 @@
+**USC recruiting on an uptick — why this surge feels more sustainable**\
+`The Trojans hold the No. 1 spot in the 2026 class rankings after landing commitments from two top-150 prospects. `\
+https://nytimes.com/athletic/6158362/2025/02/25/usc-football-recruiting-chad-bowden/
+
 **Man Utd appoint Vivell as full-time director of recruitment**\
 `The former Chelsea and RB Leipzig executive will lead United’s global recruitment operation.`\
 https://nytimes.com/athletic/6158217/2025/02/25/manchester-united-christopher-vivell-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010010943/delta-flight-atlanta-smoke-haze.htm
 **Wolff: Horner booing shouldn't overshadow success of F1 75 Live**\
 `Horner, along with four-time world champion Max Verstappen, was booed when he appeared on the stage and shown on the screen.`\
 https://nytimes.com/athletic/6158537/2025/02/25/toto-wolff-christian-horner-booing/
-
-**How Far Do Trump’s Cuts to Science Reach? To the Ends of the Earth.**\
-`The National Science Foundation has fired workers at the office that manages polar research, raising fears about a reduced U.S. presence in two strategic regions.`\
-https://nytimes.com/2025/02/25/climate/trump-nsf-cuts-antarctica.html
 
