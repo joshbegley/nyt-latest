@@ -1,3 +1,7 @@
+**TAFC: Why Man Utd are cutting up to 200 jobs, Galatasaray accuse Mourinho of ‘racist statements’**\
+`Today in TAFC: Man Utd to cut more jobs and downgrade staff food, Flick wants more protection for Yamal, the French Cup that aids underdogs.`\
+https://nytimes.com/athletic/6158162/2025/02/25/manchester-united-job-cuts-mourinho-racism/
+
 **As Francis Lingers in Critical Condition, an Anxious Wait Intensifies**\
 `Eleven days after the pope was hospitalized, speculation is mounting and prayers for his recovery verge on a vigil.`\
 https://nytimes.com/2025/02/25/world/europe/pope-francis-condition-prayers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6156700/2025/02/25/jamie-carragher-afrcon-disrespec
 **Pronman: Top 2025 college, CHL and European free agents for NHL teams**\
 `Ranking this year's players to watch coming out of the CHL, NCAA and major European leagues.`\
 https://nytimes.com/athletic/6128943/2025/02/25/nhl-free-agents-2025-ncaa-chl-europe/
-
-**Ostriches, butt cheeks and relentless energy: How Austin Hedges became an indispensable MLB teammate**\
-`Despite historically low offensive numbers, the Guardians veteran is beloved for his abilities as a catcher and clubhouse connector.`\
-https://nytimes.com/athletic/6157109/2025/02/25/austin-hedges-guardians-teammate/
 
