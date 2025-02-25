@@ -1,3 +1,11 @@
+**Wolff: Horner booing shouldn't overshadow success of F1 75 Live**\
+`Horner, along with four-time world champion Max Verstappen, was booed when he appeared on the stage and shown on the screen.`\
+https://nytimes.com/athletic/6158537/2025/02/25/toto-wolff-christian-horner-booing/
+
+**How Far Do Trump’s Cuts to Science Reach? To the Ends of the Earth.**\
+`The National Science Foundation has fired workers at the office that manages polar research, raising fears about a reduced U.S. presence in two strategic regions.`\
+https://nytimes.com/2025/02/25/climate/trump-nsf-cuts-antarctica.html
+
 **State Election Officials Seek to Avert Deeper Cuts**\
 `The National Association of Secretaries of State, normally reluctant to wade into partisan politics, has asked the homeland security secretary to preserve election security programs.`\
 https://nytimes.com/2025/02/25/us/politics/election-security-federal-spending-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6158184/2025/02/25/van-dijk-konate-partnership-live
 **To the Point: Short Novels Dominate International Booker Prize Nominees**\
 `Only one of the 13 titles nominated for the prestigious award for fiction translated into English is more than 300 pages long. But it is the one favored by critics.`\
 https://nytimes.com/2025/02/25/books/international-booker-prize-longlist.html
-
-**An Author Who Builds Outfits Around Hats**\
-`She also takes style cues from clowns.`\
-https://nytimes.com/2025/02/25/style/street-style-look-fun-hat.html
-
-**'Sometimes you learn the most from the worst': Andrey Rublev's new perspective**\
-`The Russian returns to the scene of one of his worst moments on the tennis court - with a new perspective on his own mind.`\
-https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-health-atp/
 
