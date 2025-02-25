@@ -1,3 +1,7 @@
+**State Election Officials Seek to Avert Deeper Cuts**\
+`The National Association of Secretaries of State, normally reluctant to wade into partisan politics, has asked the homeland security secretary to preserve election security programs.`\
+https://nytimes.com/2025/02/25/us/politics/election-security-federal-spending-cuts.html
+
 **The Bounce: Will Luka Dončić add to NBA's history of revenge games as Mavericks visit Lakers?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6158391/2025/02/25/luka-doncic-lebron-james-lakers-mavericks-nba-the-bounce/
@@ -31,10 +35,6 @@ https://nytimes.com/2025/02/25/books/international-booker-prize-longlist.html
 https://nytimes.com/2025/02/25/style/street-style-look-fun-hat.html
 
 **'Sometimes you learn the most from the worst': Andrey Rublev's new perspective**\
-`The Russian returns to the scene of one of his worst moments on the tennis court — with a new perspective on his own mind`\
+`The Russian returns to the scene of one of his worst moments on the tennis court - with a new perspective on his own mind.`\
 https://nytimes.com/athletic/6156679/2025/02/25/andrey-rublev-tennis-mental-health-atp/
-
-**Six reasons why the Blue Jackets returning to the playoffs is not far-fetched**\
-`It's safe to check the NHL standings. The out-of-town scoreboard is of interest. The Blue Jackets are now in the throes of a playoff race.`\
-https://nytimes.com/athletic/6157937/2025/02/25/nhl-blue-jackets-playoffs/
 
