@@ -1,3 +1,7 @@
+**Tesla Moves One Step Closer to Self-Driving Cars in China**\
+`The development marked a breakthrough for Tesla’s chief executive, Elon Musk, in a country where his company has faced increasingly tough competition.`\
+https://nytimes.com/2025/02/25/business/china-tesla-self-driving-musk.html
+
 **Salah's Ballon d'Or hopes depend on Liverpool titles - Slot**\
 `The Egyptian, who is out of contract in summer, has 41 direct goal involvements (25 goals, 16 assists) for Liverpool this season`\
 https://nytimes.com/athletic/6158136/2025/02/25/mohamed-salah-liverpool-ballon-dor/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/02/25/arts/music/antonio-pappano-london-symphony-orches
 **A Theory of Media That Explains 15 Years of Politics**\
 `Martin Gurri discusses how social media and the internet have fundamentally changed the public’s relationship to institutions and power.`\
 https://nytimes.com/video/opinion/100000010002674/a-theory-of-media-that-explains-15-years-of-politics.html
-
-**Justice Dept.’s No. 2 Targets Old Office Where He Rose as a Prosecutor**\
-`The forceful approach that Emil Bove III has taken toward the Southern District of New York underscores his own fraught relationship with the office that gave him the expertise to do so.`\
-https://nytimes.com/2025/02/25/us/politics/emil-bove-trump-doj.html
 
