@@ -1,40 +1,40 @@
-**Ancelotti wants 'angry' players but denies issues with Guler, Endrick**\
-`Guler has started just seven of Madrid's 35 games across La Liga and the Champions League while Endrick has not started in La Liga`\
-https://nytimes.com/athletic/6158314/2025/02/25/real-madrid-ancelotti-guler-endrick/
+**Rockets' reincorporation of Jabari Smith Jr. key to stretch run: The IkoSystem**\
+`"The threat of his shot is always there," said Rockets head coach Ime Udoka of Smith. `\
+https://nytimes.com/athletic/6155111/2025/02/25/rockets-jabari-smith-jr-return/
 
-**Historic comeback against Thunder breathes life into Timberwolves' season**\
-`Down 25 in the second half — and trailing by 16 with 3:45 to go — Minnesota somehow found a way to beat the West's best team.`\
-https://nytimes.com/athletic/6158008/2025/02/25/timberwolves-anthony-edwards-comeback-thunder/
+**Immanuel Quickley's 3s, Gradey Dick's defence and more: What to watch from Raptors' final third**\
+`With the Raptors likely to use some unusual lineups, there will be plenty of noise to filter out in the season's final seven weeks.`\
+https://nytimes.com/athletic/6156652/2025/02/25/raptors-immanuel-quickley-gradey-dick-defence/
 
-**The NHL's most improved players of 2024-25, from Dylan Holloway to Logan Cooley**\
-`Every season, there are performances nobody saw coming. Here are some of the best from 2024-25.`\
-https://nytimes.com/athletic/6145570/2025/02/25/nhl-most-improved-players-2024-2025/
+**U.K. to Raise Military Spending to 2.5% of G.D.P. by 2027, Starmer Says**\
+`Prime Minister Keir Starmer set out a timeline to increase British spending on defense, now 2.3 percent. He is scheduled to meet with President Trump this week.`\
+https://nytimes.com/2025/02/25/world/europe/uk-defense-spending-starmer.html
 
-**Nebraska continues to confound. Where do the Huskers stand after Michigan loss?**\
-`Before Monday's loss, 96 of 97 projections on BracketMatrix.com listed Nebraska in the 68-team NCAA Tournament.`\
-https://nytimes.com/athletic/6158294/2025/02/25/nebraska-basketball-ncaa-bubble-michigan/
+**College basketball buy, sell or hold? Look out for Clemson. Kansas and Purdue are spiraling**\
+`With less than two weeks left in the regular season, we drill down on what to make of a few key teams ahead of the postseason.`\
+https://nytimes.com/athletic/6157653/2025/02/25/college-basketball-duke-kansas-iowa-state/
 
-**Trump Refocuses on Trade**\
-`The president has sent the message that he’s committed to tariffs, and that he sees room for deals with Ukraine and Russia.`\
-https://nytimes.com/2025/02/25/business/dealbook/trump-tariffs-ukraine-russia-minerals.html
+**NCAA Tournament 2025 Bracket Watch: Auburn and Duke avoidance is a smart Final Four play**\
+`Auburn and Duke are locked in as No. 1 seeds. There are four contenders — right now — for the other two top seeds. `\
+https://nytimes.com/athletic/6156506/2025/02/25/ncaa-tournament-bracket-projections-duke-auburn/
 
-**Why F1's preseason game of 'smoke and mirrors' will be more important than ever this year**\
-`When testing begins on Wednesday in Bahrain, lap times will tell only half-truths - real performance will remain deliberately obscured`\
-https://nytimes.com/athletic/6157070/2025/02/25/f1-preseason-testing-2025/
+**Blackhawks assistant coach's cancer surgery, Nick Lardis' scoring: 10 thoughts**\
+`Kevin Dean wants you to get screened for prostate cancer. Plus, why isn't Lardis getting more buzz with his eye-popping scoring?`\
+https://nytimes.com/athletic/6155664/2025/02/25/blackhawks-kevin-dean-cancer/
 
-**TAFC: Why Man Utd are cutting up to 200 jobs, Galatasaray accuse Mourinho of ‘racist statements’**\
-`Today in TAFC: Man Utd to cut more jobs and downgrade staff food, Flick wants more protection for Yamal, the French Cup that aids underdogs.`\
-https://nytimes.com/athletic/6158162/2025/02/25/manchester-united-job-cuts-mourinho-racism/
+**What should Sabres do with their pending UFAs before the trade deadline?**\
+`Sabres GM Kevyn Adams has less than two weeks to make a decision on the team's players with expiring contracts.`\
+https://nytimes.com/athletic/6156449/2025/02/25/sabres-trade-deadline-zucker-greenway/
 
-**As Francis Lingers in Critical Condition, an Anxious Wait Intensifies**\
-`Eleven days after the pope was hospitalized, speculation is mounting and prayers for his recovery verge on a vigil.`\
-https://nytimes.com/2025/02/25/world/europe/pope-francis-condition-prayers.html
+**After thriving on national stage, Faber-Slavin give U.S. a no-brainer Olympic shutdown pair**\
+`People who don't watch many Wild or Hurricanes games could easily have missed just how good the duo are. Not anymore.`\
+https://nytimes.com/athletic/6157606/2025/02/25/brock-faber-jaccob-slavin-team-usa-olympics-4-nations/
 
-**How Can Europe Talk to Trump? Flatter, Then Gently Resist.**\
-`Emmanuel Macron, the French president, epitomized how the continent’s leaders are trying to navigate President Trump’s increasingly hostile administration.`\
-https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
+**What's the future of college football spring games? Coaches and staffers weigh in**\
+`Do players really get poached from spring games? What other factors are spurring changes in spring practice or spring games?`\
+https://nytimes.com/athletic/6157363/2025/02/25/college-football-spring-games-future-value/
 
-**Brewers' Nestor Cortes embraces new home, but sting of Yankees' World Series loss remains**\
-`Cortes gave up the first game-ending grand slam in World Series history in Game 1 of last year's Fall Classic. `\
-https://nytimes.com/athletic/6156842/2025/02/25/nestor-cortes-brewers-yankees-world-series/
+**Explaining ‘play-in weekend’: What reimagined SEC, Big Ten championships would look like**\
+`Here are a few things to know about possible plans from the SEC and Big Ten to re-imagine their championship weekend.`\
+https://nytimes.com/athletic/6157071/2025/02/25/sec-big-ten-conference-championship-weekend/
 
