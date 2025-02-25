@@ -1,3 +1,7 @@
+**How Can Europe Talk to Trump? Flatter, Then Gently Resist.**\
+`Emmanuel Macron, the French president, epitomized how the continent’s leaders are trying to navigate President Trump’s increasingly hostile administration.`\
+https://nytimes.com/2025/02/25/world/europe/trump-macron-starmer-ukraine.html
+
 **Brewers' Nestor Cortes embraces new home, but sting of Yankees' World Series loss remains**\
 `Cortes gave up the first game-ending grand slam in World Series history in Game 1 of last year's Fall Classic. `\
 https://nytimes.com/athletic/6156842/2025/02/25/nestor-cortes-brewers-yankees-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6157109/2025/02/25/austin-hedges-guardians-teammate
 **'Innovate or die': How NHL teams prepare top prospects with latest tech**\
 `Everyone has access to the newest data and analytics tools, but in an ever-changing game, it's about who uses them best.`\
 https://nytimes.com/athletic/5099349/2025/02/25/nhl-analytics-prospects-development/
-
-**Chase Lee went from failed walk-on to SEC sidearm sensation. Can he do it for Tigers?**\
-`Before he was one step away from the majors, Chase Lee spent a year taking lessons and watching YouTube to learn how to throw sidearm.`\
-https://nytimes.com/athletic/6157349/2025/02/25/tigers-chase-lee-prospect-sidearm-alabama/
 
