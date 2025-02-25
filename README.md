@@ -1,3 +1,11 @@
+**Utah basketball coaching candidates: Will Utes go NBA route like rival BYU?**\
+`Utah fired men’s basketball coach Craig Smith on Monday, citing “greater aspirations." Who is the coach that can achieve them?`\
+https://nytimes.com/athletic/6158873/2025/02/25/utah-basketball-coaching-candidates/
+
+**Unrivaled promo to bring women's sports push to a new place — a NASCAR race**\
+`An Unrivaled-inspired paint scheme will adorn Alex Bowman's No. 48 car next month for a race in Florida.`\
+https://nytimes.com/athletic/6157255/2025/02/25/nascar-unrivaled-ally-womens-sports-alex-bowman/
+
 **Is Bird Flu the Only Reason Egg Prices Are Soaring?**\
 `The nation’s biggest egg producer has seen rising revenues and profits. Now some Democrats are calling for an investigation into pricing practices in the industry.`\
 https://nytimes.com/2025/02/25/business/egg-prices-bird-flu-producers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/02/25/us/politics/elon-musk-canada-citizenship.html
 **Once the Center of the N.B.A. News Universe, These Phones Can Now Be Yours**\
 `Adrian Wojnarowski, the former king of the N.B.A. scoop at ESPN, is auctioning off personal items to raise money for his employer, St. Bonaventure University.`\
 https://nytimes.com/2025/02/25/sports/basketball/adrian-wojnarowski-auction-woj.html
-
-**Keir Starmer Announces Defense Spending Increase**\
-`Prime Minister Keir Starmer of Britain said the move would amount to an increase in expenditure of 13.4 billion pounds, or $17 billion, a year on defense between now and 2027.`\
-https://nytimes.com/video/world/europe/100000010011162/uk-defense-spending-starmer.html
-
-**Hegseth Returns to Guantánamo, This Time as Defense Secretary**\
-`Mr. Hegseth served at the U.S. Navy base as a National Guard lieutenant. The base is now being used to hold some migrants who face deportation.`\
-https://nytimes.com/2025/02/25/us/politics/pete-hegseth-guantanamo-bay.html
 
