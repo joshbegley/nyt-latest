@@ -1,10 +1,10 @@
-import urllib2
+import requests
 from bs4 import BeautifulSoup
 import csv
 
 url = ("https://www.nytimes.com/search?query=&sort=newest")
 
-page = urllib2.urlopen(url)
+page = requests.get(url)
 soup = BeautifulSoup(page, 'html.parser')
 
 for a in soup.find_all("a",href=True):
