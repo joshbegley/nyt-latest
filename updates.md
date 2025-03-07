@@ -1,3 +1,19 @@
+**Devils trade deadline report card: Grading Tom Fitzgerald's moves**\
+`How did the Devils do on deadline week? A look at all the moves and how they set up the lineup, with Peter Baugh's early analysis.`\
+https://nytimes.com/athletic/6174374/2025/03/07/devils-trade-deadline-report-card/
+
+**Top seed Alexander Zverev out of Indian Wells after Tallon Griekspoor upset**\
+`The German continues to endure a difficult 2025.`\
+https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-griekspoor-result-analysis/
+
+**Justice Dept. Doubles Down on Request to Break Up Google**\
+`In a court filing on Friday, the government signaled a continuation of tough regulatory pressure on the search giant.`\
+https://nytimes.com/2025/03/07/technology/trump-google-search-antitrust.html
+
+**At Crypto Summit, Trump Says U.S. Will Be ‘the Bitcoin Superpower’**\
+`The first-of-its-kind event at the White House with top crypto executives and the president showcased Mr. Trump’s embrace of the once-renegade industry.`\
+https://nytimes.com/2025/03/07/technology/trump-crypto-summit.html
+
 **Anaheim Ducks trade deadline report card: Grading Pat Verbeek's moves**\
 `Trading Brian Dumoulin should help the Ducks' young defensemen grow.`\
 https://nytimes.com/athletic/6172585/2025/03/07/anaheim-ducks-trade-deadline-2025/
