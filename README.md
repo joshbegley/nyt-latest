@@ -1,3 +1,15 @@
+**LA Kings trade deadline report card: Grading Rob Blake's moves**\
+`Will Andrei Kuzmenko boost the Kings' power play?`\
+https://nytimes.com/athletic/6167040/2025/03/07/kings-trade-deadline-2025/
+
+**Read the brief saying charges should be dropped in the Adams corruption case.**\
+`A lawyer appointed in the Eric Adams case says charges should be dropped with prejudice.`\
+https://nytimes.com/interactive/2025/03/07/us/clement-brief.html
+
+**Trump announces World Cup 2026 task force - but what does it mean?**\
+`President Donald Trump has signed an executive order establishing a White House task force for the 2026 World Cup.`\
+https://nytimes.com/athletic/6184979/2025/03/07/donald-trump-world-cup-task-force/
+
 **Too Many Trends!**\
 `Every generation has chased trends. But were there ever this many? And did it ever feel this bad, or this hard, to just want to fit in? To some members of Gen Z, the objects of teenage yearning feel more plentiful and less durable than ever before.`\
 https://nytimes.com/interactive/2025/03/07/style/gen-z-trend-cycle.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6172464/2025/03/07/penguins-trade-deadline-report-c
 **Australians Brace for Tropical Cyclone Alfred**\
 `Dangerous conditions brought on by Tropical Cyclone Alfred’s destructive winds and flooding have caused thousands of people to evacuate on Australia’s eastern coasts, and the storm has not even made landfall yet.`\
 https://nytimes.com/video/weather/100000010038907/australia-tropical-cyclone-alfred-evacuations.html
-
-**Mariners' George Kirby to start season on IL**\
-`Kirby had an MRI that revealed no structural damage, but Mariners GM Justin Hollander termed his absence "a week-to-week thing."`\
-https://nytimes.com/athletic/6184957/2025/03/07/mariners-george-kirby-injury/
-
-**Philadelphia Flyers trade deadline report card: Grading Daniel Briere's moves**\
-`The Flyers made the necessary, but tough, steps as the rebuild continues.`\
-https://nytimes.com/athletic/6172380/2025/03/07/philadelphia-flyers-trade-deadline-2025/
-
-**Gene Hackman Died a Week After His Wife, Both From Natural Causes**\
-`The actor’s wife, Betsy Arakawa, died of a respiratory illness, New Mexico officials said. Mr. Hackman had Alzheimer’s, which contributed to his death from heart disease.`\
-https://nytimes.com/2025/03/07/us/gene-hackman-investigation-cause-death.html
 
