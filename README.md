@@ -1,3 +1,7 @@
+**Leafs GM Brad Treliving on two big trades — and the cost of doing business**\
+`The Leafs GM said he likes that neither Scott Laughton nor Brandon Carlo are trade deadline rentals. `\
+https://nytimes.com/athletic/6185372/2025/03/07/leafs-gm-brad-treliving-trade-deadline/
+
 **Oilers trade deadline report card: Grading Stan Bowman’s moves**\
 `The Oilers are better now than they were at the start of the week but their moves didn’t come cheap.`\
 https://nytimes.com/athletic/6172345/2025/03/07/oilers-trade-deadline-report-card-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6174374/2025/03/07/devils-trade-deadline-report-car
 **Top seed Alexander Zverev out of Indian Wells after Tallon Griekspoor upset**\
 `The German continues to endure a difficult 2025.`\
 https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-griekspoor-result-analysis/
-
-**Justice Dept. Doubles Down on Request to Break Up Google**\
-`In a court filing on Friday, the government signaled a continuation of tough regulatory pressure on the search giant.`\
-https://nytimes.com/2025/03/07/technology/trump-google-search-antitrust.html
 
