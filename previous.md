@@ -1,3 +1,11 @@
+**Gene Hackman and His Wife Died of Natural Causes, Investigators Say**\
+`Mr. Hackman had Alzheimer’s, which contributed to his death from heart disease, New Mexico’s chief medical examiner said. His wife, Betsy Arakawa, died before him from a respiratory illness.`\
+https://nytimes.com/2025/03/07/us/gene-hackman-investigation-cause-death.html
+
+**Blackhawks trade deadline report card: Grading Kyle Davidson's moves**\
+`The Blackhawks probably couldn't have been happier with their trade deadline.`\
+https://nytimes.com/athletic/6172168/2025/03/07/blackhawks-trade-deadline-report-card/
+
 **My Ex Was Abusive. Should I Warn His New Girlfriend?**\
 `The magazine’s Ethicist columnist on disclosing important information about a previous partner.`\
 https://nytimes.com/2025/03/07/magazine/relationships-abuse-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6174590/2025/03/07/winnipeg-jets-trade-deadline-rep
 **Red Wings trade deadline report card: Grading Steve Yzerman's moves**\
 `The Red Wings will mostly proceed with the lineup they have, as they look to snap an eight-year playoff drought.`\
 https://nytimes.com/athletic/6172502/2025/03/07/red-wings-nhl-trade-deadline-report-card/
-
-**Vegas Golden Knights trade deadline report card: Grading Kelly McCrimmon's moves**\
-`Vegas made a sensible move to bring back Reilly Smith`\
-https://nytimes.com/athletic/6172393/2025/03/07/golden-knights-trade-deadline-2025/
-
-**Canadiens trade deadline report card: Grading Kent Hughes' decisions**\
-`The Canadiens held on to their three impending unrestricted free agents despite all generating interest on the trade market.`\
-https://nytimes.com/athletic/6172522/2025/03/07/canadiens-nhl-trade-deadline-report-card/
 

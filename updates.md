@@ -1,3 +1,11 @@
+**Gene Hackman and His Wife Died of Natural Causes, Investigators Say**\
+`Mr. Hackman had Alzheimer’s, which contributed to his death from heart disease, New Mexico’s chief medical examiner said. His wife, Betsy Arakawa, died before him from a respiratory illness.`\
+https://nytimes.com/2025/03/07/us/gene-hackman-investigation-cause-death.html
+
+**Blackhawks trade deadline report card: Grading Kyle Davidson's moves**\
+`The Blackhawks probably couldn't have been happier with their trade deadline.`\
+https://nytimes.com/athletic/6172168/2025/03/07/blackhawks-trade-deadline-report-card/
+
 **My Ex Was Abusive. Should I Warn His New Girlfriend?**\
 `The magazine’s Ethicist columnist on disclosing important information about a previous partner.`\
 https://nytimes.com/2025/03/07/magazine/relationships-abuse-ethics.html
