@@ -1,3 +1,7 @@
+**Penguins trade deadline report card: Grading Kyle Dubas' moves**\
+`Rickard Rakell's value may never be higher than it was before the trade deadline. If it's not, Dubas missed an opportunity. Time will tell.`\
+https://nytimes.com/athletic/6172464/2025/03/07/penguins-trade-deadline-report-card/
+
 **Australians Brace for Tropical Cyclone Alfred**\
 `Dangerous conditions brought on by Tropical Cyclone Alfred’s destructive winds and flooding have caused thousands of people to evacuate on Australia’s eastern coasts, and the storm has not even made landfall yet.`\
 https://nytimes.com/video/weather/100000010038907/australia-tropical-cyclone-alfred-evacuations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6171870/2025/03/07/rangers-trade-deadline-report-ca
 **Colorado Avalanche trade deadline report card: Grading Chris MacFarland's moves**\
 `Colorado flipped its roster in ways rarely seen during a season.`\
 https://nytimes.com/athletic/6172407/2025/03/07/colorado-avalanche-trade-deadline-2025/
-
-**Infighting in U.K.’s Anti-Immigration Party Now Involves the Police**\
-`Reform U.K., led by Nigel Farage, said it was investigating claims that one of its lawmakers had bullied staff members. He was also accused of “threats of physical violence” against another top party official.`\
-https://nytimes.com/2025/03/07/world/europe/nigel-farage-rupert-lowe-police.html
 

@@ -1,3 +1,15 @@
+**Australians Brace for Tropical Cyclone Alfred**\
+`Dangerous conditions brought on by Tropical Cyclone Alfred’s destructive winds and flooding have caused thousands of people to evacuate on Australia’s eastern coasts, and the storm has not even made landfall yet.`\
+https://nytimes.com/video/weather/100000010038907/australia-tropical-cyclone-alfred-evacuations.html
+
+**Mariners' George Kirby to start season on IL**\
+`Kirby had an MRI that revealed no structural damage, but Mariners GM Justin Hollander termed his absence "a week-to-week thing."`\
+https://nytimes.com/athletic/6184957/2025/03/07/mariners-george-kirby-injury/
+
+**Philadelphia Flyers trade deadline report card: Grading Daniel Briere's moves**\
+`The Flyers made the necessary, but tough, steps as the rebuild continues.`\
+https://nytimes.com/athletic/6172380/2025/03/07/philadelphia-flyers-trade-deadline-2025/
+
 **Gene Hackman and His Wife Died of Natural Causes, Investigators Say**\
 `Mr. Hackman had Alzheimer’s, which contributed to his death from heart disease, New Mexico’s chief medical examiner said. His wife, Betsy Arakawa, died before him from a respiratory illness.`\
 https://nytimes.com/2025/03/07/us/gene-hackman-investigation-cause-death.html
