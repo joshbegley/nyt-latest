@@ -1,3 +1,11 @@
+**U.S. Investigates Egg Producers Over Soaring Prices**\
+`The Justice Department inquiry is said to be focused on potential antitrust violations among the country’s largest egg producers.`\
+https://nytimes.com/2025/03/07/business/us-investigates-egg-producers-over-soaring-prices.html
+
+**Trump Administration Forces Out More Senior Justice Dept. Officials**\
+`The Trump administration targeted veteran career lawyers who managed bankruptcy litigation and other legal issues in the latest wave of forced departures.`\
+https://nytimes.com/2025/03/07/us/politics/trump-justice-dept-ousters.html
+
 **Leafs GM Brad Treliving on two big trades — and the cost of doing business**\
 `The Leafs GM said he likes that neither Scott Laughton nor Brandon Carlo are trade deadline rentals. `\
 https://nytimes.com/athletic/6185372/2025/03/07/leafs-gm-brad-treliving-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6184994/2025/03/07/rangers-nhl-trade-deadline-analy
 **U.S. Suspends Ukraine’s Access to Satellite Imagery**\
 `Ukraine uses the technology to track the movement of Russian troops and assess damage to infrastructure.`\
 https://nytimes.com/2025/03/07/world/us-ukraine-satellite-imagery.html
-
-**Devils trade deadline report card: Grading Tom Fitzgerald's moves**\
-`How did the Devils do on deadline week? A look at all the moves and how they set up the lineup, with Peter Baugh's early analysis.`\
-https://nytimes.com/athletic/6174374/2025/03/07/devils-trade-deadline-report-card/
-
-**Top seed Alexander Zverev out of Indian Wells after Tallon Griekspoor upset**\
-`The German continues to endure a difficult 2025.`\
-https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-griekspoor-result-analysis/
 
