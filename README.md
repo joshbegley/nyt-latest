@@ -1,3 +1,11 @@
+**Top seed Alexander Zverev out of Indian Wells after Tallon Griekspoor upset**\
+`The German continues to endure a difficult 2025.`\
+https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-griekspoor-result-analysis/
+
+**Justice Dept. Doubles Down on Request to Break Up Google**\
+`In a court filing on Friday, the government signaled a continuation of tough regulatory pressure on the search giant.`\
+https://nytimes.com/2025/03/07/technology/trump-google-search-antitrust.html
+
 **Anaheim Ducks trade deadline report card: Grading Pat Verbeek's moves**\
 `Trading Brian Dumoulin should help the Ducks' young defensemen grow.`\
 https://nytimes.com/athletic/6172585/2025/03/07/anaheim-ducks-trade-deadline-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/07/opinion/la-fires-recovery.html
 **NHL trade grades: Maple Leafs and Bruins pull off a blockbuster at the buzzer**\
 `The Maple Leafs made a big move to acquire defenseman Brandon Carlo, who should fit perfectly next to Morgan Rielly.`\
 https://nytimes.com/athletic/6184148/2025/03/07/nhl-trade-grades-brandon-carlo-bruins-maple-leafs/
-
-**The 3.9.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/03/07/the-3925-issue
-
-**LA Kings trade deadline report card: Grading Rob Blake's moves**\
-`Will Andrei Kuzmenko boost the Kings' power play?`\
-https://nytimes.com/athletic/6167040/2025/03/07/kings-trade-deadline-2025/
 
