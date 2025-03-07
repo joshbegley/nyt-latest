@@ -1,3 +1,7 @@
+**Devils trade deadline report card: Grading Tom Fitzgerald's moves**\
+`How did the Devils do on deadline week? A look at all the moves and how they set up the lineup, with Peter Baugh's early analysis.`\
+https://nytimes.com/athletic/6174374/2025/03/07/devils-trade-deadline-report-card/
+
 **Top seed Alexander Zverev out of Indian Wells after Tallon Griekspoor upset**\
 `The German continues to endure a difficult 2025.`\
 https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-griekspoor-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/07/us/hate-crime-park-valley-church-virginia.html
 **‘What We Really Lost Wasn’t So Much the Stuff’: What Remains From the L.A. Fires**\
 `After their homes burned, Angelenos tell us what the objects that survived mean to them.`\
 https://nytimes.com/interactive/2025/03/07/opinion/la-fires-recovery.html
-
-**NHL trade grades: Maple Leafs and Bruins pull off a blockbuster at the buzzer**\
-`The Maple Leafs made a big move to acquire defenseman Brandon Carlo, who should fit perfectly next to Morgan Rielly.`\
-https://nytimes.com/athletic/6184148/2025/03/07/nhl-trade-grades-brandon-carlo-bruins-maple-leafs/
 
