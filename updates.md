@@ -1,3 +1,11 @@
+**Infighting in U.K.’s Anti-Immigration Party Now Involves the Police**\
+`Reform U.K., led by Nigel Farage, said it was investigating claims that one of its lawmakers had bullied staff members. He was also accused of “threats of physical violence” against another top party official.`\
+https://nytimes.com/2025/03/07/world/europe/nigel-farage-rupert-lowe-police.html
+
+**This Herb Keeper Keeps My Greens Vibrant And Perky for Weeks **\
+`(No description)`\
+https://nytimes.com/card/2025/03/07/smarter-living/wirecutter/this-herb-keeper-keeps-my-greens-vibrant-and-perky-for-weeks
+
 **Winnipeg Jets trade deadline report card: Tanev, Schenn not enough to keep up in Central**\
 `Winnipeg is still good, but deadline day was not an obvious success given what the teams around them did.`\
 https://nytimes.com/athletic/6174590/2025/03/07/winnipeg-jets-trade-deadline-report-card/

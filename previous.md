@@ -1,3 +1,11 @@
+**Infighting in U.K.’s Anti-Immigration Party Now Involves the Police**\
+`Reform U.K., led by Nigel Farage, said it was investigating claims that one of its lawmakers had bullied staff members. He was also accused of “threats of physical violence” against another top party official.`\
+https://nytimes.com/2025/03/07/world/europe/nigel-farage-rupert-lowe-police.html
+
+**This Herb Keeper Keeps My Greens Vibrant And Perky for Weeks **\
+`(No description)`\
+https://nytimes.com/card/2025/03/07/smarter-living/wirecutter/this-herb-keeper-keeps-my-greens-vibrant-and-perky-for-weeks
+
 **Winnipeg Jets trade deadline report card: Tanev, Schenn not enough to keep up in Central**\
 `Winnipeg is still good, but deadline day was not an obvious success given what the teams around them did.`\
 https://nytimes.com/athletic/6174590/2025/03/07/winnipeg-jets-trade-deadline-report-card/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6184767/2025/03/07/maple-leafs-bruins-brandon-carlo
 **NHL trade deadline winners and losers: Rantanen, Marchand reshape Cup race**\
 `Let's take a look at which NHL teams improved the most, which took the biggest chances and which fell flat on its face on deadline day.`\
 https://nytimes.com/athletic/6184585/2025/03/07/nhl-trade-deadline-winners-losers-rantanen-marchand/
-
-**Columbus Blue Jackets trade deadline report card: Grading Don Waddell's moves**\
-`The Blue Jackets made a depth move to bring in Luke Kunin.`\
-https://nytimes.com/athletic/6172340/2025/03/07/blue-jackets-trade-deadline-grades/
-
-**Blues trade deadline report card: Grading Doug Armstrong's moves**\
-`How did the Blues do on deadline week? A look what happened, why and how they set up the lineup, with Jeremy Rutherford's early analysis.`\
-https://nytimes.com/athletic/6171800/2025/03/07/blues-trade-deadline-report-card/
 
