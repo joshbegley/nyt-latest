@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6172585/2025/03/07/anaheim-ducks-trade-deadline-202
 https://nytimes.com/athletic/6172312/2025/03/07/canucks-trade-deadline-report-card-2025/
 
 **At Crypto Summit, Trump Says U.S. Will Be ‘the Bitcoin Superpower’**\
-`The first-of-its-kind event at the White House with top crypto executives and the president showcased Mr. Trump’s embrace of the once renegade industry.`\
+`The first-of-its-kind event at the White House with top crypto executives and the president showcased Mr. Trump’s embrace of the once-renegade industry.`\
 https://nytimes.com/2025/03/07/technology/trump-crypto-summit.html
 
 **Trump’s Cabinet Clashed With Musk**\
