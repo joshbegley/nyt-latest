@@ -1,3 +1,7 @@
+**Oilers trade deadline report card: Grading Stan Bowman’s moves**\
+`The Oilers are better now than they were at the start of the week but their moves didn’t come cheap.`\
+https://nytimes.com/athletic/6172345/2025/03/07/oilers-trade-deadline-report-card-2025/
+
 **Dallas Stars trade deadline report card: Grading Jim Nill's moves**\
 `The Stars went all-in. Are they now the Stanley Cup favorites?`\
 https://nytimes.com/athletic/6181491/2025/03/07/dallas-stars-trade-deadline-2025-grades/

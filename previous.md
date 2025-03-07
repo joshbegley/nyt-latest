@@ -1,3 +1,7 @@
+**Oilers trade deadline report card: Grading Stan Bowman’s moves**\
+`The Oilers are better now than they were at the start of the week but their moves didn’t come cheap.`\
+https://nytimes.com/athletic/6172345/2025/03/07/oilers-trade-deadline-report-card-2025/
+
 **Dallas Stars trade deadline report card: Grading Jim Nill's moves**\
 `The Stars went all-in. Are they now the Stanley Cup favorites?`\
 https://nytimes.com/athletic/6181491/2025/03/07/dallas-stars-trade-deadline-2025-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185277/2025/03/07/alexander-zverev-indian-wells-gr
 **Justice Dept. Doubles Down on Request to Break Up Google**\
 `In a court filing on Friday, the government signaled a continuation of tough regulatory pressure on the search giant.`\
 https://nytimes.com/2025/03/07/technology/trump-google-search-antitrust.html
-
-**Anaheim Ducks trade deadline report card: Grading Pat Verbeek's moves**\
-`Trading Brian Dumoulin should help the Ducks' young defensemen grow.`\
-https://nytimes.com/athletic/6172585/2025/03/07/anaheim-ducks-trade-deadline-2025/
 
