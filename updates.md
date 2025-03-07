@@ -1,3 +1,7 @@
+**Winnipeg Jets trade deadline report card: Tanev, Schenn not enough to keep up in Central**\
+`Winnipeg is still good, but deadline day was not an obvious success given what the teams around them did.`\
+https://nytimes.com/athletic/6174590/2025/03/07/winnipeg-jets-trade-deadline-report-card/
+
 **Red Wings trade deadline report card: Grading Steve Yzerman's moves**\
 `The Red Wings will mostly proceed with the lineup they have, as they look to snap an eight-year playoff drought.`\
 https://nytimes.com/athletic/6172502/2025/03/07/red-wings-nhl-trade-deadline-report-card/
