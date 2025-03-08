@@ -1,3 +1,19 @@
+**Premier League fans are revolting - but for very different reasons**\
+`Tensions that have simmered for months are threatening to boil over as the season reaches its climax`\
+https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-money/
+
+**Who should perform in the halftime show of the 2026 World Cup final?**\
+`The World Cup final will have a half-time show for the first time in 2026. So who should perform?`\
+https://nytimes.com/athletic/6183513/2025/03/08/half-time-show-world-cup-final-2026/
+
+**Listen: Were Manchester United right to go public about 'Project 150'?**\
+`Talk of the Devils discuss whether Manchester United were right to go public with its "Mission 21" and "Mission 1" initiatives`\
+https://nytimes.com/athletic/6180895/2025/03/08/talk-of-the-devils-manchester-united-podcast-mission-21/
+
+**Why has a team never scored 10 goals in a Premier League game?**\
+`Top-flight teams have racked up nine goals on five occasions since the division was revamped in 1992, but have never managed double figures`\
+https://nytimes.com/athletic/6183196/2025/03/08/10-goals-premier-league-why/
+
 **Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
 `Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
 https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/08/world/asia/india-literature-festivals.html
 **Trump’s Tariffs Could Help Tesla, by Hurting Its Rivals More**\
 `The electric car company led by Elon Musk builds all the cars it sells in the United States in California and Texas, shielding it from tariffs that could devastate competitors.`\
 https://nytimes.com/2025/03/08/world/asia/trump-trade-musk-tesla.html
-
-**China Hits Canada With Tariffs in Indirect Riposte to Trump**\
-`Beijing, which set steep duties on canola, peas and pork, wants Canada and Mexico to resist U.S. pressure to raise tariffs on Chinese goods.`\
-https://nytimes.com/2025/03/08/business/china-tariffs-canada.html
-
-**Quote of the Day: Sonnet’s Ever-Fixèd Mark Did, Perchance, Move**\
-`Quotation of the Day for Saturday, March 8, 2025.`\
-https://nytimes.com/2025/03/07/pageoneplus/quote-of-the-day-sonnets-ever-fixed-mark-did-perchance-move.html
-
-**Yankees' Gerrit Cole to get diagnostic tests on elbow: Source**\
-`Cole didn't pitch until June 19 of last season due to inflammation and edema in his elbow.`\
-https://nytimes.com/athletic/6186098/2025/03/07/yankees-gerrit-cole-elbow-injury/
-
-**Justice Department Accuses Adams Prosecutors of Politicking and Hypocrisy**\
-`In a court filing, two top officials released prosecutors’ internal messages in a further attempt to discredit the case against the mayor of New York.`\
-https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.html
 
