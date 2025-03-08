@@ -1,5 +1,5 @@
 **Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
-`What impact will Richmond's early A-10 tournament loss have on Big Ten bubble teams?`\
+`How did UConn fare in the Big Ten tournament? Will Richmond's A-10 loss impact Big Ten bubble teams?`\
 https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
 
 **Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\

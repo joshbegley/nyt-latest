@@ -1,3 +1,7 @@
+**Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
+`How did UConn fare in the Big Ten tournament? Will Richmond's A-10 loss impact Big Ten bubble teams?`\
+https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
+
 **Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
 `In 1968, he became the first Black person to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
 https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
