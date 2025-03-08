@@ -1,3 +1,11 @@
+**Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
+`The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
+https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
+
+**On International Women’s Day, thousands gather to oppose Trump.**\
+`By Isabelle Taft and Eric Berger`\
+https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-protests-trump
+
 **'It's going the wrong direction': Flyers were dreadful in first game post-deadline**\
 `The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
 https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
