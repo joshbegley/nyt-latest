@@ -1,3 +1,11 @@
+**Took for a Ride**\
+`Joe Deeney’s crowd-pleasing puzzle reaches great heights.`\
+https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
+
+**C.D.C. Will Investigate Debunked Link Between Vaccines and Autism**\
+`Dozens of studies have failed to find evidence of a link. The decision to re-examine the question comes as a measles outbreak, driven by low vaccination rates, widens in Texas.`\
+https://nytimes.com/2025/03/07/health/vaccines-autism-cdc-rfk-jr.html
+
 **An Oregon Family Vanished in 1958. Their Car May Have Been Found in a River.**\
 `The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
 https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
