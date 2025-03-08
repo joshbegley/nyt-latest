@@ -1,3 +1,7 @@
+**Lightening Up**\
+`Daylight saving time begins tomorrow, and the days are getting lighter and more expansive. If we want to, we can, too.`\
+https://nytimes.com/2025/03/08/briefing/lightening-up.html
+
 **Days of Clashes in Syria Kill More Than 300 Civilians, War Monitor Reports**\
 `More than 400 people have been killed in fighting between forces of the new government and remnants of the ousted regime, said the war monitor Syrian Observatory for Human Rights.`\
 https://nytimes.com/2025/03/08/world/middleeast/syria-clashes-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/world/canada/liberal-party-trudeau-trump.html
 **Where do the Blackhawks stand after the trade deadline? 8 thoughts**\
 `Over seven days, a lot has changed for the Chicago Blackhawks.`\
 https://nytimes.com/athletic/6185981/2025/03/08/blackhawks-trade-deadline-davidson-bedard-utah/
-
-**Wordle Review No. 1,359**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 9, 2025.`\
-https://nytimes.com/2025/03/08/crosswords/wordle-review-1359.html
 
