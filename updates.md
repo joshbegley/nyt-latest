@@ -1,3 +1,7 @@
+**Mike Gesicki re-signing with Bengals on 3-year, $25.5 million deal**\
+`Gesicki enjoyed a bounce-back season with the Bengals in 2024 after a disappointing year with the Patriots in 2023.`\
+https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing-bengals-2025/
+
 **The Briefing: Liverpool 3 Southampton 1: Alisson and Van Dijk's mix-up, Slot's ruthless changes pay off**\
 `Liverpool were made to work harder than most predicted in beating Southampton - Andy Jones analyses the action from Anfield`\
 https://nytimes.com/athletic/6179992/2025/03/08/liverpool-3-southampton-1-alisson-van-dijk-salah-slot/

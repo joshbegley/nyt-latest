@@ -1,3 +1,7 @@
+**Mike Gesicki re-signing with Bengals on 3-year, $25.5 million deal**\
+`Gesicki enjoyed a bounce-back season with the Bengals in 2024 after a disappointing year with the Patriots in 2023.`\
+https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing-bengals-2025/
+
 **The Briefing: Liverpool 3 Southampton 1: Alisson and Van Dijk's mix-up, Slot's ruthless changes pay off**\
 `Liverpool were made to work harder than most predicted in beating Southampton - Andy Jones analyses the action from Anfield`\
 https://nytimes.com/athletic/6179992/2025/03/08/liverpool-3-southampton-1-alisson-van-dijk-salah-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186477/2025/03/08/arizona-state-natasha-adair-fire
 **Nottingham Forest 1 Manchester City 0: Hudson-Odoi's knockout blow, where does it leave Euro chase?**\
 `Nottingham Forest beat Manchester City with a late goal to take a step closer to European qualification.`\
 https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-city-0-result-premier-league/
-
-**Gwen McCrae, Singer Who Helped Open the Dance Floor to Disco, Dies at 81**\
-`Originally a gospel singer, she went on to meld soulful melodies with dance-floor-friendly grooves on songs like the 1975 Top 10 hit “Rockin’ Chair.”`\
-https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
 
