@@ -1,3 +1,11 @@
+**Gwen McCrae, Singer Who Helped Open the Dance Floor to Disco, Dies at 81**\
+`Originally a gospel singer, she went on to meld soulful melodies with dance-floor-friendly grooves on songs like the 1975 Top 10 hit “Rockin’ Chair.”`\
+https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
+
+**Scott Laughton is coming home: Can 'the ultimate glue guy' help the Leafs?**\
+`The Maple Leafs traded for Scott Laughton to centre their third line. His biggest role might come behind the scenes.`\
+https://nytimes.com/athletic/6185097/2025/03/08/maple-leafs-scott-laughton-trade/
+
 **'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
 `Conley validated his spot in the starting lineup against the Heat, scoring 15 points in 25 minutes of a tense 106-104 win.`\
 https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
