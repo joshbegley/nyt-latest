@@ -1,3 +1,11 @@
+**Trump Offers to Reopen Nuclear Talks in a Letter to Iran’s Supreme Leader**\
+`The letter appears to be President Trump’s opening bid to see if a newly vulnerable Iran is willing to negotiate.`\
+https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
+
+**Corrections: March 8, 2025**\
+`Corrections that appeared in print on Saturday, March 8, 2025.`\
+https://nytimes.com/2025/03/07/pageoneplus/corrections-march-8-2025.html
+
 **Draymond Green's ongoing grudge against KAT: Fact vs. fiction**\
 `Green let his contempt lead him to surmise that KAT's absence from a game had something to do with his perceived fear of Jimmy Butler.`\
 https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-towns-grudge-facts-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6185097/2025/03/07/maple-leafs-scott-laughton-trade
 **D’Wayne Wiggins, One Third of the R&B Group Tony! Toni! Toné!, Dies at 64**\
 `As a paragon of the New Jack Swing sound, the band recorded three platinum albums and a slew of hits, including “Feels Good.”`\
 https://nytimes.com/2025/03/07/arts/music/dwayne-wiggins-dead.html
-
-**‘Needed to turn the page’: Bruins begin new era with roster-smashing deadline day**\
-`Boston general manager Don Sweeney explained a startling trade-deadline overhaul that left his team unrecognizable.`\
-https://nytimes.com/athletic/6185738/2025/03/07/bruins-trade-deadline-overhaul-marchand-coyle-carlo/
-
-**With Wilyer Abreu likely to miss the opener, Kristian Campbell is seeing more outfield time**\
-`The Red sox open their season in Texas in 20 days, and time is running out for Abreu to make the Opening Day roster.`\
-https://nytimes.com/athletic/6185289/2025/03/07/wilyer-abreu-red-sox-opener-kristian-campbell/
 
