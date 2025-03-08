@@ -1,3 +1,7 @@
+**For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
+`The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
+https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
+
 **Iran’s Leader Rebuffs Trump’s Outreach Over Its Nuclear Program**\
 `Ayatollah Ali Khamenei decried “bullying governments” in an apparent response to a letter the White House sent to Iran earlier in the week.`\
 https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-response.html

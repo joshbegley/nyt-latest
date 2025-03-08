@@ -1,3 +1,7 @@
+**For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
+`The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
+https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
+
 **Iran’s Leader Rebuffs Trump’s Outreach Over Its Nuclear Program**\
 `Ayatollah Ali Khamenei decried “bullying governments” in an apparent response to a letter the White House sent to Iran earlier in the week.`\
 https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-response.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187007/2025/03/08/barcelona-osasuna-postponed-why-
 **Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
 `How did UConn fare in the Big Ten tournament? Will Richmond's A-10 loss impact Big Ten bubble teams?`\
 https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
-
-**Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
-`In 1968, he became the first Black person to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
-https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
 
