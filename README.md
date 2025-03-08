@@ -1,3 +1,11 @@
+**C.D.C. Will Investigate Debunked Link Between Vaccines and Autism**\
+`Dozens of studies have failed to find evidence of a link. The decision to re-examine the question comes as a measles outbreak, driven by low vaccinates rates, widens in Texas.`\
+https://nytimes.com/2025/03/07/health/vaccines-autism-cdc-rfk-jr.html
+
+**Canadiens' trade deadline inactivity marked a new phase of their rebuild centred on culture**\
+`The timing of a deadline-day practice by Martin St. Louis said a lot about the culture the Canadiens are nurturing.`\
+https://nytimes.com/athletic/6185847/2025/03/07/canadiens-trade-deadline-culture-savard-st-louis/
+
 **U.S. Judge Finds China Liable for Covid Missteps, Imposes $24 Billion Penalty**\
 `The judgment was issued in a case brought by the Missouri attorney general. The Chinese government did not respond to the claims in court.`\
 https://nytimes.com/2025/03/07/us/missouri-china-covid-judgment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6185289/2025/03/07/wilyer-abreu-red-sox-opener-kris
 **Trump Administration Sends Politically Charged Survey to Researchers**\
 `Scientists on overseas projects must say whether they work with communist governments and help combat “Christian persecution.”`\
 https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
-
-**Drance: Why Canucks' trade deadline paralysis is a shocking missed opportunity**\
-`Having declined to sell when it was so clearly sensible, the Canucks better make what's left of this season count.`\
-https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline-2025/
-
-**Buccaneers, veteran LB Lavonte David agree to 1-year deal**\
-`The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
-https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-lavonte-david-deal-14th-season/
 
