@@ -1,3 +1,11 @@
+**How the NHL trade deadline put Mitch Marner's future on center stage**\
+`Events of recent weeks have underlined that if the Leafs want to keep the pending UFA, they're going to have to bid against others to do it.`\
+https://nytimes.com/athletic/6186975/2025/03/08/mitch-marner-nhl-trade-deadline-maple-leafs/
+
+**How to Care for a Loved One With Dementia: 5 Expert Tips**\
+`Gene Hackman was cared for by his wife in his final years. Her unexpected death highlights the essential and challenging job of those who care for Alzheimer’s patients.`\
+https://nytimes.com/2025/03/08/us/dementia-alzheimers-care-gene-hackman.html
+
 **USMNT's Dest returns for PSV after 11-month absence following ACL injury**\
 `Dest came on as a 69th-minute substitute in Saturday's Eredivisie match against Heerenveen. It was his first appearance since April 2024.`\
 https://nytimes.com/athletic/6187109/2025/03/08/usmnt-sergino-dest-acl-injury-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6183095/2025/03/08/wrexham-rotherham-sam-smith-anal
 **Arkansas, Georgia pick up big bubble wins; Kentucky makes a statement at Mizzou**\
 `The SEC on Saturday took a big step toward a huge milestone: earning the most NCAA Tournament bids for a conference in a single season.`\
 https://nytimes.com/athletic/6186976/2025/03/08/sec-ncaa-tournament-kentucky-georgia-arkansas/
-
-**Former Ride-Share Driver Sentenced to 290 Years for Kidnapping a Dozen Women**\
-`John Pastor-Mendoza, a Lyft driver, falsely posed as the ride that the women had requested and targeted victims who appeared intoxicated, the Denver district attorney said.`\
-https://nytimes.com/2025/03/08/us/denver-rideshare-driver-sentence-women-assault.html
-
-**Barca vs Osasuna postponed after death of first-team doctor**\
-`The match was postponed less than 30 minutes before its scheduled start time at the request of Barca, after Carles Minarro Garcia's death.`\
-https://nytimes.com/athletic/6187007/2025/03/08/barcelona-osasuna-postponed-why-doctor-death/
 
