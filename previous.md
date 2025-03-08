@@ -1,3 +1,31 @@
+**Football's tightest title race: Six clubs separated by two points with 13 games left**\
+`This season's Spanish second tier has the closest championship battle anywhere in football - and the seven teams in it are all very even`\
+https://nytimes.com/athletic/6179827/2025/03/08/footballs-tightest-title-race-six-clubs-separated-by-two-points-and-a-seventh-in-the-mix/
+
+**With Drones and North Korean Troops, Russia Pushes Back Ukraine’s Offensive**\
+`Russia has retaken about two-thirds of the territory Ukraine seized last summer in the Kursk region of Russia, but at a fearful cost in lives.`\
+https://nytimes.com/2025/03/08/world/europe/ukraine-russia-north-korea-kursk.html
+
+**A Europe in Emotional Shock Grapples With a New Era**\
+`It remains to be seen how far President Trump’s embrace of Russia and abandonment of traditional allies will go. But “the West” may be gone.`\
+https://nytimes.com/2025/03/08/world/europe/a-europe-in-emotional-shock-grapples-with-a-new-era.html
+
+**The Hot Place to Be Seen for Young Indians: Book Festivals**\
+`From beaches to hilltops, young people are driving a boom in literary events as they read more in India’s dozens of native languages.`\
+https://nytimes.com/2025/03/08/world/asia/india-literature-festivals.html
+
+**Trump’s Tariffs Could Help Tesla, by Hurting Its Rivals More**\
+`The electric car company led by Elon Musk builds all the cars it sells in the United States in California and Texas, shielding it from tariffs that could devastate competitors.`\
+https://nytimes.com/2025/03/08/world/asia/trump-trade-musk-tesla.html
+
+**China Hits Canada With Tariffs in Indirect Riposte to Trump**\
+`Beijing, which set steep duties on canola, peas and pork, wants Canada and Mexico to resist U.S. pressure to raise tariffs on Chinese goods.`\
+https://nytimes.com/2025/03/08/business/china-tariffs-canada.html
+
+**Quote of the Day: Sonnet’s Ever-Fixèd Mark Did, Perchance, Move**\
+`Quotation of the Day for Saturday, March 8, 2025.`\
+https://nytimes.com/2025/03/07/pageoneplus/quote-of-the-day-sonnets-ever-fixed-mark-did-perchance-move.html
+
 **Yankees' Gerrit Cole to get diagnostic tests on elbow: Source**\
 `Cole didn't pitch until June 19 of last season due to inflammation and edema in his elbow.`\
 https://nytimes.com/athletic/6186098/2025/03/07/yankees-gerrit-cole-elbow-injury/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.htm
 **Spirit get redemption with 2025 Challenge Cup win over Pride**\
 `The Spirit won their first Challenge Cup trophy with the victory in penalty kicks.`\
 https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
-
-**Trump Seeks to Bar Student Loan Relief to Workers Aiding Migrants and Trans Kids**\
-`The president signed an order that would deny loan forgiveness to workers for groups engaged in “substantial illegal activities,” which it indicated included things like diversity initiatives.`\
-https://nytimes.com/2025/03/07/us/politics/trump-executive-order-student-loan-forgiveness.html
-
-**Dubas' second trade deadline with Penguins made sense — and didn't**\
-`The Penguins had a decent trade deadline, but hanging onto Rickard Rakell is questionable.`\
-https://nytimes.com/athletic/6185687/2025/03/07/penguins-kyle-dubas-nhl-trade-deadline-return/
-
-**After quiet deadline, how can Red Wings take the next step?**\
-`The Red Wings' lack of action at the deadline surfaced a bubbling dread over how much longer the franchise will have to keep waiting.`\
-https://nytimes.com/athletic/6185527/2025/03/07/red-wings-nhl-trade-deadline/
-
-**Took for a Ride**\
-`Joe Deeney’s crowd-pleasing puzzle reaches great heights.`\
-https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
-
-**An Oregon Family Vanished in 1958. Their Car May Have Been Found in a River.**\
-`The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
-https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
-
-**Newark Police Officer Is Killed and Another Is Injured in Shooting**\
-`Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
-https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html
-
-**Trump Offers to Reopen Nuclear Talks in a Letter to Iran’s Supreme Leader**\
-`The letter appears to be President Trump’s opening bid to see if a newly vulnerable Iran is willing to negotiate.`\
-https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
 
