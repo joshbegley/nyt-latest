@@ -1,3 +1,7 @@
+**Draymond Green's ongoing grudge against KAT: Fact vs. fiction**\
+`Green let his contempt lead him to surmise that KAT's absence from a game had something to do with his perceived fear of Jimmy Butler.`\
+https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-towns-grudge-facts-nba/
+
 **C.D.C. Will Investigate Debunked Link Between Vaccines and Autism**\
 `Dozens of studies have failed to find evidence of a link. The decision to re-examine the question comes as a measles outbreak, driven by low vaccinates rates, widens in Texas.`\
 https://nytimes.com/2025/03/07/health/vaccines-autism-cdc-rfk-jr.html
