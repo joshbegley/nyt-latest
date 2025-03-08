@@ -1,3 +1,7 @@
+**Trump Administration Sends Politically Charged Survey to Researchers**\
+`Scientists on overseas projects must say whether they work with communist governments and help combat “Christian persecution.”`\
+https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
+
 **Drance: Why Canucks' trade deadline paralysis is a shocking missed opportunity**\
 `Having declined to sell when it was so clearly sensible, the Canucks better make what's left of this season count.`\
 https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline-2025/
