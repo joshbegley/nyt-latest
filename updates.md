@@ -1,3 +1,23 @@
+**What Is Hantavirus, the Rare Disease That Killed Betsy Arakawa?**\
+`Ms. Arakawa, the wife of the actor Gene Hackman, died from the effects of a disease often caused by contact with droppings from infected rodents.`\
+https://nytimes.com/2025/03/07/health/what-is-hantavirus-gene-hackman-wife.html
+
+**'This group is special': Blue Jackets add Kunin but leave roster intact at deadline**\
+`Waddell said one of Columbus' top players told him that this group wants to "finish the job."`\
+https://nytimes.com/athletic/6184743/2025/03/07/blue-jackets-trade-waddell-kunin/
+
+**Fraternity Member Charged With Manslaughter in Hazing Death of University Student**\
+`Investigators say that Caleb Wilson, 20, a student at Southern University in Baton Rouge, La., collapsed after being hit with boxing gloves as part of a pledging ritual for Omega Psi Phi.`\
+https://nytimes.com/2025/03/07/us/southern-university-hazing-death-arrest.html
+
+**'It's a little scary': Flyers' Briere understands risk in trading Laughton, but it had to be done**\
+`This wasn't an ordinary trade for Briere, who understood Laughton's value in Philadelphia.`\
+https://nytimes.com/athletic/6185463/2025/03/07/flyers-laughton-trade-briere/
+
+**Senators trade deadline report card: Grading Steve Staios' moves**\
+`The Senators needed offensive help ahead of the trade deadline. They addressed it by adding Dylan Cozens, Fabian Zetterlund and more.`\
+https://nytimes.com/athletic/6172353/2025/03/07/senators-trade-deadline-report-card-2025/
+
 **Read The Brief That Recommends Dropping The Charges Against Eric Adams, Annotated**\
 `The amicus brief was written by Paul D. Clement, a noted conservative lawyer, at the behest of Federal District Judge Dale E. Ho.`\
 https://nytimes.com/interactive/2025/03/07/us/doc-annotation-adams-clement-brief.html
