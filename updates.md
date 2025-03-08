@@ -1,3 +1,7 @@
+**How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
+`Declining to sell in a historic seller's market is a significant risk. But the die is cast. This is Vancouver's team.`\
+https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
+
 **Kings scorch Nets to spoil De'Aaron Fox's return to Sacramento**\
 `The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
 https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
