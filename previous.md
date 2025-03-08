@@ -1,3 +1,19 @@
+**Inside Forest Q&A: Sangare and Aina's futures, gameplan for City, Yates for England?**\
+`We bring you an edited version of Paul Taylor's Friday Q&A, just in case you missed it...`\
+https://nytimes.com/athletic/6183923/2025/03/08/nottingham-forest-sangare-aina-manchester-city/
+
+**Hurzeler says Brighton aren't fit enough - and is using a 1980s runner as inspiration**\
+`Why the head coach has turned to a tenacious Olympian to push his team to new heights`\
+https://nytimes.com/athletic/6183136/2025/03/08/hurzeler-says-brighton-arent-fit-enough-and-is-using-a-1980s-runner-as-inspiration/
+
+**All Wembley hope is lost? Far from it as Newcastle 'circle the wagons' and work out Plan B**\
+`Eddie Howe has spent long days at the training ground coming up with solutions to recent setbacks`\
+https://nytimes.com/athletic/6179769/2025/03/08/all-wembley-hope-is-lost-far-from-it-as-newcastle-circle-the-wagons-and-work-out-plan-b/
+
+**The sisterhood fuelling a women's sport trailblazer: 'We call ourselves professional nepo sisters'**\
+`Ilona Maher's spell in British rugby broke new ground. Her authentic star power has rubbed off on her family too`\
+https://nytimes.com/athletic/6180792/2025/03/08/ilona-maher-rugby-olympics-family/
+
 **Premier League fans are revolting - but for very different reasons**\
 `Tensions that have simmered for months are threatening to boil over as the season reaches its climax`\
 https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-money/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-f
 **Football's tightest title race: Six clubs separated by two points with 13 games left**\
 `This season's Spanish second tier has the closest championship battle anywhere in football - and the seven teams in it are all very even`\
 https://nytimes.com/athletic/6179827/2025/03/08/footballs-tightest-title-race-six-clubs-separated-by-two-points-and-a-seventh-in-the-mix/
-
-**With Drones and North Korean Troops, Russia Pushes Back Ukraine’s Offensive**\
-`Russia has retaken about two-thirds of the territory Ukraine seized last summer in the Kursk region of Russia, but at a fearful cost in lives.`\
-https://nytimes.com/2025/03/08/world/europe/ukraine-russia-north-korea-kursk.html
-
-**A Europe in Emotional Shock Grapples With a New Era**\
-`It remains to be seen how far President Trump’s embrace of Russia and abandonment of traditional allies will go. But “the West” may be gone.`\
-https://nytimes.com/2025/03/08/world/europe/a-europe-in-emotional-shock-grapples-with-a-new-era.html
-
-**The Hot Place to Be Seen for Young Indians: Book Festivals**\
-`From beaches to hilltops, young people are driving a boom in literary events as they read more in India’s dozens of native languages.`\
-https://nytimes.com/2025/03/08/world/asia/india-literature-festivals.html
-
-**Trump’s Tariffs Could Help Tesla, by Hurting Its Rivals More**\
-`The electric car company led by Elon Musk builds all the cars it sells in the United States in California and Texas, shielding it from tariffs that could devastate competitors.`\
-https://nytimes.com/2025/03/08/world/asia/trump-trade-musk-tesla.html
 
