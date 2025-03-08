@@ -1,3 +1,11 @@
+**Johannes Hoesflot Klaebo, Norway's cross-country king, completes historic feat at worlds**\
+`Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
+https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
+
+**Bills, DE Greg Rousseau agree to 4-year, $80 million extension: Source**\
+`Rousseau is the third player the Bills have signed to a long-term extension this offseason.`\
+https://nytimes.com/athletic/6186743/2025/03/08/bills-greg-rousseau-contract-extension-nfl-news/
+
 **Frank Saucier, Slugger Sidelined by a Publicity Stunt, Dies at 98**\
 `He had just recently joined the St. Louis Browns when he was replaced in the lineup by Eddie Gaedel, a 3-foot-7 circus performer, in a game in 1951.`\
 https://nytimes.com/2025/03/08/sports/baseball/frank-saucier-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/08/dining/chicken-curry-laksa.html
 **At Least 12 Injured in Toronto Pub Shooting**\
 `The pub, Piper Arms, was hosting its opening night on Friday when three men walked in and “opened fire indiscriminately” before escaping by car, the police said.`\
 https://nytimes.com/2025/03/08/world/canada/toronto-pub-shooting.html
-
-**Lakers' JJ Redick, Celtics' Joe Mazzulla share mutual respect as 'basketball sickos'**\
-`Mazzulla twice tried to convince Redick to join his Celtics staff. Tonight, they'll meet as opposing head coaches for the second time.`\
-https://nytimes.com/athletic/6176354/2025/03/08/jj-redick-joe-mazzulla-lakers-celtics/
-
-**Arizona State women's hoops fires Natasha Adair after 3 seasons: Sources**\
-`The Sun Devils moved to the Big 12 this year and went 3-15, finishing second-to-last and losing to Iowa State in the conference tournament.`\
-https://nytimes.com/athletic/6186477/2025/03/08/arizona-state-natasha-adair-fired/
 

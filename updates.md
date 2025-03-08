@@ -1,3 +1,11 @@
+**Johannes Hoesflot Klaebo, Norway's cross-country king, completes historic feat at worlds**\
+`Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
+https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
+
+**Bills, DE Greg Rousseau agree to 4-year, $80 million extension: Source**\
+`Rousseau is the third player the Bills have signed to a long-term extension this offseason.`\
+https://nytimes.com/athletic/6186743/2025/03/08/bills-greg-rousseau-contract-extension-nfl-news/
+
 **Frank Saucier, Slugger Sidelined by a Publicity Stunt, Dies at 98**\
 `He had just recently joined the St. Louis Browns when he was replaced in the lineup by Eddie Gaedel, a 3-foot-7 circus performer, in a game in 1951.`\
 https://nytimes.com/2025/03/08/sports/baseball/frank-saucier-dead.html
