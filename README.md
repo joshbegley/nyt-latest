@@ -1,3 +1,7 @@
+**Nuggets' Nikola Jokić has first 30/20/20 game in NBA history**\
+`Jokić finished with 31 points, 21 rebounds and a season-high 22 assists in Denver's OT win over the Suns.`\
+https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nuggets-suns/
+
 **Kings scorch Nets to spoil De'Aaron Fox's return to Sacramento**\
 `The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
 https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6179769/2025/03/08/all-wembley-hope-is-lost-far-fro
 **The sisterhood fuelling a women's sport trailblazer: 'We call ourselves professional nepo sisters'**\
 `Ilona Maher's spell in British rugby broke new ground. Her authentic star power has rubbed off on her family too`\
 https://nytimes.com/athletic/6180792/2025/03/08/ilona-maher-rugby-olympics-family/
-
-**Premier League fans are revolting - but for very different reasons**\
-`Tensions that have simmered for months are threatening to boil over as the season reaches its climax`\
-https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-money/
 
