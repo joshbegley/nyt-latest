@@ -1,3 +1,15 @@
+**Fraternity Member Charged With Manslaughter in Hazing Death of University Student**\
+`Investigators say that Caleb Wilson, 20, a student at Southern University in Baton Rouge, La., collapsed after being hit with boxing gloves as part of a pledging ritual for Omega Psi Phi.`\
+https://nytimes.com/2025/03/07/us/southern-university-hazing-death-arrest.html
+
+**'It's a little scary': Flyers' Briere understands risk in trading Laughton, but it had to be done**\
+`This wasn't an ordinary trade for Briere, who understood Laughton's value in Philadelphia.`\
+https://nytimes.com/athletic/6185463/2025/03/07/flyers-laughton-trade-briere/
+
+**Senators trade deadline report card: Grading Steve Staios' moves**\
+`The Senators needed offensive help ahead of the trade deadline. They addressed it by adding Dylan Cozens, Fabian Zetterlund and more.`\
+https://nytimes.com/athletic/6172353/2025/03/07/senators-trade-deadline-report-card-2025/
+
 **Read The Brief That Recommends Dropping The Charges Against Eric Adams, Annotated**\
 `The amicus brief was written by Paul D. Clement, a noted conservative lawyer, at the behest of Federal District Judge Dale E. Ho.`\
 https://nytimes.com/interactive/2025/03/07/us/doc-annotation-adams-clement-brief.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6183380/2025/03/07/maple-leafs-trade-deadline-repor
 **What the Recent Cabinet Blowup Means for Musk**\
 `A billionaire who likes to have control could face some limits.`\
 https://nytimes.com/2025/03/07/us/politics/musk-trump-cabinet-meeting.html
-
-**Bruins trade deadline report card: Grading Don Sweeney's moves**\
-`How did the Bruins do on deadline week? A look at their moves and how they set up the lineup, with Fluto Shinzawa's early analysis.`\
-https://nytimes.com/athletic/6172065/2025/03/07/bruins-trade-deadline-report-card/
-
-**In ‘The Seagull,’ Cate Blanchett Outshines a Director’s Tired Tropes**\
-`Thanks to Blanchett’s charismatic turn as a fading actress, this new Chekhov adaptation in London hangs together in spite of Thomas Ostermeier’s antics.`\
-https://nytimes.com/2025/03/07/theater/blanchett-corrin-the-seagull-review.html
-
-**U.S. Investigates Egg Producers Over Soaring Prices**\
-`The Justice Department inquiry is said to be focused on potential antitrust violations among the country’s largest egg producers.`\
-https://nytimes.com/2025/03/07/business/us-investigates-egg-producers-over-soaring-prices.html
 
