@@ -1,3 +1,7 @@
+**Lakers' JJ Redick, Celtics' Joe Mazzulla share mutual respect as 'basketball sickos'**\
+`Mazzulla twice tried to convince Redick to join his Celtics staff. Tonight, they'll meet as opposing head coaches for the second time.`\
+https://nytimes.com/athletic/6176354/2025/03/08/jj-redick-joe-mazzulla-lakers-celtics/
+
 **JJ Redick and Joe Mazzulla share a mutual respect as friends and as 'basketball sickos'**\
 `Mazzulla twice tried to convince Redick to join his Celtics staff. Tonight, they'll meet as opposing head coaches for the second time.`\
 https://nytimes.com/athletic/6176354/2025/03/08/jj-redick-joe-mazzulla-lakers-celtics/
