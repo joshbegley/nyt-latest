@@ -1,3 +1,7 @@
+**Nottingham Forest 1 Manchester City 0: Hudson-Odoi's knockout blow, where does it leave Euro chase?**\
+`Nottingham Forest beat Manchester City with a late goal to take a step closer to European qualification.`\
+https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-city-0-result-premier-league/
+
 **Gwen McCrae, Singer Who Helped Open the Dance Floor to Disco, Dies at 81**\
 `Originally a gospel singer, she went on to meld soulful melodies with dance-floor-friendly grooves on songs like the 1975 Top 10 hit “Rockin’ Chair.”`\
 https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185097/2025/03/08/maple-leafs-scott-laughton-trade
 **Rutherford: The Blues did the right thing by standing pat at the NHL trade deadline**\
 `Blues general manager Doug Armstrong didn't make any moves at the NHL trade deadline, and that was the right call.`\
 https://nytimes.com/athletic/6183902/2025/03/08/blues-nhl-trade-deadline-analysis/
-
-**Trump Wants to Kill Carried Interest. Wall Street Will Fight to Keep It.**\
-`President Trump has been trying to eliminate the tax loophole, which benefits Wall Street, but Congressional Republicans may stand in the way.`\
-https://nytimes.com/2025/03/08/business/dealbook/trump-carried-interest.html
 
