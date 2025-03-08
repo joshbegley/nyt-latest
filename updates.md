@@ -1,3 +1,7 @@
+**Yankees' Gerrit Cole to get diagnostic tests on elbow: Source**\
+`Cole didn't pitch until June 19 of last season due to inflammation and edema in his elbow.`\
+https://nytimes.com/athletic/6186098/2025/03/07/yankees-gerrit-cole-elbow-injury/
+
 **Justice Department Accuses Adams Prosecutors of Politicking and Hypocrisy**\
 `In a court filing, two top officials released prosecutors’ internal messages in a further attempt to discredit the case against the mayor of New York.`\
 https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.html
