@@ -1,3 +1,7 @@
+**Justice Department Accuses Adams Prosecutors of Politicking and Hypocrisy**\
+`In a court filing, two top officials released prosecutors’ internal messages in a further attempt to discredit the case against the mayor of New York.`\
+https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.html
+
 **Spirit get redemption with 2025 Challenge Cup win over Pride**\
 `The Spirit won their first Challenge Cup trophy with the victory in penalty kicks.`\
 https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
