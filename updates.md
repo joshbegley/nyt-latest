@@ -1,3 +1,23 @@
+**If You Have to Ask About This Harlem Dinner Party, You’re Not Invited**\
+`Members-only clubs and private restaurants have become powerhouses for socializing and networking. But there are some spaces you can’t buy your way into.`\
+https://nytimes.com/2025/03/08/nyregion/if-you-have-to-ask-about-this-harlem-dinner-party-youre-not-invited.html
+
+**How a Sculptor Spends His Sundays**\
+`Sergio Furnari doesn’t need an alarm for a day of creating art, eating with his daughter and watching the movies in his mind.`\
+https://nytimes.com/2025/03/08/nyregion/sergio-furnari-sculptures.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/08/crosswords/spelling-bee-forum.html
+
+**What You Will Want to Wear Next**\
+`Sarah Burton says goodbye to the ghost of Audrey Hepburn at Givenchy`\
+https://nytimes.com/2025/03/08/style/sarah-burton-givenchy-fall-2025.html
+
+**Kings scorch Spurs to spoil De'Aaron Fox's return to Sacramento**\
+`The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
+https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
+
 **Golden Knights change strategy at deadline, but Reilly Smith has them feeling nostalgic**\
 `Vegas previously operated aggressively, but a quiet deadline featuring Smith may be exactly what the team needs.`\
 https://nytimes.com/athletic/6186242/2025/03/08/golden-knights-reilly-smith-nhl-trade/
