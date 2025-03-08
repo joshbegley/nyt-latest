@@ -1,3 +1,7 @@
+**Frank Saucier, Slugger Sidelined by a Publicity Stunt, Dies at 98**\
+`He had just recently joined the St. Louis Browns when he was replaced in the lineup by Eddie Gaedel, a 3-foot-7 circus performer, in a game in 1951.`\
+https://nytimes.com/2025/03/08/sports/baseball/frank-saucier-dead.html
+
 **Mike Gesicki re-signing with Bengals on 3-year, $25.5 million deal**\
 `Gesicki enjoyed a bounce-back season with the Bengals in 2024 after a disappointing year with the Patriots in 2023.`\
 https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing-bengals-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6176354/2025/03/08/jj-redick-joe-mazzulla-lakers-ce
 **Arizona State women's hoops fires Natasha Adair after 3 seasons: Sources**\
 `The Sun Devils moved to the Big 12 this year and went 3-15, finishing second-to-last and losing to Iowa State in the conference tournament.`\
 https://nytimes.com/athletic/6186477/2025/03/08/arizona-state-natasha-adair-fired/
-
-**Nottingham Forest 1 Manchester City 0: Hudson-Odoi's knockout blow, where does it leave Euro chase?**\
-`Nottingham Forest beat Manchester City with a late goal to take a step closer to European qualification.`\
-https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-city-0-result-premier-league/
 
