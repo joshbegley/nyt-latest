@@ -1,3 +1,15 @@
+**Purdue player says brother faced racist comments from Illinois fans**\
+`Kaufman-Renn said the comments occurred during No. 18 Purdue’s 88-80  loss at Illinois.`\
+https://nytimes.com/athletic/6186794/2025/03/08/trey-kaufman-renn-purdue-illinois-racist-comments/
+
+**Kompany 'not looking for excuses' after Bayern lose at home to Bochum**\
+`Raphael Guerriero scored twice for Bayern inside 28 minutes to seemingly put them in control at home to the Bundesliga's 16th-placed side.`\
+https://nytimes.com/athletic/6186835/2025/03/08/bayern-bochum-vincent-kompany/
+
+**Marquise Brown returning to Chiefs on 1-year deal worth up to $11 million**\
+`Over six seasons, Brown has played for three teams in the Ravens, Cardinals and Chiefs.`\
+https://nytimes.com/athletic/6180584/2025/03/08/marquise-brown-chiefs-free-agency-2025/
+
 **After trade deadline, Kings are left with a familiar roster — and not much hope**\
 `The Kings are hoping for a different playoff result this year. GM Rob Blake's quiet trade deadline makes it hard to see. `\
 https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nhl/
