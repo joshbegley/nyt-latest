@@ -1,3 +1,11 @@
+**Pearce 'not just a legend, part of the family' says Nuno after reported health scare**\
+`Pearce, 62, suffered a medical emergency on a flight to Las Vegas, per a report in The Sun.`\
+https://nytimes.com/athletic/6186613/2025/03/08/stuart-pearce-nottingham-forest-nuno/
+
+**There Is One Tried and True Way to Keep Birthrates Falling**\
+`Shaming child-free people doesn’t raise the birthrate. In fact, it might depress it.`\
+https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
+
 **How Gorgeous Is This Chicken Curry Laksa?**\
 `The coconut milk broth is spicy, savory and rich, but not heavy, and based on the curry laksa found at hawker centers in Malaysia and Singapore.`\
 https://nytimes.com/2025/03/08/dining/chicken-curry-laksa.html

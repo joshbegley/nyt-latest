@@ -1,3 +1,7 @@
+**Pearce 'not just a legend, part of the family' says Nuno after reported health scare**\
+`Pearce, 62, suffered a medical emergency on a flight to Las Vegas, per a report in The Sun.`\
+https://nytimes.com/athletic/6186613/2025/03/08/stuart-pearce-nottingham-forest-nuno/
+
 **How Gorgeous Is This Chicken Curry Laksa?**\
 `The coconut milk broth is spicy, savory and rich, but not heavy, and based on the curry laksa found at hawker centers in Malaysia and Singapore.`\
 https://nytimes.com/2025/03/08/dining/chicken-curry-laksa.html
@@ -30,11 +34,7 @@ https://nytimes.com/live/2025/03/08/us/trump-news
 `The seamless, poreless, sanitized effigy of a capitalist titan was a startling piece of marketing for Skims.`\
 https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
 
-**Shaming Child-Free People Doesn’t Raise the Birthrate**\
-`In fact, it might depress it.`\
+**There Is One Tried and True Way to Keep Birthrates Falling**\
+`Shaming child-free people doesn’t raise the birthrate. In fact, it might depress it.`\
 https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
-
-**'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
-`Conley validated his spot in the starting lineup against the Heat, scoring 15 points in 25 minutes of a tense 106-104 win.`\
-https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
 
