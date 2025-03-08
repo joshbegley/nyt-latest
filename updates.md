@@ -1,3 +1,7 @@
+**Drance: Why Canucks' trade deadline paralysis is a shocking missed opportunity**\
+`Having declined to sell when it was so clearly sensible, the Canucks better make what's left of this season count.`\
+https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline-2025/
+
 **Buccaneers ink LB Lavonte David to 1-year deal for 14th NFL season**\
 `The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
 https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-ink-veteran-lb-lavonte-david-to-1-year-deal-to-return-for-14th-season/
