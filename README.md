@@ -1,3 +1,11 @@
+**Duke upsets Notre Dame 61-56 in ACC semifinals**\
+`The Irish have dropped three of their last five games, eliminating their chances for an outright ACC regular-season title.`\
+https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
+
+**Alabama exacts revenge, knocks off rival Auburn in OT thriller**\
+`Mark Sears' floater as time expired lifted Alabama over rival Auburn, 93-91.`\
+https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
+
 **NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
 `Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket on Saturday.`\
 https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6187178/2025/03/08/mikko-rantanen-nhl-trade-deadlin
 **Joan Dye Gussow, Pioneer of Eating Locally, Is Dead at 96**\
 `An indefatigable gardener, she was concerned, a colleague said, with “all the things that have to happen for us to get our food.”`\
 https://nytimes.com/2025/03/08/science/joan-gussow-dead.html
-
-**Conceicao praises 'very intelligent' Pulisic after two goals in Milan comeback**\
-`With Milan 2-1 down at Lecce, Pulisic equalised in the 73rd minute from a penalty before scoring the winning goal eight minutes later.`\
-https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-lecce/
-
-**Braves' Jurickson Profar injures left wrist on diving catch attempt**\
-`Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
-https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
 
