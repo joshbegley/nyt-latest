@@ -1,3 +1,15 @@
+**What the Recent Cabinet Blowup Means for Musk**\
+`A billionaire who likes to have control could face some limits`\
+https://nytimes.com/2025/03/07/us/politics/musk-trump-cabinet-meeting.html
+
+**Bruins trade deadline report card: Grading Don Sweeney's moves**\
+`How did the Bruins do on deadline week? A look at their moves and how they set up the lineup, with Fluto Shinzawa's early analysis.`\
+https://nytimes.com/athletic/6172065/2025/03/07/bruins-trade-deadline-report-card/
+
+**In ‘The Seagull,’ Cate Blanchett Outshines a Director’s Tired Tropes**\
+`Thanks to Blanchett’s charismatic turn as a fading actress, this new Chekhov adaptation in London hangs together in spite of Thomas Ostermeier’s antics.`\
+https://nytimes.com/2025/03/07/theater/blanchett-corrin-the-seagull-review.html
+
 **U.S. Investigates Egg Producers Over Soaring Prices**\
 `The Justice Department inquiry is said to be focused on potential antitrust violations among the country’s largest egg producers.`\
 https://nytimes.com/2025/03/07/business/us-investigates-egg-producers-over-soaring-prices.html
