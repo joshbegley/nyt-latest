@@ -1,3 +1,7 @@
+**Spirit get redemption with 2025 Challenge Cup win over Pride**\
+`The Spirit won their first Challenge Cup trophy with the victory in penalty kicks.`\
+https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
+
 **Spirit gets redemption with 2025 Challenge Cup win over Pride**\
 `Spirit won its first Challenge Cup trophy with the victory`\
 https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
