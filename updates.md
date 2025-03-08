@@ -1,4 +1,8 @@
 **Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
+`In 1968, he became the first Black person to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
+https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
+
+**Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
 `In 1968, he became the first Black citizen to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
 https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
 
