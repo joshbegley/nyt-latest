@@ -1,3 +1,7 @@
+**Mikko Rantanen on deadline whirlwind, Hurricanes and why Stars are a 'better fit'**\
+`Unlike with his trade to Carolina, Rantanen was involved in the decision of him going to Dallas and signing an 8-year, $96 million contract.`\
+https://nytimes.com/athletic/6187178/2025/03/08/mikko-rantanen-nhl-trade-deadline-stars-hurricanes/
+
 **Joan Dye Gussow, Pioneer of Eating Locally, Is Dead at 96**\
 `An indefatigable gardener, she was concerned, a colleague said, with “all the things that have to happen for us to get our food.”`\
 https://nytimes.com/2025/03/08/science/joan-gussow-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
 **Iran’s Leader Rebuffs Trump’s Outreach Over Its Nuclear Program**\
 `Ayatollah Ali Khamenei decried “bullying governments” in an apparent response to a letter the White House sent to Iran earlier in the week.`\
 https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-response.html
-
-**Climate Nonprofit Sues E.P.A. Over Billions in Frozen Funds**\
-`In a lawsuit, Climate United claims the E.P.A. is illegally withholding funds that have become a target of the Trump administration.`\
-https://nytimes.com/2025/03/08/climate/epa-climate-funds-lawsuit.html
 

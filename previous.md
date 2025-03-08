@@ -1,3 +1,7 @@
+**Joan Dye Gussow, Pioneer of Eating Locally, Is Dead at 96**\
+`An indefatigable gardener, she was concerned, a colleague said, with “all the things that have to happen for us to get our food.”`\
+https://nytimes.com/2025/03/08/science/joan-gussow-dead.html
+
 **Conceicao praises 'very intelligent' Pulisic after two goals in Milan comeback**\
 `With Milan 2-1 down at Lecce, Pulisic equalised in the 73rd minute from a penalty before scoring the winning goal eight minutes later.`\
 https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-lecce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-r
 **Climate Nonprofit Sues E.P.A. Over Billions in Frozen Funds**\
 `In a lawsuit, Climate United claims the E.P.A. is illegally withholding funds that have become a target of the Trump administration.`\
 https://nytimes.com/2025/03/08/climate/epa-climate-funds-lawsuit.html
-
-**How Matt Sauer got himself onto the Dodgers' Tokyo travel roster: 'It was awesome'**\
-`"I honestly didn’t even know how to react," Sauer said, describing feeling pure shock as he walked off the mound.`\
-https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
 

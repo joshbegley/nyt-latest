@@ -1,3 +1,7 @@
+**Joan Dye Gussow, Pioneer of Eating Locally, Is Dead at 96**\
+`An indefatigable gardener, she was concerned, a colleague said, with “all the things that have to happen for us to get our food.”`\
+https://nytimes.com/2025/03/08/science/joan-gussow-dead.html
+
 **Conceicao praises 'very intelligent' Pulisic after two goals in Milan comeback**\
 `With Milan 2-1 down at Lecce, Pulisic equalised in the 73rd minute from a penalty before scoring the winning goal eight minutes later.`\
 https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-lecce/
