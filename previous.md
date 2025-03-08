@@ -1,3 +1,7 @@
+**U.S. Judge Finds China Liable for Covid Missteps, Imposes $24 Billion Penalty**\
+`The judgment was issued in a case brought by the Missouri attorney general. The Chinese government did not respond to the claims in court.`\
+https://nytimes.com/2025/03/07/us/missouri-china-covid-judgment.html
+
 **Lou Lamoriello did the right thing at the deadline — but did he do enough?**\
 `Lamoriello finally embraced change, but it's hard to shake the nagging feeling that he should have done more.`\
 https://nytimes.com/athletic/6185524/2025/03/07/islanders-nhl-trade-deadline-lou-lamoriello/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6185097/2025/03/07/maple-leafs-scott-laughton-trade
 `As a paragon of the New Jack Swing sound, the band recorded three platinum albums and a slew of hits, including “Feels Good.”`\
 https://nytimes.com/2025/03/07/arts/music/dwayne-wiggins-dead.html
 
-**‘Needed to turn the page’: The Bruins begin a new era with a roster-smashing deadline day**\
+**‘Needed to turn the page’: Bruins begin new era with roster-smashing deadline day**\
 `Boston general manager Don Sweeney explained a startling trade-deadline overhaul that left his team unrecognizable.`\
 https://nytimes.com/athletic/6185738/2025/03/07/bruins-trade-deadline-overhaul-marchand-coyle-carlo/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline
 **Buccaneers, veteran LB Lavonte David agree to 1-year deal**\
 `The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
 https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-lavonte-david-deal-14th-season/
-
-**Wild GM Bill Guerin on not pulling LTIR lever while rivals bulked up at deadline: 'Our time will come'**\
-`Guerin explained the team's inaction compared to the Avalanche and Stars: "We’re just at a different stage than those teams."`\
-https://nytimes.com/athletic/6185542/2025/03/07/wild-trade-deadline-ltir-bill-guerin/
 

@@ -1,3 +1,11 @@
+**U.S. Judge Finds China Liable for Covid Missteps, Imposes $24 Billion Penalty**\
+`The judgment was issued in a case brought by the Missouri attorney general. The Chinese government did not respond to the claims in court.`\
+https://nytimes.com/2025/03/07/us/missouri-china-covid-judgment.html
+
+**‘Needed to turn the page’: Bruins begin new era with roster-smashing deadline day**\
+`Boston general manager Don Sweeney explained a startling trade-deadline overhaul that left his team unrecognizable.`\
+https://nytimes.com/athletic/6185738/2025/03/07/bruins-trade-deadline-overhaul-marchand-coyle-carlo/
+
 **Lou Lamoriello did the right thing at the deadline — but did he do enough?**\
 `Lamoriello finally embraced change, but it's hard to shake the nagging feeling that he should have done more.`\
 https://nytimes.com/athletic/6185524/2025/03/07/islanders-nhl-trade-deadline-lou-lamoriello/
