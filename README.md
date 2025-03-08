@@ -1,40 +1,40 @@
-**Impeached South Korean President Released From Jail**\
-`The move comes after a court ruled that the detention of President Yoon Suk Yeol was invalid, but won’t affect the insurrection and other charges he faces for declaring martial law.`\
-https://nytimes.com/2025/03/08/world/asia/south-korea-president-yoon-freed.html
+**Xavi says he'd be open to managing another La Liga side**\
+`Xavi was sacked by Barcelona last May, having previously spent more than 25 years there as a player and a coach.`\
+https://nytimes.com/athletic/6186356/2025/03/08/xavi-manager-next-barcelona/
 
-**If You Have to Ask About This Harlem Dinner Party, You’re Not Invited**\
-`Members-only clubs and private restaurants have become powerhouses for socializing and networking. But there are some spaces you can’t buy your way into.`\
-https://nytimes.com/2025/03/08/nyregion/if-you-have-to-ask-about-this-harlem-dinner-party-youre-not-invited.html
+**Rams mock draft 2.0: They might add a WR in free agency, but still look to draft one**\
+`The Rams could be players for a receiver in free agency, but that won't keep them from looking close at the position in the draft.`\
+https://nytimes.com/athletic/6185074/2025/03/08/rams-mock-draft-first-round-receiver/
 
-**How a Sculptor Spends His Sundays**\
-`Sergio Furnari doesn’t need an alarm for a day of creating art, eating with his daughter and watching the movies in his mind.`\
-https://nytimes.com/2025/03/08/nyregion/sergio-furnari-sculptures.html
+**How Eric Adams Lost New York**\
+`He promised law and order. Instead, his scandal-ridden mayoralty became a symbol — and engine — of the city’s chaos.`\
+https://nytimes.com/2025/03/08/magazine/eric-adams-mayor-nyc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/08/crosswords/spelling-bee-forum.html
+**A Haunting Coda: The 7 Days Gene Hackman’s Wife Could No Longer Care for Him**\
+`The exact details may never be known, but Mr. Hackman, 95 with advanced Alzheimer’s, was alone for about a week after his wife and sole caregiver died.`\
+https://nytimes.com/2025/03/08/us/gene-hackman-betsy-arakawa.html
 
-**What You Will Want to Wear Next**\
-`Sarah Burton says goodbye to the ghost of Audrey Hepburn at Givenchy`\
-https://nytimes.com/2025/03/08/style/sarah-burton-givenchy-fall-2025.html
+**Twin Test Flight Explosions Show SpaceX Is No Longer Defying Gravity**\
+`Consecutive losses of the Starship rocket suggest that the company’s engineers are not as infallible as its fans may think.`\
+https://nytimes.com/2025/03/08/science/starship-spacex-explosion-elon-musk.html
 
-**Golden Knights change strategy at deadline, but Reilly Smith has them feeling nostalgic**\
-`Vegas previously operated aggressively, but a quiet deadline featuring Smith may be exactly what the team needs.`\
-https://nytimes.com/athletic/6186242/2025/03/08/golden-knights-reilly-smith-nhl-trade/
+**Elon Musk Is Making Republicans Sweat and Giving Democrats a New Target**\
+`His unusual governing arrangement with President Trump is opening Republicans up to being yoked politically to Mr. Musk, who polls show is broadly unpopular.`\
+https://nytimes.com/2025/03/08/us/politics/elon-musk-trump-politics.html
 
-**Alfred, No Longer a Tropical Cyclone, Still Threatens Australia With Flooding**\
-`One man died in floodwaters, and officials said parts of the country’s east coast south of Brisbane were still at risk.`\
-https://nytimes.com/2025/03/08/world/australia/cyclone-alfred-flooding.html
+**Trump’s Affinity for Putin Grows More Consequential Than Ever**\
+`President Trump’s admiration for President Vladimir Putin of Russia has been endlessly dissected, but the American leader’s policy shifts since taking office again could have profound effects.`\
+https://nytimes.com/2025/03/08/us/politics/trumps-affinity-for-putin-grows-more-consequential-than-ever.html
 
-**Wild dominate in Vancouver, but Lankinen and a bad shift cost them: 3 takeaways**\
-`Three hit goal posts and one bad late third-period shift cost the Wild during a 3-1 defeat at Rogers Arena on Friday.`\
-https://nytimes.com/athletic/6185989/2025/03/08/wild-canucks-kevin-lankinen-result-takeaways/
+**19 Ways Congressional Tax Action (or Inaction) Could Hit Your Wallet**\
+`Brackets may change. The standard deduction could fall. And President Trump will probably not remove taxes on Social Security income.`\
+https://nytimes.com/2025/03/08/business/tax-bill-social-security-income.html
 
-**Nuggets' Nikola Jokić has first 30/20/20 game in NBA history**\
-`Jokić finished with 31 points, 21 rebounds and a season-high 22 assists in Denver's OT win over the Suns.`\
-https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nuggets-suns/
+**Why You Should Sign Up for the I.R.S.’s Identity Theft Prevention Tool**\
+`With employees from the so-called Department of Government Efficiency poking around in agency systems, faith in data security isn’t what it once was. The tool, an identity protection PIN, can help.`\
+https://nytimes.com/2025/03/08/your-money/irs-pin-identity-theft.html
 
-**Kings scorch Spurs to spoil De'Aaron Fox's return to Sacramento**\
-`The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
-https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
+**Scammers Stole Their Savings, and Then the Tax Bill Arrived**\
+`The victims pulled money out of their retirement accounts. The withdrawals had inflated their taxable income, even though the funds quickly disappeared.`\
+https://nytimes.com/2025/03/08/your-money/taxes-retirement-withdrawal-scam.html
 
