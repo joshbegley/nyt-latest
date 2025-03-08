@@ -1,3 +1,19 @@
+**Premier League fans are revolting - but for very different reasons**\
+`Tensions that have simmered for months are threatening to boil over as the season reaches its climax`\
+https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-money/
+
+**Who should perform in the halftime show of the 2026 World Cup final?**\
+`The World Cup final will have a half-time show for the first time in 2026. So who should perform?`\
+https://nytimes.com/athletic/6183513/2025/03/08/half-time-show-world-cup-final-2026/
+
+**Listen: Were Manchester United right to go public about 'Project 150'?**\
+`Talk of the Devils discuss whether Manchester United were right to go public with its "Mission 21" and "Mission 1" initiatives`\
+https://nytimes.com/athletic/6180895/2025/03/08/talk-of-the-devils-manchester-united-podcast-mission-21/
+
+**Why has a team never scored 10 goals in a Premier League game?**\
+`Top-flight teams have racked up nine goals on five occasions since the division was revamped in 1992, but have never managed double figures`\
+https://nytimes.com/athletic/6183196/2025/03/08/10-goals-premier-league-why/
+
 **Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
 `Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
 https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
