@@ -1,3 +1,7 @@
+**The Maple Leafs got better at the trade deadline. But was it enough?**\
+`The Leafs picked up their right-handed defenceman and depth centre. The moves' effectiveness will play out in time.`\
+https://nytimes.com/athletic/6185926/2025/03/08/maple-leafs-treliving-laughton-carlo-trade-deadline/
+
 **Rutherford: The Blues did the right thing by standing pat at the NHL trade deadline**\
 `Blues general manager Doug Armstrong didn't make any moves at the NHL trade deadline, and that was the right call.`\
 https://nytimes.com/athletic/6183902/2025/03/08/blues-nhl-trade-deadline-analysis/
@@ -25,10 +29,6 @@ https://nytimes.com/athletic/6181537/2025/03/08/maple-leafs-avalanche-scott-laug
 **The Oilers are improved but did they do enough before trade deadline?**\
 `Overall, it’s solid but not spectacular work by Jeff Jackson, Stan Bowman and the Oilers' management and scouting groups.`\
 https://nytimes.com/athletic/6185450/2025/03/08/oilers-nhl-trade-deadline-2025/
-
-**The Maple Leafs got better at the trade deadline. But was it enough?**\
-`The Leafs picked up their right-handed defenceman and depth centre. The moves' effectiveness will play out in time.`\
-https://nytimes.com/athletic/6185926/2025/03/08/maple-leafs-treliving-laughton-carlo-trade-deadline/
 
 **Why Senators' emotions about Josh Norris trade a reality check for young core**\
 `A move like this was almost inevitable as the Sens venture forward in their hopes of being bona fide contenders.`\
