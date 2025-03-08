@@ -1,3 +1,11 @@
+**With Wilyer Abreu likely to miss the opener, Kristian Campbell is seeing more outfield time**\
+`The Red sox open their season in Texas in 20 days, and time is running out for Abreu to make the Opening Day roster.`\
+https://nytimes.com/athletic/6185289/2025/03/07/wilyer-abreu-red-sox-opener-kristian-campbell/
+
+**Buccaneers, veteran LB Lavonte David agree to 1-year deal**\
+`The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
+https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-ink-veteran-lb-lavonte-david-to-1-year-deal-to-return-for-14th-season/
+
 **Trump Administration Sends Politically Charged Survey to Researchers**\
 `Scientists on overseas projects must say whether they work with communist governments and help combat “Christian persecution.”`\
 https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
