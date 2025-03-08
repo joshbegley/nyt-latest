@@ -1,3 +1,7 @@
+**Science, Politics and Anxiety Mix at Rally Under Lincoln Memorial**\
+`Thousands of protesters gathered in Washington for Stand Up for Science, a rally in response to President Trump’s federal-funding and job cuts.`\
+https://nytimes.com/2025/03/08/science/march-for-science-trump-protest.html
+
 **Pearce 'not just a legend, part of the family' says Nuno after reported health scare**\
 `Pearce, 62, suffered a medical emergency on a flight to Las Vegas, per a report in The Sun.`\
 https://nytimes.com/athletic/6186613/2025/03/08/stuart-pearce-nottingham-forest-nuno/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/08/us/trump-news
 **About That Giant Kim Kardashian in Times Square**\
 `The seamless, poreless, sanitized effigy of a capitalist titan was a startling piece of marketing for Skims.`\
 https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
-
-**There Is One Tried and True Way to Keep Birthrates Falling**\
-`Shaming child-free people doesn’t raise the birthrate. In fact, it might depress it.`\
-https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
 
