@@ -1,3 +1,15 @@
+**How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
+`Declining to sell in a historic sellers' market is a significant risk. But the die is cast. This is Vancouver's team.`\
+https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
+
+**The New York Times in Print for Saturday, March 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/08/todays-new-york-times
+
+**Remains in Manitoba Landfill Are Identified as Serial Killer’s Victim**\
+`The decision to search a landfill near Winnipeg had become a political issue in the western Canadian province, largely because the victims were all Indigenous women.`\
+https://nytimes.com/2025/03/08/world/canada/remains-in-manitoba-landfill-are-identified-as-serial-killers-victim.html
+
 **Why 'flow' matters for Arsenal and Odegaard**\
 `Arsenal are often at their best when they do not overthink their football — and their skipper proves it`\
 https://nytimes.com/athletic/6183276/2025/03/08/arsenal-martin-odegaard-flow/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-mone
 **Who should perform in the halftime show of the 2026 World Cup final?**\
 `The World Cup final will have a half-time show for the first time in 2026. So who should perform?`\
 https://nytimes.com/athletic/6183513/2025/03/08/half-time-show-world-cup-final-2026/
-
-**Listen: Were Manchester United right to go public about 'Project 150'?**\
-`Talk of the Devils discuss whether Manchester United were right to go public with its "Mission 21" and "Mission 1" initiatives`\
-https://nytimes.com/athletic/6180895/2025/03/08/talk-of-the-devils-manchester-united-podcast-mission-21/
-
-**Why has a team never scored 10 goals in a Premier League game?**\
-`Top-flight teams have racked up nine goals on five occasions since the division was revamped in 1992, but have never managed double figures`\
-https://nytimes.com/athletic/6183196/2025/03/08/10-goals-premier-league-why/
-
-**Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
-`Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
-https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
 
