@@ -1,3 +1,7 @@
+**After trade deadline, Kings are left with a familiar roster — and not much hope**\
+`The Kings are hoping for a different playoff result this year. GM Rob Blake's quiet trade deadline makes it hard to see. `\
+https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nhl/
+
 **Johannes Høsflot Klæbo, Norway's cross-country king, completes historic feat at worlds**\
 `Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
 https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/

@@ -1,3 +1,7 @@
+**After trade deadline, Kings are left with a familiar roster — and not much hope**\
+`The Kings are hoping for a different playoff result this year. GM Rob Blake's quiet trade deadline makes it hard to see. `\
+https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nhl/
+
 **Johannes Høsflot Klæbo, Norway's cross-country king, completes historic feat at worlds**\
 `Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
 https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186613/2025/03/08/stuart-pearce-nottingham-forest-
 **How Gorgeous Is This Chicken Curry Laksa?**\
 `The coconut milk broth is spicy, savory and rich, but not heavy, and based on the curry laksa found at hawker centers in Malaysia and Singapore.`\
 https://nytimes.com/2025/03/08/dining/chicken-curry-laksa.html
-
-**At Least 12 Injured in Toronto Pub Shooting**\
-`The pub, Piper Arms, was hosting its opening night on Friday when three men walked in and “opened fire indiscriminately” before escaping by car, the police said.`\
-https://nytimes.com/2025/03/08/world/canada/toronto-pub-shooting.html
 
