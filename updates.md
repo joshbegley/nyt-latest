@@ -1,3 +1,11 @@
+**Trump Offers to Reopen Nuclear Talks in a Letter to Iran’s Supreme Leader**\
+`The letter appears to be President Trump’s opening bid to see if a newly vulnerable Iran is willing to negotiate.`\
+https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
+
+**Corrections: March 8, 2025**\
+`Corrections that appeared in print on Saturday, March 8, 2025.`\
+https://nytimes.com/2025/03/07/pageoneplus/corrections-march-8-2025.html
+
 **Draymond Green's ongoing grudge against KAT: Fact vs. fiction**\
 `Green let his contempt lead him to surmise that KAT's absence from a game had something to do with his perceived fear of Jimmy Butler.`\
 https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-towns-grudge-facts-nba/
