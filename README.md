@@ -1,3 +1,7 @@
+**Arizona State women's hoops fires Natasha Adair after 3 seasons: Sources**\
+`The Sun Devils moved to the Big 12 this year and went 3-15, finishing second-to-last and losing to Iowa State in the conference tournament.`\
+https://nytimes.com/athletic/6186477/2025/03/08/arizona-state-natasha-adair-fired/
+
 **Nottingham Forest 1 Manchester City 0: Hudson-Odoi's knockout blow, where does it leave Euro chase?**\
 `Nottingham Forest beat Manchester City with a late goal to take a step closer to European qualification.`\
 https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-city-0-result-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185926/2025/03/08/maple-leafs-treliving-laughton-c
 **Scott Laughton is coming home: Can 'the ultimate glue guy' help the Leafs?**\
 `The Maple Leafs traded for Scott Laughton to centre their third line. His biggest role might come behind the scenes.`\
 https://nytimes.com/athletic/6185097/2025/03/08/maple-leafs-scott-laughton-trade/
-
-**Rutherford: The Blues did the right thing by standing pat at the NHL trade deadline**\
-`Blues general manager Doug Armstrong didn't make any moves at the NHL trade deadline, and that was the right call.`\
-https://nytimes.com/athletic/6183902/2025/03/08/blues-nhl-trade-deadline-analysis/
 
