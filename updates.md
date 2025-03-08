@@ -1,3 +1,11 @@
+**Iran’s Leader Rebuffs Trump’s Outreach Over Its Nuclear Program**\
+`Ayatollah Ali Khamenei decried “bullying governments” in an apparent response to a letter the White House sent to Iran earlier in the week.`\
+https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-response.html
+
+**Climate Nonprofit Sues E.P.A. Over Billions in Frozen Funds**\
+`In a lawsuit, Climate United claims the E.P.A. is illegally withholding funds that have become a target of the Trump administration.`\
+https://nytimes.com/2025/03/08/climate/epa-climate-funds-lawsuit.html
+
 **How Matt Sauer got himself onto the Dodgers' Tokyo travel roster: 'It was awesome'**\
 `"I honestly didn’t even know how to react," Sauer said, describing feeling pure shock as he walked off the mound.`\
 https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
