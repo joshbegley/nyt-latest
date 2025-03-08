@@ -18,7 +18,7 @@ https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
 `The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
 https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
 
-**2 Newark Police Officers Shot, With One Critically Injured**\
+**Newark Police Officer Is Killed and Another Is Injured in Shooting**\
 `Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
 https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html
 

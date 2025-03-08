@@ -1,3 +1,7 @@
+**Newark Police Officer Is Killed and Another Is Injured in Shooting**\
+`Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
+https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html
+
 **Trump Seeks to Bar Student Loan Relief to Workers Aiding Migrants and Trans Kids**\
 `The president signed an order that would deny loan forgiveness to workers for groups engaged in “substantial illegal activities,” which it indicated included things like diversity initiatives.`\
 https://nytimes.com/2025/03/07/us/politics/trump-executive-order-student-loan-forgiveness.html
