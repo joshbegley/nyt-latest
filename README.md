@@ -1,3 +1,7 @@
+**Kings scorch Nets to spoil De'Aaron Fox's return to Sacramento**\
+`The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
+https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
+
 **How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
 `Declining to sell in a historic sellers' market is a significant risk. But the die is cast. This is Vancouver's team.`\
 https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180792/2025/03/08/ilona-maher-rugby-olympics-famil
 **Premier League fans are revolting - but for very different reasons**\
 `Tensions that have simmered for months are threatening to boil over as the season reaches its climax`\
 https://nytimes.com/athletic/6184093/2025/03/08/premier-league-fans-protest-money/
-
-**Who should perform in the halftime show of the 2026 World Cup final?**\
-`The World Cup final will have a half-time show for the first time in 2026. So who should perform?`\
-https://nytimes.com/athletic/6183513/2025/03/08/half-time-show-world-cup-final-2026/
 
