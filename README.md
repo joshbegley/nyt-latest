@@ -1,3 +1,11 @@
+**What Is Hantavirus, the Rare Disease That Killed Betsy Arakawa?**\
+`Ms. Arakawa, the wife of the actor Gene Hackman, died from the effects of a disease often caused by contact with droppings from infected rodents.`\
+https://nytimes.com/2025/03/07/health/what-is-hantavirus-gene-hackman-wife.html
+
+**'This group is special': Blue Jackets add Kunin but leave roster intact at deadline**\
+`Waddell said one of Columbus' top players told him that this group wants to "finish the job."`\
+https://nytimes.com/athletic/6184743/2025/03/07/blue-jackets-trade-waddell-kunin/
+
 **Fraternity Member Charged With Manslaughter in Hazing Death of University Student**\
 `Investigators say that Caleb Wilson, 20, a student at Southern University in Baton Rouge, La., collapsed after being hit with boxing gloves as part of a pledging ritual for Omega Psi Phi.`\
 https://nytimes.com/2025/03/07/us/southern-university-hazing-death-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6184760/2025/03/07/nhl-trade-grades-brad-marchand-b
 **The Homeland Security Department says it is ending its union contract with T.S.A. workers.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/03/07/us/trump-news-crypto/the-homeland-security-department-says-it-is-ending-its-union-contract-with-tsa-workers
-
-**Maple Leafs trade deadline report card: Grading deals for Scott Laughton, Brandon Carlo**\
-`The Leafs shipped out first-round picks and prospects for Brandon Carlo and Scott Laughton. What the trades mean for Toronto's playoff hopes`\
-https://nytimes.com/athletic/6183380/2025/03/07/maple-leafs-trade-deadline-report-card/
-
-**What the Recent Cabinet Blowup Means for Musk**\
-`A billionaire who likes to have control could face some limits.`\
-https://nytimes.com/2025/03/07/us/politics/musk-trump-cabinet-meeting.html
 
