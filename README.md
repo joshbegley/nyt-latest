@@ -1,3 +1,7 @@
+**14-Year-Old Boy Arrested in Connection With Fatal Newark Police Shooting**\
+`The boy, who has not been named, was charged with murder, attempted murder and possessing illegal weapons. The officer who died early Saturday morning was identified as Detective Joseph Azcona.`\
+https://nytimes.com/2025/03/08/nyregion/newark-police-officer-shooting.html
+
 **Purdue player says brother faced racist comments from Illinois fans**\
 `Kaufman-Renn said the comments occurred during No. 18 Purdue’s 88-80  loss at Illinois.`\
 https://nytimes.com/athletic/6186794/2025/03/08/trey-kaufman-renn-purdue-illinois-racist-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing
 **The Briefing: Liverpool 3 Southampton 1: Alisson and Van Dijk's mix-up, Slot's ruthless changes pay off**\
 `Liverpool were made to work harder than most predicted in beating Southampton - Andy Jones analyses the action from Anfield`\
 https://nytimes.com/athletic/6179992/2025/03/08/liverpool-3-southampton-1-alisson-van-dijk-salah-slot/
-
-**Chiefs WR Xavier Worthy arrested on felony domestic assault charge in Texas**\
-`The Chiefs are "aware and gathering information" about the incident, the team said in a statement Saturday.`\
-https://nytimes.com/athletic/6186520/2025/03/08/chiefs-xavier-worthy-arrest-assault-texas/
 
