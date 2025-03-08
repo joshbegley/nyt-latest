@@ -1,3 +1,7 @@
+**Impeached South Korean President Released From Jail**\
+`The move comes after a court ruled that the detention of President Yoon Suk Yeol was invalid, but won’t affect the insurrection and other charges he faces for declaring martial law.`\
+https://nytimes.com/2025/03/08/world/asia/south-korea-president-yoon-freed.html
+
 **If You Have to Ask About This Harlem Dinner Party, You’re Not Invited**\
 `Members-only clubs and private restaurants have become powerhouses for socializing and networking. But there are some spaces you can’t buy your way into.`\
 https://nytimes.com/2025/03/08/nyregion/if-you-have-to-ask-about-this-harlem-dinner-party-youre-not-invited.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nugge
 **Kings scorch Spurs to spoil De'Aaron Fox's return to Sacramento**\
 `The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
 https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
-
-**How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
-`Declining to sell in a historic seller's market is a significant risk. But the die is cast. This is Vancouver's team.`\
-https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
 
