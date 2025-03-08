@@ -1,3 +1,7 @@
+**Multiple Wildfires Break Out on Long Island, Prompting Highway Closure**\
+`An official said that more than 25 agencies were fighting dozens of fires on Saturday. Forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
+https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
+
 **Mikko Rantanen on deadline whirlwind, Hurricanes and why Stars are a 'better fit'**\
 `Unlike with his trade to Carolina, Rantanen was involved in the decision of him going to Dallas and signing an 8-year, $96 million contract.`\
 https://nytimes.com/athletic/6187178/2025/03/08/mikko-rantanen-nhl-trade-deadline-stars-hurricanes/
