@@ -6,7 +6,7 @@ https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
 `By Isabelle Taft and Eric Berger`\
 https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-protests-trump
 
-**Duke upsets Notre Dame 61-56 in ACC semifinals**\
+**Notre Dame's late-season slump continues with loss to Duke in ACC semifinals**\
 `The Irish have dropped three of their last five games, eliminating their chances for an outright ACC regular-season title.`\
 https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
 

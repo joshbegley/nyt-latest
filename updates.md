@@ -1,3 +1,7 @@
+**Alabama exacts revenge, knocks off rival Auburn in OT thriller**\
+`Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
+https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
+
 **Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
 `The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
 https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html

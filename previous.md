@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-prote
 https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
 
 **Alabama exacts revenge, knocks off rival Auburn in OT thriller**\
-`Mark Sears' floater as time expired lifted Alabama over rival Auburn, 93-91.`\
+`Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
 https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
 
 **NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
