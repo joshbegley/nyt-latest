@@ -1,10 +1,10 @@
-**Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
-`In 1968, he became the first Black person to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
-https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
-
 **Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
 `What impact will Richmond's early A-10 tournament loss have on Big Ten bubble teams?`\
 https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
+
+**Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
+`In 1968, he became the first Black person to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
+https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
 
 **NOAA Said to Be Planning to Shrink Staff by 20 Percent**\
 `Together with recent firings and resignations, the new cuts could hamper the National Weather Service’s ability to produce lifesaving forecasts, scientists say.`\
