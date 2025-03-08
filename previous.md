@@ -1,3 +1,7 @@
+**Wildfires Break Out on Long Island, Prompting Highway Closure**\
+`Weather forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
+https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
+
 **How the NHL trade deadline put Mitch Marner's future on center stage**\
 `Events of recent weeks have underlined that if the Leafs want to keep the pending UFA, they're going to have to bid against others to do it.`\
 https://nytimes.com/athletic/6186975/2025/03/08/mitch-marner-nhl-trade-deadline-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/us/politics/house-gop-spending-bill-government-sh
 **Wrexham 1 Rotherham 0: Battling brothers and Smith delivers for Parkinson's side**\
 `Record signing Sam Smith scores the winner for Wrexham, who make a strong start to an important week in their bid for promotion`\
 https://nytimes.com/athletic/6183095/2025/03/08/wrexham-rotherham-sam-smith-analysis/
-
-**Arkansas, Georgia pick up big bubble wins; Kentucky makes a statement at Mizzou**\
-`The SEC on Saturday took a big step toward a huge milestone: earning the most NCAA Tournament bids for a conference in a single season.`\
-https://nytimes.com/athletic/6186976/2025/03/08/sec-ncaa-tournament-kentucky-georgia-arkansas/
 

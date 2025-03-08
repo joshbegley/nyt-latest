@@ -1,3 +1,7 @@
+**Wildfires Break Out on Long Island, Prompting Highway Closure**\
+`Weather forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
+https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
+
 **How the NHL trade deadline put Mitch Marner's future on center stage**\
 `Events of recent weeks have underlined that if the Leafs want to keep the pending UFA, they're going to have to bid against others to do it.`\
 https://nytimes.com/athletic/6186975/2025/03/08/mitch-marner-nhl-trade-deadline-maple-leafs/
