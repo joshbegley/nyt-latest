@@ -1,3 +1,7 @@
+**Johannes Høsflot Klæbo, Norway's cross-country king, completes historic feat at worlds**\
+`Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
+https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
+
 **Johannes Hoesflot Klaebo, Norway's cross-country king, completes historic feat at worlds**\
 `Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
 https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
