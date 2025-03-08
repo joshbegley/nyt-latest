@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Order Would Deny Student Loan Relief to Workers Aiding Migrants or Trans Youth**\
+``\
+https://nytimes.com/live/2025/03/08/us/trump-news
+
+**About That Giant Kim Kardashian in Times Square**\
+`The seamless, poreless, sanitized effigy of a capitalist titan was a startling piece of marketing for Skims.`\
+https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
+
+**Shaming Child-Free People Doesn’t Raise the Birthrate**\
+`In fact, it might depress it.`\
+https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
+
 **'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
 `This wasn't stubbornness from Chris Finch. It was the exact opposite.`\
 https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/

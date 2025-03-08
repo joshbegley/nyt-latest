@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Order Would Deny Student Loan Relief to Workers Aiding Migrants or Trans Youth**\
+``\
+https://nytimes.com/live/2025/03/08/us/trump-news
+
+**About That Giant Kim Kardashian in Times Square**\
+`The seamless, poreless, sanitized effigy of a capitalist titan was a startling piece of marketing for Skims.`\
+https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
+
+**Shaming Child-Free People Doesn’t Raise the Birthrate**\
+`In fact, it might depress it.`\
+https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
+
 **'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
 `This wasn't stubbornness from Chris Finch. It was the exact opposite.`\
 https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6184083/2025/03/08/f1-formula-one-racing-lia-block/
 **Who is the talk of Giants camp? Landen Roupp — again**\
 `Roupp has allowed one hit in 8 1/3 scoreless innings over three starts this spring.`\
 https://nytimes.com/athletic/6185132/2025/03/08/giants-camp-landen-roupp-spring-training/
-
-**Dugar: Whatever the Seahawks’ plan is after trading Geno Smith, it sure better work**\
-`What are the Seahawks doing? You're not the only person asking. If this fails, owner Jody Allen might be asking the same question.`\
-https://nytimes.com/athletic/6186153/2025/03/08/geno-smith-trade-seahawks-john-schneider-plan/
-
-**How to watch Maple Leafs at Avalanche following Scott Laughton, Brock Nelson acquisitions**\
-`The Avalanche host the Maple Leafs after each team made big moves at the trade deadline, including Toronto acquiring Scott Laughton. `\
-https://nytimes.com/athletic/6181537/2025/03/08/maple-leafs-avalanche-scott-laughton-brock-nelson/
-
-**The Oilers are improved but did they do enough before trade deadline?**\
-`Overall, it’s solid but not spectacular work by Jeff Jackson, Stan Bowman and the Oilers' management and scouting groups.`\
-https://nytimes.com/athletic/6185450/2025/03/08/oilers-nhl-trade-deadline-2025/
 

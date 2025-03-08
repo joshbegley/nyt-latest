@@ -11,7 +11,7 @@ https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
 https://nytimes.com/2025/03/08/opinion/low-birthrate-shame.html
 
 **'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
-`This wasn't stubbornness from Chris Finch. It was the exact opposite.`\
+`Conley validated his spot in the starting lineup against the Heat, scoring 15 points in 25 minutes of a tense 106-104 win.`\
 https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
 
 **The Future of News Looks Niche**\
