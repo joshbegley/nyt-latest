@@ -1,3 +1,7 @@
+**Chiefs WR Xavier Worthy arrested on felony domestic assault charge in Texas**\
+`The Chiefs are "aware and gathering information" about the incident, the team said in a statement Saturday.`\
+https://nytimes.com/athletic/6186520/2025/03/08/chiefs-xavier-worthy-arrest-assault-texas/
+
 **Science, Politics and Anxiety Mix at Rally Under Lincoln Memorial**\
 `Thousands of protesters gathered in Washington for Stand Up for Science, a rally in response to President Trump’s federal-funding and job cuts.`\
 https://nytimes.com/2025/03/08/science/march-for-science-trump-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
 **Trump Administration Live Updates: Order Would Deny Student Loan Relief to Workers Aiding Migrants or Trans Youth**\
 ``\
 https://nytimes.com/live/2025/03/08/us/trump-news
-
-**About That Giant Kim Kardashian in Times Square**\
-`The seamless, poreless, sanitized effigy of a capitalist titan was a startling piece of marketing for Skims.`\
-https://nytimes.com/2025/03/08/style/kim-kardashian-skims-balloon-nyc.html
 
