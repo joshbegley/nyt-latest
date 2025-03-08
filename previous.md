@@ -1,3 +1,11 @@
+**Alfred, No Longer a Tropical Cyclone, Still Threatens Australia with Flooding**\
+`Officials said parts of the country’s east coast south of Brisbane were still at risk of significant flooding. One person was missing.`\
+https://nytimes.com/2025/03/08/world/australia/cyclone-alfred-flooding.html
+
+**Wild dominate in Vancouver, but Lankinen and a bad shift cost them: 3 takeaways**\
+`Three hit goal posts and one bad late third-period shift cost the Wild during a 3-1 defeat at Rogers Arena on Friday.`\
+https://nytimes.com/athletic/6185989/2025/03/08/wild-canucks-kevin-lankinen-result-takeaways/
+
 **Nuggets' Nikola Jokić has first 30/20/20 game in NBA history**\
 `Jokić finished with 31 points, 21 rebounds and a season-high 22 assists in Denver's OT win over the Suns.`\
 https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nuggets-suns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6183923/2025/03/08/nottingham-forest-sangare-aina-m
 **Hurzeler says Brighton aren't fit enough - and is using a 1980s runner as inspiration**\
 `Why the head coach has turned to a tenacious Olympian to push his team to new heights`\
 https://nytimes.com/athletic/6183136/2025/03/08/hurzeler-says-brighton-arent-fit-enough-and-is-using-a-1980s-runner-as-inspiration/
-
-**All Wembley hope is lost? Far from it as Newcastle 'circle the wagons' and work out Plan B**\
-`Eddie Howe has spent long days at the training ground coming up with solutions to recent setbacks`\
-https://nytimes.com/athletic/6179769/2025/03/08/all-wembley-hope-is-lost-far-from-it-as-newcastle-circle-the-wagons-and-work-out-plan-b/
-
-**The sisterhood fuelling a women's sport trailblazer: 'We call ourselves professional nepo sisters'**\
-`Ilona Maher's spell in British rugby broke new ground. Her authentic star power has rubbed off on her family too`\
-https://nytimes.com/athletic/6180792/2025/03/08/ilona-maher-rugby-olympics-family/
 
