@@ -1,3 +1,7 @@
+**Conceicao praises 'very intelligent' Pulisic after two goals in Milan comeback**\
+`With Milan 2-1 down at Lecce, Pulisic equalised in the 73rd minute from a penalty before scoring the winning goal eight minutes later.`\
+https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-lecce/
+
 **Braves' Jurickson Profar injures left wrist on diving catch attempt**\
 `Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
 https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/

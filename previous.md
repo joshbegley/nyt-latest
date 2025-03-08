@@ -1,3 +1,7 @@
+**Conceicao praises 'very intelligent' Pulisic after two goals in Milan comeback**\
+`With Milan 2-1 down at Lecce, Pulisic equalised in the 73rd minute from a penalty before scoring the winning goal eight minutes later.`\
+https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-lecce/
+
 **Braves' Jurickson Profar injures left wrist on diving catch attempt**\
 `Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
 https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/climate/epa-climate-funds-lawsuit.html
 **How Matt Sauer got himself onto the Dodgers' Tokyo travel roster: 'It was awesome'**\
 `"I honestly didn’t even know how to react," Sauer said, describing feeling pure shock as he walked off the mound.`\
 https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
-
-**House Republicans Unveil Spending Bill to Avert Shutdown at Week’s End**\
-`Democrats decried the measure as a White House power grab, leaving it unclear whether the legislation could pass.`\
-https://nytimes.com/2025/03/08/us/politics/house-gop-spending-bill-government-shutdown.html
 
