@@ -1,5 +1,13 @@
+**Berta reaches agreement to become Arsenal sporting director**\
+`Berta became available in January after more than a decade at Atletico Madrid — where he was central to the Spanish team’s progress.`\
+https://nytimes.com/athletic/6166136/2025/03/08/arsenal-sporting-director-berta-new-appointment/
+
+**Ravens and OT Ronnie Stanley agree to 3-year, $60 million extension: Source**\
+`The two-time Pro Bowl offensive tackle was the top player in The Athletic's updated free-agent rankings.`\
+https://nytimes.com/athletic/6172240/2025/03/08/ronnie-stanley-free-agency-signing-2025/
+
 **How Rangers blew late lead, gave away crucial 2 points to Senators: 3 takeaways**\
-`The Rangers were by far the less engaged team throughout the game in a 4-3 overtime loss to the Senators.`\
+`New York was by far the less engaged team throughout the game in a 4-3 overtime loss to the Ottawa Senators.`\
 https://nytimes.com/athletic/6187083/2025/03/08/rangers-senators-score-takeaways/
 
 **Mikko Rantanen on deadline whirlwind, Hurricanes and why Stars are a 'better fit'**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6186975/2025/03/08/mitch-marner-nhl-trade-deadline-
 **How to Care for a Loved One With Dementia: 5 Expert Tips**\
 `Gene Hackman was cared for by his wife in his final years. Her unexpected death highlights the essential and challenging job of those who care for Alzheimer’s patients.`\
 https://nytimes.com/2025/03/08/us/dementia-alzheimers-care-gene-hackman.html
-
-**USMNT's Dest returns for PSV after 11-month absence following ACL injury**\
-`Dest came on as a 69th-minute substitute in Saturday's Eredivisie match against Heerenveen. It was his first appearance since April 2024.`\
-https://nytimes.com/athletic/6187109/2025/03/08/usmnt-sergino-dest-acl-injury-return/
-
-**For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
-`The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
-https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
 
