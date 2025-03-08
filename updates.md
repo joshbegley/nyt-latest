@@ -1,3 +1,7 @@
+**Alfred, No Longer a Tropical Cyclone, Still Threatens Australia With Flooding**\
+`One man died in floodwaters, and officials said parts of the country’s east coast south of Brisbane were still at risk.`\
+https://nytimes.com/2025/03/08/world/australia/cyclone-alfred-flooding.html
+
 **Impeached South Korean President Released From Jail**\
 `The move comes after a court ruled that the detention of President Yoon Suk Yeol was invalid, but won’t affect the insurrection and other charges he faces for declaring martial law.`\
 https://nytimes.com/2025/03/08/world/asia/south-korea-president-yoon-freed.html

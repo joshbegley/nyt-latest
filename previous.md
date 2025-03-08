@@ -22,8 +22,8 @@ https://nytimes.com/2025/03/08/style/sarah-burton-givenchy-fall-2025.html
 `Vegas previously operated aggressively, but a quiet deadline featuring Smith may be exactly what the team needs.`\
 https://nytimes.com/athletic/6186242/2025/03/08/golden-knights-reilly-smith-nhl-trade/
 
-**Alfred, No Longer a Tropical Cyclone, Still Threatens Australia with Flooding**\
-`Officials said parts of the country’s east coast south of Brisbane were still at risk of significant flooding. One person was missing.`\
+**Alfred, No Longer a Tropical Cyclone, Still Threatens Australia With Flooding**\
+`One man died in floodwaters, and officials said parts of the country’s east coast south of Brisbane were still at risk.`\
 https://nytimes.com/2025/03/08/world/australia/cyclone-alfred-flooding.html
 
 **Wild dominate in Vancouver, but Lankinen and a bad shift cost them: 3 takeaways**\
