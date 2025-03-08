@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6185989/2025/03/08/wild-canucks-kevin-lankinen-resu
 `Jokić finished with 31 points, 21 rebounds and a season-high 22 assists in Denver's OT win over the Suns.`\
 https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nuggets-suns/
 
-**Kings scorch Nets to spoil De'Aaron Fox's return to Sacramento**\
+**Kings scorch Spurs to spoil De'Aaron Fox's return to Sacramento**\
 `The Kings honored the former Kentucky guard with a video tribute before the game, during which fans booed Fox but also cheered.`\
 https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
 
