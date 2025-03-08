@@ -1,3 +1,7 @@
+**Climate Nonprofit Sues E.P.A. Over Billions in Frozen Funds**\
+`In a lawsuit, Climate United claims the E.P.A. is illegally withholding funds that have become a target of the Trump administration.`\
+https://nytimes.com/2025/03/08/climate/epa-climate-funds-lawsuit.html
+
 **How Matt Sauer got himself onto the Dodgers' Tokyo travel roster: 'It was awesome'**\
 `"I honestly didn’t even know how to react," Sauer said, describing feeling pure shock as he walked off the mound.`\
 https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
 **NOAA Said to Be Planning to Shrink Staff by 20 Percent**\
 `Together with recent firings and resignations, the new cuts could hamper the National Weather Service’s ability to produce lifesaving forecasts, scientists say.`\
 https://nytimes.com/2025/03/08/climate/noaa-layoffs-trump.html
-
-**A 90,000 crowd, millions watching online and £4.7m raised... welcome to the Sidemen vs YouTube Allstars**\
-`The most-viewed football match in Europe this weekend involved no professional players but was seen by millions worldwide online`\
-https://nytimes.com/athletic/6186690/2025/03/08/sidemen-youtube-allstars-wembley/
 
