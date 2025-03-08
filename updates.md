@@ -1,3 +1,7 @@
+**Spirit gets redemption with 2025 Challenge Cup win over Pride**\
+`Spirit won its first Challenge Cup trophy with the victory`\
+https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
+
 **Newark Police Officer Is Killed and Another Is Injured in Shooting**\
 `Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
 https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html

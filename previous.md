@@ -1,3 +1,7 @@
+**Spirit gets redemption with 2025 Challenge Cup win over Pride**\
+`Spirit won its first Challenge Cup trophy with the victory`\
+https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
+
 **Trump Seeks to Bar Student Loan Relief to Workers Aiding Migrants and Trans Kids**\
 `The president signed an order that would deny loan forgiveness to workers for groups engaged in “substantial illegal activities,” which it indicated included things like diversity initiatives.`\
 https://nytimes.com/2025/03/07/us/politics/trump-executive-order-student-loan-forgiveness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/07/pageoneplus/corrections-march-8-2025.html
 **Draymond Green's ongoing grudge against KAT: Fact vs. fiction**\
 `Green let his contempt lead him to surmise that KAT's absence from a game had something to do with his perceived fear of Jimmy Butler.`\
 https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-towns-grudge-facts-nba/
-
-**C.D.C. Will Investigate Debunked Link Between Vaccines and Autism**\
-`Dozens of studies have failed to find evidence of a link. The decision to re-examine the question comes as a measles outbreak, driven by low vaccination rates, widens in Texas.`\
-https://nytimes.com/2025/03/07/health/vaccines-autism-cdc-rfk-jr.html
 
