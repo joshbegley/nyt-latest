@@ -1,40 +1,40 @@
-**Lightening Up**\
-`Daylight saving time begins tomorrow, and the days are getting lighter and more expansive. If we want to, we can, too.`\
-https://nytimes.com/2025/03/08/briefing/lightening-up.html
+**The Jets' trade deadline result was a failure. Their playoffs don't have to be**\
+`Winnipeg's players will be glad to have Brandon Tanev and Luke Schenn, even as Jets management set its sights higher and missed.`\
+https://nytimes.com/athletic/6185913/2025/03/08/winnipeg-jets-trade-deadline-failure/
 
-**Days of Clashes in Syria Kill More Than 300 Civilians, War Monitor Reports**\
-`More than 400 people have been killed in fighting between forces of the new government and remnants of the ousted regime, said the war monitor Syrian Observatory for Human Rights.`\
-https://nytimes.com/2025/03/08/world/middleeast/syria-clashes-assad.html
+**After adding Geno Smith, Raiders could still go after a QB in NFL Draft**\
+`The Raiders landed their quarterback for 2025 in a major trade with the Seahawks. But do they have their QB of the future? Not yet.`\
+https://nytimes.com/athletic/6185813/2025/03/08/geno-smith-raiders-trade-nfl-draft/
 
-**Malkin upset after Penguins loss — 'We can't just lose every game': Yohe's 10 observations**\
-`Pittsburgh's embarrassing run of hockey continued in a 4-0 loss against Las Vegas on Friday. `\
-https://nytimes.com/athletic/6168239/2025/03/08/yohe-evgeni-malkin-upset-after-loss/
+**Mirtle: Do first-round picks still matter? NHL's wild trade deadline may change paradigm**\
+`The 2025 deadline showcased a shift away from the conservatism that NHL general managers had become known for in previous eras.`\
+https://nytimes.com/athletic/6185834/2025/03/08/nhl-trade-deadline-first-round-picks/
 
-**Who will make the Cubs' Opening Day roster? Let's project.**\
-`Staging Opening Day in Japan speeds up some personnel decisions that can typically wait until the end of March.`\
-https://nytimes.com/athletic/6185282/2025/03/08/chicago-cubs-opening-day-roster-tokyo-series/
+**Dylan Cozens trade should be first of many hard decisions for Sabres**\
+`FORT LAUDERDALE, Fla.`\
+https://nytimes.com/athletic/6186174/2025/03/08/sabres-dylan-cozens-trade-adams/
 
-**Giants free-agent predictions: Who will be back, who will leave in 2025?**\
-`This year’s group is full of role-playing starters and backups.`\
-https://nytimes.com/athletic/6185056/2025/03/08/giants-free-agent-predictions-2025/
+**I Wish My Father, Ronald Reagan, Could Remind Trump What America Stands For**\
+`He told me once, in the Lincoln Bedroom.`\
+https://nytimes.com/2025/03/08/opinion/trump-reagan-father.html
 
-**Managing ACC travel for Cal basketball is anything but a snooze**\
-`Cal set out to handle cross-country conference trips armed with the best information on circadian rhythm and maintaining peak performance.`\
-https://nytimes.com/athletic/6184180/2025/03/08/acc-cal-college-basketball-nasa-travel-schedule/
+**The Thing That Could Be Trump’s Undoing**\
+`Voters may resent egg prices more than damage to America’s democratic norms.`\
+https://nytimes.com/2025/03/08/opinion/trump-egg-prices-economy.html
 
-**Q&A: Mets new assistant pitching coach Desi Druschel is quickly getting a grip**\
-`Also, notes on pitchers Brandon Sproat, Sean Reid-Foley and Brooks Raley, who are getting advice and new chances.`\
-https://nytimes.com/athletic/6185887/2025/03/08/new-york-mets-pitching-notes/
+**Self-Deportation Taught Me What I Know About This Country**\
+`My decision to leave the U.S. seemed crazy. I believed then that America is exceptional, the only nation capable of caring for its people.`\
+https://nytimes.com/2025/03/08/opinion/self-deportation-immigration-us.html
 
-**Grading every NHL team's trade deadline moves (or lack thereof)**\
-`Which teams accomplished their goals, and which left their fan bases fuming? We grade all 32 clubs on their performance at the deadline.`\
-https://nytimes.com/athletic/6175461/2025/03/08/nhl-trade-deadline-2025-team-grades/
+**Lowetide: What's the state of Oilers' prospect pool after the deadline?**\
+`Edmonton dispatched three prospects — Max Wanner, Shane LaChance and Carl Berglund — in deals this week.`\
+https://nytimes.com/athletic/6179501/2025/03/08/oilers-prospects-nhl-trade-deadline-2025/
 
-**The Liberals Choose a Leader in the Shadow of Trump’s Threats**\
-`Party members will cast their votes on Sunday in a campaign that has been overshadowed by the unsettling signals from Washington.`\
-https://nytimes.com/2025/03/08/world/canada/liberal-party-trudeau-trump.html
+**Reading Two Chapters of ‘The Great Gatsby’ Is Not Enough**\
+`Responses to an Opinion guest essay by Tim Donahue about reading and learning.`\
+https://nytimes.com/2025/03/08/opinion/reading-books.html
 
-**Where do the Blackhawks stand after the trade deadline? 8 thoughts**\
-`Over seven days, a lot has changed for the Chicago Blackhawks.`\
-https://nytimes.com/athletic/6185981/2025/03/08/blackhawks-trade-deadline-davidson-bedard-utah/
+**Why U.S. Conservatives Should Fall in Love With France**\
+`Turns out Charles de Gaulle was right.`\
+https://nytimes.com/2025/03/08/opinion/america-conservatives-france-europe.html
 
