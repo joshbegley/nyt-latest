@@ -1,3 +1,7 @@
+**Buccaneers ink LB Lavonte David to 1-year deal for 14th NFL season**\
+`The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
+https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-ink-veteran-lb-lavonte-david-to-1-year-deal-to-return-for-14th-season/
+
 **Wild GM Bill Guerin on not pulling LTIR lever while rivals bulked up at deadline: 'Our time will come'**\
 `Guerin explained the team's inaction compared to the Avalanche and Stars: "We’re just at a different stage than those teams."`\
 https://nytimes.com/athletic/6185542/2025/03/07/wild-trade-deadline-ltir-bill-guerin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6172353/2025/03/07/senators-trade-deadline-report-c
 **Read The Brief That Recommends Dropping The Charges Against Eric Adams, Annotated**\
 `The amicus brief was written by Paul D. Clement, a noted conservative lawyer, at the behest of Federal District Judge Dale E. Ho.`\
 https://nytimes.com/interactive/2025/03/07/us/doc-annotation-adams-clement-brief.html
-
-**Seahawks trade Geno Smith to Raiders, expected to pursue Darnold: Sources**\
-`Smith, 34, spent the past three seasons rehabilitating his career in Seattle. In Las Vegas, he will reunite with Pete Carroll.`\
-https://nytimes.com/athletic/6183520/2025/03/07/geno-smith-trade-raiders-seahawks-nfl-news/
 
