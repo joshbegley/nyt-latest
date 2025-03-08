@@ -1,3 +1,15 @@
+**Athletics unveil Las Vegas patches on their arms for their stay in Sacramento**\
+`The A's will not have a city across the front of their jersey, but will have a Las Vegas patch on one sleeve, and Sacramento on the other.`\
+https://nytimes.com/athletic/6185431/2025/03/07/athletics-las-vegas-patches-sacramento-oakland/
+
+**'This group is special': Blue Jackets add Luke Kunin but leave roster intact at deadline**\
+`GM Don Waddell said one of Columbus' top players told him this group wants to "finish the job."`\
+https://nytimes.com/athletic/6184743/2025/03/07/blue-jackets-trade-waddell-kunin/
+
+**Seahawks trade Geno Smith to Raiders, expected to pursue Darnold: Sources**\
+`Smith, 34, spent the past three seasons rehabilitating his career in Seattle. In Las Vegas, he will reunite with Pete Carroll.`\
+https://nytimes.com/athletic/6183520/2025/03/07/geno-smith-trade-raiders-seahawks-nfl-news/
+
 **What Is Hantavirus, the Rare Disease That Killed Betsy Arakawa?**\
 `Ms. Arakawa, the wife of the actor Gene Hackman, died from the effects of a disease often caused by contact with droppings from infected rodents.`\
 https://nytimes.com/2025/03/07/health/what-is-hantavirus-gene-hackman-wife.html
