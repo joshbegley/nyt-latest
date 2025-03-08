@@ -1,3 +1,7 @@
+**USMNT's Dest returns for PSV after 11-month absence following ACL injury**\
+`Dest came on as a 69th-minute substitute in Saturday's Eredivisie match against Heerenveen. It was his first appearance since April 2024.`\
+https://nytimes.com/athletic/6187109/2025/03/08/usmnt-sergino-dest-acl-injury-return/
+
 **For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
 `The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
 https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html

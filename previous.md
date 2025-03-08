@@ -1,3 +1,7 @@
+**USMNT's Dest returns for PSV after 11-month absence following ACL injury**\
+`Dest came on as a 69th-minute substitute in Saturday's Eredivisie match against Heerenveen. It was his first appearance since April 2024.`\
+https://nytimes.com/athletic/6187109/2025/03/08/usmnt-sergino-dest-acl-injury-return/
+
 **For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
 `The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
 https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/us/denver-rideshare-driver-sentence-women-assault
 **Barca vs Osasuna postponed after death of first-team doctor**\
 `The match was postponed less than 30 minutes before its scheduled start time at the request of Barca, after Carles Minarro Garcia's death.`\
 https://nytimes.com/athletic/6187007/2025/03/08/barcelona-osasuna-postponed-why-doctor-death/
-
-**Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
-`How did UConn fare in the Big Ten tournament? Will Richmond's A-10 loss impact Big Ten bubble teams?`\
-https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
 
