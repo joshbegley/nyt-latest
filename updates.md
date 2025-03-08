@@ -1,3 +1,7 @@
+**Impeached South Korean President Released From Jail**\
+`The move comes after a court ruled that the detention of President Yoon Suk Yeol was invalid, but won’t affect the insurrection and other charges he faces for declaring martial law.`\
+https://nytimes.com/2025/03/08/world/asia/south-korea-president-yoon-freed.html
+
 **If You Have to Ask About This Harlem Dinner Party, You’re Not Invited**\
 `Members-only clubs and private restaurants have become powerhouses for socializing and networking. But there are some spaces you can’t buy your way into.`\
 https://nytimes.com/2025/03/08/nyregion/if-you-have-to-ask-about-this-harlem-dinner-party-youre-not-invited.html
