@@ -1,3 +1,7 @@
+**Took for a Ride**\
+`Joe Deeney’s crowd-pleasing puzzle reaches great heights.`\
+https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
+
 **An Oregon Family Vanished in 1958. Their Car May Have Been Found in a River.**\
 `The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
 https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/07/us/missouri-china-covid-judgment.html
 **Lou Lamoriello did the right thing at the deadline — but did he do enough?**\
 `Lamoriello finally embraced change, but it's hard to shake the nagging feeling that he should have done more.`\
 https://nytimes.com/athletic/6185524/2025/03/07/islanders-nhl-trade-deadline-lou-lamoriello/
-
-**Geno Smith trade grades: Raiders secure stability at QB; Seahawks plot new course**\
-`The Raiders have given themselves the freedom to be flexible in the NFL Draft. With Smith in tow, they don't have to force a pick at QB. `\
-https://nytimes.com/athletic/6185825/2025/03/07/geno-smith-trade-grades-raiders-seahawks/
 
