@@ -1,3 +1,7 @@
+**Nuggets' Nikola Jokić has first 30/20/20 game in NBA history**\
+`Jokić finished with 31 points, 21 rebounds and a season-high 22 assists in Denver's OT win over the Suns.`\
+https://nytimes.com/athletic/6186198/2025/03/08/nikola-jokic-30-20-20-game-nuggets-suns/
+
 **How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
 `Declining to sell in a historic seller's market is a significant risk. But the die is cast. This is Vancouver's team.`\
 https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
