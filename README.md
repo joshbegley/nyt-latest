@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-le
 `Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
 https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
 
-**Wildfires Break Out on Long Island, Prompting Highway Closure**\
-`Weather forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
+**Multiple Wildfires Break Out on Long Island, Prompting Highway Closure**\
+`An official said that more than 25 agencies were fighting dozens of fires on Saturday. Forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
 https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
 
 **How the NHL trade deadline put Mitch Marner's future on center stage**\
