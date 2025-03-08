@@ -1,3 +1,19 @@
+**Robert G. Clark, 96, Dies; Broke a Barrier in Mississippi’s Statehouse**\
+`In 1968, he became the first Black citizen to serve in the Legislature since Reconstruction. Shunned by colleagues at first, he became a political force in the state.`\
+https://nytimes.com/2025/03/08/us/politics/robert-clark-dead.html
+
+**Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
+`What impact will Richmond's early A-10 tournament loss have on Big Ten bubble teams?`\
+https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
+
+**NOAA Said to Be Planning to Shrink Staff by 20 Percent**\
+`Together with recent firings and resignations, the new cuts could hamper the National Weather Service’s ability to produce lifesaving forecasts, scientists say.`\
+https://nytimes.com/2025/03/08/climate/noaa-layoffs-trump.html
+
+**A 90,000 crowd, millions watching online and £4.7m raised... welcome to the Sidemen vs YouTube Allstars**\
+`The most-viewed football match in Europe this weekend involved no professional players but was seen by millions worldwide online`\
+https://nytimes.com/athletic/6186690/2025/03/08/sidemen-youtube-allstars-wembley/
+
 **14-Year-Old Boy Arrested in Connection With Fatal Newark Police Shooting**\
 `The boy, who has not been named, was charged with murder, attempted murder and possessing illegal weapons. The officer who died early Saturday morning was identified as Detective Joseph Azcona.`\
 https://nytimes.com/2025/03/08/nyregion/newark-police-officer-shooting.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nh
 **Johannes Høsflot Klæbo, Norway's cross-country king, completes historic feat at worlds**\
 `Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
 https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
-
-**Bills, DE Greg Rousseau agree to 4-year, $80 million extension: Source**\
-`Rousseau is the third player the Bills have signed to a long-term extension this offseason.`\
-https://nytimes.com/athletic/6186743/2025/03/08/bills-greg-rousseau-contract-extension-nfl-news/
-
-**Frank Saucier, Slugger Sidelined by a Publicity Stunt, Dies at 98**\
-`He had just recently joined the St. Louis Browns when he was replaced in the lineup by Eddie Gaedel, a 3-foot-7 circus performer, in a game in 1951.`\
-https://nytimes.com/2025/03/08/sports/baseball/frank-saucier-dead.html
-
-**Mike Gesicki re-signing with Bengals on 3-year, $25.5 million deal**\
-`Gesicki enjoyed a bounce-back season with the Bengals in 2024 after a disappointing year with the Patriots in 2023.`\
-https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing-bengals-2025/
-
-**The Briefing: Liverpool 3 Southampton 1: Alisson and Van Dijk's mix-up, Slot's ruthless changes pay off**\
-`Liverpool were made to work harder than most predicted in beating Southampton - Andy Jones analyses the action from Anfield`\
-https://nytimes.com/athletic/6179992/2025/03/08/liverpool-3-southampton-1-alisson-van-dijk-salah-slot/
 
