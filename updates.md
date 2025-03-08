@@ -1,3 +1,15 @@
+**Trump Seeks to Bar Student Loan Relief to Workers Aiding Migrants and Trans Kids**\
+`The president signed an order that would deny loan forgiveness to workers for groups engaged in “substantial illegal activities,” which it indicated included things like diversity initiatives.`\
+https://nytimes.com/2025/03/07/us/politics/trump-executive-order-student-loan-forgiveness.html
+
+**Dubas' second trade deadline with Penguins made sense — and didn't**\
+`The Penguins had a decent trade deadline, but hanging onto Rickard Rakell is questionable.`\
+https://nytimes.com/athletic/6185687/2025/03/07/penguins-kyle-dubas-nhl-trade-deadline-return/
+
+**After quiet deadline, how can Red Wings take the next step?**\
+`The Red Wings' lack of action at the deadline surfaced a bubbling dread over how much longer the franchise will have to keep waiting.`\
+https://nytimes.com/athletic/6185527/2025/03/07/red-wings-nhl-trade-deadline/
+
 **Took for a Ride**\
 `Joe Deeney’s crowd-pleasing puzzle reaches great heights.`\
 https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
