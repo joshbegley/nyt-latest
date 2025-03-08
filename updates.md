@@ -1,3 +1,11 @@
+**'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
+`This wasn't stubbornness from Chris Finch. It was the exact opposite.`\
+https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
+
+**The Future of News Looks Niche**\
+`The media entrepreneur Jessica Lessin chats with DealBook about the news landscape and her latest media bet.`\
+https://nytimes.com/2025/03/08/business/dealbook/jessica-lessin-the-information-media-investments.html
+
 **Rutherford: The Blues did the right thing by standing pat at the NHL trade deadline**\
 `Blues general manager Doug Armstrong didn't make any moves at the NHL trade deadline, and that was the right call.`\
 https://nytimes.com/athletic/6183902/2025/03/08/blues-nhl-trade-deadline-analysis/
