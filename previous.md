@@ -1,3 +1,7 @@
+**Golden Knights change strategy at deadline, but Reilly Smith has them feeling nostalgic**\
+`Vegas previously operated aggressively, but a quiet deadline featuring Smith may be exactly what the team needs.`\
+https://nytimes.com/athletic/6186242/2025/03/08/golden-knights-reilly-smith-nhl-trade/
+
 **Alfred, No Longer a Tropical Cyclone, Still Threatens Australia with Flooding**\
 `Officials said parts of the country’s east coast south of Brisbane were still at risk of significant flooding. One person was missing.`\
 https://nytimes.com/2025/03/08/world/australia/cyclone-alfred-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6183276/2025/03/08/arsenal-martin-odegaard-flow/
 **Inside Forest Q&A: Sangare and Aina's futures, gameplan for City, Yates for England?**\
 `We bring you an edited version of Paul Taylor's Friday Q&A, just in case you missed it...`\
 https://nytimes.com/athletic/6183923/2025/03/08/nottingham-forest-sangare-aina-manchester-city/
-
-**Hurzeler says Brighton aren't fit enough - and is using a 1980s runner as inspiration**\
-`Why the head coach has turned to a tenacious Olympian to push his team to new heights`\
-https://nytimes.com/athletic/6183136/2025/03/08/hurzeler-says-brighton-arent-fit-enough-and-is-using-a-1980s-runner-as-inspiration/
 
