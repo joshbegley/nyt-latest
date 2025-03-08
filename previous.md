@@ -1,3 +1,11 @@
+**An Oregon Family Vanished in 1958. Their Car May Have Been Found in a River.**\
+`The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
+https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
+
+**2 Newark Police Officers Shot, With One Critically Injured**\
+`Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
+https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html
+
 **Trump Offers to Reopen Nuclear Talks in a Letter to Iran’s Supreme Leader**\
 `The letter appears to be President Trump’s opening bid to see if a newly vulnerable Iran is willing to negotiate.`\
 https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6185524/2025/03/07/islanders-nhl-trade-deadline-lou
 **Geno Smith trade grades: Raiders secure stability at QB; Seahawks plot new course**\
 `The Raiders have given themselves the freedom to be flexible in the NFL Draft. With Smith in tow, they don't have to force a pick at QB. `\
 https://nytimes.com/athletic/6185825/2025/03/07/geno-smith-trade-grades-raiders-seahawks/
-
-**'The ultimate glue guy': How Scott Laughton can help the Leafs on and off the ice**\
-`The Maple Leafs traded for Scott Laughton to centre their third line. His biggest role might come behind the scenes.`\
-https://nytimes.com/athletic/6185097/2025/03/07/maple-leafs-scott-laughton-trade/
-
-**D’Wayne Wiggins, One Third of the R&B Group Tony! Toni! Toné!, Dies at 64**\
-`As a paragon of the New Jack Swing sound, the band recorded three platinum albums and a slew of hits, including “Feels Good.”`\
-https://nytimes.com/2025/03/07/arts/music/dwayne-wiggins-dead.html
 

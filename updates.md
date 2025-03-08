@@ -1,3 +1,11 @@
+**An Oregon Family Vanished in 1958. Their Car May Have Been Found in a River.**\
+`The case of the Martin family’s disappearance has bewildered local residents and investigators for more than six decades — until Friday.`\
+https://nytimes.com/2025/03/07/us/martin-family-station-wagon-columbia-river.html
+
+**2 Newark Police Officers Shot, With One Critically Injured**\
+`Gov. Phil Murphy of New Jersey asked people to “please pray” for the officers, who were shot around 6:30 p.m. Friday.`\
+https://nytimes.com/2025/03/07/nyregion/newark-police-officers-shot.html
+
 **Trump Offers to Reopen Nuclear Talks in a Letter to Iran’s Supreme Leader**\
 `The letter appears to be President Trump’s opening bid to see if a newly vulnerable Iran is willing to negotiate.`\
 https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
