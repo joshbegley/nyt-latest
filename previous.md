@@ -1,7 +1,3 @@
-**Wild GM Bill Guerin on not pulling LTIR lever while rivals bulked up at deadline: 'Our time will come'**\
-`Guerin explained the team's inaction compared to the Avalanche and Stars: "We’re just at a different stage than those teams."`\
-https://nytimes.com/athletic/6185542/2025/03/07/wild-trade-deadline-ltir-bill-guerin/
-
 **Lauren Price dominates Natasha Jonas, becomes unified welterweight champion**\
 `It took until the fifth round for Jonas to unleash her backhand, and when she did, Price barely seemed to notice.`\
 https://nytimes.com/athletic/6185526/2025/03/07/lauren-price-natasha-jonas-welterweight-fight-result/
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2025/03/07/us/doc-annotation-adams-clement-brief
 **Seahawks trade Geno Smith to Raiders, expected to pursue Darnold: Sources**\
 `Smith, 34, spent the past three seasons rehabilitating his career in Seattle. In Las Vegas, he will reunite with Pete Carroll.`\
 https://nytimes.com/athletic/6183520/2025/03/07/geno-smith-trade-raiders-seahawks-nfl-news/
+
+**Jalen Brunson expected to miss at least 2 weeks with ankle sprain**\
+`The team has not given an expected timetable for Brunson’s return, opting to await the results of further testing.`\
+https://nytimes.com/athletic/6184308/2025/03/07/knicks-jalen-brunson-injury-ankle/
 
