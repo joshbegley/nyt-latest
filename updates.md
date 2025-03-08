@@ -1,3 +1,7 @@
+**Why 'flow' matters for Arsenal and Odegaard**\
+`Arsenal are often at their best when they do not overthink their football — and their skipper proves it`\
+https://nytimes.com/athletic/6183276/2025/03/08/arsenal-martin-odegaard-flow/
+
 **Inside Forest Q&A: Sangare and Aina's futures, gameplan for City, Yates for England?**\
 `We bring you an edited version of Paul Taylor's Friday Q&A, just in case you missed it...`\
 https://nytimes.com/athletic/6183923/2025/03/08/nottingham-forest-sangare-aina-manchester-city/

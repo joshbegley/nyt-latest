@@ -1,3 +1,7 @@
+**Why 'flow' matters for Arsenal and Odegaard**\
+`Arsenal are often at their best when they do not overthink their football — and their skipper proves it`\
+https://nytimes.com/athletic/6183276/2025/03/08/arsenal-martin-odegaard-flow/
+
 **Inside Forest Q&A: Sangare and Aina's futures, gameplan for City, Yates for England?**\
 `We bring you an edited version of Paul Taylor's Friday Q&A, just in case you missed it...`\
 https://nytimes.com/athletic/6183923/2025/03/08/nottingham-forest-sangare-aina-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6183196/2025/03/08/10-goals-premier-league-why/
 **Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
 `Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
 https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
-
-**Football's tightest title race: Six clubs separated by two points with 13 games left**\
-`This season's Spanish second tier has the closest championship battle anywhere in football - and the seven teams in it are all very even`\
-https://nytimes.com/athletic/6179827/2025/03/08/footballs-tightest-title-race-six-clubs-separated-by-two-points-and-a-seventh-in-the-mix/
 
