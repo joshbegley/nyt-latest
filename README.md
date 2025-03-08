@@ -1,3 +1,7 @@
+**Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
+`The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
+https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
+
 **On International Women’s Day, thousands gather to oppose Trump.**\
 `By Isabelle Taft and Eric Berger`\
 https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-protests-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6172240/2025/03/08/ronnie-stanley-free-agency-signi
 **How Rangers blew late lead, gave away crucial 2 points to Senators: 3 takeaways**\
 `New York was by far the less engaged team throughout the game in a 4-3 overtime loss to the Ottawa Senators.`\
 https://nytimes.com/athletic/6187083/2025/03/08/rangers-senators-score-takeaways/
-
-**Mikko Rantanen on deadline whirlwind, Hurricanes and why Stars are a 'better fit'**\
-`Unlike with his trade to Carolina, Rantanen was involved in the decision of him going to Dallas and signing an 8-year, $96 million contract.`\
-https://nytimes.com/athletic/6187178/2025/03/08/mikko-rantanen-nhl-trade-deadline-stars-hurricanes/
 
