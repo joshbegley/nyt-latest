@@ -1,3 +1,7 @@
+**Braves' Jurickson Profar injures left wrist on diving catch attempt**\
+`Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
+https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
+
 **Wildfires Break Out on Long Island, Prompting Highway Closure**\
 `Weather forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
 https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
 **House Republicans Unveil Spending Bill to Avert Shutdown at Week’s End**\
 `Democrats decried the measure as a White House power grab, leaving it unclear whether the legislation could pass.`\
 https://nytimes.com/2025/03/08/us/politics/house-gop-spending-bill-government-shutdown.html
-
-**Wrexham 1 Rotherham 0: Battling brothers and Smith delivers for Parkinson's side**\
-`Record signing Sam Smith scores the winner for Wrexham, who make a strong start to an important week in their bid for promotion`\
-https://nytimes.com/athletic/6183095/2025/03/08/wrexham-rotherham-sam-smith-analysis/
 

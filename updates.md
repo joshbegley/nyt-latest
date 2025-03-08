@@ -1,3 +1,7 @@
+**Braves' Jurickson Profar injures left wrist on diving catch attempt**\
+`Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
+https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
+
 **Wildfires Break Out on Long Island, Prompting Highway Closure**\
 `Weather forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
 https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
