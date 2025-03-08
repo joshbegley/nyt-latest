@@ -1,15 +1,3 @@
-**What the Recent Cabinet Blowup Means for Musk**\
-`A billionaire who likes to have control could face some limits`\
-https://nytimes.com/2025/03/07/us/politics/musk-trump-cabinet-meeting.html
-
-**Bruins trade deadline report card: Grading Don Sweeney's moves**\
-`How did the Bruins do on deadline week? A look at their moves and how they set up the lineup, with Fluto Shinzawa's early analysis.`\
-https://nytimes.com/athletic/6172065/2025/03/07/bruins-trade-deadline-report-card/
-
-**In ‘The Seagull,’ Cate Blanchett Outshines a Director’s Tired Tropes**\
-`Thanks to Blanchett’s charismatic turn as a fading actress, this new Chekhov adaptation in London hangs together in spite of Thomas Ostermeier’s antics.`\
-https://nytimes.com/2025/03/07/theater/blanchett-corrin-the-seagull-review.html
-
 **U.S. Investigates Egg Producers Over Soaring Prices**\
 `The Justice Department inquiry is said to be focused on potential antitrust violations among the country’s largest egg producers.`\
 https://nytimes.com/2025/03/07/business/us-investigates-egg-producers-over-soaring-prices.html
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6172333/2025/03/07/sabres-trade-deadline-report-car
 **Jalen Brunson ankle injury: X-rays negative, but Knicks PG out vs. Clippers**\
 `The team has not given an expected timetable for Brunson’s return, opting to await the results of further testing.`\
 https://nytimes.com/athletic/6184308/2025/03/07/knicks-jalen-brunson-injury-ankle/
+
+**Projecting the Braves' Opening Day roster after some spring surprises**\
+`Daysbel Hernández seemed like a lock for a bullpen spot entering camp, but some rough spring numbers could change the equation. `\
+https://nytimes.com/athletic/6185080/2025/03/07/braves-opening-day-roster-projection/
+
+**Rangers' midseason remodel is complete, but they must do more to be contenders again**\
+`The Rangers emerged from the trade deadline in better shape than before, but there is more hard work to be done. `\
+https://nytimes.com/athletic/6184994/2025/03/07/rangers-nhl-trade-deadline-analysis-2025/
+
+**U.S. Suspends Ukraine’s Access to Satellite Imagery**\
+`Ukraine uses the technology to track the movement of Russian troops and assess damage to infrastructure.`\
+https://nytimes.com/2025/03/07/world/us-ukraine-satellite-imagery.html
 
