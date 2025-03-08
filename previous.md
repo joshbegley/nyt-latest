@@ -1,3 +1,15 @@
+**NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
+`Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket on Saturday.`\
+https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
+
+**Extra! Extra!**\
+`Michael Schlossberg’s puzzle might get a little ink on our fingers.`\
+https://nytimes.com/2025/03/08/crosswords/daily-puzzle-2025-03-09.html
+
+**'It's going the wrong direction': Flyers dreadful in first game post-deadline**\
+`The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
+https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
+
 **Berta reaches agreement to become Arsenal sporting director**\
 `Berta became available in January after more than a decade at Atletico Madrid — where he was central to the Spanish team’s progress.`\
 https://nytimes.com/athletic/6166136/2025/03/08/arsenal-sporting-director-berta-new-appointment/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6187164/2025/03/08/christian-pulisic-milan-goals-le
 **Braves' Jurickson Profar injures left wrist on diving catch attempt**\
 `Profar's X-rays were negative; the Braves say the preliminary diagnosis is that he jammed his wrist.`\
 https://nytimes.com/athletic/6187154/2025/03/08/braves-jurickson-profar-injury/
-
-**Multiple Wildfires Break Out on Long Island, Prompting Highway Closure**\
-`An official said that more than 25 agencies were fighting dozens of fires on Saturday. Forecasters had warned that low humidity and gusty winds would create an “elevated risk for fire spread.”`\
-https://nytimes.com/2025/03/08/nyregion/brush-fire-long-island-brooklyn.html
-
-**How the NHL trade deadline put Mitch Marner's future on center stage**\
-`Events of recent weeks have underlined that if the Leafs want to keep the pending UFA, they're going to have to bid against others to do it.`\
-https://nytimes.com/athletic/6186975/2025/03/08/mitch-marner-nhl-trade-deadline-maple-leafs/
-
-**How to Care for a Loved One With Dementia: 5 Expert Tips**\
-`Gene Hackman was cared for by his wife in his final years. Her unexpected death highlights the essential and challenging job of those who care for Alzheimer’s patients.`\
-https://nytimes.com/2025/03/08/us/dementia-alzheimers-care-gene-hackman.html
 

@@ -1,3 +1,15 @@
+**NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
+`Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket on Saturday.`\
+https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
+
+**Extra! Extra!**\
+`Michael Schlossberg’s puzzle might get a little ink on our fingers.`\
+https://nytimes.com/2025/03/08/crosswords/daily-puzzle-2025-03-09.html
+
+**'It's going the wrong direction': Flyers dreadful in first game post-deadline**\
+`The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
+https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
+
 **Berta reaches agreement to become Arsenal sporting director**\
 `Berta became available in January after more than a decade at Atletico Madrid — where he was central to the Spanish team’s progress.`\
 https://nytimes.com/athletic/6166136/2025/03/08/arsenal-sporting-director-berta-new-appointment/
