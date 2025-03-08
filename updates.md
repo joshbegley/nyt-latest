@@ -1,3 +1,7 @@
+**2 Books From Other Shores**\
+`A memoir of Italy; notes on Canada.`\
+https://nytimes.com/2025/03/08/books/read-like-wind-recommendations.html
+
 **North Korea Says It’s Building a Nuclear-Powered Submarine**\
 `The announcement came amid fears that Pyongyang may be receiving crucial military technology from Russia in return for sending troops and weapons for its war against Ukraine.`\
 https://nytimes.com/2025/03/08/world/asia/north-korea-nuclear-powered-submarine.html
