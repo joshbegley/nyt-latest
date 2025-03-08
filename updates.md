@@ -1,3 +1,7 @@
+**'It's going the wrong direction': Flyers were dreadful in first game post-deadline**\
+`The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
+https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
+
 **Duke upsets Notre Dame 61-56 in ACC semifinals**\
 `The Irish have dropped three of their last five games, eliminating their chances for an outright ACC regular-season title.`\
 https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
