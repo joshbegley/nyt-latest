@@ -1,3 +1,11 @@
+**Arizona State women's hoops fires Natasha Adair after 3 seasons: Sources**\
+`The Sun Devils moved to the Big 12 this year and went 3-15, finishing second-to-last and losing to Iowa State in the conference tournament.`\
+https://nytimes.com/athletic/6186477/2025/03/08/arizona-state-natasha-adair-fired/
+
+**Nottingham Forest 1 Manchester City 0: Hudson-Odoi's knockout blow, where does it leave Euro chase?**\
+`Nottingham Forest beat Manchester City with a late goal to take a step closer to European qualification.`\
+https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-city-0-result-premier-league/
+
 **Gwen McCrae, Singer Who Helped Open the Dance Floor to Disco, Dies at 81**\
 `Originally a gospel singer, she went on to meld soulful melodies with dance-floor-friendly grooves on songs like the 1975 Top 10 hit “Rockin’ Chair.”`\
 https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
