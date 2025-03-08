@@ -1,3 +1,7 @@
+**How Rangers blew late lead, gave away crucial 2 points to Senators: 3 takeaways**\
+`The Rangers were by far the less engaged team throughout the game in a 4-3 overtime loss to the Senators.`\
+https://nytimes.com/athletic/6187083/2025/03/08/rangers-senators-score-takeaways/
+
 **Mikko Rantanen on deadline whirlwind, Hurricanes and why Stars are a 'better fit'**\
 `Unlike with his trade to Carolina, Rantanen was involved in the decision of him going to Dallas and signing an 8-year, $96 million contract.`\
 https://nytimes.com/athletic/6187178/2025/03/08/mikko-rantanen-nhl-trade-deadline-stars-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187109/2025/03/08/usmnt-sergino-dest-acl-injury-re
 **For Black Women, Adrienne Adams Is More Than Just Another Candidate**\
 `The New York City Council speaker, who officially launched her mayoral campaign on Saturday, would be the first woman of color to lead City Hall.`\
 https://nytimes.com/2025/03/08/nyregion/adrienne-adams-mayor-woman.html
-
-**Iran’s Leader Rebuffs Trump’s Outreach Over Its Nuclear Program**\
-`Ayatollah Ali Khamenei decried “bullying governments” in an apparent response to a letter the White House sent to Iran earlier in the week.`\
-https://nytimes.com/2025/03/08/world/middleeast/trump-iran-nuclear-deal-leader-response.html
 
