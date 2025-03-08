@@ -1,3 +1,7 @@
+**Commanders free-agency guide: Swing big for new, familiar targets**\
+`Washington enters free agency among the league leaders in salary-cap space and momentum coming off a trip to the NFC Championship Game.`\
+https://nytimes.com/athletic/6182864/2025/03/08/commanders-free-agency-targets/
+
 **Xavi says he'd be open to managing another La Liga side**\
 `Xavi was sacked by Barcelona last May, having previously spent more than 25 years there as a player and a coach.`\
 https://nytimes.com/athletic/6186356/2025/03/08/xavi-manager-next-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/business/tax-bill-social-security-income.html
 **Why You Should Sign Up for the I.R.S.’s Identity Theft Prevention Tool**\
 `With employees from the so-called Department of Government Efficiency poking around in agency systems, faith in data security isn’t what it once was. The tool, an identity protection PIN, can help.`\
 https://nytimes.com/2025/03/08/your-money/irs-pin-identity-theft.html
-
-**Scammers Stole Their Savings, and Then the Tax Bill Arrived**\
-`The victims pulled money out of their retirement accounts. The withdrawals had inflated their taxable income, even though the funds quickly disappeared.`\
-https://nytimes.com/2025/03/08/your-money/taxes-retirement-withdrawal-scam.html
 
