@@ -1,3 +1,15 @@
+**Read The Brief That Recommends Dropping The Charges Against Eric Adams, Annotated**\
+`The amicus brief was written by Paul D. Clement, a noted conservative lawyer, at the behest of Federal District Judge Dale E. Ho.`\
+https://nytimes.com/interactive/2025/03/07/us/doc-annotation-adams-clement-brief.html
+
+**Raiders acquiring QB Geno Smith from Seahawks in blockbuster: Sources**\
+`Smith, 34, spent the past three seasons rehabilitating his career in Seattle. In Las Vegas, he will reunite with Pete Carroll.`\
+https://nytimes.com/athletic/6183520/2025/03/07/geno-smith-trade-raiders-seahawks-nfl-news/
+
+**Jalen Brunson expected to miss at least 2 weeks with ankle sprain**\
+`The team has not given an expected timetable for Brunson’s return, opting to await the results of further testing.`\
+https://nytimes.com/athletic/6184308/2025/03/07/knicks-jalen-brunson-injury-ankle/
+
 **NHL trade grades: Panthers swoop in to nab Brad Marchand from Bruins**\
 `The Panthers can thank Boston for their missing piece in their quest to repeat as Stanley Cup champions.`\
 https://nytimes.com/athletic/6184760/2025/03/07/nhl-trade-grades-brad-marchand-bruins-panthers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/07/theater/blanchett-corrin-the-seagull-review.html
 **U.S. Investigates Egg Producers Over Soaring Prices**\
 `The Justice Department inquiry is said to be focused on potential antitrust violations among the country’s largest egg producers.`\
 https://nytimes.com/2025/03/07/business/us-investigates-egg-producers-over-soaring-prices.html
-
-**Trump Administration Forces Out More Senior Justice Dept. Officials**\
-`The Trump administration targeted veteran career lawyers who managed pardon work, bankruptcy litigation and other legal issues in the latest wave of forced departures.`\
-https://nytimes.com/2025/03/07/us/politics/trump-justice-dept-ousters.html
-
-**Leafs GM Brad Treliving on two big trades — and the cost of doing business**\
-`The Leafs GM said he likes that neither Scott Laughton nor Brandon Carlo are trade deadline rentals. `\
-https://nytimes.com/athletic/6185372/2025/03/07/leafs-gm-brad-treliving-trade-deadline/
-
-**Oilers trade deadline report card: Grading Stan Bowman’s moves**\
-`The Oilers are better now than they were at the start of the week but their moves didn’t come cheap.`\
-https://nytimes.com/athletic/6172345/2025/03/07/oilers-trade-deadline-report-card-2025/
 
