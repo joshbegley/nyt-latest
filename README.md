@@ -1,3 +1,7 @@
+**With Wilyer Abreu likely to miss the opener, Kristian Campbell is seeing more outfield time**\
+`The Red sox open their season in Texas in 20 days, and time is running out for Abreu to make the Opening Day roster.`\
+https://nytimes.com/athletic/6185289/2025/03/07/wilyer-abreu-red-sox-opener-kristian-campbell/
+
 **Trump Administration Sends Politically Charged Survey to Researchers**\
 `Scientists on overseas projects must say whether they work with communist governments and help combat “Christian persecution.”`\
 https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
 `Having declined to sell when it was so clearly sensible, the Canucks better make what's left of this season count.`\
 https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline-2025/
 
-**Buccaneers ink LB Lavonte David to 1-year deal for 14th NFL season**\
+**Buccaneers, veteran LB Lavonte David agree to 1-year deal**\
 `The 13-year veteran and Super Bowl champion will add another chapter to his storied career in 2025.`\
 https://nytimes.com/athletic/6185511/2025/03/07/buccaneers-ink-veteran-lb-lavonte-david-to-1-year-deal-to-return-for-14th-season/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6184743/2025/03/07/blue-jackets-trade-waddell-kunin
 **Fraternity Member Charged With Manslaughter in Hazing Death of University Student**\
 `Investigators say that Caleb Wilson, 20, a student at Southern University in Baton Rouge, La., collapsed after being hit with boxing gloves as part of a pledging ritual for Omega Psi Phi.`\
 https://nytimes.com/2025/03/07/us/southern-university-hazing-death-arrest.html
-
-**Flyers understand trading Laughton is 'a little scary,' but it had to be done**\
-`This wasn't an ordinary trade for Briere, who understood Laughton's value in Philadelphia.`\
-https://nytimes.com/athletic/6185463/2025/03/07/flyers-laughton-trade-briere/
 
