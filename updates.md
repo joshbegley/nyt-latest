@@ -1,3 +1,7 @@
+**Is Jabari Smith Jr. a starter? Bottleneck scenarios and more: Rockets mailbag**\
+`Kelly Iko answers your questions as the Houston Rockets head down the final stretch before the playoffs.`\
+https://nytimes.com/athletic/6182268/2025/03/08/houston-rockets-nba-jabari-smith/
+
 **The Jets' trade deadline result was a failure. Their playoffs don't have to be**\
 `Winnipeg's players will be glad to have Brandon Tanev and Luke Schenn, even as Jets management set its sights higher and missed.`\
 https://nytimes.com/athletic/6185913/2025/03/08/winnipeg-jets-trade-deadline-failure/
