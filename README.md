@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6185892/2025/03/08/spurs-kings-deaaron-fox-return/
 
 **How the Canucks held off the Wild for crucial home victory: 3 takeaways**\
-`Declining to sell in a historic sellers' market is a significant risk. But the die is cast. This is Vancouver's team.`\
+`Declining to sell in a historic seller's market is a significant risk. But the die is cast. This is Vancouver's team.`\
 https://nytimes.com/athletic/6185158/2025/03/08/canucks-beat-wild-3-takeaways/
 
 **The New York Times in Print for Saturday, March 8, 2025**\
