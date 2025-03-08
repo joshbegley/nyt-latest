@@ -1,3 +1,11 @@
+**'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
+`This wasn't stubbornness from Chris Finch. It was the exact opposite.`\
+https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
+
+**The Future of News Looks Niche**\
+`The media entrepreneur Jessica Lessin chats with DealBook about the news landscape and her latest media bet.`\
+https://nytimes.com/2025/03/08/business/dealbook/jessica-lessin-the-information-media-investments.html
+
 **The Maple Leafs got better at the trade deadline. But was it enough?**\
 `The Leafs picked up their right-handed defenceman and depth centre. The moves' effectiveness will play out in time.`\
 https://nytimes.com/athletic/6185926/2025/03/08/maple-leafs-treliving-laughton-carlo-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181537/2025/03/08/maple-leafs-avalanche-scott-laug
 **The Oilers are improved but did they do enough before trade deadline?**\
 `Overall, it’s solid but not spectacular work by Jeff Jackson, Stan Bowman and the Oilers' management and scouting groups.`\
 https://nytimes.com/athletic/6185450/2025/03/08/oilers-nhl-trade-deadline-2025/
-
-**Why Senators' emotions about Josh Norris trade a reality check for young core**\
-`A move like this was almost inevitable as the Sens venture forward in their hopes of being bona fide contenders.`\
-https://nytimes.com/athletic/6185630/2025/03/08/senators-norris-cozens-sabres-trade/
-
-**Mapping out the schedule for men's conference tournament championship games**\
-`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
-https://nytimes.com/athletic/6177326/2025/03/08/ncaa-tournament-automatic-bids-tracker-mens/
 
