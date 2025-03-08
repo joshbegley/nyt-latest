@@ -1,3 +1,11 @@
+**How Gorgeous Is This Chicken Curry Laksa?**\
+`The coconut milk broth is spicy, savory and rich, but not heavy, and based on the curry laksa found at hawker centers in Malaysia and Singapore.`\
+https://nytimes.com/2025/03/08/dining/chicken-curry-laksa.html
+
+**At Least 12 Injured in Toronto Pub Shooting**\
+`The pub, Piper Arms, was hosting its opening night on Friday when three men walked in and “opened fire indiscriminately” before escaping by car, the police said.`\
+https://nytimes.com/2025/03/08/world/canada/toronto-pub-shooting.html
+
 **Lakers' JJ Redick, Celtics' Joe Mazzulla share mutual respect as 'basketball sickos'**\
 `Mazzulla twice tried to convince Redick to join his Celtics staff. Tonight, they'll meet as opposing head coaches for the second time.`\
 https://nytimes.com/athletic/6176354/2025/03/08/jj-redick-joe-mazzulla-lakers-celtics/
