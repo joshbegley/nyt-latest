@@ -1,3 +1,7 @@
+**Barca vs Osasuna postponed after death of first-team doctor**\
+`The match was postponed less than 30 minutes before its scheduled start time at the request of Barca, after Carles Minarro Garcia's death.`\
+https://nytimes.com/athletic/6187007/2025/03/08/barcelona-osasuna-postponed-why-doctor-death/
+
 **Women's college basketball conference tournaments: Did a mid-major loss open a door?**\
 `How did UConn fare in the Big Ten tournament? Will Richmond's A-10 loss impact Big Ten bubble teams?`\
 https://nytimes.com/athletic/6186920/2025/03/08/womens-college-basketball-conference-tournament-ncaa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180584/2025/03/08/marquise-brown-chiefs-free-agenc
 **After trade deadline, Kings are left with a familiar roster — and not much hope**\
 `The Kings are hoping for a different playoff result this year. GM Rob Blake's quiet trade deadline makes it hard to see. `\
 https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nhl/
-
-**Johannes Høsflot Klæbo, Norway's cross-country king, completes historic feat at worlds**\
-`Norway's Johannes Hoesflot Klaebo finished an unprecedented sweep of six gold medals in six events at the cross-country world championships.`\
-https://nytimes.com/athletic/6186488/2025/03/08/johannes-hoesflot-klaebo-cross-country-skiing-world-championships/
 

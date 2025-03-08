@@ -1,3 +1,23 @@
+**How Matt Sauer got himself onto the Dodgers' Tokyo travel roster: 'It was awesome'**\
+`"I honestly didn’t even know how to react," Sauer said, describing feeling pure shock as he walked off the mound.`\
+https://nytimes.com/athletic/6186944/2025/03/08/matt-sauer-dodgers-tokyo-roster/
+
+**House Republicans Unveil Spending Bill to Avert Shutdown at Week’s End**\
+`Democrats decried the measure as a White House power grab, leaving it unclear whether the legislation could pass.`\
+https://nytimes.com/2025/03/08/us/politics/house-gop-spending-bill-government-shutdown.html
+
+**Wrexham 1 Rotherham 0: Battling brothers and Smith delivers for Parkinson's side**\
+`Record signing Sam Smith scores the winner for Wrexham, who make a strong start to an important week in their bid for promotion`\
+https://nytimes.com/athletic/6183095/2025/03/08/wrexham-rotherham-sam-smith-analysis/
+
+**Arkansas, Georgia pick up big bubble wins; Kentucky makes a statement at Mizzou**\
+`The SEC on Saturday took a big step toward a huge milestone: earning the most NCAA Tournament bids for a conference in a single season.`\
+https://nytimes.com/athletic/6186976/2025/03/08/sec-ncaa-tournament-kentucky-georgia-arkansas/
+
+**Former Ride-Share Driver Sentenced to 290 Years for Kidnapping a Dozen Women**\
+`John Pastor-Mendoza, a Lyft driver, falsely posed as the ride that the women had requested and targeted victims who appeared intoxicated, the Denver district attorney said.`\
+https://nytimes.com/2025/03/08/us/denver-rideshare-driver-sentence-women-assault.html
+
 **Barca vs Osasuna postponed after death of first-team doctor**\
 `The match was postponed less than 30 minutes before its scheduled start time at the request of Barca, after Carles Minarro Garcia's death.`\
 https://nytimes.com/athletic/6187007/2025/03/08/barcelona-osasuna-postponed-why-doctor-death/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/08/climate/noaa-layoffs-trump.html
 **A 90,000 crowd, millions watching online and £4.7m raised... welcome to the Sidemen vs YouTube Allstars**\
 `The most-viewed football match in Europe this weekend involved no professional players but was seen by millions worldwide online`\
 https://nytimes.com/athletic/6186690/2025/03/08/sidemen-youtube-allstars-wembley/
-
-**14-Year-Old Boy Arrested in Connection With Fatal Newark Police Shooting**\
-`The boy, who has not been named, was charged with murder, attempted murder and possessing illegal weapons. The officer who died early Saturday morning was identified as Detective Joseph Azcona.`\
-https://nytimes.com/2025/03/08/nyregion/newark-police-officer-shooting.html
-
-**Purdue player says brother faced racist comments from Illinois fans**\
-`Kaufman-Renn said the comments occurred during No. 18 Purdue’s 88-80  loss at Illinois.`\
-https://nytimes.com/athletic/6186794/2025/03/08/trey-kaufman-renn-purdue-illinois-racist-comments/
-
-**Kompany 'not looking for excuses' after Bayern lose at home to Bochum**\
-`Raphael Guerriero scored twice for Bayern inside 28 minutes to seemingly put them in control at home to the Bundesliga's 16th-placed side.`\
-https://nytimes.com/athletic/6186835/2025/03/08/bayern-bochum-vincent-kompany/
-
-**Marquise Brown returning to Chiefs on 1-year deal worth up to $11 million**\
-`Over six seasons, Brown has played for three teams in the Ravens, Cardinals and Chiefs.`\
-https://nytimes.com/athletic/6180584/2025/03/08/marquise-brown-chiefs-free-agency-2025/
-
-**After trade deadline, Kings are left with a familiar roster — and not much hope**\
-`The Kings are hoping for a different playoff result this year. GM Rob Blake's quiet trade deadline makes it hard to see. `\
-https://nytimes.com/athletic/6186319/2025/03/08/kings-trade-deadline-kuzmenko-nhl/
 
