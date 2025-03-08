@@ -1,3 +1,7 @@
+**Russian Strikes Kill 20 in Eastern Ukraine as U.S. Reduces Its Support**\
+`The bombardment came after Washington’s decision to suspend intelligence sharing and hit a region critical for Ukrainian logistics and support.`\
+https://nytimes.com/2025/03/08/world/europe/russia-ukraine-donetsk-strikes.html
+
 **Commanders free-agency guide: Swing big for new, familiar targets**\
 `Washington enters free agency among the league leaders in salary-cap space and momentum coming off a trip to the NFC Championship Game.`\
 https://nytimes.com/athletic/6182864/2025/03/08/commanders-free-agency-targets/

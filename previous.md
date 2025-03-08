@@ -1,3 +1,7 @@
+**Russian Strikes Kill 20 in Eastern Ukraine as U.S. Reduces Its Support**\
+`The bombardment came after Washington’s decision to suspend intelligence sharing and hit a region critical for Ukrainian logistics and support.`\
+https://nytimes.com/2025/03/08/world/europe/russia-ukraine-donetsk-strikes.html
+
 **Commanders free-agency guide: Swing big for new, familiar targets**\
 `Washington enters free agency among the league leaders in salary-cap space and momentum coming off a trip to the NFC Championship Game.`\
 https://nytimes.com/athletic/6182864/2025/03/08/commanders-free-agency-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/us/politics/trumps-affinity-for-putin-grows-more-
 **19 Ways Congressional Tax Action (or Inaction) Could Hit Your Wallet**\
 `Brackets may change. The standard deduction could fall. And President Trump will probably not remove taxes on Social Security income.`\
 https://nytimes.com/2025/03/08/business/tax-bill-social-security-income.html
-
-**Why You Should Sign Up for the I.R.S.’s Identity Theft Prevention Tool**\
-`With employees from the so-called Department of Government Efficiency poking around in agency systems, faith in data security isn’t what it once was. The tool, an identity protection PIN, can help.`\
-https://nytimes.com/2025/03/08/your-money/irs-pin-identity-theft.html
 
