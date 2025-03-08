@@ -1,3 +1,11 @@
+**Rutherford: The Blues did the right thing by standing pat at the NHL trade deadline**\
+`Blues general manager Doug Armstrong didn't make any moves at the NHL trade deadline, and that was the right call.`\
+https://nytimes.com/athletic/6183902/2025/03/08/blues-nhl-trade-deadline-analysis/
+
+**Trump Wants to Kill Carried Interest. Wall Street Will Fight to Keep It.**\
+`President Trump has been trying to eliminate the tax loophole, which benefits Wall Street, but Congressional Republicans may stand in the way.`\
+https://nytimes.com/2025/03/08/business/dealbook/trump-carried-interest.html
+
 **Lia Block learned to drift from her father. Now she's racing to make her own name in F1**\
 `Motorsports history is littered with sons of famous fathers following in dad&#8217;s footsteps and trying to make their own names.`\
 https://nytimes.com/athletic/6184083/2025/03/08/f1-formula-one-racing-lia-block/
