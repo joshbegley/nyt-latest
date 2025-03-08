@@ -1,3 +1,7 @@
+**Justice Department Accuses Adams Prosecutors of Politicking and Hypocrisy**\
+`In a court filing, two top officials released prosecutors’ internal messages in a further attempt to discredit the case against the mayor of New York.`\
+https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.html
+
 **Spirit get redemption with 2025 Challenge Cup win over Pride**\
 `The Spirit won their first Challenge Cup trophy with the victory in penalty kicks.`\
 https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/07/us/politics/trump-iran-nuclear-talks.html
 **Corrections: March 8, 2025**\
 `Corrections that appeared in print on Saturday, March 8, 2025.`\
 https://nytimes.com/2025/03/07/pageoneplus/corrections-march-8-2025.html
-
-**Draymond Green's ongoing grudge against KAT: Fact vs. fiction**\
-`Green let his contempt lead him to surmise that KAT's absence from a game had something to do with his perceived fear of Jimmy Butler.`\
-https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-towns-grudge-facts-nba/
 
