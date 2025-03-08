@@ -1,3 +1,7 @@
+**North Korea Says It’s Building a Nuclear-Powered Submarine**\
+`The announcement came amid fears that Pyongyang may be receiving crucial military technology from Russia in return for sending troops and weapons for its war against Ukraine.`\
+https://nytimes.com/2025/03/08/world/asia/north-korea-nuclear-powered-submarine.html
+
 **Is Jabari Smith Jr. a starter? Bottleneck scenarios and more: Rockets mailbag**\
 `Kelly Iko answers your questions as the Houston Rockets head down the final stretch before the playoffs.`\
 https://nytimes.com/athletic/6182268/2025/03/08/houston-rockets-nba-jabari-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/opinion/self-deportation-immigration-us.html
 **Lowetide: What's the state of Oilers' prospect pool after the deadline?**\
 `Edmonton dispatched three prospects — Max Wanner, Shane LaChance and Carl Berglund — in deals this week.`\
 https://nytimes.com/athletic/6179501/2025/03/08/oilers-prospects-nhl-trade-deadline-2025/
-
-**Reading Two Chapters of ‘The Great Gatsby’ Is Not Enough**\
-`Responses to an Opinion guest essay by Tim Donahue about reading and learning.`\
-https://nytimes.com/2025/03/08/opinion/reading-books.html
 
