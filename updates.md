@@ -1,3 +1,7 @@
+**'Uncle Mike' Conley validates Chris Finch's decision to start him: 'He was huge'**\
+`Conley validated his spot in the starting lineup against the Heat, scoring 15 points in 25 minutes of a tense 106-104 win.`\
+https://nytimes.com/athletic/6185794/2025/03/08/mike-conley-timberwolves-starter-nba/
+
 **Trump Administration Live Updates: Order Would Deny Student Loan Relief to Workers Aiding Migrants or Trans Youth**\
 ``\
 https://nytimes.com/live/2025/03/08/us/trump-news
