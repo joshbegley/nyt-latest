@@ -14,7 +14,7 @@ https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
 `Michael Schlossberg’s puzzle might get a little ink on our fingers.`\
 https://nytimes.com/2025/03/08/crosswords/daily-puzzle-2025-03-09.html
 
-**'It's going the wrong direction': Flyers dreadful in first game post-deadline**\
+**'It's going the wrong direction': Flyers were dreadful in first game post-deadline**\
 `The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
 https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
 
