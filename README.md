@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/03/07/us/trump-news-crypto/the-homeland-security-d
 https://nytimes.com/athletic/6183380/2025/03/07/maple-leafs-trade-deadline-report-card/
 
 **What the Recent Cabinet Blowup Means for Musk**\
-`A billionaire who likes to have control could face some limits`\
+`A billionaire who likes to have control could face some limits.`\
 https://nytimes.com/2025/03/07/us/politics/musk-trump-cabinet-meeting.html
 
 **Bruins trade deadline report card: Grading Don Sweeney's moves**\
