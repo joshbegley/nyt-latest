@@ -1,3 +1,7 @@
+**Trump Administration Sends Politically Charged Survey to Researchers**\
+`Scientists on overseas projects must say whether they work with communist governments and help combat “Christian persecution.”`\
+https://nytimes.com/2025/03/07/health/foreign-aid-questionnaire.html
+
 **Drance: Why Canucks' trade deadline paralysis is a shocking missed opportunity**\
 `Having declined to sell when it was so clearly sensible, the Canucks better make what's left of this season count.`\
 https://nytimes.com/athletic/6185183/2025/03/07/vancouver-canucks-trade-deadline-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/07/us/southern-university-hazing-death-arrest.html
 **Flyers understand trading Laughton is 'a little scary,' but it had to be done**\
 `This wasn't an ordinary trade for Briere, who understood Laughton's value in Philadelphia.`\
 https://nytimes.com/athletic/6185463/2025/03/07/flyers-laughton-trade-briere/
-
-**Senators trade deadline report card: Grading Steve Staios' moves**\
-`The Senators needed offensive help ahead of the trade deadline. They addressed it by adding Dylan Cozens, Fabian Zetterlund and more.`\
-https://nytimes.com/athletic/6172353/2025/03/07/senators-trade-deadline-report-card-2025/
 
