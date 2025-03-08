@@ -1,3 +1,7 @@
+**Frank Saucier, Slugger Sidelined by a Publicity Stunt, Dies at 98**\
+`He had just recently joined the St. Louis Browns when he was replaced in the lineup by Eddie Gaedel, a 3-foot-7 circus performer, in a game in 1951.`\
+https://nytimes.com/2025/03/08/sports/baseball/frank-saucier-dead.html
+
 **Mike Gesicki re-signing with Bengals on 3-year, $25.5 million deal**\
 `Gesicki enjoyed a bounce-back season with the Bengals in 2024 after a disappointing year with the Patriots in 2023.`\
 https://nytimes.com/athletic/6178948/2025/03/08/mike-gesicki-free-agency-signing-bengals-2025/
