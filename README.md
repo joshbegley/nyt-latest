@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 3 Southampton 1: Alisson and Van Dijk's mix-up, Slot's ruthless changes pay off**\
+`Liverpool were made to work harder than most predicted in beating Southampton - Andy Jones analyses the action from Anfield`\
+https://nytimes.com/athletic/6179992/2025/03/08/liverpool-3-southampton-1-alisson-van-dijk-salah-slot/
+
 **Chiefs WR Xavier Worthy arrested on felony domestic assault charge in Texas**\
 `The Chiefs are "aware and gathering information" about the incident, the team said in a statement Saturday.`\
 https://nytimes.com/athletic/6186520/2025/03/08/chiefs-xavier-worthy-arrest-assault-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6179991/2025/03/08/nottingham-forest-1-manchester-c
 **Gwen McCrae, Singer Who Helped Open the Dance Floor to Disco, Dies at 81**\
 `Originally a gospel singer, she went on to meld soulful melodies with dance-floor-friendly grooves on songs like the 1975 Top 10 hit “Rockin’ Chair.”`\
 https://nytimes.com/2025/03/08/arts/music/gwen-mccrae-dead.html
-
-**Trump Administration Live Updates: Order Would Deny Student Loan Relief to Workers Aiding Migrants or Trans Youth**\
-``\
-https://nytimes.com/live/2025/03/08/us/trump-news
 
