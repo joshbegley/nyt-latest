@@ -1,3 +1,15 @@
+**Trump Seeks to Bar Student Loan Relief to Workers Aiding Migrants and Trans Kids**\
+`The president signed an order that would deny loan forgiveness to workers for groups engaged in “substantial illegal activities,” which it indicated included things like diversity initiatives.`\
+https://nytimes.com/2025/03/07/us/politics/trump-executive-order-student-loan-forgiveness.html
+
+**Dubas' second trade deadline with Penguins made sense — and didn't**\
+`The Penguins had a decent trade deadline, but hanging onto Rickard Rakell is questionable.`\
+https://nytimes.com/athletic/6185687/2025/03/07/penguins-kyle-dubas-nhl-trade-deadline-return/
+
+**After quiet deadline, how can Red Wings take the next step?**\
+`The Red Wings' lack of action at the deadline surfaced a bubbling dread over how much longer the franchise will have to keep waiting.`\
+https://nytimes.com/athletic/6185527/2025/03/07/red-wings-nhl-trade-deadline/
+
 **Took for a Ride**\
 `Joe Deeney’s crowd-pleasing puzzle reaches great heights.`\
 https://nytimes.com/2025/03/07/crosswords/daily-puzzle-2025-03-08.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6184928/2025/03/07/draymond-green-karl-anthony-town
 **C.D.C. Will Investigate Debunked Link Between Vaccines and Autism**\
 `Dozens of studies have failed to find evidence of a link. The decision to re-examine the question comes as a measles outbreak, driven by low vaccination rates, widens in Texas.`\
 https://nytimes.com/2025/03/07/health/vaccines-autism-cdc-rfk-jr.html
-
-**Canadiens' trade deadline inactivity marked a new phase of their rebuild centred on culture**\
-`The timing of a deadline-day practice by Martin St. Louis said a lot about the culture the Canadiens are nurturing.`\
-https://nytimes.com/athletic/6185847/2025/03/07/canadiens-trade-deadline-culture-savard-st-louis/
-
-**U.S. Judge Finds China Liable for Covid Missteps, Imposes $24 Billion Penalty**\
-`The judgment was issued in a case brought by the Missouri attorney general. The Chinese government did not respond to the claims in court.`\
-https://nytimes.com/2025/03/07/us/missouri-china-covid-judgment.html
-
-**Lou Lamoriello did the right thing at the deadline — but did he do enough?**\
-`Lamoriello finally embraced change, but it's hard to shake the nagging feeling that he should have done more.`\
-https://nytimes.com/athletic/6185524/2025/03/07/islanders-nhl-trade-deadline-lou-lamoriello/
 
