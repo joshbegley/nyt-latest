@@ -1,3 +1,7 @@
+**Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
+`Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
+https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
+
 **Football's tightest title race: Six clubs separated by two points with 13 games left**\
 `This season's Spanish second tier has the closest championship battle anywhere in football - and the seven teams in it are all very even`\
 https://nytimes.com/athletic/6179827/2025/03/08/footballs-tightest-title-race-six-clubs-separated-by-two-points-and-a-seventh-in-the-mix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186098/2025/03/07/yankees-gerrit-cole-elbow-injury
 **Justice Department Accuses Adams Prosecutors of Politicking and Hypocrisy**\
 `In a court filing, two top officials released prosecutors’ internal messages in a further attempt to discredit the case against the mayor of New York.`\
 https://nytimes.com/2025/03/07/nyregion/adams-corruption-justice-prosecutors.html
-
-**Spirit get redemption with 2025 Challenge Cup win over Pride**\
-`The Spirit won their first Challenge Cup trophy with the victory in penalty kicks.`\
-https://nytimes.com/athletic/6186031/2025/03/07/washington-spirit-challenge-cup-win-orlando-pride/
 

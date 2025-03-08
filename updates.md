@@ -1,3 +1,7 @@
+**Enzo Maresca and the ongoing debate - for both Chelsea and Leicester fans**\
+`Chelsea are fifth in the table, two points off third, and favourites for a trophy - but there is still debate over their new head coach`\
+https://nytimes.com/athletic/6182837/2025/03/08/enzo-maresca-chelsea-leicester-fans/
+
 **Football's tightest title race: Six clubs separated by two points with 13 games left**\
 `This season's Spanish second tier has the closest championship battle anywhere in football - and the seven teams in it are all very even`\
 https://nytimes.com/athletic/6179827/2025/03/08/footballs-tightest-title-race-six-clubs-separated-by-two-points-and-a-seventh-in-the-mix/
