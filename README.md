@@ -1,3 +1,7 @@
+**Plane With 5 Aboard Crashes in Lancaster County, Pa.**\
+`The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
+https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
+
 **Small Earthquake Rattles Southern California**\
 `The authorities said they were surveying for signs of damage from the quake, which struck in the hills west of Malibu.`\
 https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/world/middleeast/israel-electricity-gaza.html
 **Casteels quits Belgium over 'red carpet' for Courtois**\
 `"I think it’s a bit strange that Courtois can decide for himself whether he can come back," Casteels said on Belgian podcast MidMid.`\
 https://nytimes.com/athletic/6188846/2025/03/09/belgium-koen-casteels-courtois/
-
-**Arsenal's choice of Berta as sporting director is a clear signal of their direction**\
-`The club could have appointed from within to succeed Edu but have opted to shake things up `\
-https://nytimes.com/athletic/6188123/2025/03/09/andrea-berta-arsenal-sporting-director-2/
 
