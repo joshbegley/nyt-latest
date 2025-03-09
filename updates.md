@@ -1,3 +1,7 @@
+**Geoff Nicholson, Author of Darkly Comic Novels, Dies at 71**\
+`In more than a dozen books, he created characters who were obsessed with maps, urban walking, sexual fetishes and Volkswagen Beetles.`\
+https://nytimes.com/2025/03/09/books/geoff-nicholson-dead.html
+
 **Seahawks shore up defense, retain Ernest Jones IV and Jarran Reed: Sources**\
 `Seattle has retained its top two impending free agents and is poised to return all of its primary defensive starters from last year’s unit.`\
 https://nytimes.com/athletic/6188632/2025/03/09/seahawks-defense-nfl-free-agency/
