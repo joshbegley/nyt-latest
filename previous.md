@@ -1,3 +1,11 @@
+**High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
+`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
+https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
+
+**Chelsea's Palmer missed two days training through illness before Leicester - Maresca**\
+`Palmer saw his streak of 12 successful Premier League penalties ended by Leicester goalkeeper Mads Hermansen in the first half of the game.`\
+https://nytimes.com/athletic/6188533/2025/03/09/cole-palmer-illness-chelsea-leicester/
+
 **Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
 `The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
 https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-ex
 **The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides a spark, fans on edge**\
 `Spurs fought back from two down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
-
-**Bears free agency tracker: Building around Caleb Williams, Ben Johnson**\
-`With the cap space and draft capital at his disposal, Bears GM Ryan Poles can be aggressive to support their young QB and popular new coach.`\
-https://nytimes.com/athletic/6181354/2025/03/09/chicago-bears-2025-free-agency-tracker/
-
-**The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
-`Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
-https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
 

@@ -1,3 +1,11 @@
+**High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
+`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
+https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
+
+**Chelsea's Palmer missed two days training through illness before Leicester - Maresca**\
+`Palmer saw his streak of 12 successful Premier League penalties ended by Leicester goalkeeper Mads Hermansen in the first half of the game.`\
+https://nytimes.com/athletic/6188533/2025/03/09/cole-palmer-illness-chelsea-leicester/
+
 **Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
 `The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
 https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/

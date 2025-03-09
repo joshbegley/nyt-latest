@@ -1,9 +1,13 @@
+**Iraola says Bournemouth should have beaten Tottenham**\
+`The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
+https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
+
 **High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
 `Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
 https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
 
-**Chelsea's Palmer missed two days training through illness before Leicester - Maresca**\
-`Palmer saw his streak of 12 successful Premier League penalties ended by Leicester goalkeeper Mads Hermansen in the first half of the game.`\
+**Chelsea's Palmer was suffering from illness before Leicester - Maresca**\
+`Palmer saw his streak of successful Premier League penalties ended at 12 by Leicester 'keeper Mads Hermansen in the first half of the win.`\
 https://nytimes.com/athletic/6188533/2025/03/09/cole-palmer-illness-chelsea-leicester/
 
 **Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
 **Browns, Garrett agree to record deal averaging $40 million per year**\
 `The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in NFL history.`\
 https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
-
-**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides a spark, fans on edge**\
-`Spurs fought back from two down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
-https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
 
