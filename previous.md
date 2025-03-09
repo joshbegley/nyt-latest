@@ -1,3 +1,11 @@
+**Zach Ertz returning to Commanders on 1-year, $6.5 million deal**\
+`Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
+https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
+
+**Maple Leafs' Mitch Marner addresses reports about Hurricanes trade discussions**\
+`Marner faced multiple questions on the report and grew emotional as the questions continued.`\
+https://nytimes.com/athletic/6187614/2025/03/08/maple-leafs-mitch-marner-no-movement-clause/
+
 **With SEC Tournament bracket set, Texas is the team of clear desperation**\
 `As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
 https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6186761/2025/03/08/senators-rangers-dylan-cozens-tr
 **Collin Morikawa has found his game. Now he's ready to win**\
 `Morikawa, long considered one of the game's best iron players, is no longer living on reputation.`\
 https://nytimes.com/athletic/6187408/2025/03/08/collin-morikawa-pga-tour-win-arnold-palmer-invitational/
-
-**Rage Against Elon Musk Turns Tesla Into a Target**\
-`The backlash against the electric vehicle company has turned violent at times, as its billionaire chief executive parlays his support for President Trump into consequential influence over the federal government.`\
-https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandalism.html
-
-**‘Thought it was a dream’: David Pastrnak, Jeremy Swayman and the deadline devastation**\
-`"The human side of me was crushed," Jeremy Swayman said as the Bruins tried to pick up the post-deadline pieces.`\
-https://nytimes.com/athletic/6187417/2025/03/08/bruins-deadline-david-pastrnak-jeremy-swayman/
 

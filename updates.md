@@ -1,3 +1,11 @@
+**Zach Ertz returning to Commanders on 1-year, $6.5 million deal**\
+`Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
+https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
+
+**Maple Leafs' Mitch Marner addresses reports about Hurricanes trade discussions**\
+`Marner faced multiple questions on the report and grew emotional as the questions continued.`\
+https://nytimes.com/athletic/6187614/2025/03/08/maple-leafs-mitch-marner-no-movement-clause/
+
 **With SEC Tournament bracket set, Texas is the team of clear desperation**\
 `As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
 https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
