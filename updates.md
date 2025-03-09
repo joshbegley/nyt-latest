@@ -1,3 +1,7 @@
+**Small Earthquake Rumbles in Los Angeles Area**\
+`The authorities said there were no initial reports of damage from the quake, which struck in the hills west of Malibu.`\
+https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
+
 **Art Schallock, Oldest Surviving Major Leaguer, Dies at 100**\
 `A pitcher, he played for the Yankees and the Orioles. When Mickey Mantle was sent to the minors in 1951, Schallock was called up.`\
 https://nytimes.com/2025/03/09/obituaries/art-schallock-dead.html
