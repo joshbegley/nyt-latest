@@ -1,3 +1,7 @@
+**Novak Djokovic out of Indian Wells after defeat to Botic van de Zandschulp**\
+`Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
+https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
+
 **Inside the post-trade whirlwind for Josh Norris and his new Sabres teammates**\
 `Norris is looking to get past the “initial shock” of being traded, saying goodbye to good friends in Ottawa and having to settle in Buffalo.`\
 https://nytimes.com/athletic/6186760/2025/03/08/sabres-josh-norris-trade-senators/
