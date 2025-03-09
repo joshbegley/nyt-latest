@@ -1,3 +1,11 @@
+**Rage Against Elon Musk Turns Tesla Into a Target**\
+`The backlash against the electric vehicle company has turned violent at times, as its billionaire chief executive parlays his support for President Trump into consequential influence over the federal government.`\
+https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandalism.html
+
+**‘Thought it was a dream’: David Pastrnak, Jeremy Swayman and the deadline devastation**\
+`"The human side of me was crushed," Jeremy Swayman said as the Bruins tried to pick up the post-deadline pieces.`\
+https://nytimes.com/athletic/6187417/2025/03/08/bruins-deadline-david-pastrnak-jeremy-swayman/
+
 **Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
 `The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
 https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline
 **Berta reaches agreement to become Arsenal sporting director**\
 `Berta became available in January after more than a decade at Atletico Madrid — where he was central to the Spanish team’s progress.`\
 https://nytimes.com/athletic/6166136/2025/03/08/arsenal-sporting-director-berta-new-appointment/
-
-**Ravens and OT Ronnie Stanley agree to 3-year, $60 million extension: Source**\
-`The two-time Pro Bowl offensive tackle was the top player in The Athletic's updated free-agent rankings.`\
-https://nytimes.com/athletic/6172240/2025/03/08/ronnie-stanley-free-agency-signing-2025/
-
-**How Rangers blew late lead, gave away crucial 2 points to Senators: 3 takeaways**\
-`New York was by far the less engaged team throughout the game in a 4-3 overtime loss to the Ottawa Senators.`\
-https://nytimes.com/athletic/6187083/2025/03/08/rangers-senators-score-takeaways/
 
