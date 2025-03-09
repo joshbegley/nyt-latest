@@ -1,3 +1,11 @@
+**Plane With 5 Aboard Crashes in Lancaster County, Pa.**\
+`The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
+https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
+
+**Arkansas Man Sentenced to 8 Years for Producing Deadly Ricin Poison**\
+`Jason Kale Clampit, 44, was sentenced for possession of ricin, which he had made to set traps for trespassers, prosecutors said.`\
+https://nytimes.com/2025/03/09/us/arkansas-tree-cutter-ricin-sentence.html
+
 **Small Earthquake Rattles Southern California**\
 `The authorities said they were surveying for signs of damage from the quake, which struck in the hills west of Malibu.`\
 https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
