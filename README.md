@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
 
 **The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
-`Liam Twomey breaks down the main talking points from Chelsea's 1-0 win over Leicester City`\
+`Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
 https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
 
 **Mets C Francisco Alvarez to have surgery on hand injury, miss 6-8 weeks**\

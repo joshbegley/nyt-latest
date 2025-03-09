@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
+`Spurs fought back from two goals down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
+https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
+
+**The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
+`Liam Twomey breaks down the main talking points from Chelsea's 1-0 win over Leicester City`\
+https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
+
 **Mets C Francisco Alvarez to have surgery on hand injury, miss 6-8 weeks**\
 `Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
 https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
