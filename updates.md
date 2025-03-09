@@ -1,3 +1,7 @@
+**How to watch USC vs. UCLA in Big Ten women's basketball tournament final**\
+`The Big Ten women's basketball tournament tips off Wednesday and concludes Sunday afternoon. USC and UCLA are the favorites.`\
+https://nytimes.com/athletic/6174375/2025/03/09/how-to-watch-womens-big-ten-tournament/
+
 **Five problems with City their loss to Forest brought into focus**\
 `The fixtures get easier from here, but City do have some issues to fix to be sure of qualifying for next season's Champions League`\
 https://nytimes.com/athletic/6186988/2025/03/09/manchester-city-nottingham-forest-defeat/
