@@ -1,3 +1,7 @@
+**Sears' buzzer-beater gives Alabama revenge against Auburn in OT thriller**\
+`Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
+https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
+
 **Rage Against Elon Musk Turns Tesla Into a Target**\
 `The backlash against the electric vehicle company has turned violent at times, as its billionaire chief executive parlays his support for President Trump into consequential influence over the federal government.`\
 https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandalism.html
