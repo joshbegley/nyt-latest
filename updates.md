@@ -1,4 +1,8 @@
 **Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
+`The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
+https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
+
+**Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
 `The four clubs will compete in the pre-season tournament that will be played across Atlanta, New Jersey and Chicago.`\
 https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
 
