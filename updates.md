@@ -1,3 +1,7 @@
+**How Jake Walman's debut was exactly what the Oilers want and need**\
+`Walman’s full array of smooth-skating, puck-moving skills — plus other talents — were on display in a 5-4 Oilers win over the Dallas Stars.`\
+https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
+
 **Rexrode: Johni Broome doesn't edge Cooper Flagg for national player of year; he routs him**\
 `Broome played, and dominated, at the sport's highest level this season. Flagg did not.`\
 https://nytimes.com/athletic/6187456/2025/03/09/johni-broome-cooper-flagg-player-of-the-year/
