@@ -1,3 +1,11 @@
+**Are Liberal Democrats Really ‘Bewildered’?**\
+`Readers respond to a column by Nicholas Kristof about his “Bewildered Liberals Book Club.”`\
+https://nytimes.com/2025/03/09/opinion/liberal-democrats.html
+
+**Trump Administration Live Updates: House Republicans Unveil Spending Bill in Bid to Avoid Shutdown**\
+``\
+https://nytimes.com/live/2025/03/09/us/trump-news-updates
+
 **Musk’s Cultish Business Empire May Be Starting to Crack**\
 `His greatest achievement is building a financial cult that serves as the engine for his enormous wealth.`\
 https://nytimes.com/2025/03/09/opinion/musk-tesla-sales-stock-price.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6187596/2025/03/09/hunter-dickinson-kansas-ncaa-tou
 **Hamburg Airport Halts All Flights as Ground Staff Strike**\
 `The airport in Germany’s second largest city said the one-day strike, called over pay and conditions, began earlier than expected “without any notice.”`\
 https://nytimes.com/2025/03/09/world/europe/hamburg-airport-cancels-flights-strike.html
-
-**Trend Overload**\
-`We cover a surprising form of Gen Z burnout.`\
-https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
-
-**How Jake Walman's debut was exactly what the Oilers want and need**\
-`Walman’s full array of smooth-skating, puck-moving skills — plus other talents — were on display in a 5-4 Oilers win over the Dallas Stars.`\
-https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
 

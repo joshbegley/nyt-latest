@@ -1,3 +1,7 @@
+**Musk’s Cultish Business Empire May Be Starting to Crack**\
+`His greatest achievement is building a financial cult that serves as the engine for his enormous wealth.`\
+https://nytimes.com/2025/03/09/opinion/musk-tesla-sales-stock-price.html
+
 **Arsenal's Martinelli back in matchday squad for Manchester United trip**\
 `Martinelli has not played since suffering a hamstring injury during the Carabao Cup loss at Newcastle United on February 5.`\
 https://nytimes.com/athletic/6187987/2025/03/09/gabriel-martinelli-injury-update-arsenal-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
 **How Jake Walman's debut was exactly what the Oilers want and need**\
 `Walman’s full array of smooth-skating, puck-moving skills — plus other talents — were on display in a 5-4 Oilers win over the Dallas Stars.`\
 https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
-
-**State of the Chicago Cubs' pitching staff ahead of the Tokyo Series **\
-`"We have a really good group of guys. It's time for us to put that on the field and make a run in the playoffs," Jameson Taillon said.`\
-https://nytimes.com/athletic/6187543/2025/03/09/chicago-cubs-pitching-staff-tokyo-series/
 
