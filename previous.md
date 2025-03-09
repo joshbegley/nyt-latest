@@ -1,3 +1,7 @@
+**Oldest living ex-MLB player dies at 100**\
+`When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
+https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
+
 **Novak Djokovic out of Indian Wells after stumbling defeat to Botic van de Zandschulp**\
 `Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
 https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-bask
 **Sears' buzzer-beater gives Alabama revenge against Auburn in OT thriller**\
 `Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
 https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
-
-**SpaceX Scrubs Launch of 2 NASA Satellite Missions**\
-`Two missions, SPHEREx and PUNCH, had been expected to launch on a SpaceX rocket on Saturday.`\
-https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
 
