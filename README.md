@@ -1,3 +1,7 @@
+**Hamburg Airport Halts All Flights as Ground Staff Strike**\
+`The airport in Germany’s second largest city said the one-day strike, called over pay and conditions, began earlier than expected “without any notice.”`\
+https://nytimes.com/2025/03/09/world/europe/hamburg-airport-cancels-flights-strike.html
+
 **Trend Overload**\
 `We cover a surprising form of Gen Z burnout.`\
 https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/opinion/trump-martin-free-speech.html
 **Kennedy Wants to Cure Chronic Disease. Here’s What He’s Up Against.**\
 `Ending chronic disease requires major social change.`\
 https://nytimes.com/2025/03/09/opinion/maha-chronic-disease.html
-
-**Wordle Review No. 1,360**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 10, 2025.`\
-https://nytimes.com/2025/03/09/crosswords/wordle-review-1360.html
 
