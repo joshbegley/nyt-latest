@@ -1,3 +1,19 @@
+**South Carolina cruises past Texas in SEC Tournament championship game**\
+`The Gamecocks’ 64-45 win Sunday secures the program its third-consecutive SEC tournament title.`\
+https://nytimes.com/athletic/6189034/2025/03/09/south-carolina-texas-sec-tournament-wbb-score-results/
+
+**New Deal Reached to End Wildcat Strikes by N.Y. Prison Guards**\
+`The state and the correctional officers’ union agreed that officers should return to work Monday and that some limits on solitary confinement would be put on pause.`\
+https://nytimes.com/2025/03/09/nyregion/new-york-prison-strike-deal.html
+
+**Henley wins Arnold Palmer Invitational, his first PGA Tour win since 2022**\
+`Veteran erases three-shot deficit over final five holes, passing Collin Morikawa late for the win.`\
+https://nytimes.com/athletic/6189091/2025/03/09/russell-henley-arnold-palmer-invitational-pga-tour-win/
+
+**How many goals does Alex Ovechkin have? Capitals great now 9 away from Wayne Gretzky's record**\
+`We're tracking Ovechkin's pursuit of Gretzky's goal record and trying to determine the game in which he's most likely to break the record.`\
+https://nytimes.com/athletic/6083468/2025/03/09/ovechkin-goals-record-wayne-gretzky-stats/
+
 **Art Schallock, Oldest Surviving Major Leaguer, Dies at 100**\
 `A pitcher, he played for the Yankees and the Orioles. When Mickey Mantle was sent to the minors in 1951, Schallock was called up.`\
 https://nytimes.com/2025/03/09/obituaries/art-schallock-dead.html
@@ -22,20 +38,4 @@ https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.
 **Brad Treliving addresses Mitch Marner trade reports: 'We want Mitch here for a long time'**\
 `The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
 https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/
-
-**Women's basketball conference tournaments: Wings coach watches Paige Bueckers in semis**\
-`Which teams earned automatic bids for the NCAA Tournament?`\
-https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
-
-**Plane With 5 Aboard Crashes in Lancaster County, Pa.**\
-`The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
-https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
-
-**Small Earthquake Rumbles in Los Angeles Area**\
-`The authorities said there were no initial reports of damage from the quake, which struck in the hills west of Malibu.`\
-https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
-
-**Monday Briefing: Violence Continues in Syria**\
-`Plus, reading festivals in India.`\
-https://nytimes.com/2025/03/09/briefing/syria-violence-canada-election-china-tariffs.html
 
