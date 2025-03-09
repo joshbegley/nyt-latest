@@ -1,3 +1,7 @@
+**How to watch Texas vs. South Carolina in SEC women's basketball tourney final**\
+`South Carolina meets Texas in the SEC tournament final on Sunday.`\
+https://nytimes.com/athletic/6174973/2025/03/09/how-to-watch-womens-sec-tournament/
+
 **How to watch USC vs. UCLA in Big Ten women's basketball tournament final**\
 `The Big Ten women's basketball tournament tips off Wednesday and concludes Sunday afternoon. USC and UCLA are the favorites.`\
 https://nytimes.com/athletic/6174375/2025/03/09/how-to-watch-womens-big-ten-tournament/
