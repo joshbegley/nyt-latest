@@ -1,3 +1,7 @@
+**How to watch USC vs. UCLA in Big Ten women's basketball tournament final**\
+`The Big Ten women's basketball tournament tips off Wednesday and concludes Sunday afternoon. USC and UCLA are the favorites.`\
+https://nytimes.com/athletic/6174375/2025/03/09/how-to-watch-womens-big-ten-tournament/
+
 **Five problems with City their loss to Forest brought into focus**\
 `The fixtures get easier from here, but City do have some issues to fix to be sure of qualifying for next season's Champions League`\
 https://nytimes.com/athletic/6186988/2025/03/09/manchester-city-nottingham-forest-defeat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6181606/2025/03/09/world-cup-winners-uruguay-1930/
 **How Would Peacekeeping Work in Ukraine? These Experts Gamed It Out.**\
 `The publication of the detailed analysis was a sign that a cease-fire has gone from a theoretical exercise to an urgent and practical issue.`\
 https://nytimes.com/2025/03/09/world/europe/ukraine-peace-plan-russia-war.html
-
-**He Was Once a Covert Taliban Operative. Now He’s the Friendly Taxman.**\
-`Abdul Qahar Ghorbandi, head of Afghanistan’s Taxpayers Services Directorate, has the hard job of raising money in an impoverished country hobbled by international sanctions.`\
-https://nytimes.com/2025/03/09/world/asia/afghanistan-taliban-economy.html
 
