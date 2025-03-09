@@ -1,3 +1,15 @@
+**ESPN+ to replay UFC 313 for free after PPV streaming issues**\
+`A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
+https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/
+
+**Lions' Carlton Davis on his free agency approach: 'I ain't gonna settle for less'**\
+`Davis doesn't think Detroit will make an aggressive effort to bring him back. He is looking to be paid like a "top 10 or top 15 cornerback."`\
+https://nytimes.com/athletic/6188269/2025/03/09/carlton-davis-lions-free-agency/
+
+**Robertson says PSG the best team Liverpool have faced this season**\
+`The left-back also acknowledged Liverpool have to play better than they did in the first leg of their Champions League last-16 tie.`\
+https://nytimes.com/athletic/6188247/2025/03/09/liverpool-psg-andy-robertson/
+
 **David Sellers, Father of the Design-Build Movement, Dies at 86**\
 `He believed that architects could design better buildings if they did the construction themselves. His do-it-yourself approach caught on.`\
 https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
