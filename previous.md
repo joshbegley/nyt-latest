@@ -1,3 +1,7 @@
+**Thunder pull away late, rout Nuggets in battle of two top West contenders**\
+`Shai Gilgeous-Alexander scored 40 points on Sunday as the Thunder pulled away late in rout.`\
+https://nytimes.com/athletic/6188607/2025/03/09/thunder-nuggets-gilgeous-alexander-nikola-jokic/
+
 **Utah's Connor Ingram enters NHL/NHLPA player assistance program**\
 `Ingram will be unavailable for an indefinite period while he receives care. He wrote in a post on X on Sunday that he'll "be back."`\
 https://nytimes.com/athletic/6188565/2025/03/09/utah-connor-ingram-nhl-player-assistance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coachin
 **Iraola says Bournemouth should have beaten Tottenham**\
 `The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
 https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
-
-**High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
-`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
-https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
 

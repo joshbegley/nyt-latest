@@ -1,3 +1,7 @@
+**Thunder pull away late, rout Nuggets in battle of two top West contenders**\
+`Shai Gilgeous-Alexander scored 40 points on Sunday as the Thunder pulled away late in rout.`\
+https://nytimes.com/athletic/6188607/2025/03/09/thunder-nuggets-gilgeous-alexander-nikola-jokic/
+
 **Utah's Connor Ingram enters NHL/NHLPA player assistance program**\
 `Ingram will be unavailable for an indefinite period while he receives care. He wrote in a post on X on Sunday that he'll "be back."`\
 https://nytimes.com/athletic/6188565/2025/03/09/utah-connor-ingram-nhl-player-assistance/
