@@ -1,3 +1,15 @@
+**Trend Overload**\
+`We cover a surprising form of Gen Z burnout.`\
+https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
+
+**How Jake Walman's debut was exactly what the Oilers want and need**\
+`EDMONTON — The way things were going for the Edmonton Oilers for weeks heading toward the trade deadline, it seemed like getting a more defensive-style blueliner was the way to go.`\
+https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
+
+**State of the Chicago Cubs' pitching staff ahead of the Tokyo Series **\
+`"We have a really good group of guys. It's time for us to put that on the field and make a run in the playoffs," Jameson Taillon said.`\
+https://nytimes.com/athletic/6187543/2025/03/09/chicago-cubs-pitching-staff-tokyo-series/
+
 **'We haven’t had this feeling in a couple years': The Blues' winning culture is back**\
 `The Blues lost 2-1 in overtime to the LA Kings, but there have been plenty of signs lately that they're playing for each other.`\
 https://nytimes.com/athletic/6187700/2025/03/09/blues-winning-culture-is-back/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/09/opinion/maha-chronic-disease.html
 **Wordle Review No. 1,360**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 10, 2025.`\
 https://nytimes.com/2025/03/09/crosswords/wordle-review-1360.html
-
-**How to Live Better, According to the Dodo. (No, Seriously.)**\
-`The dodo is both a victim of humans and a symbol of our own power, carelessness and avarice.`\
-https://nytimes.com/2025/03/09/opinion/dodo-extinct-nature-humanity.html
-
-**Connections Companion No. 638**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 10, 2025.`\
-https://nytimes.com/2025/03/09/crosswords/connections-companion-638.html
-
-**The New York Times International Edition in Print for Monday, March 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/09/todays-new-york-times-international-edition
 
