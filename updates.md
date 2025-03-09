@@ -1,3 +1,11 @@
+**Seahawks shore up defense, retain Ernest Jones IV and Jarran Reed: Sources**\
+`Seattle has retained its top two impending free agents and is poised to return all of its primary defensive starters from last year’s unit.`\
+https://nytimes.com/athletic/6188632/2025/03/09/seahawks-defense-nfl-free-agency/
+
+**Why Blackhawks believe defenseman Artyom Levshunov is ready for NHL debut**\
+`The No. 2 pick in the 2024 draft could make his NHL debut as soon as Monday.`\
+https://nytimes.com/athletic/6188761/2025/03/09/blackhawks-artyom-levshunov-nhl-debut/
+
 **Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
 `The 11-year veteran and three-time All-Pro wide receiver was the No. 4 ranked free agent on The Athletic's top 150 list. `\
 https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/

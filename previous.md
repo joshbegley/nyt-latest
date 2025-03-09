@@ -1,3 +1,11 @@
+**Seahawks shore up defense, retain Ernest Jones IV and Jarran Reed: Sources**\
+`Seattle has retained its top two impending free agents and is poised to return all of its primary defensive starters from last year’s unit.`\
+https://nytimes.com/athletic/6188632/2025/03/09/seahawks-defense-nfl-free-agency/
+
+**Why Blackhawks believe defenseman Artyom Levshunov is ready for NHL debut**\
+`The No. 2 pick in the 2024 draft could make his NHL debut as soon as Monday.`\
+https://nytimes.com/athletic/6188761/2025/03/09/blackhawks-artyom-levshunov-nhl-debut/
+
 **Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
 `The 11-year veteran and three-time All-Pro wide receiver was the No. 4 ranked free agent on The Athletic's top 150 list. `\
 https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6083468/2025/03/09/ovechkin-goals-record-wayne-gret
 **Art Schallock, Oldest Surviving Major Leaguer, Dies at 100**\
 `A pitcher, he played for the Yankees and the Orioles. When Mickey Mantle was sent to the minors in 1951, Schallock was called up.`\
 https://nytimes.com/2025/03/09/obituaries/art-schallock-dead.html
-
-**Alex Ovechkin 9 goals from breaking Wayne Gretzky's record after scoring vs. Kraken**\
-`The Capitals winger scored goal No. 886 on Sunday against the Kraken, giving him 33 on the season.`\
-https://nytimes.com/athletic/6185474/2025/03/09/ovechkin-goal-record-gretzky-886/
-
-**Submit your questions for Antonio Morales’ USC football mailbag**\
-`<p>USC begins spring practice later this month. Submit your questions for Antonio below. We will post his answers later this week.</p>
-`\
-https://nytimes.com/athletic/6189076/2025/03/09/submit-your-questions-for-antonio-morales-usc-football-mailbag-12/
 
