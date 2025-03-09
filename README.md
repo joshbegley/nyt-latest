@@ -1,3 +1,11 @@
+**Bowling Green hiring former NFL RB Eddie George as head coach**\
+`George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
+https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
+
+**The Crack of Rifles, Then Silence: What a Firing Squad Execution Was Like**\
+`One of the three media witnesses to the execution of Brad Sigmon in South Carolina on Friday describes what he saw.`\
+https://nytimes.com/2025/03/09/us/firing-squad-execution-south-carolina.html
+
 **Flo Fox, Photographer Who Overcame Blindness and Paralysis, Dies at 79**\
 `She was legally blind and used a motorized wheelchair, but she managed to capture what she called the “ironic reality” of New York City on film.`\
 https://nytimes.com/2025/03/09/arts/flo-fox-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6186470/2025/03/09/oilers-trade-recap-2025/
 **Bills release Von Miller, but are open to bringing him back: Sources**\
 `Miller's release frees $8.4 million against the Bills' 2025 salary cap.`\
 https://nytimes.com/athletic/6188120/2025/03/09/von-miller-bills-release/
-
-**NC State fires Kevin Keatts after missing ACC Tournament**\
-`The Wolfpack failed to make the ACC Tournament and dropped three of their last four games to close the regular season.`\
-https://nytimes.com/athletic/6188085/2025/03/09/kevin-keatts-fired-nc-state-basketball/
-
-**‘S.N.L.’ Imagines an Oval Office Meeting With Trump, Rubio and Musk**\
-`This week, the opener described a conflict between Elon Musk and Marco Rubio. Lady Gaga proved to be a capable joke-teller as both the host and the musical guest.`\
-https://nytimes.com/2025/03/09/arts/television/snl-recap-trump-rubio-musk-lady-gaga.html
 

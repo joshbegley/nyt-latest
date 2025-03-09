@@ -1,3 +1,11 @@
+**Flo Fox, Photographer Who Overcame Blindness and Paralysis, Dies at 79**\
+`She was legally blind and used a motorized wheelchair, but she managed to capture what she called the “ironic reality” of New York City on film.`\
+https://nytimes.com/2025/03/09/arts/flo-fox-dead.html
+
+**Siegel: The Maple Leafs handed Mitch Marner all the cards. Now, the fallout**\
+`Nearly two years ago, the Leafs lost leverage in the Mitch Marner contract situation and set the stage for Mikko Rantanen deadline talks.`\
+https://nytimes.com/athletic/6181856/2025/03/09/maple-leafs-mitch-marner-contract-rantanen/
+
 **Tracking Tropical Cyclone Jude**\
 `See the likely path and wind arrival times for Jude.`\
 https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
