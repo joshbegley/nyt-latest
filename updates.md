@@ -1,3 +1,19 @@
+**Tracking Tropical Cyclone Jude**\
+`See the likely path and wind arrival times for Jude.`\
+https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
+
+**'We all loved him' - tributes paid as Barcelona club doctor Carles Minarro Garcia dies at 53**\
+`The doctor's death hours before Barcelona were due to face Osasuna led to the postponement of the match, with players shocked by the news`\
+https://nytimes.com/athletic/6188036/2025/03/09/carles-minarro-garcia-tributes/
+
+**Sometimes, You Really Just Need a Strawberry Smoothie**\
+`And that time is these gray days of early March.`\
+https://nytimes.com/2025/03/09/dining/strawberry-smoothie.html
+
+**Joey Molland of the Power-Pop Band Badfinger Dies at 77**\
+`He was the last remaining core member of a group that was both propelled and pigeonholed in the 1970s by its close association with the Beatles.`\
+https://nytimes.com/2025/03/09/arts/music/joey-molland-dead.html
+
 **Lowetide: What the Oilers did (and didn't do) at the trade deadline**\
 `All things considered, the trade deadline Stan Bowman and company delivered for the Oilers looks good at first blush.`\
 https://nytimes.com/athletic/6186470/2025/03/09/oilers-trade-recap-2025/

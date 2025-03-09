@@ -1,3 +1,19 @@
+**Tracking Tropical Cyclone Jude**\
+`See the likely path and wind arrival times for Jude.`\
+https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
+
+**'We all loved him' - tributes paid as Barcelona club doctor Carles Minarro Garcia dies at 53**\
+`The doctor's death hours before Barcelona were due to face Osasuna led to the postponement of the match, with players shocked by the news`\
+https://nytimes.com/athletic/6188036/2025/03/09/carles-minarro-garcia-tributes/
+
+**Sometimes, You Really Just Need a Strawberry Smoothie**\
+`And that time is these gray days of early March.`\
+https://nytimes.com/2025/03/09/dining/strawberry-smoothie.html
+
+**Joey Molland of the Power-Pop Band Badfinger Dies at 77**\
+`He was the last remaining core member of a group that was both propelled and pigeonholed in the 1970s by its close association with the Beatles.`\
+https://nytimes.com/2025/03/09/arts/music/joey-molland-dead.html
+
 **Lowetide: What the Oilers did (and didn't do) at the trade deadline**\
 `All things considered, the trade deadline Stan Bowman and company delivered for the Oilers looks good at first blush.`\
 https://nytimes.com/athletic/6186470/2025/03/09/oilers-trade-recap-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6188027/2025/03/09/cooper-flagg-duke-college-basket
 **Secret Service Shoots Armed Man Near the White House**\
 `President Trump was in Florida at the time of the episode, during which a man held a gun and a confrontation ensued, the agency said.`\
 https://nytimes.com/2025/03/09/us/politics/secret-service-shooting-white-house.html
-
-**Jaylen Brown, Jayson Tatum embrace burden on offense and defense in win over Lakers**\
-`Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
-https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/
-
-**Syria’s Interim President Calls for Unity Amid Fresh Fighting**\
-`More than 1,000 people have been killed in clashes in the coastal provinces of Syria, according to one war monitoring group.`\
-https://nytimes.com/2025/03/09/world/middleeast/syria-latakia-clashes.html
-
-**Are Liberal Democrats Really ‘Bewildered’?**\
-`Readers respond to a column by Nicholas Kristof about his “Bewildered Liberals Book Club.”`\
-https://nytimes.com/2025/03/09/opinion/liberal-democrats.html
-
-**Trump Administration Live Updates: House Republicans Unveil Spending Bill in Bid to Avoid Shutdown**\
-``\
-https://nytimes.com/live/2025/03/09/us/trump-news-updates
 
