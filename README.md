@@ -6,7 +6,7 @@ https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
 `Plus, reading festivals in India.`\
 https://nytimes.com/2025/03/09/briefing/syria-violence-canada-election-china-tariffs.html
 
-**Arkansas Man Sentenced to 8 Years for Producing Biological Agent**\
+**Arkansas Man Sentenced to 8 Years for Producing Deadly Ricin Poison**\
 `Jason Kale Clampit, 44, was sentenced for possession of ricin, which he had made to set traps for trespassers, prosecutors said.`\
 https://nytimes.com/2025/03/09/us/arkansas-tree-cutter-ricin-sentence.html
 
