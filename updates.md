@@ -1,3 +1,7 @@
+**Inside the post-trade whirlwind for Josh Norris and his new Sabres teammates**\
+`Norris is looking to get past the “initial shock” of being traded, saying goodbye to good friends in Ottawa and having to settle in Buffalo.`\
+https://nytimes.com/athletic/6186760/2025/03/08/sabres-josh-norris-trade-senators/
+
 **Corrections: March 9, 2025**\
 `Corrections that appeared in print on Sunday, March 9, 2025.`\
 https://nytimes.com/2025/03/08/pageoneplus/corrections-march-9-2025.html

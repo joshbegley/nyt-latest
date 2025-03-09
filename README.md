@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-fo
 `When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
 https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
 
-**Novak Djokovic out of Indian Wells after stumbling defeat to Botic van de Zandschulp**\
+**Novak Djokovic out of Indian Wells after defeat to Botic van de Zandschulp**\
 `Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
 https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
 
