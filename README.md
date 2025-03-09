@@ -1,3 +1,11 @@
+**Art Schallock, Oldest Surviving Major Leaguer, Dies at 100**\
+`A pitcher, he played for the Yankees and the Orioles. When Mickey Mantle was sent to the minors in 1951, Schallock was called up.`\
+https://nytimes.com/2025/03/09/obituaries/art-schallock-dead.html
+
+**Alex Ovechkin 9 goals from breaking Wayne Gretzky's record after scoring vs. Kraken**\
+`The Capitals winger scored goal No. 886 on Sunday against the Kraken, giving him 33 on the season.`\
+https://nytimes.com/athletic/6185474/2025/03/09/ovechkin-goal-record-gretzky-886/
+
 **Submit your questions for Antonio Morales’ USC football mailbag**\
 `<p>USC begins spring practice later this month. Submit your questions for Antonio below. We will post his answers later this week.</p>
 `\
@@ -15,6 +23,10 @@ https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.
 `The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
 https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/
 
+**Women's basketball conference tournaments: Wings coach watches Paige Bueckers in semis**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
 **Plane With 5 Aboard Crashes in Lancaster County, Pa.**\
 `The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
 https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
 **Monday Briefing: Violence Continues in Syria**\
 `Plus, reading festivals in India.`\
 https://nytimes.com/2025/03/09/briefing/syria-violence-canada-election-china-tariffs.html
-
-**Arkansas Man Sentenced to 8 Years for Producing Deadly Ricin Poison**\
-`Jason Kale Clampit, 44, was sentenced for possession of ricin, which he had made to set traps for trespassers, prosecutors said.`\
-https://nytimes.com/2025/03/09/us/arkansas-tree-cutter-ricin-sentence.html
-
-**Aaron Jones agrees to deal to stay with Vikings: Why the pairing makes sense**\
-`Jones, the No. 1 RB on The Athletic's NFL free agency rankings, set career highs in carries (255) and rushing yards (1,138) in 2024.`\
-https://nytimes.com/athletic/6178477/2025/03/09/aaron-jones-free-agency-signing/
-
-**Immigration Authorities Arrest Pro-Palestinian Activist at Columbia**\
-`Mahmoud Khalil, who recently completed a graduate program at Columbia, has legal permanent residency, his lawyer said.`\
-https://nytimes.com/2025/03/09/nyregion/ice-arrests-palestinian-activist-columbia-protests.html
 

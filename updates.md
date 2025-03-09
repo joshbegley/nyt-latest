@@ -1,3 +1,8 @@
+**Submit your questions for Antonio Morales’ USC football mailbag**\
+`<p>USC begins spring practice later this month. Submit your questions for Antonio below. We will post his answers later this week.</p>
+`\
+https://nytimes.com/athletic/6189076/2025/03/09/submit-your-questions-for-antonio-morales-usc-football-mailbag-12/
+
 **Strong Wind**\
 `Patti Varol makes a charming return.`\
 https://nytimes.com/2025/03/09/crosswords/daily-puzzle-2025-03-10.html
