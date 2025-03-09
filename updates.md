@@ -1,3 +1,7 @@
+**Secret Service Shoots Armed Man Near the White House**\
+`President Trump was in Florida at the time of the episode, during which a man held a gun and a confrontation ensued, the agency said.`\
+https://nytimes.com/2025/03/09/us/politics/secret-service-shooting-white-house.html
+
 **Jaylen Brown, Jayson Tatum embrace burden on offense and defense in win over Lakers**\
 `Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
 https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/

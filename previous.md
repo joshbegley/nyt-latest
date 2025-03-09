@@ -1,3 +1,7 @@
+**Secret Service Shoots Armed Man Near the White House**\
+`President Trump was in Florida at the time of the episode, during which a man held a gun and a confrontation ensued, the agency said.`\
+https://nytimes.com/2025/03/09/us/politics/secret-service-shooting-white-house.html
+
 **Jaylen Brown, Jayson Tatum embrace burden on offense and defense in win over Lakers**\
 `Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
 https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187456/2025/03/09/johni-broome-cooper-flagg-player
 **Marc-Andre Fleury's relationship with Pittsburgh is once in a lifetime**\
 `Marc-Andre Fleury's legacy in Pittsburgh remains safe as his legendary career concludes this season.`\
 https://nytimes.com/athletic/6168244/2025/03/09/marc-andre-fleury-retirement-penguins-wild/
-
-**What I'm hearing about the Las Vegas Raiders' free agency plans**\
-`The Raiders are looking to retain their in-house free agents.`\
-https://nytimes.com/athletic/6187370/2025/03/09/las-vegas-raiders-free-agency-plans/
 
