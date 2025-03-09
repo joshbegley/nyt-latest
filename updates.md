@@ -1,3 +1,7 @@
+**Aaron Jones agrees to deal to stay with Vikings: Why the pairing makes sense**\
+`Jones, the No. 1 RB on The Athletic's NFL free agency rankings, set career highs in carries (255) and rushing yards (1,138) in 2024.`\
+https://nytimes.com/athletic/6178477/2025/03/09/aaron-jones-free-agency-signing/
+
 **Brad Treliving addresses Mitch Marner trade reports: 'We want Mitch here for a long time'**\
 `The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
 https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/

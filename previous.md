@@ -18,7 +18,7 @@ https://nytimes.com/2025/03/09/briefing/syria-violence-canada-election-china-tar
 `Jason Kale Clampit, 44, was sentenced for possession of ricin, which he had made to set traps for trespassers, prosecutors said.`\
 https://nytimes.com/2025/03/09/us/arkansas-tree-cutter-ricin-sentence.html
 
-**RB Aaron Jones agrees to deal to stay with Vikings: Source**\
+**Aaron Jones agrees to deal to stay with Vikings: Why the pairing makes sense**\
 `Jones, the No. 1 RB on The Athletic's NFL free agency rankings, set career highs in carries (255) and rushing yards (1,138) in 2024.`\
 https://nytimes.com/athletic/6178477/2025/03/09/aaron-jones-free-agency-signing/
 
