@@ -1,3 +1,11 @@
+**The Briefing: Man United 1 Arsenal 1: Rice rescue act, Fernandes' brilliance and fan protests**\
+`Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
+https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/
+
+**Seahawks agree to three-year deal with DT Jarran Reed: Source**\
+`Reed is coming off another productive season in which he had 4.5 sacks, 15 total quarterback hits and a pressure rate of 12.9 percent.`\
+https://nytimes.com/athletic/6188632/2025/03/09/jarran-reed-seahawks-deal-nfl-free-agency/
+
 **NC State basketball coaching candidates: Is the commitment there to lure top names?**\
 `Kevin Keatts ends his tenure 151-113 with three NCAA Tournament appearances. Where do the Wolfpack turn?`\
 https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coaching-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-is
 **Lions' Carlton Davis on his free agency approach: 'I ain't gonna settle for less'**\
 `Davis doesn't think Detroit will make an aggressive effort to bring him back. He is looking to be paid like a "top 10 or top 15 cornerback."`\
 https://nytimes.com/athletic/6188269/2025/03/09/carlton-davis-lions-free-agency/
-
-**Robertson says PSG the best team Liverpool have faced this season**\
-`The left-back also acknowledged Liverpool have to play better than they did in the first leg of their Champions League last-16 tie.`\
-https://nytimes.com/athletic/6188247/2025/03/09/liverpool-psg-andy-robertson/
-
-**David Sellers, Father of the Design-Build Movement, Dies at 86**\
-`He believed that architects could design better buildings if they did the construction themselves. His do-it-yourself approach caught on.`\
-https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
 
