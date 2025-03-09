@@ -1,3 +1,11 @@
+**Utah's Connor Ingram enters NHL/NHLPA player assistance program**\
+`Ingram will be unavailable for an indefinite period while he receives care. He wrote in a post on X on Sunday that he'll "be back."`\
+https://nytimes.com/athletic/6188565/2025/03/09/utah-connor-ingram-nhl-player-assistance/
+
+**Trump Declines to Rule Out Recession as Tariffs Begin to Bite**\
+`President Trump said that Americans would be better off in the long run from his tariffs, which he said would prevent the country from being “ripped off.”`\
+https://nytimes.com/2025/03/09/us/politics/trump-recession-lutnick.html
+
 **Want to Teach With Our Contests? Ask Your School Librarian for Help.**\
 `Here’s how a team of librarians collaborated with teachers to help students enter our Open Letters Contest — and to create their school’s own competition.`\
 https://nytimes.com/2025/03/09/learning/lesson-plans/want-to-teach-with-our-contests-ask-your-school-librarian-for-help.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-ira
 **High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
 `Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
 https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
-
-**Chelsea's Palmer was suffering from illness before Leicester - Maresca**\
-`Palmer saw his streak of successful Premier League penalties ended at 12 by Leicester 'keeper Mads Hermansen in the first half of the win.`\
-https://nytimes.com/athletic/6188533/2025/03/09/cole-palmer-illness-chelsea-leicester/
-
-**Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
-`The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
-https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
 

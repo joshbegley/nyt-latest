@@ -1,3 +1,11 @@
+**Utah's Connor Ingram enters NHL/NHLPA player assistance program**\
+`Ingram will be unavailable for an indefinite period while he receives care. He wrote in a post on X on Sunday that he'll "be back."`\
+https://nytimes.com/athletic/6188565/2025/03/09/utah-connor-ingram-nhl-player-assistance/
+
+**Trump Declines to Rule Out Recession as Tariffs Begin to Bite**\
+`President Trump said that Americans would be better off in the long run from his tariffs, which he said would prevent the country from being “ripped off.”`\
+https://nytimes.com/2025/03/09/us/politics/trump-recession-lutnick.html
+
 **Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
 `The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
 https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
