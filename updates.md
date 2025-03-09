@@ -1,3 +1,7 @@
+**ESPN+ replaying UFC 313 after PPV streaming issues**\
+`A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
+https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/
+
 **ESPN+ to replay UFC 313 for free after PPV streaming issues**\
 `A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
 https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/
