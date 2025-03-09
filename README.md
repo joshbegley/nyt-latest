@@ -1,3 +1,11 @@
+**Flo Fox, Photographer Who Overcame Blindness and Paralysis, Dies at 79**\
+`She was legally blind and used a motorized wheelchair, but she managed to capture what she called the “ironic reality” of New York City on film.`\
+https://nytimes.com/2025/03/09/arts/flo-fox-dead.html
+
+**Siegel: The Maple Leafs handed Mitch Marner all the cards. Now, the fallout**\
+`Nearly two years ago, the Leafs lost leverage in the Mitch Marner contract situation and set the stage for Mikko Rantanen deadline talks.`\
+https://nytimes.com/athletic/6181856/2025/03/09/maple-leafs-mitch-marner-contract-rantanen/
+
 **Tracking Tropical Cyclone Jude**\
 `See the likely path and wind arrival times for Jude.`\
 https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188085/2025/03/09/kevin-keatts-fired-nc-state-bask
 **‘S.N.L.’ Imagines an Oval Office Meeting With Trump, Rubio and Musk**\
 `This week, the opener described a conflict between Elon Musk and Marco Rubio. Lady Gaga proved to be a capable joke-teller as both the host and the musical guest.`\
 https://nytimes.com/2025/03/09/arts/television/snl-recap-trump-rubio-musk-lady-gaga.html
-
-**Cooper Flagg has no comparison. Duke freshman star easy choice for national player of the year**\
-`It's foolish to punish Flagg for beating up on the teams on Duke’s schedule, or to ignore his excellence in the team’s marquee matchups.`\
-https://nytimes.com/athletic/6188027/2025/03/09/cooper-flagg-duke-college-basketball-player-of-the-year/
-
-**Secret Service Shoots Armed Man Near the White House**\
-`President Trump was in Florida at the time of the episode, during which a man held a gun and a confrontation ensued, the agency said.`\
-https://nytimes.com/2025/03/09/us/politics/secret-service-shooting-white-house.html
 
