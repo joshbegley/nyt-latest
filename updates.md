@@ -1,3 +1,19 @@
+**Trump Declines to Rule Out Recession as Tariffs Begin to Bite**\
+`President Trump said that Americans would be better off in the long run from his tariffs, which he said would prevent the country from being “ripped off.”`\
+https://nytimes.com/live/2025/03/09/us/trump-news-updates/trump-recession-lutnick
+
+**Want to Teach With Our Contests? Ask Your School Librarian for Help.**\
+`Here’s how a team of librarians collaborated with teachers to help students enter our Open Letters Contest — and to create their school’s own competition.`\
+https://nytimes.com/2025/03/09/learning/lesson-plans/want-to-teach-with-our-contests-ask-your-school-librarian-for-help.html
+
+**High Point secures first-ever NCAA Tournament berth with Big South title**\
+`High Point erased a 15-point second-half deficit to cut down the nets in a major redemption story.`\
+https://nytimes.com/athletic/6188637/2025/03/09/ncaa-tournament-automatic-bids-mens-basketball-2025/
+
+**Seahawks agree to 3-year deal with DT Jarran Reed: Source**\
+`Reed is coming off another productive season in which he had 4.5 sacks, 15 total quarterback hits and a pressure rate of 12.9 percent.`\
+https://nytimes.com/athletic/6188632/2025/03/09/jarran-reed-seahawks-deal-nfl-free-agency/
+
 **The Briefing: Man United 1 Arsenal 1 - Rice rescue act, Fernandes' brilliance and fan protests**\
 `Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
 https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/
