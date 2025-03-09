@@ -1,3 +1,15 @@
+**Novak Djokovic out of Indian Wells after stumbling defeat to Botic Van de Zandschulp**\
+`Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
+https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
+
+**How the Senators channeled their emotions in a comeback victory over the Rangers**\
+`Dylan Cozens and Brady Tkachuk emerged as solid contributors in a 4-3 Ottawa win over New York, one day after a shocking trade.`\
+https://nytimes.com/athletic/6186761/2025/03/08/senators-rangers-dylan-cozens-trade/
+
+**Collin Morikawa has found his game. Now he's ready to win**\
+`Morikawa, long considered one of the game's best iron players, is no longer living on reputation.`\
+https://nytimes.com/athletic/6187408/2025/03/08/collin-morikawa-pga-tour-win-arnold-palmer-invitational/
+
 **Sears' buzzer-beater gives Alabama revenge against Auburn in OT thriller**\
 `Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
 https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/

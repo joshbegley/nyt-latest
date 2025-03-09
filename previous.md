@@ -1,3 +1,15 @@
+**Novak Djokovic out of Indian Wells after stumbling defeat to Botic Van de Zandschulp**\
+`Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
+https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
+
+**How the Senators channeled their emotions in a comeback victory over the Rangers**\
+`Dylan Cozens and Brady Tkachuk emerged as solid contributors in a 4-3 Ottawa win over New York, one day after a shocking trade.`\
+https://nytimes.com/athletic/6186761/2025/03/08/senators-rangers-dylan-cozens-trade/
+
+**Collin Morikawa has found his game. Now he's ready to win**\
+`Morikawa, long considered one of the game's best iron players, is no longer living on reputation.`\
+https://nytimes.com/athletic/6187408/2025/03/08/collin-morikawa-pga-tour-win-arnold-palmer-invitational/
+
 **Rage Against Elon Musk Turns Tesla Into a Target**\
 `The backlash against the electric vehicle company has turned violent at times, as its billionaire chief executive parlays his support for President Trump into consequential influence over the federal government.`\
 https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandalism.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
 **NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
 `Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket on Saturday.`\
 https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
-
-**Extra! Extra!**\
-`Michael Schlossberg’s puzzle might get a little ink on our fingers.`\
-https://nytimes.com/2025/03/08/crosswords/daily-puzzle-2025-03-09.html
-
-**'It's going the wrong direction': Flyers were dreadful in first game post-deadline**\
-`The Flyers dropped a 4-1 decision to Seattle in which they were outplayed in every facet of the game.`\
-https://nytimes.com/athletic/6187200/2025/03/08/flyers-kraken-nhl-trade-deadline/
-
-**Berta reaches agreement to become Arsenal sporting director**\
-`Berta became available in January after more than a decade at Atletico Madrid — where he was central to the Spanish team’s progress.`\
-https://nytimes.com/athletic/6166136/2025/03/08/arsenal-sporting-director-berta-new-appointment/
 
