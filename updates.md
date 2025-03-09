@@ -1,3 +1,7 @@
+**Blackhawks call up top prospect Artyom Levshunov: How he fits**\
+`Levshunov, the No. 2 pick in the 2024 draft, could make his NHL debut as soon as Monday against the Colorado Avalanche.`\
+https://nytimes.com/athletic/6188581/2025/03/09/blackhawks-artyom-levshunov-recalled/
+
 **The Briefing: Man United 1 Arsenal 1: Rice rescue act, Fernandes' brilliance and fan protests**\
 `Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
 https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/

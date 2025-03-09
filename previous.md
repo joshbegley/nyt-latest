@@ -1,3 +1,7 @@
+**Blackhawks call up top prospect Artyom Levshunov: How he fits**\
+`Levshunov, the No. 2 pick in the 2024 draft, could make his NHL debut as soon as Monday against the Colorado Avalanche.`\
+https://nytimes.com/athletic/6188581/2025/03/09/blackhawks-artyom-levshunov-recalled/
+
 **The Briefing: Man United 1 Arsenal 1: Rice rescue act, Fernandes' brilliance and fan protests**\
 `Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
 https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186201/2025/03/09/blue-jackets-kunin-fischer-nhl-t
 **ESPN+ replaying UFC 313 after PPV streaming issues**\
 `A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
 https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/
-
-**Lions' Carlton Davis on his free agency approach: 'I ain't gonna settle for less'**\
-`Davis doesn't think Detroit will make an aggressive effort to bring him back. He is looking to be paid like a "top 10 or top 15 cornerback."`\
-https://nytimes.com/athletic/6188269/2025/03/09/carlton-davis-lions-free-agency/
 
