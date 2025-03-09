@@ -1,3 +1,11 @@
+**Are Liberal Democrats Really ‘Bewildered’?**\
+`Readers respond to a column by Nicholas Kristof about his “Bewildered Liberals Book Club.”`\
+https://nytimes.com/2025/03/09/opinion/liberal-democrats.html
+
+**Trump Administration Live Updates: House Republicans Unveil Spending Bill in Bid to Avoid Shutdown**\
+``\
+https://nytimes.com/live/2025/03/09/us/trump-news-updates
+
 **Musk’s Cultish Business Empire May Be Starting to Crack**\
 `His greatest achievement is building a financial cult that serves as the engine for his enormous wealth.`\
 https://nytimes.com/2025/03/09/opinion/musk-tesla-sales-stock-price.html
