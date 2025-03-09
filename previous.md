@@ -1,40 +1,40 @@
-**The Radical Pleasure of Fashion That Makes You Feel**\
-`Comme des Garçons, Rick Owens, and Undercover embrace the power of human scale.`\
-https://nytimes.com/2025/03/09/style/comme-des-garcons-rick-owens-undercover-fall-2025.html
+**Chaos Sweeps Coastal Syria: ‘We Have to Get Out of Here’**\
+`Residents described shootings outside their homes and bodies in the streets in Syria’s worst unrest since Bashar al-Assad’s ouster. More than 1,000 people have been killed since Thursday, a war monitor said.`\
+https://nytimes.com/2025/03/09/world/middleeast/syria-violence.html
 
-**‘Emotions were high’ as Brandon Carlo and Scott Laughton suited up for the first time as Leafs**\
-`Friday afternoon, Carlo was in the Florida sunshine, convinced he was going to remain a Bruin. The next afternoon, he suited up as a Leaf.`\
-https://nytimes.com/athletic/6187780/2025/03/09/brandon-carlo-scott-laughton-leafs-first-game/
+**MeidasTouch Pops on Podcast Charts as Progressives Search for Answers**\
+`The company is a leader among numerous digital-first outlets that have been reshaping the progressive media landscape since President Trump took office.`\
+https://nytimes.com/2025/03/09/business/media/meidastouch-podcast-democrats.html
 
-**As Utility Bills Soar, New Yorkers Face the Cost of a Greener Future**\
-`The utility that serves New York City and Westchester County has filed a request to raise its rates to help pay for the shift to cleaner energy, sparking dismay among residents.`\
-https://nytimes.com/2025/03/09/nyregion/con-ed-power-grid-rates-nyc-westchester.html
+**Canada’s Liberals to Elect a New Party Leader and Prime Minister. What to Know.**\
+`Front-runner Mark Carney and underdog Chrystia Freeland, both established, centrist policymakers, are vying to succeed Justin Trudeau amid grave threats to Canada from the United States.`\
+https://nytimes.com/2025/03/09/world/canada/canada-liberal-party-leader-prime-minister-election.html
 
-**Classics Just Twisted Enough to Wear**\
-`A little adjustment on a familiar garment can go a long way.`\
-https://nytimes.com/2025/03/09/style/mens-classics-twisted-paris-fashion-week.html
+**A Political Reporter Takes Her Scoops to YouTube**\
+`Most online political media stars traffic in highly partisan viewpoints. Tara Palmeri hopes that playing it straight will pay off.`\
+https://nytimes.com/2025/03/09/business/media/tara-palmeri-youtube-substack-puck.html
 
-**When the World’s Fair Came Tumbling Down**\
-`The Panama-Pacific International Exposition was held in San Francisco in 1915. After it ended, the fair’s temporary structures had to be razed.`\
-https://nytimes.com/2025/03/09/insider/when-the-worlds-fair-came-tumbling-down.html
+**The Oscar-Winning Movie That Pets Can’t Stop Watching**\
+`“Flow,” a dialogue-free animated Latvian film made with open-source software, is keeping our domesticated friends riveted.`\
+https://nytimes.com/2025/03/09/movies/flow-movie-pets-oscars.html
 
-**‘I Started a Conversation With a Woman Sitting to My Right’**\
-`Seats up close for a Broadway show, a friendly question on the 7 and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/03/09/nyregion/meteropolitan-diary.html
+**Ambitious Democrats Have a New Game Plan: Yak It Up About Sports**\
+`Prominent leaders are flocking to sports radio shows and podcasts, an early sign of how the party is trying to reach apolitical young men who have tilted toward President Trump.`\
+https://nytimes.com/2025/03/09/us/politics/democrats-sports-podcasts-male-voters.html
 
-**Inside the Sean Combs Hotline: The Makings of a Mass Tort**\
-`From a low-slung building in Montana, a lawyer pursuing sex abuse complaints against the music mogul says his business has identified hundreds of potential plaintiffs.`\
-https://nytimes.com/2025/03/09/arts/music/sean-combs-diddy-hotline-tony-buzbee-lawsuits.html
+**In ‘Dark Winds,’ Things Are About to Get Even Darker**\
+`Zahn McClarnon, who plays a Navajo cop in AMC crime drama, talks about the coming third season, which is moodier and more mystical than previous ones.`\
+https://nytimes.com/2025/03/09/arts/television/zahn-mcclarnon-dark-winds.html
 
-**A Reporter With a Wealth of Knowledge on the Wealthy**\
-`What do fluctuating egg prices and ultraluxury restaurants have in common? They both fall under one Metro reporter’s beat.`\
-https://nytimes.com/2025/03/09/insider/wealth-power-reporter.html
+**After Trump's berating of Zelensky, Ukraine's tennis players find support on American soil**\
+`Since Donald Trump's berating of Volodymyr Zelensky in the Oval Office, Ukraine's tennis players have found both difficulty and support. `\
+https://nytimes.com/athletic/6186308/2025/03/09/ukraine-america-zelensky-trump-impact-tennis-players-kostyuk-svitolina-yastremska/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/09/crosswords/spelling-bee-forum.html
+**How the Immigration Crackdown Threatens Elderly Care**\
+`The U.`\
+https://nytimes.com/video/us/100000010031085/how-the-immigration-crackdown-threatens-elderly-care.html
 
-**High Prices Hit a French Classic: Beef Bourguignon**\
-`Businesses across Europe, including restaurants in Paris that make the dish, are being squeezed by sticky inflation.`\
-https://nytimes.com/2025/03/09/business/inflation-europe-france-beef-bourguignon.html
+**State Republicans Eager to Climb on Cost-Cutting Bandwagon**\
+`G.O.P. governors and legislators are parroting the federal Department of Government Efficiency by creating panels at the state level. But the similarities only go so far.`\
+https://nytimes.com/2025/03/09/us/state-doge-oklahoma.html
 
