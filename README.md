@@ -1,3 +1,7 @@
+**NC State fires Kevin Keatts after missing ACC Tournament**\
+`The Wolfpack failed to make the ACC Tournament and dropped three of their last four games to close the regular season.`\
+https://nytimes.com/athletic/6188085/2025/03/09/kevin-keatts-fired-nc-state-basketball/
+
 **‘S.N.L.’ Imagines an Oval Office Meeting With Trump, Rubio and Musk**\
 `This week, the opener described a conflict between Elon Musk and Marco Rubio. Lady Gaga proved to be a capable joke-teller as both the host and the musical guest.`\
 https://nytimes.com/2025/03/09/arts/television/snl-recap-trump-rubio-musk-lady-gaga.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/opinion/musk-tesla-sales-stock-price.html
 **Arsenal's Martinelli back in matchday squad for Manchester United trip**\
 `Martinelli has not played since suffering a hamstring injury during the Carabao Cup loss at Newcastle United on February 5.`\
 https://nytimes.com/athletic/6187987/2025/03/09/gabriel-martinelli-injury-update-arsenal-manchester-united/
-
-**How can Lakers survive LeBron James's potential absence? 'Play hard and play defense'**\
-`A league source told The Athletic that they fear LeBron James will need weeks, not days, to recover. What can Lakers do to hold the fort?`\
-https://nytimes.com/athletic/6187846/2025/03/09/lebron-james-injury-lakers-options-nba/
 
