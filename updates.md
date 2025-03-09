@@ -1,3 +1,11 @@
+**Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
+`The four clubs will compete in the pre-season tournament that will be played across Atlanta, New Jersey and Chicago.`\
+https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
+
+**Blue Jackets Sunday Gathering: Friends Luke Kunin, Christian Fischer join 'special group'**\
+`The Blue Jackets have been one of the best stories in sports this year. GM Don Waddell did not want to mess with that at the trade deadline.`\
+https://nytimes.com/athletic/6186201/2025/03/09/blue-jackets-kunin-fischer-nhl-trade-deadline/
+
 **ESPN+ replaying UFC 313 after PPV streaming issues**\
 `A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
 https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/

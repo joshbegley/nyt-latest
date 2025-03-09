@@ -1,3 +1,11 @@
+**Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
+`The four clubs will compete in the pre-season tournament that will be played across Atlanta, New Jersey and Chicago.`\
+https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
+
+**Blue Jackets Sunday Gathering: Friends Luke Kunin, Christian Fischer join 'special group'**\
+`The Blue Jackets have been one of the best stories in sports this year. GM Don Waddell did not want to mess with that at the trade deadline.`\
+https://nytimes.com/athletic/6186201/2025/03/09/blue-jackets-kunin-fischer-nhl-trade-deadline/
+
 **ESPN+ replaying UFC 313 after PPV streaming issues**\
 `A bevy of complaints from viewers attempting to watch the event emerged on social media Saturday night.`\
 https://nytimes.com/athletic/6188294/2025/03/09/espn-ufc-313-replay-streaming-issues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181354/2025/03/09/chicago-bears-2025-free-agency-t
 **The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
 `Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
 https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
-
-**Mets C Francisco Alvarez to have surgery on hand, miss 6-8 weeks**\
-`Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
-https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
-
-**Bowling Green hiring ex-NFL RB Eddie George as head coach: Source**\
-`George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
-https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
 
