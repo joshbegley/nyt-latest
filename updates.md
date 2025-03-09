@@ -1,3 +1,23 @@
+**The New York Times in Print for Sunday, March 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/09/todays-new-york-times
+
+**There Is a Liberal Answer to Elon Musk**\
+`Right-wing populism thrives on scarcity. The answer is abundance. But a politics of abundance will work only if Democrats confront where their approach has failed.`\
+https://nytimes.com/2025/03/09/opinion/musk-trump-doge-abundance-agenda.html
+
+**There is a Liberal Answer to Elon Musk**\
+`Right-wing populism thrives on scarcity. The answer is abundance. But a politics of abundance will work only if Democrats confront where their approach has failed.`\
+https://nytimes.com/video/opinion/100000010037751/there-is-a-liberal-answer-to-elon-musk.html
+
+**This Case About One Religious School Is a Case About the Country’s Future**\
+`The case invites further fragmentation of public education.`\
+https://nytimes.com/2025/03/09/opinion/school-catholic-supreme-court-constitution.html
+
+**How I Lost Hope and Took Up Singing**\
+`When there is so much uncertainty about the shape of the future, the only time to do things is now.`\
+https://nytimes.com/2025/03/09/opinion/ukraine-war-lost-hope.html
+
 **How to watch Texas vs. South Carolina in SEC women's basketball tourney final**\
 `South Carolina meets Texas in the SEC tournament final on Sunday.`\
 https://nytimes.com/athletic/6174973/2025/03/09/how-to-watch-womens-sec-tournament/
