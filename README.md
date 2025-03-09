@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-champi
 `The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
 https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
 
-**Small Earthquake Rattles Southern California**\
+**Small Earthquake Rumbles in Los Angeles Area**\
 `The authorities said there were no initial reports of damage from the quake, which struck in the hills west of Malibu.`\
 https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
 
