@@ -1,3 +1,7 @@
+**The Radical Pleasure of Fashion That Makes You Feel**\
+`Comme des Garçons, Rick Owens, and Undercover embrace the power of human scale.`\
+https://nytimes.com/2025/03/09/style/comme-des-garcons-rick-owens-undercover-fall-2025.html
+
 **‘Emotions were high’ as Brandon Carlo and Scott Laughton suited up for the first time as Leafs**\
 `Friday afternoon, Carlo was in the Florida sunshine, convinced he was going to remain a Bruin. The next afternoon, he suited up as a Leaf.`\
 https://nytimes.com/athletic/6187780/2025/03/09/brandon-carlo-scott-laughton-leafs-first-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/crosswords/spelling-bee-forum.html
 **High Prices Hit a French Classic: Beef Bourguignon**\
 `Businesses across Europe, including restaurants in Paris that make the dish, are being squeezed by sticky inflation.`\
 https://nytimes.com/2025/03/09/business/inflation-europe-france-beef-bourguignon.html
-
-**Trump Casts a Long Shadow Over a Governor’s Race**\
-`President Trump and his divisive policies are helping to define the primary races for New Jersey governor.`\
-https://nytimes.com/2025/03/09/nyregion/trump-nj-governor-race.html
 
