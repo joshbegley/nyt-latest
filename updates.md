@@ -1,3 +1,11 @@
+**Democrats Voice Regret on Scattered Responses to Trump’s Speech**\
+`Progressive and moderate Democrats criticized a protest by Representative Al Green as a distraction, and the party leadership tried to refocus attention on economic issues.`\
+https://nytimes.com/2025/03/09/us/politics/trump-speech-congress-democrats.html
+
+**High Point, Lipscomb secure NCAA tourney auto bids with conference titles**\
+`It is High Point's first-ever trip to the NCAA Tournament.`\
+https://nytimes.com/athletic/6188637/2025/03/09/ncaa-tournament-automatic-bids-mens-basketball-2025/
+
 **Women's basketball conference tournaments: Duke's Kara Lawson earns first ACC title as coach**\
 `Which teams earned automatic bids for the NCAA Tournament?`\
 https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/

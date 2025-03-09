@@ -1,3 +1,15 @@
+**Israeli Energy Minister Cuts Off Electricity to Gaza**\
+`The move, which will mainly affect a single wastewater treatment plant, appeared intended to put pressure on Hamas.`\
+https://nytimes.com/2025/03/09/world/middleeast/israel-electricity-gaza.html
+
+**Casteels quits Belgium over 'red carpet' for Courtois**\
+`"I think it’s a bit strange that Courtois can decide for himself whether he can come back," Casteels said on Belgian podcast MidMid.`\
+https://nytimes.com/athletic/6188846/2025/03/09/belgium-koen-casteels-courtois/
+
+**Arsenal's choice of Berta as sporting director is a clear signal of their direction**\
+`The club could have appointed from within to succeed Edu but have opted to shake things up `\
+https://nytimes.com/athletic/6188123/2025/03/09/andrea-berta-arsenal-sporting-director-2/
+
 **Democrats Voice Regret on Scattered Responses to Trump’s Speech**\
 `Progressive and moderate Democrats criticized a protest by Representative Al Green as a distraction, and the party leadership tried to refocus attention on economic issues.`\
 https://nytimes.com/2025/03/09/us/politics/trump-speech-congress-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6188565/2025/03/09/utah-connor-ingram-nhl-player-as
 **Trump Declines to Rule Out Recession as Tariffs Begin to Bite**\
 `President Trump said that Americans would be better off in the long run from his tariffs, which he said would prevent the country from being “ripped off.”`\
 https://nytimes.com/2025/03/09/us/politics/trump-recession-lutnick.html
-
-**Want to Teach With Our Contests? Ask Your School Librarian for Help.**\
-`Here’s how a team of librarians collaborated with teachers to help students enter our Open Letters Contest — and to create their school’s own competition.`\
-https://nytimes.com/2025/03/09/learning/lesson-plans/want-to-teach-with-our-contests-ask-your-school-librarian-for-help.html
-
-**High Point, Lipscomb secure NCAA tourney auto bids with conference titles**\
-`It is High Point's first-ever trip to the NCAA Tournament.`\
-https://nytimes.com/athletic/6188637/2025/03/09/ncaa-tournament-automatic-bids-mens-basketball-2025/
-
-**Blackhawks call up top prospect Artyom Levshunov: How he fits**\
-`Levshunov, the No. 2 pick in the 2024 draft, could make his NHL debut as soon as Monday against the Colorado Avalanche.`\
-https://nytimes.com/athletic/6188581/2025/03/09/blackhawks-artyom-levshunov-recalled/
 

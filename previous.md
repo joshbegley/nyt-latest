@@ -1,3 +1,7 @@
+**Democrats Voice Regret on Scattered Responses to Trump’s Speech**\
+`Progressive and moderate Democrats criticized a protest by Representative Al Green as a distraction, and the party leadership tried to refocus attention on economic issues.`\
+https://nytimes.com/2025/03/09/us/politics/trump-speech-congress-democrats.html
+
 **Women's basketball conference tournaments: Duke's Kara Lawson earns first ACC title as coach**\
 `Which teams earned automatic bids for the NCAA Tournament?`\
 https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/03/09/us/politics/trump-recession-lutnick.html
 `Here’s how a team of librarians collaborated with teachers to help students enter our Open Letters Contest — and to create their school’s own competition.`\
 https://nytimes.com/2025/03/09/learning/lesson-plans/want-to-teach-with-our-contests-ask-your-school-librarian-for-help.html
 
-**High Point secures first-ever NCAA Tournament berth with Big South title**\
-`High Point erased a 15-point second-half deficit to cut down the nets in a major redemption story.`\
+**High Point, Lipscomb secure NCAA tourney auto bids with conference titles**\
+`It is High Point's first-ever trip to the NCAA Tournament.`\
 https://nytimes.com/athletic/6188637/2025/03/09/ncaa-tournament-automatic-bids-mens-basketball-2025/
 
 **Blackhawks call up top prospect Artyom Levshunov: How he fits**\
 `Levshunov, the No. 2 pick in the 2024 draft, could make his NHL debut as soon as Monday against the Colorado Avalanche.`\
 https://nytimes.com/athletic/6188581/2025/03/09/blackhawks-artyom-levshunov-recalled/
-
-**The Briefing: Man United 1 Arsenal 1 - Rice rescue act, Fernandes' brilliance and fan protests**\
-`Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
-https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/
 
