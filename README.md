@@ -1,3 +1,7 @@
+**How can Lakers survive LeBron James's potential absence? 'Play hard and play defense'**\
+`A league source told The Athletic that they fear LeBron James will need weeks, not days, to recover. What can Lakers do to hold the fort?`\
+https://nytimes.com/athletic/6187846/2025/03/09/lebron-james-injury-lakers-options-nba/
+
 **Rexrode: Johni Broome doesn't edge Cooper Flagg for national player of year; he routs him**\
 `Broome played, and dominated, at the sport's highest level this season. Flagg did not.`\
 https://nytimes.com/athletic/6187456/2025/03/09/johni-broome-cooper-flagg-player-of-the-year/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187543/2025/03/09/chicago-cubs-pitching-staff-toky
 **'We haven’t had this feeling in a couple years': The Blues' winning culture is back**\
 `The Blues lost 2-1 in overtime to the LA Kings, but there have been plenty of signs lately that they're playing for each other.`\
 https://nytimes.com/athletic/6187700/2025/03/09/blues-winning-culture-is-back/
-
-**Canadiens want more information down the stretch, and Lane Hutson continues providing it**\
-`The Canadiens rookie has shown all season that the NHL wasn't too big of a step for him. Now he's showing a playoff chase isn't either.`\
-https://nytimes.com/athletic/6187764/2025/03/09/lane-hutson-canadiens-future-playoffs/
 
