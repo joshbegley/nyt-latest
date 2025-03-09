@@ -1,3 +1,11 @@
+**Rage Against Elon Musk Turns Tesla Into a Target**\
+`The backlash against the electric vehicle company has turned violent at times, as its billionaire chief executive parlays his support for President Trump into consequential influence over the federal government.`\
+https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandalism.html
+
+**‘Thought it was a dream’: David Pastrnak, Jeremy Swayman and the deadline devastation**\
+`"The human side of me was crushed," Jeremy Swayman said as the Bruins tried to pick up the post-deadline pieces.`\
+https://nytimes.com/athletic/6187417/2025/03/08/bruins-deadline-david-pastrnak-jeremy-swayman/
+
 **Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
 `The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
 https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
