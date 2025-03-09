@@ -1,3 +1,7 @@
+**Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
+`Paul has joined compatriot Fritz in living among the tennis elite, and learning what comes with the territory of a single-digit ranking.`\
+https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
+
 **South Carolina cruises past Texas in SEC Tournament championship game**\
 `The Gamecocks’ 64-45 win Sunday secures the program its third-consecutive SEC tournament title.`\
 https://nytimes.com/athletic/6189034/2025/03/09/south-carolina-texas-sec-tournament-wbb-score-results/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/09/crosswords/daily-puzzle-2025-03-10.html
 **Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
 `More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
 https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html
-
-**Brad Treliving addresses Mitch Marner trade reports: 'We want Mitch here for a long time'**\
-`The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
-https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/
 
