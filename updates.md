@@ -1,3 +1,7 @@
+**LSU's Aneesah Morrow ruled out for remainder of SEC semifinal**\
+`Morrow hit the floor and was helped off the floor by staff and teammate Flau’jae Johnson, not putting any weight on her left foot.`\
+https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
+
 **Oldest living former MLB player dies at 100**\
 `When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
 https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
