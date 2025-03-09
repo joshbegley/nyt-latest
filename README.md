@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
+`Spurs fought back from two goals down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
+https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
+
+**The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
+`Liam Twomey breaks down the main talking points from Chelsea's 1-0 win over Leicester City`\
+https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
+
 **Mets C Francisco Alvarez to have surgery on hand injury, miss 6-8 weeks**\
 `Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
 https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188036/2025/03/09/carles-minarro-garcia-tributes/
 **Sometimes, You Really Just Need a Strawberry Smoothie**\
 `And that time is these gray days of early March.`\
 https://nytimes.com/2025/03/09/dining/strawberry-smoothie.html
-
-**Joey Molland of the Power-Pop Band Badfinger Dies at 77**\
-`He was the last remaining core member of a group that was both propelled and pigeonholed in the 1970s by its close association with the Beatles.`\
-https://nytimes.com/2025/03/09/arts/music/joey-molland-dead.html
-
-**Lowetide: What the Oilers did (and didn't do) at the trade deadline**\
-`All things considered, the trade deadline Stan Bowman and company delivered for the Oilers looks good at first blush.`\
-https://nytimes.com/athletic/6186470/2025/03/09/oilers-trade-recap-2025/
 
