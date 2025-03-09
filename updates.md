@@ -1,4 +1,8 @@
 **Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
+`Paul has joined compatriot Fritz in living among the tennis elite and learning what comes with the territory of a single-digit ranking.`\
+https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
+
+**Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
 `Paul has joined compatriot Fritz in living among the tennis elite, and learning what comes with the territory of a single-digit ranking.`\
 https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
 
