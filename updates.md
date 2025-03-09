@@ -1,3 +1,7 @@
+**How can Lakers survive LeBron James's potential absence? 'Play hard and play defense'**\
+`A league source told The Athletic that they fear LeBron James will need weeks, not days, to recover. What can Lakers do to hold the fort?`\
+https://nytimes.com/athletic/6187846/2025/03/09/lebron-james-injury-lakers-options-nba/
+
 **How Jake Walman's debut was exactly what the Oilers want and need**\
 `Walman’s full array of smooth-skating, puck-moving skills — plus other talents — were on display in a 5-4 Oilers win over the Dallas Stars.`\
 https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/

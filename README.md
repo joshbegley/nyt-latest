@@ -1,3 +1,7 @@
+**Arsenal's Martinelli back in matchday squad for Manchester United trip**\
+`Martinelli has not played since suffering a hamstring injury during the Carabao Cup loss at Newcastle United on February 5.`\
+https://nytimes.com/athletic/6187987/2025/03/09/gabriel-martinelli-injury-update-arsenal-manchester-united/
+
 **How can Lakers survive LeBron James's potential absence? 'Play hard and play defense'**\
 `A league source told The Athletic that they fear LeBron James will need weeks, not days, to recover. What can Lakers do to hold the fort?`\
 https://nytimes.com/athletic/6187846/2025/03/09/lebron-james-injury-lakers-options-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
 **State of the Chicago Cubs' pitching staff ahead of the Tokyo Series **\
 `"We have a really good group of guys. It's time for us to put that on the field and make a run in the playoffs," Jameson Taillon said.`\
 https://nytimes.com/athletic/6187543/2025/03/09/chicago-cubs-pitching-staff-tokyo-series/
-
-**'We haven’t had this feeling in a couple years': The Blues' winning culture is back**\
-`The Blues lost 2-1 in overtime to the LA Kings, but there have been plenty of signs lately that they're playing for each other.`\
-https://nytimes.com/athletic/6187700/2025/03/09/blues-winning-culture-is-back/
 
