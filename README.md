@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
 
 **Small Earthquake Rattles Southern California**\
-`The authorities said they were surveying for signs of damage from the quake, which struck in the hills west of Malibu.`\
+`The authorities said there were no initial reports of damage from the quake, which struck in the hills west of Malibu.`\
 https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
 
 **Monday Briefing: Violence Continues in Syria**\
