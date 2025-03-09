@@ -1,3 +1,7 @@
+**Oldest living former MLB player dies at 100**\
+`When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
+https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
+
 **Oldest living ex-MLB player dies at 100**\
 `When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
 https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
