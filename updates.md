@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
+`Spurs fought back from two down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
+https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
+
 **Bowling Green hiring ex-NFL RB Eddie George as head coach: Source**\
 `George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
 https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/

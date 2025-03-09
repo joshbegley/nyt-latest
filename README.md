@@ -2,7 +2,7 @@
 `The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in league history.`\
 https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
 
-**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
+**The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides a spark, fans on edge**\
 `Spurs fought back from two down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
 
