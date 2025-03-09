@@ -1,3 +1,7 @@
+**NC State basketball coaching candidates: Is the commitment there to lure top names?**\
+`Kevin Keatts ends his tenure 151-113 with three NCAA Tournament appearances. Where do the Wolfpack turn?`\
+https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coaching-candidates/
+
 **Iraola says Bournemouth should have beaten Tottenham**\
 `The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
 https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
