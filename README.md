@@ -1,3 +1,7 @@
+**With SEC Tournament bracket set, Texas is the team of clear desperation**\
+`As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
+https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
+
 **Inside the post-trade whirlwind for Josh Norris and his new Sabres teammates**\
 `Norris is looking to get past the “initial shock” of being traded, saying goodbye to good friends in Ottawa and having to settle in Buffalo.`\
 https://nytimes.com/athletic/6186760/2025/03/08/sabres-josh-norris-trade-senators/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/business/elon-musk-tesla-violence-protests-vandal
 **‘Thought it was a dream’: David Pastrnak, Jeremy Swayman and the deadline devastation**\
 `"The human side of me was crushed," Jeremy Swayman said as the Bruins tried to pick up the post-deadline pieces.`\
 https://nytimes.com/athletic/6187417/2025/03/08/bruins-deadline-david-pastrnak-jeremy-swayman/
-
-**Trump Pulled $400 Million From Columbia. Other Schools Could Be Next.**\
-`The administration has circulated a list that includes nine other campuses, accusing them of failure to address antisemitism.`\
-https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
 
