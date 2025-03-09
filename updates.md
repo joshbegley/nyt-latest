@@ -1,3 +1,11 @@
+**Bowling Green hiring former NFL RB Eddie George as head coach**\
+`George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
+https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
+
+**The Crack of Rifles, Then Silence: What a Firing Squad Execution Was Like**\
+`One of the three media witnesses to the execution of Brad Sigmon in South Carolina on Friday describes what he saw.`\
+https://nytimes.com/2025/03/09/us/firing-squad-execution-south-carolina.html
+
 **Flo Fox, Photographer Who Overcame Blindness and Paralysis, Dies at 79**\
 `She was legally blind and used a motorized wheelchair, but she managed to capture what she called the “ironic reality” of New York City on film.`\
 https://nytimes.com/2025/03/09/arts/flo-fox-dead.html
