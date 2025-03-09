@@ -1,5 +1,9 @@
-**Thunder pull away late, rout Nuggets in battle of two top West contenders**\
-`Shai Gilgeous-Alexander scored 40 points on Sunday as the Thunder pulled away late in rout.`\
+**Athol Fugard, South African Playwright Who Dissected Apartheid, Dies at 92**\
+`In works that included “Blood Knot,” “Sizwe Banzi Is Dead” and “The Island,” he exposed the realities of racial separatism in his homeland.`\
+https://nytimes.com/2025/03/09/obituaries/athol-fugard-dead.html
+
+**Thunder pull away late, top Nuggets in battle of West contenders: Takeaways**\
+`Shai Gilgeous-Alexander scored 40 points to outduel Nikola Jokić. The teams meet again on Monday.`\
 https://nytimes.com/athletic/6188607/2025/03/09/thunder-nuggets-gilgeous-alexander-nikola-jokic/
 
 **Utah's Connor Ingram enters NHL/NHLPA player assistance program**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188632/2025/03/09/jarran-reed-seahawks-deal-nfl-fr
 **NC State basketball coaching candidates: Is the commitment there to lure top names?**\
 `Kevin Keatts ends his tenure 151-113 with three NCAA Tournament appearances. Where do the Wolfpack turn?`\
 https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coaching-candidates/
-
-**Iraola says Bournemouth should have beaten Tottenham**\
-`The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
-https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
 
