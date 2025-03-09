@@ -1,3 +1,7 @@
+**Syria’s Interim President Calls for Unity Amid Fresh Fighting**\
+`More than 1,000 people have been killed in clashes in the coastal provinces of Syria, according to one war monitoring group.`\
+https://nytimes.com/2025/03/09/world/middleeast/syria-latakia-clashes.html
+
 **Are Liberal Democrats Really ‘Bewildered’?**\
 `Readers respond to a column by Nicholas Kristof about his “Bewildered Liberals Book Club.”`\
 https://nytimes.com/2025/03/09/opinion/liberal-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187370/2025/03/09/las-vegas-raiders-free-agency-pl
 **Hunter Dickinson thriving in ‘new’ Kansas season, offering hope for a memorable March**\
 `After a rough stretch — for him and the team — Dickinson is playing the best basketball of his career. `\
 https://nytimes.com/athletic/6187596/2025/03/09/hunter-dickinson-kansas-ncaa-tournament/
-
-**Hamburg Airport Halts All Flights as Ground Staff Strike**\
-`The airport in Germany’s second largest city said the one-day strike, called over pay and conditions, began earlier than expected “without any notice.”`\
-https://nytimes.com/2025/03/09/world/europe/hamburg-airport-cancels-flights-strike.html
 
