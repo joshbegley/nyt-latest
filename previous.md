@@ -1,8 +1,12 @@
+**SIUE wins OVC championship, secures first-ever bid to NCAA Tournament**\
+`SIUE is projected to be a No. 16 seed and play in the First Four in Dayton.`\
+https://nytimes.com/athletic/6187685/2025/03/08/siue-wins-ovc-championship-ncaa-tournament-first-bid/
+
 **LeBron James injured as Celtics snap Lakers' 8-game win streak**\
 `James exited midway through the fourth quarter with a left groin strain.`\
 https://nytimes.com/athletic/6187598/2025/03/08/lakers-celtics-result-score-lebron-james-injured/
 
-**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 unanswered goals**\
+**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 straight goals**\
 `Mitch Marner and John Tavares each had two goals, but it wasn't enough as Toronto lost 7-4 to Colorado and dropped its third game in a row.`\
 https://nytimes.com/athletic/6187584/2025/03/08/maple-leafs-avalanche-grades-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-fo
 **Oldest living former MLB player dies at 100**\
 `When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
 https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
-
-**Novak Djokovic out of Indian Wells after defeat to Botic van de Zandschulp**\
-`Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
-https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
 
