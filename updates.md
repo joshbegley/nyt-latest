@@ -1,3 +1,7 @@
+**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 unanswered goals**\
+`Mitch Marner and John Tavares each had two goals, but it wasn't enough as Toronto lost 7-4 to Colorado and dropped its third game in a row.`\
+https://nytimes.com/athletic/6187584/2025/03/08/maple-leafs-avalanche-grades-analysis/
+
 **Zach Ertz returning to Commanders on 1-year, $6.25 million deal**\
 `Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
 https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
