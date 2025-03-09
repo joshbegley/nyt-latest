@@ -1,3 +1,7 @@
+**Corrections: March 9, 2025**\
+`Corrections that appeared in print on Sunday, March 9, 2025.`\
+https://nytimes.com/2025/03/08/pageoneplus/corrections-march-9-2025.html
+
 **LSU's Aneesah Morrow exits vs. Texas with apparent foot injury**\
 `Morrow fell after a drive in the third quarter and could put any weight on her left foot as she was helped off the court.`\
 https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/08/us/columbia-trump-colleges-antisemitism.html
 **On International Women’s Day, thousands gather to oppose Trump.**\
 `By Isabelle Taft and Eric Berger`\
 https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-protests-trump
-
-**Notre Dame's late-season slump continues with loss to Duke in ACC semifinals**\
-`The Irish have dropped three of their last five games, eliminating their chances for an outright ACC regular-season title.`\
-https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
 

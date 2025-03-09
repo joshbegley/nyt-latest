@@ -1,3 +1,7 @@
+**LSU's Aneesah Morrow exits vs. Texas with apparent foot injury**\
+`Morrow fell after a drive in the third quarter and could put any weight on her left foot as she was helped off the court.`\
+https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
+
 **LSU's Aneesah Morrow ruled out for remainder of SEC semifinal**\
 `Morrow hit the floor and was helped off the floor by staff and teammate Flau’jae Johnson, not putting any weight on her left foot.`\
 https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
