@@ -1,4 +1,4 @@
-**Zach Ertz returning to Commanders on 1-year, $6.5 million deal**\
+**Zach Ertz returning to Commanders on 1-year, $6.25 million deal**\
 `Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
 https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
 
