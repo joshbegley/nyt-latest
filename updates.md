@@ -1,3 +1,15 @@
+**Art Schallock, Oldest Surviving Major Leaguer, Dies at 100**\
+`A pitcher, he played for the Yankees and the Orioles. When Mickey Mantle was sent to the minors in 1951, Schallock was called up.`\
+https://nytimes.com/2025/03/09/obituaries/art-schallock-dead.html
+
+**Alex Ovechkin 9 goals from breaking Wayne Gretzky's record after scoring vs. Kraken**\
+`The Capitals winger scored goal No. 886 on Sunday against the Kraken, giving him 33 on the season.`\
+https://nytimes.com/athletic/6185474/2025/03/09/ovechkin-goal-record-gretzky-886/
+
+**Women's basketball conference tournaments: Wings coach watches Paige Bueckers in semis**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
 **Submit your questions for Antonio Morales’ USC football mailbag**\
 `<p>USC begins spring practice later this month. Submit your questions for Antonio below. We will post his answers later this week.</p>
 `\
