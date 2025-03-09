@@ -1,3 +1,19 @@
+**How Would Peacekeeping Work in Ukraine? These Experts Gamed It Out.**\
+`The publication of the detailed analysis was a sign that a cease-fire has gone from a theoretical exercise to an urgent and practical issue.`\
+https://nytimes.com/2025/03/09/world/europe/ukraine-peace-plan-russia-war.html
+
+**He Was Once a Covert Taliban Operative. Now He’s the Friendly Taxman.**\
+`Abdul Qahar Ghorbandi, head of Afghanistan’s Taxpayers Services Directorate, has the hard job of raising money in an impoverished country hobbled by international sanctions.`\
+https://nytimes.com/2025/03/09/world/asia/afghanistan-taliban-economy.html
+
+**Echoing a Roman Emperor, Croatia Tries to Cap Soaring Prices**\
+`Diocletian, who once ruled territory that now includes Croatia, tried and failed to rein in inflation by dictating prices. Today’s government hopes its own such plan will succeed.`\
+https://nytimes.com/2025/03/09/world/europe/echoing-a-roman-emperor-croatia-tries-to-cap-soaring-prices.html
+
+**Joe Veleno's standing plummets, but his opportunity soars with trade to Blackhawks**\
+`Veleno went from a playoff hunt with Detroit to the top of the draft lottery with Chicago, but he's determined to help the rebuild.`\
+https://nytimes.com/athletic/6187695/2025/03/08/blackhawks-red-wings-joe-veleno-trade/
+
 **SIUE wins OVC championship, secures first-ever bid to NCAA Tournament**\
 `SIUE is projected to be a No. 16 seed and play in the First Four in Dayton.`\
 https://nytimes.com/athletic/6187685/2025/03/08/siue-wins-ovc-championship-ncaa-tournament-first-bid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6187614/2025/03/08/maple-leafs-mitch-marner-no-move
 **With SEC Tournament bracket set, Texas is the team of clear desperation**\
 `As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
 https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
-
-**Inside the post-trade whirlwind for Josh Norris and his new Sabres teammates**\
-`Norris is looking to get past the “initial shock” of being traded, saying goodbye to good friends in Ottawa and having to settle in Buffalo.`\
-https://nytimes.com/athletic/6186760/2025/03/08/sabres-josh-norris-trade-senators/
-
-**Corrections: March 9, 2025**\
-`Corrections that appeared in print on Sunday, March 9, 2025.`\
-https://nytimes.com/2025/03/08/pageoneplus/corrections-march-9-2025.html
-
-**LSU's Aneesah Morrow exits vs. Texas with apparent foot injury**\
-`Morrow fell after a drive in the third quarter and could put any weight on her left foot as she was helped off the court.`\
-https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
-
-**Oldest living former MLB player dies at 100**\
-`When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
-https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
 
