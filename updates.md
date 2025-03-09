@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
+`Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
+https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
+
 **The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
 `Spurs fought back from two goals down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
