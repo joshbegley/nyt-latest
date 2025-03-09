@@ -1,3 +1,19 @@
+**Immigration Authorities Arrest Pro-Palestinian Activist at Columbia**\
+`Mahmoud Khalil, who recently completed a graduate program at Columbia, has legal permanent residency, his lawyer said.`\
+https://nytimes.com/2025/03/09/nyregion/ice-arrests-palestinian-activist-columbia-protests.html
+
+**Fred Stolle, Golden-Age Australian Tennis Star, Dies at 86**\
+`In addition to winning 19 Grand Slam titles, including two singles championships, he was a coach, a club pro and a television commentator.`\
+https://nytimes.com/2025/03/09/obituaries/fred-stolle-dead.html
+
+**Map: 4.1-Magnitude Earthquake Strikes Near Malibu, California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/09/weather/malibu-quake-tracker.html
+
+**Tempers flare in Michigan-MSU game over Spartans' senior day tradition**\
+`Tre Holloman upset by Wolverines standing too close during senior day logo-kissing tradition.`\
+https://nytimes.com/athletic/6188789/2025/03/09/michigan-state-michigan-scuffle-logo/
+
 **Israeli Energy Minister Cuts Off Electricity to Gaza**\
 `The move, which will mainly affect a single wastewater treatment plant, appeared intended to put pressure on Hamas.`\
 https://nytimes.com/2025/03/09/world/middleeast/israel-electricity-gaza.html
