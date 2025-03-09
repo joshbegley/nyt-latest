@@ -1,3 +1,7 @@
+**Jaylen Brown, Jayson Tatum embrace burden on offense, defense in win over Lakers**\
+`Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
+https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/
+
 **Syria’s Interim President Calls for Unity Amid Fresh Fighting**\
 `More than 1,000 people have been killed in clashes in the coastal provinces of Syria, according to one war monitoring group.`\
 https://nytimes.com/2025/03/09/world/middleeast/syria-latakia-clashes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6168244/2025/03/09/marc-andre-fleury-retirement-pen
 **What I'm hearing about the Las Vegas Raiders' free agency plans**\
 `The Raiders are looking to retain their in-house free agents.`\
 https://nytimes.com/athletic/6187370/2025/03/09/las-vegas-raiders-free-agency-plans/
-
-**Hunter Dickinson thriving in ‘new’ Kansas season, offering hope for a memorable March**\
-`After a rough stretch — for him and the team — Dickinson is playing the best basketball of his career. `\
-https://nytimes.com/athletic/6187596/2025/03/09/hunter-dickinson-kansas-ncaa-tournament/
 

@@ -1,3 +1,7 @@
+**Syria’s Interim President Calls for Unity Amid Fresh Fighting**\
+`More than 1,000 people have been killed in clashes in the coastal provinces of Syria, according to one war monitoring group.`\
+https://nytimes.com/2025/03/09/world/middleeast/syria-latakia-clashes.html
+
 **Are Liberal Democrats Really ‘Bewildered’?**\
 `Readers respond to a column by Nicholas Kristof about his “Bewildered Liberals Book Club.”`\
 https://nytimes.com/2025/03/09/opinion/liberal-democrats.html
