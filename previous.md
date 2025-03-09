@@ -1,3 +1,11 @@
+**Women's basketball conference tournaments: Duke's Kara Lawson earns first ACC title as coach**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
+**Michigan State, Michigan players scuffle late in Spartans' win**\
+`Tre Holloman upset by Wolverines standing too close during senior day logo-kissing tradition.`\
+https://nytimes.com/athletic/6188789/2025/03/09/michigan-state-michigan-scuffle-logo/
+
 **Athol Fugard, South African Playwright Who Dissected Apartheid, Dies at 92**\
 `In works that included “Blood Knot,” “Sizwe Banzi Is Dead” and “The Island,” he exposed the realities of racial separatism in his homeland.`\
 https://nytimes.com/2025/03/09/obituaries/athol-fugard-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188581/2025/03/09/blackhawks-artyom-levshunov-reca
 **The Briefing: Man United 1 Arsenal 1 - Rice rescue act, Fernandes' brilliance and fan protests**\
 `Laurie Whitwell, Jordan Campbell and Conor O'Neill analyse the key talking points from Manchester United's draw with Arsenal`\
 https://nytimes.com/athletic/6180024/2025/03/09/manchester-united-arsenal-analysis/
-
-**Seahawks agree to 3-year deal with DT Jarran Reed: Source**\
-`Reed is coming off another productive season in which he had 4.5 sacks, 15 total quarterback hits and a pressure rate of 12.9 percent.`\
-https://nytimes.com/athletic/6188632/2025/03/09/jarran-reed-seahawks-deal-nfl-free-agency/
-
-**NC State basketball coaching candidates: Is the commitment there to lure top names?**\
-`Kevin Keatts ends his tenure 151-113 with three NCAA Tournament appearances. Where do the Wolfpack turn?`\
-https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coaching-candidates/
 

@@ -1,3 +1,11 @@
+**Women's basketball conference tournaments: Duke's Kara Lawson earns first ACC title as coach**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
+**Michigan State, Michigan players scuffle late in Spartans' win**\
+`Tre Holloman upset by Wolverines standing too close during senior day logo-kissing tradition.`\
+https://nytimes.com/athletic/6188789/2025/03/09/michigan-state-michigan-scuffle-logo/
+
 **Athol Fugard, South African Playwright Who Dissected Apartheid, Dies at 92**\
 `In works that included “Blood Knot,” “Sizwe Banzi Is Dead” and “The Island,” he exposed the realities of racial separatism in his homeland.`\
 https://nytimes.com/2025/03/09/obituaries/athol-fugard-dead.html
