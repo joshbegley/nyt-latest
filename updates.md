@@ -1,3 +1,11 @@
+**David Sellers, Father of the Design-Build Movement, Dies at 86**\
+`He believed that architects could design better buildings if they did the construction themselves. His do-it-yourself approach caught on.`\
+https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
+
+**Browns, Garrett agree to record deal averaging $40 million per year**\
+`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in NFL history.`\
+https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
+
 **The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides a spark, fans on edge**\
 `Spurs fought back from two down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
