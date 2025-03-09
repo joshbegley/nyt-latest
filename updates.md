@@ -1,3 +1,7 @@
+**With SEC Tournament bracket set, Texas is the team of clear desperation**\
+`As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
+https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
+
 **Novak Djokovic out of Indian Wells after defeat to Botic van de Zandschulp**\
 `Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
 https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
