@@ -1,3 +1,23 @@
+**The New York Times in Print for Sunday, March 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/09/todays-new-york-times
+
+**There Is a Liberal Answer to Elon Musk**\
+`Right-wing populism thrives on scarcity. The answer is abundance. But a politics of abundance will work only if Democrats confront where their approach has failed.`\
+https://nytimes.com/2025/03/09/opinion/musk-trump-doge-abundance-agenda.html
+
+**There is a Liberal Answer to Elon Musk**\
+`Right-wing populism thrives on scarcity. The answer is abundance. But a politics of abundance will work only if Democrats confront where their approach has failed.`\
+https://nytimes.com/video/opinion/100000010037751/there-is-a-liberal-answer-to-elon-musk.html
+
+**This Case About One Religious School Is a Case About the Country’s Future**\
+`The case invites further fragmentation of public education.`\
+https://nytimes.com/2025/03/09/opinion/school-catholic-supreme-court-constitution.html
+
+**How I Lost Hope and Took Up Singing**\
+`When there is so much uncertainty about the shape of the future, the only time to do things is now.`\
+https://nytimes.com/2025/03/09/opinion/ukraine-war-lost-hope.html
+
 **How to watch Texas vs. South Carolina in SEC women's basketball tourney final**\
 `South Carolina meets Texas in the SEC tournament final on Sunday.`\
 https://nytimes.com/athletic/6174973/2025/03/09/how-to-watch-womens-sec-tournament/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6186962/2025/03/09/forest-nuno-style-beat-man-city/
 **Manchester Utd vs Arsenal: Europe vs league form, tactical battles, key players and predictions**\
 `Mark Critchley and Art de Roche discuss Sunday's big game at Old Trafford`\
 https://nytimes.com/athletic/6183164/2025/03/09/manchester-united-arsenal-preview-tactics-prediction/
-
-**How to watch the 2025 ACC women's basketball tournament: Game times, TV listings and more**\
-`Notre Dame and NC State headline a promising ACC women's basketball tournament. Duke and UNC will be on their heels.`\
-https://nytimes.com/athletic/6175437/2025/03/09/how-to-watch-womens-acc-tournament/
-
-**The unlikely origin story of 'Liverbird Upon My Chest' - Liverpool's 'new' fan anthem**\
-`A song originally written in 1984 has become the soundtrack to Arne Slot's latest title charge - its creators explain how`\
-https://nytimes.com/athletic/6183482/2025/03/09/liverpool-liverbird-chest-song/
-
-**How elite clubs train to cope with a relentless fixture calendar**\
-`The demands placed on footballers are greater than ever before. This is how elite clubs train to give them the best chance of staying fit`\
-https://nytimes.com/athletic/6141874/2025/03/09/premier-league-training-fixtures-workload/
-
-**Premier League one-touch passing is in decline - unless your name is Bruno Fernandes**\
-`Playing first-time passes is hard — but one current top-flight player stands out as a true exponent of the skill`\
-https://nytimes.com/athletic/6183042/2025/03/09/premier-league-one-touch-passing-decline-bruno-fernandes/
-
-**How Uruguay won the 1930 World Cup: Home advantage, breathing exercises and a final of two halves**\
-`Michael Cox begins his history of World Cup winners with the inaugural champions Uruguay `\
-https://nytimes.com/athletic/6181606/2025/03/09/world-cup-winners-uruguay-1930/
 
