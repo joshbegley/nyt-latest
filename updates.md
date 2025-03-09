@@ -1,3 +1,7 @@
+**Corrections: March 9, 2025**\
+`Corrections that appeared in print on Sunday, March 9, 2025.`\
+https://nytimes.com/2025/03/08/pageoneplus/corrections-march-9-2025.html
+
 **LSU's Aneesah Morrow exits vs. Texas with apparent foot injury**\
 `Morrow fell after a drive in the third quarter and could put any weight on her left foot as she was helped off the court.`\
 https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
