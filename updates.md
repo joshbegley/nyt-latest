@@ -1,3 +1,7 @@
+**The case for Cooper Flagg as college basketball's player of the year**\
+`A freshman, Flagg is a younger, more productive, history-making star. Meanwhile, Johni Broome has had 5 years to enter the conversation.`\
+https://nytimes.com/athletic/6187763/2025/03/09/cooper-flagg-npoy/
+
 **Chaos Sweeps Coastal Syria: ‘We Have to Get Out of Here’**\
 `Residents described shootings outside their homes and bodies in the streets in Syria’s worst unrest since Bashar al-Assad’s ouster. More than 1,000 people have been killed since Thursday, a war monitor said.`\
 https://nytimes.com/2025/03/09/world/middleeast/syria-violence.html
