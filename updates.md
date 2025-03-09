@@ -1,3 +1,7 @@
+**Hamburg Airport Halts All Flights as Ground Staff Strike**\
+`The airport in Germany’s second largest city said the one-day strike, called over pay and conditions, began earlier than expected “without any notice.”`\
+https://nytimes.com/2025/03/09/world/europe/hamburg-airport-cancels-flights-strike.html
+
 **Trend Overload**\
 `We cover a surprising form of Gen Z burnout.`\
 https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
