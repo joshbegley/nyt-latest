@@ -1,3 +1,7 @@
+**Mets C Francisco Alvarez to have surgery on hand injury, miss 6-8 weeks**\
+`Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
+https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
+
 **Bowling Green hiring former NFL RB Eddie George as head coach**\
 `George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
 https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/arts/music/joey-molland-dead.html
 **Lowetide: What the Oilers did (and didn't do) at the trade deadline**\
 `All things considered, the trade deadline Stan Bowman and company delivered for the Oilers looks good at first blush.`\
 https://nytimes.com/athletic/6186470/2025/03/09/oilers-trade-recap-2025/
-
-**Bills release Von Miller, but are open to bringing him back: Sources**\
-`Miller's release frees $8.4 million against the Bills' 2025 salary cap.`\
-https://nytimes.com/athletic/6188120/2025/03/09/von-miller-bills-release/
 
