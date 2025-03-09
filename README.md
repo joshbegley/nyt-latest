@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6187685/2025/03/08/siue-wins-ovc-championship-ncaa-
 `James exited midway through the fourth quarter with a left groin strain.`\
 https://nytimes.com/athletic/6187598/2025/03/08/lakers-celtics-result-score-lebron-james-injured/
 
-**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 unanswered goals**\
+**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 straight goals**\
 `Mitch Marner and John Tavares each had two goals, but it wasn't enough as Toronto lost 7-4 to Colorado and dropped its third game in a row.`\
 https://nytimes.com/athletic/6187584/2025/03/08/maple-leafs-avalanche-grades-analysis/
 
