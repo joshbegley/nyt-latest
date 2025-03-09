@@ -1,3 +1,7 @@
+**Man Utd, Everton, West Ham, Bournemouth to play U.S. pre-season series**\
+`The four clubs will compete in the Premier League Summer Series that will be played across Atlanta, New Jersey and Chicago.`\
+https://nytimes.com/athletic/6187911/2025/03/09/manchester-united-usa-west-ham-everton-bournemouth/
+
 **Trump Declines to Rule Out Recession as Tariffs Begin to Bite**\
 `President Trump said that Americans would be better off in the long run from his tariffs, which he said would prevent the country from being “ripped off.”`\
 https://nytimes.com/live/2025/03/09/us/trump-news-updates/trump-recession-lutnick
