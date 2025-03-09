@@ -1,3 +1,15 @@
+**Trend Overload**\
+`We cover a surprising form of Gen Z burnout.`\
+https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
+
+**How Jake Walman's debut was exactly what the Oilers want and need**\
+`EDMONTON — The way things were going for the Edmonton Oilers for weeks heading toward the trade deadline, it seemed like getting a more defensive-style blueliner was the way to go.`\
+https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
+
+**State of the Chicago Cubs' pitching staff ahead of the Tokyo Series **\
+`"We have a really good group of guys. It's time for us to put that on the field and make a run in the playoffs," Jameson Taillon said.`\
+https://nytimes.com/athletic/6187543/2025/03/09/chicago-cubs-pitching-staff-tokyo-series/
+
 **'We haven’t had this feeling in a couple years': The Blues' winning culture is back**\
 `The Blues lost 2-1 in overtime to the LA Kings, but there have been plenty of signs lately that they're playing for each other.`\
 https://nytimes.com/athletic/6187700/2025/03/09/blues-winning-culture-is-back/
