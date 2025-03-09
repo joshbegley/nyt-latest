@@ -1,3 +1,7 @@
+**NC State basketball coaching candidates: Is the commitment there to lure top names?**\
+`Kevin Keatts ends his tenure 151-113 with three NCAA Tournament appearances. Where do the Wolfpack turn?`\
+https://nytimes.com/athletic/6188549/2025/03/09/nc-state-mens-basketball-coaching-candidates/
+
 **Iraola says Bournemouth should have beaten Tottenham**\
 `The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
 https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188247/2025/03/09/liverpool-psg-andy-robertson/
 **David Sellers, Father of the Design-Build Movement, Dies at 86**\
 `He believed that architects could design better buildings if they did the construction themselves. His do-it-yourself approach caught on.`\
 https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
-
-**Browns, Garrett agree to record deal averaging $40 million per year**\
-`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in NFL history.`\
-https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
 
