@@ -1,3 +1,15 @@
+**Israeli Energy Minister Cuts Off Electricity to Gaza**\
+`The move, which will mainly affect a single wastewater treatment plant, appeared intended to put pressure on Hamas.`\
+https://nytimes.com/2025/03/09/world/middleeast/israel-electricity-gaza.html
+
+**Casteels quits Belgium over 'red carpet' for Courtois**\
+`"I think it’s a bit strange that Courtois can decide for himself whether he can come back," Casteels said on Belgian podcast MidMid.`\
+https://nytimes.com/athletic/6188846/2025/03/09/belgium-koen-casteels-courtois/
+
+**Arsenal's choice of Berta as sporting director is a clear signal of their direction**\
+`The club could have appointed from within to succeed Edu but have opted to shake things up `\
+https://nytimes.com/athletic/6188123/2025/03/09/andrea-berta-arsenal-sporting-director-2/
+
 **Democrats Voice Regret on Scattered Responses to Trump’s Speech**\
 `Progressive and moderate Democrats criticized a protest by Representative Al Green as a distraction, and the party leadership tried to refocus attention on economic issues.`\
 https://nytimes.com/2025/03/09/us/politics/trump-speech-congress-democrats.html
