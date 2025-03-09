@@ -1,3 +1,11 @@
+**Athol Fugard, South African Playwright Who Dissected Apartheid, Dies at 92**\
+`In works that included “Blood Knot,” “Sizwe Banzi Is Dead” and “The Island,” he exposed the realities of racial separatism in his homeland.`\
+https://nytimes.com/2025/03/09/obituaries/athol-fugard-dead.html
+
+**Thunder pull away late, top Nuggets in battle of West contenders: Takeaways**\
+`Shai Gilgeous-Alexander scored 40 points to outduel Nikola Jokić. The teams meet again on Monday.`\
+https://nytimes.com/athletic/6188607/2025/03/09/thunder-nuggets-gilgeous-alexander-nikola-jokic/
+
 **Thunder pull away late, rout Nuggets in battle of two top West contenders**\
 `Shai Gilgeous-Alexander scored 40 points on Sunday as the Thunder pulled away late in rout.`\
 https://nytimes.com/athletic/6188607/2025/03/09/thunder-nuggets-gilgeous-alexander-nikola-jokic/
