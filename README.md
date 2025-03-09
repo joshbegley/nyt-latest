@@ -1,5 +1,9 @@
+**David Sellers, Father of the Design-Build Movement, Dies at 86**\
+`He believed that architects could design better buildings if they did the construction themselves. His do-it-yourself approach caught on.`\
+https://nytimes.com/2025/03/09/arts/design/david-sellers-dead.html
+
 **Browns, Garrett agree to record deal averaging $40 million per year**\
-`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in league history.`\
+`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in NFL history.`\
 https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
 
 **The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides a spark, fans on edge**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/arts/flo-fox-dead.html
 **Siegel: The Maple Leafs handed Mitch Marner all the cards. Now, the fallout**\
 `Nearly two years ago, the Leafs lost leverage in the Mitch Marner contract situation and set the stage for Mikko Rantanen deadline talks.`\
 https://nytimes.com/athletic/6181856/2025/03/09/maple-leafs-mitch-marner-contract-rantanen/
-
-**Tracking Tropical Cyclone Jude**\
-`See the likely path and wind arrival times for Jude.`\
-https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
 
