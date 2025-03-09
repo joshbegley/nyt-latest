@@ -1,3 +1,7 @@
+**How to watch Texas vs. South Carolina in SEC women's basketball tourney final**\
+`South Carolina meets Texas in the SEC tournament final on Sunday.`\
+https://nytimes.com/athletic/6174973/2025/03/09/how-to-watch-womens-sec-tournament/
+
 **How to watch USC vs. UCLA in Big Ten women's basketball tournament final**\
 `The Big Ten women's basketball tournament tips off Wednesday and concludes Sunday afternoon. USC and UCLA are the favorites.`\
 https://nytimes.com/athletic/6174375/2025/03/09/how-to-watch-womens-big-ten-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6183042/2025/03/09/premier-league-one-touch-passing
 **How Uruguay won the 1930 World Cup: Home advantage, breathing exercises and a final of two halves**\
 `Michael Cox begins his history of World Cup winners with the inaugural champions Uruguay `\
 https://nytimes.com/athletic/6181606/2025/03/09/world-cup-winners-uruguay-1930/
-
-**How Would Peacekeeping Work in Ukraine? These Experts Gamed It Out.**\
-`The publication of the detailed analysis was a sign that a cease-fire has gone from a theoretical exercise to an urgent and practical issue.`\
-https://nytimes.com/2025/03/09/world/europe/ukraine-peace-plan-russia-war.html
 
