@@ -1,3 +1,11 @@
+**Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
+`The 11-year veteran and three-time All-Pro wide receiver was the No. 4 ranked free agent on The Athletic's top 150 list. `\
+https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
+
+**Romania Bars Ultranationalist Candidate From Presidential Race**\
+`The country’s electoral commission ruled on Sunday that Calin Georgescu, an outspoken critic of Ukraine and NATO, could not compete in the do-over election.`\
+https://nytimes.com/2025/03/09/world/europe/09int-romania-election-calin-georgescu.html
+
 **Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
 `Paul has joined compatriot Fritz in living among the tennis elite and learning what comes with the territory of a single-digit ranking.`\
 https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6185474/2025/03/09/ovechkin-goal-record-gretzky-886
 `<p>USC begins spring practice later this month. Submit your questions for Antonio below. We will post his answers later this week.</p>
 `\
 https://nytimes.com/athletic/6189076/2025/03/09/submit-your-questions-for-antonio-morales-usc-football-mailbag-12/
-
-**Strong Wind**\
-`Patti Varol makes a charming return.`\
-https://nytimes.com/2025/03/09/crosswords/daily-puzzle-2025-03-10.html
-
-**Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
-`More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
-https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html
 
