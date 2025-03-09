@@ -1,3 +1,7 @@
+**LSU's Aneesah Morrow ruled out for remainder of SEC semifinal**\
+`Morrow hit the floor and was helped off the floor by staff and teammate Flau’jae Johnson, not putting any weight on her left foot.`\
+https://nytimes.com/athletic/6187528/2025/03/08/lsus-aneesah-morrow-ruled-out-for-remainder-of-sec-semifinal/
+
 **Oldest living former MLB player dies at 100**\
 `When the Yankees called up Art Schallock for his major-league debut in 1951, they made room on the roster by sending down Mickey Mantle.`\
 https://nytimes.com/athletic/6187483/2025/03/08/yankees-mlb-oldest-living-player-dies/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/08/us/trump-news/international-womens-day-prote
 **Notre Dame's late-season slump continues with loss to Duke in ACC semifinals**\
 `The Irish have dropped three of their last five games, eliminating their chances for an outright ACC regular-season title.`\
 https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-basketball/
-
-**Sears' buzzer-beater gives Alabama revenge against Auburn in OT thriller**\
-`Mark Sears' floater as time expired lifted Alabama over rival Auburn 93-91.`\
-https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
 
