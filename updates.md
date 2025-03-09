@@ -1,3 +1,7 @@
+**Jaylen Brown, Jayson Tatum embrace burden on offense and defense in win over Lakers**\
+`Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
+https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/
+
 **Jaylen Brown, Jayson Tatum embrace burden on offense, defense in win over Lakers**\
 `Over 87 combined minutes, Brown and Tatum scored 71 of their team’s 111 points, while Brown had the energy on defense to bother Luka Dončić.`\
 https://nytimes.com/athletic/6187823/2025/03/09/celtics-lakers-jaylen-brown-jayson-tatum/
