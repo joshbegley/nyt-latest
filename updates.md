@@ -1,3 +1,11 @@
+**Iraola says Bournemouth should have beaten Tottenham**\
+`The south-coast side threw away a 2-0 lead at the Tottenham Hotspur Stadium to draw 2-2.`\
+https://nytimes.com/athletic/6188491/2025/03/09/bournemouth-tottenham-andoni-iraola/
+
+**Chelsea's Palmer was suffering from illness before Leicester - Maresca**\
+`Palmer saw his streak of successful Premier League penalties ended at 12 by Leicester 'keeper Mads Hermansen in the first half of the win.`\
+https://nytimes.com/athletic/6188533/2025/03/09/cole-palmer-illness-chelsea-leicester/
+
 **High Point and SIUE are in. Who will join them in the NCAA Tournament?**\
 `Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
 https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
