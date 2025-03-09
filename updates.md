@@ -1,3 +1,7 @@
+**Novak Djokovic out of Indian Wells after stumbling defeat to Botic van de Zandschulp**\
+`Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
+https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
+
 **Novak Djokovic out of Indian Wells after stumbling defeat to Botic Van de Zandschulp**\
 `Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
 https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/
