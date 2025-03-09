@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-p
 `Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
 https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
 
-**Bowling Green hiring former NFL RB Eddie George as head coach**\
+**Bowling Green hiring ex-NFL RB Eddie George as head coach: Source**\
 `George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
 https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
 

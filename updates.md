@@ -1,3 +1,7 @@
+**Bowling Green hiring ex-NFL RB Eddie George as head coach: Source**\
+`George becomes the third Black HBCU head coach to get an FBS job, joining Willie Jeffries in 1979 and Deion Sanders in 2023.`\
+https://nytimes.com/athletic/6188142/2025/03/09/bowling-green-eddie-george-head-coaching-hire/
+
 **Browns, Garrett agree to record deal averaging $40 million per year**\
 `The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in league history.`\
 https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
