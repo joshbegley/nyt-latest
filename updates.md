@@ -1,3 +1,7 @@
+**SpaceX Scrubs Launch of 2 NASA Satellite Missions**\
+`Two missions, SPHEREx and PUNCH, had been expected to launch on a SpaceX rocket on Saturday.`\
+https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
+
 **Novak Djokovic out of Indian Wells after stumbling defeat to Botic van de Zandschulp**\
 `Djokovic looked out of form for most of the match as the Dutchman stayed steady to prevail.`\
 https://nytimes.com/athletic/6187376/2025/03/08/novak-djokovic-indian-wells-result-analysis-van-de-zandschulp/

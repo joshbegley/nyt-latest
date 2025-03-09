@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6187316/2025/03/08/duke-notre-dame-ncaa-womens-bask
 https://nytimes.com/athletic/6187220/2025/03/08/alabama-auburn-sec-basketball/
 
 **SpaceX Scrubs Launch of 2 NASA Satellite Missions**\
-`Two missions, SPHEREx and PUNCH, had been expected to launch on a SpaceX rocket on Saturday.`\
+`The spacecraft, SPHEREx and PUNCH, had been expected to launch on a SpaceX rocket on Saturday.`\
 https://nytimes.com/2025/03/08/science/nasa-spherex-punch-launch.html
 
