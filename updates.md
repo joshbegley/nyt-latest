@@ -1,3 +1,11 @@
+**Brad Treliving addresses Mitch Marner trade reports: 'We want Mitch here for a long time'**\
+`The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
+https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/
+
+**Small Earthquake Rattles Southern California**\
+`The authorities said there were no initial reports of damage from the quake, which struck in the hills west of Malibu.`\
+https://nytimes.com/2025/03/09/us/earthquake-california-malibu.html
+
 **Plane With 5 Aboard Crashes in Lancaster County, Pa.**\
 `The Federal Aviation Administration said the plane that crashed was a Beechcraft Bonanza.`\
 https://nytimes.com/2025/03/09/us/lancaster-plane-crash-pennsylvania.html
