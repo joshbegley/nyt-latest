@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, March 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/09/todays-new-york-times-international-edition
+
 **The case for Cooper Flagg as college basketball's player of the year**\
 `A freshman, Flagg is a younger, more productive, history-making star. Meanwhile, Johni Broome has had 5 years to enter the conversation.`\
 https://nytimes.com/athletic/6187763/2025/03/09/cooper-flagg-npoy/
