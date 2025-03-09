@@ -1,3 +1,11 @@
+**Premier League one-touch passing is in decline - unless your name is Bruno Fernandes**\
+`Playing first-time passes is hard — but one current top-flight player stands out as a true exponent of the skill`\
+https://nytimes.com/athletic/6183042/2025/03/09/premier-league-one-touch-passing-decline-bruno-fernandes/
+
+**How Uruguay won the 1930 World Cup: Home advantage, breathing exercises and a final of two halves**\
+`Michael Cox begins his history of World Cup winners with the inaugural champions Uruguay `\
+https://nytimes.com/athletic/6181606/2025/03/09/world-cup-winners-uruguay-1930/
+
 **How Would Peacekeeping Work in Ukraine? These Experts Gamed It Out.**\
 `The publication of the detailed analysis was a sign that a cease-fire has gone from a theoretical exercise to an urgent and practical issue.`\
 https://nytimes.com/2025/03/09/world/europe/ukraine-peace-plan-russia-war.html
@@ -15,7 +23,7 @@ https://nytimes.com/2025/03/09/world/europe/echoing-a-roman-emperor-croatia-trie
 https://nytimes.com/athletic/6187695/2025/03/08/blackhawks-red-wings-joe-veleno-trade/
 
 **SIUE wins OVC championship, secures first-ever bid to NCAA Tournament**\
-`SIUE is projected to be a No. 16 seed and play in the First Four in Dayton.`\
+`SIUE is projected to be a No. 16 seed and play in the First Four in Dayton, Ohio.`\
 https://nytimes.com/athletic/6187685/2025/03/08/siue-wins-ovc-championship-ncaa-tournament-first-bid/
 
 **LeBron James injured as Celtics snap Lakers' 8-game win streak**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6187584/2025/03/08/maple-leafs-avalanche-grades-ana
 **Zach Ertz returning to Commanders on 1-year, $6.25 million deal**\
 `Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
 https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
-
-**Maple Leafs' Mitch Marner addresses reports about Hurricanes trade discussions**\
-`Marner faced multiple questions on the report and grew emotional as the questions continued.`\
-https://nytimes.com/athletic/6187614/2025/03/08/maple-leafs-mitch-marner-no-movement-clause/
-
-**With SEC Tournament bracket set, Texas is the team of clear desperation**\
-`As is, the SEC looks solid with 12 bids, which would beat the Big East record of 11 set in 2011.`\
-https://nytimes.com/athletic/6187605/2025/03/08/sec-tournament-ncaa-tournament-bubble/
 
