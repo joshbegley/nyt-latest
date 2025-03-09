@@ -1,3 +1,15 @@
+**Browns, Garrett agree to record deal averaging $40 million per year**\
+`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in league history.`\
+https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
+
+**Bears free agency tracker: Building around Caleb Williams, Ben Johnson**\
+`With the cap space and draft capital at his disposal, Bears GM Ryan Poles can be aggressive to support their young QB and popular new coach.`\
+https://nytimes.com/athletic/6181354/2025/03/09/chicago-bears-2025-free-agency-tracker/
+
+**Mets C Francisco Alvarez to have surgery on hand, miss 6-8 weeks**\
+`Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
+https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
+
 **The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
 `Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
 https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/

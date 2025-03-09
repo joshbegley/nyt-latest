@@ -1,12 +1,20 @@
+**Browns, Garrett agree to record deal averaging $40 million per year**\
+`The extension also includes $123 million guaranteed, league sources said, and makes Garrett the highest-paid non-QB in league history.`\
+https://nytimes.com/athletic/6188283/2025/03/09/myles-garrett-browns-contract-extension/
+
 **The Briefing: Tottenham 2 Bournemouth 2: Rusty Romero, Maddison provides spark, fans on edge**\
 `Spurs fought back from two goals down to take a point in an enthralling encounter with Bournemouth - The Athletic analysed the action `\
 https://nytimes.com/athletic/6180022/2025/03/09/tottenham-2-bournemouth-2-postecoglou-romero-son-maddison/
+
+**Bears free agency tracker: Building around Caleb Williams, Ben Johnson**\
+`With the cap space and draft capital at his disposal, Bears GM Ryan Poles can be aggressive to support their young QB and popular new coach.`\
+https://nytimes.com/athletic/6181354/2025/03/09/chicago-bears-2025-free-agency-tracker/
 
 **The Briefing: Chelsea 1-0 Leicester - Cucurella the hero, Fofana returns and Palmer misses from the spot**\
 `Liam Twomey breaks down the main talking points as Chelsea huffed and puffed in their win over Leicester City at Stamford Bridge`\
 https://nytimes.com/athletic/6180020/2025/03/09/chelsea-1-leicester-0-cucrella-palmer-fofana/
 
-**Mets C Francisco Alvarez to have surgery on hand injury, miss 6-8 weeks**\
+**Mets C Francisco Alvarez to have surgery on hand, miss 6-8 weeks**\
 `Alvarez’s absence is a blow to the depth of the Mets’ lineup, but it will also impact the pitching staff.`\
 https://nytimes.com/athletic/6188219/2025/03/09/francisco-alvarez-injury-mets-catchers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181856/2025/03/09/maple-leafs-mitch-marner-contrac
 **Tracking Tropical Cyclone Jude**\
 `See the likely path and wind arrival times for Jude.`\
 https://nytimes.com/interactive/2025/03/09/weather/jude-map-path-tracker.html
-
-**'We all loved him' - tributes paid as Barcelona club doctor Carles Minarro Garcia dies at 53**\
-`The doctor's death hours before Barcelona were due to face Osasuna led to the postponement of the match, with players shocked by the news`\
-https://nytimes.com/athletic/6188036/2025/03/09/carles-minarro-garcia-tributes/
-
-**Sometimes, You Really Just Need a Strawberry Smoothie**\
-`And that time is these gray days of early March.`\
-https://nytimes.com/2025/03/09/dining/strawberry-smoothie.html
 
