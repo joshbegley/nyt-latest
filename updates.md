@@ -1,3 +1,7 @@
+**Strong Wind**\
+`Patti Varol makes a charming return.`\
+https://nytimes.com/2025/03/09/crosswords/daily-puzzle-2025-03-10.html
+
 **Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
 `More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
 https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html

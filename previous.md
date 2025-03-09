@@ -1,3 +1,7 @@
+**Strong Wind**\
+`Patti Varol makes a charming return.`\
+https://nytimes.com/2025/03/09/crosswords/daily-puzzle-2025-03-10.html
+
 **Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
 `More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
 https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/nyregion/ice-arrests-palestinian-activist-columbi
 **Fred Stolle, Golden-Age Australian Tennis Star, Dies at 86**\
 `In addition to winning 19 Grand Slam titles, including two singles championships, he was a coach, a club pro and a television commentator.`\
 https://nytimes.com/2025/03/09/obituaries/fred-stolle-dead.html
-
-**Map: 4.1-Magnitude Earthquake Strikes Near Malibu, California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/03/09/weather/malibu-quake-tracker.html
 
