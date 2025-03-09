@@ -1,3 +1,7 @@
+**Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
+`More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
+https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html
+
 **Brad Treliving addresses Mitch Marner trade reports: 'We want Mitch here for a long time'**\
 `The Maple Leafs GM said he is "aligned” with Marner amid the latest speculation about the star winger's future in Toronto.`\
 https://nytimes.com/athletic/6188917/2025/03/09/mitch-marner-maple-leafs-treliving-hurricanes-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/09/obituaries/fred-stolle-dead.html
 **Map: 4.1-Magnitude Earthquake Strikes Near Malibu, California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/09/weather/malibu-quake-tracker.html
-
-**Israeli Energy Minister Cuts Off Electricity to Gaza**\
-`The move, which will mainly affect a single wastewater treatment plant, appeared intended to put pressure on Hamas.`\
-https://nytimes.com/2025/03/09/world/middleeast/israel-electricity-gaza.html
 

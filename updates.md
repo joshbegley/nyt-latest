@@ -1,3 +1,7 @@
+**Tribes and Students Sue Trump Administration Over Firings at Native Schools**\
+`More than one quarter of the staff members at the only two federally run colleges for Native students were cut in February.`\
+https://nytimes.com/2025/03/09/us/trump-lawsuit-tribes-native-american-students.html
+
 **Aaron Jones agrees to deal to stay with Vikings: Why the pairing makes sense**\
 `Jones, the No. 1 RB on The Athletic's NFL free agency rankings, set career highs in carries (255) and rushing yards (1,138) in 2024.`\
 https://nytimes.com/athletic/6178477/2025/03/09/aaron-jones-free-agency-signing/
