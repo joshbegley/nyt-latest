@@ -1,3 +1,11 @@
+**The unlikely origin story of 'Liverbird Upon My Chest' - Liverpool's 'new' fan anthem**\
+`A song originally written in 1984 has become the soundtrack to Arne Slot's latest title charge - its creators explain how`\
+https://nytimes.com/athletic/6183482/2025/03/09/liverpool-liverbird-chest-song/
+
+**How elite clubs train to cope with a relentless fixture calendar**\
+`The demands placed on footballers are greater than ever before. This is how elite clubs train to give them the best chance of staying fit`\
+https://nytimes.com/athletic/6141874/2025/03/09/premier-league-training-fixtures-workload/
+
 **Premier League one-touch passing is in decline - unless your name is Bruno Fernandes**\
 `Playing first-time passes is hard — but one current top-flight player stands out as a true exponent of the skill`\
 https://nytimes.com/athletic/6183042/2025/03/09/premier-league-one-touch-passing-decline-bruno-fernandes/

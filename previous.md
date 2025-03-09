@@ -1,3 +1,11 @@
+**The unlikely origin story of 'Liverbird Upon My Chest' - Liverpool's 'new' fan anthem**\
+`A song originally written in 1984 has become the soundtrack to Arne Slot's latest title charge - its creators explain how`\
+https://nytimes.com/athletic/6183482/2025/03/09/liverpool-liverbird-chest-song/
+
+**How elite clubs train to cope with a relentless fixture calendar**\
+`The demands placed on footballers are greater than ever before. This is how elite clubs train to give them the best chance of staying fit`\
+https://nytimes.com/athletic/6141874/2025/03/09/premier-league-training-fixtures-workload/
+
 **Premier League one-touch passing is in decline - unless your name is Bruno Fernandes**\
 `Playing first-time passes is hard — but one current top-flight player stands out as a true exponent of the skill`\
 https://nytimes.com/athletic/6183042/2025/03/09/premier-league-one-touch-passing-decline-bruno-fernandes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6187685/2025/03/08/siue-wins-ovc-championship-ncaa-
 **LeBron James injured as Celtics snap Lakers' 8-game win streak**\
 `James exited midway through the fourth quarter with a left groin strain.`\
 https://nytimes.com/athletic/6187598/2025/03/08/lakers-celtics-result-score-lebron-james-injured/
-
-**Report cards: Speedy Avalanche cruise past Maple Leafs with 5 straight goals**\
-`Mitch Marner and John Tavares each had two goals, but it wasn't enough as Toronto lost 7-4 to Colorado and dropped its third game in a row.`\
-https://nytimes.com/athletic/6187584/2025/03/08/maple-leafs-avalanche-grades-analysis/
-
-**Zach Ertz returning to Commanders on 1-year, $6.25 million deal**\
-`Ertz had his healthiest season in years in 2024 while playing all 17 regular-season games and scoring seven touchdowns.`\
-https://nytimes.com/athletic/6187615/2025/03/08/zach-ertz-commanders-returning-contract/
 
