@@ -23,7 +23,7 @@ https://nytimes.com/2025/03/09/world/europe/hamburg-airport-cancels-flights-stri
 https://nytimes.com/2025/03/09/briefing/tiktok-microtrends-gen-z.html
 
 **How Jake Walman's debut was exactly what the Oilers want and need**\
-`EDMONTON — The way things were going for the Edmonton Oilers for weeks heading toward the trade deadline, it seemed like getting a more defensive-style blueliner was the way to go.`\
+`Walman’s full array of smooth-skating, puck-moving skills — plus other talents — were on display in a 5-4 Oilers win over the Dallas Stars.`\
 https://nytimes.com/athletic/6187818/2025/03/09/jake-walman-oiler-debut/
 
 **State of the Chicago Cubs' pitching staff ahead of the Tokyo Series **\
