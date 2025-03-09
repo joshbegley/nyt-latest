@@ -1,3 +1,7 @@
+**‘Emotions were high’ as Brandon Carlo and Scott Laughton suited up for the first time as Leafs**\
+`Friday afternoon, Carlo was in the Florida sunshine, convinced he was going to remain a Bruin. The next afternoon, he suited up as a Leaf.`\
+https://nytimes.com/athletic/6187780/2025/03/09/brandon-carlo-scott-laughton-leafs-first-game/
+
 **As Utility Bills Soar, New Yorkers Face the Cost of a Greener Future**\
 `The utility that serves New York City and Westchester County has filed a request to raise its rates to help pay for the shift to cleaner energy, sparking dismay among residents.`\
 https://nytimes.com/2025/03/09/nyregion/con-ed-power-grid-rates-nyc-westchester.html
