@@ -1,3 +1,15 @@
+**With Rudy Gobert back, the Timberwolves look ready to go on a run**\
+`After missing 10 games with a back injury, Gobert showed his value to streaking Minnesota in Sunday's win over the Spurs.`\
+https://nytimes.com/athletic/6189319/2025/03/10/rudy-gobert-timberwolves-return-spurs/
+
+**Yadier Molina talks family, future manager aspirations and his absence from St. Louis**\
+`Molina remains hopeful about making a trip to Busch Stadium some time this year, but his family schedule is the priority.`\
+https://nytimes.com/athletic/6187972/2025/03/10/cardinals-yadier-molina-interview/
+
+**Four questions the Astros must ponder while constructing their roster**\
+`Is Cam Smith a realistic option? Is money a factor in roster construction? We ponder those questions and more.`\
+https://nytimes.com/athletic/6189301/2025/03/10/astros-roster-questions-cam-smith/
+
 **Juan Soto enlivens Mets culture, helps set tone: 'I like how at peace he is'**\
 `Brandon Nimmo said of Soto: "It’s something you see from the greats like Michael Jordan and Tiger Woods. They want to beat you."`\
 https://nytimes.com/athletic/6189304/2025/03/10/mets-juan-soto-culture/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6189489/2025/03/10/mlb-draft-2025-luke-stevenson-ma
 **Should Yankees trade for Dylan Cease or Sandy Alcantara with Gerrit Cole's uncertainty? Mailbag**\
 `Why aren't the Yankees letting Jasson Domínguez play center field? Will they add J.D. Martinez? We answer those questions and more.`\
 https://nytimes.com/athletic/6188994/2025/03/10/yankees-gerrit-cole-injury-dylan-cease-sandy-alcantara-trade/
-
-**Weekend NHL rankings: An unpredictable trade deadline shakes up the Top 5**\
-`The deadline may not have featured as many trades as recent years, but more big names were moved than just about any year in recent memory.`\
-https://nytimes.com/athletic/6187392/2025/03/10/nhl-weekend-rankings-trade-deadline-stars/
-
-**Wirtz suffers ankle ligament injury, out for 'several weeks'**\
-`Wirtz's ankle was injured in a challenge from Bremen's Mitchell Weiser just 14 minutes after coming on at half-time.`\
-https://nytimes.com/athletic/6188016/2025/03/10/florian-wirtz-injury-leverkusen/
-
-**Cutting Medicaid?**\
-`How Republicans could change the program.`\
-https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
 
