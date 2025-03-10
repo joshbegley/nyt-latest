@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seah
 https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-roster-tokyo-series/
 
 **30 Charts That Show How Everything Changed in March 2020**\
-`It can be easy to forget, or look away, from the pain and disruption of the pandemic. The numbers will be there to remind us.`\
+`It can be easy to forget, or look away from, the pain and disruption of the pandemic. The numbers will be there to remind us.`\
 https://nytimes.com/interactive/2025/03/09/upshot/covid-lockdown-five-year-charts.html
 
 **‘The White Lotus’ Season 3, Episode 4 Recap: Party Time**\
