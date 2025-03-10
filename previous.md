@@ -1,3 +1,11 @@
+**The Pulse: Wait, what's left in NFL free agency?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6189466/2025/03/10/nfl-free-agency-dk-metcalf-the-pulse/
+
+**Stocks Extend Declines as Recession Fears Ramp Up**\
+`Investors fear that tit-for-tat tariffs could raise prices, slow growth and sow uncertainty among businesses.`\
+https://nytimes.com/2025/03/10/business/stock-market-economy-tariffs-recession.html
+
 **NBA Rewind: Yes, Charles Barkley, we do need to talk about the Lakers**\
 `Barkley was right to say that teams like Oklahoma City and Cleveland deserve more love. But the Lakers are fascinating right now.`\
 https://nytimes.com/athletic/6187457/2025/03/10/nba-rewind-lakers-lebron-luka-stock-report-barkley/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/world/middleeast/gaza-plan-israel-hamas-ceasefire
 **College baseball week in review: Stanford makes a statement, Tennessee keeps mashing**\
 `Arkansas finds some offensive pop. East Carolina's Ethan Norby strikes out 19. George Mason sets a record. `\
 https://nytimes.com/athletic/6189225/2025/03/10/college-baseball-stanford-north-carolina-acc-tennessee/
-
-**A Facebook Insider’s Exposé Alleges Bad Behavior at the Top**\
-`“Careless People,” a memoir by a former Facebook executive, portrays feckless company leaders cozying up to authoritarian regimes.`\
-https://nytimes.com/2025/03/10/books/review/careless-people-sarah-wynn-williams.html
-
-**Would Trump Risk a Recession?**\
-`The president still believes that his protectionist trade policies will be “great for us” in the long run, but won’t rule out short-term economic pain.`\
-https://nytimes.com/2025/03/10/business/dealbook/trump-recession-risk.html
 

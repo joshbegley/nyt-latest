@@ -1,3 +1,11 @@
+**The Pulse: Wait, what's left in NFL free agency?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6189466/2025/03/10/nfl-free-agency-dk-metcalf-the-pulse/
+
+**Stocks Extend Declines as Recession Fears Ramp Up**\
+`Investors fear that tit-for-tat tariffs could raise prices, slow growth and sow uncertainty among businesses.`\
+https://nytimes.com/2025/03/10/business/stock-market-economy-tariffs-recession.html
+
 **NBA Rewind: Yes, Charles Barkley, we do need to talk about the Lakers**\
 `Barkley was right to say that teams like Oklahoma City and Cleveland deserve more love. But the Lakers are fascinating right now.`\
 https://nytimes.com/athletic/6187457/2025/03/10/nba-rewind-lakers-lebron-luka-stock-report-barkley/
