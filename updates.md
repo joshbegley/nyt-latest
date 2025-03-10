@@ -1,3 +1,11 @@
+**Emotional Brad Marchand reflects on being traded by the Bruins: ‘I wanted to stay there’**\
+`Marchand, speaking at the Panthers’ practice facility on Monday, said, "It was very disappointing" not to get an extension done with Boston.`\
+https://nytimes.com/athletic/6190768/2025/03/10/brad-marchand-interview-bruins-panthers/
+
+**NASCAR Phoenix takeaways: Christopher Bell wins again, softer tires shine and more**\
+`Christopher Bell's hot start continues, Goodyear's tires win the day, Katherine Legge makes her Cup debut and more from the Phoenix race.`\
+https://nytimes.com/athletic/6190199/2025/03/10/nascar-phoenix-takeaways-christopher-bell-softer-tires-katherine-legge/
+
 **X Users Report Intermittent Outages**\
 `Several waves of reported outages affected the social media site, formerly known as Twitter, on Monday.`\
 https://nytimes.com/2025/03/10/technology/twitter-x-down-outage.html

@@ -1,3 +1,11 @@
+**Emotional Brad Marchand reflects on being traded by the Bruins: ‘I wanted to stay there’**\
+`Marchand, speaking at the Panthers’ practice facility on Monday, said, "It was very disappointing" not to get an extension done with Boston.`\
+https://nytimes.com/athletic/6190768/2025/03/10/brad-marchand-interview-bruins-panthers/
+
+**NASCAR Phoenix takeaways: Christopher Bell wins again, softer tires shine and more**\
+`Christopher Bell's hot start continues, Goodyear's tires win the day, Katherine Legge makes her Cup debut and more from the Phoenix race.`\
+https://nytimes.com/athletic/6190199/2025/03/10/nascar-phoenix-takeaways-christopher-bell-softer-tires-katherine-legge/
+
 **X Users Report Intermittent Outages**\
 `Several waves of reported outages affected the social media site, formerly known as Twitter, on Monday.`\
 https://nytimes.com/2025/03/10/technology/twitter-x-down-outage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188999/2025/03/10/yankees-rotation-gerrit-cole-lui
 **Our 16th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 6 to Aug. 15, 2025.`\
 https://nytimes.com/2025/03/10/learning/our-16th-annual-summer-reading-contest.html
-
-**Panthers to make Jaycee Horn highest-paid DB in NFL history: Sources**\
-`Horn is coming off of his first Pro Bowl season after logging an interception, 13 passes defended and two sacks.`\
-https://nytimes.com/athletic/6190669/2025/03/10/panthers-jaycee-horn-contract-extension/
-
-**The Quest for A.I. ‘Scientific Superintelligence’**\
-`An ambitious start-up embodies new optimism that artificial intelligence can turbocharge scientific discovery.`\
-https://nytimes.com/2025/03/10/technology/ai-science-lab-lila.html
 
