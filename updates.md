@@ -1,3 +1,7 @@
+**Bears grab Grady Jarrett: How the veteran tackle can help the defensive line**\
+`The Bears' investment in the trenches continued with Jarrett, a two-time Pro Bowler who can be a leader up front.`\
+https://nytimes.com/athletic/6191873/2025/03/10/bears-grady-jarrett-defensive-line/
+
 **Tuesday Briefing: U.S. Recession Fear Rattles Markets**\
 `Plus, how a leader’s gambit failed.`\
 https://nytimes.com/2025/03/10/briefing/global-markets-tariffs-canada-carney-syria-unity.html
