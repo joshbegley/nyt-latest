@@ -2,6 +2,14 @@
 `Villa have turned a corner with their last two away performances - and Unai Emery says they are 'really hungry' to end the season in style`\
 https://nytimes.com/athletic/6187327/2025/03/10/aston-villa-unai-emery-blueprint/
 
+**Hamburg, a Bundesliga giant almost back from brink - led by a cast of unlikely characters**\
+`Hamburger SV have put their fans through it since being relegated in 2018 - they have promotion in their sights once more`\
+https://nytimes.com/athletic/6187923/2025/03/10/hamburg-bundesliga-promotion-polzin-selke/
+
+**Moyes set out the challenge to Harrison and Lindstrom for their futures - they responded**\
+`The Everton manager has made it clear that he wants goals and assists from wide players Harrison and Lindstrom. He got just that at Molineux`\
+https://nytimes.com/athletic/6187545/2025/03/10/everton-harrison-lindstrom-moyes-future/
+
 **Broncos, D.J. Jones agree to 3-year extension: Source**\
 `The agreement locks down Jones just before he was set to become an unrestricted free agent.`\
 https://nytimes.com/athletic/6189924/2025/03/10/broncos-dj-jones-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188706/2025/03/10/tottenham-bournemouth-squad-dept
 **Brighton's front five keep delivering and are driving Hurzeler's team towards Europe**\
 `Joao Pedro, Danny Welbeck, Yankuba Minteh, Georginio Rutter and Kaoru Mitoma have scored 18 of Brighton's past 20 goals`\
 https://nytimes.com/athletic/6183778/2025/03/10/brighton-front-five-welbeck-joao-pedro/
-
-**It is Chelsea's 120th birthday: Share your favourite player, manager, match and kit**\
-`Chelsea turn 120 today - we want to hear your thoughts about the club's history`\
-https://nytimes.com/athletic/6183459/2025/03/10/chelseas-120th-birthday-share-your-favourite-player-manager-match-and-kit/
-
-**Leeds wasted the advantage of two brilliant late wins. Are they really falling apart again?**\
-`There are rights to be wronged against Millwall and QPR. The timing could not be better.`\
-https://nytimes.com/athletic/6188346/2025/03/10/leeds-wasted-the-advantage-of-two-brilliant-late-wins-are-they-really-falling-apart-again/
 
