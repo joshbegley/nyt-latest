@@ -1,3 +1,19 @@
+**U.S. Energy Secretary Pledges to Reverse Focus on Climate Change**\
+`To applause from oil and gas executives, Chris Wright said natural gas was preferable to renewable energy and climate change was a “side effect of building the modern world.”`\
+https://nytimes.com/2025/03/10/climate/energy-secretary-climate-change-fossil-fuels.html
+
+**Firm Targeted by Trump Over Clinton Campaign Work Hires Top Litigators**\
+`President Trump stripped Perkins Coie of access to federal buildings and personnel, citing its work for Hillary Clinton’s 2016 campaign. The firm hired Williams & Connolly, which is skilled in fighting the government, to represent it.`\
+https://nytimes.com/2025/03/10/us/politics/trump-perkins-coie.html
+
+**Watch: Is the Thunder's bench depth their biggest strength?**\
+`"NBA Daily" discussed how the Oklahoma City Thunder's bench production sets them apart in the Western Conference.`\
+https://nytimes.com/athletic/6190537/2025/03/10/nba-daily-thunder-bench-depth/
+
+**L.A. Prosecutor Says He Opposes Releasing the Menendez Brothers**\
+`Erik and Lyle Menendez still have paths to freedom. But the new district attorney is trying to roll back an effort by his predecessor to ease their punishment for killing their parents.`\
+https://nytimes.com/2025/03/10/us/menendez-brothers-resentencing.html
+
 **Players like Betts add roster flexibility and impact draft strategy in fantasy baseball**\
 `Scott Engel's crash course on players who qualify at multiple positions and how they impact draft-day strategy and roster construction. `\
 https://nytimes.com/athletic/6190586/2025/03/10/fantasy-baseball-2025-mookie-betts-multi-positional-players/
