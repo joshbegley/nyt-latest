@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6188632/2025/03/09/seahawks-defense-nfl-free-agency
 `The No. 2 pick in the 2024 draft could make his NHL debut as soon as Monday.`\
 https://nytimes.com/athletic/6188761/2025/03/09/blackhawks-artyom-levshunov-nhl-debut/
 
+**Women's basketball conference tournaments: Who will earn overall No. 1 NCAA Tournament seed?**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
 **Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
 `The 11-year veteran and three-time All-Pro wide receiver was the No. 4-ranked free agent on The Athletic's top 150 list. `\
 https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signin
 **Romania Bars Ultranationalist Candidate From Presidential Race**\
 `The country’s electoral commission ruled on Sunday that Calin Georgescu, an outspoken critic of Ukraine and NATO, could not compete in the do-over election.`\
 https://nytimes.com/2025/03/09/world/europe/09int-romania-election-calin-georgescu.html
-
-**Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
-`Paul has joined compatriot Fritz in living among the tennis elite and learning what comes with the territory of a single-digit ranking.`\
-https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
 

@@ -1,3 +1,7 @@
+**Women's basketball conference tournaments: Who will earn overall No. 1 NCAA Tournament seed?**\
+`Which teams earned automatic bids for the NCAA Tournament?`\
+https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
+
 **Steelers to sign DK Metcalf to 5-year, $150 million extension**\
 `Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
 https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/

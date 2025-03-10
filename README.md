@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Jarry outshines Marc-Andre Fleury in rare Penguins win**\
+`Tristan Jarry stole the show in what was Marc-Andre Fleury's last game against the Penguins.`\
+https://nytimes.com/athletic/6168252/2025/03/09/penguins-tristan-jarry-marc-andre-fleury-wild/
+
 **Steelers to sign DK Metcalf to 5-year, $150 million extension**\
 `Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
 https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6189262/2025/03/09/mlb-pitching-injuries-kyle-gibso
 https://nytimes.com/2025/03/09/podcasts/origin-story.html
 
 **Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
-`A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
+`A league source confirmed the deal includes a record $250 million guaranteed.`\
 https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030/
 
 **Geoff Nicholson, Author of Darkly Comic Novels, Dies at 71**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-champi
 **Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
 `The 11-year veteran and three-time All-Pro wide receiver was the No. 4-ranked free agent on The Athletic's top 150 list. `\
 https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
-
-**Romania Bars Ultranationalist Candidate From Presidential Race**\
-`The country’s electoral commission ruled on Sunday that Calin Georgescu, an outspoken critic of Ukraine and NATO, could not compete in the do-over election.`\
-https://nytimes.com/2025/03/09/world/europe/09int-romania-election-calin-georgescu.html
 
