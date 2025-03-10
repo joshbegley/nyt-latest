@@ -1,3 +1,7 @@
+**USMNT to play Turkey and Switzerland ahead of Gold Cup**\
+`Both Turkey and Switzerland are coming off successful campaigns at the 2024 European Championships, where they reached the last eight.`\
+https://nytimes.com/athletic/6190623/2025/03/10/usmnt-preparation-2025-gold-cup/
+
 **Senators mailbag: Submit your questions for Julian McKenzie**\
 `Got a question about the Senators? Submit it here and The Athletic’s Julian McKenzie will answer a selection in an upcoming mailbag.`\
 https://nytimes.com/athletic/6157251/2025/03/10/senators-mailbag-trade-deadline-march-2025/
