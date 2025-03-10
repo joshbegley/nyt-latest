@@ -1,3 +1,11 @@
+**X users experience multiple outages: How it impacted the NFL free agency news cycle**\
+`The unofficial start to NFL free agency coincided with three major outages on X, a frequent outlet for breaking news.`\
+https://nytimes.com/athletic/6191111/2025/03/10/x-twitter-outage-nfl-free-agency/
+
+**Harvard Announces a Hiring Freeze as Funding Is Threatened**\
+`The hiring pause at one of the nation’s wealthiest schools comes after other schools have also announced efforts to save money.`\
+https://nytimes.com/2025/03/10/us/politics/harvard-hiring-freeze-funding-trump.html
+
 **What I'm hearing about the Islanders post-NHL trade deadline and beyond**\
 `Isles GM Lou Lamoriello says he knows the team needs to get younger — but how will they accomplish that this offseason?`\
 https://nytimes.com/athletic/6190774/2025/03/10/islanders-trade-deadline-offseason-lamoriello/
