@@ -1,3 +1,19 @@
+**Panthers, DT Tershawn Wharton agree to 3-year, $45 million deal: Sources**\
+`Tershawn Wharton finished last season with the Chiefs strong. He had five tackles in the Super Bowl loss to the Eagles.`\
+https://nytimes.com/athletic/6192329/2025/03/10/tershawn-wharton-panthers-free-agency-signing-2025/
+
+**Vikings agree to deal with C Ryan Kelly: What he means for Minnesota's focus on trenches**\
+`The Vikings have wanted to revamp the interior of their offensive line this offseason, and the first domino fell Monday evening.`\
+https://nytimes.com/athletic/6192382/2025/03/10/ryan-kelly-free-agency-signing-2025-vikings/
+
+**Chargers bringing back DT Teair Tart: Why his return felt so necessary**\
+`After losing Poona Ford to the Rams in free agency, the Chargers needed to retain another key member of the defensive tackle rotation.`\
+https://nytimes.com/athletic/6192269/2025/03/10/teair-tart-chargers-free-agency-signing-2025/
+
+**Darius Slayton, Giants reunite: Why WR is a perfect fit next to Malik Nabers**\
+`Slayton will fit like a glove as the No. 2 wide receiver opposite rookie phenom Malik Nabers.`\
+https://nytimes.com/athletic/6178807/2025/03/10/darius-slayton-free-agency-signing-2025-giants/
+
 **Jessie Mahaffey, Survivor of Pearl Harbor Attack, Dies at 102**\
 `He was cleaning the deck of the U.S.S. Oklahoma when it capsized under Japanese torpedo fire. Less than a year later, he survived the sinking of another Navy ship in the Pacific.`\
 https://nytimes.com/2025/03/10/us/jessie-mahaffey-dead.html
