@@ -1,3 +1,11 @@
+**Mo Vaughn, fearsome slugger named in Mitchell Report, admits to using HGH: Exclusive**\
+`The Mitchell Report offered evidence that Vaughn made three separate purchases of HGH in 2001.`\
+https://nytimes.com/athletic/6188748/2025/03/10/mo-vaughn-hgh-mitchell-report/
+
+**2025 NFL free agency: Fantasy football winners, losers, ranks and more**\
+`Jake Ciely weighs in on all the offseason NFL deals that matter for fantasy football 2025, including DK Metcalf's trade to Pittsburgh.`\
+https://nytimes.com/athletic/6189413/2025/03/10/2025-nfl-free-agency-fantasy-football-winners-losers-ranks/
+
 **Canada Will Have a New Prime Minister. Here’s What to Know.**\
 `Mark Carney, a former central banker, now heads the Liberal Party and will soon lead Canada, tasked with responding to President Trump’s threats.`\
 https://nytimes.com/2025/03/10/world/canada/canada-election-takeaways.html
