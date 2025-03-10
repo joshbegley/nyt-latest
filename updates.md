@@ -1,3 +1,23 @@
+**Players like Betts add roster flexibility and impact draft strategy in fantasy baseball**\
+`Scott Engel's crash course on players who qualify at multiple positions and how they impact draft-day strategy and roster construction. `\
+https://nytimes.com/athletic/6190586/2025/03/10/fantasy-baseball-2025-mookie-betts-multi-positional-players/
+
+**‘Anchors, Under You Desks!’: Possible Tornado Hits Orlando TV Station**\
+`Crews at the Fox 35 station were on the air sharing updates about tornado warnings for Seminole and Volusia counties when one may have struck their news studio on Monday morning.`\
+https://nytimes.com/2025/03/10/us/florida-tornado-orlando-tv-station.html
+
+**Seahawks tab Sam Darnold to replace Geno Smith, agree on 3-year deal**\
+`Darnold was The Athletic's best-available QB, ahead of Aaron Rodgers, Justin Fields and Russell Wilson.`\
+https://nytimes.com/athletic/6172139/2025/03/10/sam-darnold-free-agency-signing/
+
+**Fake football shirts: What are your experiences?**\
+`We want to know about your experiences of fake football shirts`\
+https://nytimes.com/athletic/6191371/2025/03/10/fake-football-shirts-what-are-your-experiences/
+
+**Pistons avoid collapse to beat Trail Blazers: 'Great learning lessons for us'**\
+`The Pistons were table to hold off the Trail Blazers and notch their 36th win for the first time since 2019.`\
+https://nytimes.com/athletic/6190990/2025/03/10/pistons-trail-blazers-cade-cunningham/
+
 **Pistons avoid collapse to beat Trail Blazers: 'Great learning lessons for us'**\
 `The Pistons were table to hold off the Trail Blazer and notch their 36th win for the first time since 2019.`\
 https://nytimes.com/athletic/6190990/2025/03/10/pistons-trail-blazers-cade-cunningham/
