@@ -1,3 +1,7 @@
+**Bears add Dayo Odeyingbo: Why the defensive end suits coordinator Dennis Allen**\
+`The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
+https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
+
 **Leave your questions for the next Leaf Report podcast**\
 `<p>Three trades, three losses and lots of drama.`\
 https://nytimes.com/athletic/6191798/2025/03/10/leave-your-questions-for-the-next-leaf-report-podcast/

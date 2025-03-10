@@ -1,3 +1,7 @@
+**Bears add Dayo Odeyingbo: Why the defensive end suits coordinator Dennis Allen**\
+`The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
+https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
+
 **Leave your questions for the next Leaf Report podcast**\
 `<p>Three trades, three losses and lots of drama.`\
 https://nytimes.com/athletic/6191798/2025/03/10/leave-your-questions-for-the-next-leaf-report-podcast/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/style/andrew-tate-dana-white-ufc-trump.html
 **Patriots agree to terms with free-agent ex-Eagle Milton Williams: Source**\
 `Despite his limited reps, Williams served as a highly efficient interior pass rusher in his four seasons with the Eagles. `\
 https://nytimes.com/athletic/6175531/2025/03/10/milton-williams-free-agency-patriots-signing-2025/
-
-**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; will Dre Greenlaw return?**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
 
