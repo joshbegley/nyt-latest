@@ -1,3 +1,7 @@
+**Steelers acquire DK Metcalf from Seahawks, plan to sign him to $150M deal**\
+`Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
+https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/
+
 **Lauren Betts, UCLA hold on to win Big Ten tournament championship**\
 `Selection Sunday is 8 p.m. March 16 on ESPN. UCLA and USC are projected to be No. 1 seeds.`\
 https://nytimes.com/athletic/6189303/2025/03/09/ucla-usc-big-ten-tournament-championship/
