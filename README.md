@@ -1,10 +1,10 @@
-**Reds' Noelvi Marte ready to put 2024 in past, make comeback in Triple A**\
-`Marte hit .263 with four walks and home run in 19 official at-bats.`\
-https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-triple-a/
-
 **Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
 `The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
 https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
+
+**Reds' Noelvi Marte ready to put 2024 in past, make comeback in Triple A**\
+`Marte hit .263 with four walks and home run in 19 official at-bats.`\
+https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-triple-a/
 
 **Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
 `Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
