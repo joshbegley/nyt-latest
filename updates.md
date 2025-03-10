@@ -1,3 +1,7 @@
+**MLB commissioner, several owners pressuring Stu Sternberg to sell Rays as buyers eye team**\
+`Members of the family that owns the San Francisco 49ers are among the groups interested in buying the Rays. `\
+https://nytimes.com/athletic/6189456/2025/03/09/commissioner-owners-pressure-rays-sale-mlb/
+
 **‘The White Lotus’ Season 3, Episode 4 Recap: Party Time**\
 `The gal pals finally moved out of their hermetic bubble this week in search of a little fun. The results were questionable.`\
 https://nytimes.com/2025/03/09/arts/television/the-white-lotus-recap-season-3-episode-4.html
