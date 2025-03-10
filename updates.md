@@ -1,3 +1,15 @@
+**How South Korea’s President Planned a Military Takeover, Then Blew It**\
+`Yoon Suk Yeol came close to disabling parliament with a few hundred troops. But he misjudged the power of his people and the willingness of his army to use force. South Koreans worry it could happen again.`\
+https://nytimes.com/interactive/2025/03/10/world/asia/south-korea-martial-law-president-yoon.html
+
+**Russian Forces Depleted and Stalling on Eastern Front, Ukraine Says**\
+`But as Ukraine prepares to meet with U.S. officials, Ukrainian soldiers say they are bracing for attacks to take advantage of a pause in U.S. intelligence.`\
+https://nytimes.com/2025/03/10/world/europe/ukraine-russia-eastern-front-line.html
+
+**Quote of the Day: Ambitious Democrats Have a New Game Plan: Yak It Up About Sports**\
+`Quotation of the Day for Monday, March 10, 2025.`\
+https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-ambitious-democrats-have-a-new-game-plan-yak-it-up-about-sports.html
+
 **Adam Fantilli's second career hat trick paces Blue Jackets' big win over Rangers**\
 `The Blue Jackets reclaimed the top wild-card spot in the East thanks to an offensive explosion, looking back to their usual selves.`\
 https://nytimes.com/athletic/6189568/2025/03/09/blue-jackets-adam-fantilli-hat-trick-rangers/

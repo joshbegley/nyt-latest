@@ -1,3 +1,15 @@
+**How South Korea’s President Planned a Military Takeover, Then Blew It**\
+`Yoon Suk Yeol came close to disabling parliament with a few hundred troops. But he misjudged the power of his people and the willingness of his army to use force. South Koreans worry it could happen again.`\
+https://nytimes.com/interactive/2025/03/10/world/asia/south-korea-martial-law-president-yoon.html
+
+**Russian Forces Depleted and Stalling on Eastern Front, Ukraine Says**\
+`But as Ukraine prepares to meet with U.S. officials, Ukrainian soldiers say they are bracing for attacks to take advantage of a pause in U.S. intelligence.`\
+https://nytimes.com/2025/03/10/world/europe/ukraine-russia-eastern-front-line.html
+
+**Quote of the Day: Ambitious Democrats Have a New Game Plan: Yak It Up About Sports**\
+`Quotation of the Day for Monday, March 10, 2025.`\
+https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-ambitious-democrats-have-a-new-game-plan-yak-it-up-about-sports.html
+
 **Adam Fantilli's second career hat trick paces Blue Jackets' big win over Rangers**\
 `The Blue Jackets reclaimed the top wild-card spot in the East thanks to an offensive explosion, looking back to their usual selves.`\
 https://nytimes.com/athletic/6189568/2025/03/09/blue-jackets-adam-fantilli-hat-trick-rangers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/09/arts/television/the-white-lotus-recap-season-3-ep
 **Porous defense, failure to capitalize on momentum and more: Rangers takeaways**\
 `The Rangers scored twice on one penalty kill but struggled to make the most of their chances against Columbus.`\
 https://nytimes.com/athletic/6189573/2025/03/09/rangers-porous-defense-penalty-kill-blue-jackets/
-
-**Shai Gilgeous-Alexander, Thunder show they have an extra gear in win over Nuggets**\
-`On a big stage, OKC showed a nationally televised audience why it's been dominant and why that might pay off with an NBA title.`\
-https://nytimes.com/athletic/6188923/2025/03/09/thunder-nuggets-shai-gilgeous-alexander-nikola-jokic/
-
-**Things get stressful for the skidding, offensively feeble Wild: 'We need some wins fast'**\
-`The Wild couldn't score at five-on-five against the Penguins, who give up the most even-strength goals in the league.`\
-https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-penguins/
-
-**Falcons extend left tackle Jake Matthews with 2-year deal: Source**\
-`Matthews, 33, was set to count $21.7 million against the 2025 cap, but the extension will diminish his cap hit ahead of free agency.`\
-https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
 
