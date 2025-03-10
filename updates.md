@@ -1,3 +1,19 @@
+**Things are getting stressful for the skidding, offensively-feeble Wild: 'We need some wins fast'**\
+`The Wild couldn't score at five-on-five against the Penguins, who give up the most even-strength goals in the league.`\
+https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-penguins/
+
+**Falcons extend left tackle Jake Matthews with 2-year deal: Source**\
+`Matthews, 33, was set to count $21.7 million against the 2025 cap, but the extension will diminish his cap hit ahead of free agency.`\
+https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
+
+**DK Metcalf trade grades: Steelers add game-changing talent; Seahawks' overhaul continues**\
+`The Steelers finally landed the star WR they've been hunting for. As for Seattle, this quickly turned into an offseason of change. `\
+https://nytimes.com/athletic/6189406/2025/03/09/dk-metcalf-trade-grades-steelers-seahawks/
+
+**MLB commissioner, several owners pressuring Stu Sternberg to sell Rays as buyers eye team**\
+`The owners of the San Francisco 49ers are among the groups interested in buying the Rays. `\
+https://nytimes.com/athletic/6189456/2025/03/09/commissioner-owners-pressure-rays-sale-mlb/
+
 **Steelers acquire DK Metcalf from Seahawks, plan to sign him to $150M deal**\
 `Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
 https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/

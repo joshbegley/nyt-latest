@@ -1,3 +1,19 @@
+**Things are getting stressful for the skidding, offensively-feeble Wild: 'We need some wins fast'**\
+`The Wild couldn't score at five-on-five against the Penguins, who give up the most even-strength goals in the league.`\
+https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-penguins/
+
+**Falcons extend left tackle Jake Matthews with 2-year deal: Source**\
+`Matthews, 33, was set to count $21.7 million against the 2025 cap, but the extension will diminish his cap hit ahead of free agency.`\
+https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
+
+**DK Metcalf trade grades: Steelers add game-changing talent; Seahawks' overhaul continues**\
+`The Steelers finally landed the star WR they've been hunting for. As for Seattle, this quickly turned into an offseason of change. `\
+https://nytimes.com/athletic/6189406/2025/03/09/dk-metcalf-trade-grades-steelers-seahawks/
+
+**MLB commissioner, several owners pressuring Stu Sternberg to sell Rays as buyers eye team**\
+`The owners of the San Francisco 49ers are among the groups interested in buying the Rays. `\
+https://nytimes.com/athletic/6189456/2025/03/09/commissioner-owners-pressure-rays-sale-mlb/
+
 **Lauren Betts, UCLA hold on to win Big Ten tournament championship**\
 `Selection Sunday is 8 p.m. March 16 on ESPN. UCLA and USC are projected to be No. 1 seeds.`\
 https://nytimes.com/athletic/6189303/2025/03/09/ucla-usc-big-ten-tournament-championship/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/09/podcasts/origin-story.html
 **Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
 `A league source confirmed the deal includes a record $250 million guaranteed.`\
 https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030/
-
-**Geoff Nicholson, Author of Darkly Comic Novels, Dies at 71**\
-`In more than a dozen books, he created characters who were obsessed with maps, urban walking, sexual fetishes and Volkswagen Beetles.`\
-https://nytimes.com/2025/03/09/books/geoff-nicholson-dead.html
-
-**Seahawks shore up defense, retain Ernest Jones IV and Jarran Reed: Sources**\
-`Seattle has retained its top two impending free agents and is poised to return all of its primary defensive starters from last year’s unit.`\
-https://nytimes.com/athletic/6188632/2025/03/09/seahawks-defense-nfl-free-agency/
-
-**Why Blackhawks believe defenseman Artyom Levshunov is ready for NHL debut**\
-`The No. 2 pick in the 2024 draft could make his NHL debut as soon as Monday.`\
-https://nytimes.com/athletic/6188761/2025/03/09/blackhawks-artyom-levshunov-nhl-debut/
-
-**Women's basketball conference tournaments: Who will earn overall No. 1 NCAA Tournament seed?**\
-`Which teams earned automatic bids for the NCAA Tournament?`\
-https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
 
