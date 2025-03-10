@@ -1,7 +1,3 @@
-**Origin Story**\
-`Little-known stories of how all sorts of institutions began.`\
-https://nytimes.com/2025/03/09/podcasts/origin-story.html
-
 **Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
 `A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
 https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030-2030/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6189034/2025/03/09/south-carolina-texas-sec-tournam
 **New Deal Reached to End Wildcat Strikes by N.Y. Prison Guards**\
 `The state and the correctional officers’ union agreed that officers should return to work Monday and that some limits on solitary confinement would be put on pause.`\
 https://nytimes.com/2025/03/09/nyregion/new-york-prison-strike-deal.html
+
+**Henley wins Arnold Palmer Invitational, his first PGA Tour win since 2022**\
+`Veteran erases three-shot deficit over final five holes, passing Collin Morikawa late for the win.`\
+https://nytimes.com/athletic/6189091/2025/03/09/russell-henley-arnold-palmer-invitational-pga-tour-win/
 
