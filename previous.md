@@ -1,41 +1,40 @@
-**Iran Signals Openness to Limited Nuclear Talks With U.S.**\
-`Iran’s U.N. mission said it would be willing to discuss its nuclear program if talks were restricted to military concerns, after its supreme leader appeared to reject President Trump’s offer to start discussions.`\
-https://nytimes.com/2025/03/10/world/europe/iran-nuclear-trump-us.html
+**New York Jets 2025 free agency tracker: Sherwood retained in new regime's first big move**\
+`With a new GM in Darren Mougey and coach in Aaron Glenn, the Jets move on to the post-Aaron Rodgers era.`\
+https://nytimes.com/athletic/6189594/2025/03/10/new-york-jets-2025-free-agency-tracker/
 
-**Arsenal deployed a makeshift striker against Man Utd - what they needed was a false nine**\
-`More unpredictability and movement was the order of the day against a United defence who are prone to getting dragged around`\
-https://nytimes.com/athletic/6190088/2025/03/10/arsenal-merino-makeshift-striker-false-nine/
+**Would Mitch Marner really walk away from the Maple Leafs? Monday Morning Leafs Report**\
+`The front office has already decided to make Marner a lifetime Leaf, and Marner has stated repeatedly he wants to remain in Toronto.`\
+https://nytimes.com/athletic/6188454/2025/03/10/mitch-marner-maple-leafs-contract-extension/
 
-**The Athletic FC: Inside fake shirt industry, Arsenal's news sporting director**\
-`Today in TAFC: Inside the £200m fake shirt industry, Manchester United protests, Arsenal's new sporting director, flag-planting in Belgium.`\
-https://nytimes.com/athletic/6190166/2025/03/10/inside-fake-shirt-industry-arsenals-news-sporting-director-man-utd-fan-protests/
+**Eagles free agency preview: Who could replace Josh Sweat, Milton Williams? What are other needs?**\
+`The Eagles will have 18 of 22 offensive and defensive starters from Super Bowl LIX under contract once the new league year begins.`\
+https://nytimes.com/athletic/6187524/2025/03/10/eagles-free-agency-needs-signings/
 
-**Coco Gauff faces Maria Sakkari in a tale of two Olympic flag-bearers and one lost dream**\
-`Maria Sakkari and Coco Gauff meet in a repeat of last year's Indian Wells epic, mirror images in more ways than one.`\
-https://nytimes.com/athletic/6189617/2025/03/10/olympic-flagbearer-gauff-sakkari-greece-indian-wells/
+**Japan’s trade minister heads to Washington for tariff talks.**\
+`Yoji Muto is expected to negotiate with U.S. officials ahead of global tariffs that could damage Japanese businesses, including automotive giants.`\
+https://nytimes.com/2025/03/10/us/politics/japan-tariffs-yoji-muto.html
 
-**The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
-`Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
-`\
-https://nytimes.com/athletic/6190248/2025/03/10/champions-league-round-of-16-tuesday-betting-tips-predictions/
+**New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
+`As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
+https://nytimes.com/athletic/6174919/2025/03/10/new-york-giants-2025-nfl-free-agency-tracker/
 
-**With Rudy Gobert back, the Timberwolves look ready to go on a run**\
-`After missing 10 games with a back injury, Gobert showed his value to streaking Minnesota in Sunday's win over the Spurs.`\
-https://nytimes.com/athletic/6189319/2025/03/10/rudy-gobert-timberwolves-return-spurs/
+**Trump Administration Live Updates: China Tariffs on U.S. Foods Take Effect as Trade War Spirals**\
+``\
+https://nytimes.com/live/2025/03/10/us/president-trump-news
 
-**Yadier Molina talks family, future manager aspirations and his absence from St. Louis**\
-`Molina remains hopeful about making a trip to Busch Stadium some time this year, but his family schedule is the priority.`\
-https://nytimes.com/athletic/6187972/2025/03/10/cardinals-yadier-molina-interview/
+**With a focus on competition, what have we learned about Alabama at spring practice?**\
+`Ideally, Alabama would be at full tilt during spring practice, but the chance to build depth is a silver lining.`\
+https://nytimes.com/athletic/6188926/2025/03/10/alabama-football-spring-practice-2025/
 
-**Four questions the Astros must ponder while constructing their roster**\
-`Is Cam Smith a realistic option? Is money a factor in roster construction? We ponder those questions and more.`\
-https://nytimes.com/athletic/6189301/2025/03/10/astros-roster-questions-cam-smith/
+**Giants Mailbagg, part 1: Even without Corbin Burnes, the pitching looks pretty good**\
+`Topics covered include whether the Giants projected win totals are light, how the rotation is shaping up and more.`\
+https://nytimes.com/athletic/6188934/2025/03/10/sf-giants-mailbag-rotation-outlook/
 
-**Juan Soto enlivens Mets culture, helps set tone: 'I like how at peace he is'**\
-`Brandon Nimmo said of Soto: "It’s something you see from the greats like Michael Jordan and Tiger Woods. They want to beat you."`\
-https://nytimes.com/athletic/6189304/2025/03/10/mets-juan-soto-culture/
+**Twins' bullpen has room for Louie Varland after Justin Topa, Michael Tonkin injuries**\
+`Varland could become the latest in a long line of "failed" starters throughout Twins history to turn into impact relievers.`\
+https://nytimes.com/athletic/6179466/2025/03/10/minnesota-twins-bullpen-louie-varland/
 
-**Forest lose £750k fine appeal for ‘irresponsible’ Attwell social media post**\
-`Forest’s lack of “genuine apology” and “genuine remorse” for the post, which was “ill-chosen and irresponsible”, had been noted.`\
-https://nytimes.com/athletic/6190151/2025/03/10/nottingham-forest-fine-premier-league-appeal/
+**Bills offseason tracker: Where will Buffalo's cap space be spent in a pivotal offseason?**\
+`The Bills got a number of important contracts done before free agency opens.`\
+https://nytimes.com/athletic/6184048/2025/03/10/bills-free-agency-offseason-tracker/
 
