@@ -1,3 +1,23 @@
+**Leave your questions for the next Leaf Report podcast**\
+`<p>Three trades, three losses and lots of drama.`\
+https://nytimes.com/athletic/6191798/2025/03/10/leave-your-questions-for-the-next-leaf-report-podcast/
+
+**A look at the Giants' best (and worst) spring training records since 1958**\
+`The Giants are winning up a storm this spring. What does history tell us about how predictive that will be for the regular season?`\
+https://nytimes.com/athletic/6189857/2025/03/10/sf-giants-spring-training-history/
+
+**Eric Schmidt Joins Relativity Space, a Rocket Start-Up, as C.E.O.**\
+`The former Google chief executive is taking a controlling interest in Relativity Space, which aims to build low-cost, reusable rockets to compete against Elon Musk’s SpaceX and to reach Mars.`\
+https://nytimes.com/2025/03/10/technology/eric-schmidt-relativity-space.html
+
+**The Chilling Effect at Columbia Goes Far Beyond One Student**\
+`If this detention stands, what stops the Trump administration from detaining permanent residents who support other causes it does not like?`\
+https://nytimes.com/live/2025/03/10/opinion/thepoint/the-chilling-effect-at-columbia-goes-far-beyond-one-student
+
+**Where does Dave Roberts rank among the great Dodgers managers?**\
+`Six of the franchise’s 13 winningest years ever have come with Roberts at the helm.`\
+https://nytimes.com/athletic/6189165/2025/03/10/dodgers-dave-roberts-all-time-managers/
+
 **Cadillac F1 boss confirms team would consider American driver 'on merit'**\
 `Cadillac's application to join 2026 grid was approved last week — meaning the new team now has work to do in the driver market.`\
 https://nytimes.com/athletic/6191648/2025/03/10/cadillac-formula-1-team-drivers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6175531/2025/03/10/milton-williams-free-agency-patr
 **49ers 2025 free agency tracker: Talanoa Hufanga to Denver; will Dre Greenlaw return?**\
 `Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
 https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
-
-**Panthers, Tre'von Moehrig agree to 3-year deal: Big addition to team's overhaul at safety**\
-`After locking up CB Jaycee Horn to a long-term deal, the Panthers added another piece to the secondary by adding the former Raiders safety.`\
-https://nytimes.com/athletic/6191550/2025/03/10/trevon-moehrig-panthers-free-agency-signing-2025/
-
-**Talanoa Hufanga in agreement with Broncos on 3-year deal: Sources**\
-`Hufanga, previously of the 49ers, has missed 17 games due to injury over the last two seasons after earning All-Pro honors in 2022.`\
-https://nytimes.com/athletic/6175378/2025/03/10/talanoa-hufanga-deal-broncos-nfl-free-agency-2025/
-
-**Gakpo available for CL second leg against 'complete' PSG, says Slot**\
-`The Dutch international missed the 1-0 first leg victory in Paris with a minor injury caused by him blocking a shot in training.`\
-https://nytimes.com/athletic/6191356/2025/03/10/arne-slot-cody-gakpo-liverpool-psg/
-
-**Bears free agency tracker: Drew Dalman latest addition to revamped O-line**\
-`GM Ryan Poles continued his overhaul of the offensive line by adding Dalman, then landed an edge rusher in former Colt Dayo Odeyingbo.`\
-https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
-
-**Dodgers ink manager Dave Roberts to record extension: Sources**\
-`Roberts joins Bruce Bochy and Terry Francona the only active managers with multiple World Series titles.`\
-https://nytimes.com/athletic/6124771/2025/03/10/dodgers-dave-roberts-contract-record/
 
