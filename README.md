@@ -1,6 +1,14 @@
+**Tesla Shares Plunge as Musk’s Political Role Grows More Divisive**\
+`The automaker’s shares soared after Election Day as Elon Musk took a high-profile role as a Trump adviser. Now those gains have evaporated.`\
+https://nytimes.com/2025/03/10/business/tesla-stock-market-elon-musk.html
+
 **Haason Reddick, Buccaneers agree to one-year deal: Source**\
 `While Reddick had a down year amid a holdout-shortened season, he is one year removed from being a top-five edge rusher in the laague. `\
 https://nytimes.com/athletic/6177790/2025/03/10/haason-reddick-free-agency-signing-2025-buccaneers/
+
+**Bears free agency tracker: Drew Dalman latest addition to revamped O-line**\
+`With the cap space and draft capital at his disposal, Bears GM Ryan Poles can be aggressive to support their young QB and popular new coach.`\
+https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
 
 **Bears agree to terms with Dalman on 3-year deal worth $42 million: Source**\
 `The 26-year-old was the top center on the free-agent market and the only one in the top 70 of The Athletic's top 150 free agents.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6190647/2025/03/10/jaylon-moore-chiefs-nfl-free-age
 **Scoop City: Free agency catch-up as legal tampering opens**\
 `Inside: The biggest stories to know as the &#8220;negotiating period&#8221; of free agency is officially open.`\
 https://nytimes.com/athletic/6190596/2025/03/10/nfl-free-agency-primer-news-recap-scoop-city/
-
-**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
-`Submit your Mets questions for the Tim Britton and Will Sammon mailbag`\
-https://nytimes.com/athletic/6190925/2025/03/10/mets-mailbag-spring-training/
-
-**Steph Curry named Davidson basketball assistant GM, creating 8-figure fund**\
-`While Curry joins a growing list of athletes taking administrative jobs at colleges, he is the first active player to do so.`\
-https://nytimes.com/athletic/6190839/2025/03/10/steph-curry-davidson-basketball-assistant-general-manager/
 
