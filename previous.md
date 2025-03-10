@@ -1,3 +1,15 @@
+**Does Lakers' Luka Dončić chemistry project need more time? The data says maybe**\
+`L.A.'s offense hasn't made the strides you might expect with a Luka-LeBron pairing. But such bumpy starts aren't that uncommon.`\
+https://nytimes.com/athletic/6188562/2025/03/10/luka-doncic-lakers-mavericks-injuries/
+
+**Jam Like a King: Charles Releases a Playlist**\
+`King Charles III showcased 17 artists, mostly from Commonwealth countries, in a personal playlist. Beyoncé, Bob Marley and Diana Ross made the cut.`\
+https://nytimes.com/2025/03/10/arts/music/king-charles-music-playlist.html
+
+**On ‘Mayhem,’ Lady Gaga Wants You to Party Like It’s 2009**\
+`She dances on the line between clever self-referentiality and less inspired rehashing on her new LP, committing to the over-the-top excess that first made her a star.`\
+https://nytimes.com/2025/03/10/arts/music/lady-gaga-mayhem-review.html
+
 **Supreme Court to Hear Challenge to Law Banning Conversion Therapy**\
 `Colorado, like more than 20 other states, bars licensed therapists from trying to change the sexual orientation or gender identity of minors in their care.`\
 https://nytimes.com/2025/03/10/us/politics/supreme-court-conversion-therapy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6172518/2025/03/10/khalil-mack-free-agency-signing-
 **Butter-Basted Chicken Breasts With Rosemary and Garlic**\
 `By Melissa Clark`\
 https://nytimes.com/2025/03/10/dining/butter-basted-chicken-breasts-with-rosemary-and-garlic.html
-
-**Craig Wolfley, Steelers lineman and beloved color commentator, dies at 66**\
-`The Buffalo native spent 10 seasons with the Steelers before finishing his career with the Minnesota Vikings`\
-https://nytimes.com/athletic/6190560/2025/03/10/craig-wolfley-steelers-lineman-commentator-obituary/
-
-**Trump’s Call to Scrap ‘Horrible’ Chip Program Spreads Panic**\
-`The president’s attack on the key tenet of the Biden administration’s industrial policy has set off concerns that he may claw back its funding.`\
-https://nytimes.com/2025/03/10/technology/trump-chips-act.html
-
-**Falcons release veteran defensive tackle Grady Jarrett: Sources**\
-`The move saves the Falcons $16.3 million in salary-cap space this season but is somewhat shocking because of what Jarrett meant in Atlanta.`\
-https://nytimes.com/athletic/6190646/2025/03/10/falcons-release-grady-jarrett/
 

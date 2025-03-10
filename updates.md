@@ -1,3 +1,15 @@
+**Does Lakers' Luka Dončić chemistry project need more time? The data says maybe**\
+`L.A.'s offense hasn't made the strides you might expect with a Luka-LeBron pairing. But such bumpy starts aren't that uncommon.`\
+https://nytimes.com/athletic/6188562/2025/03/10/luka-doncic-lakers-mavericks-injuries/
+
+**Jam Like a King: Charles Releases a Playlist**\
+`King Charles III showcased 17 artists, mostly from Commonwealth countries, in a personal playlist. Beyoncé, Bob Marley and Diana Ross made the cut.`\
+https://nytimes.com/2025/03/10/arts/music/king-charles-music-playlist.html
+
+**On ‘Mayhem,’ Lady Gaga Wants You to Party Like It’s 2009**\
+`She dances on the line between clever self-referentiality and less inspired rehashing on her new LP, committing to the over-the-top excess that first made her a star.`\
+https://nytimes.com/2025/03/10/arts/music/lady-gaga-mayhem-review.html
+
 **Supreme Court to Hear Challenge to Law Banning Conversion Therapy**\
 `Colorado, like more than 20 other states, bars licensed therapists from trying to change the sexual orientation or gender identity of minors in their care.`\
 https://nytimes.com/2025/03/10/us/politics/supreme-court-conversion-therapy.html
