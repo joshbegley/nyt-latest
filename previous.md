@@ -1,3 +1,27 @@
+**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
+
+**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; Aaron Banks to Green Bay**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
+
+**Syrian Government Signs Breakthrough Deal with Kurdish-Led Forces**\
+`The agreement marked a major victory for Damascus in its quest to unify the country, as violent unrest continues to grip Syria’s coastal region.`\
+https://nytimes.com/2025/03/10/world/middleeast/syria-kurds-agreement.html
+
+**Colts to sign Cam Bynum: Why safety is a great fit for Lou Anarumo's defense**\
+`Adding Bynum proves the Colts are serious about giving new DC Lou Anarumo the pieces he needs to succeed in Indy. `\
+https://nytimes.com/athletic/6191695/2025/03/10/colts-cam-bynum-nfl-free-agency/
+
+**Ship Collides With Tanker Carrying Jet Fuel Cargo off England’s Coast**\
+`Multiple explosions were reported and jet fuel leaked after a container ship collided with an oil tanker.`\
+https://nytimes.com/video/world/europe/100000010043119/oil-tanker-collision-north-sea.html
+
+**Without Offering Proof, Kennedy Links Measles Outbreak to Poor Diet and Health**\
+`In a recent interview, the health secretary also suggested that the measles vaccine had harmed children in West Texas, center of an outbreak.`\
+https://nytimes.com/2025/03/10/health/measles-texas-kennedy-fox.html
+
 **Bears add Dayo Odeyingbo: Why the defensive end suits coordinator Dennis Allen**\
 `The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
 https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6189857/2025/03/10/sf-giants-spring-training-histor
 **Eric Schmidt Joins Relativity Space, a Rocket Start-Up, as C.E.O.**\
 `The former Google chief executive is taking a controlling interest in Relativity Space, which aims to build low-cost, reusable rockets to compete against Elon Musk’s SpaceX and to reach Mars.`\
 https://nytimes.com/2025/03/10/technology/eric-schmidt-relativity-space.html
-
-**The Chilling Effect at Columbia Goes Far Beyond One Student**\
-`If this detention stands, what stops the Trump administration from detaining permanent residents who support other causes it does not like?`\
-https://nytimes.com/live/2025/03/10/opinion/thepoint/the-chilling-effect-at-columbia-goes-far-beyond-one-student
-
-**Where does Dave Roberts rank among the great Dodgers managers?**\
-`Six of the franchise’s 13 winningest years ever have come with Roberts at the helm.`\
-https://nytimes.com/athletic/6189165/2025/03/10/dodgers-dave-roberts-all-time-managers/
-
-**Cadillac F1 boss confirms team would consider American driver 'on merit'**\
-`Cadillac's application to join 2026 grid was approved last week — meaning the new team now has work to do in the driver market.`\
-https://nytimes.com/athletic/6191648/2025/03/10/cadillac-formula-1-team-drivers/
-
-**Josh Sweat agrees to terms with Cardinals: Source**\
-`The veteran edge rusher is coming off a big performance in the Eagles' Super Bowl LIX win over the Chiefs in which he had 2.5 sacks.`\
-https://nytimes.com/athletic/6172731/2025/03/10/josh-sweat-cardinals-free-agency/
-
-**Accused Sex Traffickers Receive Warm Welcome From a Trump Ally**\
-`Dana White of the U.F.C. greeted Andrew Tate and his brother at an event, highlighting a divide among conservatives.`\
-https://nytimes.com/2025/03/10/style/andrew-tate-dana-white-ufc-trump.html
-
-**Patriots agree to terms with free-agent ex-Eagle Milton Williams: Source**\
-`Despite his limited reps, Williams served as a highly efficient interior pass rusher in his four seasons with the Eagles. `\
-https://nytimes.com/athletic/6175531/2025/03/10/milton-williams-free-agency-patriots-signing-2025/
 

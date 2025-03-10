@@ -22,7 +22,7 @@ https://nytimes.com/video/world/europe/100000010043119/oil-tanker-collision-nort
 `In a recent interview, the health secretary also suggested that the measles vaccine had harmed children in West Texas, center of an outbreak.`\
 https://nytimes.com/2025/03/10/health/measles-texas-kennedy-fox.html
 
-**Bears add Dayo Odeyingbo: Why the defensive end suits coordinator Dennis Allen**\
+**Bears add Dayo Odeyingbo: Why the DE suits coordinator Dennis Allen**\
 `The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
 https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
 
