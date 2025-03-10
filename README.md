@@ -1,3 +1,11 @@
+**Patriots 2025 free agency tracker: Seeking help at WR, O-line and D-line**\
+`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127 million in cap space?`\
+https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
+
+**Liverpool’s new Adidas kit deal explained: What it means for revenue, transfers and next season**\
+`Everything you need to know about the league-leaders returning to Adidas`\
+https://nytimes.com/athletic/6190491/2025/03/10/liverpool-adidas-kit-deal-explained/
+
 **Emotional Brad Marchand reflects on being traded by the Bruins: ‘I wanted to stay there’**\
 `Marchand, speaking at the Panthers’ practice facility on Monday, said, "It was very disappointing" not to get an extension done with Boston.`\
 https://nytimes.com/athletic/6190768/2025/03/10/brad-marchand-interview-bruins-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/arts/music/lady-gaga-mayhem-review.html
 **Supreme Court to Hear Challenge to Law Banning Conversion Therapy**\
 `Colorado, like more than 20 other states, bars licensed therapists from trying to change the sexual orientation or gender identity of minors in their care.`\
 https://nytimes.com/2025/03/10/us/politics/supreme-court-conversion-therapy.html
-
-**Yankees’ rotation plummets to among MLB's worst without Gerrit Cole**\
-`If the Yankees are going to be able to withstand their recent injury news, their younger pitchers will have to be front and center.`\
-https://nytimes.com/athletic/6188999/2025/03/10/yankees-rotation-gerrit-cole-luis-gil-injuries/
-
-**Our 16th Annual Summer Reading Contest**\
-`Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 6 to Aug. 15, 2025.`\
-https://nytimes.com/2025/03/10/learning/our-16th-annual-summer-reading-contest.html
 
