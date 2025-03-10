@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, March 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/10/todays-new-york-times-international-edition
+
 **Zelensky Is Set to Meet With Saudi Crown Prince Before U.S. Talks**\
 `The Ukrainian president is trying to secure a favorable deal to end his country’s war with Russia. Saudi Arabia has emerged as a host to talks that the Trump administration is pursuing with Moscow and Kyiv.`\
 https://nytimes.com/2025/03/10/us/politics/zelensky-saudi-arabia-prince-ukraine-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/world/europe/trump-greenland-election.html
 **Why Are So Many Women Wearing Neckties?**\
 `While men’s wear has shifted away from the classic necktie, more and more women are sporting the accessory. Our critic explains the infatuation and offers tips for suiting up.`\
 https://nytimes.com/2025/03/10/fashion/tie-women-neckties.html
-
-**Giants free agency preview: Signs point to Aaron Rodgers as top target**\
-`Will Giants GM Joe Schoen continue to show restraint in free agency, or will being on the hot seat change his approach?`\
-https://nytimes.com/athletic/6188836/2025/03/10/giants-free-agency-preview-aaron-rodgers-quarterback/
 

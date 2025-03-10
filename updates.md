@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, March 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/10/todays-new-york-times-international-edition
+
 **Zelensky Is Set to Meet With Saudi Crown Prince Before U.S. Talks**\
 `The Ukrainian president is trying to secure a favorable deal to end his country’s war with Russia. Saudi Arabia has emerged as a host to talks that the Trump administration is pursuing with Moscow and Kyiv.`\
 https://nytimes.com/2025/03/10/us/politics/zelensky-saudi-arabia-prince-ukraine-meeting.html
