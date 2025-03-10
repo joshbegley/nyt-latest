@@ -1,4 +1,12 @@
-**Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor’**\
+**A Bad Day on Wall Street**\
+`Also, Rubio said Ukraine must cede territory in exchange for peace. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/10/briefing/stock-market-rubio-ukraine-meeting-new-leader-canada.html
+
+**Defendant in U.S.S. Cole Bombing Case Signs Plea Offer**\
+`The Saudi prisoner agreed to the settlement to avoid a death-penalty trial, his lawyer said, but it has yet to reach the defense secretary.`\
+https://nytimes.com/2025/03/10/us/politics/uss-cole-case-plea.html
+
+**Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor.’**\
 `Senator Mark Kelly, an Arizona Democrat and former astronaut, visited Ukraine over the weekend and said the United States could not give up on the people there as they fight Russia. Musk responded on X.`\
 https://nytimes.com/2025/03/10/us/politics/musk-mark-kelly-traitor.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/science/nasa-chief-scientist-fired-katherine-calv
 **Commanders free-agency tracker: Washington trades for 5-time Pro Bowl LT Laremy Tunsil**\
 `Analyzing all of Washington's moves as the 2025 league year begins. `\
 https://nytimes.com/athletic/6188862/2025/03/10/commanders-free-agency-tracker-signings-trades/
-
-**Raiders to add S Jeremy Chinn after losing Tre'von Moehrig: Source**\
-`The Raiders agreed to terms with Chinn, a veteran safety who can help fill the void left by the departure of Moehrig at half the price.`\
-https://nytimes.com/athletic/6191876/2025/03/10/jeremy-chinn-free-agency-signing-2025-raiders/
-
-**Trump Administration Seeks to Expel a Green-Card Holder Over Student Protests**\
-`Immigration officers arrested a Columbia University graduate for helping lead campus protests against Israel’s treatment of Palestinians. President Trump said the case was “the first arrest of many to come.”`\
-https://nytimes.com/2025/03/10/us/trump-rubio-khalil-columbia-student-protests.html
 
