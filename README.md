@@ -1,3 +1,7 @@
+**Mark Carney: Canada's new prime minister and Everton fan - with Donald Trump in his sights**\
+`Carney's support for Everton is said to be genuine and heartfelt - he may be too busy to take in matches after becoming Canada's PM`\
+https://nytimes.com/athletic/6190741/2025/03/10/mark-carney-canada-prime-minister-everton-fan/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/03/10/opinion/thepoint
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-ag
 **NFL free-agency tracker: See where Sam Darnold, Aaron Rodgers and the top 150 players land**\
 `Darnold will hit free agency as one of the top players available, and Rodgers is seeking a new home, too. Track all the action right here.`\
 https://nytimes.com/athletic/6178324/2025/03/10/nfl-free-agent-tracker-rankings/
-
-**Falcons free agency tracker: Drew Dalman's departure opens door for Ryan Neuzil**\
-`The Falcons entered free agency needing edge rushers and cornerbacks. We're tracking all their moves here.`\
-https://nytimes.com/athletic/6180543/2025/03/10/atlanta-falcons-2025-free-agency-tracker/
 
