@@ -1,3 +1,7 @@
+**Wirtz suffers ankle ligament injury, out for 'several weeks'**\
+`Wirtz's ankle was injured in a challenge from Bremen's Mitchell Weiser just 14 minutes after coming on at half-time.`\
+https://nytimes.com/athletic/6188016/2025/03/10/florian-wirtz-injury-leverkusen/
+
 **Cutting Medicaid?**\
 `How Republicans could change the program.`\
 https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189710/2025/03/10/new-york-mets-injuries-depth/
 **Who are the best available NFL free agents? Milton Williams, Chris Godwin lead the way**\
 `NFL free agency is here, and we're tracking the best available players for your favorite team to sign.`\
 https://nytimes.com/athletic/6185197/2025/03/10/best-available-nfl-free-agents-2025/
-
-**Trump Takes Aim at the Department of Education**\
-`The president promised to abolish the department. But he also needs it to impose his own vision on American schools.`\
-https://nytimes.com/2025/03/10/podcasts/the-daily/trump-department-of-education.html
 

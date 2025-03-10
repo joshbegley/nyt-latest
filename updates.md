@@ -1,3 +1,7 @@
+**Cutting Medicaid?**\
+`How Republicans could change the program.`\
+https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
+
 **Steelers free-agency news, grades: DK Metcalf is on board. Now what at quarterback?**\
 `We're tracking every Steelers move in free agency, from DK Metcalf to the quarterback situation and much, much more.`\
 https://nytimes.com/athletic/6185212/2025/03/10/steelers-free-agent-tracker-news-grades-2025/
