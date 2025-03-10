@@ -1,3 +1,7 @@
+**Fire Damages 4 Tesla Cybertrucks in Seattle**\
+`Federal and local law enforcement authorities are investigating what caused the Sunday night fire, which came after a series of attacks against Tesla in rebuke of its chief executive, Elon Musk.`\
+https://nytimes.com/2025/03/10/us/tesla-cybertruck-fire-seattle.html
+
 **Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
 `The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
 https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agen
 **NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
 `Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket late on Monday after a postponed flight on Saturday.`\
 https://nytimes.com/2025/03/10/science/spacex-nasa-spherex-punch-launch.html
-
-**Arsenal investigating 'inappropriate comments' made towards Liverpool's Hinds**\
-`The fan was removed from the stadium and Hinds has thanked the club for their support.`\
-https://nytimes.com/athletic/6192088/2025/03/10/arsenal-liverpool-taylor-hinds-comments-investigate/
 
