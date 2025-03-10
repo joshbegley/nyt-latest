@@ -1,3 +1,7 @@
+**Mark Carney Set to Lead Canada and Take On Trump**\
+`As President Trump threatens to make Canada the 51st state, the Liberal Party chose the former central banker to succeed Justin Trudeau as prime minister.`\
+https://nytimes.com/video/world/americas/100000010042137/canada-mark-carney-liberal-trump.html
+
 **Canucks’ top forwards disappear again in loss to Stars: 3 takeaways**\
 `The Canucks played well against the Stars, but got beat at their own low-event game.`\
 https://nytimes.com/athletic/6189524/2025/03/10/canucks-forwards-low-event-pettersson-stars/

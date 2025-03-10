@@ -1,3 +1,7 @@
+**Mark Carney Set to Lead Canada and Take On Trump**\
+`As President Trump threatens to make Canada the 51st state, the Liberal Party chose the former central banker to succeed Justin Trudeau as prime minister.`\
+https://nytimes.com/video/world/americas/100000010042137/canada-mark-carney-liberal-trump.html
+
 **Canucks’ top forwards disappear again in loss to Stars: 3 takeaways**\
 `The Canucks played well against the Stars, but got beat at their own low-event game.`\
 https://nytimes.com/athletic/6189524/2025/03/10/canucks-forwards-low-event-pettersson-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-ro
 **30 Charts That Show How Everything Changed in March 2020**\
 `It can be easy to forget, or look away from, the pain and disruption of the pandemic. The numbers will be there to remind us.`\
 https://nytimes.com/interactive/2025/03/09/upshot/covid-lockdown-five-year-charts.html
-
-**‘The White Lotus’ Season 3, Episode 4 Recap: Party Time**\
-`The gal pals finally moved out of their hermetic bubble this week in search of a little fun. The results were questionable.`\
-https://nytimes.com/2025/03/09/arts/television/the-white-lotus-recap-season-3-episode-4.html
 
