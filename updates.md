@@ -1,3 +1,7 @@
+**Fire Damages 4 Tesla Cybertrucks in Seattle**\
+`Federal and local law enforcement authorities are investigating what caused the Sunday night fire, which came after a series of attacks against Tesla in rebuke of its chief executive, Elon Musk.`\
+https://nytimes.com/2025/03/10/us/tesla-cybertruck-fire-seattle.html
+
 **Reds' Noelvi Marte ready to put 2024 in past, make comeback in Triple A**\
 `Marte hit .263 with four walks and home run in 19 official at-bats.`\
 https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-triple-a/
