@@ -1,3 +1,15 @@
+**X Users Report Intermittent Outages**\
+`Several waves of reported outages affected the social media site, formerly known as Twitter, on Monday.`\
+https://nytimes.com/2025/03/10/technology/twitter-x-down-outage.html
+
+**Under Pressure From Republicans, D.C. Begins Removal of Black Lives Matter Mural**\
+`The mural, which covers two city blocks, was painted in 2020.`\
+https://nytimes.com/2025/03/10/us/politics/black-lives-matter-mural-dc.html
+
+**Yankees’ rotation plummets to among MLB's worst without Gerrit Cole**\
+`If the Yankees are going to be able to withstand their recent injury news, their younger pitchers will have to be front and center.`\
+https://nytimes.com/athletic/6188999/2025/03/10/yankees-rotation-gerrit-cole-luis-gil-injuries/
+
 **Does Lakers' Luka Dončić chemistry project need more time? The data says maybe**\
 `L.A.'s offense hasn't made the strides you might expect with a Luka-LeBron pairing. But such bumpy starts aren't that uncommon.`\
 https://nytimes.com/athletic/6188562/2025/03/10/luka-doncic-lakers-mavericks-injuries/
