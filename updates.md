@@ -1,3 +1,16 @@
+**Iran Signals Openness to Limited Nuclear Talks With U.S.**\
+`Iran’s U.N. mission said it would be willing to discuss its nuclear program if talks were restricted to military concerns, after its supreme leader appeared to reject President Trump’s offer to start discussions.`\
+https://nytimes.com/2025/03/10/world/europe/iran-nuclear-trump-us.html
+
+**Arsenal deployed a makeshift striker against Man Utd - what they needed was a false nine**\
+`More unpredictability and movement was the order of the day against a United defence who are prone to getting dragged around`\
+https://nytimes.com/athletic/6190088/2025/03/10/arsenal-merino-makeshift-striker-false-nine/
+
+**The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
+`Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
+`\
+https://nytimes.com/athletic/6190248/2025/03/10/champions-league-round-of-16-tuesday-betting-tips-predictions/
+
 **The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
 `Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
 `\
