@@ -1,3 +1,7 @@
+**NFL free-agency tracker: See where Sam Darnold, Aaron Rodgers and the top 150 players land**\
+`Darnold will hit free agency as one of the top players available, while Rodgers might have to be patient. Track all the action right here.`\
+https://nytimes.com/athletic/6178324/2025/03/10/nfl-free-agent-tracker-rankings/
+
 **Olivier Giroud still can't score in MLS, and it's getting embarrassing**\
 `Giroud's high productivity in Europe — and for France — has not translated to MLS.`\
 https://nytimes.com/athletic/6189015/2025/03/10/olivier-giroud-lafc-goals-mls-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188378/2025/03/10/manchester-united-amorim-arsenal
 **Word of the Day: obstinacy**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/10/learning/word-of-the-day-obstinacy.html
-
-**Counter-attacking, clearances and a clean sheet: Have Villa rediscovered their blueprint for success?**\
-`Villa have turned a corner with their last two away performances - and Unai Emery says they are 'really hungry' to end the season in style`\
-https://nytimes.com/athletic/6187327/2025/03/10/aston-villa-unai-emery-blueprint/
 

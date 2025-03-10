@@ -1,3 +1,7 @@
+**NFL free-agency tracker: See where Sam Darnold, Aaron Rodgers and the top 150 players land**\
+`Darnold will hit free agency as one of the top players available, while Rodgers might have to be patient. Track all the action right here.`\
+https://nytimes.com/athletic/6178324/2025/03/10/nfl-free-agent-tracker-rankings/
+
 **Olivier Giroud still can't score in MLS, and it's getting embarrassing**\
 `Giroud's high productivity in Europe — and for France — has not translated to MLS.`\
 https://nytimes.com/athletic/6189015/2025/03/10/olivier-giroud-lafc-goals-mls-struggles/
