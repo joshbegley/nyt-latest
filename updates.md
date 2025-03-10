@@ -1,3 +1,11 @@
+**Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor’**\
+`Senator Mark Kelly, an Arizona Democrat and former astronaut, visited Ukraine over the weekend and said the United States could not give up on the people there as they fight Russia. Musk responded on X.`\
+https://nytimes.com/2025/03/10/us/politics/musk-mark-kelly-traitor.html
+
+**Malcolm Koonce returning to Raiders on 1-year deal: Source**\
+`Koonce was unable to capitalize on a career year in 2023 due to injury, but he is expected to be ready for the start of the 2025 season.`\
+https://nytimes.com/athletic/6176422/2025/03/10/malcolm-koonce-free-agent-nfl-raiders/
+
 **Ratcliffe’s comments on Man Utd’s squad, stadium decision, money problems and more - analysed**\
 `The Manchester United co-owner has given a series of interviews - but what did we learn from what he had to say?`\
 https://nytimes.com/athletic/6191213/2025/03/10/jim-ratcliffe-interview-analysed/
