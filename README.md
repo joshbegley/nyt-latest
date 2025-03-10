@@ -1,3 +1,11 @@
+**The Senate confirmed Lori Chavez-DeRemer, a former congresswoman with a pro-union record, as secretary of labor.**\
+`By Rebecca Davis O’Brien`\
+https://nytimes.com/live/2025/03/10/us/president-trump-news/the-senate-confirmed-lori-chavez-deremer-a-former-congresswoman-with-a-pro-union-record-as-secretary-of-labor
+
+**Patriots 2025 free agency tracker: New England lands big fish in DT Milton Williams**\
+`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127M in cap space in free agency?`\
+https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
+
 **Darius Slayton, Giants in agreement on new 3-year, $36 million deal: Source**\
 `In six seasons with the New York Giants, Slayton averaged 15.0 yards per reception.`\
 https://nytimes.com/athletic/6178807/2025/03/10/darius-slayton-free-agency-signing-2025-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/us/tesla-cybertruck-fire-seattle.html
 **Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
 `The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
 https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
-
-**Reds' Noelvi Marte ready to put 2024 in past, make comeback in Triple A**\
-`Marte hit .263 with four walks and home run in 19 official at-bats.`\
-https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-triple-a/
-
-**Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
-`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
 
