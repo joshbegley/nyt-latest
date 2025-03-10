@@ -1,3 +1,19 @@
+**Everyone Has a Plan For Gaza. None of Them Add Up.**\
+`Since President Trump suggested expelling the territory’s population, Middle East leaders have rushed to propose options for postwar Gaza. Each is unacceptable to either Israel or Hamas, or both.`\
+https://nytimes.com/2025/03/10/world/middleeast/gaza-plan-israel-hamas-ceasefire.html
+
+**College baseball week in review: Stanford makes a statement, Tennessee keeps mashing**\
+`Arkansas finds some offensive pop. East Carolina's Ethan Norby strikes out 19. George Mason sets a record. `\
+https://nytimes.com/athletic/6189225/2025/03/10/college-baseball-stanford-north-carolina-acc-tennessee/
+
+**A Facebook Insider’s Exposé Alleges Bad Behavior at the Top**\
+`“Careless People,” a memoir by a former Facebook executive, portrays feckless company leaders cozying up to authoritarian regimes.`\
+https://nytimes.com/2025/03/10/books/review/careless-people-sarah-wynn-williams.html
+
+**Would Trump Risk a Recession?**\
+`The president still believes that his protectionist trade policies will be “great for us” in the long run, but won’t rule out short-term economic pain.`\
+https://nytimes.com/2025/03/10/business/dealbook/trump-recession-risk.html
+
 **New York Jets 2025 free agency tracker: Sherwood retained in new regime's first big move**\
 `With a new GM in Darren Mougey and coach in Aaron Glenn, the Jets move on to the post-Aaron Rodgers era.`\
 https://nytimes.com/athletic/6189594/2025/03/10/new-york-jets-2025-free-agency-tracker/
