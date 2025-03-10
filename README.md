@@ -1,3 +1,7 @@
+**Cutting Medicaid?**\
+`How Republicans could change the program.`\
+https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
+
 **Steelers free-agency news, grades: DK Metcalf is on board. Now what at quarterback?**\
 `We're tracking every Steelers move in free agency, from DK Metcalf to the quarterback situation and much, much more.`\
 https://nytimes.com/athletic/6185212/2025/03/10/steelers-free-agent-tracker-news-grades-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185197/2025/03/10/best-available-nfl-free-agents-2
 **Trump Takes Aim at the Department of Education**\
 `The president promised to abolish the department. But he also needs it to impose his own vision on American schools.`\
 https://nytimes.com/2025/03/10/podcasts/the-daily/trump-department-of-education.html
-
-**MLS anonymous executive survey Part 2: Confronting the league's future**\
-`What do some of MLS's highest-ranking club officials think of some of the league's most pressing topics? We asked, they candidly answered.`\
-https://nytimes.com/athletic/6185308/2025/03/10/mls-anonymous-gm-survey-messi-garber-rule-changes-usl/
 
