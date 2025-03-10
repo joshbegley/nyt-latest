@@ -1,3 +1,15 @@
+**Lauren Betts, UCLA hold on to win Big Ten tournament championship**\
+`Selection Sunday is 8 p.m. March 16 on ESPN. UCLA and USC are projected to be No. 1 seeds.`\
+https://nytimes.com/athletic/6189303/2025/03/09/ucla-usc-big-ten-tournament-championship/
+
+**Yohe's 10 observations: Jarry outshines Marc-Andre Fleury in rare Penguins win**\
+`Tristan Jarry stole the show in what was Marc-Andre Fleury's last game against the Penguins.`\
+https://nytimes.com/athletic/6168252/2025/03/09/penguins-tristan-jarry-marc-andre-fleury-wild/
+
+**Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
+`A league source confirmed the deal includes a record $250 million guaranteed.`\
+https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030/
+
 **Women's basketball conference tournaments: Who will earn overall No. 1 NCAA Tournament seed?**\
 `Which teams earned automatic bids for the NCAA Tournament?`\
 https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
