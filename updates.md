@@ -1,3 +1,19 @@
+**Trump’s Attacks Give Zelensky a Bit of a Reprieve at Home**\
+`The Ukrainian leader’s approval rating is rising, and critics have backed off after he was humiliated and criticized by President Trump, who has also demanded new elections in Ukraine.`\
+https://nytimes.com/2025/03/10/world/europe/trump-zelensky-ukraine-popularity.html
+
+**Michelle Obama’s Next Act: Video Podcaster**\
+`Through her production company, Higher Ground, Mrs. Obama, along with her brother, Craig Robinson, will interview celebrities and offer advice on various topics.`\
+https://nytimes.com/2025/03/10/business/media/michelle-obama-video-podcast.html
+
+**Jean Smart Will Star in a One-Woman Broadway Show**\
+`The new play, “Call Me Izzy,” will begin previews in May and open in June at Studio 54.`\
+https://nytimes.com/2025/03/10/theater/jean-smart-broadway.html
+
+**Skirmish in Syrian Capital Raises Fears of Expanding Violence**\
+`The overnight incident in Damascus appeared to have been contained, but it has heightened concerns that the violence sweeping the country’s coastal region could spread.`\
+https://nytimes.com/2025/03/10/world/europe/syria-damascus-clashes.html
+
 **Think You Understand Your Dog? Think Again.**\
 `People interpret a dog’s emotions based on its situation and have “a big blind spot” for the actual animal, a new study found.`\
 https://nytimes.com/2025/03/10/science/dogs-pets-emotions.html

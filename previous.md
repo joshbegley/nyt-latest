@@ -1,3 +1,19 @@
+**Trump’s Attacks Give Zelensky a Bit of a Reprieve at Home**\
+`The Ukrainian leader’s approval rating is rising, and critics have backed off after he was humiliated and criticized by President Trump, who has also demanded new elections in Ukraine.`\
+https://nytimes.com/2025/03/10/world/europe/trump-zelensky-ukraine-popularity.html
+
+**Michelle Obama’s Next Act: Video Podcaster**\
+`Through her production company, Higher Ground, Mrs. Obama, along with her brother, Craig Robinson, will interview celebrities and offer advice on various topics.`\
+https://nytimes.com/2025/03/10/business/media/michelle-obama-video-podcast.html
+
+**Jean Smart Will Star in a One-Woman Broadway Show**\
+`The new play, “Call Me Izzy,” will begin previews in May and open in June at Studio 54.`\
+https://nytimes.com/2025/03/10/theater/jean-smart-broadway.html
+
+**Skirmish in Syrian Capital Raises Fears of Expanding Violence**\
+`The overnight incident in Damascus appeared to have been contained, but it has heightened concerns that the violence sweeping the country’s coastal region could spread.`\
+https://nytimes.com/2025/03/10/world/europe/syria-damascus-clashes.html
+
 **Think You Understand Your Dog? Think Again.**\
 `People interpret a dog’s emotions based on its situation and have “a big blind spot” for the actual animal, a new study found.`\
 https://nytimes.com/2025/03/10/science/dogs-pets-emotions.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6189671/2025/03/10/mens-college-basketball-bubble-w
 **Yankees' Gerrit Cole told to have Tommy John surgery, waiting for second opinion: Source**\
 `Gerrit Cole won the American League Cy Young Award in 2023 and missed part of the 2024 season due to elbow troubles.`\
 https://nytimes.com/athletic/6186125/2025/03/10/yankees-gerrit-cole-tommy-john-surgery/
-
-**Seahawks free-agency tracker: News and analysis for every Seattle move**\
-`The Seahawks have already had an extremely busy offseason. Keep track of all of their moves in free agency right here.`\
-https://nytimes.com/athletic/6182924/2025/03/10/seahawks-free-agent-tracker-news/
-
-**Las Vegas Raiders 2025 free agency tracker: What's next after Geno Smith trade?**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
-
-**San Francisco 49ers 2025 free agency tracker: Will Dre Greenlaw, Talanoa Hufanga return?**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
-
-**Broncos free agency tracker: What to know about Sean Payton's team as league year nears**\
-`Keep up to date with all of the news and analysis on Broncos' moves as the NFL's new league year begins.`\
-https://nytimes.com/athletic/6184199/2025/03/10/broncos-free-agency-tracker-2025/
 
