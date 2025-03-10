@@ -1,3 +1,15 @@
+**New Canadian Leader’s Balancing Act: Negotiate With and Fight Trump**\
+`Mark Carney will most likely be in power just a few weeks before a federal election is held. To win, he will try to convince Canadians he can take on, but also negotiate with, Trump.`\
+https://nytimes.com/2025/03/10/world/canada/mark-carney-trump.html
+
+**Yankees ace Gerrit Cole to undergo Tommy John surgery, miss all of 2025 season**\
+`It will now be at least a year until Cole gets his next chance to help get a win for the Yankees.`\
+https://nytimes.com/athletic/6192009/2025/03/10/new-york-yankees-gerrit-cole-season-ending-surgery/
+
+**Chargers agree to terms with CB Donte Jackson on low-risk, potential-upside deal**\
+`The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
+https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
+
 **Chargers agree to terms with CB Donte Jackson on low-risk, big-upside deal**\
 `The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
 https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
