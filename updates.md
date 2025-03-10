@@ -1,3 +1,7 @@
+**Canucks’ top forwards disappear again in loss to Stars: 3 takeaways**\
+`The Canucks played well against the Stars, but got beat at their own low-event game.`\
+https://nytimes.com/athletic/6189524/2025/03/10/canucks-forwards-low-event-pettersson-stars/
+
 **How South Korea’s President Planned a Military Takeover, Then Blew It**\
 `Yoon Suk Yeol came close to disabling parliament with a few hundred troops. But he misjudged the power of his people and the willingness of his army to use force. South Koreans worry it could happen again.`\
 https://nytimes.com/interactive/2025/03/10/world/asia/south-korea-martial-law-president-yoon.html
