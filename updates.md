@@ -1,3 +1,7 @@
+**Colts to sign Cam Bynum: Why the safety fits for Lou Anarumo's defense**\
+`Adding Bynum proves the Colts are serious about giving new DC Lou Anarumo the pieces he needs to succeed in Indy. `\
+https://nytimes.com/athletic/6191695/2025/03/10/colts-cam-bynum-nfl-free-agency/
+
 **Bears add Dayo Odeyingbo: Why the DE suits coordinator Dennis Allen**\
 `The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
 https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/

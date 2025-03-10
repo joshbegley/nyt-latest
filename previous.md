@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-ag
 `The agreement marked a major victory for Damascus in its quest to unify the country, as violent unrest continues to grip Syria’s coastal region.`\
 https://nytimes.com/2025/03/10/world/middleeast/syria-kurds-agreement.html
 
-**Colts to sign Cam Bynum: Why safety is a great fit for Lou Anarumo's defense**\
+**Colts to sign Cam Bynum: Why the safety fits for Lou Anarumo's defense**\
 `Adding Bynum proves the Colts are serious about giving new DC Lou Anarumo the pieces he needs to succeed in Indy. `\
 https://nytimes.com/athletic/6191695/2025/03/10/colts-cam-bynum-nfl-free-agency/
 
