@@ -1,3 +1,7 @@
+**Bears add Dayo Odeyingbo: Why the DE suits coordinator Dennis Allen**\
+`The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
+https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
+
 **Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
 `GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
 https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
