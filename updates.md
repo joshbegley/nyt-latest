@@ -1,3 +1,7 @@
+**China’s Tariffs on U.S. Agricultural Products Take Effect**\
+`The action came in response to the higher levies on Chinese imports that President Trump announced last week.`\
+https://nytimes.com/2025/03/10/business/china-tariffs-us.html
+
 **Mark Carney Set to Lead Canada and Take On Trump**\
 `As President Trump threatens to make Canada the 51st state, the Liberal Party chose the former central banker to succeed Justin Trudeau as prime minister.`\
 https://nytimes.com/video/world/americas/100000010042137/canada-mark-carney-liberal-trump.html
