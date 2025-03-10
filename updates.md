@@ -1,3 +1,19 @@
+**Chargers agree to terms with CB Donte Jackson on low-risk, big-upside deal**\
+`The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
+https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
+
+**NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
+`Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket late on Monday after a postponed flight on Saturday.`\
+https://nytimes.com/2025/03/10/science/spacex-nasa-spherex-punch-launch.html
+
+**Arsenal investigating 'inappropriate comments' made towards Liverpool's Hinds**\
+`The fan was removed from the stadium and Hinds has thanked the club for their support.`\
+https://nytimes.com/athletic/6192088/2025/03/10/arsenal-liverpool-taylor-hinds-comments-investigate/
+
+**Delta Says Economic Worries Are Hurting Travel Demand**\
+`The airline lowered its financial forecast for the first quarter as economic anxiety hurts demand for tickets.`\
+https://nytimes.com/2025/03/10/business/delta-airlines-economy-first-quarter.html
+
 **Browns free-agency tracker: Cleveland acquires QB Kenny Pickett in trade with Eagles**\
 `Analyzing all of Cleveland's moves entering the new league year. `\
 https://nytimes.com/athletic/6188731/2025/03/10/browns-free-agency-tracker-signings-trades/
