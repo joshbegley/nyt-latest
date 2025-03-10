@@ -1,3 +1,16 @@
+**The Athletic FC: Inside fake shirt industry, Arsenal's news sporting director**\
+`Today in TAFC: Inside the £200m fake shirt industry, Manchester United protests, Arsenal's new sporting director, flag-planting in Belgium.`\
+https://nytimes.com/athletic/6190166/2025/03/10/inside-fake-shirt-industry-arsenals-news-sporting-director-man-utd-fan-protests/
+
+**Coco Gauff faces Maria Sakkari in a tale of two Olympic flag-bearers and one lost dream**\
+`Maria Sakkari and Coco Gauff meet in a repeat of last year's Indian Wells epic, mirror images in more ways than one.`\
+https://nytimes.com/athletic/6189617/2025/03/10/olympic-flagbearer-gauff-sakkari-greece-indian-wells/
+
+**The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
+`Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
+`\
+https://nytimes.com/athletic/6190248/2025/03/10/champions-league-round-of-16-tuesday-betting-tips-predictions/
+
 **With Rudy Gobert back, the Timberwolves look ready to go on a run**\
 `After missing 10 games with a back injury, Gobert showed his value to streaking Minnesota in Sunday's win over the Spurs.`\
 https://nytimes.com/athletic/6189319/2025/03/10/rudy-gobert-timberwolves-return-spurs/

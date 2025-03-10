@@ -1,3 +1,11 @@
+**Iran Signals Openness to Limited Nuclear Talks With U.S.**\
+`Iran’s U.N. mission said it would be willing to discuss its nuclear program if talks were restricted to military concerns, after its supreme leader appeared to reject President Trump’s offer to start discussions.`\
+https://nytimes.com/2025/03/10/world/europe/iran-nuclear-trump-us.html
+
+**Arsenal deployed a makeshift striker against Man Utd - what they needed was a false nine**\
+`More unpredictability and movement was the order of the day against a United defence who are prone to getting dragged around`\
+https://nytimes.com/athletic/6190088/2025/03/10/arsenal-merino-makeshift-striker-false-nine/
+
 **The Athletic FC: Inside fake shirt industry, Arsenal's news sporting director**\
 `Today in TAFC: Inside the £200m fake shirt industry, Manchester United protests, Arsenal's new sporting director, flag-planting in Belgium.`\
 https://nytimes.com/athletic/6190166/2025/03/10/inside-fake-shirt-industry-arsenals-news-sporting-director-man-utd-fan-protests/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6189304/2025/03/10/mets-juan-soto-culture/
 **Forest lose £750k fine appeal for ‘irresponsible’ Attwell social media post**\
 `Forest’s lack of “genuine apology” and “genuine remorse” for the post, which was “ill-chosen and irresponsible”, had been noted.`\
 https://nytimes.com/athletic/6190151/2025/03/10/nottingham-forest-fine-premier-league-appeal/
-
-**Inside the Mikko Rantanen sweepstakes and an Avalanche-Stars arms race on a playoff collision course**\
-`With a likely Stars-Avalanche first round in the cards, GMs Jill Nill and Chris MacFarland spoke to The Athletic about their deadline moves.`\
-https://nytimes.com/athletic/6188635/2025/03/10/nhl-trade-deadline-mikko-rantanen-avalanche-stars/
-
-**Buckley: Red Sox needs more of Triston Casas (and less)**\
-`If Casas builds on his 2023 success and, yes, keeps on being Cases, the Sox will be a better team. But he might want to workshop his topics.`\
-https://nytimes.com/athletic/6189159/2025/03/10/boston-red-sox-triston-casas/
 

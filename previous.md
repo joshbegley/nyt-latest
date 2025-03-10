@@ -1,3 +1,16 @@
+**The Athletic FC: Inside fake shirt industry, Arsenal's news sporting director**\
+`Today in TAFC: Inside the £200m fake shirt industry, Manchester United protests, Arsenal's new sporting director, flag-planting in Belgium.`\
+https://nytimes.com/athletic/6190166/2025/03/10/inside-fake-shirt-industry-arsenals-news-sporting-director-man-utd-fan-protests/
+
+**Coco Gauff faces Maria Sakkari in a tale of two Olympic flag-bearers and one lost dream**\
+`Maria Sakkari and Coco Gauff meet in a repeat of last year's Indian Wells epic, mirror images in more ways than one.`\
+https://nytimes.com/athletic/6189617/2025/03/10/olympic-flagbearer-gauff-sakkari-greece-indian-wells/
+
+**The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
+`Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
+`\
+https://nytimes.com/athletic/6190248/2025/03/10/champions-league-round-of-16-tuesday-betting-tips-predictions/
+
 **With Rudy Gobert back, the Timberwolves look ready to go on a run**\
 `After missing 10 games with a back injury, Gobert showed his value to streaking Minnesota in Sunday's win over the Spurs.`\
 https://nytimes.com/athletic/6189319/2025/03/10/rudy-gobert-timberwolves-return-spurs/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6188635/2025/03/10/nhl-trade-deadline-mikko-rantane
 **Buckley: Red Sox needs more of Triston Casas (and less)**\
 `If Casas builds on his 2023 success and, yes, keeps on being Cases, the Sox will be a better team. But he might want to workshop his topics.`\
 https://nytimes.com/athletic/6189159/2025/03/10/boston-red-sox-triston-casas/
-
-**Luka Dončić's return to Dallas is the only drama left in this disastrous Mavericks season**\
-`The Mavericks have lost five games in a row and seven of their last eight — and their injury problems are only getting worse.`\
-https://nytimes.com/athletic/6189388/2025/03/10/luka-doncics-april-9-return-the-only-drama-left-in-disastrous-mavericks-season/
-
-**Scouting the MLB Draft: Notes on Luke Stevenson, Matt Scott, Rintaro Sasaki and more**\
-`Stevenson homered twice on Saturday, showing off his grade 70 power. Can he get a team to believe in him as a catcher?`\
-https://nytimes.com/athletic/6189489/2025/03/10/mlb-draft-2025-luke-stevenson-matt-scott-keith-law/
-
-**Should Yankees trade for Dylan Cease or Sandy Alcantara with Gerrit Cole's uncertainty? Mailbag**\
-`Why aren't the Yankees letting Jasson Domínguez play center field? Will they add J.D. Martinez? We answer those questions and more.`\
-https://nytimes.com/athletic/6188994/2025/03/10/yankees-gerrit-cole-injury-dylan-cease-sandy-alcantara-trade/
 
