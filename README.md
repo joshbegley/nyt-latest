@@ -1,6 +1,18 @@
+**QB Zach Wilson agrees to deal with Miami Dolphins: Sources**\
+`The No. 2 pick in the 2021 NFL Draft will likely serve as Tua Tagovailoa's backup quarterback for the 2025 season. `\
+https://nytimes.com/athletic/6192244/2025/03/10/zach-wilson-dolphins-quarterback-free-agency-2025/
+
+**Cowboys agree to terms with RB Javonte Williams on 1-year deal: Source**\
+`Williams spent the past four seasons with the Broncos and was the fourth-ranked running back on The Athletic's top 150 free-agent list. `\
+https://nytimes.com/athletic/6180864/2025/03/10/javonte-williams-free-agency-signing-2025-cowboys/
+
+**Justice Dept. Official Says She Was Fired After Opposing Restoring Mel Gibson’s Gun Rights**\
+`Elizabeth G. Oyer, the former pardon attorney, said that she was not told why she was dismissed, but that as events unfolded she feared they might lead to her firing.`\
+https://nytimes.com/2025/03/10/us/politics/justice-department-mel-gibson.html
+
 **The Senate confirmed Lori Chavez-DeRemer, a former congresswoman with a pro-union record, as secretary of labor.**\
-`By Rebecca Davis O’Brien`\
-https://nytimes.com/live/2025/03/10/us/president-trump-news/the-senate-confirmed-lori-chavez-deremer-a-former-congresswoman-with-a-pro-union-record-as-secretary-of-labor
+`While in Congress, Ms. Chavez-DeRemer was a co-sponsor of the Protecting the Right to Organize Act, known as the PRO Act, a sweeping labor bill that sought to strengthen collective bargaining rights.`\
+https://nytimes.com/2025/03/10/us/politics/lori-chavez-deremer-labor-secretary.html
 
 **Patriots 2025 free agency tracker: New England lands big fish in DT Milton Williams**\
 `New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127M in cap space in free agency?`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6189773/2025/03/10/how-yankees-react-gerrit-cole-su
 **Laremy Tunsil trade grades: Commanders stay aggressive, but why are Texans moving on?**\
 `The Commanders are aggressively trying to maximize the competitive window created by Jayden Daniels and his rookie contract.`\
 https://nytimes.com/athletic/6191868/2025/03/10/laremy-tunsil-trade-grades-commanders-texans/
-
-**This Is the Greatest Threat to Free Speech Since the Red Scare**\
-`Mahmoud Khalil’s detention is a frightening sign of an authoritarian slide.`\
-https://nytimes.com/2025/03/10/opinion/mahmoud-khalil-free-speech.html
-
-**Fire Damages 4 Tesla Cybertrucks in Seattle**\
-`Federal and local law enforcement authorities are investigating what caused the Sunday night fire, which came after a series of attacks against Tesla in rebuke of its chief executive, Elon Musk.`\
-https://nytimes.com/2025/03/10/us/tesla-cybertruck-fire-seattle.html
-
-**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
-`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
-https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
 
