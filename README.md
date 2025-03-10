@@ -1,3 +1,23 @@
+**Manchester United's new solution for slow home starts? Swap ends**\
+`Ruben Amorim has been desperate to cure the team's poor starts to games and has adopted an unusual tactic`\
+https://nytimes.com/athletic/6191045/2025/03/10/manchester-united-old-trafford-swap-ends/
+
+**Man City part ways with head coach Taylor**\
+`Former City coach Nick Cushing will take over for the remainder of the season on an interim basis.`\
+https://nytimes.com/athletic/6190126/2025/03/10/gareth-taylor-manchester-city-leaves/
+
+**Ontario Hits Michigan, Minnesota and New York With Energy Tariffs**\
+`Premier Doug Ford warned that he was prepared to cut off power exports to the three states entirely as long as President Trump’s tariff threats remain.`\
+https://nytimes.com/2025/03/10/us/politics/canada-tariffs-retaliation.html
+
+**Chiefs bringing in Jaylon Moore to play left tackle: Why they think he's ready**\
+`At age 27, Moore will become a first-time starter and have the role of protecting the blind side of Patrick Mahomes.`\
+https://nytimes.com/athletic/6190647/2025/03/10/jaylon-moore-chiefs-nfl-free-agency/
+
+**Dallas Cowboys free agency tracker: Jourdan Lewis departure makes CB a bigger priority**\
+`Follow here for all the Cowboys free-agent news on players coming and going. `\
+https://nytimes.com/athletic/6180524/2025/03/10/dallas-cowboys-free-agency-tracker-2025/
+
 **Trump, With More Honey Than Vinegar, Cements an Iron Grip on Republicans**\
 `In his second term, President Trump is cultivating warm relationships with G.O.P. lawmakers — and using the implicit threat of ruining them if they stray — to keep them in line behind his agenda.`\
 https://nytimes.com/2025/03/10/us/politics/trump-republicans-congress.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6190741/2025/03/10/mark-carney-canada-prime-ministe
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/03/10/opinion/thepoint
-
-**Amazon Prime Begins Streaming ‘The Apprentice,’ Trump’s Star Vehicle**\
-`The company said it would release several seasons of the reality show showcasing Donald J. Trump before he turned to politics.`\
-https://nytimes.com/2025/03/10/business/media/amazon-the-apprentice-trump.html
-
-**Grading the good, the bad and the ugly from every key NFL free agency deal**\
-`Which players hit it big in free agency? Which teams got deals and who overpaid? We grade the most compelling transactions.`\
-https://nytimes.com/athletic/6190743/2025/03/10/nfl-free-agency-2025-grades/
-
-**For Musk and Rubio, Public Niceties After a Private Clash**\
-`Days after Secretary of State Marco Rubio and Elon Musk sparred at the White House, Mr. Rubio announced cuts to foreign aid that Mr. Musk had ordered.`\
-https://nytimes.com/2025/03/10/us/politics/musk-rubio-usaid-cuts.html
-
-**Alas, Clothes Can’t Compete With Video Games**\
-`A fashion show in Paris was staged against a backdrop of 200 people playing Fortnite together. It was a distraction, at best.`\
-https://nytimes.com/2025/03/10/style/coperni-review-fortnite.html
-
-**Jimmy Garoppolo, agrees to re-sign with Rams on 1-year deal: Sources**\
-`Garoppolo was the No. 10 quarterback on The Athletic’s updated top 150 free agents list.`\
-https://nytimes.com/athletic/6185173/2025/03/10/jimmy-garoppolo-deal-rams-nfl-free-agency-2025/
 
