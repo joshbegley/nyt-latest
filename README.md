@@ -1,3 +1,27 @@
+**Darius Slayton, Giants in agreement on new 3-year, $36 million deal: Source**\
+`In six seasons with the New York Giants, Slayton averaged 15.0 yards per reception.`\
+https://nytimes.com/athletic/6178807/2025/03/10/darius-slayton-free-agency-signing-2025-giants/
+
+**When It Comes to the Economy, Does Trump Have Musk’s Pain Tolerance?**\
+`Wall Street’s slide puts pressure on Musk and Trump, for different reasons.`\
+https://nytimes.com/2025/03/10/us/politics/trump-musks-markets-economy.html
+
+**Panthers' Aaron Ekblad suspended for failing drug test**\
+`Ekblad is the first NHL player in more than six years to be suspended for use of a performance-enhancing drug.`\
+https://nytimes.com/athletic/6192192/2025/03/10/panthers-aaron-ekblad-nhl-suspension/
+
+**What Yankees' past tells us about how they'll respond to Gerrit Cole nightmare**\
+`They Yankees will likely see if role players and youngsters can step up, then assess the trade market as they learn more about themselves.`\
+https://nytimes.com/athletic/6189773/2025/03/10/how-yankees-react-gerrit-cole-surgery/
+
+**Laremy Tunsil trade grades: Commanders stay aggressive, but why are Texans moving on?**\
+`The Commanders are aggressively trying to maximize the competitive window created by Jayden Daniels and his rookie contract.`\
+https://nytimes.com/athletic/6191868/2025/03/10/laremy-tunsil-trade-grades-commanders-texans/
+
+**This Is the Greatest Threat to Free Speech Since the Red Scare**\
+`Mahmoud Khalil’s detention is a frightening sign of an authoritarian slide.`\
+https://nytimes.com/2025/03/10/opinion/mahmoud-khalil-free-speech.html
+
 **Fire Damages 4 Tesla Cybertrucks in Seattle**\
 `Federal and local law enforcement authorities are investigating what caused the Sunday night fire, which came after a series of attacks against Tesla in rebuke of its chief executive, Elon Musk.`\
 https://nytimes.com/2025/03/10/us/tesla-cybertruck-fire-seattle.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-tripl
 **Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
 `Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
 https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
-
-**G.O.P. Spending Bill Would Force $1 Billion Cut to D.C. Budget**\
-`Republicans omitted a standard provision approving the District’s budget in a stopgap funding measure needed to avert a shutdown before the end of the week. The result would be a 16 percent cut.`\
-https://nytimes.com/2025/03/10/world/europe/spending-bill-government-shutdown-dc-budget-cuts.html
-
-**Eagles to trade Kenny Pickett to Browns in swap of backup quarterbacks: Source**\
-`Pickett will be the only healthy QB under contract for Cleveland, while Dorian Thompson-Robinson will battle to be Jalen Hurts' backup.`\
-https://nytimes.com/athletic/6192154/2025/03/10/eagles-browns-trade-kenny-pickett-dorian-thompson-robinson/
-
-**New Canadian Leader’s Balancing Act: Negotiate With and Fight Trump**\
-`Mark Carney will most likely be in power just a few weeks before a federal election is held. To win, he will try to convince Canadians he can take on, but also negotiate with, Trump.`\
-https://nytimes.com/2025/03/10/world/canada/mark-carney-trump.html
-
-**Yankees ace Gerrit Cole to undergo Tommy John surgery, miss all of 2025 season**\
-`It will now be at least a year until Cole gets his next chance to help earn a win for the Yankees.`\
-https://nytimes.com/athletic/6192009/2025/03/10/new-york-yankees-gerrit-cole-season-ending-surgery/
-
-**Chargers agree to terms with CB Donte Jackson on low-risk, potential-upside deal**\
-`The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
-https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
-
-**NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
-`Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket late on Monday after a postponed flight on Saturday.`\
-https://nytimes.com/2025/03/10/science/spacex-nasa-spherex-punch-launch.html
 
