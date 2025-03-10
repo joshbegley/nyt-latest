@@ -1,3 +1,15 @@
+**A Bad Day on Wall Street**\
+`Also, Rubio said Ukraine must cede territory in exchange for peace. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/10/briefing/stock-market-rubio-ukraine-meeting-new-leader-canada.html
+
+**Defendant in U.S.S. Cole Bombing Case Signs Plea Offer**\
+`The Saudi prisoner agreed to the settlement to avoid a death-penalty trial, his lawyer said, but it has yet to reach the defense secretary.`\
+https://nytimes.com/2025/03/10/us/politics/uss-cole-case-plea.html
+
+**Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor.’**\
+`Senator Mark Kelly, an Arizona Democrat and former astronaut, visited Ukraine over the weekend and said the United States could not give up on the people there as they fight Russia. Musk responded on X.`\
+https://nytimes.com/2025/03/10/us/politics/musk-mark-kelly-traitor.html
+
 **Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor’**\
 `Senator Mark Kelly, an Arizona Democrat and former astronaut, visited Ukraine over the weekend and said the United States could not give up on the people there as they fight Russia. Musk responded on X.`\
 https://nytimes.com/2025/03/10/us/politics/musk-mark-kelly-traitor.html
