@@ -1,3 +1,19 @@
+**Ratcliffe’s comments on Man Utd’s squad, stadium decision, money problems and more - analysed**\
+`The Manchester United co-owner has given a series of interviews - but what did we learn from what he had to say?`\
+https://nytimes.com/athletic/6191213/2025/03/10/jim-ratcliffe-interview-analysed/
+
+**Malcolm Koonce returning to Raiders on 1-year deal: Source**\
+`Koonce was unable to capitalize on a career year in 2023 due to injury. `\
+https://nytimes.com/athletic/6176422/2025/03/10/malcolm-koonce-free-agent-nfl-raiders/
+
+**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs out, Jeremy Chinn in**\
+`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
+
+**Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
+`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
+
 **Bears grab Grady Jarrett: How the veteran tackle can help the defensive line**\
 `The Bears' investment in the trenches continued with Jarrett, a two-time Pro Bowler who can be a leader up front.`\
 https://nytimes.com/athletic/6191873/2025/03/10/bears-grady-jarrett-defensive-line/
