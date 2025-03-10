@@ -1,3 +1,11 @@
+**Juan Soto enlivens Mets culture, helps set tone: 'I like how at peace he is'**\
+`Brandon Nimmo said of Soto: "It’s something you see from the greats like Michael Jordan and Tiger Woods. They want to beat you."`\
+https://nytimes.com/athletic/6189304/2025/03/10/mets-juan-soto-culture/
+
+**Forest lose £750k fine appeal for ‘irresponsible’ Attwell social media post**\
+`Forest’s lack of “genuine apology” and “genuine remorse” for the post, which was “ill-chosen and irresponsible”, had been noted.`\
+https://nytimes.com/athletic/6190151/2025/03/10/nottingham-forest-fine-premier-league-appeal/
+
 **Inside the Mikko Rantanen sweepstakes and an Avalanche-Stars arms race on a playoff collision course**\
 `With a likely Stars-Avalanche first round in the cards, GMs Jill Nill and Chris MacFarland spoke to The Athletic about their deadline moves.`\
 https://nytimes.com/athletic/6188635/2025/03/10/nhl-trade-deadline-mikko-rantanen-avalanche-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188016/2025/03/10/florian-wirtz-injury-leverkusen/
 **Cutting Medicaid?**\
 `How Republicans could change the program.`\
 https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
-
-**Steelers free-agency news, grades: DK Metcalf is on board. Now what at quarterback?**\
-`We're tracking every Steelers move in free agency, from DK Metcalf to the quarterback situation and much, much more.`\
-https://nytimes.com/athletic/6185212/2025/03/10/steelers-free-agent-tracker-news-grades-2025/
-
-**Finding this season's deep league breakout hitters using last year's fantasy baseball breakthroughs**\
-`Based on what we learned in 2024, let's see if we can find some hitters who could find pathways to excellence in 2025. `\
-https://nytimes.com/athletic/6149894/2025/03/10/fantasy-baseball-breakout-hitters-deep-leagues/
 
