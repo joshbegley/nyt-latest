@@ -1,3 +1,15 @@
+**Panthers, DT Tershawn Wharton agree to 3-year, $45 million deal: Sources**\
+`Tershawn Wharton finished last season with the Chiefs strong. He had five tackles in the Super Bowl loss to the Eagles.`\
+https://nytimes.com/athletic/6192329/2025/03/10/tershawn-wharton-panthers-free-agency-signing-2025/
+
+**Vikings agree to deal with C Ryan Kelly: What he means for Minnesota's focus on trenches**\
+`The Vikings have wanted to revamp the interior of their offensive line this offseason, and the first domino fell Monday evening.`\
+https://nytimes.com/athletic/6192382/2025/03/10/ryan-kelly-free-agency-signing-2025-vikings/
+
+**Chargers bringing back DT Teair Tart: Why his return felt so necessary**\
+`After losing Poona Ford to the Rams in free agency, the Chargers needed to retain another key member of the defensive tackle rotation.`\
+https://nytimes.com/athletic/6192269/2025/03/10/teair-tart-chargers-free-agency-signing-2025/
+
 **Jessie Mahaffey, Survivor of Pearl Harbor Attack, Dies at 102**\
 `He was cleaning the deck of the U.S.S. Oklahoma when it capsized under Japanese torpedo fire. Less than a year later, he survived the sinking of another Navy ship in the Pacific.`\
 https://nytimes.com/2025/03/10/us/jessie-mahaffey-dead.html
@@ -22,19 +34,7 @@ https://nytimes.com/2025/03/10/us/politics/lori-chavez-deremer-labor-secretary.h
 `New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127M in cap space in free agency?`\
 https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
 
-**Darius Slayton, Giants in agreement on new 3-year, $36 million deal: Source**\
+**Darius Slayton, Giants reunite: Why WR is a perfect fit next to Malik Nabers**\
 `Slayton will fit like a glove as the No. 2 wide receiver opposite rookie phenom Malik Nabers.`\
 https://nytimes.com/athletic/6178807/2025/03/10/darius-slayton-free-agency-signing-2025-giants/
-
-**When It Comes to the Economy, Does Trump Have Musk’s Pain Tolerance?**\
-`Wall Street’s slide puts pressure on Musk and Trump, for different reasons.`\
-https://nytimes.com/2025/03/10/us/politics/trump-musks-markets-economy.html
-
-**Panthers' Aaron Ekblad suspended for failing drug test**\
-`Ekblad is the first NHL player in more than six years to be suspended for use of a performance-enhancing drug.`\
-https://nytimes.com/athletic/6192192/2025/03/10/panthers-aaron-ekblad-nhl-suspension/
-
-**What Yankees' past tells us about how they'll respond to Gerrit Cole nightmare**\
-`They Yankees will likely see if role players and youngsters can step up, then assess the trade market as they learn more about themselves.`\
-https://nytimes.com/athletic/6189773/2025/03/10/how-yankees-react-gerrit-cole-surgery/
 
