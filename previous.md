@@ -1,40 +1,40 @@
-**Commanders land LT Laremy Tunsil in blockbuster trade with Texans: Source**\
-`The five-time Pro Bowl tackle lands in Commanders, marking another big-name trade for Washington.`\
-https://nytimes.com/athletic/6191852/2025/03/10/commanders-trade-texans-laremy-tunsil-nfl/
+**NASA Eliminates Chief Scientist and Other Jobs at Its Headquarters**\
+`About 19 positions will be cut, including those in offices focused on technology policy and diversity, equity and inclusion.`\
+https://nytimes.com/2025/03/10/science/nasa-chief-scientist-fired-katherine-calvin.html
 
-**Trump Has Said ‘No Exceptions’ to His Tariffs. Will That Last?**\
-`His administration has acknowledged that exceptions undercut the power of tariffs, but it seems hard for the president to resist making deals.`\
-https://nytimes.com/2025/03/10/business/economy/trump-tariffs-exceptions.html
+**Commanders free-agency tracker: Washington trades for 5-time Pro Bowl LT Laremy Tunsil**\
+`Analyzing all of Washington's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188862/2025/03/10/commanders-free-agency-tracker-signings-trades/
 
-**Bills, Joshua Palmer agree to 3-year deal: Josh Allen gets a new target**\
-`The Bills still have room for another receiver to meet their needs.`\
-https://nytimes.com/athletic/6191733/2025/03/10/joshua-palmer-bills-free-agency-signing-2025/
+**Raiders to add S Jeremy Chinn after losing Tre'von Moehrig: Source**\
+`The Raiders agreed to terms with Chinn, a veteran safety who can help fill the void left by the departure of Moehrig at half the price.`\
+https://nytimes.com/athletic/6191876/2025/03/10/jeremy-chinn-free-agency-signing-2025-raiders/
 
-**Packers agree to terms with free agent, ex-49ers guard Aaron Banks**\
-`Green Bay looks to beef up protection for quarterback Jordan Love.`\
-https://nytimes.com/athletic/6191764/2025/03/10/packers-aaron-banks-free-agent/
+**Trump Administration Seeks to Expel a Green-Card Holder Over Student Protests**\
+`Immigration officers arrested a Columbia University graduate for helping lead campus protests against Israel’s treatment of Palestinians. President Trump said the case was “the first arrest of many to come.”`\
+https://nytimes.com/2025/03/10/us/trump-rubio-khalil-columbia-student-protests.html
 
-**Pope No Longer in Immediate Danger From Illnesses, Vatican Says**\
-`Though his condition had improved, he will remain in the hospital for further treatment, the Vatican said in a statement.`\
-https://nytimes.com/2025/03/10/world/europe/pope-improved-pneumonia-vatican.html
+**Supreme Court Rejects an Effort to Block States From Suing Oil Giants**\
+`The justices declined to hear unusual arguments from Republican-led states that sought to end lawsuits against energy companies over their role in global warming.`\
+https://nytimes.com/2025/03/10/climate/supreme-court-climate-lawsuits-states.html
 
-**Washington Post Columnist Resigns After Paper Spiked Criticism of Jeff Bezos**\
-`Ruth Marcus, a longtime columnist at The Post, said its C.E.O. refused to run her critique of the new focus for the paper’s opinion section.`\
-https://nytimes.com/2025/03/10/business/media/washington-post-ruth-marcus-resigns.html
+**Striking Stage Crews Reach Agreement With Atlantic Theater**\
+`The deal will be scrutinized by New York’s other Off Broadway theaters, which the International Alliance of Theatrical Stage Employees has been working to unionize.`\
+https://nytimes.com/2025/03/10/theater/atlantic-theater-strike-stage-crew.html
 
-**What We Know About the Month-Old Migrant Mission at Guantánamo Bay**\
-`President Trump said the base would house as many as 30,000 migrants awaiting deportation. But construction of a tent city was halted weeks ago.`\
-https://nytimes.com/2025/03/10/us/politics/deportations-migrants-guantanamo.html
+**Mutated DNA Restored to Normal in Gene Therapy Advance**\
+`The small study in patients with a rare disorder that causes liver and lung damage showed the potential for precisely targeted infusions.`\
+https://nytimes.com/2025/03/10/health/gene-editing-beam-mutation-dna.html
 
-**D.C. Mayor Removes Black Lives Matter Mural to Save City Funding**\
-`Crews began removing the Black Lives Matter mural in Washington on Monday after a Republican lawmaker threatened to withhold millions in federal funds from the city unless the mural was removed and the plaza renamed.`\
-https://nytimes.com/video/us/politics/100000010043015/blm-plaza-removal.html
+**49ers land their No. 2 tight end, agree to 3-year deal with Luke Farrell**\
+`Farrell's receiving numbers aren't prolific but the 49ers seem to believe they've upgraded behind George Kittle with a strong blocker.`\
+https://nytimes.com/athletic/6191934/2025/03/10/49ers-luke-farrell-free-agent/
 
-**‘All Nighter’ Review: No Sleep but Plenty of Gripes**\
-`A new play about a group of college students putting in one last study session evokes recent stories about young women, but without the well-rounded characters.`\
-https://nytimes.com/2025/03/10/theater/all-nighter-play-review-lester.html
+**Bears grab Grady Jarrett: How the veteran tackle can help the defensive line**\
+`The Bears' investment in the trenches continued with Jarrett, a two-time Pro Bowler who can be a leader up front.`\
+https://nytimes.com/athletic/6191873/2025/03/10/bears-grady-jarrett-defensive-line/
 
-**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig out, Jeremy Chinn in**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
+**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; Aaron Banks to Green Bay**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
 
