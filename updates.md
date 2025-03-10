@@ -1,3 +1,19 @@
+**What I'm hearing about the Penguins' trade deadline, future**\
+`The Penguins will be a very interesting team to monitor this summer. `\
+https://nytimes.com/athletic/6190363/2025/03/10/penguins-nhl-trade-deadline-free-agency/
+
+**Fantasy trends and hidden gems: Wyatt Johnston watch, more NHL trade deadline fallout**\
+`Shayna Goldman looks at 10 players, starting with Wyatt Johnston, who find themselves in new situations following the NHL trade deadline.`\
+https://nytimes.com/athletic/6188855/2025/03/10/fantasy-trends-hidden-gems-wyatt-johnston-trade-deadline-fallout/
+
+**Tennis Briefing: Yosuke Watanuki steals the show at Indian Wells with shots and sportsmanship**\
+`The Japanese qualifier's run to the fourth round has featured exquisite shotmaking and sporting behavior.`\
+https://nytimes.com/athletic/6189216/2025/03/10/yosuke-watanuki-tennis-indian-wells-results/
+
+**Listen: Does Nuno have Pep Guardiola's number?**\
+`The Totally Football Show team discuss the common factor in wins for Nottingham Forest, Wolves and Spurs against City`\
+https://nytimes.com/athletic/6190229/2025/03/10/totally-football-show-nottingham-forest-man-city/
+
 **Trump’s Attacks Give Zelensky a Bit of a Reprieve at Home**\
 `The Ukrainian leader’s approval rating is rising, and critics have backed off after he was humiliated and criticized by President Trump, who has also demanded new elections in Ukraine.`\
 https://nytimes.com/2025/03/10/world/europe/trump-zelensky-ukraine-popularity.html
