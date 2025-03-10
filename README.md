@@ -1,11 +1,3 @@
-**A Facebook Insider’s Exposé Alleges Bad Behavior at the Top**\
-`“Careless People,” a memoir by a former Facebook executive, portrays feckless company leaders cozying up to authoritarian regimes.`\
-https://nytimes.com/2025/03/10/books/review/careless-people-sarah-wynn-williams.html
-
-**Would Trump Risk a Recession?**\
-`The president still believes that his protectionist trade policies will be “great for us” in the long run, but won’t rule out short-term economic pain.`\
-https://nytimes.com/2025/03/10/business/dealbook/trump-recession-risk.html
-
 **New York Jets 2025 free agency tracker: Sherwood retained in new regime's first big move**\
 `With a new GM in Darren Mougey and coach in Aaron Glenn, the Jets move on to the post-Aaron Rodgers era.`\
 https://nytimes.com/athletic/6189594/2025/03/10/new-york-jets-2025-free-agency-tracker/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6188926/2025/03/10/alabama-football-spring-practice
 **Giants Mailbagg, part 1: Even without Corbin Burnes, the pitching looks pretty good**\
 `Topics covered include whether the Giants projected win totals are light, how the rotation is shaping up and more.`\
 https://nytimes.com/athletic/6188934/2025/03/10/sf-giants-mailbag-rotation-outlook/
+
+**Twins' bullpen has room for Louie Varland after Justin Topa, Michael Tonkin injuries**\
+`Varland could become the latest in a long line of "failed" starters throughout Twins history to turn into impact relievers.`\
+https://nytimes.com/athletic/6179466/2025/03/10/minnesota-twins-bullpen-louie-varland/
+
+**Bills offseason tracker: Where will Buffalo's cap space be spent in a pivotal offseason?**\
+`The Bills got a number of important contracts done before free agency opens.`\
+https://nytimes.com/athletic/6184048/2025/03/10/bills-free-agency-offseason-tracker/
 
