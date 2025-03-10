@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
 https://nytimes.com/athletic/6189406/2025/03/09/dk-metcalf-trade-grades-steelers-seahawks/
 
 **MLB commissioner, several owners pressuring Stu Sternberg to sell Rays as buyers eye team**\
-`The owners of the San Francisco 49ers are among the groups interested in buying the Rays. `\
+`Members of the family that owns the San Francisco 49ers are among the groups interested in buying the Rays. `\
 https://nytimes.com/athletic/6189456/2025/03/09/commissioner-owners-pressure-rays-sale-mlb/
 
 **Lauren Betts, UCLA hold on to win Big Ten tournament championship**\

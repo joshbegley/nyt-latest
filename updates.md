@@ -1,3 +1,11 @@
+**‘The White Lotus’ Season 3, Episode 4 Recap: Party Time**\
+`The gal pals finally moved out of their hermetic bubble this week in search of a little fun. The results were questionable.`\
+https://nytimes.com/2025/03/09/arts/television/the-white-lotus-recap-season-3-episode-4.html
+
+**Porous defense, failure to capitalize on momentum and more: Rangers takeaways**\
+`The Rangers scored twice on one penalty kill but struggled to make the most of their chances against Columbus.`\
+https://nytimes.com/athletic/6189573/2025/03/09/rangers-porous-defense-penalty-kill-blue-jackets/
+
 **Shai Gilgeous-Alexander, Thunder show they have an extra gear in win over Nuggets**\
 `On a big stage, OKC showed a nationally televised audience why it's been dominant and why that might pay off with an NBA title.`\
 https://nytimes.com/athletic/6188923/2025/03/09/thunder-nuggets-shai-gilgeous-alexander-nikola-jokic/
