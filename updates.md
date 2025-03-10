@@ -1,3 +1,11 @@
+**Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
+`A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
+https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030-2030/
+
+**Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
+`The 11-year veteran and three-time All-Pro wide receiver was the No. 4-ranked free agent on The Athletic's top 150 list. `\
+https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
+
 **Bills, Josh Allen agree on six-year, $330 million extension: Source**\
 `A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
 https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030-2030/
