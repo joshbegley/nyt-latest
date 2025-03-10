@@ -1,3 +1,7 @@
+**Zelensky Is Set to Meet With Saudi Crown Prince Before U.S. Talks**\
+`The Ukrainian president is trying to secure a favorable deal to end his country’s war with Russia. Saudi Arabia has emerged as a host to talks that the Trump administration is pursuing with Moscow and Kyiv.`\
+https://nytimes.com/2025/03/10/us/politics/zelensky-saudi-arabia-prince-ukraine-meeting.html
+
 **Mo Vaughn, fearsome slugger named in Mitchell Report, admits to using HGH: Exclusive**\
 `The Mitchell Report offered evidence that Vaughn made three separate purchases of HGH in 2001.`\
 https://nytimes.com/athletic/6188748/2025/03/10/mo-vaughn-hgh-mitchell-report/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/fashion/tie-women-neckties.html
 **Giants free agency preview: Signs point to Aaron Rodgers as top target**\
 `Will Giants GM Joe Schoen continue to show restraint in free agency, or will being on the hot seat change his approach?`\
 https://nytimes.com/athletic/6188836/2025/03/10/giants-free-agency-preview-aaron-rodgers-quarterback/
-
-**Who Likes Tariffs? Some U.S. Industries Are Eager for Them.**\
-`Concern about the cost of materials has tempered business enthusiasm about taxing imports. But steel and aluminum makers say they welcome the help.`\
-https://nytimes.com/2025/03/10/business/economy/trump-tariff-supporters.html
 
