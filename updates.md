@@ -1,3 +1,7 @@
+**Josh Sweat agrees to terms with Cardinals: Source**\
+`The veteran edge rusher is coming off a big performance in the Eagles' Super Bowl LIX win over the Chiefs in which he had 2.5 sacks.`\
+https://nytimes.com/athletic/6172731/2025/03/10/josh-sweat-cardinals-free-agency/
+
 **Accused Sex Traffickers Receive Warm Welcome From a Trump Ally**\
 `Dana White of the U.F.C. greeted Andrew Tate and his brother at an event, highlighting a divide among conservatives.`\
 https://nytimes.com/2025/03/10/style/andrew-tate-dana-white-ufc-trump.html

@@ -1,3 +1,7 @@
+**Josh Sweat agrees to terms with Cardinals: Source**\
+`The veteran edge rusher is coming off a big performance in the Eagles' Super Bowl LIX win over the Chiefs in which he had 2.5 sacks.`\
+https://nytimes.com/athletic/6172731/2025/03/10/josh-sweat-cardinals-free-agency/
+
 **Accused Sex Traffickers Receive Warm Welcome From a Trump Ally**\
 `Dana White of the U.F.C. greeted Andrew Tate and his brother at an event, highlighting a divide among conservatives.`\
 https://nytimes.com/2025/03/10/style/andrew-tate-dana-white-ufc-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6190389/2025/03/10/ratcliffe-manchester-united-play
 **Vikings 2025 free agency tracker: Still looking to improve in the trenches**\
 `The Vikings roster has plenty of needs: the interior O-line, interior D-line, cornerback and running back. Expect the team to be aggressive.`\
 https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
-
-**Indianapolis Colts 2025 free agency tracker: Will Chris Ballard make a splash signing?**\
-`As the Colts look to rebound from a disappointing 2024, follow along here for all of their additions and subtractions during free agency. `\
-https://nytimes.com/athletic/6174768/2025/03/10/colts-nfl-free-agency-tracker-2025/
 
