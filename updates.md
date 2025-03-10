@@ -1,3 +1,7 @@
+**Bills, Josh Allen agree on six-year, $330 million extension: Source**\
+`A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
+https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030-2030/
+
 **Geoff Nicholson, Author of Darkly Comic Novels, Dies at 71**\
 `In more than a dozen books, he created characters who were obsessed with maps, urban walking, sexual fetishes and Volkswagen Beetles.`\
 https://nytimes.com/2025/03/09/books/geoff-nicholson-dead.html
