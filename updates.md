@@ -1,3 +1,7 @@
+**Adam Fantilli's second career hat trick paces Blue Jackets' big win over Rangers**\
+`The Blue Jackets reclaimed the top wild-card spot in the East thanks to an offensive explosion, looking back to their usual selves.`\
+https://nytimes.com/athletic/6189568/2025/03/09/blue-jackets-adam-fantilli-hat-trick-rangers/
+
 **Five teams are in the NCAA Tournament. Who will join them in March Madness?**\
 `Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
 https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/

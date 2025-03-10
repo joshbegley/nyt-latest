@@ -1,3 +1,7 @@
+**Adam Fantilli's second career hat trick paces Blue Jackets' big win over Rangers**\
+`The Blue Jackets reclaimed the top wild-card spot in the East thanks to an offensive explosion, looking back to their usual selves.`\
+https://nytimes.com/athletic/6189568/2025/03/09/blue-jackets-adam-fantilli-hat-trick-rangers/
+
 **No, the Seahawks aren’t tanking, or even rebuilding. But contending just became much harder**\
 `Yes, the Seahawks still intend to compete for a championship in 2025. And yes, the path to get there is much narrower.`\
 https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seahawks-tanking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-pengu
 **Falcons extend left tackle Jake Matthews with 2-year deal: Source**\
 `Matthews, 33, was set to count $21.7 million against the 2025 cap, but the extension will diminish his cap hit ahead of free agency.`\
 https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
-
-**DK Metcalf trade grades: Steelers add game-changing talent; Seahawks' overhaul continues**\
-`The Steelers finally landed the star WR they've been hunting for. As for Seattle, this quickly turned into an offseason of change. `\
-https://nytimes.com/athletic/6189406/2025/03/09/dk-metcalf-trade-grades-steelers-seahawks/
 
