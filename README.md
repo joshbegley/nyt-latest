@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6124771/2025/03/10/dodgers-dave-roberts-contract-re
 `A number of the squad have come in for criticism during a run of form which has left the side 14th in the Premier League.`\
 https://nytimes.com/athletic/6190389/2025/03/10/ratcliffe-manchester-united-players-overpaid/
 
+**Vikings 2025 free agency tracker: Still looking to improve in the trenches**\
+`The Vikings roster has plenty of needs: the interior O-line, interior D-line, cornerback and running back. Expect the team to be aggressive.`\
+https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
+
 **Indianapolis Colts 2025 free agency tracker: Will Chris Ballard make a splash signing?**\
 `As the Colts look to rebound from a disappointing 2024, follow along here for all of their additions and subtractions during free agency. `\
 https://nytimes.com/athletic/6174768/2025/03/10/colts-nfl-free-agency-tracker-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6191433/2025/03/10/poona-ford-rams-free-agency-sign
 **Players like Betts add roster flexibility and impact draft strategy in fantasy baseball**\
 `Scott Engel's crash course on players who qualify at multiple positions and how they impact draft-day strategy and roster construction. `\
 https://nytimes.com/athletic/6190586/2025/03/10/fantasy-baseball-2025-mookie-betts-multi-positional-players/
-
-**‘Anchors, Under Your Desks!’: Tornado Hits Orlando TV Station**\
-`Crews at the Fox 35 station were on the air sharing updates about tornado warnings for Seminole and Volusia counties when one struck their news studio on Monday morning.`\
-https://nytimes.com/2025/03/10/us/florida-tornado-orlando-tv-station.html
 
