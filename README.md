@@ -1,4 +1,4 @@
-**The Briefing: Real Madrid 2 Rayo 1 - Mbappe and Vinicius find some bite, and Tchouameni makes his mark**\
+**The Briefing: Real Madrid 2 Rayo Vallecano 1 - Mbappe and Vinicius find some bite, Tchouameni makes his mark**\
 `Carlo Ancelotti's side endured a difficult second half but took reassurance from David Alaba's performance at the back`\
 https://nytimes.com/athletic/6189117/2025/03/10/real-madrid-rayo-mbappe-vinicius-tchouameni-alaba/
 
