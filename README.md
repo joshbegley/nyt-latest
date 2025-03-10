@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 2 Rayo 1 - Mbappe and Vinicius find some bite, and Tchouameni makes his mark**\
+`Carlo Ancelotti's side endured a difficult second half but took reassurance from David Alaba's performance at the back`\
+https://nytimes.com/athletic/6189117/2025/03/10/real-madrid-rayo-mbappe-vinicius-tchouameni-alaba/
+
 **NFL free-agency tracker: See where Sam Darnold, Aaron Rodgers and the top 150 players land**\
 `Darnold will hit free agency as one of the top players available, while Rodgers might have to be patient. Track all the action right here.`\
 https://nytimes.com/athletic/6178324/2025/03/10/nfl-free-agent-tracker-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189949/2025/03/10/kawhi-leonard-ot-buzzer-beater-k
 **Manchester United lack confidence - but courage still brings the best out of them**\
 `Ruben Amorim's side offered glimpses of their capabilities against Arsenal but were at their best when being brave`\
 https://nytimes.com/athletic/6188378/2025/03/10/manchester-united-amorim-arsenal-courage-dalot/
-
-**Word of the Day: obstinacy**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/10/learning/word-of-the-day-obstinacy.html
 
