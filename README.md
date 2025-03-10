@@ -1,3 +1,19 @@
+**Panthers, Tre'von Moehrig agree to 3-year deal: Big addition to team's overhaul at safety**\
+`After locking up CB Jaycee Horn to a long-term deal, the Panthers added another piece to the secondary by adding the former Raiders safety.`\
+https://nytimes.com/athletic/6191550/2025/03/10/trevon-moehrig-panthers-free-agency-signing-2025/
+
+**Talanoa Hufanga in agreement with Broncos on 3-year deal: Sources**\
+`Hufanga, previously of the 49ers, has missed 17 games due to injury over the last two seasons after earning All-Pro honors in 2022.`\
+https://nytimes.com/athletic/6175378/2025/03/10/talanoa-hufanga-deal-broncos-nfl-free-agency-2025/
+
+**Gakpo available for CL second leg against 'complete' PSG, says Slot**\
+`The Dutch international missed the 1-0 first leg victory in Paris with a minor injury caused by him blocking a shot in training.`\
+https://nytimes.com/athletic/6191356/2025/03/10/arne-slot-cody-gakpo-liverpool-psg/
+
+**Bears free agency tracker: Drew Dalman latest addition to revamped O-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Dalman, then landed an edge rusher in former Colt Dayo Odeyingbo.`\
+https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
+
 **Dodgers ink manager Dave Roberts to record extension: Sources**\
 `Roberts joins Bruce Bochy and Terry Francona the only active managers with multiple World Series titles.`\
 https://nytimes.com/athletic/6124771/2025/03/10/dodgers-dave-roberts-contract-record/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6191524/2025/03/10/morgan-moses-free-agency-signing
 **Ukraine Must Cede Territory in Any Peace Deal, Rubio Says**\
 `The secretary of state, heading to talks with Ukrainian officials in Saudi Arabia, said future talks with Moscow will be needed to determine what Russia is willing to give up to end the war.`\
 https://nytimes.com/2025/03/10/us/politics/rubio-ukraine-russia.html
-
-**Jets, Justin Fields agree to 2-year deal as New York finds its new QB: Source**\
-`Fields, who turned 26 on March 5, spent last year with the Steelers and went 4-2 as the team's starting quarterback.`\
-https://nytimes.com/athletic/6184386/2025/03/10/justin-fields-free-agency-signing-2025-jets/
-
-**Carlos Alcaraz's Netflix documentary release date is confirmed – by a tattoo**\
-`The film follows Alcaraz's 2024 season, in which he won the French Open and Wimbledon.`\
-https://nytimes.com/athletic/6191240/2025/03/10/carlos-alcaraz-netflix-documentary-tennis-my-way/
-
-**Rams agree to terms with DT Poona Ford: How he fits along the D-line**\
-`As a physical, disruptive run defender, Poona Ford joins a Rams interior D-line with rising standouts Kobe Turner and Braden Fiske.`\
-https://nytimes.com/athletic/6191433/2025/03/10/poona-ford-rams-free-agency-signing-2025/
-
-**Players like Betts add roster flexibility and impact draft strategy in fantasy baseball**\
-`Scott Engel's crash course on players who qualify at multiple positions and how they impact draft-day strategy and roster construction. `\
-https://nytimes.com/athletic/6190586/2025/03/10/fantasy-baseball-2025-mookie-betts-multi-positional-players/
 

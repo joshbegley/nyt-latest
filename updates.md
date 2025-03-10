@@ -1,3 +1,7 @@
+**Vikings 2025 free agency tracker: Still looking to improve in the trenches**\
+`The Vikings roster has plenty of needs: the interior O-line, interior D-line, cornerback and running back. Expect the team to be aggressive.`\
+https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
+
 **Dodgers ink manager Dave Roberts to record extension: Sources**\
 `Roberts joins Bruce Bochy and Terry Francona the only active managers with multiple World Series titles.`\
 https://nytimes.com/athletic/6124771/2025/03/10/dodgers-dave-roberts-contract-record/
