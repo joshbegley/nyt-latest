@@ -1,3 +1,23 @@
+**How Forest masterfully shut down Man City - and maintained a threat in transition**\
+`Forest's defensive display mastered ball-control, directness and incisive counter-attacking. It proved too much for Pep Guardiola’s side`\
+https://nytimes.com/athletic/6187851/2025/03/10/nottingham-forest-manchester-city-analysis/
+
+**The New York Times in Print for Monday, March 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/10/todays-new-york-times
+
+**Monday Briefing**\
+`Canada’s next prime minister.`\
+https://nytimes.com/2025/03/10/briefing/canada-leader-syria-ukraine.html
+
+**‘Everybody’s Live With John Mulaney,’ Plus 6 Things to Watch on TV this Week**\
+`A live talk show comes to Netflix, Ringo Starr performs in Nashville and Amanda Seyfried plays a Philadelphia police officer.`\
+https://nytimes.com/2025/03/10/arts/television/everybodys-live-with-john-mulaney-plus-6-things-to-watch-on-tv-this-week.html
+
+**What Europe Fears Most About a Global Trade War**\
+`Europe, not Canada, Mexico or China, is most vulnerable to the fallout from Donald Trump’s mercantilist policies.`\
+https://nytimes.com/2025/03/10/opinion/tariffs-europe-trade-war.html
+
 **China’s Tariffs on U.S. Agricultural Products Take Effect**\
 `The action came in response to the higher levies on Chinese imports that President Trump announced last week.`\
 https://nytimes.com/2025/03/10/business/china-tariffs-us.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/03/10/world/asia/south-korea-martial-law-pr
 **Russian Forces Depleted and Stalling on Eastern Front, Ukraine Says**\
 `But as Ukraine prepares to meet with U.S. officials, Ukrainian soldiers say they are bracing for attacks to take advantage of a pause in U.S. intelligence.`\
 https://nytimes.com/2025/03/10/world/europe/ukraine-russia-eastern-front-line.html
-
-**Quote of the Day: Ambitious Democrats Have a New Game Plan: Yak It Up About Sports**\
-`Quotation of the Day for Monday, March 10, 2025.`\
-https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-ambitious-democrats-have-a-new-game-plan-yak-it-up-about-sports.html
-
-**Adam Fantilli's second career hat trick paces Blue Jackets' big win over Rangers**\
-`The Blue Jackets reclaimed the top wild-card spot in the East thanks to an offensive explosion, looking back to their usual selves.`\
-https://nytimes.com/athletic/6189568/2025/03/09/blue-jackets-adam-fantilli-hat-trick-rangers/
-
-**No, the Seahawks aren’t tanking, or even rebuilding. But contending just became much harder**\
-`Yes, the Seahawks still intend to compete for a championship in 2025. And yes, the path to get there is much narrower.`\
-https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seahawks-tanking/
-
-**Five teams are in the NCAA Tournament. Who will join them in March Madness?**\
-`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
-https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
-
-**Who is Gage Workman? Introducing Cubs' Rule 5 pick earning his way onto Opening Day roster**\
-`The Cubs informed Workman he will be on Tuesday's flight to Japan for the Tokyo Series.`\
-https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-roster-tokyo-series/
 

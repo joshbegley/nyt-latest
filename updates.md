@@ -1,3 +1,23 @@
+**How Forest masterfully shut down Man City - and maintained a threat in transition**\
+`Forest's defensive display mastered ball-control, directness and incisive counter-attacking. It proved too much for Pep Guardiola’s side`\
+https://nytimes.com/athletic/6187851/2025/03/10/nottingham-forest-manchester-city-analysis/
+
+**The New York Times in Print for Monday, March 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/10/todays-new-york-times
+
+**Monday Briefing**\
+`Canada’s next prime minister.`\
+https://nytimes.com/2025/03/10/briefing/canada-leader-syria-ukraine.html
+
+**‘Everybody’s Live With John Mulaney,’ Plus 6 Things to Watch on TV this Week**\
+`A live talk show comes to Netflix, Ringo Starr performs in Nashville and Amanda Seyfried plays a Philadelphia police officer.`\
+https://nytimes.com/2025/03/10/arts/television/everybodys-live-with-john-mulaney-plus-6-things-to-watch-on-tv-this-week.html
+
+**What Europe Fears Most About a Global Trade War**\
+`Europe, not Canada, Mexico or China, is most vulnerable to the fallout from Donald Trump’s mercantilist policies.`\
+https://nytimes.com/2025/03/10/opinion/tariffs-europe-trade-war.html
+
 **China’s Tariffs on U.S. Agricultural Products Take Effect**\
 `The action came in response to the higher levies on Chinese imports that President Trump announced last week.`\
 https://nytimes.com/2025/03/10/business/china-tariffs-us.html
