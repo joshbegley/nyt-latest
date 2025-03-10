@@ -1,3 +1,19 @@
+**Chargers agree to terms with CB Donte Jackson on low-risk, big-upside deal**\
+`The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
+https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
+
+**NASA Will Launch a Space Telescope and New Solar Satellites: How to Watch**\
+`Two missions, SPHEREx and PUNCH, are expected to launch on a SpaceX rocket late on Monday after a postponed flight on Saturday.`\
+https://nytimes.com/2025/03/10/science/spacex-nasa-spherex-punch-launch.html
+
+**Arsenal investigating 'inappropriate comments' made towards Liverpool's Hinds**\
+`The fan was removed from the stadium and Hinds has thanked the club for their support.`\
+https://nytimes.com/athletic/6192088/2025/03/10/arsenal-liverpool-taylor-hinds-comments-investigate/
+
+**Delta Says Economic Worries Are Hurting Travel Demand**\
+`The airline lowered its financial forecast for the first quarter as economic anxiety hurts demand for tickets.`\
+https://nytimes.com/2025/03/10/business/delta-airlines-economy-first-quarter.html
+
 **Browns free-agency tracker: Cleveland acquires QB Kenny Pickett in trade with Eagles**\
 `Analyzing all of Cleveland's moves entering the new league year. `\
 https://nytimes.com/athletic/6188731/2025/03/10/browns-free-agency-tracker-signings-trades/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-t
 **Charvarius Ward, Colts agree on 3-year, $60 million deal**\
 `The 28-year-old was the highest-ranked cornerback on The Athletic's list of the top 150 free agents. `\
 https://nytimes.com/athletic/6174542/2025/03/10/charvarius-ward-free-agency-signing-2025-colts/
-
-**A Bad Day on Wall Street**\
-`Also, Rubio said Ukraine must cede territory in exchange for peace. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/03/10/briefing/stock-market-rubio-ukraine-meeting-new-leader-canada.html
-
-**Patriots 2025 free agency tracker: New England lands big fish in DT Milton Williams**\
-`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127M in cap space in free agency?`\
-https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
-
-**Defendant in U.S.S. Cole Bombing Case Signs Plea Offer**\
-`The Saudi prisoner agreed to the settlement to avoid a death-penalty trial, his lawyer said, but it has yet to reach the defense secretary.`\
-https://nytimes.com/2025/03/10/us/politics/uss-cole-case-plea.html
-
-**Senator Mark Kelly Urges Continued U.S. Support After Visiting Ukraine. Musk Calls Him a ‘Traitor.’**\
-`Senator Mark Kelly, an Arizona Democrat and former astronaut, visited Ukraine over the weekend and said the United States could not give up on the people there as they fight Russia. Musk responded on X.`\
-https://nytimes.com/2025/03/10/us/politics/musk-mark-kelly-traitor.html
 
