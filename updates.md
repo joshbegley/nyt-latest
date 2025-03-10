@@ -1,3 +1,8 @@
+**The battle of the second legs: Will PSG upset the odds and beat Liverpool?**\
+`Sam Tighe has a look at the betting implications for Tuesday’s Champions League Round of 16 second-leg fixtures.
+`\
+https://nytimes.com/athletic/6190248/2025/03/10/champions-league-round-of-16-tuesday-betting-tips-predictions/
+
 **The Athletic FC: Inside fake shirt industry, Arsenal's news sporting director**\
 `Today in TAFC: Inside the £200m fake shirt industry, Manchester United protests, Arsenal's new sporting director, flag-planting in Belgium.`\
 https://nytimes.com/athletic/6190166/2025/03/10/inside-fake-shirt-industry-arsenals-news-sporting-director-man-utd-fan-protests/
