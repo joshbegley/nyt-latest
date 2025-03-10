@@ -1,3 +1,11 @@
+**Five teams are in the NCAA Tournament. Who will join them in March Madness?**\
+`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
+https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
+
+**30 Charts That Show How Everything Changed in March 2020**\
+`It can be easy to forget, or look away from, the pain and disruption of the pandemic. The numbers will be there to remind us.`\
+https://nytimes.com/interactive/2025/03/09/upshot/covid-lockdown-five-year-charts.html
+
 **No, the Seahawks aren’t tanking, or even rebuilding. But contending just became much harder**\
 `Yes, the Seahawks still intend to compete for a championship in 2025. And yes, the path to get there is much narrower.`\
 https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seahawks-tanking/
