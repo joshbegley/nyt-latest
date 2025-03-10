@@ -1,3 +1,15 @@
+**Think You Understand Your Dog? Think Again.**\
+`People interpret a dog’s emotions based on its situation and have “a big blind spot” for the actual animal, a new study found.`\
+https://nytimes.com/2025/03/10/science/dogs-pets-emotions.html
+
+**Sabrina Ionescu will return to Oregon for a WNBA preseason game**\
+`Ionescu was a two-time Wooden Award winner at Oregon and led the Ducks to their first Final Four.`\
+https://nytimes.com/athletic/6185126/2025/03/10/sabrina-ionescu-oregon-wnba-liberty/
+
+**Oil Tanker and Container Ship Collide in the North Sea**\
+`Britain’s coast guard said it was “coordinating the emergency response to reports of a collision between a tanker and cargo vessel,” and that a fire had broken out.`\
+https://nytimes.com/2025/03/10/world/europe/oil-tanker-north-sea-collision-uk.html
+
 **Men's college basketball top 25: Why Duke should pass Auburn for No. 1**\
 `This is the first time since the first week of the season that I’ll be voting for someone other than Auburn at No. 1 on my AP Top 25 ballot.`\
 https://nytimes.com/athletic/6189668/2025/03/10/mens-college-basketball-top-25-duke-auburn/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-ag
 **Broncos free agency tracker: What to know about Sean Payton's team as league year nears**\
 `Keep up to date with all of the news and analysis on Broncos' moves as the NFL's new league year begins.`\
 https://nytimes.com/athletic/6184199/2025/03/10/broncos-free-agency-tracker-2025/
-
-**The Athletic college baseball Top 25: Tennessee, Florida State the lone unbeatens**\
-`Texas A&M, the consensus No. 1 team in the preseason, dropped out of the poll. The Aggies are 9-6. `\
-https://nytimes.com/athletic/6190356/2025/03/10/college-baseball-rankings-tennessee-florida-state-texas-am/
-
-**Mirtle: Making sense of the Leafs' failed pursuit of Rantanen — and the Mitch Marner fallout**\
-`The Leafs' biggest move of the trade deadline was one that never ended up happening. What does that mean for the future?`\
-https://nytimes.com/athletic/6189667/2025/03/10/maple-leafs-rantanen-offer-marner-fallout/
-
-**No Corrections: March 10, 2025**\
-`No corrections appeared in print on Monday, March 10, 2025.`\
-https://nytimes.com/2025/03/10/pageoneplus/no-corrections-march-10-2025.html
 

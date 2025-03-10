@@ -1,3 +1,15 @@
+**Think You Understand Your Dog? Think Again.**\
+`People interpret a dog’s emotions based on its situation and have “a big blind spot” for the actual animal, a new study found.`\
+https://nytimes.com/2025/03/10/science/dogs-pets-emotions.html
+
+**Sabrina Ionescu will return to Oregon for a WNBA preseason game**\
+`Ionescu was a two-time Wooden Award winner at Oregon and led the Ducks to their first Final Four.`\
+https://nytimes.com/athletic/6185126/2025/03/10/sabrina-ionescu-oregon-wnba-liberty/
+
+**Oil Tanker and Container Ship Collide in the North Sea**\
+`Britain’s coast guard said it was “coordinating the emergency response to reports of a collision between a tanker and cargo vessel,” and that a fire had broken out.`\
+https://nytimes.com/2025/03/10/world/europe/oil-tanker-north-sea-collision-uk.html
+
 **Men's college basketball top 25: Why Duke should pass Auburn for No. 1**\
 `This is the first time since the first week of the season that I’ll be voting for someone other than Auburn at No. 1 on my AP Top 25 ballot.`\
 https://nytimes.com/athletic/6189668/2025/03/10/mens-college-basketball-top-25-duke-auburn/
