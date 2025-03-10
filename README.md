@@ -1,3 +1,11 @@
+**Reds' Noelvi Marte ready to put 2024 in past, make comeback in Triple A**\
+`Marte hit .263 with four walks and home run in 19 official at-bats.`\
+https://nytimes.com/athletic/6191856/2025/03/10/reds-noelvi-marte-comeback-triple-a/
+
+**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
+
 **G.O.P. Spending Bill Would Force $1 Billion Cut to D.C. Budget**\
 `Republicans omitted a standard provision approving the District’s budget in a stopgap funding measure needed to avert a shutdown before the end of the week. The result would be a 16 percent cut.`\
 https://nytimes.com/2025/03/10/world/europe/spending-bill-government-shutdown-dc-budget-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tra
 **Arsenal investigating 'inappropriate comments' made towards Liverpool's Hinds**\
 `The fan was removed from the stadium and Hinds has thanked the club for their support.`\
 https://nytimes.com/athletic/6192088/2025/03/10/arsenal-liverpool-taylor-hinds-comments-investigate/
-
-**Delta Says Economic Worries Are Hurting Travel Demand**\
-`The airline lowered its financial forecast for the first quarter as economic anxiety hurts demand for tickets.`\
-https://nytimes.com/2025/03/10/business/delta-airlines-economy-first-quarter.html
-
-**Browns free-agency tracker: Cleveland acquires QB Kenny Pickett in trade with Eagles**\
-`Analyzing all of Cleveland's moves entering the new league year. `\
-https://nytimes.com/athletic/6188731/2025/03/10/browns-free-agency-tracker-signings-trades/
 
