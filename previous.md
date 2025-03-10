@@ -1,3 +1,7 @@
+**Enduring Images of a Global Crisis**\
+`New York Times photographers covered Covid-19 throughout the world. These pictures, and the moments behind them, stayed with them.`\
+https://nytimes.com/2025/03/10/world/asia/covid-anniversary-photos.html
+
 **The New York Times International Edition in Print for Tuesday, March 11, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/10/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/nyregion/trader-joes-art-manhattan.html
 **Trump Looms Over Greenland’s Election, but Voters Have Other Concerns**\
 `President Trump keeps saying he wants to “get” Greenland. On Tuesday, Greenland votes for a new parliament that could shape its future relations with the United States.`\
 https://nytimes.com/2025/03/10/world/europe/trump-greenland-election.html
-
-**Why Are So Many Women Wearing Neckties?**\
-`While men’s wear has shifted away from the classic necktie, more and more women are sporting the accessory. Our critic explains the infatuation and offers tips for suiting up.`\
-https://nytimes.com/2025/03/10/fashion/tie-women-neckties.html
 
