@@ -2,6 +2,10 @@
 `Yes, the Seahawks still intend to compete for a championship in 2025. And yes, the path to get there is much narrower.`\
 https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seahawks-tanking/
 
+**Five teams are in the NCAA Tournament. Who will join them in March Madness?**\
+`Thirty-one automatic bids will be earned to the NCAA Tournament. Keep up with all the latest here.`\
+https://nytimes.com/athletic/6177326/2025/03/09/ncaa-tournament-automatic-bids-tracker-mens/
+
 **Who is Gage Workman? Introducing Cubs' Rule 5 pick earning his way onto Opening Day roster**\
 `The Cubs informed Workman he will be on Tuesday's flight to Japan for the Tokyo Series.`\
 https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-roster-tokyo-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189473/2025/03/09/falcons-jake-matthews-extension/
 **DK Metcalf trade grades: Steelers add game-changing talent; Seahawks' overhaul continues**\
 `The Steelers finally landed the star WR they've been hunting for. As for Seattle, this quickly turned into an offseason of change. `\
 https://nytimes.com/athletic/6189406/2025/03/09/dk-metcalf-trade-grades-steelers-seahawks/
-
-**MLB commissioner, several owners pressuring Stu Sternberg to sell Rays as buyers eye team**\
-`Members of the family that owns the San Francisco 49ers are among the groups interested in buying the Rays. `\
-https://nytimes.com/athletic/6189456/2025/03/09/commissioner-owners-pressure-rays-sale-mlb/
 
