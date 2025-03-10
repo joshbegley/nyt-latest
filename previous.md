@@ -1,3 +1,7 @@
+**Men's college basketball top 25: Why Duke should pass Auburn for No. 1**\
+`This is the first time since the first week of the season that I’ll be voting for someone other than Auburn at No. 1 on my AP Top 25 ballot.`\
+https://nytimes.com/athletic/6189668/2025/03/10/mens-college-basketball-top-25-duke-auburn/
+
 **Bubble watch: Who's sweating as championship week begins?**\
 `There are as many as seven spots available for 16 bubble teams. That sets the stage for a huge week before Selection Sunday.`\
 https://nytimes.com/athletic/6189671/2025/03/10/mens-college-basketball-bubble-watch-championship-week/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189667/2025/03/10/maple-leafs-rantanen-offer-marne
 **No Corrections: March 10, 2025**\
 `No corrections appeared in print on Monday, March 10, 2025.`\
 https://nytimes.com/2025/03/10/pageoneplus/no-corrections-march-10-2025.html
-
-**Can Kuzmenko make a difference on the Kings power play? He's off to a promising start**\
-`The well-traveled winger is enthusiastic about another fresh start with the Kings, who acquired him ahead of the trade deadline Friday.`\
-https://nytimes.com/athletic/6190026/2025/03/10/andrei-kuzmenko-nhl-kings-power-play/
 

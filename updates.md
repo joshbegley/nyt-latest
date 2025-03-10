@@ -1,3 +1,7 @@
+**Men's college basketball top 25: Why Duke should pass Auburn for No. 1**\
+`This is the first time since the first week of the season that I’ll be voting for someone other than Auburn at No. 1 on my AP Top 25 ballot.`\
+https://nytimes.com/athletic/6189668/2025/03/10/mens-college-basketball-top-25-duke-auburn/
+
 **Bubble watch: Who's sweating as championship week begins?**\
 `There are as many as seven spots available for 16 bubble teams. That sets the stage for a huge week before Selection Sunday.`\
 https://nytimes.com/athletic/6189671/2025/03/10/mens-college-basketball-bubble-watch-championship-week/
