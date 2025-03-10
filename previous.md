@@ -1,3 +1,15 @@
+**Chris Godwin agrees to re-sign with Buccaneers: Source**\
+`Godwin, 29, suffered a season-ending ankle injury in October.`\
+https://nytimes.com/athletic/6172357/2025/03/10/chris-godwin-free-agency/
+
+**Chiefs, ex-49er Jaylon Moore reach 2-year deal as Kansas City**\
+`At age 27, Moore will become a first-time starter and have the role of protecting the blind side of Patrick Mahomes.`\
+https://nytimes.com/athletic/6190647/2025/03/10/jaylon-moore-chiefs-nfl-free-agency/
+
+**Scoop City: Free agency catch-up as legal tampering opens**\
+`Inside: The biggest stories to know as the &#8220;negotiating period&#8221; of free agency is officially open.`\
+https://nytimes.com/athletic/6190596/2025/03/10/nfl-free-agency-primer-news-recap-scoop-city/
+
 **Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
 `Submit your Mets questions for the Tim Britton and Will Sammon mailbag`\
 https://nytimes.com/athletic/6190925/2025/03/10/mets-mailbag-spring-training/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agen
 **Lincoln Center Gets $50 Million Gift to Promote Contemporary Dance**\
 `The donation from two philanthropists will support performances, commissions and young artists, at a time of uncertainty for the dance industry.`\
 https://nytimes.com/2025/03/10/arts/dance/lincoln-center-50-million-gift-dance.html
-
-**Patriots 2025 free agency tracker: Seeking help at WR, O-line and D-line**\
-`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127 million in cap space?`\
-https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
-
-**Liverpool’s new Adidas kit deal explained: What it means for revenue, transfers and next season**\
-`Everything you need to know about the league-leaders returning to Adidas`\
-https://nytimes.com/athletic/6190491/2025/03/10/liverpool-adidas-kit-deal-explained/
-
-**Emotional Brad Marchand reflects on being traded by the Bruins: ‘I wanted to stay there’**\
-`Marchand, speaking at the Panthers’ practice facility on Monday, said, "It was very disappointing" not to get an extension done with Boston.`\
-https://nytimes.com/athletic/6190768/2025/03/10/brad-marchand-interview-bruins-panthers/
 
