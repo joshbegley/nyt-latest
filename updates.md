@@ -1,3 +1,11 @@
+**USMNT Player Tracker: Pulisic finds his mojo, another Richards shut out and Dest returns**\
+`Our round up of the weekend action also features another Josh Sargent goal, and a match to forget for Weston McKennie and Juventus`\
+https://nytimes.com/athletic/6190373/2025/03/10/usmnt-pulisic-richards-dest-tracker/
+
+**Mark Carney: Canada's new prime minister and Everton fan - with Donald Trump in his sights**\
+`Carney's support for Everton is said to be genuine and heartfelt - he may be too busy to take in matches after becoming Canada's PM`\
+https://nytimes.com/athletic/6190741/2025/03/10/mark-carney-canada-prime-minister-everton-fan/
+
 **Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
 `The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
 https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
