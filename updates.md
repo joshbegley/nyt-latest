@@ -1,3 +1,7 @@
+**Wirtz suffers ankle ligament injury, out for 'several weeks'**\
+`Wirtz's ankle was injured in a challenge from Bremen's Mitchell Weiser just 14 minutes after coming on at half-time.`\
+https://nytimes.com/athletic/6188016/2025/03/10/florian-wirtz-injury-leverkusen/
+
 **Cutting Medicaid?**\
 `How Republicans could change the program.`\
 https://nytimes.com/2025/03/10/briefing/republicans-medicaid.html
