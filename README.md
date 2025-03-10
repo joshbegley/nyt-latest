@@ -1,3 +1,7 @@
+**Trump Has Said ‘No Exceptions’ to His Tariffs. Will That Last?**\
+`His administration has acknowledged that exceptions undercut the power of tariffs, but it seems hard for the president to resist making deals.`\
+https://nytimes.com/2025/03/10/business/economy/trump-tariffs-exceptions.html
+
 **Bills, Joshua Palmer agree to 3-year deal: Josh Allen gets a new target**\
 `The Bills still have room for another receiver to meet their needs.`\
 https://nytimes.com/athletic/6191733/2025/03/10/joshua-palmer-bills-free-agency-signing-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agen
 **Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
 `GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
 https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
-
-**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; Aaron Banks to Green Bay**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
 
