@@ -1,3 +1,11 @@
+**Kawhi Leonard's OT buzzer-beater powers Clippers past Kings**\
+`The moment recalled Leonard's iconic 2019 Eastern Conference semifinals shot against the 76ers that required four bounces before going in.`\
+https://nytimes.com/athletic/6189949/2025/03/10/kawhi-leonard-ot-buzzer-beater-kings/
+
+**Manchester United lack confidence - but courage still brings the best out of them**\
+`Ruben Amorim's side offered glimpses of their capabilities against Arsenal but were at their best when being brave`\
+https://nytimes.com/athletic/6188378/2025/03/10/manchester-united-amorim-arsenal-courage-dalot/
+
 **Word of the Day: obstinacy**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/10/learning/word-of-the-day-obstinacy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6179707/2025/03/10/adam-wharton-crystal-palace-engl
 **Leicester were improved at Chelsea - but it's not enough. Championship planning must begin**\
 `Following another loss - this time at Stamford Bridge - key questions about the manager and squad need to be addressed ahead of next season`\
 https://nytimes.com/athletic/6188369/2025/03/10/tweaked-leicester-looked-better-but-its-not-enough-planning-for-the-championship-must-start-now/
-
-**PlayStation football? Maresca's Chelsea have plenty of glitches to iron out**\
-`Chelsea's narrow home win over struggling Leicester will do little to quell fan grumbles. Maresca's side need to find their bearings again`\
-https://nytimes.com/athletic/6188598/2025/03/10/chelsea-leicester-enzo-maresca-cucurella/
-
-**Postecoglou and Tottenham finally feel the benefit of having some squad depth**\
-`Spurs were able to rally from 2-0 down against Bournemouth, in large part because of their ability to introduce senior players off the bench`\
-https://nytimes.com/athletic/6188706/2025/03/10/tottenham-bournemouth-squad-depth/
 
