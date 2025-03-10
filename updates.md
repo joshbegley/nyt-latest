@@ -1,3 +1,11 @@
+**Shai Gilgeous-Alexander, Thunder show they have an extra gear in win over Nuggets**\
+`On a big stage, OKC showed a nationally televised audience why it's been dominant and why that might pay off with an NBA title.`\
+https://nytimes.com/athletic/6188923/2025/03/09/thunder-nuggets-shai-gilgeous-alexander-nikola-jokic/
+
+**Things get stressful for the skidding, offensively feeble Wild: 'We need some wins fast'**\
+`The Wild couldn't score at five-on-five against the Penguins, who give up the most even-strength goals in the league.`\
+https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-penguins/
+
 **Things are getting stressful for the skidding, offensively-feeble Wild: 'We need some wins fast'**\
 `The Wild couldn't score at five-on-five against the Penguins, who give up the most even-strength goals in the league.`\
 https://nytimes.com/athletic/6189432/2025/03/09/wild-skid-offense-playoffs-penguins/
