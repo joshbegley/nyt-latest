@@ -1,3 +1,7 @@
+**Ratcliffe’s comments on Man Utd’s squad, stadium decision, money problems and more - analysed**\
+`The Manchester United co-owner has given a series of interviews - but what did we learn from what he had to say?`\
+https://nytimes.com/athletic/6191213/2025/03/10/jim-ratcliffe-interview-analysed/
+
 **Malcolm Koonce returning to Raiders on 1-year deal: Source**\
 `Koonce was unable to capitalize on a career year in 2023 due to injury. `\
 https://nytimes.com/athletic/6176422/2025/03/10/malcolm-koonce-free-agent-nfl-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/us/trump-rubio-khalil-columbia-student-protests.h
 **Supreme Court Rejects an Effort to Block States From Suing Oil Giants**\
 `The justices declined to hear unusual arguments from Republican-led states that sought to end lawsuits against energy companies over their role in global warming.`\
 https://nytimes.com/2025/03/10/climate/supreme-court-climate-lawsuits-states.html
-
-**Striking Stage Crews Reach Agreement With Atlantic Theater**\
-`The deal will be scrutinized by New York’s other Off Broadway theaters, which the International Alliance of Theatrical Stage Employees has been working to unionize.`\
-https://nytimes.com/2025/03/10/theater/atlantic-theater-strike-stage-crew.html
 
