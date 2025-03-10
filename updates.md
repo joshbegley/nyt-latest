@@ -1,3 +1,7 @@
+**Charvarius Ward, Colts agree on 3-year, $60 million deal**\
+`The 28-year-old was the highest-ranked cornerback on The Athletic's list of the top 150 free agents. `\
+https://nytimes.com/athletic/6174542/2025/03/10/charvarius-ward-free-agency-signing-2025-colts/
+
 **Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
 `GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
 https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
