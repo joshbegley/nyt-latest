@@ -1,3 +1,7 @@
+**Word of the Day: obstinacy**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/10/learning/word-of-the-day-obstinacy.html
+
 **Counter-attacking, clearances and a clean sheet: Have Villa rediscovered their blueprint for success?**\
 `Villa have turned a corner with their last two away performances - and Unai Emery says they are 'really hungry' to end the season in style`\
 https://nytimes.com/athletic/6187327/2025/03/10/aston-villa-unai-emery-blueprint/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188598/2025/03/10/chelsea-leicester-enzo-maresca-c
 **Postecoglou and Tottenham finally feel the benefit of having some squad depth**\
 `Spurs were able to rally from 2-0 down against Bournemouth, in large part because of their ability to introduce senior players off the bench`\
 https://nytimes.com/athletic/6188706/2025/03/10/tottenham-bournemouth-squad-depth/
-
-**Brighton's front five keep delivering and are driving Hurzeler's team towards Europe**\
-`Joao Pedro, Danny Welbeck, Yankuba Minteh, Georginio Rutter and Kaoru Mitoma have scored 18 of Brighton's past 20 goals`\
-https://nytimes.com/athletic/6183778/2025/03/10/brighton-front-five-welbeck-joao-pedro/
 

@@ -1,3 +1,7 @@
+**Word of the Day: obstinacy**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/10/learning/word-of-the-day-obstinacy.html
+
 **Counter-attacking, clearances and a clean sheet: Have Villa rediscovered their blueprint for success?**\
 `Villa have turned a corner with their last two away performances - and Unai Emery says they are 'really hungry' to end the season in style`\
 https://nytimes.com/athletic/6187327/2025/03/10/aston-villa-unai-emery-blueprint/
