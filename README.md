@@ -1,4 +1,12 @@
-**Chargers agree to terms with CB Donte Jackson on low-risk, big-upside deal**\
+**New Canadian Leader’s Balancing Act: Negotiate With and Fight Trump**\
+`Mark Carney will most likely be in power just a few weeks before a federal election is held. To win, he will try to convince Canadians he can take on, but also negotiate with, Trump.`\
+https://nytimes.com/2025/03/10/world/canada/mark-carney-trump.html
+
+**Yankees ace Gerrit Cole to undergo Tommy John surgery, miss all of 2025 season**\
+`It will now be at least a year until Cole gets his next chance to help get a win for the Yankees.`\
+https://nytimes.com/athletic/6192009/2025/03/10/new-york-yankees-gerrit-cole-season-ending-surgery/
+
+**Chargers agree to terms with CB Donte Jackson on low-risk, potential-upside deal**\
 `The Chargers are betting on their coaching staff getting the most out of Jackson on a two-year, $13 million agreement.`\
 https://nytimes.com/athletic/6192020/2025/03/10/chargers-donte-jackson-free-agency/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-ag
 **The Briefing: West Ham 0 Newcastle 1 - a left-sided solution, a rare clean sheet and Wembley encouragement**\
 `Chris Waugh and George Caulkin analyse the key talking points from Newcastle's victory at West Ham United`\
 https://nytimes.com/athletic/6188718/2025/03/10/west-ham-newcastle-analysis/
-
-**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
-`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
-https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
-
-**Charvarius Ward, Colts agree on 3-year, $60 million deal**\
-`The 28-year-old was the highest-ranked cornerback on The Athletic's list of the top 150 free agents. `\
-https://nytimes.com/athletic/6174542/2025/03/10/charvarius-ward-free-agency-signing-2025-colts/
 
