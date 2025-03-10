@@ -1,3 +1,7 @@
+**Cornerback Carlton Davis agrees to 3-yr with Patriots: Sources**\
+`There are some injury concerns, but Davis has been one of the most productive cornerbacks in the league over the last seven years. `\
+https://nytimes.com/athletic/6175649/2025/03/10/carlton-davis-nfl-free-agent-patriots/
+
 **Manchester United's new solution for slow home starts? Swap ends**\
 `Ruben Amorim has been desperate to cure the team's poor starts to games and has adopted an unusual tactic`\
 https://nytimes.com/athletic/6191045/2025/03/10/manchester-united-old-trafford-swap-ends/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6190373/2025/03/10/usmnt-pulisic-richards-dest-trac
 **Mark Carney: Canada's new prime minister and Everton fan - with Donald Trump in his sights**\
 `Carney's support for Everton is said to be genuine and heartfelt - he may be too busy to take in matches after becoming Canada's PM`\
 https://nytimes.com/athletic/6190741/2025/03/10/mark-carney-canada-prime-minister-everton-fan/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/03/10/opinion/thepoint
 
