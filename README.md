@@ -1,15 +1,3 @@
-**D.C. Mayor Removes Black Lives Matter Mural to Save City Funding**\
-`Destruction of the two-block-long Black Lives Matter mural in Washington began Monday after Mayor Muriel E. Bowser faced threats from Republican lawmakers to withhold millions in federal funds from the city unless the mural was removed and the plaza renamed.`\
-https://nytimes.com/video/us/politics/100000010043015/blm-plaza-removal.html
-
-**‘All Nighter’ Review: No Sleep but Plenty of Gripes**\
-`A new play about a group of college students putting in one last study session evokes recent stories about young women, but without the well-rounded characters.`\
-https://nytimes.com/2025/03/10/theater/all-nighter-play-review-lester.html
-
-**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig out, Jeremy Chinn in**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
-
 **Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
 `GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
 https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/03/10/health/measles-texas-kennedy-fox.html
 **Bears add Dayo Odeyingbo: Why the DE suits coordinator Dennis Allen**\
 `The 6-foot-6 and 286-pound Odeyingbo, 25, fills the starting spot opposite Montez Sweat once held by veteran DeMarcus Walker. `\
 https://nytimes.com/athletic/6191698/2025/03/10/bears-dayo-odeyingbo-edge-rusher/
+
+**Leave your questions for the next Leaf Report podcast**\
+`<p>Three trades, three losses and lots of drama.`\
+https://nytimes.com/athletic/6191798/2025/03/10/leave-your-questions-for-the-next-leaf-report-podcast/
+
+**A look at the Giants' best (and worst) spring training records since 1958**\
+`The Giants are winning up a storm this spring. What does history tell us about how predictive that will be for the regular season?`\
+https://nytimes.com/athletic/6189857/2025/03/10/sf-giants-spring-training-history/
+
+**Eric Schmidt Joins Relativity Space, a Rocket Start-Up, as C.E.O.**\
+`The former Google chief executive is taking a controlling interest in Relativity Space, which aims to build low-cost, reusable rockets to compete against Elon Musk’s SpaceX and to reach Mars.`\
+https://nytimes.com/2025/03/10/technology/eric-schmidt-relativity-space.html
 
