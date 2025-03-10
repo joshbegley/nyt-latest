@@ -1,3 +1,7 @@
+**Commanders land LT Laremy Tunsil in blockbuster trade with Texans: Source**\
+`The five-time Pro Bowl tackle lands in Commanders, marking another big-name trade for Washington.`\
+https://nytimes.com/athletic/6191852/2025/03/10/commanders-trade-texans-laremy-tunsil-nfl/
+
 **Trump Has Said ‘No Exceptions’ to His Tariffs. Will That Last?**\
 `His administration has acknowledged that exceptions undercut the power of tariffs, but it seems hard for the president to resist making deals.`\
 https://nytimes.com/2025/03/10/business/economy/trump-tariffs-exceptions.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/03/10/business/media/washington-post-ruth-marcus-resign
 https://nytimes.com/2025/03/10/us/politics/deportations-migrants-guantanamo.html
 
 **D.C. Mayor Removes Black Lives Matter Mural to Save City Funding**\
-`Destruction of the two-block-long Black Lives Matter mural in Washington began Monday after Mayor Muriel E. Bowser faced threats from Republican lawmakers to withhold millions in federal funds from the city unless the mural was removed and the plaza renamed.`\
+`Crews began removing the Black Lives Matter mural in Washington on Monday after a Republican lawmaker threatened to withhold millions in federal funds from the city unless the mural was removed and the plaza renamed.`\
 https://nytimes.com/video/us/politics/100000010043015/blm-plaza-removal.html
 
 **‘All Nighter’ Review: No Sleep but Plenty of Gripes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/theater/all-nighter-play-review-lester.html
 **Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig out, Jeremy Chinn in**\
 `Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
 https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
-
-**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
-`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
-https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
 

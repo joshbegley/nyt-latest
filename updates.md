@@ -1,3 +1,11 @@
+**Commanders land LT Laremy Tunsil in blockbuster trade with Texans: Source**\
+`The five-time Pro Bowl tackle lands in Commanders, marking another big-name trade for Washington.`\
+https://nytimes.com/athletic/6191852/2025/03/10/commanders-trade-texans-laremy-tunsil-nfl/
+
+**D.C. Mayor Removes Black Lives Matter Mural to Save City Funding**\
+`Crews began removing the Black Lives Matter mural in Washington on Monday after a Republican lawmaker threatened to withhold millions in federal funds from the city unless the mural was removed and the plaza renamed.`\
+https://nytimes.com/video/us/politics/100000010043015/blm-plaza-removal.html
+
 **Trump Has Said ‘No Exceptions’ to His Tariffs. Will That Last?**\
 `His administration has acknowledged that exceptions undercut the power of tariffs, but it seems hard for the president to resist making deals.`\
 https://nytimes.com/2025/03/10/business/economy/trump-tariffs-exceptions.html
