@@ -1,3 +1,7 @@
+**X users experience multiple outages: How it's impacting the NFL free agency news cycle**\
+`The unofficial start to NFL free agency coincided with three major outages on X, a frequent outlet for breaking news.`\
+https://nytimes.com/athletic/6191111/2025/03/10/x-twitter-outage-nfl-free-agency/
+
 **X users experience multiple outages: How it impacted the NFL free agency news cycle**\
 `The unofficial start to NFL free agency coincided with three major outages on X, a frequent outlet for breaking news.`\
 https://nytimes.com/athletic/6191111/2025/03/10/x-twitter-outage-nfl-free-agency/
