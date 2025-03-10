@@ -1,3 +1,15 @@
+**Steelers to sign DK Metcalf to 5-year, $150 million extension**\
+`Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
+https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/
+
+**Flurry of pitching injuries creates new possibilities for trade discussions and free agents**\
+`Injuries to Luis Gil and Gerrit Cole of the Yankees, Grayson Rodriguez of the Orioles and George Kirby of the Mariners are shifting talks.`\
+https://nytimes.com/athletic/6189262/2025/03/09/mlb-pitching-injuries-kyle-gibson-lance-lynn/
+
+**Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
+`A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
+https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030/
+
 **Origin Story**\
 `Little-known stories of how all sorts of institutions began.`\
 https://nytimes.com/2025/03/09/podcasts/origin-story.html

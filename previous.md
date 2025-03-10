@@ -1,10 +1,18 @@
+**Steelers to sign DK Metcalf to 5-year, $150 million extension**\
+`Metcalf finished the 2024 campaign — his sixth season in Seattle — with 992 yards on 66 receptions.`\
+https://nytimes.com/athletic/6189310/2025/03/09/dk-metcalf-nfl-free-agency-2025-steelers/
+
+**Flurry of pitching injuries creates new possibilities for trade discussions and free agents**\
+`Injuries to Luis Gil and Gerrit Cole of the Yankees, Grayson Rodriguez of the Orioles and George Kirby of the Mariners are shifting talks.`\
+https://nytimes.com/athletic/6189262/2025/03/09/mlb-pitching-injuries-kyle-gibson-lance-lynn/
+
 **Origin Story**\
 `Little-known stories of how all sorts of institutions began.`\
 https://nytimes.com/2025/03/09/podcasts/origin-story.html
 
 **Bills, Josh Allen agree on 6-year, $330 million extension: Source**\
 `A league source confirmed the deal is a six-year extension for $330 million and includes a record $250 million guaranteed.`\
-https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030-2030/
+https://nytimes.com/athletic/6189277/2025/03/09/josh-allen-bills-extension-2030/
 
 **Geoff Nicholson, Author of Darkly Comic Novels, Dies at 71**\
 `In more than a dozen books, he created characters who were obsessed with maps, urban walking, sexual fetishes and Volkswagen Beetles.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/09/world/europe/09int-romania-election-calin-georges
 **Tommy Paul, Taylor Fritz and tennis rankings living rent-free in their brains**\
 `Paul has joined compatriot Fritz in living among the tennis elite and learning what comes with the territory of a single-digit ranking.`\
 https://nytimes.com/athletic/6157734/2025/03/09/tennis-rankings-top-10-players-tommy-paul-taylor-fritz/
-
-**South Carolina cruises past Texas in SEC Tournament championship game**\
-`The Gamecocks’ 64-45 win Sunday secures the program its third-consecutive SEC tournament title.`\
-https://nytimes.com/athletic/6189034/2025/03/09/south-carolina-texas-sec-tournament-wbb-score-results/
-
-**New Deal Reached to End Wildcat Strikes by N.Y. Prison Guards**\
-`The state and the correctional officers’ union agreed that officers should return to work Monday and that some limits on solitary confinement would be put on pause.`\
-https://nytimes.com/2025/03/09/nyregion/new-york-prison-strike-deal.html
 
