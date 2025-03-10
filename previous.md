@@ -1,40 +1,40 @@
-**Big Drama Cannot Distract From Irrelevant Clothes**\
-`It’s the wrong moment for the fashion theatrics of Valentino, McQueen and Dior. But Balenciaga got it right.`\
-https://nytimes.com/2025/03/10/style/valentino-dior-balenciaga-fall-2025.html
+**Canada Will Have a New Prime Minister. Here’s What to Know.**\
+`Mark Carney, a former central banker, now heads the Liberal Party and will soon lead Canada, tasked with responding to President Trump’s threats.`\
+https://nytimes.com/2025/03/10/world/canada/canada-election-takeaways.html
 
-**The Briefing: Real Madrid 2 Rayo Vallecano 1 - Mbappe and Vinicius Jr find some bite, Tchouameni makes his mark**\
-`Carlo Ancelotti's side endured a difficult second half but took reassurance from David Alaba's performance at the back`\
-https://nytimes.com/athletic/6189117/2025/03/10/real-madrid-rayo-mbappe-vinicius-tchouameni-alaba/
+**Aftershocks of Supreme Court’s Immunity Ruling Echo in New Trump Cases**\
+`The real legacy of the case, scholars say, is not its protection of former presidents from prosecution but its expansive understanding of presidential power.`\
+https://nytimes.com/2025/03/10/us/politics/supreme-courts-immunity-ruling-echo.html
 
-**NFL free-agency tracker: See where Sam Darnold, Aaron Rodgers and the top 150 players land**\
-`Darnold will hit free agency as one of the top players available, while Rodgers might have to be patient. Track all the action right here.`\
-https://nytimes.com/athletic/6178324/2025/03/10/nfl-free-agent-tracker-rankings/
+**Trump Gave Us a Piece of His Mind**\
+`The official and unofficial languages of the White House, decoded.`\
+https://nytimes.com/2025/03/10/opinion/trump-columbia-speech-official-language.html
 
-**Olivier Giroud still can't score in MLS, and it's getting embarrassing**\
-`Giroud's high productivity in Europe — and for France — has not translated to MLS.`\
-https://nytimes.com/athletic/6189015/2025/03/10/olivier-giroud-lafc-goals-mls-struggles/
+**She Goes to Trader Joe’s for the Art**\
+`Julie Averbach has written a book celebrating the displays, the murals and the installations at the grocery store chain.`\
+https://nytimes.com/2025/03/10/nyregion/trader-joes-art-manhattan.html
 
-**Trial Set for Men Accused of Targeting Iranian Dissident in New York**\
-`Prosecutors say the men helped direct a murder-for-hire scheme aimed at Masih Alinejad. The trial is expected to show Iran’s efforts to punish those who criticize it, no matter where they are.`\
-https://nytimes.com/2025/03/10/nyregion/trial-set-for-men-accused-of-targeting-iranian-dissident-in-new-york.html
+**Trump Looms Over Greenland’s Election, but Voters Have Other Concerns**\
+`President Trump keeps saying he wants to “get” Greenland. On Tuesday, Greenland votes for a new parliament that could shape its future relations with the United States.`\
+https://nytimes.com/2025/03/10/world/europe/trump-greenland-election.html
 
-**For a Family That Lost 5 Loved Ones, ‘Covid Will Never Be Over’**\
-`Elizabeth Fusco’s relatives had their usual family dinner in New Jersey in early 2020. Soon, her mother, three siblings and aunt were all dead.`\
-https://nytimes.com/2025/03/10/nyregion/fusco-family-covid-deaths-new-jersey.html
+**Why Are So Many Women Wearing Neckties?**\
+`While men’s wear has shifted away from the classic necktie, more and more women are sporting the accessory. Our critic explains the infatuation and offers tips for suiting up.`\
+https://nytimes.com/2025/03/10/fashion/tie-women-neckties.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/10/crosswords/spelling-bee-forum.html
+**Giants free agency preview: Signs point to Aaron Rodgers as top target**\
+`Will Giants GM Joe Schoen continue to show restraint in free agency, or will being on the hot seat change his approach?`\
+https://nytimes.com/athletic/6188836/2025/03/10/giants-free-agency-preview-aaron-rodgers-quarterback/
 
-**For #MeToo Movement, Mayor’s Race in New York City Poses a Test**\
-`Three mayoral candidates have been accused of sexual misconduct. They deny wrongdoing. Will it be a deciding issue for Democratic voters?`\
-https://nytimes.com/2025/03/10/nyregion/cuomo-stringer-metoo-harassment.html
+**Who Likes Tariffs? Some U.S. Industries Are Eager for Them.**\
+`Concern about the cost of materials has tempered business enthusiasm about taxing imports. But steel and aluminum makers say they welcome the help.`\
+https://nytimes.com/2025/03/10/business/economy/trump-tariff-supporters.html
 
-**Brighton's Joao Pedro's penalty record praised by Hurzeler: 'It is a quality'**\
-`The Brazilian took his record from the spot for the club to 13 out of 14 with a 98th minute penalty in Saturday's 2-1 home win vs Fulham.`\
-https://nytimes.com/athletic/6186910/2025/03/10/joao-pedro-brighton-hurzeler/
+**I’m a Transgender Colonel. Trump Wants Me Out.**\
+`“Until I am dragged away, I’m going to do my job to the utmost of my ability.”`\
+https://nytimes.com/2025/03/10/opinion/colonel-fram-transgender-military.html
 
-**Kawhi Leonard's OT buzzer-beater powers Clippers past Kings**\
-`The moment recalled Leonard's iconic 2019 Eastern Conference semifinals shot against the 76ers that required four bounces before going in.`\
-https://nytimes.com/athletic/6189949/2025/03/10/kawhi-leonard-ot-buzzer-beater-kings/
+**Trump’s Tactics Lead Americans to Question Role on World Stage**\
+`Among supporters and detractors alike, his transactional approach to foreign policy has upended old notions about the United States as a global leader.`\
+https://nytimes.com/2025/03/10/us/politics/trump-foreign-policy-voters.html
 
