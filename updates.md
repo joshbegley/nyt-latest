@@ -1,3 +1,11 @@
+**No, the Seahawks aren’t tanking, or even rebuilding. But contending just became much harder**\
+`Yes, the Seahawks still intend to compete for a championship in 2025. And yes, the path to get there is much narrower.`\
+https://nytimes.com/athletic/6189656/2025/03/09/dk-metcalf-trade-geno-smith-seahawks-tanking/
+
+**Who is Gage Workman? Introducing Cubs' Rule 5 pick earning his way onto Opening Day roster**\
+`The Cubs informed Workman he will be on Tuesday's flight to Japan for the Tokyo Series.`\
+https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-roster-tokyo-series/
+
 **Who is Gage Workman? Introducing Cubs’ Rule 5 pick earning his way onto Opening Day roster**\
 `The Cubs informed Workman he will be on Tuesday's flight to Japan for the Tokyo Series.`\
 https://nytimes.com/athletic/6189601/2025/03/09/gage-workman-cubs-opening-day-roster-tokyo-series/
