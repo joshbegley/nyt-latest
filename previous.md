@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. Recession Fear Rattles Markets**\
+`Plus, how a leader’s gambit failed.`\
+https://nytimes.com/2025/03/10/briefing/global-markets-tariffs-canada-carney-syria-unity.html
+
+**Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
+`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
+
 **NASA Eliminates Chief Scientist and Other Jobs at Its Headquarters**\
 `About 19 positions will be cut, including those in offices focused on technology policy and diversity, equity and inclusion.`\
 https://nytimes.com/2025/03/10/science/nasa-chief-scientist-fired-katherine-calvin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/health/gene-editing-beam-mutation-dna.html
 **49ers land their No. 2 tight end, agree to 3-year deal with Luke Farrell**\
 `Farrell's receiving numbers aren't prolific but the 49ers seem to believe they've upgraded behind George Kittle with a strong blocker.`\
 https://nytimes.com/athletic/6191934/2025/03/10/49ers-luke-farrell-free-agent/
-
-**Bears grab Grady Jarrett: How the veteran tackle can help the defensive line**\
-`The Bears' investment in the trenches continued with Jarrett, a two-time Pro Bowler who can be a leader up front.`\
-https://nytimes.com/athletic/6191873/2025/03/10/bears-grady-jarrett-defensive-line/
-
-**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; Aaron Banks to Green Bay**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
 

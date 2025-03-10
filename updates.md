@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. Recession Fear Rattles Markets**\
+`Plus, how a leader’s gambit failed.`\
+https://nytimes.com/2025/03/10/briefing/global-markets-tariffs-canada-carney-syria-unity.html
+
+**Minnesota Vikings 2025 free agency tracker: Sam Darnold leaving for Seattle**\
+`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tracker/
+
 **NASA Eliminates Chief Scientist and Other Jobs at Its Headquarters**\
 `About 19 positions will be cut, including those in offices focused on technology policy and diversity, equity and inclusion.`\
 https://nytimes.com/2025/03/10/science/nasa-chief-scientist-fired-katherine-calvin.html
