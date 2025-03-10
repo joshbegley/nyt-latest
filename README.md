@@ -1,3 +1,7 @@
+**Lauren Betts, UCLA hold on to win Big Ten tournament championship**\
+`Selection Sunday is 8 p.m. March 16 on ESPN. UCLA and USC are projected to be No. 1 seeds.`\
+https://nytimes.com/athletic/6189303/2025/03/09/ucla-usc-big-ten-tournament-championship/
+
 **Yohe's 10 observations: Jarry outshines Marc-Andre Fleury in rare Penguins win**\
 `Tristan Jarry stole the show in what was Marc-Andre Fleury's last game against the Penguins.`\
 https://nytimes.com/athletic/6168252/2025/03/09/penguins-tristan-jarry-marc-andre-fleury-wild/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188761/2025/03/09/blackhawks-artyom-levshunov-nhl-
 **Women's basketball conference tournaments: Who will earn overall No. 1 NCAA Tournament seed?**\
 `Which teams earned automatic bids for the NCAA Tournament?`\
 https://nytimes.com/athletic/6188814/2025/03/09/womens-college-basketball-championships-acc-sec-big-ten-12/
-
-**Davante Adams signing with Rams on 2-year, $46 million deal: Sources**\
-`The 11-year veteran and three-time All-Pro wide receiver was the No. 4-ranked free agent on The Athletic's top 150 list. `\
-https://nytimes.com/athletic/6181390/2025/03/09/davante-adams-free-agency-signing-2025-rams/
 
