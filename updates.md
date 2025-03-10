@@ -1,3 +1,11 @@
+**The Senate confirmed Lori Chavez-DeRemer, a former congresswoman with a pro-union record, as secretary of labor.**\
+`By Rebecca Davis O’Brien`\
+https://nytimes.com/live/2025/03/10/us/president-trump-news/the-senate-confirmed-lori-chavez-deremer-a-former-congresswoman-with-a-pro-union-record-as-secretary-of-labor
+
+**Patriots 2025 free agency tracker: New England lands big fish in DT Milton Williams**\
+`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127M in cap space in free agency?`\
+https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
+
 **Darius Slayton, Giants in agreement on new 3-year, $36 million deal: Source**\
 `In six seasons with the New York Giants, Slayton averaged 15.0 yards per reception.`\
 https://nytimes.com/athletic/6178807/2025/03/10/darius-slayton-free-agency-signing-2025-giants/
