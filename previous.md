@@ -1,3 +1,15 @@
+**What I'm hearing about the Islanders post-NHL trade deadline and beyond**\
+`Isles GM Lou Lamoriello says he knows the team needs to get younger — but how will they accomplish that this offseason?`\
+https://nytimes.com/athletic/6190774/2025/03/10/islanders-trade-deadline-offseason-lamoriello/
+
+**Penn State approves $50 million gift for field naming rights at Beaver Stadium**\
+`The official name of the field will be the West Shore Home Field at Beaver Stadium.`\
+https://nytimes.com/athletic/6189090/2025/03/10/penn-state-field-naming-rights-beaver-stadium/
+
+**Stuck on Where to Go This Summer? We’re Here to Help!**\
+`Send us your vacation criteria and we’ll respond with suggestions.`\
+https://nytimes.com/2025/03/10/t-magazine/summer-travel-vacation-help.html
+
 **Duke overtakes Auburn for No. 1 in final men's AP Top 25 of regular season**\
 `With less than a week until Selection Sunday, there's a new No. 1 in the college basketball polls.`\
 https://nytimes.com/athletic/6191135/2025/03/10/ap-mens-basketball-top-25-duke-auburn/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6174919/2025/03/10/new-york-giants-2025-nfl-free-ag
 **Why Older People May Not Need to Watch Blood Sugar So Closely**\
 `Intensive management of diabetes pays fewer dividends as patients age and raises the chances of hypoglycemia. But many people have not gotten the message.`\
 https://nytimes.com/2025/03/10/health/diabetes-blood-sugar-age.html
-
-**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
-`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
-https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
-
-**Patriots, LB Robert Spillane agree to terms on reported 3-year, $37.5 million deal**\
-`The Patriots spent the early part of the free-agency negotiating window bolstering their linebacker position with the signing of Spillane.`\
-https://nytimes.com/athletic/6191160/2025/03/10/robert-spillane-free-agency-signing-2025-patriots/
-
-**A Young Prince of Luxembourg Dies of a Rare Genetic Disease**\
-`Prince Frederik, 22, was a founder and the creative director of a foundation that raised awareness of POLG disorder.`\
-https://nytimes.com/2025/03/10/world/europe/prince-frederik-luxembourg-dead.html
 

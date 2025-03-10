@@ -1,3 +1,11 @@
+**X users experience multiple outages: How it impacted the NFL free agency news cycle**\
+`The unofficial start to NFL free agency coincided with three major outages on X, a frequent outlet for breaking news.`\
+https://nytimes.com/athletic/6191111/2025/03/10/x-twitter-outage-nfl-free-agency/
+
+**Harvard Announces a Hiring Freeze as Funding Is Threatened**\
+`The hiring pause at one of the nation’s wealthiest schools comes after other schools have also announced efforts to save money.`\
+https://nytimes.com/2025/03/10/us/politics/harvard-hiring-freeze-funding-trump.html
+
 **What I'm hearing about the Islanders post-NHL trade deadline and beyond**\
 `Isles GM Lou Lamoriello says he knows the team needs to get younger — but how will they accomplish that this offseason?`\
 https://nytimes.com/athletic/6190774/2025/03/10/islanders-trade-deadline-offseason-lamoriello/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency
 **Pro-Palestinian Activist at Columbia Is Moved to Detention in Louisiana**\
 `Mahmoud Khalil is a permanent resident of the United States. His arrest sets up a fight over free speech and immigrant rights.`\
 https://nytimes.com/2025/03/10/nyregion/mahmoud-khalil-ice-louisiana.html
-
-**New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
-`As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
-https://nytimes.com/athletic/6174919/2025/03/10/new-york-giants-2025-nfl-free-agency-tracker/
-
-**Why Older People May Not Need to Watch Blood Sugar So Closely**\
-`Intensive management of diabetes pays fewer dividends as patients age and raises the chances of hypoglycemia. But many people have not gotten the message.`\
-https://nytimes.com/2025/03/10/health/diabetes-blood-sugar-age.html
 

@@ -1,3 +1,15 @@
+**What I'm hearing about the Islanders post-NHL trade deadline and beyond**\
+`Isles GM Lou Lamoriello says he knows the team needs to get younger — but how will they accomplish that this offseason?`\
+https://nytimes.com/athletic/6190774/2025/03/10/islanders-trade-deadline-offseason-lamoriello/
+
+**Penn State approves $50 million gift for field naming rights at Beaver Stadium**\
+`The official name of the field will be the West Shore Home Field at Beaver Stadium.`\
+https://nytimes.com/athletic/6189090/2025/03/10/penn-state-field-naming-rights-beaver-stadium/
+
+**Stuck on Where to Go This Summer? We’re Here to Help!**\
+`Send us your vacation criteria and we’ll respond with suggestions.`\
+https://nytimes.com/2025/03/10/t-magazine/summer-travel-vacation-help.html
+
 **Duke overtakes Auburn for No. 1 in final men's AP Top 25 of regular season**\
 `With less than a week until Selection Sunday, there's a new No. 1 in the college basketball polls.`\
 https://nytimes.com/athletic/6191135/2025/03/10/ap-mens-basketball-top-25-duke-auburn/
