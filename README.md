@@ -1,3 +1,11 @@
+**Accused Sex Traffickers Receive Warm Welcome From a Trump Ally**\
+`Dana White of the U.F.C. greeted Andrew Tate and his brother at an event, highlighting a divide among conservatives.`\
+https://nytimes.com/2025/03/10/style/andrew-tate-dana-white-ufc-trump.html
+
+**49ers 2025 free agency tracker: Talanoa Hufanga to Denver; will Dre Greenlaw return?**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
+
 **Panthers, Tre'von Moehrig agree to 3-year deal: Big addition to team's overhaul at safety**\
 `After locking up CB Jaycee Horn to a long-term deal, the Panthers added another piece to the secondary by adding the former Raiders safety.`\
 https://nytimes.com/athletic/6191550/2025/03/10/trevon-moehrig-panthers-free-agency-signing-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181495/2025/03/10/minnesota-vikings-free-agent-tra
 **Indianapolis Colts 2025 free agency tracker: Will Chris Ballard make a splash signing?**\
 `As the Colts look to rebound from a disappointing 2024, follow along here for all of their additions and subtractions during free agency. `\
 https://nytimes.com/athletic/6174768/2025/03/10/colts-nfl-free-agency-tracker-2025/
-
-**OT Morgan Moses agrees to 3-year, $24M deal with Patriots: Source**\
-`The Patriots have their new right tackle, agreeing to a reported three-year deal worth $24 million with the 34-year-old Moses, a former Jet.`\
-https://nytimes.com/athletic/6191524/2025/03/10/morgan-moses-free-agency-signing-2025-patriots/
-
-**Ukraine Must Cede Territory in Any Peace Deal, Rubio Says**\
-`The secretary of state, heading to talks with Ukrainian officials in Saudi Arabia, said future talks with Moscow will be needed to determine what Russia is willing to give up to end the war.`\
-https://nytimes.com/2025/03/10/us/politics/rubio-ukraine-russia.html
 
