@@ -1,3 +1,11 @@
+**Cadillac F1 boss confirms team would consider American driver 'on merit'**\
+`Cadillac's application to join 2026 grid was approved last week — meaning the new team now has work to do in the driver market.`\
+https://nytimes.com/athletic/6191648/2025/03/10/cadillac-formula-1-team-drivers/
+
+**Patriots agree to terms with free-agent ex-Eagle Milton Williams: Source**\
+`Despite his limited reps, Williams served as a highly efficient interior pass rusher in his four seasons with the Eagles. `\
+https://nytimes.com/athletic/6175531/2025/03/10/milton-williams-free-agency-patriots-signing-2025/
+
 **Josh Sweat agrees to terms with Cardinals: Source**\
 `The veteran edge rusher is coming off a big performance in the Eagles' Super Bowl LIX win over the Chiefs in which he had 2.5 sacks.`\
 https://nytimes.com/athletic/6172731/2025/03/10/josh-sweat-cardinals-free-agency/
