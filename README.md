@@ -1,40 +1,40 @@
-**Matt Ritchie: 'Eddie Howe changed the trajectory of my life. I’ll forever be thankful'**\
-`Eddie Howe eulogised him as 'relentless'. Now winger Ritchie tells George Caulkin how playing for Newcastle unlocked his limitless energy`\
-https://nytimes.com/athletic/6183806/2025/03/10/matt-ritchie-interview-newcastle-howe-benitez/
+**Counter-attacking, clearances and a clean sheet: Have Villa rediscovered their blueprint for success?**\
+`Villa have turned a corner with their last two away performances - and Unai Emery says they are 'really hungry' to end the season in style`\
+https://nytimes.com/athletic/6187327/2025/03/10/aston-villa-unai-emery-blueprint/
 
-**Inside the underground world of fake football shirts**\
-`Premier League clubs' official replica kits have become very expensive but 'buying that fake is far from a victimless crime'`\
-https://nytimes.com/athletic/5419581/2025/03/10/fake-football-shirts-investigation/
+**Broncos, D.J. Jones agree to 3-year extension: Source**\
+`The agreement locks down Jones just before he was set to become an unrestricted free agent.`\
+https://nytimes.com/athletic/6189924/2025/03/10/broncos-dj-jones-extension/
 
-**The Briefing: A glimpse of the task ahead at Arsenal and do league games matter for Spurs?**\
-`Nick Miller answers the big questions to arise from the weekend's Premier League action`\
-https://nytimes.com/athletic/6188865/2025/03/10/briefing-arsenal-tottenham-champions-league/
+**For Wolves, it's about you-know-who. Even when he's not playing**\
+`There is much to do to get Wolves - the team and club - on a purposeful upward trajectory again, with or without he-who-shall-not-be-named`\
+https://nytimes.com/athletic/6186914/2025/03/10/wolves-matheus-cunha-everton/
 
-**How a leading football agency identifies the next generation of star players**\
-`Clubs are not the only ones scouting football's next big thing - agencies put huge amounts of time and resource into talent identification`\
-https://nytimes.com/athletic/6161762/2025/03/10/how-a-leading-football-agency-identifies-the-next-generation-of-star-players/
+**Adam Wharton and a perfect pass that must have impressed Thomas Tuchel**\
+`To his team-mates Wharton is 'just Adam from up north' - will Tuchel name the midfielder in his first England squad?`\
+https://nytimes.com/athletic/6179707/2025/03/10/adam-wharton-crystal-palace-england/
 
-**The wisdom is that Arsenal need a No 9 but maybe more No 10s are just as important**\
-`A lack of chance creation from Mikel Arteta's side is proving just as problematic as the absence of a striker to finish them off`\
-https://nytimes.com/athletic/6189051/2025/03/10/arsenal-creativity-number-nine/
+**Leicester were improved at Chelsea - but it's not enough. Championship planning must begin**\
+`Following another loss - this time at Stamford Bridge - key questions about the manager and squad need to be addressed ahead of next season`\
+https://nytimes.com/athletic/6188369/2025/03/10/tweaked-leicester-looked-better-but-its-not-enough-planning-for-the-championship-must-start-now/
 
-**Peter Lim, the Singapore billionaire who owns Valencia but hasn't watched them play for 1,500 days**\
-`The Athletic spoke to more than a dozen people to try to work out who 71-year-old Lim is and why he ever got involved with Valencia `\
-https://nytimes.com/athletic/6079296/2025/03/10/peter-lim-valencia-owner-sale-mestalla-relegation/
+**PlayStation football? Maresca's Chelsea have plenty of glitches to iron out**\
+`Chelsea's narrow home win over struggling Leicester will do little to quell fan grumbles. Maresca's side need to find their bearings again`\
+https://nytimes.com/athletic/6188598/2025/03/10/chelsea-leicester-enzo-maresca-cucurella/
 
-**How Forest masterfully shut down Man City - and maintained a threat in transition**\
-`Forest's defensive display mastered ball-control, directness and incisive counter-attacking. It proved too much for Pep Guardiola’s side`\
-https://nytimes.com/athletic/6187851/2025/03/10/nottingham-forest-manchester-city-analysis/
+**Postecoglou and Tottenham finally feel the benefit of having some squad depth**\
+`Spurs were able to rally from 2-0 down against Bournemouth, in large part because of their ability to introduce senior players off the bench`\
+https://nytimes.com/athletic/6188706/2025/03/10/tottenham-bournemouth-squad-depth/
 
-**The New York Times in Print for Monday, March 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/10/todays-new-york-times
+**Brighton's front five keep delivering and are driving Hurzeler's team towards Europe**\
+`Joao Pedro, Danny Welbeck, Yankuba Minteh, Georginio Rutter and Kaoru Mitoma have scored 18 of Brighton's past 20 goals`\
+https://nytimes.com/athletic/6183778/2025/03/10/brighton-front-five-welbeck-joao-pedro/
 
-**Monday Briefing**\
-`Canada’s next prime minister.`\
-https://nytimes.com/2025/03/10/briefing/canada-leader-syria-ukraine.html
+**It is Chelsea's 120th birthday: Share your favourite player, manager, match and kit**\
+`Chelsea turn 120 today - we want to hear your thoughts about the club's history`\
+https://nytimes.com/athletic/6183459/2025/03/10/chelseas-120th-birthday-share-your-favourite-player-manager-match-and-kit/
 
-**‘Everybody’s Live With John Mulaney,’ Plus 6 Things to Watch on TV this Week**\
-`A live talk show comes to Netflix, Ringo Starr performs in Nashville and Amanda Seyfried plays a Philadelphia police officer.`\
-https://nytimes.com/2025/03/10/arts/television/everybodys-live-with-john-mulaney-plus-6-things-to-watch-on-tv-this-week.html
+**Leeds wasted the advantage of two brilliant late wins. Are they really falling apart again?**\
+`There are rights to be wronged against Millwall and QPR. The timing could not be better.`\
+https://nytimes.com/athletic/6188346/2025/03/10/leeds-wasted-the-advantage-of-two-brilliant-late-wins-are-they-really-falling-apart-again/
 
