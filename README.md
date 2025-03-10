@@ -1,4 +1,8 @@
-**The Briefing: Real Madrid 2 Rayo Vallecano 1 - Mbappe and Vinicius find some bite, Tchouameni makes his mark**\
+**Big Drama Cannot Distract From Irrelevant Clothes**\
+`It’s the wrong moment for the fashion theatrics of Valentino, McQueen and Dior. But Balenciaga got it right.`\
+https://nytimes.com/2025/03/10/style/valentino-dior-balenciaga-fall-2025.html
+
+**The Briefing: Real Madrid 2 Rayo Vallecano 1 - Mbappe and Vinicius Jr find some bite, Tchouameni makes his mark**\
 `Carlo Ancelotti's side endured a difficult second half but took reassurance from David Alaba's performance at the back`\
 https://nytimes.com/athletic/6189117/2025/03/10/real-madrid-rayo-mbappe-vinicius-tchouameni-alaba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6186910/2025/03/10/joao-pedro-brighton-hurzeler/
 **Kawhi Leonard's OT buzzer-beater powers Clippers past Kings**\
 `The moment recalled Leonard's iconic 2019 Eastern Conference semifinals shot against the 76ers that required four bounces before going in.`\
 https://nytimes.com/athletic/6189949/2025/03/10/kawhi-leonard-ot-buzzer-beater-kings/
-
-**Manchester United lack confidence - but courage still brings the best out of them**\
-`Ruben Amorim's side offered glimpses of their capabilities against Arsenal but were at their best when being brave`\
-https://nytimes.com/athletic/6188378/2025/03/10/manchester-united-amorim-arsenal-courage-dalot/
 
