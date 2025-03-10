@@ -1,3 +1,15 @@
+**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
+
+**A Young Prince of Luxembourg Dies of a Rare Genetic Disease**\
+`Prince Frederik, 22, was a founder and the creative director of a foundation that raised awareness of POLG disorder.`\
+https://nytimes.com/2025/03/10/world/europe/prince-frederik-luxembourg-dead.html
+
+**Cornerback Carlton Davis agrees to 3-yr with Patriots: Sources**\
+`There are some injury concerns, but Davis has been one of the most productive cornerbacks in the league over the last seven years. `\
+https://nytimes.com/athletic/6175649/2025/03/10/carlton-davis-nfl-free-agent-patriots/
+
 **Manchester United's new solution for slow home starts? Swap ends**\
 `Ruben Amorim has been desperate to cure the team's poor starts to games and has adopted an unusual tactic`\
 https://nytimes.com/athletic/6191045/2025/03/10/manchester-united-old-trafford-swap-ends/
