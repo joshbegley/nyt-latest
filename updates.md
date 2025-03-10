@@ -1,3 +1,11 @@
+**Patriots 2025 free agency tracker: Seeking help at WR, O-line and D-line**\
+`New England's needs are plentiful this offseason. How will Mike Vrabel make use of the team’s more than $127 million in cap space?`\
+https://nytimes.com/athletic/6181436/2025/03/10/new-england-patriots-free-agency-tracker/
+
+**Liverpool’s new Adidas kit deal explained: What it means for revenue, transfers and next season**\
+`Everything you need to know about the league-leaders returning to Adidas`\
+https://nytimes.com/athletic/6190491/2025/03/10/liverpool-adidas-kit-deal-explained/
+
 **Emotional Brad Marchand reflects on being traded by the Bruins: ‘I wanted to stay there’**\
 `Marchand, speaking at the Panthers’ practice facility on Monday, said, "It was very disappointing" not to get an extension done with Boston.`\
 https://nytimes.com/athletic/6190768/2025/03/10/brad-marchand-interview-bruins-panthers/
