@@ -1,3 +1,11 @@
+**Eagles trade DB C.J. Gardner-Johnson to Texans for OL Kenyon Green: Sources**\
+`The teams swap future Day 3 picks in a deal that gives the Eagles offensive line depth and further bolsters a talented Texans secondary.`\
+https://nytimes.com/athletic/6194021/2025/03/11/eagles-cj-gardner-johnson-trade-texans-news/
+
+**Archaeologists Unearth Oldest Jewish Ritual Bath Found in Europe**\
+`Discovered outside Rome, the bath, which is thought to be a mikvah, could be more than 1,600 years old.`\
+https://nytimes.com/2025/03/11/world/europe/ancient-rome-port-excavation-jewish-ritual-bath.html
+
 **Daniel Jones, Colts agree to 1-year, $14 million deal**\
 `Jones was the fifth-ranked QB on The Athletic's list of the top 150 free agents and spent six seasons as a starter with the Giants.`\
 https://nytimes.com/athletic/6178741/2025/03/11/daniel-jones-contract-colts-nfl-free-agency/
@@ -25,16 +33,4 @@ https://nytimes.com/2025/03/11/arts/dance/twyla-tharp-diabelli-slacktide.html
 **Reyna, Adams return as Pochettino crafts U.S.'s Nations League finals squad**\
 `Here are the 23 players Mauricio Pochettino has called upon for the U.S.'s attempt to win yet another Concacaf Nations League title.`\
 https://nytimes.com/athletic/6192083/2025/03/11/usmnt-roster-concacaf-nations-league-finals-pochettino-reyna/
-
-**Separatists Hijack Train Carrying Over 400 Passengers in Pakistan**\
-`The authorities were struggling to reach the remote site of the ambush in the country’s southwest, and the passengers’ fate was not immediately known.`\
-https://nytimes.com/2025/03/11/world/asia/pakistan-balochistan-train-hijacking.html
-
-**For Klay Thompson, Kyrie Irving's injury, and expected recovery, look familiar**\
-`Thompson had a similar ACL injury in 2019 as Irving earlier this month. “We know he’s going to come back stronger,” Thompson said of Irving.`\
-https://nytimes.com/athletic/6193195/2025/03/11/klay-thompson-kyrie-irving-mavericks-nba/
-
-**2025 NFL free agency: Fantasy football winners, losers, ranks and more**\
-`Jake Ciely weighs in on all the offseason NFL deals that matter for fantasy football 2025, including DK Metcalf's trade to Pittsburgh.`\
-https://nytimes.com/athletic/6189413/2025/03/11/2025-nfl-free-agency-fantasy-football-winners-losers-ranks/
 
