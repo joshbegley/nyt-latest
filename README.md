@@ -1,3 +1,7 @@
+**Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
+`Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
+https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
+
 **You Cannot Run a Country This Way**\
 `Trump’s foreign policy philosophy is not “containment” or “engagement,” but “smash and grab.”`\
 https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6194219/2025/03/11/gary-odriscoll-doctor-manchester
 `Rodriguez said he wasn’t banning players from the platform; he was just banning them from dancing on it.`\
 https://nytimes.com/athletic/6195874/2025/03/11/west-virginia-football-tiktok-dance-banned/
 
-**The Briefing - Liverpool 0 PSG 1 (1-1 agg, 2-4 pens): Donnarumma heroics seal dramatic win**\
+**The Briefing - Liverpool 0 PSG 1 (1-1 agg, 1-4 pens): Donnarumma heroics seal dramatic win**\
 `The big talking points from the Champions League last-16 decider at Anfield`\
 https://nytimes.com/athletic/6194331/2025/03/11/liverpool-psg-champions-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/business/manchester-united-new-stadium-plans.html
 **Republicans Call on Olympic Committee to Bar Transgender Women from Women’s Sports**\
 `More than two dozen G.O.P. members of the House and Senate called on the International Olympic Committee to align its eligibility rules with President Trump’s transgender sports ban.`\
 https://nytimes.com/2025/03/11/us/politics/olympic-trans-athlete-ban.html
-
-**How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
-`The House passed a measure to fund the federal government through September.`\
-https://nytimes.com/interactive/2025/03/11/us/politics/house-government-shutdown-vote.html
 
