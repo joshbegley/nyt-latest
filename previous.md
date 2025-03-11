@@ -1,3 +1,31 @@
+**Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
+`Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
+https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
+
+**You Cannot Run a Country This Way**\
+`Trump’s foreign policy philosophy is not “containment” or “engagement,” but “smash and grab.”`\
+https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
+
+**Man Utd's head of medical services O’Driscoll to leave after 18 months**\
+`O'Driscoll moved to Old Trafford in September 2023 from Arsenal, where he had occupied the same role for six years.`\
+https://nytimes.com/athletic/6194219/2025/03/11/gary-odriscoll-doctor-manchester-united/
+
+**West Virginia coach Rich Rodriguez bans team from dancing on TikTok**\
+`Rodriguez said he wasn’t banning players from the platform; he was just banning them from dancing on it.`\
+https://nytimes.com/athletic/6195874/2025/03/11/west-virginia-football-tiktok-dance-banned/
+
+**The Briefing - Liverpool 0 PSG 1 (1-1 agg, 1-4 pens): Donnarumma heroics seal dramatic win**\
+`The big talking points from the Champions League last-16 decider at Anfield`\
+https://nytimes.com/athletic/6194331/2025/03/11/liverpool-psg-champions-league-analysis/
+
+**T's March 30 Design Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/03/11/ts-march-30-design-issue-2025
+
+**Trump Plugs Tesla at the White House, Offering Musk a Boost**\
+`President Trump has spent years bashing electric vehicles. But with Elon Musk by his side, he said he would buy a bright red one.`\
+https://nytimes.com/2025/03/11/us/politics/trump-buy-tesla-elon-musk.html
+
 **Senate Confirms Gail Slater as Justice Dept.’s Antitrust Lead**\
 `Slater, a longtime Washington lawyer, has been particularly critical of power in the tech industry.`\
 https://nytimes.com/2025/03/11/us/politics/senate-confirms-gail-slater-as-justice-depts-antitrust-lead.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/11/business/manchester-united-new-stadium-plans.html
 **Republicans Call on Olympic Committee to Bar Transgender Women from Women’s Sports**\
 `More than two dozen G.O.P. members of the House and Senate called on the International Olympic Committee to align its eligibility rules with President Trump’s transgender sports ban.`\
 https://nytimes.com/2025/03/11/us/politics/olympic-trans-athlete-ban.html
-
-**How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
-`The House passed a measure to fund the federal government through September.`\
-https://nytimes.com/interactive/2025/03/11/us/politics/house-government-shutdown-vote.html
-
-**Brian Cashman: Yankees face 'difficult' road in replacing Cole, Gil**\
-`The Yankees GM foresees "very limited" early season options to patch up the starting rotation.`\
-https://nytimes.com/athletic/6195292/2025/03/11/yankees-cashman-difficult-road-gerrit-cole-luis-gil/
-
-**Oregon State completes unlikely run to WCC title, lands NCAA bid**\
-`Having lost most of their key players after the Pac-12's demise, Beavers make unlikely run to NCAA Tournament.`\
-https://nytimes.com/athletic/6195684/2025/03/11/oregon-state-wcc-title-ncaa-bid/
-
-**Russia Begins Assault on Ukrainian-Occupied Town in Kursk Region**\
-`Moscow’s military advances on the town of Sudzha may deprive Kyiv of a bargaining chip in peace talks.`\
-https://nytimes.com/2025/03/11/world/europe/ukraine-sudzha-russian-forces.html
-
-**Stanley R. Jaffe, 84, Oscar-Winning Producer and Hollywood Power, Dies**\
-`His “Kramer vs. Kramer” won for best picture in 1980, one of many high points in a career that saw him in top jobs, twice, at Paramount.`\
-https://nytimes.com/2025/03/11/movies/stanley-r-jaffe-dead.html
-
-**Power, Money, Territory: How Trump Shook the World in 50 Days**\
-`The system America took 80 years to assemble proved surprisingly fragile in the face of Trump’s assault, a revolution in how the country exercises power across the globe.`\
-https://nytimes.com/2025/03/11/us/politics/trump-50-days-foreign-policy.html
-
-**Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
-`The vote in Parliament will force new elections, the third in little more than three years.`\
-https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
 
