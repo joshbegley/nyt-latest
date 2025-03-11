@@ -1,3 +1,15 @@
+**Nathan MacKinnon on Connor Bedard's stagnant production: 'I'd have killed for that when I was 19'**\
+`MacKinnon serves as a reminder that a major breakthrough doesn’t happen overnight for everybody.`\
+https://nytimes.com/athletic/6194133/2025/03/11/nathan-mackinnon-connor-bedard-nhl-struggles/
+
+**‘Adolescence’ Is a Cacophonous, Gripping Mini-Series**\
+`The emotionally complex new Netflix series, about a teenager accused of killing a classmate, doubles as a rich work of social critique.`\
+https://nytimes.com/2025/03/11/arts/television/adolescence-netflix.html
+
+**Chiefs free agency tracker: Ex-Chargers CB Kristian Fulton added to boost secondary**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/11/kansas-city-chiefs-2025-free-agency-tracker/
+
 **The Philharmonic’s New Season: What We’re Excited to Hear**\
 `Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
 https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6194184/2025/03/11/c-j-gardner-johnson-trade-grades
 **Tuberculosis Resurgent as Trump Funding Cut Disrupts Treatment Globally**\
 `The United States was the major funder of tuberculosis programs. Now hundreds of thousands of sick patients can’t find tests or drugs, and risk spreading the disease.`\
 https://nytimes.com/2025/03/11/health/tuberculosis-kenya-us-cuts.html
-
-**BKK New York Brings Thai Spins on Comfort Food to Midtown**\
-`Tashkent Supermarket opens a branch in Greenwich Village, Silver Moon Bakery to close and more news.`\
-https://nytimes.com/2025/03/11/dining/nyc-restaurant-news.html
-
-**Men's conference tourney projections, best bets: Picks for every major league**\
-`Austin Mock's projection model gives the chances for each team to win its conference tournaments that start this week.`\
-https://nytimes.com/athletic/6194139/2025/03/11/conference-tournament-projections-best-bets-acc-sec-big-ten/
-
-**PGA Tour willing to adopt elements of LIV Golf**\
-`"We're doing everything that we can to bring the two sides together,” PGA Tour commissioner Jay Monahan said Tuesday.`\
-https://nytimes.com/athletic/6194316/2025/03/11/pga-tour-liv-golf-pif-deal-changes/
 
