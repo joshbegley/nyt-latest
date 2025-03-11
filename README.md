@@ -1,3 +1,7 @@
+**What Covid Taught Us**\
+`We look at how the world changed — and what studies revealed about how we live.`\
+https://nytimes.com/2025/03/11/briefing/what-covid-taught-us.html
+
 **Storms Are Headed for California. One Could Be a Big Snow Maker.**\
 `Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
 https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192886/2025/03/11/detroit-red-wings-playoff-chase-
 **Paul Skenes is baseball’s next big thing. That’s a blessing and a burden**\
 `Viral moments. Devastating pitches. Adoring crowds. For Skenes, everything is happening all at once as he tries to manage it all. `\
 https://nytimes.com/athletic/6192259/2025/03/11/paul-skenes-baseball-celebrity-pirates/
-
-**Feldman's top 25 coaches for the 2025 CFB season: Sark, Freeman make big jumps**\
-`Ranking the top three coaches in college football was easy this year. The rest of the Top 25? It gets complicated. Here's who I picked.`\
-https://nytimes.com/athletic/6191343/2025/03/11/college-football-coach-rankings-bruce-feldman-2025/
 

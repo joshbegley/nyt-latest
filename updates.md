@@ -1,3 +1,11 @@
+**Storms Are Headed for California. One Could Be a Big Snow Maker.**\
+`Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
+https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
+
+**Sunderland post loss for 18th straight year, no issues with PSR**\
+`The club's pre-tax losses would have doubled had it not sold striker Ross Stewart to Southampton in September 2023.`\
+https://nytimes.com/athletic/6193309/2025/03/11/sunderland-accounts-psr-finances/
+
 **00covid-rv-carousel**\
 `(No description)`\
 https://nytimes.com/card/watch/2025/03/11/health/covid-5-year-anniversary-videos
