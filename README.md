@@ -1,3 +1,23 @@
+**Murder Charges Are Brought in Death of 5-Year-Old Boy in Hyperbaric Chamber**\
+`The Michigan attorney general has accused the owner of a medical center and three of its employees of ignoring safety standards to make a profit.`\
+https://nytimes.com/2025/03/11/us/child-hyperbaric-chamber-death-detroit-charges.html
+
+**Investigators Recommend Permanent Restrictions for Helicopters Flying Near Reagan Airport**\
+`Citing “intolerable risk for aviation safety,” the National Transportation Safety Board says helicopters should be banned from flying a certain route near Washington if two specific runways are in use.`\
+https://nytimes.com/2025/03/11/us/politics/dc-plane-crash-ntsb-helicopters.html
+
+**Larry Appelbaum, Who Found Jazz Treasure in the Archives, Dies at 67**\
+`He helped turn the Library of Congress into a leading center for research on the history of jazz, and made some surprising discoveries of his own.`\
+https://nytimes.com/2025/03/11/arts/music/larry-appelbaum-dead.html
+
+**kobe-bryant-murals-los-angeles**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/kobe-bryant-murals-los-angeles
+
+**Listen: Which version of Sam Darnold are the Seahawks going to get?**\
+`"The Athletic Football Show" discusses whether the Seattle Seahawks were right to put their future in Sam Darnold’s hands.`\
+https://nytimes.com/athletic/6194149/2025/03/11/athletic-football-show-seattle-seahawks-sam-darnold/
+
 **Dahlin doesn’t want to be traded, but Sabres must do better by their captain**\
 `As captain, Dahlin should be having honest conversations with management about the direction of the team.`\
 https://nytimes.com/athletic/6194837/2025/03/11/sabres-rasmus-dahlin-kevyn-adams-trade/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/11/world/asia/duterte-arrest-international-criminal-
 **Eagles accept Donald Trump's invitation to visit White House**\
 `After the Eagles' Super Bowl win in 2018, Trump canceled the team's White House visit over a national anthem dispute.`\
 https://nytimes.com/athletic/6164476/2025/03/11/eagles-super-bowl-white-house-visit-trump/
-
-**The Briefing - Barcelona 3 Benfica 1 (agg: 4-1): Can Yamal and Raphinha help Barcelona win Champions League?**\
-`Yamal’s super strike capped another outstanding performance, while Raphinha’s double strike made him top scorer in the competition`\
-https://nytimes.com/athletic/6194332/2025/03/11/barcelona-3-benfica-1-yamal-raphinha-the-briefing/
-
-**Inside Google’s Investment in the A.I. Start-Up Anthropic**\
-`The internet giant owns 14% of the high-profile artificial intelligence company, according to legal filings obtained by The New York Times.`\
-https://nytimes.com/2025/03/11/technology/google-investment-anthropic.html
-
-**Israel and Lebanon Agree to Talks on Border, Long a Source of Tension**\
-`Officials say negotiations would also include the future of Israeli military outposts in Lebanon and of Lebanese prisoners still held in Israel.`\
-https://nytimes.com/2025/03/11/world/middleeast/israel-lebanon-border-talks.html
-
-**Republicans Quietly Cede Power to Cancel Trump’s Tariffs, Avoiding a Tough Vote**\
-`House G.O.P. leaders tucked the provision into a procedural measure needed to pass a government spending bill.`\
-https://nytimes.com/2025/03/11/us/politics/trump-tariffs-house-gop-vote.html
-
-**Mel Gibson’s Gun Was Taken Away Over a Misdemeanor. Here’s Why.**\
-`Federal law has special provisions in domestic violence cases because of their unique risks.`\
-https://nytimes.com/2025/03/11/us/mel-gibson-gun-misdemeanor.html
 
