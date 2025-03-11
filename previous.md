@@ -1,9 +1,13 @@
+**Rodrigo Duterte, Philippine Ex-President, Is Arrested on I.C.C. Warrant**\
+`The International Criminal Court has been investigating the deadly crackdown that Mr. Duterte, who was detained in Manila on Tuesday, oversaw while in power.`\
+https://nytimes.com/2025/03/10/world/asia/icc-philippines-rodrigo-duterte.html
+
 **Full Time: Your guide to the NWSL season**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6192900/2025/03/10/nwsl-2025-season-preview-full-time/
 
 **Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
-`If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jaylen Brown to score more.`\
+`If teams try to prevent 3s from Boston's supporting cast, it only forces Jayson Tatum and Jaylen Brown to score more.`\
 https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
 
 **Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agen
 **The Cubs' goal for the Tokyo Series is bigger than Kevin Alcántara or Matt Shaw**\
 `The team plans to finalize its travel roster Tuesday morning and leave promptly following an afternoon Cactus League game. `\
 https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
-
-**Signs of Spring**\
-`Jared Cappel sticks the landing in his New York Times Crossword debut.`\
-https://nytimes.com/2025/03/10/crosswords/daily-puzzle-2025-03-11.html
 
