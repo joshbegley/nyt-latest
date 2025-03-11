@@ -1,3 +1,15 @@
+**Rodrigo Duterte Arrested on I.C.C. Warrant**\
+`The former president of the Philippines was detained at an airport in Manila, a step toward possibly bringing justice to the many Filipinos killed during his drug war.`\
+https://nytimes.com/video/world/asia/100000010044631/icc-philippines-rodrigo-duterte.html
+
+**Critical Fire Conditions Return to the Southwest This Week**\
+`Strong winds and dry conditions fueled fires and dust storms last week. Dust kicked up by the winds traveled as far as West Virginia.`\
+https://nytimes.com/2025/03/11/weather/fire-dry-texas-new-mexico.html
+
+**The New York Times International Edition in Print for Wednesday, March 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/11/todays-new-york-times-international-edition
+
 **Why the Falcons let Grady Jarrett go and how it will affect the locker room**\
 `Releasing Jarrett had to sting for Falcons owner Arthur Blank. The veteran was the face of the defense and locker room leader in Atlanta.`\
 https://nytimes.com/athletic/6191943/2025/03/11/falcons-release-grady-jarrett-impact/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/world/middleeast/ramadan-west-bank-palestinians.h
 **Those Sounds (Brrr-ah Bah Bah-BAH) You Hear? Choreographers at Work.**\
 `In dance, a wordless art, an improvised language of rhythmic noises helps communicate the shape and feel of movement.`\
 https://nytimes.com/2025/03/11/arts/dance/dance-choreography-vocals.html
-
-**Michigan Lieutenant Governor Begins Campaign for State’s Top Job**\
-`Lt. Gov. Garlin Gilchrist II, a software engineer from Detroit, entered a growing Democratic primary field for governor in a period of uncertainty for his party.`\
-https://nytimes.com/2025/03/11/us/garlin-gilchrist-michigan-governor-campaign.html
-
-**The Problem for Democratic Optimists**\
-`Even if the party can move toward the center, it may not help.`\
-https://nytimes.com/2025/03/11/opinion/democrats-center-future.html
-
-**The Searing Memories of the Pandemic’s Early Days**\
-`Five years after Covid-19 hit New York, we are still trying to comprehend the impact it had on the city and the losses we suffered.`\
-https://nytimes.com/2025/03/11/nyregion/covid-pandemic-five-years-memories.html
 
