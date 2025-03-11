@@ -1,3 +1,11 @@
+**49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
+`Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
+https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/
+
+**Musk’s Team Must Produce Documents to Comply With Open Records Laws, Judge Says**\
+`A federal judge in Washington ordered Elon Musk’s team and the Office of Management and Budget to begin releasing internal documents “as soon as practicable.”`\
+https://nytimes.com/2025/03/10/us/politics/musk-doge-foia-lawsuit.html
+
 **Rodrigo Duterte, Philippine Ex-President, Is Arrested on I.C.C. Warrant**\
 `The International Criminal Court has been investigating the deadly crackdown that Mr. Duterte, who was detained in Manila on Tuesday, oversaw while in power.`\
 https://nytimes.com/2025/03/10/world/asia/icc-philippines-rodrigo-duterte.html
