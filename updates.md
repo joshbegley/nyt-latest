@@ -1,3 +1,7 @@
+**More Universities Are Choosing to Stay Neutral on the Biggest Issues**\
+`Instead of speaking out on the hot-button debates of the day, more schools are making it a policy to stay silent as political pressure mounts against higher education.`\
+https://nytimes.com/2025/03/11/us/institutional-neutrality-universities-free-speech.html
+
 **Graham Potter wants to rebuild West Ham's midfield - Monday night's game showed why**\
 `Newcastle's strength in the middle of the pitch highlighted what Potter is lacking in his squad at the moment`\
 https://nytimes.com/athletic/6191796/2025/03/11/west-ham-potter-midfield-rebuild/

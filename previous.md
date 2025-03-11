@@ -1,3 +1,7 @@
+**More Universities Are Choosing to Stay Neutral on the Biggest Issues**\
+`Instead of speaking out on the hot-button debates of the day, more schools are making it a policy to stay silent as political pressure mounts against higher education.`\
+https://nytimes.com/2025/03/11/us/institutional-neutrality-universities-free-speech.html
+
 **Graham Potter wants to rebuild West Ham's midfield - Monday night's game showed why**\
 `Newcastle's strength in the middle of the pitch highlighted what Potter is lacking in his squad at the moment`\
 https://nytimes.com/athletic/6191796/2025/03/11/west-ham-potter-midfield-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/crosswords/spelling-bee-forum.html
 **History Isn’t Entirely Repeating Itself in Covid’s Aftermath**\
 `Five years after the novel coronavirus emerged, historians see echoes of other great illnesses, and legacies that are unlike any of them.`\
 https://nytimes.com/2025/03/11/health/covid-pandemic-history.html
-
-**Late Night Takes Stock of Trump’s Effect on the Markets**\
-`“In the first Trump term, it took a disease to destroy the economy,” Stephen Colbert said. “This time, he’s the disease.”`\
-https://nytimes.com/2025/03/11/arts/television/late-night-trump-stock-market.html
 
