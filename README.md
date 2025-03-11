@@ -1,3 +1,7 @@
+**All-Post-250 ADP team: Jonathan Aranda among top last-round fantasy baseball targets**\
+`John Laghezza shares his favorite targets in the late rounds of fantasy baseball drafts, including a potential power breakout in Tampa.`\
+https://nytimes.com/athletic/6184347/2025/03/11/post-250-adp-team-fantasy-baseball-2025/
+
 **Juwan Johnson, Saints agree to three-year deal: Source**\
 `Johnson, 28, the No. 13 free agent on The Athletic's list of the top 150 available, was the top tight end on the market. `\
 https://nytimes.com/athletic/6174827/2025/03/11/juwan-johnson-free-agency-signing-2025-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/sudiksha-konanki-missing-punta-cana-search.htm
 **E.P.A. Grant Recipients Find Their Funds Frozen, With No Explanation**\
 `Dozens of nonprofit groups have been unable to access the federal government’s payment system. The E.P.A. hasn’t explained why.`\
 https://nytimes.com/2025/03/11/climate/epa-grant-recipients-funding-freeze.html
-
-**Cam Smith's audition for the Astros' Opening Day roster moves to right field**\
-`Asking Smith to learn a new position while adjusting to life in the majors might be ludicrous, but he has forced the Astros to consider it.`\
-https://nytimes.com/athletic/6194686/2025/03/11/cam-smith-audition-astros-right-field/
 
