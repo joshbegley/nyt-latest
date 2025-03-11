@@ -1,3 +1,11 @@
+**Gerrit Cole’s season-ending surgery shows how much pitching has changed**\
+`From 2015 through 2024, Cole led MLB with 1,698 ⅔ innings, plus another 122 ⅔ in the postseason. And finesse has never been his game.`\
+https://nytimes.com/athletic/6195417/2025/03/11/gerrit-cole-yankees-surgery-pitching/
+
+**Rams’ WR Puka Nacua to change jersey number to honor family history**\
+`The Rams leading receiver from the 2024 season will have a new uniform number in 2025. `\
+https://nytimes.com/athletic/6195320/2025/03/11/rams-puka-nacua-jersey-number-change/
+
 **Alabama City Suspends Entire Police Force After Sweeping Indictments**\
 `The City Council of Hanceville voted to disband its police force and then rebuild it after its chief and four officers were indicted on multiple charges.`\
 https://nytimes.com/2025/03/11/us/hanceville-alabama-police-department-replacement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188862/2025/03/11/commanders-free-agency-tracker-s
 **gws-austrian-alps-ski-hotel-guide**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/austrian-alps-ski-hotel-guide
-
-**gws-chicken-broth-winter-soup-recipe**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/chicken-broth-winter-soup-recipe
-
-**Minnesota State House District 40B Special Election Results**\
-`Get live results and maps from the 2025 Minnesota State House special election.`\
-https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
 
