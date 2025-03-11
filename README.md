@@ -1,40 +1,40 @@
-**Rules for Portable Batteries on Planes Are Changing. Here’s What to Know.**\
-`Some airlines in Asia are tightening restrictions. You may have to repack or turn off your batteries before boarding flights with certain carriers.`\
-https://nytimes.com/2025/03/11/travel/portable-batteries-fires-planes.html
+**Trump Administration Live Updates: Markets Are Steadier After Trade War Rattles Investors**\
+``\
+https://nytimes.com/live/2025/03/11/us/trump-news
 
-**Trump Vows to Buy a Tesla to Support Musk After Shares Plunge**\
-`The president defended Elon Musk, a key donor and adviser, after shares in the electric-car maker hit their lowest point since before Election Day.`\
-https://nytimes.com/2025/03/11/us/politics/trump-elon-musk-tesla.html
+**Cardinals position battles: Areas to watch as spring competition heats up**\
+`Victor Scott II or Michael Siani remains the most compelling question of Cardinals camp.`\
+https://nytimes.com/athletic/6192198/2025/03/11/cardinals-spring-training-position-battles/
 
-**Maple Leafs report cards: Toronto edges Utah in a shootout after blowing a 3-0 lead**\
-`The Maple Leafs' top-end skill advantage over the Utah Hockey Club did not show up until the very end of a 4-3 win.`\
-https://nytimes.com/athletic/6192819/2025/03/11/maple-leafs-utah-marner-analysis-grades/
+**Michigan has an ambitious recruiting board for 2026. Who tops the list?**\
+`Michigan has assembled an ambitious recruiting board that includes No. 1 prospect Jackson Cantwell and a host of other elite recruits.`\
+https://nytimes.com/athletic/6191132/2025/03/11/michigan-football-recruiting-2026-class/
 
-**Warriors continue their 'sprint to the finish' by tying season high-water mark**\
-`The schedule has eased up for Golden State, and it is taking advantage by playing some of its best basketball.`\
-https://nytimes.com/athletic/6193130/2025/03/11/warriors-blazers-win-jimmy-butler-schedule/
+**ACC mailbag: How is the Bill Belichick era going? Is the settlement the start of the end?**\
+`Why can't ACC schools recruit at an elite level? Will an SEC school come calling for Fran Brown if Syracuse gets to another bowl game?`\
+https://nytimes.com/athletic/6190549/2025/03/11/acc-football-clemson-florida-state-settlement/
 
-**Why the I.C.C. Arrested Duterte Despite Questions Over Jurisdiction**\
-`Rodrigo Duterte, the former president of the Philippines, was arrested on a warrant issued by the International Criminal Court. But questions of jurisdiction complicate the matter.`\
-https://nytimes.com/2025/03/11/world/asia/duterte-icc-arrest-explained.html
+**Why Geno Smith gives the Raiders a better quarterback than some may think**\
+`Film shows how Smith overcame terrible pass protection in Seattle and that can still make all the throws at 34 years old.`\
+https://nytimes.com/athletic/6187840/2025/03/11/geno-smith-raiders-film-review/
 
-**Weekly Student News Quiz: Ukraine, LeBron James, $90,000 Cheeto**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/03/11/learning/11StudentNewsQuiz.html
+**How the bond between Freddy Gaudreau and his nephew, Noah, inspired Sunday's Wild charity event**\
+`Gaudreau calls his nephew and godson "the most incredible person I know."`\
+https://nytimes.com/athletic/6190914/2025/03/11/freddy-gaudreau-charity-down-syndrome/
 
-**The Knicks have the blueprint to win without Jalen Brunson**\
-`Missing their captain, the Knicks leaned on defense, shooting and pace in a dominant showing against the Kings. Can they do it consistently?`\
-https://nytimes.com/athletic/6193235/2025/03/11/knicks-jalen-brunson-injury-defense-win/
+**‘I’m outta here’: A whisper, a hug and the aftermath of bone-cutting NHL trades**\
+`Lohrei on the trade deadline's aftermath: “It’s never a position you want to be in, watching some of your best friends get shipped away."`\
+https://nytimes.com/athletic/6191909/2025/03/11/bruins-trades-next-wave-prospects/
 
-**Hundreds of Civilians Take Shelter at Russian Air Base in Syria**\
-`Footage and satellite images reviewed by The Times show civilians in the compound, among the thousands who have fled the violent unrest gripping Syria’s coastal region.`\
-https://nytimes.com/2025/03/11/world/europe/civilians-shelter-russian-air-base-syria.html
+**Broncos' signings of Dre Greenlaw, Talanoa Hufanga are risks worth taking**\
+`Denver, for all its well-earned defensive plaudits, was too vulnerable in the middle of the field. With good health, that should change.`\
+https://nytimes.com/athletic/6192973/2025/03/11/broncos-signings-drew-greenlaw-talanoa-hufanga/
 
-**Japan Fails to Win Tariff Exemptions During Washington Visit**\
-`The country’s trade minister stressed its role as a top investor and employer in the United States in a bid to avoid being hit by new levies on metals and cars.`\
-https://nytimes.com/2025/03/11/us/politics/japan-trump-tariffs-auto-steel-trade.html
+**How Adam Fantilli's stellar growth, maturity have helped save Blue Jackets' season**\
+`When Sean Monahan went down with an injury in January, the Blue Jackets could have fallen apart. Adam Fantilli stepped up.`\
+https://nytimes.com/athletic/6192049/2025/03/11/adam-fantilli-blue-jackets-growth/
 
-**As Twins search for a starting second baseman, good options emerge**\
-`Willi Castro, Edouard Julien, Brooks Lee and Mickey Gasper are giving Twins management something to think about.`\
-https://nytimes.com/athletic/6192864/2025/03/11/twins-second-base-spring-training/
+**JJ Redick laments Lakers' effort vs. Nets: 'We just wanted to take shortcuts'**\
+`Without its entire starting frontcourt, including the injured LeBron James, LA looked like a shell of itself. `\
+https://nytimes.com/athletic/6193201/2025/03/11/lakers-nets-lebron-james-luka-doncic-loss/
 
