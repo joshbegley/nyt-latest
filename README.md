@@ -1,3 +1,7 @@
+**Nottm Forest could begin stadium redevelopment plans next season**\
+`The club plan to rebuild the Peter Taylor Stand, replacing it with a 10,000 capacity structure with Champions League quality facilities.`\
+https://nytimes.com/athletic/6193644/2025/03/11/nottingham-forest-city-ground-peter-taylor-stand/
+
 **Katie Porter Will Run for California Governor**\
 `The former congresswoman is the most prominent candidate so far to start a campaign in the 2026 contest. But the race could be upended if former Vice President Kamala Harris decides to run.`\
 https://nytimes.com/2025/03/11/us/politics/katie-porter-will-run-for-california-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193020/2025/03/11/chargers-free-agency-reset-poona
 **Trump Faces a C.E.O. Test**\
 `The president is set to meet with corporate leaders on Tuesday, as concerns over his protectionist trade policies weigh on markets and the economy.`\
 https://nytimes.com/2025/03/11/business/dealbook/ceo-white-house-tariff.html
-
-**How the Pandemic Upended Our Lives**\
-`Whether you fled a crowded city or thought a puppy was the answer, the glimpses of another life we got during Covid have  faded away.`\
-https://nytimes.com/2025/03/11/realestate/pandemic-covid-home-life.html
 
