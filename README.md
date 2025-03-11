@@ -1,3 +1,7 @@
+**Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
+`The vote in Parliament will force new elections, the third in little more than three years.`\
+https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
+
 **Jury Hears Details of Failed Plot to Kill Iranian Dissident in New York**\
 `Prosecutors say figures in Tehran hired two men to kill Masih Alinejad, a journalist who had criticized Iran’s head scarf laws.`\
 https://nytimes.com/2025/03/11/nyregion/masih-alinejad-murder-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/nyregion/new-york-prison-strike-officers-fired.ht
 **Tell us your best (or worst) March Madness bracket pool stories**\
 `Tell us your worst horror story or your favorite success from March Madness bracket pools. We want to hear your unforgettable stories!`\
 https://nytimes.com/athletic/6194547/2025/03/11/tell-us-your-best-or-worst-march-madness-bracket-pool-stories/
-
-**Saints agree to terms with safety Justin Reid on 3-year deal: Source**\
-`The highest-ranked safety in The Athletic's top 150 free-agent rankings was with the Chiefs for the last three seasons.`\
-https://nytimes.com/athletic/6172961/2025/03/11/justin-reid-free-agency-signing-2025-saints/
 
