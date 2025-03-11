@@ -1,3 +1,15 @@
+**Eagles trade DB C.J. Gardner-Johnson to Texans for OL Kenyon Green: Sources**\
+`The teams swap future Day 3 picks in a deal that gives the Eagles offensive line depth and further bolsters a talented Texans secondary.`\
+https://nytimes.com/athletic/6194021/2025/03/11/eagles-cj-gardner-johnson-trade-texans-news/
+
+**Archaeologists Unearth Oldest Jewish Ritual Bath Found in Europe**\
+`Discovered outside Rome, the bath, which is thought to be a mikvah, could be more than 1,600 years old.`\
+https://nytimes.com/2025/03/11/world/europe/ancient-rome-port-excavation-jewish-ritual-bath.html
+
+**Daniel Jones, Colts agree to 1-year, $14 million deal**\
+`Jones was the fifth-ranked QB on The Athletic's list of the top 150 free agents and spent six seasons as a starter with the Giants.`\
+https://nytimes.com/athletic/6178741/2025/03/11/daniel-jones-contract-colts-nfl-free-agency/
+
 **Trump Doubles Metal Tariffs as He Presses Canada to Become Part of U.S.**\
 `The president said he would double tariffs set to go into effect on Wednesday and threatened further levies, as he ramps up economic pressure on America’s closest ally.`\
 https://nytimes.com/2025/03/11/us/politics/trump-canada-tariffs-metal.html
