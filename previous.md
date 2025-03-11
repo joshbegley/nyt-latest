@@ -1,3 +1,7 @@
+**In Sam Darnold, Seahawks got a younger, cheaper QB. It won't matter unless they support him**\
+`The only way to justify swapping Geno Smith for Darnold in the name of saving money is to reallocate those funds to help the QB.`\
+https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-smith-john-schneider/
+
 **What Slowdown? Xi Says China Must Win the Global Tech Race.**\
 `Xi Jinping wants China to surpass rivals as a tech superpower, undeterred by economic woes or trade wars. Critics ask if this focus neglects struggling citizens.`\
 https://nytimes.com/2025/03/11/world/asia/china-xi-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw
 **Musk’s Team Must Produce Documents to Comply With Open Records Laws, Judge Says**\
 `A federal judge in Washington ordered Elon Musk’s team and the Office of Management and Budget to begin releasing internal documents “as soon as practicable.”`\
 https://nytimes.com/2025/03/10/us/politics/musk-doge-foia-lawsuit.html
-
-**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs out, Jeremy Chinn in**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
 
