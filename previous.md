@@ -1,3 +1,7 @@
+**For Klay Thompson, Kyrie Irving's injury, and expected recovery, look familiar**\
+`Thompson had a similar ACL injury in 2019 as Irving earlier this month. “We know he’s going to come back stronger,” Thompson said of Irving.`\
+https://nytimes.com/athletic/6193195/2025/03/11/klay-thompson-kyrie-irving-mavericks-nba/
+
 **Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
 `What's on your mind about the Wolverines heading into spring football and March Madness?`\
 https://nytimes.com/athletic/6193884/2025/03/11/michigan-football-basketball-mailbag-questions-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193408/2025/03/11/nba-power-rankings-nuggets-knick
 **Top Law Firms Defend Overhaul of America’s Business Court**\
 `After backlash from Elon Musk and companies like Meta, Big Law is publicly supporting a bill seeking to reform the Delaware Court of Chancery.`\
 https://nytimes.com/2025/03/11/business/dealbook/delaware-company-law.html
-
-**Vikings agree to terms with G Will Fries on 5-year, $88 million deal: Source**\
-`The former Indianapolis Colt was the top interior offensive lineman in The Athletic's ranking of the top 150 free agents.`\
-https://nytimes.com/athletic/6175290/2025/03/11/will-fries-free-agency-signing-2025-vikings/
 

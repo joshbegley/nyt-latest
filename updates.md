@@ -1,3 +1,7 @@
+**For Klay Thompson, Kyrie Irving's injury, and expected recovery, look familiar**\
+`Thompson had a similar ACL injury in 2019 as Irving earlier this month. “We know he’s going to come back stronger,” Thompson said of Irving.`\
+https://nytimes.com/athletic/6193195/2025/03/11/klay-thompson-kyrie-irving-mavericks-nba/
+
 **Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
 `What's on your mind about the Wolverines heading into spring football and March Madness?`\
 https://nytimes.com/athletic/6193884/2025/03/11/michigan-football-basketball-mailbag-questions-4/
