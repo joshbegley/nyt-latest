@@ -1,3 +1,11 @@
+**Trump Faces a C.E.O. Test**\
+`The president is set to meet with corporate leaders on Tuesday, as concerns over his protectionist trade policies weigh on markets and the economy.`\
+https://nytimes.com/2025/03/11/business/dealbook/ceo-white-house-tariff.html
+
+**How the Pandemic Upended Our Lives**\
+`Whether you fled a crowded city or thought a puppy was the answer, the glimpses of another life we got during Covid have  faded away.`\
+https://nytimes.com/2025/03/11/realestate/pandemic-covid-home-life.html
+
 **Jevon Holland, Giants reach 3-year, $45 million deal**\
 `The 25-year-old spent four seasons with the Dolphins and was the third-highest ranked safety on The Athletic's top 150 free agents list.`\
 https://nytimes.com/athletic/6175707/2025/03/11/jevon-holland-giants-free-agency-signing-2025/
