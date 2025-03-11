@@ -1,3 +1,7 @@
+**Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
+`As the Canucks begin a high stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
+https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
+
 **NBA Power Rankings: Who made the grade in season's third quarter? (Hint: Not the Jazz)**\
 `It's time to cram with fewer than 20 games left. Three teams, including the Lakers, get an A for their recent work.`\
 https://nytimes.com/athletic/6193408/2025/03/11/nba-power-rankings-nuggets-knicks-warriors-cavaliers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6180543/2025/03/11/atlanta-falcons-2025-free-agency
 **Man Utd's stadium plan explained: What will it cost, who pays for it, how long will it take?**\
 `Breaking down the club's decision to embark on a bold new stadium project - and all the costs that involves`\
 https://nytimes.com/athletic/6193499/2025/03/11/manchester-united-new-stadium-cost-explained/
-
-**Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
-`Follow here for all the Cowboys free-agent news on players coming and going. `\
-https://nytimes.com/athletic/6180524/2025/03/11/dallas-cowboys-free-agency-tracker-2025/
 

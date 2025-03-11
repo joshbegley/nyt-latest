@@ -1,3 +1,11 @@
+**NBA Power Rankings: Who made the grade in season's third quarter? (Hint: Not the Jazz)**\
+`It's time to cram with fewer than 20 games left. Three teams, including the Lakers, get an A for their recent work.`\
+https://nytimes.com/athletic/6193408/2025/03/11/nba-power-rankings-nuggets-knicks-warriors-cavaliers/
+
+**Top Law Firms Defend Overhaul of America’s Business Court**\
+`After backlash from Elon Musk and companies like Meta, Big Law is publicly supporting a bill seeking to reform the Delaware Court of Chancery.`\
+https://nytimes.com/2025/03/11/business/dealbook/delaware-company-law.html
+
 **Vikings agree to terms with G Will Fries on 5-year, $88 million deal: Source**\
 `The former Indianapolis Colt was the top interior offensive lineman in The Athletic's ranking of the top 150 free agents.`\
 https://nytimes.com/athletic/6175290/2025/03/11/will-fries-free-agency-signing-2025-vikings/
