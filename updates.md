@@ -1,3 +1,15 @@
+**The Philharmonic’s New Season: What We’re Excited to Hear**\
+`Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
+https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
+
+**Meow Wolf to Open New York Edition of Its Immersive Art Program**\
+`The Santa Fe, N.M., company has found success tapping into the experience economy and artistic psychedelia.`\
+https://nytimes.com/2025/03/11/arts/design/meow-wolf-new-york.html
+
+**Volkswagen’s Profit Under Pressure From Tariffs and Competition**\
+`The German auto giant saw its earnings fall last year, as it pushed ahead with a restructuring in the face of tariff uncertainty in the United States and lost market share in China.`\
+https://nytimes.com/2025/03/11/world/europe/volkswagen-tariffs-competition.html
+
 **What Elon Musk’s Suit Says About Trump and Power**\
 `When Elon Musk puts on a nice suit, it has a way of looking like a demotion.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html

@@ -1,3 +1,15 @@
+**The Philharmonic’s New Season: What We’re Excited to Hear**\
+`Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
+https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
+
+**Meow Wolf to Open New York Edition of Its Immersive Art Program**\
+`The Santa Fe, N.M., company has found success tapping into the experience economy and artistic psychedelia.`\
+https://nytimes.com/2025/03/11/arts/design/meow-wolf-new-york.html
+
+**Volkswagen’s Profit Under Pressure From Tariffs and Competition**\
+`The German auto giant saw its earnings fall last year, as it pushed ahead with a restructuring in the face of tariff uncertainty in the United States and lost market share in China.`\
+https://nytimes.com/2025/03/11/world/europe/volkswagen-tariffs-competition.html
+
 **What Elon Musk’s Suit Says About Trump and Power**\
 `When Elon Musk puts on a nice suit, it has a way of looking like a demotion.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6194139/2025/03/11/conference-tournament-projection
 **PGA Tour willing to adopt elements of LIV Golf**\
 `"We're doing everything that we can to bring the two sides together,” PGA Tour commissioner Jay Monahan said Tuesday.`\
 https://nytimes.com/athletic/6194316/2025/03/11/pga-tour-liv-golf-pif-deal-changes/
-
-**Receiver Colbie Young reinstated to Georgia's team**\
-`Georgia coach Kirby Smart confirmed Young’s return on Tuesday, saying the senior had fulfilled program and school obligations.`\
-https://nytimes.com/athletic/6193704/2025/03/11/georgia-football-colbie-young-reinstated/
-
-**Athol Fugard’s Plays Illustrated the Value of Every Human Life**\
-`In “Sizwe Banzi Is Dead” and other works, bearing witness to forgotten lives and to the moral blindness and blinkered vision of the realities of apartheid South Africa.`\
-https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
-
-**Scoop City: Nine takeaways from Day 1 of free agency**\
-`Inside: Nine things you should know about the first wave of free-agent signings, plus the best short-term rentals still available.`\
-https://nytimes.com/athletic/6194203/2025/03/11/nfl-free-agency-recap-scoop-city/
 
