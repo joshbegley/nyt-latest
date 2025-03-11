@@ -1,3 +1,11 @@
+**The Bounce: 5 years ago today, COVID shut down the NBA**\
+`Plus: A look at the league's recent offensive boom and what we saw in Thunder-Nuggets.`\
+https://nytimes.com/athletic/6193833/2025/03/11/nba-covid-shutdown-five-years-later-bounce/
+
+**From masterpiece to misery: Josh Giddey's big night for the Bulls spoiled by injury**\
+`On a night when nearly everything else went his way, Giddey’s beautiful night against the Indiana Pacers ended with misery.`\
+https://nytimes.com/athletic/6193190/2025/03/11/josh-giddey-bulls-nba-injury/
+
 **Are You a Federal Worker? We Want To Hear From You.**\
 `The Times would like to hear about your experience as a federal worker under the second Trump administration. We may reach out about your submission, but we will not publish any part of your response without contacting you first.`\
 https://nytimes.com/2025/03/11/us/federal-workers-agencies-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6175290/2025/03/11/will-fries-free-agency-signing-2
 **Why drafting two dominant closers is a cheat code for fantasy baseball success**\
 `Michael Salfino shows his work when explaining how drafting two high-strikeout, low-ratio closers can upgrade your fantasy pitching staff.`\
 https://nytimes.com/athletic/6191807/2025/03/11/draft-strategy-two-dominant-closers-fantasy-baseball-success/
-
-**How the frustrated Maple Leafs snapped their losing streak: 'We did what we had to do'**\
-`Tired and frustrated at the end of a road trip, the Leafs fought through adversity and hung on to earn their first win in four games. `\
-https://nytimes.com/athletic/6193241/2025/03/11/maple-leafs-utah-win-nylander-marner/
-
-**Saliba says no contract talks yet but 'I want to win big things with Arsenal'**\
-`Saliba's existing deal with the Premier League side expires in the summer of 2027.`\
-https://nytimes.com/athletic/6193737/2025/03/11/william-saliba-arsenal-contract-trophies/
 

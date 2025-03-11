@@ -1,3 +1,15 @@
+**Are You a Federal Worker? We Want To Hear From You.**\
+`The Times would like to hear about your experience as a federal worker under the second Trump administration. We may reach out about your submission, but we will not publish any part of your response without contacting you first.`\
+https://nytimes.com/2025/03/11/us/federal-workers-agencies-trump.html
+
+**Listen: Are Spurs more likely to win the Europa League without Postecoglou in charge?**\
+`The View From the Lane discuss whether Tottenham would have a better chance of winning the Europa League without Ange Postecoglou in charge`\
+https://nytimes.com/athletic/6191351/2025/03/11/view-from-the-lane-podcast-tottenham-europa-league-postecoglou/
+
+**Reebok announces return to golf with Allen Iverson, The Pump, and more**\
+`Reebok's return to golf is laced with nostalgia `\
+https://nytimes.com/athletic/6163269/2025/03/11/reebok-returns-to-golf-with-the-pump-and-allen-iversons-the-question/
+
 **Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
 `As the Canucks begin a high stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
 https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
