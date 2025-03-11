@@ -1,3 +1,15 @@
+**Are You a Federal Worker? We Want To Hear From You.**\
+`The Times would like to hear about your experience as a federal worker under the second Trump administration. We may reach out about your submission, but we will not publish any part of your response without contacting you first.`\
+https://nytimes.com/2025/03/11/us/federal-workers-agencies-trump.html
+
+**Listen: Are Spurs more likely to win the Europa League without Postecoglou in charge?**\
+`The View From the Lane discuss whether Tottenham would have a better chance of winning the Europa League without Ange Postecoglou in charge`\
+https://nytimes.com/athletic/6191351/2025/03/11/view-from-the-lane-podcast-tottenham-europa-league-postecoglou/
+
+**Reebok announces return to golf with Allen Iverson, The Pump, and more**\
+`Reebok's return to golf is laced with nostalgia `\
+https://nytimes.com/athletic/6163269/2025/03/11/reebok-returns-to-golf-with-the-pump-and-allen-iversons-the-question/
+
 **Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
 `As the Canucks begin a high stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
 https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6193241/2025/03/11/maple-leafs-utah-win-nylander-ma
 **Saliba says no contract talks yet but 'I want to win big things with Arsenal'**\
 `Saliba's existing deal with the Premier League side expires in the summer of 2027.`\
 https://nytimes.com/athletic/6193737/2025/03/11/william-saliba-arsenal-contract-trophies/
-
-**Trading for Laremy Tunsil didn't come cheap, but Commanders must protect Jayden Daniels**\
-`Washington has gone from holding nine 2025 picks in November to five six weeks before the draft. These are choices contenders must make.`\
-https://nytimes.com/athletic/6192845/2025/03/11/laremy-tunsil-trade-jayden-daniels-commanders-nfl-free-agency/
-
-**Falcons free agency tracker: LB Divine Deablo is their first addition**\
-`The Falcons entered free agency needing edge rushers and cornerbacks. We're tracking all their moves here.`\
-https://nytimes.com/athletic/6180543/2025/03/11/atlanta-falcons-2025-free-agency-tracker/
-
-**Man Utd's stadium plan explained: What will it cost, who pays for it, how long will it take?**\
-`Breaking down the club's decision to embark on a bold new stadium project - and all the costs that involves`\
-https://nytimes.com/athletic/6193499/2025/03/11/manchester-united-new-stadium-cost-explained/
 

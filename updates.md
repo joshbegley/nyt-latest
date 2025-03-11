@@ -1,3 +1,7 @@
+**Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
+`As the Canucks begin a high stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
+https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
+
 **NBA Power Rankings: Who made the grade in season's third quarter? (Hint: Not the Jazz)**\
 `It's time to cram with fewer than 20 games left. Three teams, including the Lakers, get an A for their recent work.`\
 https://nytimes.com/athletic/6193408/2025/03/11/nba-power-rankings-nuggets-knicks-warriors-cavaliers/
