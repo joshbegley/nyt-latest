@@ -1,3 +1,23 @@
+**The ‘Chain Saw’ at the Veterans Agency**\
+`Readers react to the deep staff cuts at the V.A. Also: How State Department reductions will hurt Americans abroad.`\
+https://nytimes.com/2025/03/11/opinion/veterans-state-dept-cuts.html
+
+**C.J. Gardner-Johnson trade grades: Texans get feistier, Eagles buy low on former top pick**\
+`Houston’s defense already played with an edge, and Gardner-Johnson will take that to another level.`\
+https://nytimes.com/athletic/6194184/2025/03/11/c-j-gardner-johnson-trade-grades-texans-eagles-kenyon-green/
+
+**Tuberculosis Resurgent as Trump Funding Cut Disrupts Treatment Globally**\
+`The United States was the major funder of tuberculosis programs. Now hundreds of thousands of sick patients can’t find tests or drugs, and risk spreading the disease.`\
+https://nytimes.com/2025/03/11/health/tuberculosis-kenya-us-cuts.html
+
+**BKK New York Brings Thai Spins on Comfort Food to Midtown**\
+`Tashkent Supermarket opens a branch in Greenwich Village, Silver Moon Bakery to close and more news.`\
+https://nytimes.com/2025/03/11/dining/nyc-restaurant-news.html
+
+**Men's conference tourney projections, best bets: Picks for every major league**\
+`Austin Mock's projection model gives the chances for each team to win its conference tournaments that start this week.`\
+https://nytimes.com/athletic/6194139/2025/03/11/conference-tournament-projections-best-bets-acc-sec-big-ten/
+
 **PGA Tour willing to adopt elements of LIV Golf**\
 `"We're doing everything that we can to bring the two sides together,” PGA Tour commissioner Jay Monahan said Tuesday.`\
 https://nytimes.com/athletic/6194316/2025/03/11/pga-tour-liv-golf-pif-deal-changes/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6194203/2025/03/11/nfl-free-agency-recap-scoop-city
 **If You Want to Ski Affordably Next Season, Buy Now**\
 `Here’s how to get the best deals offered by Epic, Ikon and others.`\
 https://nytimes.com/2025/03/11/travel/ski-pass-next-season-sales.html
-
-**Gary Neville, a circus tent and Sir Jim as God: Analysing Man Utd's stadium images**\
-`Designs for the club's new ground paint a vision of the future according to INEOS — and not all of it makes sense`\
-https://nytimes.com/athletic/6193436/2025/03/11/manchester-united-new-stadium-pictures/
-
-**House Republicans Work to Hold Together in Vote on Spending Bill**\
-`Republicans were pressing rank-and-file lawmakers to fall in line behind a stopgap measure that would mostly keep government funding at current levels through September.`\
-https://nytimes.com/2025/03/11/us/politics/house-stopgap-funding-bill-vote-government-shutdown.html
-
-**The Americans Who Ran Guns for the I.R.A.**\
-`“The Next One Is for You” chronicles the effects of the Troubles on both sides of the Atlantic.`\
-https://nytimes.com/2025/03/11/books/review/the-next-one-is-for-you-ali-watkins.html
-
-**Musk Suggests His Team Will Scrutinize Social Security and Entitlement Spending**\
-`In an interview with Larry Kudlow, Elon Musk claimed that fraud in Social Security and other major programs was “the big one to eliminate.”`\
-https://nytimes.com/2025/03/11/us/politics/musk-doge-social-security-entitlement-spending.html
-
-**What Does a Shutdown Have to Do With the Budget or Elon Musk? Here’s a Guide.**\
-`A short-term spending bill, a 10-year budget plan and Musk’s cost-cutting team are all progressing at once.`\
-https://nytimes.com/2025/03/11/upshot/federal-budget-musk-republicans.html
 
