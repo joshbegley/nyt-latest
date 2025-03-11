@@ -1,3 +1,11 @@
+**Trump Faces a C.E.O. Test**\
+`The president is set to meet with corporate leaders on Tuesday, as concerns over his protectionist trade policies weigh on markets and the economy.`\
+https://nytimes.com/2025/03/11/business/dealbook/ceo-white-house-tariff.html
+
+**How the Pandemic Upended Our Lives**\
+`Whether you fled a crowded city or thought a puppy was the answer, the glimpses of another life we got during Covid have  faded away.`\
+https://nytimes.com/2025/03/11/realestate/pandemic-covid-home-life.html
+
 **Jevon Holland, Giants reach 3-year, $45 million deal**\
 `The 25-year-old spent four seasons with the Dolphins and was the third-highest ranked safety on The Athletic's top 150 free agents list.`\
 https://nytimes.com/athletic/6175707/2025/03/11/jevon-holland-giants-free-agency-signing-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6190914/2025/03/11/freddy-gaudreau-charity-down-syn
 **‘I’m outta here’: A whisper, a hug and the aftermath of bone-cutting NHL trades**\
 `Lohrei on the trade deadline's aftermath: “It’s never a position you want to be in, watching some of your best friends get shipped away."`\
 https://nytimes.com/athletic/6191909/2025/03/11/bruins-trades-next-wave-prospects/
-
-**Broncos' signings of Dre Greenlaw, Talanoa Hufanga are risks worth taking**\
-`Denver, for all its well-earned defensive plaudits, was too vulnerable in the middle of the field. With good health, that should change.`\
-https://nytimes.com/athletic/6192973/2025/03/11/broncos-signings-drew-greenlaw-talanoa-hufanga/
-
-**How Adam Fantilli's stellar growth, maturity have helped save Blue Jackets' season**\
-`When Sean Monahan went down with an injury in January, the Blue Jackets could have fallen apart. Adam Fantilli stepped up.`\
-https://nytimes.com/athletic/6192049/2025/03/11/adam-fantilli-blue-jackets-growth/
 
