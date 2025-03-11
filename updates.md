@@ -1,3 +1,11 @@
+**UConn routs Creighton for Big East title, makes case for No. 1 seed**\
+`Paige Bueckers scores 24 points, is named conference tournament's most outstanding player for third time.`\
+https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creighton/
+
+**Bengals address run stopping on defensive line, but major concern remains**\
+`Bringing back B.J. Hill and adding T.J. Slaton should shore up the middle but lack of pass rush impact could be a problem.`\
+https://nytimes.com/athletic/6192515/2025/03/10/bengals-defensive-line-free-agency/
+
 **‘Ghosts’ Review: The Sins of the Father, Visited on Everyone**\
 `Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
 https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
