@@ -2,7 +2,7 @@
 `Corrections that appeared in print on Tuesday, March 11, 2025.`\
 https://nytimes.com/2025/03/10/pageoneplus/corrections-march-11-2025.html
 
-**Chase Young sticks with Saints on 3-year, $51 million deal: Reports**\
+**Chase Young sticks with Saints on 3-year, $51 million deal: Source**\
 `The journeyman pass rusher had a high pressure rate last season but could not convert that pressure into sacks. `\
 https://nytimes.com/athletic/6176550/2025/03/10/chase-young-free-agent-signing-nfl-saints/
 
