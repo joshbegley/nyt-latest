@@ -1,3 +1,15 @@
+**FCC's Noonan showcases his voice as his profile as an MLS coach grows**\
+`Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
+https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
+
+**Man City record £103m profit as CFG ownership group losses exceed £122m**\
+`CFG has yet to make an annual profit or come close to doing so, while Manchester City recorded a pre-tax profit of £103.4m in 2023-24.`\
+https://nytimes.com/athletic/6194431/2025/03/11/manchester-city-finances-2024-cfg-losses/
+
+**It’s Time to Start Dressing Like a Witch**\
+`Prosthetic body parts, lampshade hats and other surprising trends from fashion month.`\
+https://nytimes.com/2025/03/11/t-magazine/fashion-week-fall-trends.html
+
 **U.S. Said to Tell Canada That It Will Enforce a Visitor Registration Law**\
 `The United States had not been enforcing the rule for Canadians who entered via land borders. That is changing amid an escalating fight between the North American neighbors.`\
 https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/rfk-jr-make-america-healthy-again-com
 **The Windup: Look at these incredibly bad hats**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6193124/2025/03/11/mlb-hats-new-era-rangers-the-windup/
-
-**Trump Intensifies Statehood Threats in Attack on Canada**\
-`The U.S. president on Tuesday reiterated his claims on Canada’s territory as he increased tariffs, threatening to bring the country’s economy to its knees.`\
-https://nytimes.com/2025/03/11/us/politics/canada-trump-statehood-attacks.html
-
-**Party Like It’s 2009: The Playlist**\
-`Lady Gaga’s “Mayhem” inspired a look back at a time when indie-rock and Auto-Tuned pop mingled, and the lines between the underground and mainstream blurred`\
-https://nytimes.com/2025/03/11/arts/music/2009-playlist.html
-
-**The Problem at the Heart of Trump’s University Crackdown**\
-`The Trump administration unveiled moves against colleges related to how they handled protests after Oct. 7. But the problem is a different one.`\
-https://nytimes.com/2025/03/10/opinion/the-problem-at-the-heart-of-trumps-university-crackdown.html
 
