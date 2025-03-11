@@ -1,3 +1,11 @@
+**In ‘The Great Privation,’ Fending Off the Body Snatchers**\
+`Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
+https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
+
+**Cowboys agree to extension with All-Pro returner KaVontae Turpin: Sources**\
+`The two-time Pro Bowler and 2024 first-team All-Pro has made his mark in the return game and had a bigger role on offense last year. `\
+https://nytimes.com/athletic/6194799/2025/03/11/kavonte-turpin-free-ageny-2025-extension-cowboys/
+
 **Tony Hinchcliffe, the Trump Rally Comedian, Lands a Netflix Deal**\
 `Hinchcliffe’s set at Madison Square Garden in October drew sharp criticism after he described Puerto Rico as a “floating island of garbage.”`\
 https://nytimes.com/2025/03/11/arts/television/tony-hinchcliffe-netflix-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/11/t-magazine/fashion-week-fall-trends.html
 **U.S. Said to Tell Canada That It Will Enforce a Visitor Registration Law**\
 `The United States had not been enforcing the rule for Canadians who entered via land borders. That is changing amid an escalating fight between the North American neighbors.`\
 https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration.html
-
-**Birds Face Weakened Protections Under Trump Move**\
-`The Interior Department is suspending 20 Biden-era legal opinions, including one leading to fines against energy companies if birds die in oil spills or other industrial activities.`\
-https://nytimes.com/2025/03/11/climate/interior-department-birds-oil-legal-opinions.html
-
-**Celtics-Lakers sees largest non-Christmas regular-season audience in 7 years**\
-`The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
-https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
 

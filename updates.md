@@ -1,3 +1,11 @@
+**In ‘The Great Privation,’ Fending Off the Body Snatchers**\
+`Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
+https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
+
+**Cowboys agree to extension with All-Pro returner KaVontae Turpin: Sources**\
+`The two-time Pro Bowler and 2024 first-team All-Pro has made his mark in the return game and had a bigger role on offense last year. `\
+https://nytimes.com/athletic/6194799/2025/03/11/kavonte-turpin-free-ageny-2025-extension-cowboys/
+
 **Tony Hinchcliffe, the Trump Rally Comedian, Lands a Netflix Deal**\
 `Hinchcliffe’s set at Madison Square Garden in October drew sharp criticism after he described Puerto Rico as a “floating island of garbage.”`\
 https://nytimes.com/2025/03/11/arts/television/tony-hinchcliffe-netflix-deal.html
