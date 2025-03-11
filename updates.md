@@ -1,3 +1,11 @@
+**The Bounce: 5 years ago today, COVID shut down the NBA**\
+`Plus: A look at the league's recent offensive boom and what we saw in Thunder-Nuggets.`\
+https://nytimes.com/athletic/6193833/2025/03/11/nba-covid-shutdown-five-years-later-bounce/
+
+**From masterpiece to misery: Josh Giddey's big night for the Bulls spoiled by injury**\
+`On a night when nearly everything else went his way, Giddey’s beautiful night against the Indiana Pacers ended with misery.`\
+https://nytimes.com/athletic/6193190/2025/03/11/josh-giddey-bulls-nba-injury/
+
 **Are You a Federal Worker? We Want To Hear From You.**\
 `The Times would like to hear about your experience as a federal worker under the second Trump administration. We may reach out about your submission, but we will not publish any part of your response without contacting you first.`\
 https://nytimes.com/2025/03/11/us/federal-workers-agencies-trump.html
