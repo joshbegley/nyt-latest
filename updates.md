@@ -1,3 +1,11 @@
+**Hundreds of Civilians Take Shelter at Russian Air Base in Syria**\
+`Footage and satellite images reviewed by The Times show civilians in the compound, among the thousands who have fled the violent unrest gripping Syria’s coastal region.`\
+https://nytimes.com/2025/03/11/world/europe/civilians-shelter-russian-air-base-syria.html
+
+**Japan Fails to Win Tariff Exemptions During Washington Visit**\
+`The country’s trade minister stressed its role as a top investor and employer in the United States in a bid to avoid being hit by new levies on metals and cars.`\
+https://nytimes.com/2025/03/11/us/politics/japan-trump-tariffs-auto-steel-trade.html
+
 **Losing when you're winning: How Bulls, 76ers, Nets or Raptors will finish 10th**\
 `None of these teams really wants to make the Play-In, as the NBA Draft is far more important for each of them. We discuss the tortoise race.`\
 https://nytimes.com/athletic/6191688/2025/03/11/bulls-76ers-nets-raptors-10th-seed-play-in-tournament/
