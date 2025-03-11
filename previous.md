@@ -1,3 +1,7 @@
+**Chelsea have a long history to celebrate before 2003 - they were always well-supported winners**\
+`Chelsea tasted more success after Roman Abramovich took over but they have a long and storied history before that`\
+https://nytimes.com/athletic/6173168/2025/03/11/chelsea-120-years-history/
+
 **Life after Slot: Can Van Persie lift Feyenoord after losing their 'best-ever' coach?**\
 `Feyenoord lost their head coach to Liverpool but are still fighting in Europe, with a second leg against Inter on Tuesday night`\
 https://nytimes.com/athletic/6190280/2025/03/11/feyenoord-after-arne-slot-robin-van-persie/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
 **In Sam Darnold, Seahawks got a younger, cheaper QB. It won't matter unless they support him**\
 `The only way to justify swapping Geno Smith for Darnold in the name of saving money is to reallocate those funds to help the QB.`\
 https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-smith-john-schneider/
-
-**What Slowdown? Xi Says China Must Win the Global Tech Race.**\
-`Xi Jinping wants China to surpass rivals as a tech superpower, undeterred by economic woes or trade wars. Critics ask if this focus neglects struggling citizens.`\
-https://nytimes.com/2025/03/11/world/asia/china-xi-trump.html
 

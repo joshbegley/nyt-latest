@@ -1,3 +1,7 @@
+**Chelsea have a long history to celebrate before 2003 - they were always well-supported winners**\
+`Chelsea tasted more success after Roman Abramovich took over but they have a long and storied history before that`\
+https://nytimes.com/athletic/6173168/2025/03/11/chelsea-120-years-history/
+
 **Life after Slot: Can Van Persie lift Feyenoord after losing their 'best-ever' coach?**\
 `Feyenoord lost their head coach to Liverpool but are still fighting in Europe, with a second leg against Inter on Tuesday night`\
 https://nytimes.com/athletic/6190280/2025/03/11/feyenoord-after-arne-slot-robin-van-persie/
