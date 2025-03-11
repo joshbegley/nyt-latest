@@ -1,3 +1,11 @@
+**Ben White ready for Arsenal starting return, Arteta reveals**\
+`White required surgery on a knee problem but has come off the bench against West Ham, Nottingham Forest and PSV in the last month.`\
+https://nytimes.com/athletic/6193625/2025/03/11/arsenal-team-news-ben-white-psv/
+
+**Southwest Will Begin Charging for Checked Bags, Ending a Popular Policy**\
+`Customers with the highest loyalty status will be spared from the fee, but others will have to pay for checked bags for flights booked from May 28.`\
+https://nytimes.com/2025/03/11/business/southwest-checked-bags-fee.html
+
 **The Ferrari romanticism: What drives Lewis Hamilton and other F1 legends to the team?**\
 `Ferrari's cultural legacy and passionate fanbase have drawn drivers to it for decades. `\
 https://nytimes.com/athletic/6193441/2025/03/11/ferrari-f1-lewis-hamilton/
@@ -5,10 +13,6 @@ https://nytimes.com/athletic/6193441/2025/03/11/ferrari-f1-lewis-hamilton/
 **New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
 `As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
 https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-agency-tracker/
-
-**49ers 2025 free agency tracker: Jordan Mason gets second-round tender**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/11/san-francisco-49ers-2025-free-agency-tracker/
 
 **Vikings, Jonathan Allen agree to 3-year, $60 million deal: Sources**\
 `Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6175707/2025/03/11/jevon-holland-giants-free-agency
 **Trump Administration Live Updates: Markets Are Steadier After Trade War Rattles Investors**\
 ``\
 https://nytimes.com/live/2025/03/11/us/trump-news
-
-**Cardinals position battles: Areas to watch as spring competition heats up**\
-`Victor Scott II or Michael Siani remains the most compelling question of Cardinals camp.`\
-https://nytimes.com/athletic/6192198/2025/03/11/cardinals-spring-training-position-battles/
 
