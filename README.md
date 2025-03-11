@@ -1,3 +1,7 @@
+**One year of the 'new' FSG: Edwards-Hughes dynamic, scouting revamp and multi-club latest**\
+`It is a year since Michael Edwards returned to FSG to overhaul its football operations - this is what has happened since`\
+https://nytimes.com/athletic/6191595/2025/03/11/liverpool-fsg-edwards-hughes/
+
 **Word of the Day: environs**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/11/learning/word-of-the-day-environs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sportin
 **The New York Times in Print for Tuesday, March 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/11/todays-new-york-times
-
-**Artyom Levshunov offers tantalizing glimpse into Blackhawks' future in NHL debut**\
-`The Blackhawks' No. 1 defenseman of the future made his NHL debut against one of the fastest teams in the league. Here's how he did.`\
-https://nytimes.com/athletic/6193120/2025/03/11/artyom-levshunov-blackhawks-nhl-debut-avalanche-breakdown/
 
