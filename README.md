@@ -1,3 +1,19 @@
+**Life after Slot: Can Van Persie lift Feyenoord after losing their 'best-ever' coach?**\
+`Feyenoord lost their head coach to Liverpool but are still fighting in Europe, with a second leg against Inter on Tuesday night`\
+https://nytimes.com/athletic/6190280/2025/03/11/feyenoord-after-arne-slot-robin-van-persie/
+
+**Joao Neves: How Portugal's little prince stole Parisian hearts**\
+`Neves has been one of the most successful big-money signings in Europe this season, with his giant spirit continuing to bely his tiny frame`\
+https://nytimes.com/athletic/6190686/2025/03/11/joao-neves-how-portugals-little-prince-stole-parisian-hearts/
+
+**How Khvicha Kvaratskhelia has taken Paris by storm - his first weeks analysed**\
+`What to expect from the Georgian ahead of his Champions League visit to Anfield`\
+https://nytimes.com/athletic/6191327/2025/03/11/khvicha-kvaratskhelia-psg-liverpool-champions-league/
+
+**How an 11th-place Premier League finish could still secure European qualification**\
+`An admittedly unlikely sequence of events could see a team finishing in the bottom half qualify for Europe via their Premier League placing`\
+https://nytimes.com/athletic/6187887/2025/03/11/uefa-premier-league-11th-qualify/
+
 **Arsenal fans: What do you see as the priorities for the new sporting director?**\
 `The club are close to bringing in a new permanent sporting director, but what should be top of his to-do list?`\
 https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sporting-director/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-s
 **What Slowdown? Xi Says China Must Win the Global Tech Race.**\
 `Xi Jinping wants China to surpass rivals as a tech superpower, undeterred by economic woes or trade wars. Critics ask if this focus neglects struggling citizens.`\
 https://nytimes.com/2025/03/11/world/asia/china-xi-trump.html
-
-**Champions League projections: Liverpool favourites for trophy but do Barcelona have an easier pathway?**\
-`Ahead of a crucial week of action The Athletic examines the teams who stand the best chance of progressing in the Champions League`\
-https://nytimes.com/athletic/6191012/2025/03/11/champions-league-projections-round-of-16/
-
-**Profiling the top 30 catchers, and rookies to watch for fantasy baseball 2025**\
-`Gene McCaffrey offers his thoughts on the fantasy baseball catchers worth considering for one- and two-catcher leagues.`\
-https://nytimes.com/athletic/6181219/2025/03/11/profiling-top-30-catcherss-rookies-to-watch-fantasy-baseball-2025/
-
-**Despite Congo Offensive, Rwanda Lures Athletes, Investors and Tourists**\
-`Rwanda appears to be betting on its reputation as a key security partner and sports destination to minimize any backlash to its involvement in the war.`\
-https://nytimes.com/2025/03/11/world/africa/rwanda-congo-john-legend-tourism-m23-invasion.html
-
-**Solar Energy, Criticized by Trump, Claims Big U.S. Gain in 2024**\
-`The added capacity for the year was the most from any single source in more than two decades.`\
-https://nytimes.com/2025/03/11/business/energy-environment/solar-energy-trump-record.html
 
