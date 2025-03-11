@@ -1,3 +1,11 @@
+**Athol Fugard’s Plays Illustrated the Value of Every Human Life**\
+`In “Sizwe Banzi Is Dead” and other works, bearing witness to forgotten lives and to the moral blindness and blinkered vision of the realities of apartheid South Africa.`\
+https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
+
+**Scoop City: Nine takeaways from Day 1 of free agency**\
+`Inside: Nine things you should know about the first wave of free-agent signings, plus the best short-term rentals still available.`\
+https://nytimes.com/athletic/6194203/2025/03/11/nfl-free-agency-recap-scoop-city/
+
 **If You Want to Ski Affordably Next Season, Buy Now**\
 `Here’s how to get the best deals offered by Epic, Ikon and others.`\
 https://nytimes.com/2025/03/11/travel/ski-pass-next-season-sales.html

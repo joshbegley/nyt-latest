@@ -1,3 +1,7 @@
+**Receiver Colbie Young reinstated to Georgia's team**\
+`Georgia coach Kirby Smart confirmed Young’s return on Tuesday, saying the senior had fulfilled program and school obligations.`\
+https://nytimes.com/athletic/6193704/2025/03/11/georgia-football-colbie-young-reinstated/
+
 **Athol Fugard’s Plays Illustrated the Value of Every Human Life**\
 `In “Sizwe Banzi Is Dead” and other works, bearing witness to forgotten lives and to the moral blindness and blinkered vision of the realities of apartheid South Africa.`\
 https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/upshot/federal-budget-musk-republicans.html
 **Man City captain Greenwood 'shocked' by Taylor exit**\
 `Manchester City announced on Monday they had parted ways with head coach Gareth Taylor.`\
 https://nytimes.com/athletic/6194206/2025/03/11/man-city-greenwood-taylor/
-
-**Brayan Bello to start season on Red Sox IL; Rafael Devers’ debut pushed back, again**\
-`Wilyer Abreu and Kutter Crawford could also miss the start of the season, while Devers and others are racing against time to be ready.`\
-https://nytimes.com/athletic/6194073/2025/03/11/red-sox-brayan-bello-rafael-devers-injuries/
 
