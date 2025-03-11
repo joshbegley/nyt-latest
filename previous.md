@@ -1,3 +1,7 @@
+**What Elon Musk’s Suit Says About Trump and Power**\
+`When Elon Musk puts on a nice suit, it has a way of looking like a demotion.`\
+https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html
+
 **The ‘Chain Saw’ at the Veterans Agency**\
 `Readers react to the deep staff cuts at the V.A. Also: How State Department reductions will hurt Americans abroad.`\
 https://nytimes.com/2025/03/11/opinion/veterans-state-dept-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
 **Scoop City: Nine takeaways from Day 1 of free agency**\
 `Inside: Nine things you should know about the first wave of free-agent signings, plus the best short-term rentals still available.`\
 https://nytimes.com/athletic/6194203/2025/03/11/nfl-free-agency-recap-scoop-city/
-
-**If You Want to Ski Affordably Next Season, Buy Now**\
-`Here’s how to get the best deals offered by Epic, Ikon and others.`\
-https://nytimes.com/2025/03/11/travel/ski-pass-next-season-sales.html
 

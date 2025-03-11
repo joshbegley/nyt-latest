@@ -1,3 +1,7 @@
+**What Elon Musk’s Suit Says About Trump and Power**\
+`When Elon Musk puts on a nice suit, it has a way of looking like a demotion.`\
+https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html
+
 **The ‘Chain Saw’ at the Veterans Agency**\
 `Readers react to the deep staff cuts at the V.A. Also: How State Department reductions will hurt Americans abroad.`\
 https://nytimes.com/2025/03/11/opinion/veterans-state-dept-cuts.html
