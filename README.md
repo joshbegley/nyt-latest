@@ -1,3 +1,11 @@
+**U.S. Said to Tell Canada That It Will Enforce a Visitor Registration Law**\
+`The United States had not been enforcing the rule for Canadians who entered via land borders. That is changing amid an escalating fight between the North American neighbors.`\
+https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration.html
+
+**Birds Face Weakened Protections Under Trump Move**\
+`The Interior Department is suspending 20 Biden-era legal opinions, including one leading to fines against energy companies if birds die in oil spills or other industrial activities.`\
+https://nytimes.com/2025/03/11/climate/interior-department-birds-oil-legal-opinions.html
+
 **Celtics-Lakers drew largest non-Christmas regular-season audience in 7 years**\
 `The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
 https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/11/arts/music/2009-playlist.html
 **The Problem at the Heart of Trump’s University Crackdown**\
 `The Trump administration unveiled moves against colleges related to how they handled protests after Oct. 7. But the problem is a different one.`\
 https://nytimes.com/2025/03/10/opinion/the-problem-at-the-heart-of-trumps-university-crackdown.html
-
-**Man Arrested on Suspicion of Manslaughter After Ship Hits Tanker in North Sea**\
-`The 59-year-old man was arrested after a container ship struck an oil tanker in the North Sea on Monday. A crew member was presumed dead after an extensive search was called off.`\
-https://nytimes.com/2025/03/11/world/europe/uk-tanker-crash-north-sea.html
-
-**gws-balance-exercises-aging**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/balance-exercises-aging
 
