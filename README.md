@@ -1,3 +1,15 @@
+**Ukraine Bombards Russia, Forcing Moscow Airports to Close**\
+`The mayor of the Russian capital called the attack the war’s largest against the city. It appeared to be a reminder of Ukraine’s power to strike as its president proposes an air truce.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-russia-moscow-war-drones.html
+
+**Champions League best bets for Wednesday's second-leg showdowns**\
+`Julia Ranney has a look at the betting implications for Wednesday’s Champions League round of 16 second-leg fixtures.`\
+https://nytimes.com/athletic/6190850/2025/03/11/champions-league-round-of-16-wednesday-betting-tips-predictions/
+
+**Are Inter this year’s Champions League dark horse bet?**\
+`Brett Koremenos explores whether Inter Milan deserve better odds than the 10/1 they've been given ahead of the round of 16's second leg.`\
+https://nytimes.com/athletic/6192037/2025/03/11/inter-milan-champions-league-odds-inzaghi/
+
 **More Universities Are Choosing to Stay Neutral on the Biggest Issues**\
 `Instead of speaking out on the hot-button debates of the day, more schools are making it a policy to stay silent as political pressure mounts against higher education.`\
 https://nytimes.com/2025/03/11/us/institutional-neutrality-universities-free-speech.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/learning/neighbors.html
 **A Critic Whose Beat Is, on Occasion, a Laughing Matter**\
 `Jason Zinoman started writing about comedy for The New York Times in 2011, when the world of stand-up and improv looked a little different.`\
 https://nytimes.com/2025/03/11/insider/jason-zinoman-comedy.html
-
-**Why Are Cats Such a Medical Black Box?**\
-`Many aspects of feline health remain a mystery, even to experts. Our cat-owning reporter learned this the hard way.`\
-https://nytimes.com/2025/03/11/science/cats-veterinarians-health.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/11/crosswords/spelling-bee-forum.html
-
-**History Isn’t Entirely Repeating Itself in Covid’s Aftermath**\
-`Five years after the novel coronavirus emerged, historians see echoes of other great illnesses, and legacies that are unlike any of them.`\
-https://nytimes.com/2025/03/11/health/covid-pandemic-history.html
 
