@@ -1,3 +1,11 @@
+**Jury Hears Details of Failed Plot to Kill Iranian Dissident in New York**\
+`Prosecutors say figures in Tehran hired two men to kill Masih Alinejad, a journalist who had criticized Iran’s head scarf laws.`\
+https://nytimes.com/2025/03/11/nyregion/masih-alinejad-murder-trial.html
+
+**Pochettino addresses inclusions, snubs for USMNT's Nations League squad**\
+`The USMNT manager made some curious calls and welcomed two core stars back into the fold for a key window.`\
+https://nytimes.com/athletic/6194961/2025/03/11/pochettino-reyna-zendejas-aaronson-usmnt-nations-league-roster/
+
 **Wait, What Is Meghan’s Last Name?**\
 `The Duchess of Sussex caused a stir on “With Love, Meghan” when she said Sussex was her last name. But does that break from royal tradition?`\
 https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6194547/2025/03/11/tell-us-your-best-or-worst-march
 **Saints agree to terms with safety Justin Reid on 3-year deal: Source**\
 `The highest-ranked safety in The Athletic's top 150 free-agent rankings was with the Chiefs for the last three seasons.`\
 https://nytimes.com/athletic/6172961/2025/03/11/justin-reid-free-agency-signing-2025-saints/
-
-**Falcons, Leonard Floyd agree to 1-year, $10M deal hours after release from 49ers: Sources**\
-`Floyd joins a Falcons team desperate for pass rush help.`\
-https://nytimes.com/athletic/6195509/2025/03/11/leonard-floyd-free-agency-signing-2025-falcons/
-
-**U.S. Investigation Into Global Antidoping Agency Continues Under Trump**\
-`The World Anti-Doping Agency will report to its board that federal officials questioned one of its U.S. employees last month about the agency’s handling of positive tests by Chinese athletes.`\
-https://nytimes.com/2025/03/11/us/politics/wada-antidoping-agency-trump.html
 
