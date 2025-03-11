@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`World markets fall.`\
+https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
+
 **In Sam Darnold, Seahawks got a younger, cheaper QB. It won't matter unless they support him**\
 `The only way to justify swapping Geno Smith for Darnold in the name of saving money is to reallocate those funds to help the QB.`\
 https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-smith-john-schneider/

@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`World markets fall.`\
+https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
+
 **In Sam Darnold, Seahawks got a younger, cheaper QB. It won't matter unless they support him**\
 `The only way to justify swapping Geno Smith for Darnold in the name of saving money is to reallocate those funds to help the QB.`\
 https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-smith-john-schneider/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-many-plans-for-gaza-
 **49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
 `Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
 https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/
-
-**Musk’s Team Must Produce Documents to Comply With Open Records Laws, Judge Says**\
-`A federal judge in Washington ordered Elon Musk’s team and the Office of Management and Budget to begin releasing internal documents “as soon as practicable.”`\
-https://nytimes.com/2025/03/10/us/politics/musk-doge-foia-lawsuit.html
 

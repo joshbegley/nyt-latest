@@ -1,3 +1,15 @@
+**Arsenal fans: What do you see as the priorities for the new sporting director?**\
+`The club are close to bringing in a new permanent sporting director, but what should be top of his to-do list?`\
+https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sporting-director/
+
+**The New York Times in Print for Tuesday, March 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/11/todays-new-york-times
+
+**Artyom Levshunov offers tantalizing glimpse into Blackhawks' future in NHL debut**\
+`The Blackhawks' No. 1 defenseman of the future made his NHL debut against one of the fastest teams in the league. Here's how he did.`\
+https://nytimes.com/athletic/6193120/2025/03/11/artyom-levshunov-blackhawks-nhl-debut-avalanche-breakdown/
+
 **Tuesday Briefing**\
 `World markets fall.`\
 https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/world/africa/rwanda-congo-john-legend-tourism-m23
 **Solar Energy, Criticized by Trump, Claims Big U.S. Gain in 2024**\
 `The added capacity for the year was the most from any single source in more than two decades.`\
 https://nytimes.com/2025/03/11/business/energy-environment/solar-energy-trump-record.html
-
-**As Ukraine and U.S. Cease-Fire Talks Near, Gulfs Remain**\
-`American and Ukrainian representatives will meet in Saudi Arabia on Tuesday, but the United States, Ukraine and Russia envisage very different paths to peace.`\
-https://nytimes.com/2025/03/11/world/europe/ukraine-us-saudi-cease-fire-talks.html
-
-**Quote of the Day: Many Plans for Gaza, but No Feasible Ones**\
-`Quotation of the Day for Tuesday, March 11, 2025.`\
-https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-many-plans-for-gaza-but-no-feasible-ones.html
-
-**49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
-`Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
-https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/
 
