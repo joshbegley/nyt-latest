@@ -1,3 +1,11 @@
+**Investors Thought They Could Control Trump. They Were Wrong.**\
+`On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
+https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
+
+**Manchester City owner CFG's combined losses since 2013 reach £972m**\
+`CFG has yet to make an annual profit, while Manchester City has recorded a combined pre-tax profit of £103.4m since 2013`\
+https://nytimes.com/athletic/6194431/2025/03/11/manchester-city-finances-2024-cfg-losses/
+
 **In ‘The Great Privation,’ Fending Off the Body Snatchers**\
 `Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
 https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
