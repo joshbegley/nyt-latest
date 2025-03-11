@@ -1,3 +1,23 @@
+**Trump Doubles Metal Tariffs as He Presses Canada to Become Part of U.S.**\
+`The president said he would double tariffs set to go into effect on Wednesday and threatened further levies, as he ramps up economic pressure on America’s closest ally.`\
+https://nytimes.com/2025/03/11/us/politics/trump-canada-tariffs-metal.html
+
+**Sony Gives N.Y.U. $7.5 Million for an Audio Institute**\
+`A multifaceted new program at the university’s Steinhardt School will train students (on Sony equipment) for jobs in music and audio “that don’t exist yet.”`\
+https://nytimes.com/2025/03/11/arts/music/sony-nyu-audio-institute.html
+
+**Giants Mailbagg, Part 2: Will a more conventional approach lead to success?**\
+`Topics covered include roster management, lineup choices, Bob Melvin's future, the status of former first-round picks and more.`\
+https://nytimes.com/athletic/6188971/2025/03/11/sf-giants-mailbag-roster-management/
+
+**Some Vegans Were Harmed in the Watching of This Movie**\
+`A film critic who provides “vegan alerts” for animal cruelty goes beyond onscreen violence. Milk and eggs are problematic, too.`\
+https://nytimes.com/2025/03/11/movies/vegan-alert-letterboxd-allison-mcculloch.html
+
+**The Transformer: Twyla Tharp Dives Into the Future**\
+`Tharp celebrates her 60th anniversary as a dance maker with a program pairing the monumental “Diabelli” (1998) and the new “Slacktide.”`\
+https://nytimes.com/2025/03/11/arts/dance/twyla-tharp-diabelli-slacktide.html
+
 **Reyna, Adams return as Pochettino crafts U.S.'s Nations League finals squad**\
 `Here are the 23 players Mauricio Pochettino has called upon for the U.S.'s attempt to win yet another Concacaf Nations League title.`\
 https://nytimes.com/athletic/6192083/2025/03/11/usmnt-roster-concacaf-nations-league-finals-pochettino-reyna/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6193884/2025/03/11/michigan-football-basketball-mai
 **The Bounce: 5 years ago, COVID shut down the NBA**\
 `Plus: A look at the league's recent offensive boom and what we saw in Thunder-Nuggets.`\
 https://nytimes.com/athletic/6193833/2025/03/11/nba-covid-shutdown-five-years-later-bounce/
-
-**From masterpiece to misery: Josh Giddey's big night for the Bulls spoiled by injury**\
-`On a night when nearly everything else went his way, Giddey’s beautiful night against the Indiana Pacers ended with misery.`\
-https://nytimes.com/athletic/6193190/2025/03/11/josh-giddey-bulls-nba-injury/
-
-**Are You a Federal Worker? We Want To Hear From You.**\
-`The Times would like to hear about your experience as a federal worker under the second Trump administration. We may reach out about your submission, but we will not publish any part of your response without contacting you first.`\
-https://nytimes.com/2025/03/11/us/federal-workers-agencies-trump.html
-
-**Listen: Are Spurs more likely to win the Europa League without Postecoglou in charge?**\
-`The View From the Lane discuss whether Tottenham would have a better chance of winning the Europa League without Ange Postecoglou in charge`\
-https://nytimes.com/athletic/6191351/2025/03/11/view-from-the-lane-podcast-tottenham-europa-league-postecoglou/
-
-**Reebok announces return to golf with Allen Iverson, The Pump, and more**\
-`Reebok's return to golf is laced with nostalgia `\
-https://nytimes.com/athletic/6163269/2025/03/11/reebok-returns-to-golf-with-the-pump-and-allen-iversons-the-question/
-
-**Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
-`As the Canucks begin a high-stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
-https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
 
