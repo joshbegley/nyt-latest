@@ -1,3 +1,11 @@
+**00covid-rv-carousel**\
+`(No description)`\
+https://nytimes.com/card/watch/2025/03/11/health/covid-5-year-anniversary-videos
+
+**The Pulse: Of course it came down to the QBs**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6191401/2025/03/11/sam-darnold-justin-fields-nfl-free-agency-the-pulse/
+
 **Your Bag’s Hidden Journey From Check-In to Plane**\
 `To get to a plane’s cargo hold, the average checked bag flown with Delta Air Lines is guided by nine people and travels on miles of conveyor belts. We spent a day at LaGuardia Airport to get an inside look.`\
 https://nytimes.com/card/2025/03/11/travel/checked-bags-delta-airlines-laguardia

@@ -1,3 +1,11 @@
+**Storms Are Headed for California. One Could Be a Big Snow Maker.**\
+`Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
+https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
+
+**Sunderland post loss for 18th straight year, no issues with PSR**\
+`The club's pre-tax losses would have doubled had it not sold striker Ross Stewart to Southampton in September 2023.`\
+https://nytimes.com/athletic/6193309/2025/03/11/sunderland-accounts-psr-finances/
+
 **00covid-rv-carousel**\
 `(No description)`\
 https://nytimes.com/card/watch/2025/03/11/health/covid-5-year-anniversary-videos
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6192259/2025/03/11/paul-skenes-baseball-celebrity-p
 **Feldman's top 25 coaches for the 2025 CFB season: Sark, Freeman make big jumps**\
 `Ranking the top three coaches in college football was easy this year. The rest of the Top 25? It gets complicated. Here's who I picked.`\
 https://nytimes.com/athletic/6191343/2025/03/11/college-football-coach-rankings-bruce-feldman-2025/
-
-**Mandel's top 25 coaches for the 2025 CFB season: From Smart and Day to Sumrall**\
-`Disappointing seasons for a few coaches dropped them out of Mandel's top 25 entirely. Who made the cut?`\
-https://nytimes.com/athletic/6186414/2025/03/11/college-football-coach-rankings-stewart-mandel-2025/
-
-**Key NWSL players to watch in 2025**\
-`We know the stars, but these are the players who can also help their teams reach the NWSL championship`\
-https://nytimes.com/athletic/6185139/2025/03/11/nwsl-players-to-watch-2025/
 
