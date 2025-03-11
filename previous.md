@@ -1,3 +1,15 @@
+**Duterte’s Arrest Shows Power and Limits of the International Criminal Court**\
+`The arrest represents a significant victory for the I.C.C., but only a narrow set of circumstances made it possible.`\
+https://nytimes.com/2025/03/11/world/asia/duterte-arrest-international-criminal-court.html
+
+**Eagles accept Donald Trump's invitation to visit White House**\
+`After the Eagles' Super Bowl win in 2018, Trump canceled the team's White House visit over a national anthem dispute.`\
+https://nytimes.com/athletic/6164476/2025/03/11/eagles-super-bowl-white-house-visit-trump/
+
+**The Briefing - Barcelona 3 Benfica 1 (agg: 4-1): Can Yamal and Raphinha help Barcelona win Champions League?**\
+`Yamal’s super strike capped another outstanding performance, while Raphinha’s double strike made him top scorer in the competition`\
+https://nytimes.com/athletic/6194332/2025/03/11/barcelona-3-benfica-1-yamal-raphinha-the-briefing/
+
 **Inside Google’s Investment in the A.I. Start-Up Anthropic**\
 `The internet giant owns 14% of the high-profile artificial intelligence company, according to legal filings obtained by The New York Times.`\
 https://nytimes.com/2025/03/11/technology/google-investment-anthropic.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6174827/2025/03/11/juwan-johnson-free-agency-signin
 **New York’s Most Exciting New Restaurant is Just a Warm-Up Act**\
 `Ha’s Snack Bar plans to scale up in size and ambition, but it’s already turning heads with its freewheeling takes on French and Vietnamese flavors.`\
 https://nytimes.com/2025/03/11/dining/new-yorks-most-exciting-new-restaurant-is-just-a-warm-up-act.html
-
-**Investors Thought They Had Trump Figured Out. They Were Wrong.**\
-`On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
-https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
-
-**Vikings 2025 free agency tracker: Minnesota bolsters lines with Jonathan Allen, Will Fries**\
-`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6181495/2025/03/11/minnesota-vikings-free-agent-tracker/
-
-**In ‘The Great Privation,’ Fending Off the Body Snatchers**\
-`Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
-https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
 

@@ -1,3 +1,7 @@
+**More Protein, Less Pasta, Tasty and Not Too Much Prep**\
+`By Margaux Laskey`\
+https://nytimes.com/2025/03/11/dining/more-protein-less-carb-easy-recipes.html
+
 **Duterte’s Arrest Shows Power and Limits of the International Criminal Court**\
 `The arrest represents a significant victory for the I.C.C., but only a narrow set of circumstances made it possible.`\
 https://nytimes.com/2025/03/11/world/asia/duterte-arrest-international-criminal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6184347/2025/03/11/post-250-adp-team-fantasy-baseba
 **Juwan Johnson, Saints agree to three-year deal: Source**\
 `Johnson, 28, the No. 13 free agent on The Athletic's list of the top 150 available, was the top tight end on the market. `\
 https://nytimes.com/athletic/6174827/2025/03/11/juwan-johnson-free-agency-signing-2025-saints/
-
-**New York’s Most Exciting New Restaurant is Just a Warm-Up Act**\
-`Ha’s Snack Bar plans to scale up in size and ambition, but it’s already turning heads with its freewheeling takes on French and Vietnamese flavors.`\
-https://nytimes.com/2025/03/11/dining/new-yorks-most-exciting-new-restaurant-is-just-a-warm-up-act.html
 

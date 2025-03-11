@@ -1,3 +1,15 @@
+**Duterte’s Arrest Shows Power and Limits of the International Criminal Court**\
+`The arrest represents a significant victory for the I.C.C., but only a narrow set of circumstances made it possible.`\
+https://nytimes.com/2025/03/11/world/asia/duterte-arrest-international-criminal-court.html
+
+**Eagles accept Donald Trump's invitation to visit White House**\
+`After the Eagles' Super Bowl win in 2018, Trump canceled the team's White House visit over a national anthem dispute.`\
+https://nytimes.com/athletic/6164476/2025/03/11/eagles-super-bowl-white-house-visit-trump/
+
+**The Briefing - Barcelona 3 Benfica 1 (agg: 4-1): Can Yamal and Raphinha help Barcelona win Champions League?**\
+`Yamal’s super strike capped another outstanding performance, while Raphinha’s double strike made him top scorer in the competition`\
+https://nytimes.com/athletic/6194332/2025/03/11/barcelona-3-benfica-1-yamal-raphinha-the-briefing/
+
 **Inside Google’s Investment in the A.I. Start-Up Anthropic**\
 `The internet giant owns 14% of the high-profile artificial intelligence company, according to legal filings obtained by The New York Times.`\
 https://nytimes.com/2025/03/11/technology/google-investment-anthropic.html
