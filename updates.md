@@ -1,3 +1,7 @@
+**I’m Obsessed With Survival Shows. Could I Make It 10 Days in the Wilderness?**\
+`I wanted to learn how to prepare for disaster. It turned out I needed skills, yes — but the first thing was learning how to breathe.`\
+https://nytimes.com/2025/03/11/magazine/survival-course-doom-disaster-prep.html
+
 **Wheesung, a South Korean R&B Singer, Is Found Dead at 43**\
 `The artist was known for popularizing the musical genre in the country, but convictions for drug abuse damaged his image.`\
 https://nytimes.com/2025/03/11/world/asia/south-korean-singer-wheesung-dead.html
