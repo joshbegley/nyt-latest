@@ -1,3 +1,11 @@
+**Panthers missed on a big target but still found reinforcements for porous D**\
+`Monday started with Jaycee Horn receiving the richest deal for a DB and ended with multiple reinforcements for the Panthers' defense.`\
+https://nytimes.com/athletic/6192623/2025/03/10/carolina-panthers-free-agency-pickups-defense/
+
+**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
+
 **Chase Young sticks with Saints on 3-year, $51 million deal: Source**\
 `The journeyman pass rusher had a high pressure rate last season but could not convert that pressure into sacks. `\
 https://nytimes.com/athletic/6176550/2025/03/10/chase-young-free-agent-signing-nfl-saints/

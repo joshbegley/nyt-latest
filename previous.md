@@ -1,3 +1,11 @@
+**Panthers missed on a big target but still found reinforcements for porous D**\
+`Monday started with Jaycee Horn receiving the richest deal for a DB and ended with multiple reinforcements for the Panthers' defense.`\
+https://nytimes.com/athletic/6192623/2025/03/10/carolina-panthers-free-agency-pickups-defense/
+
+**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/10/chicago-bears-2025-free-agency-tracker/
+
 **Corrections: March 11, 2025**\
 `Corrections that appeared in print on Tuesday, March 11, 2025.`\
 https://nytimes.com/2025/03/10/pageoneplus/corrections-march-11-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6192515/2025/03/10/bengals-defensive-line-free-agen
 **‘Ghosts’ Review: The Sins of the Father, Visited on Everyone**\
 `Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
 https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
-
-**Cowboys free-agency analysis: A CB loss, an RB pickup and still plenty of holes to fill**\
-`The Cowboys added versatile RB Javonte Williams but still need help at other positions, including cornerback, linebacker and D-tackle.`\
-https://nytimes.com/athletic/6192511/2025/03/10/cowboys-free-agency-analysis-needs-javonte-williams/
-
-**Inside the Former ‘Underworld’ Where Ai Weiwei Makes Art**\
-`Ahead of his largest-ever exhibition in the U.S., the dissident artist reflects on collecting jade and living below ground.`\
-https://nytimes.com/2025/03/10/t-magazine/ai-weiwei-retrospective-seattle-art-museum.html
 
