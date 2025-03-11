@@ -1,4 +1,4 @@
-**The Cubs’ goal for Tokyo Series is bigger than Kevin Alcántara or Matt Shaw**\
+**The Cubs' goal for the Tokyo Series is bigger than Kevin Alcántara or Matt Shaw**\
 `The team plans to finalize its travel roster Tuesday morning and leave promptly following an afternoon Cactus League game. `\
 https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
 
