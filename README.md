@@ -1,3 +1,7 @@
+**Celtics-Lakers drew largest non-Christmas regular-season audience in 7 years**\
+`The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
+https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
+
 **Europe’s Armies Review a Peacekeeping Role in Ukraine**\
 `The deeper discussion of a European force comes amid rising anger and dismay over President Trump’s embrace of Russia and abandonment of traditional allies.`\
 https://nytimes.com/2025/03/11/world/europe/ukraine-russia-peace-ceasefire-trump-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/world/europe/uk-tanker-crash-north-sea.html
 **gws-balance-exercises-aging**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/balance-exercises-aging
-
-**Until Saturday: Hot-seat coaches with hard schedules**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/6194750/2025/03/11/hot-seat-college-football-coaches-schedule-strength-until-saturday/
 

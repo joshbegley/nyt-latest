@@ -1,5 +1,33 @@
+**Europe’s Armies Review a Peacekeeping Role in Ukraine**\
+`The deeper discussion of a European force comes amid rising anger and dismay over President Trump’s embrace of Russia and abandonment of traditional allies.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-russia-peace-ceasefire-trump-europe.html
+
+**U.S.A.I.D. Official Orders Employees to Shred or Burn Classified and Personnel Records**\
+`A union representing career diplomats demanded that the aid agency follow the Federal Records Act. Some documents could be relevant in court cases.`\
+https://nytimes.com/2025/03/11/us/politics/usaid-shred-burn-documents.html
+
+**Kennedy Will Convene a New Health Commission in Private**\
+`President Trump ordered the creation of the Make America Healthy Again Commission last month, taking the name from the movement led by Robert F. Kennedy Jr., the health secretary.`\
+https://nytimes.com/2025/03/11/us/politics/rfk-jr-make-america-healthy-again-commission.html
+
+**The Windup: Look at these incredibly bad hats**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6193124/2025/03/11/mlb-hats-new-era-rangers-the-windup/
+
+**Trump Intensifies Statehood Threats in Attack on Canada**\
+`The U.S. president on Tuesday reiterated his claims on Canada’s territory as he increased tariffs, threatening to bring the country’s economy to its knees.`\
+https://nytimes.com/2025/03/11/us/politics/canada-trump-statehood-attacks.html
+
+**Party Like It’s 2009: The Playlist**\
+`Lady Gaga’s “Mayhem” inspired a look back at a time when indie-rock and Auto-Tuned pop mingled, and the lines between the underground and mainstream blurred`\
+https://nytimes.com/2025/03/11/arts/music/2009-playlist.html
+
+**The Problem at the Heart of Trump’s University Crackdown**\
+`The Trump administration unveiled moves against colleges related to how they handled protests after Oct. 7. But the problem is a different one.`\
+https://nytimes.com/2025/03/10/opinion/the-problem-at-the-heart-of-trumps-university-crackdown.html
+
 **Man Arrested on Suspicion of Manslaughter After Ship Hits Tanker in North Sea**\
-`The 59-year-old man was arrested after a container ship struck an oil tanker the North Sea on Monday. A crew member was presumed dead after an extensive search was called off.`\
+`The 59-year-old man was arrested after a container ship struck an oil tanker in the North Sea on Monday. A crew member was presumed dead after an extensive search was called off.`\
 https://nytimes.com/2025/03/11/world/europe/uk-tanker-crash-north-sea.html
 
 **gws-balance-exercises-aging**\
@@ -9,32 +37,4 @@ https://nytimes.com/newsgraphics/card-story/balance-exercises-aging
 **Until Saturday: Hot-seat coaches with hard schedules**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/6194750/2025/03/11/hot-seat-college-football-coaches-schedule-strength-until-saturday/
-
-**GWS-house-of-david-the-chosen-amazon-prime-netflix**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hhouse-of-david-the-chosen-amazon-prime-netflix
-
-**These five Yankees must fill the void left by Gerrit Cole and Giancarlo Stanton**\
-`It's undeniable that their road to glory has become more challenging, but it's not impossible to believe they can still achieve their goal.`\
-https://nytimes.com/athletic/6194618/2025/03/11/new-york-yankees-2025-players-to-step-up/
-
-**Ukraine Launches Drone Attack Against Moscow Region**\
-`The pre-dawn attack came hours before scheduled talks between high-level delegations from Ukraine and the United States in Saudi Arabia.`\
-https://nytimes.com/video/world/europe/100000010045083/ukraine-drone-attacks-moscow-russia.html
-
-**Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
-`Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
-https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
-
-**Kennedy Rattles Food Companies With Vow to Rid Food of Artificial Dyes**\
-`Mr. Kennedy told executives of major food companies that he wants synthetic colors removed from their products. “Decision time is imminent,” a trade group warned its members.`\
-https://nytimes.com/2025/03/11/health/rfk-jr-food-safety-artificial-dyes.html
-
-**Several Children Injured After School Bus Overturns in New Jersey**\
-`At least 31 passengers were on board the bus when it overturned near Montvale, N.J., injuring 14 children and the driver.`\
-https://nytimes.com/video/nyregion/100000010044863/new-jersey-bus-crash.html
-
-**FIFA accused of blocking workers' rights inspection at World Cup 2026 venue**\
-`The Building and Wood Workers’ Union (BWI) says its representatives were denied access to Mexico’s Estadio Azteca for a pre-arranged visit.`\
-https://nytimes.com/athletic/6194597/2025/03/11/fifa-workers-rights-world-cup-2026-azteca/
 
