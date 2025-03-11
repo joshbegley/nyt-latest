@@ -1,3 +1,11 @@
+**Hundreds of Civilians Take Shelter at Russian Air Base in Syria**\
+`Footage and satellite images reviewed by The Times show civilians in the compound, among the thousands who have fled the violent unrest gripping Syria’s coastal region.`\
+https://nytimes.com/2025/03/11/world/europe/civilians-shelter-russian-air-base-syria.html
+
+**Japan Fails to Win Tariff Exemptions During Washington Visit**\
+`The country’s trade minister stressed its role as a top investor and employer in the United States in a bid to avoid being hit by new levies on metals and cars.`\
+https://nytimes.com/2025/03/11/us/politics/japan-trump-tariffs-auto-steel-trade.html
+
 **As Twins search for a starting second baseman, good options emerge**\
 `Willi Castro, Edouard Julien, Brooks Lee and Mickey Gasper are giving Twins management something to think about.`\
 https://nytimes.com/athletic/6192864/2025/03/11/twins-second-base-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6190852/2025/03/11/matt-patricia-ohio-state-belichi
 **NHL post-deadline vibe check: Huge swings, playing it safe and everything in between**\
 `The Hurricanes are playing it safe, the Lightning are all in and are the Red Wings in trouble?`\
 https://nytimes.com/athletic/6192185/2025/03/11/nhl-trade-deadline-red-wings-hurricanes-lightning/
-
-**What Covid Taught Us**\
-`We look at how the world changed — and what studies revealed about how we live.`\
-https://nytimes.com/2025/03/11/briefing/what-covid-taught-us.html
-
-**Storms Are Headed for California. One Could Be a Big Snow Maker.**\
-`Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
-https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
 
