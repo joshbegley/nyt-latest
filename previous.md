@@ -1,3 +1,11 @@
+**gws-chicken-broth-winter-soup-recipe**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chicken-broth-winter-soup-recipe
+
+**gws-van-gogh-national-gallery-all-nighter**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/van-gogh-national-gallery-all-nighter
+
 **Democracy Dies in Dumbness**\
 `Until Donald Trump, no president has been so ignorant of the lessons of history, so incompetent in implementing his own ideas.`\
 https://nytimes.com/2025/03/11/opinion/trump-tariffs-recession-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/kobe-bryant-murals-los-angeles
 **Listen: Which version of Sam Darnold are the Seahawks going to get?**\
 `"The Athletic Football Show" discusses whether the Seattle Seahawks were right to put their future in Sam Darnold’s hands.`\
 https://nytimes.com/athletic/6194149/2025/03/11/athletic-football-show-seattle-seahawks-sam-darnold/
-
-**Dahlin doesn’t want to be traded, but Sabres must do better by their captain**\
-`As captain, Dahlin should be having honest conversations with management about the direction of the team.`\
-https://nytimes.com/athletic/6194837/2025/03/11/sabres-rasmus-dahlin-kevyn-adams-trade/
-
-**Judge to Consider Free Speech Issues in Columbia Activist’s Arrest**\
-`The government is trying to deport Mahmoud Khalil, a permanent resident and defender of the Palestinian cause, accusing him of siding with terrorists.`\
-https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-hearing-constitution.html
 

@@ -1,3 +1,11 @@
+**gws-chicken-broth-winter-soup-recipe**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chicken-broth-winter-soup-recipe
+
+**gws-van-gogh-national-gallery-all-nighter**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/van-gogh-national-gallery-all-nighter
+
 **Democracy Dies in Dumbness**\
 `Until Donald Trump, no president has been so ignorant of the lessons of history, so incompetent in implementing his own ideas.`\
 https://nytimes.com/2025/03/11/opinion/trump-tariffs-recession-ukraine.html
