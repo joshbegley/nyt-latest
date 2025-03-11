@@ -1,3 +1,7 @@
+**Jevon Holland, Giants reach 3-year, $45 million deal**\
+`The 25-year-old spent four seasons with the Dolphins and was the third-highest ranked safety on The Athletic's top 150 free agents list.`\
+https://nytimes.com/athletic/6175707/2025/03/11/jevon-holland-giants-free-agency-signing-2025/
+
 **Trump Administration Live Updates: Markets Are Steadier After Trade War Rattles Investors**\
 ``\
 https://nytimes.com/live/2025/03/11/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192973/2025/03/11/broncos-signings-drew-greenlaw-t
 **How Adam Fantilli's stellar growth, maturity have helped save Blue Jackets' season**\
 `When Sean Monahan went down with an injury in January, the Blue Jackets could have fallen apart. Adam Fantilli stepped up.`\
 https://nytimes.com/athletic/6192049/2025/03/11/adam-fantilli-blue-jackets-growth/
-
-**JJ Redick laments Lakers' effort vs. Nets: 'We just wanted to take shortcuts'**\
-`Without its entire starting frontcourt, including the injured LeBron James, LA looked like a shell of itself. `\
-https://nytimes.com/athletic/6193201/2025/03/11/lakers-nets-lebron-james-luka-doncic-loss/
 
