@@ -1,3 +1,15 @@
+**Democracy Dies in Dumbness**\
+`Until Donald Trump, no president has been so ignorant of the lessons of history, so incompetent in implementing his own ideas.`\
+https://nytimes.com/2025/03/11/opinion/trump-tariffs-recession-ukraine.html
+
+**tom-green-show-amazon-prime**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tom-green-show-amazon-prime
+
+**Ravens free-agency tracker: All-Pro FB Patrick Ricard agrees to return on 1-year deal**\
+`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188842/2025/03/11/ravens-free-agency-tracker-signings-trades/
+
 **Murder Charges Are Brought in Death of 5-Year-Old Boy in Hyperbaric Chamber**\
 `The Michigan attorney general has accused the owner of a medical center and three of its employees of ignoring safety standards to make a profit.`\
 https://nytimes.com/2025/03/11/us/child-hyperbaric-chamber-death-detroit-charges.html

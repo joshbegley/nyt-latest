@@ -1,3 +1,15 @@
+**Democracy Dies in Dumbness**\
+`Until Donald Trump, no president has been so ignorant of the lessons of history, so incompetent in implementing his own ideas.`\
+https://nytimes.com/2025/03/11/opinion/trump-tariffs-recession-ukraine.html
+
+**tom-green-show-amazon-prime**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tom-green-show-amazon-prime
+
+**Ravens free-agency tracker: All-Pro FB Patrick Ricard agrees to return on 1-year deal**\
+`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188842/2025/03/11/ravens-free-agency-tracker-signings-trades/
+
 **Murder Charges Are Brought in Death of 5-Year-Old Boy in Hyperbaric Chamber**\
 `The Michigan attorney general has accused the owner of a medical center and three of its employees of ignoring safety standards to make a profit.`\
 https://nytimes.com/2025/03/11/us/child-hyperbaric-chamber-death-detroit-charges.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6194837/2025/03/11/sabres-rasmus-dahlin-kevyn-adams
 **Judge to Consider Free Speech Issues in Columbia Activist’s Arrest**\
 `The government is trying to deport Mahmoud Khalil, a permanent resident and defender of the Palestinian cause, accusing him of siding with terrorists.`\
 https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-hearing-constitution.html
-
-**More Protein, Less Pasta, Tasty and Not Too Much Prep**\
-`By Margaux Laskey`\
-https://nytimes.com/2025/03/11/dining/more-protein-less-carb-easy-recipes.html
-
-**Duterte’s Arrest Shows Power and Limits of the International Criminal Court**\
-`The arrest represents a significant victory for the I.C.C., but only a narrow set of circumstances made it possible.`\
-https://nytimes.com/2025/03/11/world/asia/duterte-arrest-international-criminal-court.html
-
-**Eagles accept Donald Trump's invitation to visit White House**\
-`After the Eagles' Super Bowl win in 2018, Trump canceled the team's White House visit over a national anthem dispute.`\
-https://nytimes.com/athletic/6164476/2025/03/11/eagles-super-bowl-white-house-visit-trump/
 
