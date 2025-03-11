@@ -1,3 +1,7 @@
+**Celtics-Lakers sees largest non-Christmas regular-season audience in 7 years**\
+`The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
+https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
+
 **U.S. Said to Tell Canada That It Will Enforce a Visitor Registration Law**\
 `The United States had not been enforcing the rule for Canadians who entered via land borders. That is changing amid an escalating fight between the North American neighbors.`\
 https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration.html
