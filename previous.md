@@ -1,3 +1,19 @@
+**New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
+`As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
+https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-agency-tracker/
+
+**49ers 2025 free agency tracker: Jordan Mason gets second-round tender**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/11/san-francisco-49ers-2025-free-agency-tracker/
+
+**Vikings, Jonathan Allen agree to 3-year, $60 million deal: Sources**\
+`Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
+https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agency-signing/
+
+**Chargers free-agency reset, Day 1: Poona Ford's departure looms large**\
+`The Chargers brought back Khalil Mack and added a dependable running back, but Ford's crosstown move to the Rams will hurt.`\
+https://nytimes.com/athletic/6193020/2025/03/11/chargers-free-agency-reset-poona-ford/
+
 **Trump Faces a C.E.O. Test**\
 `The president is set to meet with corporate leaders on Tuesday, as concerns over his protectionist trade policies weigh on markets and the economy.`\
 https://nytimes.com/2025/03/11/business/dealbook/ceo-white-house-tariff.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6192198/2025/03/11/cardinals-spring-training-positi
 **Michigan has an ambitious recruiting board for 2026. Who tops the list?**\
 `Michigan has assembled an ambitious recruiting board that includes No. 1 prospect Jackson Cantwell and a host of other elite recruits.`\
 https://nytimes.com/athletic/6191132/2025/03/11/michigan-football-recruiting-2026-class/
-
-**ACC mailbag: How is the Bill Belichick era going? Is the settlement the start of the end?**\
-`Why can't ACC schools recruit at an elite level? Will an SEC school come calling for Fran Brown if Syracuse gets to another bowl game?`\
-https://nytimes.com/athletic/6190549/2025/03/11/acc-football-clemson-florida-state-settlement/
-
-**Why Geno Smith gives the Raiders a better quarterback than some may think**\
-`Film shows how Smith overcame terrible pass protection in Seattle and that can still make all the throws at 34 years old.`\
-https://nytimes.com/athletic/6187840/2025/03/11/geno-smith-raiders-film-review/
-
-**How the bond between Freddy Gaudreau and his nephew, Noah, inspired Sunday's Wild charity event**\
-`Gaudreau calls his nephew and godson "the most incredible person I know."`\
-https://nytimes.com/athletic/6190914/2025/03/11/freddy-gaudreau-charity-down-syndrome/
-
-**‘I’m outta here’: A whisper, a hug and the aftermath of bone-cutting NHL trades**\
-`Lohrei on the trade deadline's aftermath: “It’s never a position you want to be in, watching some of your best friends get shipped away."`\
-https://nytimes.com/athletic/6191909/2025/03/11/bruins-trades-next-wave-prospects/
 
