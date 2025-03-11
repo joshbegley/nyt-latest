@@ -1,3 +1,7 @@
+**Ukraine Launches Drone Attack Against Moscow Region**\
+`The pre-dawn attack came hours before scheduled talks between high-level delegations from Ukraine and the United States in Saudi Arabia.`\
+https://nytimes.com/video/world/europe/100000010045083/ukraine-drone-attacks-moscow-russia.html
+
 **Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
 `Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
 https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
