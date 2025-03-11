@@ -1,3 +1,11 @@
+**Gerrit Cole’s season-ending surgery shows how much pitching has changed**\
+`From 2015 through 2024, Cole led MLB with 1,698 ⅔ innings, plus another 122 ⅔ in the postseason. And finesse has never been his game.`\
+https://nytimes.com/athletic/6195417/2025/03/11/gerrit-cole-yankees-surgery-pitching/
+
+**Rams’ WR Puka Nacua to change jersey number to honor family history**\
+`The Rams leading receiver from the 2024 season will have a new uniform number in 2025. `\
+https://nytimes.com/athletic/6195320/2025/03/11/rams-puka-nacua-jersey-number-change/
+
 **Alabama City Suspends Entire Police Force After Sweeping Indictments**\
 `The City Council of Hanceville voted to disband its police force and then rebuild it after its chief and four officers were indicted on multiple charges.`\
 https://nytimes.com/2025/03/11/us/hanceville-alabama-police-department-replacement.html
