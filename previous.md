@@ -1,5 +1,9 @@
-**Cowboys free-agency analysis: A CB loss, a RB pickup and still plenty of holes to fill**\
-`The Cowboys added versatile RB Javonte Williams, but still need help at other positions, including cornerback, linebacker and D-tackle.`\
+**‘Ghosts’ Review: The Sins of the Father, Visited on Everyone**\
+`Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
+https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
+
+**Cowboys free-agency analysis: A CB loss, an RB pickup and still plenty of holes to fill**\
+`The Cowboys added versatile RB Javonte Williams but still need help at other positions, including cornerback, linebacker and D-tackle.`\
 https://nytimes.com/athletic/6192511/2025/03/10/cowboys-free-agency-analysis-needs-javonte-williams/
 
 **Inside the Former ‘Underworld’ Where Ai Weiwei Makes Art**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/arts/simon-fisher-becker-dead.html
 **Rubio Seeks Cease-Fire in Ukraine After Reaching His Own With Musk**\
 `After blowing up at Elon Musk, Secretary of State Marco Rubio aims to bolster his position. He is seeing Saudi and Ukrainian officials in Saudi Arabia and allied diplomats in Canada.`\
 https://nytimes.com/2025/03/10/us/politics/trump-rubio-ukraine-musk.html
-
-**Yankees now face an impossible task: Replacing Gerrit Cole**\
-`Will Warren has pitched well this spring but the Yankees can't expect him or anybody else to make up for the loss of their ace.`\
-https://nytimes.com/athletic/6192236/2025/03/10/yankees-now-face-an-impossible-task-replacing-gerrit-cole/
 
