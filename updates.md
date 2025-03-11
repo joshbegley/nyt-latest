@@ -1,3 +1,15 @@
+**Nathan MacKinnon on Connor Bedard's stagnant production: 'I'd have killed for that when I was 19'**\
+`MacKinnon serves as a reminder that a major breakthrough doesn’t happen overnight for everybody.`\
+https://nytimes.com/athletic/6194133/2025/03/11/nathan-mackinnon-connor-bedard-nhl-struggles/
+
+**‘Adolescence’ Is a Cacophonous, Gripping Mini-Series**\
+`The emotionally complex new Netflix series, about a teenager accused of killing a classmate, doubles as a rich work of social critique.`\
+https://nytimes.com/2025/03/11/arts/television/adolescence-netflix.html
+
+**Chiefs free agency tracker: Ex-Chargers CB Kristian Fulton added to boost secondary**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/11/kansas-city-chiefs-2025-free-agency-tracker/
+
 **The Philharmonic’s New Season: What We’re Excited to Hear**\
 `Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
 https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
