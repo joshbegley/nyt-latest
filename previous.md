@@ -1,3 +1,7 @@
+**Graham Potter wants to rebuild West Ham's midfield - Monday night's game showed why**\
+`Newcastle's strength in the middle of the pitch highlighted what Potter is lacking in his squad at the moment`\
+https://nytimes.com/athletic/6191796/2025/03/11/west-ham-potter-midfield-rebuild/
+
 **What the win at West Ham means for Newcastle's Carabao Cup final starting XI**\
 `Will Eddie Howe continue with the new-look left-side combination of Tino Livramento and Harvey Barnes after they impressed on Monday night?`\
 https://nytimes.com/athletic/6192600/2025/03/11/newcastle-west-ham-carabao-cup-final-warm-up/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/health/covid-pandemic-history.html
 **Late Night Takes Stock of Trump’s Effect on the Markets**\
 `“In the first Trump term, it took a disease to destroy the economy,” Stephen Colbert said. “This time, he’s the disease.”`\
 https://nytimes.com/2025/03/11/arts/television/late-night-trump-stock-market.html
-
-**One year of the 'new' FSG: Edwards-Hughes dynamic, scouting revamp and multi-club latest**\
-`It is a year since Michael Edwards returned to FSG to overhaul its football operations - this is what has happened since`\
-https://nytimes.com/athletic/6191595/2025/03/11/liverpool-fsg-edwards-hughes/
 

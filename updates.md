@@ -1,3 +1,7 @@
+**Graham Potter wants to rebuild West Ham's midfield - Monday night's game showed why**\
+`Newcastle's strength in the middle of the pitch highlighted what Potter is lacking in his squad at the moment`\
+https://nytimes.com/athletic/6191796/2025/03/11/west-ham-potter-midfield-rebuild/
+
 **What the win at West Ham means for Newcastle's Carabao Cup final starting XI**\
 `Will Eddie Howe continue with the new-look left-side combination of Tino Livramento and Harvey Barnes after they impressed on Monday night?`\
 https://nytimes.com/athletic/6192600/2025/03/11/newcastle-west-ham-carabao-cup-final-warm-up/
