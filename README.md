@@ -6,7 +6,7 @@ https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration
 `The Interior Department is suspending 20 Biden-era legal opinions, including one leading to fines against energy companies if birds die in oil spills or other industrial activities.`\
 https://nytimes.com/2025/03/11/climate/interior-department-birds-oil-legal-opinions.html
 
-**Celtics-Lakers drew largest non-Christmas regular-season audience in 7 years**\
+**Celtics-Lakers sees largest non-Christmas regular-season audience in 7 years**\
 `The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
 https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
 
