@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Ukraine, LeBron James, $90,000 Cheeto**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/03/11/learning/11StudentNewsQuiz.html
+
+**The Knicks have the blueprint to win without Jalen Brunson**\
+`Missing their captain, the Knicks leaned on defense, shooting and pace in a dominant showing against the Kings. Can they do it consistently?`\
+https://nytimes.com/athletic/6193235/2025/03/11/knicks-jalen-brunson-injury-defense-win/
+
 **Hundreds of Civilians Take Shelter at Russian Air Base in Syria**\
 `Footage and satellite images reviewed by The Times show civilians in the compound, among the thousands who have fled the violent unrest gripping Syria’s coastal region.`\
 https://nytimes.com/2025/03/11/world/europe/civilians-shelter-russian-air-base-syria.html

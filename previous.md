@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Ukraine, LeBron James, $90,000 Cheeto**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/03/11/learning/11StudentNewsQuiz.html
+
+**The Knicks have the blueprint to win without Jalen Brunson**\
+`Missing their captain, the Knicks leaned on defense, shooting and pace in a dominant showing against the Kings. Can they do it consistently?`\
+https://nytimes.com/athletic/6193235/2025/03/11/knicks-jalen-brunson-injury-defense-win/
+
 **Hundreds of Civilians Take Shelter at Russian Air Base in Syria**\
 `Footage and satellite images reviewed by The Times show civilians in the compound, among the thousands who have fled the violent unrest gripping Syria’s coastal region.`\
 https://nytimes.com/2025/03/11/world/europe/civilians-shelter-russian-air-base-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6192902/2025/03/11/gerrit-cole-yankees-american-lea
 **D'Angelo Ortiz, son of Big Papi, returns to Red Sox spring training to forge his own path**\
 `His famous name makes people notice him, yes. But “he knows,” David Ortiz said, “that’s not going to take him anywhere.”`\
 https://nytimes.com/athletic/6174373/2025/03/11/dangelo-ortiz-son-of-big-papi-red-sox-spring-training/
-
-**Matt Patricia goes back to school: Why does he fit at Ohio State?**\
-`Patricia followed his mentor, Bill Belichick, to college football. But he'll get a chance to put his own spin on things at Ohio State.`\
-https://nytimes.com/athletic/6190852/2025/03/11/matt-patricia-ohio-state-belichick-college-football/
-
-**NHL post-deadline vibe check: Huge swings, playing it safe and everything in between**\
-`The Hurricanes are playing it safe, the Lightning are all in and are the Red Wings in trouble?`\
-https://nytimes.com/athletic/6192185/2025/03/11/nhl-trade-deadline-red-wings-hurricanes-lightning/
 
