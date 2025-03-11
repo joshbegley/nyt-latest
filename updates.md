@@ -1,3 +1,7 @@
+**Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
+`Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
+https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/
+
 **Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
 `Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
 https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html

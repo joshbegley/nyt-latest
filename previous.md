@@ -1,3 +1,7 @@
+**Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
+`Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
+https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/
+
 **Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
 `Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
 https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/trump-buy-tesla-elon-musk.html
 **Senate Confirms Gail Slater as Justice Dept.’s Antitrust Lead**\
 `Slater, a longtime Washington lawyer, has been particularly critical of power in the tech industry.`\
 https://nytimes.com/2025/03/11/us/politics/senate-confirms-gail-slater-as-justice-depts-antitrust-lead.html
-
-**Manchester United Pitches New Stadium as Key to Government Growth Plan**\
-`Jim Ratcliffe, the billionaire co-owner of the soccer club, framed plans for the 100,000-seat venue as crucial to the British government’s plan to revive the northern English city.`\
-https://nytimes.com/2025/03/11/business/manchester-united-new-stadium-plans.html
 
