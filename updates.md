@@ -1,3 +1,19 @@
+**Reyna, Adams return as Pochettino crafts U.S.'s Nations League finals squad**\
+`Here are the 23 players Mauricio Pochettino has called upon for the U.S.'s attempt to win yet another Concacaf Nations League title.`\
+https://nytimes.com/athletic/6192083/2025/03/11/usmnt-roster-concacaf-nations-league-finals-pochettino-reyna/
+
+**Separatists Hijack Train Carrying Over 400 Passengers in Pakistan**\
+`The authorities were struggling to reach the remote site of the ambush in the country’s southwest, and the passengers’ fate was not immediately known.`\
+https://nytimes.com/2025/03/11/world/asia/pakistan-balochistan-train-hijacking.html
+
+**The Bounce: 5 years ago, COVID shut down the NBA**\
+`Plus: A look at the league's recent offensive boom and what we saw in Thunder-Nuggets.`\
+https://nytimes.com/athletic/6193833/2025/03/11/nba-covid-shutdown-five-years-later-bounce/
+
+**Canucks notebook: Deadline reflections, top-six problems, back-to-back games**\
+`As the Canucks begin a high-stakes portion of their schedule, let's look at the trade deadline, top-six problem and goalie issues.`\
+https://nytimes.com/athletic/6193230/2025/03/11/canucks-notebook-trade-deadline-reflections/
+
 **For Klay Thompson, Kyrie Irving's injury, and expected recovery, look familiar**\
 `Thompson had a similar ACL injury in 2019 as Irving earlier this month. “We know he’s going to come back stronger,” Thompson said of Irving.`\
 https://nytimes.com/athletic/6193195/2025/03/11/klay-thompson-kyrie-irving-mavericks-nba/
