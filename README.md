@@ -1,3 +1,7 @@
+**Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
+`Follow here for all the Cowboys free-agent news on players coming and going. `\
+https://nytimes.com/athletic/6180524/2025/03/11/dallas-cowboys-free-agency-tracker-2025/
+
 **Nottm Forest could begin stadium redevelopment plans next season**\
 `The club plan to rebuild the Peter Taylor Stand, replacing it with a 10,000 capacity structure with Champions League quality facilities.`\
 https://nytimes.com/athletic/6193644/2025/03/11/nottingham-forest-city-ground-peter-taylor-stand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agen
 **Chargers free-agency reset, Day 1: Poona Ford's departure looms large**\
 `The Chargers brought back Khalil Mack and added a dependable running back, but Ford's crosstown move to the Rams will hurt.`\
 https://nytimes.com/athletic/6193020/2025/03/11/chargers-free-agency-reset-poona-ford/
-
-**Trump Faces a C.E.O. Test**\
-`The president is set to meet with corporate leaders on Tuesday, as concerns over his protectionist trade policies weigh on markets and the economy.`\
-https://nytimes.com/2025/03/11/business/dealbook/ceo-white-house-tariff.html
 
