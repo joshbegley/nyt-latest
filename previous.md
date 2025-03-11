@@ -1,3 +1,11 @@
+**Can Arizona State be the next Clemson? 'That's the goal,' Kenny Dillingham says**\
+`It happens once every 10 years or so. Arizona State surges. Then the Sun Devils stumble. This time could be different.`\
+https://nytimes.com/athletic/6192980/2025/03/11/arizona-state-clemson-kenny-dillingham/
+
+**Who is Andrea Berta?**\
+`Arsenal's new sporting director spent 12 years at Atletico Madrid — here, The Athletic looks at Berta's career so far...`\
+https://nytimes.com/athletic/6175996/2025/03/11/who-is-andrea-berta-arsenal/
+
 **Eagles trade DB C.J. Gardner-Johnson to Texans for OL Kenyon Green: Sources**\
 `The teams swap future Day 3 picks in a deal that gives the Eagles offensive line depth and further bolsters a talented Texans secondary.`\
 https://nytimes.com/athletic/6194021/2025/03/11/eagles-cj-gardner-johnson-trade-texans-news/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6188971/2025/03/11/sf-giants-mailbag-roster-managem
 **Some Vegans Were Harmed in the Watching of This Movie**\
 `A film critic who provides “vegan alerts” for animal cruelty goes beyond onscreen violence. Milk and eggs are problematic, too.`\
 https://nytimes.com/2025/03/11/movies/vegan-alert-letterboxd-allison-mcculloch.html
-
-**The Transformer: Twyla Tharp Dives Into the Future**\
-`Tharp celebrates her 60th anniversary as a dance maker with a program pairing the monumental “Diabelli” (1998) and the new “Slacktide.”`\
-https://nytimes.com/2025/03/11/arts/dance/twyla-tharp-diabelli-slacktide.html
-
-**Reyna, Adams return as Pochettino crafts U.S.'s Nations League finals squad**\
-`Here are the 23 players Mauricio Pochettino has called upon for the U.S.'s attempt to win yet another Concacaf Nations League title.`\
-https://nytimes.com/athletic/6192083/2025/03/11/usmnt-roster-concacaf-nations-league-finals-pochettino-reyna/
 
