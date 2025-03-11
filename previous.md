@@ -1,3 +1,19 @@
+**Inside Google’s Investment in the A.I. Start-Up Anthropic**\
+`The internet giant owns 14% of the high-profile artificial intelligence company, according to legal filings obtained by The New York Times.`\
+https://nytimes.com/2025/03/11/technology/google-investment-anthropic.html
+
+**Israel and Lebanon Agree to Talks on Border, Long a Source of Tension**\
+`Officials say negotiations would also include the future of Israeli military outposts in Lebanon and of Lebanese prisoners still held in Israel.`\
+https://nytimes.com/2025/03/11/world/middleeast/israel-lebanon-border-talks.html
+
+**Republicans Quietly Cede Power to Cancel Trump’s Tariffs, Avoiding a Tough Vote**\
+`House G.O.P. leaders tucked the provision into a procedural measure needed to pass a government spending bill.`\
+https://nytimes.com/2025/03/11/us/politics/trump-tariffs-house-gop-vote.html
+
+**Mel Gibson’s Gun Was Taken Away Over a Misdemeanor. Here’s Why.**\
+`Federal law has special provisions in domestic violence cases because of their unique risks.`\
+https://nytimes.com/2025/03/11/us/mel-gibson-gun-misdemeanor.html
+
 **All-Post-250 ADP team: Jonathan Aranda among top last-round fantasy baseball targets**\
 `John Laghezza shares his favorite targets in the late rounds of fantasy baseball drafts, including a potential power breakout in Tampa.`\
 https://nytimes.com/athletic/6184347/2025/03/11/post-250-adp-team-fantasy-baseball-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6181495/2025/03/11/minnesota-vikings-free-agent-tra
 **In ‘The Great Privation,’ Fending Off the Body Snatchers**\
 `Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
 https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
-
-**Cowboys agree to extension with All-Pro returner KaVontae Turpin: Sources**\
-`The two-time Pro Bowler and 2024 first-team All-Pro has made his mark in the return game and had a bigger role on offense last year. `\
-https://nytimes.com/athletic/6194799/2025/03/11/kavonte-turpin-free-ageny-2025-extension-cowboys/
-
-**Tony Hinchcliffe, the Trump Rally Comedian, Lands a Netflix Deal**\
-`Hinchcliffe’s set at Madison Square Garden in October drew sharp criticism after he described Puerto Rico as a “floating island of garbage.”`\
-https://nytimes.com/2025/03/11/arts/television/tony-hinchcliffe-netflix-deal.html
-
-**Authorities Search for U.S. Student Missing in the Dominican Republic**\
-`Sudiksha Konanki, 20, who was on spring break from the University of Pittsburgh, was last seen on a beach in Punta Cana.`\
-https://nytimes.com/2025/03/11/us/sudiksha-konanki-missing-punta-cana-search.html
-
-**E.P.A. Grant Recipients Find Their Funds Frozen, With No Explanation**\
-`Dozens of nonprofit groups have been unable to access the federal government’s payment system. The E.P.A. hasn’t explained why.`\
-https://nytimes.com/2025/03/11/climate/epa-grant-recipients-funding-freeze.html
 
