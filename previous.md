@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6192864/2025/03/11/twins-second-base-spring-trainin
 `The Tritons could become the first Division I newcomer to make the tournament on its first try since Northern Kentucky in 2017.`\
 https://nytimes.com/athletic/6192140/2025/03/11/uc-san-diego-ncaa-tournament-eric-olen/
 
+**Losing when you're winning: How Bulls, 76ers, Nets or Raptors will finish 10th**\
+`None of these teams really wants to make the Play-In, as the NBA Draft is far more important for each of them. We discuss the tortoise race.`\
+https://nytimes.com/athletic/6191688/2025/03/11/bulls-76ers-nets-raptors-10th-seed-play-in-tournament/
+
 **Greenberg: Why the Bears winning another offseason actually feels real this time**\
 `It’s easy to make fun of the Bears' penchant for winning offseasons, but don't dismiss their moves as false hustle or NFL March Madness.`\
 https://nytimes.com/athletic/6192364/2025/03/11/chicago-bears-free-agency-signings-drew-dalman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/briefing/what-covid-taught-us.html
 **Storms Are Headed for California. One Could Be a Big Snow Maker.**\
 `Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
 https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
-
-**Sunderland post loss for 18th straight year, no issues with PSR**\
-`The club's pre-tax losses would have doubled had it not sold striker Ross Stewart to Southampton in September 2023.`\
-https://nytimes.com/athletic/6193309/2025/03/11/sunderland-accounts-psr-finances/
 

@@ -1,3 +1,7 @@
+**Losing when you're winning: How Bulls, 76ers, Nets or Raptors will finish 10th**\
+`None of these teams really wants to make the Play-In, as the NBA Draft is far more important for each of them. We discuss the tortoise race.`\
+https://nytimes.com/athletic/6191688/2025/03/11/bulls-76ers-nets-raptors-10th-seed-play-in-tournament/
+
 **As Twins search for a starting second baseman, good options emerge**\
 `Willi Castro, Edouard Julien, Brooks Lee and Mickey Gasper are giving Twins management something to think about.`\
 https://nytimes.com/athletic/6192864/2025/03/11/twins-second-base-spring-training/
