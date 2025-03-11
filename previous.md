@@ -1,3 +1,19 @@
+**Tony Hinchcliffe, the Trump Rally Comedian, Lands a Netflix Deal**\
+`Hinchcliffe’s set at Madison Square Garden in October drew sharp criticism after he described Puerto Rico as a “floating island of garbage.”`\
+https://nytimes.com/2025/03/11/arts/television/tony-hinchcliffe-netflix-deal.html
+
+**Authorities Search for U.S. Student Missing in the Dominican Republic**\
+`Sudiksha Konanki, 20, who was on spring break from the University of Pittsburgh, was last seen on a beach in Punta Cana.`\
+https://nytimes.com/2025/03/11/us/sudiksha-konanki-missing-punta-cana-search.html
+
+**E.P.A. Grant Recipients Find Their Funds Frozen, With No Explanation**\
+`Dozens of nonprofit groups have been unable to access the federal government’s payment system. The E.P.A. hasn’t explained why.`\
+https://nytimes.com/2025/03/11/climate/epa-grant-recipients-funding-freeze.html
+
+**Cam Smith's audition for the Astros' Opening Day roster moves to right field**\
+`Asking Smith to learn a new position while adjusting to life in the majors might be ludicrous, but he has forced the Astros to consider it.`\
+https://nytimes.com/athletic/6194686/2025/03/11/cam-smith-audition-astros-right-field/
+
 **FCC's Noonan showcases his voice as his profile as an MLS coach grows**\
 `Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
 https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/11/climate/interior-department-birds-oil-legal-opini
 **Celtics-Lakers sees largest non-Christmas regular-season audience in 7 years**\
 `The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
 https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
-
-**Europe’s Armies Review a Peacekeeping Role in Ukraine**\
-`The deeper discussion of a European force comes amid rising anger and dismay over President Trump’s embrace of Russia and abandonment of traditional allies.`\
-https://nytimes.com/2025/03/11/world/europe/ukraine-russia-peace-ceasefire-trump-europe.html
-
-**U.S.A.I.D. Official Orders Employees to Shred or Burn Classified and Personnel Records**\
-`A union representing career diplomats demanded that the aid agency follow the Federal Records Act. Some documents could be relevant in court cases.`\
-https://nytimes.com/2025/03/11/us/politics/usaid-shred-burn-documents.html
-
-**Kennedy Will Convene a New Health Commission in Private**\
-`President Trump ordered the creation of the Make America Healthy Again Commission last month, taking the name from the movement led by Robert F. Kennedy Jr., the health secretary.`\
-https://nytimes.com/2025/03/11/us/politics/rfk-jr-make-america-healthy-again-commission.html
-
-**The Windup: Look at these incredibly bad hats**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6193124/2025/03/11/mlb-hats-new-era-rangers-the-windup/
 

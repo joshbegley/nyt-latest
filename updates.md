@@ -1,3 +1,19 @@
+**Tony Hinchcliffe, the Trump Rally Comedian, Lands a Netflix Deal**\
+`Hinchcliffe’s set at Madison Square Garden in October drew sharp criticism after he described Puerto Rico as a “floating island of garbage.”`\
+https://nytimes.com/2025/03/11/arts/television/tony-hinchcliffe-netflix-deal.html
+
+**Authorities Search for U.S. Student Missing in the Dominican Republic**\
+`Sudiksha Konanki, 20, who was on spring break from the University of Pittsburgh, was last seen on a beach in Punta Cana.`\
+https://nytimes.com/2025/03/11/us/sudiksha-konanki-missing-punta-cana-search.html
+
+**E.P.A. Grant Recipients Find Their Funds Frozen, With No Explanation**\
+`Dozens of nonprofit groups have been unable to access the federal government’s payment system. The E.P.A. hasn’t explained why.`\
+https://nytimes.com/2025/03/11/climate/epa-grant-recipients-funding-freeze.html
+
+**Cam Smith's audition for the Astros' Opening Day roster moves to right field**\
+`Asking Smith to learn a new position while adjusting to life in the majors might be ludicrous, but he has forced the Astros to consider it.`\
+https://nytimes.com/athletic/6194686/2025/03/11/cam-smith-audition-astros-right-field/
+
 **FCC's Noonan showcases his voice as his profile as an MLS coach grows**\
 `Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
 https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
