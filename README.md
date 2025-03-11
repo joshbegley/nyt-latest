@@ -1,3 +1,7 @@
+**PGA Tour willing to adopt elements of LIV Golf**\
+`"We're doing everything that we can to bring the two sides together,” PGA Tour commissioner Jay Monahan said Tuesday.`\
+https://nytimes.com/athletic/6194316/2025/03/11/pga-tour-liv-golf-pif-deal-changes/
+
 **Receiver Colbie Young reinstated to Georgia's team**\
 `Georgia coach Kirby Smart confirmed Young’s return on Tuesday, saying the senior had fulfilled program and school obligations.`\
 https://nytimes.com/athletic/6193704/2025/03/11/georgia-football-colbie-young-reinstated/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/musk-doge-social-security-entitlement
 **What Does a Shutdown Have to Do With the Budget or Elon Musk? Here’s a Guide.**\
 `A short-term spending bill, a 10-year budget plan and Musk’s cost-cutting team are all progressing at once.`\
 https://nytimes.com/2025/03/11/upshot/federal-budget-musk-republicans.html
-
-**Man City captain Greenwood 'shocked' by Taylor exit**\
-`Manchester City announced on Monday they had parted ways with head coach Gareth Taylor.`\
-https://nytimes.com/athletic/6194206/2025/03/11/man-city-greenwood-taylor/
 

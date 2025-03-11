@@ -1,3 +1,7 @@
+**Receiver Colbie Young reinstated to Georgia's team**\
+`Georgia coach Kirby Smart confirmed Young’s return on Tuesday, saying the senior had fulfilled program and school obligations.`\
+https://nytimes.com/athletic/6193704/2025/03/11/georgia-football-colbie-young-reinstated/
+
 **Athol Fugard’s Plays Illustrated the Value of Every Human Life**\
 `In “Sizwe Banzi Is Dead” and other works, bearing witness to forgotten lives and to the moral blindness and blinkered vision of the realities of apartheid South Africa.`\
 https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
