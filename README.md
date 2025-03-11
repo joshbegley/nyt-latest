@@ -1,3 +1,7 @@
+**Man Utd's stadium plan explained: What will it cost, who pays for it, how long will it take?**\
+`Breaking down the club's decision to embark on a bold new stadium project - and all the costs that involves`\
+https://nytimes.com/athletic/6193499/2025/03/11/manchester-united-new-stadium-cost-explained/
+
 **Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
 `Follow here for all the Cowboys free-agent news on players coming and going. `\
 https://nytimes.com/athletic/6180524/2025/03/11/dallas-cowboys-free-agency-tracker-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-ag
 **Vikings, Jonathan Allen agree to 3-year, $60 million deal: Sources**\
 `Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
 https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agency-signing/
-
-**Chargers free-agency reset, Day 1: Poona Ford's departure looms large**\
-`The Chargers brought back Khalil Mack and added a dependable running back, but Ford's crosstown move to the Rams will hurt.`\
-https://nytimes.com/athletic/6193020/2025/03/11/chargers-free-agency-reset-poona-ford/
 

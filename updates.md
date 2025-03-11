@@ -1,3 +1,7 @@
+**Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
+`Follow here for all the Cowboys free-agent news on players coming and going. `\
+https://nytimes.com/athletic/6180524/2025/03/11/dallas-cowboys-free-agency-tracker-2025/
+
 **Nottm Forest could begin stadium redevelopment plans next season**\
 `The club plan to rebuild the Peter Taylor Stand, replacing it with a 10,000 capacity structure with Champions League quality facilities.`\
 https://nytimes.com/athletic/6193644/2025/03/11/nottingham-forest-city-ground-peter-taylor-stand/
