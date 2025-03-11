@@ -1,3 +1,23 @@
+**Brian Cashman: Yankees face 'difficult' road in replacing Cole, Gil**\
+`The Yankees GM foresees "very limited" early season options to patch up the starting rotation.`\
+https://nytimes.com/athletic/6195292/2025/03/11/yankees-cashman-difficult-road-gerrit-cole-luis-gil/
+
+**Oregon State completes unlikely run to WCC title, lands NCAA bid**\
+`Having lost most of their key players after the Pac-12's demise, Beavers make unlikely run to NCAA Tournament.`\
+https://nytimes.com/athletic/6195684/2025/03/11/oregon-state-wcc-title-ncaa-bid/
+
+**Russia Begins Assault on Ukrainian-Occupied Town in Kursk Region**\
+`Moscow’s military advances on the town of Sudzha may deprive Kyiv of a bargaining chip in peace talks.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-sudzha-russian-forces.html
+
+**Stanley R. Jaffe, 84, Oscar-Winning Producer and Hollywood Power, Dies**\
+`His “Kramer vs. Kramer” won for best picture in 1980, one of many high points in a career that saw him in top jobs, twice, at Paramount.`\
+https://nytimes.com/2025/03/11/movies/stanley-r-jaffe-dead.html
+
+**Power, Money, Territory: How Trump Shook the World in 50 Days**\
+`The system America took 80 years to assemble proved surprisingly fragile in the face of Trump’s assault, a revolution in how the country exercises power across the globe.`\
+https://nytimes.com/2025/03/11/us/politics/trump-50-days-foreign-policy.html
+
 **Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
 `The vote in Parliament will force new elections, the third in little more than three years.`\
 https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
