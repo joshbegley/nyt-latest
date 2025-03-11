@@ -1,8 +1,4 @@
-**49ers to release Pro Bowl FB Kyle Juszczyk: Sources**\
-`Juszczyk, who turns 34 in late April, has been named to nine consecutive Pro Bowls.`\
-https://nytimes.com/athletic/6192742/2025/03/10/49ers-to-release-kyle-juszczyk-sources/
-
-**Panthers missed on a big target, but still found reinforcements for porous D**\
+**Panthers missed on a big target but still found reinforcements for porous D**\
 `Monday started with Jaycee Horn receiving the richest deal for a DB and ended with multiple reinforcements for the Panthers' defense.`\
 https://nytimes.com/athletic/6192623/2025/03/10/carolina-panthers-free-agency-pickups-defense/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creigh
 **Bengals address run stopping on defensive line, but major concern remains**\
 `Bringing back B.J. Hill and adding T.J. Slaton should shore up the middle but lack of pass rush impact could be a problem.`\
 https://nytimes.com/athletic/6192515/2025/03/10/bengals-defensive-line-free-agency/
+
+**‘Ghosts’ Review: The Sins of the Father, Visited on Everyone**\
+`Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
+https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
 
