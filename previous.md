@@ -1,3 +1,11 @@
+**Airlines Cut Forecasts, Raising an Early Alarm About Consumer Spending**\
+`The revised projections suggest that flagging economic confidence has started to hurt travel, which can be an indicator for other industries.`\
+https://nytimes.com/2025/03/11/business/airlines-cut-revenue-forecasts-delta-southwest.html
+
+**A Magazine Gets a New Life — Just as Cool as Its Old Life**\
+`The art and fashion worlds convened at Rick Owens austere Left Bank house to celebrate the relaunch of Karlie Kloss’s i-D Magazine.`\
+https://nytimes.com/2025/03/11/style/rick-owens-i-d-magazine-party-paris-fashion-week.html
+
 **Nathan MacKinnon on Connor Bedard's stagnant production: 'I'd have killed for that when I was 19'**\
 `MacKinnon serves as a reminder that a major breakthrough doesn’t happen overnight for everybody.`\
 https://nytimes.com/athletic/6194133/2025/03/11/nathan-mackinnon-connor-bedard-nhl-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html
 **The ‘Chain Saw’ at the Veterans Agency**\
 `Readers react to the deep staff cuts at the V.A. Also: How State Department reductions will hurt Americans abroad.`\
 https://nytimes.com/2025/03/11/opinion/veterans-state-dept-cuts.html
-
-**C.J. Gardner-Johnson trade grades: Texans get feistier, Eagles buy low on former top pick**\
-`Houston’s defense already played with an edge, and Gardner-Johnson will take that to another level.`\
-https://nytimes.com/athletic/6194184/2025/03/11/c-j-gardner-johnson-trade-grades-texans-eagles-kenyon-green/
-
-**Tuberculosis Resurgent as Trump Funding Cut Disrupts Treatment Globally**\
-`The United States was the major funder of tuberculosis programs. Now hundreds of thousands of sick patients can’t find tests or drugs, and risk spreading the disease.`\
-https://nytimes.com/2025/03/11/health/tuberculosis-kenya-us-cuts.html
 

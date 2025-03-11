@@ -1,3 +1,11 @@
+**Airlines Cut Forecasts, Raising an Early Alarm About Consumer Spending**\
+`The revised projections suggest that flagging economic confidence has started to hurt travel, which can be an indicator for other industries.`\
+https://nytimes.com/2025/03/11/business/airlines-cut-revenue-forecasts-delta-southwest.html
+
+**A Magazine Gets a New Life — Just as Cool as Its Old Life**\
+`The art and fashion worlds convened at Rick Owens austere Left Bank house to celebrate the relaunch of Karlie Kloss’s i-D Magazine.`\
+https://nytimes.com/2025/03/11/style/rick-owens-i-d-magazine-party-paris-fashion-week.html
+
 **Nathan MacKinnon on Connor Bedard's stagnant production: 'I'd have killed for that when I was 19'**\
 `MacKinnon serves as a reminder that a major breakthrough doesn’t happen overnight for everybody.`\
 https://nytimes.com/athletic/6194133/2025/03/11/nathan-mackinnon-connor-bedard-nhl-struggles/
