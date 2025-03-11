@@ -1,3 +1,7 @@
+**What Covid Taught Us**\
+`We look at how the world changed — and what studies revealed about how we live.`\
+https://nytimes.com/2025/03/11/briefing/what-covid-taught-us.html
+
 **Storms Are Headed for California. One Could Be a Big Snow Maker.**\
 `Areas around Los Angeles and San Francisco could receive up to two inches of rain in the middle of the week.`\
 https://nytimes.com/2025/03/11/weather/la-san-francisco-rain-snow-forecast-california.html
