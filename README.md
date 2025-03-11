@@ -1,3 +1,7 @@
+**Profiling the top 30 catchers, and rookies to watch for fantasy baseball 2025**\
+`Gene McCaffrey offers his thoughts on the fantasy baseball catchers worth considering for one- and two-catcher leagues.`\
+https://nytimes.com/athletic/6181219/2025/03/11/profiling-top-30-catcherss-rookies-to-watch-fantasy-baseball-2025/
+
 **Despite Congo Offensive, Rwanda Lures Athletes, Investors and Tourists**\
 `Rwanda appears to be betting on its reputation as a key security partner and sports destination to minimize any backlash to its involvement in the war.`\
 https://nytimes.com/2025/03/11/world/africa/rwanda-congo-john-legend-tourism-m23-invasion.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/03/10/us/politics/musk-doge-foia-lawsuit.html
 https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
 
 **Rodrigo Duterte, Philippine Ex-President, Is Arrested on I.C.C. Warrant**\
-`The International Criminal Court has been investigating the deadly crackdown that Mr. Duterte, who was detained in Manila on Tuesday, oversaw while in power.`\
+`The International Criminal Court has been investigating the deadly antidrug crackdown that Mr. Duterte, who was detained in Manila on Tuesday, oversaw while in power.`\
 https://nytimes.com/2025/03/10/world/asia/icc-philippines-rodrigo-duterte.html
 
 **Full Time: Your guide to the NWSL season**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6192900/2025/03/10/nwsl-2025-season-preview-full-time/
-
-**Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
-`If teams try to prevent 3s from Boston's supporting cast, it only forces Jayson Tatum and Jaylen Brown to score more.`\
-https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
 
