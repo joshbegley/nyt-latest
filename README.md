@@ -1,5 +1,5 @@
-**Opposing coaches have choices (none good) in stopping the Celtics 3-point onslaught**\
-`If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jalen Brown to score more.`\
+**Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
+`If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jaylen Brown to score more.`\
 https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
 
 **Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
