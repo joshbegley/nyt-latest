@@ -1,3 +1,7 @@
+**Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
+`Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
+https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html
+
 **Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
 `Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
 https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/senate-confirms-gail-slater-as-justic
 **Manchester United Pitches New Stadium as Key to Government Growth Plan**\
 `Jim Ratcliffe, the billionaire co-owner of the soccer club, framed plans for the 100,000-seat venue as crucial to the British government’s plan to revive the northern English city.`\
 https://nytimes.com/2025/03/11/business/manchester-united-new-stadium-plans.html
-
-**Republicans Call on Olympic Committee to Bar Transgender Women from Women’s Sports**\
-`More than two dozen G.O.P. members of the House and Senate called on the International Olympic Committee to align its eligibility rules with President Trump’s transgender sports ban.`\
-https://nytimes.com/2025/03/11/us/politics/olympic-trans-athlete-ban.html
 

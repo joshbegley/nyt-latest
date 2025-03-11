@@ -1,3 +1,7 @@
+**Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
+`Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
+https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html
+
 **Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
 `Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
 https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
