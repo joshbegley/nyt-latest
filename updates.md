@@ -1,3 +1,11 @@
+**What Slowdown? Xi Says China Must Win the Global Tech Race.**\
+`Xi Jinping wants China to surpass rivals as a tech superpower, undeterred by economic woes or trade wars. Critics ask if this focus neglects struggling citizens.`\
+https://nytimes.com/2025/03/11/world/asia/china-xi-trump.html
+
+**Champions League projections: Liverpool favourites for trophy but do Barcelona have an easier pathway?**\
+`Ahead of a crucial week of action The Athletic examines the teams who stand the best chance of progressing in the Champions League`\
+https://nytimes.com/athletic/6191012/2025/03/11/champions-league-projections-round-of-16/
+
 **Profiling the top 30 catchers, and rookies to watch for fantasy baseball 2025**\
 `Gene McCaffrey offers his thoughts on the fantasy baseball catchers worth considering for one- and two-catcher leagues.`\
 https://nytimes.com/athletic/6181219/2025/03/11/profiling-top-30-catcherss-rookies-to-watch-fantasy-baseball-2025/
