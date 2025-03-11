@@ -1,3 +1,19 @@
+**How Covid Changed the Lives of These 29 Americans**\
+`Five years later, the coronavirus pandemic may seem far away and foggy, or as visceral as yesterday. Here are some of the stories of some of those enduring changes.`\
+https://nytimes.com/interactive/2025/03/10/us/covid-19-changed-people.html
+
+**49ers 2025 free agency tracker: Kyle Juszczyk released; Kyle Juszczyk to be released; Greenlaw, Hufanga to Denver**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
+
+**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
+
+**UConn routs Creighton for Big East title, makes case for No. 1 seed**\
+`Paige Bueckers scored 24 points and was named the conference tournament's most outstanding player for the third time.`\
+https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creighton/
+
 **UConn routs Creighton for Big East title, makes case for No. 1 seed**\
 `Paige Bueckers scores 24 points, is named conference tournament's most outstanding player for third time.`\
 https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creighton/

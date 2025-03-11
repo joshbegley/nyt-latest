@@ -1,5 +1,17 @@
+**How Covid Changed the Lives of These 29 Americans**\
+`Five years later, the coronavirus pandemic may seem far away and foggy, or as visceral as yesterday. Here are some of the stories of some of those enduring changes.`\
+https://nytimes.com/interactive/2025/03/10/us/covid-19-changed-people.html
+
+**49ers 2025 free agency tracker: Kyle Juszczyk released; Kyle Juszczyk to be released; Greenlaw, Hufanga to Denver**\
+`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
+
+**Chiefs free agency tracker: Ex-49er Jaylon Moore is the new left tackle**\
+`The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/10/kansas-city-chiefs-2025-free-agency-tracker/
+
 **UConn routs Creighton for Big East title, makes case for No. 1 seed**\
-`Paige Bueckers scores 24 points, is named conference tournament's most outstanding player for third time.`\
+`Paige Bueckers scored 24 points and was named the conference tournament's most outstanding player for the third time.`\
 https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creighton/
 
 **Bengals address run stopping on defensive line, but major concern remains**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/10/us/medical-helicopter-crash-mississippi.html
 **Trump Officials Warn 60 Colleges of Possible Antisemitism Penalties**\
 `The administration’s warning came just after it pulled hundreds of millions of dollars from Columbia University.`\
 https://nytimes.com/2025/03/10/us/politics/trump-colleges-antisemitism.html
-
-**At long last, the Patriots made some big-time moves to kick off free agency**\
-`With plenty of holes to fill and the most salary-cap space in the NFL, the Patriots took advantage on the opening day of free agency.`\
-https://nytimes.com/athletic/6191973/2025/03/10/patriots-nfl-free-agency-milton-williams/
-
-**49ers 2025 free agency tracker: Greenlaw, Hufanga to Denver, Ward to Indy, Banks to Green Bay**\
-`Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
-
-**LB Dre Greenlaw, Broncos agree to 3-year, $35 million deal: Sources**\
-`Greenlaw has missed 36 games due to injury across his first six seasons but remains an elite linebacker when healthy.`\
-https://nytimes.com/athletic/6172867/2025/03/10/dre-greenlaw-free-agency-signing-2025-broncos/
 
