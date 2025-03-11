@@ -1,3 +1,7 @@
+**Investors Thought They Could Control Trump. They Were Wrong.**\
+`On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
+https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
+
 **In ‘The Great Privation,’ Fending Off the Body Snatchers**\
 `Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
 https://nytimes.com/2025/03/11/theater/the-great-privation-review.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6194686/2025/03/11/cam-smith-audition-astros-right-
 `Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
 https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
 
-**Man City record £103m profit as CFG ownership group losses exceed £122m**\
-`CFG has yet to make an annual profit or come close to doing so, while Manchester City recorded a pre-tax profit of £103.4m in 2023-24.`\
+**Manchester City owner CFG's combined losses since 2013 reach £972m**\
+`CFG has yet to make an annual profit, while Manchester City has recorded a combined pre-tax profit of £103.4m since 2013`\
 https://nytimes.com/athletic/6194431/2025/03/11/manchester-city-finances-2024-cfg-losses/
 
 **It’s Time to Start Dressing Like a Witch**\
 `Prosthetic body parts, lampshade hats and other surprising trends from fashion month.`\
 https://nytimes.com/2025/03/11/t-magazine/fashion-week-fall-trends.html
-
-**U.S. Said to Tell Canada That It Will Enforce a Visitor Registration Law**\
-`The United States had not been enforcing the rule for Canadians who entered via land borders. That is changing amid an escalating fight between the North American neighbors.`\
-https://nytimes.com/2025/03/11/us/politics/trump-canada-registration-immigration.html
 
