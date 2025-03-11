@@ -1,3 +1,19 @@
+**Europe’s Armies Review a Peacekeeping Role in Ukraine**\
+`The deeper discussion of a European force comes amid rising anger and dismay over President Trump’s embrace of Russia and abandonment of traditional allies.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-russia-peace-ceasefire-trump-europe.html
+
+**U.S.A.I.D. Official Orders Employees to Shred or Burn Classified and Personnel Records**\
+`A union representing career diplomats demanded that the aid agency follow the Federal Records Act. Some documents could be relevant in court cases.`\
+https://nytimes.com/2025/03/11/us/politics/usaid-shred-burn-documents.html
+
+**Kennedy Will Convene a New Health Commission in Private**\
+`President Trump ordered the creation of the Make America Healthy Again Commission last month, taking the name from the movement led by Robert F. Kennedy Jr., the health secretary.`\
+https://nytimes.com/2025/03/11/us/politics/rfk-jr-make-america-healthy-again-commission.html
+
+**The Windup: Look at these incredibly bad hats**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6193124/2025/03/11/mlb-hats-new-era-rangers-the-windup/
+
 **Trump Intensifies Statehood Threats in Attack on Canada**\
 `The U.S. president on Tuesday reiterated his claims on Canada’s territory as he increased tariffs, threatening to bring the country’s economy to its knees.`\
 https://nytimes.com/2025/03/11/us/politics/canada-trump-statehood-attacks.html
@@ -11,7 +27,7 @@ https://nytimes.com/2025/03/11/arts/music/2009-playlist.html
 https://nytimes.com/2025/03/10/opinion/the-problem-at-the-heart-of-trumps-university-crackdown.html
 
 **Man Arrested on Suspicion of Manslaughter After Ship Hits Tanker in North Sea**\
-`The 59-year-old man was arrested after a container ship struck an oil tanker the North Sea on Monday. A crew member was presumed dead after an extensive search was called off.`\
+`The 59-year-old man was arrested after a container ship struck an oil tanker in the North Sea on Monday. A crew member was presumed dead after an extensive search was called off.`\
 https://nytimes.com/2025/03/11/world/europe/uk-tanker-crash-north-sea.html
 
 **gws-balance-exercises-aging**\
@@ -21,20 +37,4 @@ https://nytimes.com/newsgraphics/card-story/balance-exercises-aging
 **Until Saturday: Hot-seat coaches with hard schedules**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/6194750/2025/03/11/hot-seat-college-football-coaches-schedule-strength-until-saturday/
-
-**GWS-house-of-david-the-chosen-amazon-prime-netflix**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hhouse-of-david-the-chosen-amazon-prime-netflix
-
-**These five Yankees must fill the void left by Gerrit Cole and Giancarlo Stanton**\
-`It's undeniable that their road to glory has become more challenging, but it's not impossible to believe they can still achieve their goal.`\
-https://nytimes.com/athletic/6194618/2025/03/11/new-york-yankees-2025-players-to-step-up/
-
-**Ukraine Launches Drone Attack Against Moscow Region**\
-`The pre-dawn attack came hours before scheduled talks between high-level delegations from Ukraine and the United States in Saudi Arabia.`\
-https://nytimes.com/video/world/europe/100000010045083/ukraine-drone-attacks-moscow-russia.html
-
-**Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
-`Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
-https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
 
