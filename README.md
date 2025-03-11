@@ -1,3 +1,7 @@
+**How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
+`The House passed a measure to fund the federal government through September.`\
+https://nytimes.com/interactive/2025/03/11/us/politics/house-government-shutdown-vote.html
+
 **Brian Cashman: Yankees face 'difficult' road in replacing Cole, Gil**\
 `The Yankees GM foresees "very limited" early season options to patch up the starting rotation.`\
 https://nytimes.com/athletic/6195292/2025/03/11/yankees-cashman-difficult-road-gerrit-cole-luis-gil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194961/2025/03/11/pochettino-reyna-zendejas-aarons
 **Wait, What Is Meghan’s Last Name?**\
 `The Duchess of Sussex caused a stir on “With Love, Meghan” when she said Sussex was her last name. But does that break from royal tradition?`\
 https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
-
-**Vladimir Guerrero Jr. seeks contract worth $500 million in present value: Sources**\
-`Guerrero broke off extension talks with the Blue Jays last month, but said that day 'I won't close the door if it's a realistic offer.'`\
-https://nytimes.com/athletic/6194664/2025/03/11/vladimir-guerrero-blue-jays-contract-demand/
 
