@@ -1,3 +1,7 @@
+**Ukraine Launches Drone Attack Against Moscow Region**\
+`The pre-dawn attack came hours before scheduled talks between high-level delegations from Ukraine and the United States in Saudi Arabia.`\
+https://nytimes.com/video/world/europe/100000010045083/ukraine-drone-attacks-moscow-russia.html
+
 **Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
 `Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
 https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/arts/television/adolescence-netflix.html
 **Chiefs free agency tracker: Ex-Chargers CB Kristian Fulton added to boost secondary**\
 `The Chiefs have some major decisions to make this offseason as they remake the roster. We're tracking all their moves here.`\
 https://nytimes.com/athletic/6185493/2025/03/11/kansas-city-chiefs-2025-free-agency-tracker/
-
-**The Philharmonic’s New Season: What We’re Excited to Hear**\
-`Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
-https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
 
