@@ -1,3 +1,19 @@
+**Brian Cashman: Yankees face 'difficult' road in replacing Cole, Gil**\
+`The Yankees GM foresees "very limited" early season options to patch up the starting rotation.`\
+https://nytimes.com/athletic/6195292/2025/03/11/yankees-cashman-difficult-road-gerrit-cole-luis-gil/
+
+**Oregon State completes unlikely run to WCC title, lands NCAA bid**\
+`Having lost most of their key players after the Pac-12's demise, Beavers make unlikely run to NCAA Tournament.`\
+https://nytimes.com/athletic/6195684/2025/03/11/oregon-state-wcc-title-ncaa-bid/
+
+**Russia Begins Assault on Ukrainian-Occupied Town in Kursk Region**\
+`Moscow’s military advances on the town of Sudzha may deprive Kyiv of a bargaining chip in peace talks.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-sudzha-russian-forces.html
+
+**Stanley R. Jaffe, 84, Oscar-Winning Producer and Hollywood Power, Dies**\
+`His “Kramer vs. Kramer” won for best picture in 1980, one of many high points in a career that saw him in top jobs, twice, at Paramount.`\
+https://nytimes.com/2025/03/11/movies/stanley-r-jaffe-dead.html
+
 **Power, Money, Territory: How Trump Shook the World in 50 Days**\
 `The system America took 80 years to assemble proved surprisingly fragile in the face of Trump’s assault, a revolution in how the country exercises power across the globe.`\
 https://nytimes.com/2025/03/11/us/politics/trump-50-days-foreign-policy.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
 **Vladimir Guerrero Jr. seeks contract worth $500 million in present value: Sources**\
 `Guerrero broke off extension talks with the Blue Jays last month, but said that day 'I won't close the door if it's a realistic offer.'`\
 https://nytimes.com/athletic/6194664/2025/03/11/vladimir-guerrero-blue-jays-contract-demand/
-
-**Education Department Plans to Fire Much of Its Staff**\
-`An announcement could come as soon as Tuesday, according to people familiar with the situation, and could portend a move by the Trump administration to essentially dismantle the department.`\
-https://nytimes.com/2025/03/11/us/politics/trump-education-department-firings.html
-
-**How Did Covid Change You?**\
-`This week marks the fifth anniversary of the pandemic. What are your most lasting memories? How has it shaped your life and the world around you?`\
-https://nytimes.com/2025/03/11/learning/how-did-covid-change-you.html
-
-**The U.S. Agreed to Resume Military Aid to Ukraine**\
-`Also, Trump walked back a plan to double metal tariffs on Canada. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/03/11/briefing/us-aid-ukraine-trump-canada-tariffs.html
-
-**2,000 Striking N.Y. Prison Officers Fired and Barred From Public Jobs**\
-`Gov. Kathy Hochul made good on a threat to punish those who failed to meet a Monday deadline for returning to their posts after a three-week work stoppage.`\
-https://nytimes.com/2025/03/11/nyregion/new-york-prison-strike-officers-fired.html
 
