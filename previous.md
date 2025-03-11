@@ -1,3 +1,11 @@
+**Word of the Day: environs**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/11/learning/word-of-the-day-environs.html
+
+**'It's me promoting my guy': Michael Malone lauds Nikola Jokić as MVP vs. Shai Gilgeous-Alexander**\
+`"As I say all the time, man, very thankful he's in a Nuggets uniform so we're watching greatness every night."`\
+https://nytimes.com/athletic/6193147/2025/03/11/nuggets-win-thunder-nikola-jokic-shai-gilgeous-alexander-mvp/
+
 **Chelsea have a long history to celebrate before 2003 - they were always well-supported winners**\
 `Chelsea tasted more success after Roman Abramovich took over but they have a long and storied history before that`\
 https://nytimes.com/athletic/6173168/2025/03/11/chelsea-120-years-history/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/03/11/todays-new-york-times
 **Artyom Levshunov offers tantalizing glimpse into Blackhawks' future in NHL debut**\
 `The Blackhawks' No. 1 defenseman of the future made his NHL debut against one of the fastest teams in the league. Here's how he did.`\
 https://nytimes.com/athletic/6193120/2025/03/11/artyom-levshunov-blackhawks-nhl-debut-avalanche-breakdown/
-
-**Tuesday Briefing**\
-`World markets fall.`\
-https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
-
-**In Sam Darnold, Seahawks got a younger, cheaper QB. It won't matter unless they support him**\
-`The only way to justify swapping Geno Smith for Darnold in the name of saving money is to reallocate those funds to help the QB.`\
-https://nytimes.com/athletic/6192988/2025/03/11/seahawks-darnold-seahawks-geno-smith-john-schneider/
 

@@ -1,3 +1,11 @@
+**Word of the Day: environs**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/11/learning/word-of-the-day-environs.html
+
+**'It's me promoting my guy': Michael Malone lauds Nikola Jokić as MVP vs. Shai Gilgeous-Alexander**\
+`"As I say all the time, man, very thankful he's in a Nuggets uniform so we're watching greatness every night."`\
+https://nytimes.com/athletic/6193147/2025/03/11/nuggets-win-thunder-nikola-jokic-shai-gilgeous-alexander-mvp/
+
 **Chelsea have a long history to celebrate before 2003 - they were always well-supported winners**\
 `Chelsea tasted more success after Roman Abramovich took over but they have a long and storied history before that`\
 https://nytimes.com/athletic/6173168/2025/03/11/chelsea-120-years-history/
