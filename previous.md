@@ -1,3 +1,7 @@
+**Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
+`What's on your mind about the Wolverines heading into spring football and March Madness?`\
+https://nytimes.com/athletic/6193884/2025/03/11/michigan-football-basketball-mailbag-questions-4/
+
 **The Bounce: 5 years ago today, COVID shut down the NBA**\
 `Plus: A look at the league's recent offensive boom and what we saw in Thunder-Nuggets.`\
 https://nytimes.com/athletic/6193833/2025/03/11/nba-covid-shutdown-five-years-later-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/business/dealbook/delaware-company-law.html
 **Vikings agree to terms with G Will Fries on 5-year, $88 million deal: Source**\
 `The former Indianapolis Colt was the top interior offensive lineman in The Athletic's ranking of the top 150 free agents.`\
 https://nytimes.com/athletic/6175290/2025/03/11/will-fries-free-agency-signing-2025-vikings/
-
-**Why drafting two dominant closers is a cheat code for fantasy baseball success**\
-`Michael Salfino shows his work when explaining how drafting two high-strikeout, low-ratio closers can upgrade your fantasy pitching staff.`\
-https://nytimes.com/athletic/6191807/2025/03/11/draft-strategy-two-dominant-closers-fantasy-baseball-success/
 
