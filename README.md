@@ -1,3 +1,11 @@
+**Athol Fugard’s Plays Illustrated the Value of Every Human Life**\
+`In “Sizwe Banzi Is Dead” and other works, bearing witness to forgotten lives and to the moral blindness and blinkered vision of the realities of apartheid South Africa.`\
+https://nytimes.com/2025/03/11/theater/athol-fugard-plays-apartheid.html
+
+**Scoop City: Nine takeaways from Day 1 of free agency**\
+`Inside: Nine things you should know about the first wave of free-agent signings, plus the best short-term rentals still available.`\
+https://nytimes.com/athletic/6194203/2025/03/11/nfl-free-agency-recap-scoop-city/
+
 **If You Want to Ski Affordably Next Season, Buy Now**\
 `Here’s how to get the best deals offered by Epic, Ikon and others.`\
 https://nytimes.com/2025/03/11/travel/ski-pass-next-season-sales.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6194206/2025/03/11/man-city-greenwood-taylor/
 **Brayan Bello to start season on Red Sox IL; Rafael Devers’ debut pushed back, again**\
 `Wilyer Abreu and Kutter Crawford could also miss the start of the season, while Devers and others are racing against time to be ready.`\
 https://nytimes.com/athletic/6194073/2025/03/11/red-sox-brayan-bello-rafael-devers-injuries/
-
-**Orange Alert: What Caused the Colors on This Snowy Owl?**\
-`Bird watchers along Lake Huron photographed the bird, which has been nicknamed Rusty and Creamsicle. But there is no consensus about what caused its unusual tint.`\
-https://nytimes.com/2025/03/11/science/snowy-owl-orange-michigan-rusty.html
-
-**U.S. and Ukraine Hold Talks After Drone Attack on Moscow: What to Know**\
-`The United States, Ukraine and Russia have very different ideas about what a potential agreement to end, or at least pause, the war should look like.`\
-https://nytimes.com/2025/03/11/world/europe/us-ukraine-talks-rubio-saudi-arabia.html
 
