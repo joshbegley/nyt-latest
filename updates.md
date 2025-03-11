@@ -1,3 +1,11 @@
+**Man Utd's stadium plan explained: What will it cost, who pays for it, how long will it take?**\
+`Breaking down the club's decision to embark on a bold new stadium project - and all the costs that involves`\
+https://nytimes.com/athletic/6193499/2025/03/11/manchester-united-new-stadium-cost-explained/
+
+**Vikings get D-line help, agree to $60M deal with DT Jonathan Allen**\
+`Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
+https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agency-signing/
+
 **Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
 `Follow here for all the Cowboys free-agent news on players coming and going. `\
 https://nytimes.com/athletic/6180524/2025/03/11/dallas-cowboys-free-agency-tracker-2025/
