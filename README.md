@@ -1,3 +1,11 @@
+**UConn routs Creighton for Big East title, makes case for No. 1 seed**\
+`Paige Bueckers scores 24 points, is named conference tournament's most outstanding player for third time.`\
+https://nytimes.com/athletic/6192262/2025/03/10/uconn-big-east-title-over-creighton/
+
+**Bengals address run stopping on defensive line, but major concern remains**\
+`Bringing back B.J. Hill and adding T.J. Slaton should shore up the middle but lack of pass rush impact could be a problem.`\
+https://nytimes.com/athletic/6192515/2025/03/10/bengals-defensive-line-free-agency/
+
 **‘Ghosts’ Review: The Sins of the Father, Visited on Everyone**\
 `Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
 https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-ag
 **LB Dre Greenlaw, Broncos agree to 3-year, $35 million deal: Sources**\
 `Greenlaw has missed 36 games due to injury across his first six seasons but remains an elite linebacker when healthy.`\
 https://nytimes.com/athletic/6172867/2025/03/10/dre-greenlaw-free-agency-signing-2025-broncos/
-
-**Simon Fisher-Becker, Actor in ‘Harry Potter’ and ‘Doctor Who,’ Dies at 63**\
-`A versatile character actor whose career spanned film, theater and television, Mr. Fisher-Becker was known for small, memorable roles.`\
-https://nytimes.com/2025/03/10/arts/simon-fisher-becker-dead.html
-
-**Rubio Seeks Cease-Fire in Ukraine After Reaching His Own With Musk**\
-`After blowing up at Elon Musk, Secretary of State Marco Rubio aims to bolster his position. He is seeing Saudi and Ukrainian officials in Saudi Arabia and allied diplomats in Canada.`\
-https://nytimes.com/2025/03/10/us/politics/trump-rubio-ukraine-musk.html
 
