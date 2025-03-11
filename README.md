@@ -1,6 +1,22 @@
+**Protests Break Out Following Arrest of Palestinian Activist**\
+`People protested the arrest of Mahmoud Khalil, a prominent figure in the pro-Palestinian student movement at Columbia University and a permanent resident of the U.S.`\
+https://nytimes.com/video/us/politics/100000010043900/columbia-university-protests-mahmoud-khalil.html
+
+**Commanders free-agency tracker: Jeremy McNichols returns, Will Harris agrees to 2-year deal**\
+`Analyzing all of Washington's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188862/2025/03/11/commanders-free-agency-tracker-signings-trades/
+
+**gws-austrian-alps-ski-hotel-guide**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/austrian-alps-ski-hotel-guide
+
 **gws-chicken-broth-winter-soup-recipe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/chicken-broth-winter-soup-recipe
+
+**Minnesota State House District 40B Special Election Results**\
+`Get live results and maps from the 2025 Minnesota State House special election.`\
+https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
 
 **gws-van-gogh-national-gallery-all-nighter**\
 `(No description)`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6188842/2025/03/11/ravens-free-agency-tracker-signi
 **Murder Charges Are Brought in Death of 5-Year-Old Boy in Hyperbaric Chamber**\
 `The Michigan attorney general has accused the owner of a medical center and three of its employees of ignoring safety standards to make a profit.`\
 https://nytimes.com/2025/03/11/us/child-hyperbaric-chamber-death-detroit-charges.html
-
-**Investigators Recommend Permanent Restrictions for Helicopters Flying Near Reagan Airport**\
-`Citing “intolerable risk for aviation safety,” the National Transportation Safety Board says helicopters should be banned from flying a certain route near Washington if two specific runways are in use.`\
-https://nytimes.com/2025/03/11/us/politics/dc-plane-crash-ntsb-helicopters.html
-
-**Larry Appelbaum, Who Found Jazz Treasure in the Archives, Dies at 67**\
-`He helped turn the Library of Congress into a leading center for research on the history of jazz, and made some surprising discoveries of his own.`\
-https://nytimes.com/2025/03/11/arts/music/larry-appelbaum-dead.html
-
-**kobe-bryant-murals-los-angeles**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/kobe-bryant-murals-los-angeles
-
-**Listen: Which version of Sam Darnold are the Seahawks going to get?**\
-`"The Athletic Football Show" discusses whether the Seattle Seahawks were right to put their future in Sam Darnold’s hands.`\
-https://nytimes.com/athletic/6194149/2025/03/11/athletic-football-show-seattle-seahawks-sam-darnold/
 
