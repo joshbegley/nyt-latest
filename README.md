@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-ag
 
 **49ers 2025 free agency tracker: Jordan Mason gets second-round tender**\
 `Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
-https://nytimes.com/athletic/6180985/2025/03/11/san-francisco-49ers-2025-free-agency-tracker/
+https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
 
 **Vikings, Jonathan Allen agree to 3-year, $60 million deal: Sources**\
 `Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
