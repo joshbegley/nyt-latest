@@ -1,3 +1,7 @@
+**Quote of the Day: Many Plans for Gaza, but No Feasible Ones**\
+`Quotation of the Day for Tuesday, March 11, 2025.`\
+https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-many-plans-for-gaza-but-no-feasible-ones.html
+
 **49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
 `Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
 https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/

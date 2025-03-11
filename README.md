@@ -1,3 +1,15 @@
+**Despite Congo Offensive, Rwanda Lures Athletes, Investors and Tourists**\
+`Rwanda appears to be betting on its reputation as a key security partner and sports destination to minimize any backlash to its involvement in the war.`\
+https://nytimes.com/2025/03/11/world/africa/rwanda-congo-john-legend-tourism-m23-invasion.html
+
+**Solar Energy, Criticized by Trump, Claims Big U.S. Gain in 2024**\
+`The added capacity for the year was the most from any single source in more than two decades.`\
+https://nytimes.com/2025/03/11/business/energy-environment/solar-energy-trump-record.html
+
+**As Ukraine and U.S. Cease-Fire Talks Near, Gulfs Remain**\
+`American and Ukrainian representatives will meet in Saudi Arabia on Tuesday, but the United States, Ukraine and Russia envisage very different paths to peace.`\
+https://nytimes.com/2025/03/11/world/europe/ukraine-us-saudi-cease-fire-talks.html
+
 **Quote of the Day: Many Plans for Gaza, but No Feasible Ones**\
 `Quotation of the Day for Tuesday, March 11, 2025.`\
 https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-many-plans-for-gaza-but-no-feasible-ones.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6192900/2025/03/10/nwsl-2025-season-preview-full-ti
 **Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
 `If teams try to prevent 3s from Boston's supporting cast, it only forces Jayson Tatum and Jaylen Brown to score more.`\
 https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
-
-**Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
-`The Vikings spent big to hang onto their versatile cornerback, who is coming off a Pro Bowl season in which he totaled six interceptions.`\
-https://nytimes.com/athletic/6192824/2025/03/10/byron-murphy-jr-free-agency-signing-2025-vikings/
-
-**Asian Markets Slide as Global Sell-Off Continues**\
-`Markets in Japan, South Korea and Taiwan were down about 2 percent on Tuesday morning, after the S&P 500 had its worst day of the year.`\
-https://nytimes.com/2025/03/10/business/stock-markets-asia-trump.html
-
-**The U.S. Is Trying to Deport Mahmoud Khalil, a Legal Resident. Here’s What to Know.**\
-`Mr. Khalil, who helped lead protests at Columbia University against high civilian casualties in Gaza, was arrested by immigration officers and sent to a detention center in Louisiana.`\
-https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deportation.html
 
