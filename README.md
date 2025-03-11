@@ -1,40 +1,40 @@
-**Serious Intrigue at Loewe**\
-`There was mystery. There was Jamie Dornan. And there were great clothes.`\
-https://nytimes.com/2025/03/11/style/loewe-jonathan-anderson-fall-2025.html
+**Why the Falcons let Grady Jarrett go and how it will affect the locker room**\
+`Releasing Jarrett had to sting for Falcons owner Arthur Blank. The veteran was the face of the defense and locker room leader in Atlanta.`\
+https://nytimes.com/athletic/6191943/2025/03/11/falcons-release-grady-jarrett-impact/
 
-**I’m Obsessed With Survival Shows. Could I Make It 10 Days in the Wilderness?**\
-`I wanted to learn how to prepare for disaster. It turned out I needed skills, yes — but the first thing was learning how to breathe.`\
-https://nytimes.com/2025/03/11/magazine/survival-course-doom-disaster-prep.html
+**48 Items to RefreshYour Spring Wardrobe**\
+`Easy pants, wafer-thin sweaters, go-everywhere coats and more.`\
+https://nytimes.com/2025/03/11/style/spring-fashion-trends.html
 
-**Wheesung, a South Korean R&B Singer, Is Found Dead at 43**\
-`The artist was known for popularizing the musical genre in the country, but convictions for drug abuse damaged his image.`\
-https://nytimes.com/2025/03/11/world/asia/south-korean-singer-wheesung-dead.html
+**15 Lessons Scientists Learned About Us When the World Stopped**\
+`The pandemic gave researchers a rare opportunity to study human behavior. Their work offers lessons about loneliness, remote work, high heels and more.`\
+https://nytimes.com/interactive/2025/03/11/upshot/covid-lessons.html
 
-**Ukraine Bombards Russia, Forcing Moscow Airports to Close**\
-`The mayor of the Russian capital called the attack the war’s largest against the city. It appeared to be a reminder of Ukraine’s power to strike as its president proposes an air truce.`\
-https://nytimes.com/2025/03/11/world/europe/ukraine-russia-moscow-war-drones.html
+**What we know about mRNA vaccines**\
+`On the five-year anniversary of the Covid pandemic, a Times reporter, Apoorva Mandavilli, looks back at the success of, and the backlash to, the mRNA vaccine.`\
+https://nytimes.com/video/health/100000010037046/what-we-know-about-mrna-vaccines.html
 
-**Champions League best bets for Wednesday's second-leg showdowns**\
-`Julia Ranney has a look at the betting implications for Wednesday’s Champions League round of 16 second-leg fixtures.`\
-https://nytimes.com/athletic/6190850/2025/03/11/champions-league-round-of-16-wednesday-betting-tips-predictions/
+**Pardons and Paybacks Are Trump’s Two Modes of Justice**\
+`Only the norms of history and the customs of decency constrain a president — or, as in this case, they don’t.`\
+https://nytimes.com/2025/03/11/opinion/trump-pardon-prosecution.html
 
-**Are Inter this year’s Champions League dark horse bet?**\
-`Brett Koremenos explores whether Inter Milan deserve better odds than the 10/1 they've been given ahead of the round of 16's second leg.`\
-https://nytimes.com/athletic/6192037/2025/03/11/inter-milan-champions-league-odds-inzaghi/
+**Despair Haunts Ramadan for Palestinians Displaced in West Bank**\
+`An Israeli military operation has uprooted tens of thousands Palestinians who can’t break their fast in their own homes and don’t know when, or if, they will ever return.`\
+https://nytimes.com/2025/03/11/world/middleeast/ramadan-west-bank-palestinians.html
 
-**More Universities Are Choosing to Stay Neutral on the Biggest Issues**\
-`Instead of speaking out on the hot-button debates of the day, more schools are making it a policy to stay silent as political pressure mounts against higher education.`\
-https://nytimes.com/2025/03/11/us/institutional-neutrality-universities-free-speech.html
+**Those Sounds (Brrr-ah Bah Bah-BAH) You Hear? Choreographers at Work.**\
+`In dance, a wordless art, an improvised language of rhythmic noises helps communicate the shape and feel of movement.`\
+https://nytimes.com/2025/03/11/arts/dance/dance-choreography-vocals.html
 
-**Graham Potter wants to rebuild West Ham's midfield - Monday night's game showed why**\
-`Newcastle's strength in the middle of the pitch highlighted what Potter is lacking in his squad at the moment`\
-https://nytimes.com/athletic/6191796/2025/03/11/west-ham-potter-midfield-rebuild/
+**Michigan Lieutenant Governor Begins Campaign for State’s Top Job**\
+`Lt. Gov. Garlin Gilchrist II, a software engineer from Detroit, entered a growing Democratic primary field for governor in a period of uncertainty for his party.`\
+https://nytimes.com/2025/03/11/us/garlin-gilchrist-michigan-governor-campaign.html
 
-**What the win at West Ham means for Newcastle's Carabao Cup final starting XI**\
-`Will Eddie Howe continue with the new-look left-side combination of Tino Livramento and Harvey Barnes after they impressed on Monday night?`\
-https://nytimes.com/athletic/6192600/2025/03/11/newcastle-west-ham-carabao-cup-final-warm-up/
+**The Problem for Democratic Optimists**\
+`Even if the party can move toward the center, it may not help.`\
+https://nytimes.com/2025/03/11/opinion/democrats-center-future.html
 
-**Among American Jews, a Schism Over ICE Arrest of Columbia Activist**\
-`Some organizations applauded the move. But the raid chilled other American Jews, even some who consider themselves supporters of Israel.`\
-https://nytimes.com/2025/03/11/nyregion/palestinian-activist-arrest-jewish-community.html
+**The Searing Memories of the Pandemic’s Early Days**\
+`Five years after Covid-19 hit New York, we are still trying to comprehend the impact it had on the city and the losses we suffered.`\
+https://nytimes.com/2025/03/11/nyregion/covid-pandemic-five-years-memories.html
 
