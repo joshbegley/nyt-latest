@@ -1,3 +1,15 @@
+**Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
+`The vote in Parliament will force new elections, the third in little more than three years.`\
+https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
+
+**Jury Hears Details of Failed Plot to Kill Iranian Dissident in New York**\
+`Prosecutors say figures in Tehran hired two men to kill Masih Alinejad, a journalist who had criticized Iran’s head scarf laws.`\
+https://nytimes.com/2025/03/11/nyregion/masih-alinejad-murder-trial.html
+
+**Pochettino addresses inclusions, snubs for USMNT's Nations League squad**\
+`The USMNT manager made some curious calls and welcomed two core stars back into the fold for a key window.`\
+https://nytimes.com/athletic/6194961/2025/03/11/pochettino-reyna-zendejas-aaronson-usmnt-nations-league-roster/
+
 **Wait, What Is Meghan’s Last Name?**\
 `The Duchess of Sussex caused a stir on “With Love, Meghan” when she said Sussex was her last name. But does that break from royal tradition?`\
 https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
