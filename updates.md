@@ -1,3 +1,7 @@
+**Who is Andrea Berta?**\
+`Arsenal's incoming sporting director spent 12 years at Atletico Madrid — here, The Athletic looks at Berta's career so far...`\
+https://nytimes.com/athletic/6175996/2025/03/11/who-is-andrea-berta-arsenal/
+
 **Can Arizona State be the next Clemson? 'That's the goal,' Kenny Dillingham says**\
 `It happens once every 10 years or so. Arizona State surges. Then the Sun Devils stumble. This time could be different.`\
 https://nytimes.com/athletic/6192980/2025/03/11/arizona-state-clemson-kenny-dillingham/

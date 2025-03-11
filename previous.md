@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6192980/2025/03/11/arizona-state-clemson-kenny-dillingham/
 
 **Who is Andrea Berta?**\
-`Arsenal's new sporting director spent 12 years at Atletico Madrid — here, The Athletic looks at Berta's career so far...`\
+`Arsenal's incoming sporting director spent 12 years at Atletico Madrid — here, The Athletic looks at Berta's career so far...`\
 https://nytimes.com/athletic/6175996/2025/03/11/who-is-andrea-berta-arsenal/
 
 **Eagles trade DB C.J. Gardner-Johnson to Texans for OL Kenyon Green: Sources**\
