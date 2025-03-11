@@ -1,3 +1,15 @@
+**Corrections: March 11, 2025**\
+`Corrections that appeared in print on Tuesday, March 11, 2025.`\
+https://nytimes.com/2025/03/10/pageoneplus/corrections-march-11-2025.html
+
+**Chase Young sticks with Saints on 3-year, $51 million deal: Reports**\
+`The journeyman pass rusher had a high pressure rate last season but could not convert that pressure into sacks. `\
+https://nytimes.com/athletic/6176550/2025/03/10/chase-young-free-agent-signing-nfl-saints/
+
+**How Covid Changed the Lives of These 29 Americans**\
+`Five years later, the coronavirus pandemic may seem far away and foggy, or as visceral as yesterday. Here are some stories of those enduring changes.`\
+https://nytimes.com/interactive/2025/03/10/us/covid-19-changed-people.html
+
 **How Covid Changed the Lives of These 29 Americans**\
 `Five years later, the coronavirus pandemic may seem far away and foggy, or as visceral as yesterday. Here are some of the stories of some of those enduring changes.`\
 https://nytimes.com/interactive/2025/03/10/us/covid-19-changed-people.html
