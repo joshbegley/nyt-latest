@@ -1,3 +1,7 @@
+**The U.S. Is Trying to Deport Mahmoud Khalil, a Legal Resident. Here’s What to Know.**\
+`Mr. Khalil, who helped lead protests at Columbia University against high civilian casualties in Gaza, was arrested by immigration officers and sent to a detention center in Louisiana.`\
+https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deportation.html
+
 **Judge Orders U.S.A.I.D. and State Dept. to Pay Funds ‘Unlawfully’ Withheld**\
 `The order prohibited the agencies from “unlawfully impounding congressionally appropriated foreign aid funds” owed to contractors and grant recipients. It applied to work completed before Feb. 13.`\
 https://nytimes.com/2025/03/10/us/politics/usaid-foreign-aid-freeze-release-deadline.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
 https://nytimes.com/2025/03/10/crosswords/daily-puzzle-2025-03-11.html
 
 **As Canadiens seek varied sources of offence, there's no time like now for Alex Newhook**\
-`Newhook has always seen himself as an offensive player and is now getting a golden opportunity to show it.`\
+`Newhook has always seen himself as an offensive player and is getting a golden opportunity to show it.`\
 https://nytimes.com/athletic/6192769/2025/03/10/canadiens-alex-newhook-centre-offence/
 
 **Texas Rangers hat goes viral, disappears from shop**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/us/politics/gabbard-japan-thailand-india.html
 **Najee Harris, Chargers agree to terms on 1-year deal: Source**\
 `The free-agent running back spent his first four seasons with the Pittsburgh Steelers and topped 1,000 yards rushing in each of them.`\
 https://nytimes.com/athletic/6178590/2025/03/10/najee-harris-free-agency-signing-2025-chargers/
-
-**49ers to release Pro Bowl FB Kyle Juszczyk: Sources**\
-`Juszczyk, who turns 34 in late April, has been named to nine consecutive Pro Bowls.`\
-https://nytimes.com/athletic/6192742/2025/03/10/49ers-to-release-kyle-juszczyk-sources/
 
