@@ -1,3 +1,7 @@
+**Asian Markets Slide as Global Sell-Off Continues**\
+`Markets in Japan, South Korea and Taiwan were down about 2 percent on Tuesday morning, after the S&P 500 had its worst day of the year.`\
+https://nytimes.com/2025/03/10/business/stock-markets-asia-trump.html
+
 **The U.S. Is Trying to Deport Mahmoud Khalil, a Legal Resident. Here’s What to Know.**\
 `Mr. Khalil, who helped lead protests at Columbia University against high civilian casualties in Gaza, was arrested by immigration officers and sent to a detention center in Louisiana.`\
 https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deportation.html
