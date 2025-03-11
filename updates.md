@@ -1,3 +1,7 @@
+**At long last, the Patriots made some big-time moves to kick off free agency**\
+`With plenty of holes to fill and the most salary-cap space in the NFL, the Patriots took advance on the opening day of free agency.`\
+https://nytimes.com/athletic/6191973/2025/03/10/patriots-nfl-free-agency-milton-williams/
+
 **49ers 2025 free agency tracker: Greenlaw, Hufanga to Denver, Ward to Indy, Banks to Green Bay**\
 `Follow along throughout the initial wave of free agency as the 49ers look to bolster their roster following a disappointing 6-11 campaign. `\
 https://nytimes.com/athletic/6180985/2025/03/10/san-francisco-49ers-2025-free-agency-tracker/
