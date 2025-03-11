@@ -1,3 +1,11 @@
+**How Did Covid Change You?**\
+`This week marks the fifth anniversary of the pandemic. What are your most lasting memories? How has it shaped your life and the world around you?`\
+https://nytimes.com/2025/03/11/learning/how-did-covid-change-you.html
+
+**The U.S. Agreed to Resume Military Aid to Ukraine**\
+`Also, Trump walked back a plan to double metal tariffs on Canada. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/11/briefing/us-aid-ukraine-trump-canada-tariffs.html
+
 **2,000 Striking N.Y. Prison Officers Fired and Barred From Public Jobs**\
 `Gov. Kathy Hochul made good on a threat to punish those who failed to meet a Monday deadline for returning to their posts after a three-week work stoppage.`\
 https://nytimes.com/2025/03/11/nyregion/new-york-prison-strike-officers-fired.html

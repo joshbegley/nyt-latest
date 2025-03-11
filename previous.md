@@ -1,3 +1,11 @@
+**How Did Covid Change You?**\
+`This week marks the fifth anniversary of the pandemic. What are your most lasting memories? How has it shaped your life and the world around you?`\
+https://nytimes.com/2025/03/11/learning/how-did-covid-change-you.html
+
+**The U.S. Agreed to Resume Military Aid to Ukraine**\
+`Also, Trump walked back a plan to double metal tariffs on Canada. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/11/briefing/us-aid-ukraine-trump-canada-tariffs.html
+
 **2,000 Striking N.Y. Prison Officers Fired and Barred From Public Jobs**\
 `Gov. Kathy Hochul made good on a threat to punish those who failed to meet a Monday deadline for returning to their posts after a three-week work stoppage.`\
 https://nytimes.com/2025/03/11/nyregion/new-york-prison-strike-officers-fired.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/11/science/saturn-new-moons.html
 **Cubs bringing top prospect Matt Shaw to Japan, setting him up for Opening Day**\
 `Shaw, a first-round pick in the 2023 draft, had the inside track to become the Opening Day third baseman entering spring training.`\
 https://nytimes.com/athletic/6195371/2025/03/11/cubs-matt-shaw-opening-day-tokyo/
-
-**Tiger Woods announces he's recovering from a ruptured Achilles**\
-`Woods' injury likely ends the 15-time major winner’s 2025 campaign.`\
-https://nytimes.com/athletic/6195297/2025/03/11/tiger-woods-achilles-surgery-injury/
-
-**Wednesday Briefing: U.S. Resumes Aid to Ukraine**\
-`Plus, a tale of two Rwandas.`\
-https://nytimes.com/2025/03/11/briefing/ukraine-aid-trump-tariffs-duterte-arrest.html
 
