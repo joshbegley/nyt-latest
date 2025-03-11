@@ -1,3 +1,15 @@
+**What Does a Shutdown Have to Do With the Budget or Elon Musk? Here’s a Guide.**\
+`A short-term spending bill, a 10-year budget plan and Musk’s cost-cutting team are all progressing at once.`\
+https://nytimes.com/2025/03/11/upshot/federal-budget-musk-republicans.html
+
+**Man City captain Greenwood 'shocked' by Taylor exit**\
+`Manchester City announced on Monday they had parted ways with head coach Gareth Taylor.`\
+https://nytimes.com/athletic/6194206/2025/03/11/man-city-greenwood-taylor/
+
+**Broncos free agency tracker: Talanoa Hufanga, Dre Greenlaw highlight Day 1 activity**\
+`Keep up to date with all of the news and analysis on Broncos' moves.`\
+https://nytimes.com/athletic/6184199/2025/03/11/broncos-free-agency-tracker-2025/
+
 **Brayan Bello to start season on Red Sox IL; Rafael Devers’ debut pushed back, again**\
 `Wilyer Abreu and Kutter Crawford could also miss the start of the season, while Devers and others are racing against time to be ready.`\
 https://nytimes.com/athletic/6194073/2025/03/11/red-sox-brayan-bello-rafael-devers-injuries/
