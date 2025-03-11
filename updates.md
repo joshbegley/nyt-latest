@@ -1,3 +1,15 @@
+**FCC's Noonan showcases his voice as his profile as an MLS coach grows**\
+`Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
+https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
+
+**Man City record £103m profit as CFG ownership group losses exceed £122m**\
+`CFG has yet to make an annual profit or come close to doing so, while Manchester City recorded a pre-tax profit of £103.4m in 2023-24.`\
+https://nytimes.com/athletic/6194431/2025/03/11/manchester-city-finances-2024-cfg-losses/
+
+**It’s Time to Start Dressing Like a Witch**\
+`Prosthetic body parts, lampshade hats and other surprising trends from fashion month.`\
+https://nytimes.com/2025/03/11/t-magazine/fashion-week-fall-trends.html
+
 **Celtics-Lakers sees largest non-Christmas regular-season audience in 7 years**\
 `The game was part of ESPN’s NBA Saturday Primetime coverage and was up 92 percent from last year’s comparable game window.`\
 https://nytimes.com/athletic/6194814/2025/03/11/celtics-lakers-nba-viewership/
