@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6193441/2025/03/11/ferrari-f1-lewis-hamilton/
 `As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
 https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-agency-tracker/
 
-**Vikings, Jonathan Allen agree to 3-year, $60 million deal: Sources**\
+**Vikings get D-line help, agree to $60M deal with DT Jonathan Allen**\
 `Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
 https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agency-signing/
 
