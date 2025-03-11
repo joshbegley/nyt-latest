@@ -1,3 +1,7 @@
+**Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
+`The Vikings spent big to hang onto their versatile cornerback, who is coming off a Pro Bowl season in which he totaled six interceptions.`\
+https://nytimes.com/athletic/6192824/2025/03/10/byron-murphy-jr-free-agency-signing-2025-vikings/
+
 **Asian Markets Slide as Global Sell-Off Continues**\
 `Markets in Japan, South Korea and Taiwan were down about 2 percent on Tuesday morning, after the S&P 500 had its worst day of the year.`\
 https://nytimes.com/2025/03/10/business/stock-markets-asia-trump.html

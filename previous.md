@@ -1,3 +1,7 @@
+**Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
+`The Vikings spent big to hang onto their versatile cornerback, who is coming off a Pro Bowl season in which he totaled six interceptions.`\
+https://nytimes.com/athletic/6192824/2025/03/10/byron-murphy-jr-free-agency-signing-2025-vikings/
+
 **Asian Markets Slide as Global Sell-Off Continues**\
 `Markets in Japan, South Korea and Taiwan were down about 2 percent on Tuesday morning, after the S&P 500 had its worst day of the year.`\
 https://nytimes.com/2025/03/10/business/stock-markets-asia-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192769/2025/03/10/canadiens-alex-newhook-centre-of
 **Texas Rangers hat goes viral, disappears from shop**\
 `New Era hats with unintentionally vulgar designs are becoming a yearly MLB tradition`\
 https://nytimes.com/athletic/6192541/2025/03/10/new-eras-texas-rangers-hat/
-
-**Gabbard Begins Trip to Visit Japan, Thailand and India**\
-`Tulsi Gabbard, who stopped in Honolulu on Wednesday, will address a security conference in New Delhi next week and stop in France en route back to the United States.`\
-https://nytimes.com/2025/03/10/us/politics/gabbard-japan-thailand-india.html
 

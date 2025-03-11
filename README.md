@@ -1,3 +1,7 @@
+**Opposing coaches have choices (none good) in stopping the Celtics 3-point onslaught**\
+`If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jalen Brown to score more.`\
+https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
+
 **Vikings agree to $66M deal with Pro Bowl CB Byron Murphy Jr.**\
 `The Vikings spent big to hang onto their versatile cornerback, who is coming off a Pro Bowl season in which he totaled six interceptions.`\
 https://nytimes.com/athletic/6192824/2025/03/10/byron-murphy-jr-free-agency-signing-2025-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/crosswords/daily-puzzle-2025-03-11.html
 **As Canadiens seek varied sources of offence, there's no time like now for Alex Newhook**\
 `Newhook has always seen himself as an offensive player and is getting a golden opportunity to show it.`\
 https://nytimes.com/athletic/6192769/2025/03/10/canadiens-alex-newhook-centre-offence/
-
-**Texas Rangers hat goes viral, disappears from shop**\
-`New Era hats with unintentionally vulgar designs are becoming a yearly MLB tradition`\
-https://nytimes.com/athletic/6192541/2025/03/10/new-eras-texas-rangers-hat/
 
