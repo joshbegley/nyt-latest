@@ -1,5 +1,5 @@
 **Your Bag’s Hidden Journey From Check-In to Plane**\
-`From your hands to the cargo hold, the average checked bag flown with Delta Airlines is guided by nine people. We spent a day at LaGuardia Airport to get an inside look.`\
+`To get to a plane’s cargo hold, the average checked bag flown with Delta Air Lines is guided by nine people and travels on miles of conveyor belts. We spent a day at LaGuardia Airport to get an inside look.`\
 https://nytimes.com/card/2025/03/11/travel/checked-bags-delta-airlines-laguardia
 
 **2025 NHL Draft ranking: Schaefer, Misa lead Pronman's March top 32**\
