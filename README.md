@@ -1,6 +1,18 @@
+**Juwan Johnson, Saints agree to three-year deal: Source**\
+`Johnson, 28, the No. 13 free agent on The Athletic's list of the top 150 available, was the top tight end on the market. `\
+https://nytimes.com/athletic/6174827/2025/03/11/juwan-johnson-free-agency-signing-2025-saints/
+
+**New York’s Most Exciting New Restaurant is Just a Warm-Up Act**\
+`Ha’s Snack Bar plans to scale up in size and ambition, but it’s already turning heads with its freewheeling takes on French and Vietnamese flavors.`\
+https://nytimes.com/2025/03/11/dining/new-yorks-most-exciting-new-restaurant-is-just-a-warm-up-act.html
+
 **Investors Thought They Had Trump Figured Out. They Were Wrong.**\
 `On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
 https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
+
+**Vikings 2025 free agency tracker: Minnesota bolsters lines with Jonathan Allen, Will Fries**\
+`Follow along with our running analysis of the Minnesota Vikings' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6181495/2025/03/11/minnesota-vikings-free-agent-tracker/
 
 **In ‘The Great Privation,’ Fending Off the Body Snatchers**\
 `Nia Akilah Robinson’s new play, for Soho Rep, digs into an ugly historical practice.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/climate/epa-grant-recipients-funding-freeze.html
 **Cam Smith's audition for the Astros' Opening Day roster moves to right field**\
 `Asking Smith to learn a new position while adjusting to life in the majors might be ludicrous, but he has forced the Astros to consider it.`\
 https://nytimes.com/athletic/6194686/2025/03/11/cam-smith-audition-astros-right-field/
-
-**FCC's Noonan showcases his voice as his profile as an MLS coach grows**\
-`Noonan has helped transform Cincinnati from a cellar dweller into a title contender – and he has carved out his own lane in the process.`\
-https://nytimes.com/athletic/6192085/2025/03/11/pat-noonan-fc-cincinnati-mls-coach/
-
-**Manchester City owner CFG's combined losses since 2013 reach £972m**\
-`CFG has yet to make an annual profit, while Manchester City has recorded a combined pre-tax profit of £103.4m since 2013`\
-https://nytimes.com/athletic/6194431/2025/03/11/manchester-city-finances-2024-cfg-losses/
-
-**It’s Time to Start Dressing Like a Witch**\
-`Prosthetic body parts, lampshade hats and other surprising trends from fashion month.`\
-https://nytimes.com/2025/03/11/t-magazine/fashion-week-fall-trends.html
 

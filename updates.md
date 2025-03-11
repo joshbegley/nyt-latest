@@ -1,3 +1,7 @@
+**Investors Thought They Had Trump Figured Out. They Were Wrong.**\
+`On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
+https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
+
 **Investors Thought They Could Control Trump. They Were Wrong.**\
 `On Tuesday, President Trump sent markets into another tailspin by announcing additional tariffs on Canada, suggesting a falling stock market is no longer the bulwark investors had hoped.`\
 https://nytimes.com/2025/03/11/business/economy/trump-stock-market-economy.html
