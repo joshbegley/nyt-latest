@@ -1,3 +1,19 @@
+**Life after Slot: Can Van Persie lift Feyenoord after losing their 'best-ever' coach?**\
+`Feyenoord lost their head coach to Liverpool but are still fighting in Europe, with a second leg against Inter on Tuesday night`\
+https://nytimes.com/athletic/6190280/2025/03/11/feyenoord-after-arne-slot-robin-van-persie/
+
+**Joao Neves: How Portugal's little prince stole Parisian hearts**\
+`Neves has been one of the most successful big-money signings in Europe this season, with his giant spirit continuing to bely his tiny frame`\
+https://nytimes.com/athletic/6190686/2025/03/11/joao-neves-how-portugals-little-prince-stole-parisian-hearts/
+
+**How Khvicha Kvaratskhelia has taken Paris by storm - his first weeks analysed**\
+`What to expect from the Georgian ahead of his Champions League visit to Anfield`\
+https://nytimes.com/athletic/6191327/2025/03/11/khvicha-kvaratskhelia-psg-liverpool-champions-league/
+
+**How an 11th-place Premier League finish could still secure European qualification**\
+`An admittedly unlikely sequence of events could see a team finishing in the bottom half qualify for Europe via their Premier League placing`\
+https://nytimes.com/athletic/6187887/2025/03/11/uefa-premier-league-11th-qualify/
+
 **Arsenal fans: What do you see as the priorities for the new sporting director?**\
 `The club are close to bringing in a new permanent sporting director, but what should be top of his to-do list?`\
 https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sporting-director/
