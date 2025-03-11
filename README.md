@@ -1,3 +1,15 @@
+**Wait, What Is Meghan’s Last Name?**\
+`The Duchess of Sussex caused a stir on “With Love, Meghan” when she said Sussex was her last name. But does that break from royal tradition?`\
+https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
+
+**Vladimir Guerrero Jr. seeks contract worth $500 million in present value: Sources**\
+`Guerrero broke off extension talks with the Blue Jays last month, but said that day 'I won't close the door if it's a realistic offer.'`\
+https://nytimes.com/athletic/6194664/2025/03/11/vladimir-guerrero-blue-jays-contract-demand/
+
+**Education Department Plans to Fire Up to Half Its Staff**\
+`An announcement could come as soon as Tuesday, according to people familiar with the situation, and could portend a move by the Trump administration to essentially dismantle the department.`\
+https://nytimes.com/2025/03/11/us/politics/trump-education-department-firings.html
+
 **How Did Covid Change You?**\
 `This week marks the fifth anniversary of the pandemic. What are your most lasting memories? How has it shaped your life and the world around you?`\
 https://nytimes.com/2025/03/11/learning/how-did-covid-change-you.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6195509/2025/03/11/leonard-floyd-free-agency-signin
 **U.S. Investigation Into Global Antidoping Agency Continues Under Trump**\
 `The World Anti-Doping Agency will report to its board that federal officials questioned one of its U.S. employees last month about the agency’s handling of positive tests by Chinese athletes.`\
 https://nytimes.com/2025/03/11/us/politics/wada-antidoping-agency-trump.html
-
-**Law Firm Targeted by a Trump Executive Order Files Suit**\
-`There had been deep concerns in the legal community that no firm was going to be willing to step up and represent the firm, Perkins Coie.`\
-https://nytimes.com/2025/03/11/us/politics/perkins-coie-sues-trump.html
-
-**Saturn Gains 128 New Moons, Bringing Its Total to 274**\
-`The objects around the ringed planet are tiny, but some of them may have formed relatively recently in the solar system’s history.`\
-https://nytimes.com/2025/03/11/science/saturn-new-moons.html
-
-**Cubs bringing top prospect Matt Shaw to Japan, setting him up for Opening Day**\
-`Shaw, a first-round pick in the 2023 draft, had the inside track to become the Opening Day third baseman entering spring training.`\
-https://nytimes.com/athletic/6195371/2025/03/11/cubs-matt-shaw-opening-day-tokyo/
 
