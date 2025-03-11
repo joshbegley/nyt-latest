@@ -1,3 +1,7 @@
+**Quote of the Day: Many Plans for Gaza, but No Feasible Ones**\
+`Quotation of the Day for Tuesday, March 11, 2025.`\
+https://nytimes.com/2025/03/10/pageoneplus/quote-of-the-day-many-plans-for-gaza-but-no-feasible-ones.html
+
 **49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
 `Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
 https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/10/business/stock-markets-asia-trump.html
 **The U.S. Is Trying to Deport Mahmoud Khalil, a Legal Resident. Here’s What to Know.**\
 `Mr. Khalil, who helped lead protests at Columbia University against high civilian casualties in Gaza, was arrested by immigration officers and sent to a detention center in Louisiana.`\
 https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deportation.html
-
-**Judge Orders U.S.A.I.D. and State Dept. to Pay Funds ‘Unlawfully’ Withheld**\
-`The order prohibited the agencies from “unlawfully impounding congressionally appropriated foreign aid funds” owed to contractors and grant recipients. It applied to work completed before Feb. 13.`\
-https://nytimes.com/2025/03/10/us/politics/usaid-foreign-aid-freeze-release-deadline.html
 
