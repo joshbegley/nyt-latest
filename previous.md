@@ -1,3 +1,11 @@
+**History Isn’t Entirely Repeating Itself in Covid’s Aftermath**\
+`Five years after the novel coronavirus emerged, historians see echoes of other great illnesses, and legacies that are unlike any of them.`\
+https://nytimes.com/2025/03/11/health/covid-pandemic-history.html
+
+**Late Night Takes Stock of Trump’s Effect on the Markets**\
+`“In the first Trump term, it took a disease to destroy the economy,” Stephen Colbert said. “This time, he’s the disease.”`\
+https://nytimes.com/2025/03/11/arts/television/late-night-trump-stock-market.html
+
 **One year of the 'new' FSG: Edwards-Hughes dynamic, scouting revamp and multi-club latest**\
 `It is a year since Michael Edwards returned to FSG to overhaul its football operations - this is what has happened since`\
 https://nytimes.com/athletic/6191595/2025/03/11/liverpool-fsg-edwards-hughes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6191327/2025/03/11/khvicha-kvaratskhelia-psg-liverp
 **How an 11th-place Premier League finish could still secure European qualification**\
 `An admittedly unlikely sequence of events could see a team finishing in the bottom half qualify for Europe via their Premier League placing`\
 https://nytimes.com/athletic/6187887/2025/03/11/uefa-premier-league-11th-qualify/
-
-**Arsenal fans: What do you see as the priorities for the new sporting director?**\
-`The club are close to bringing in a new permanent sporting director, but what should be top of his to-do list?`\
-https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sporting-director/
-
-**The New York Times in Print for Tuesday, March 11, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/11/todays-new-york-times
 
