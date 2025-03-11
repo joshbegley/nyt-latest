@@ -1,3 +1,7 @@
+**One year of the 'new' FSG: Edwards-Hughes dynamic, scouting revamp and multi-club latest**\
+`It is a year since Michael Edwards returned to FSG to overhaul its football operations - this is what has happened since`\
+https://nytimes.com/athletic/6191595/2025/03/11/liverpool-fsg-edwards-hughes/
+
 **Word of the Day: environs**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/11/learning/word-of-the-day-environs.html
