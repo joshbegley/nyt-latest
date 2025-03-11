@@ -1,3 +1,7 @@
+**Wheesung, a South Korean R&B Singer, Is Found Dead at 43**\
+`The artist was known for popularizing the musical genre in the country, but convictions for drug abuse damaged his image.`\
+https://nytimes.com/2025/03/11/world/asia/south-korean-singer-wheesung-dead.html
+
 **Ukraine Bombards Russia, Forcing Moscow Airports to Close**\
 `The mayor of the Russian capital called the attack the war’s largest against the city. It appeared to be a reminder of Ukraine’s power to strike as its president proposes an air truce.`\
 https://nytimes.com/2025/03/11/world/europe/ukraine-russia-moscow-war-drones.html
