@@ -1,3 +1,27 @@
+**Vikings agree to terms with G Will Fries on 5-year, $88 million deal: Source**\
+`The former Indianapolis Colt was the top interior offensive lineman in The Athletic's ranking of the top 150 free agents.`\
+https://nytimes.com/athletic/6175290/2025/03/11/will-fries-free-agency-signing-2025-vikings/
+
+**Why drafting two dominant closers is a cheat code for fantasy baseball success**\
+`Michael Salfino shows his work when explaining how drafting two high-strikeout, low-ratio closers can upgrade your fantasy pitching staff.`\
+https://nytimes.com/athletic/6191807/2025/03/11/draft-strategy-two-dominant-closers-fantasy-baseball-success/
+
+**How the frustrated Maple Leafs snapped their losing streak: 'We did what we had to do'**\
+`Tired and frustrated at the end of a road trip, the Leafs fought through adversity and hung on to earn their first win in four games. `\
+https://nytimes.com/athletic/6193241/2025/03/11/maple-leafs-utah-win-nylander-marner/
+
+**Saliba says no contract talks yet but 'I want to win big things with Arsenal'**\
+`Saliba's existing deal with the Premier League side expires in the summer of 2027.`\
+https://nytimes.com/athletic/6193737/2025/03/11/william-saliba-arsenal-contract-trophies/
+
+**Trading for Laremy Tunsil didn't come cheap, but Commanders must protect Jayden Daniels**\
+`Washington has gone from holding nine 2025 picks in November to five six weeks before the draft. These are choices contenders must make.`\
+https://nytimes.com/athletic/6192845/2025/03/11/laremy-tunsil-trade-jayden-daniels-commanders-nfl-free-agency/
+
+**Falcons free agency tracker: LB Divine Deablo is their first addition**\
+`The Falcons entered free agency needing edge rushers and cornerbacks. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6180543/2025/03/11/atlanta-falcons-2025-free-agency-tracker/
+
 **Man Utd's stadium plan explained: What will it cost, who pays for it, how long will it take?**\
 `Breaking down the club's decision to embark on a bold new stadium project - and all the costs that involves`\
 https://nytimes.com/athletic/6193499/2025/03/11/manchester-united-new-stadium-cost-explained/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6193644/2025/03/11/nottingham-forest-city-ground-pe
 **Katie Porter Will Run for California Governor**\
 `The former congresswoman is the most prominent candidate so far to start a campaign in the 2026 contest. But the race could be upended if former Vice President Kamala Harris decides to run.`\
 https://nytimes.com/2025/03/11/us/politics/katie-porter-will-run-for-california-governor.html
-
-**Store Owners Who Like to Coordinate Their Clothes**\
-`The dog they were walking helped draw attention to their medley of steely layers.`\
-https://nytimes.com/2025/03/11/style/street-style-look-shades-of-gray.html
-
-**Ben White ready for Arsenal starting return, Arteta reveals**\
-`White required surgery on a knee problem but has come off the bench against West Ham, Nottingham Forest and PSV in the last month.`\
-https://nytimes.com/athletic/6193625/2025/03/11/arsenal-team-news-ben-white-psv/
-
-**Southwest Will Begin Charging for Checked Bags, Ending a Popular Policy**\
-`Customers with the highest loyalty status will be spared from the fee, but others will have to pay for checked bags for flights booked from May 28.`\
-https://nytimes.com/2025/03/11/business/southwest-checked-bags-fee.html
-
-**The Ferrari romanticism: What drives Lewis Hamilton and other F1 legends to the team?**\
-`Ferrari's cultural legacy and passionate fanbase have drawn drivers to it for decades. `\
-https://nytimes.com/athletic/6193441/2025/03/11/ferrari-f1-lewis-hamilton/
-
-**New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
-`As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
-https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-agency-tracker/
-
-**Vikings get D-line help, agree to $60M deal with DT Jonathan Allen**\
-`Allen, 30, recorded three sacks and three tackles for loss in eight games with the Washington Commanders last year.`\
-https://nytimes.com/athletic/6193526/2025/03/11/vikings-jonathan-allen-free-agency-signing/
 
