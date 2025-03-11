@@ -1,3 +1,7 @@
+**Why the I.C.C. Arrested Duterte Despite Questions Over Jurisdiction**\
+`Rodrigo Duterte, the former president of the Philippines, was arrested on a warrant issued by the International Criminal Court. But questions of jurisdiction complicate the matter.`\
+https://nytimes.com/2025/03/11/world/asia/duterte-icc-arrest-explained.html
+
 **Weekly Student News Quiz: Ukraine, LeBron James, $90,000 Cheeto**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/03/11/learning/11StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192364/2025/03/11/chicago-bears-free-agency-signin
 **With Gerrit Cole lost, the AL East is wide open and the American League is up for grabs**\
 `The injury to the Yankee ace dramatically reshapes the competitive landscape in both the division and the entire league. `\
 https://nytimes.com/athletic/6192902/2025/03/11/gerrit-cole-yankees-american-league/
-
-**D'Angelo Ortiz, son of Big Papi, returns to Red Sox spring training to forge his own path**\
-`His famous name makes people notice him, yes. But “he knows,” David Ortiz said, “that’s not going to take him anywhere.”`\
-https://nytimes.com/athletic/6174373/2025/03/11/dangelo-ortiz-son-of-big-papi-red-sox-spring-training/
 

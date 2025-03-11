@@ -1,3 +1,7 @@
+**Why the I.C.C. Arrested Duterte Despite Questions Over Jurisdiction**\
+`Rodrigo Duterte, the former president of the Philippines, was arrested on a warrant issued by the International Criminal Court. But questions of jurisdiction complicate the matter.`\
+https://nytimes.com/2025/03/11/world/asia/duterte-icc-arrest-explained.html
+
 **Weekly Student News Quiz: Ukraine, LeBron James, $90,000 Cheeto**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/03/11/learning/11StudentNewsQuiz.html
