@@ -1,3 +1,15 @@
+**Senate Confirms Gail Slater as Justice Dept.’s Antitrust Lead**\
+`Slater, a longtime Washington lawyer, has been particularly critical of power in the tech industry.`\
+https://nytimes.com/2025/03/11/us/politics/senate-confirms-gail-slater-as-justice-depts-antitrust-lead.html
+
+**Manchester United Pitches New Stadium as Key to Government Growth Plan**\
+`Jim Ratcliffe, the billionaire co-owner of the soccer club, framed plans for the 100,000-seat venue as crucial to the British government’s plan to revive the northern English city.`\
+https://nytimes.com/2025/03/11/business/manchester-united-new-stadium-plans.html
+
+**Republicans Call on Olympic Committee to Bar Transgender Women from Women’s Sports**\
+`More than two dozen G.O.P. members of the House and Senate called on the International Olympic Committee to align its eligibility rules with President Trump’s transgender sports ban.`\
+https://nytimes.com/2025/03/11/us/politics/olympic-trans-athlete-ban.html
+
 **How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
 `The House passed a measure to fund the federal government through September.`\
 https://nytimes.com/interactive/2025/03/11/us/politics/house-government-shutdown-vote.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/trump-50-days-foreign-policy.html
 **Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
 `The vote in Parliament will force new elections, the third in little more than three years.`\
 https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
-
-**Jury Hears Details of Failed Plot to Kill Iranian Dissident in New York**\
-`Prosecutors say figures in Tehran hired two men to kill Masih Alinejad, a journalist who had criticized Iran’s head scarf laws.`\
-https://nytimes.com/2025/03/11/nyregion/masih-alinejad-murder-trial.html
-
-**Pochettino addresses inclusions, snubs for USMNT's Nations League squad**\
-`The USMNT manager made some curious calls and welcomed two core stars back into the fold for a key window.`\
-https://nytimes.com/athletic/6194961/2025/03/11/pochettino-reyna-zendejas-aaronson-usmnt-nations-league-roster/
-
-**Wait, What Is Meghan’s Last Name?**\
-`The Duchess of Sussex caused a stir on “With Love, Meghan” when she said Sussex was her last name. But does that break from royal tradition?`\
-https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
 

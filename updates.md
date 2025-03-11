@@ -1,3 +1,7 @@
+**How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
+`The House passed a measure to fund the federal government through September.`\
+https://nytimes.com/interactive/2025/03/11/us/politics/house-government-shutdown-vote.html
+
 **Brian Cashman: Yankees face 'difficult' road in replacing Cole, Gil**\
 `The Yankees GM foresees "very limited" early season options to patch up the starting rotation.`\
 https://nytimes.com/athletic/6195292/2025/03/11/yankees-cashman-difficult-road-gerrit-cole-luis-gil/
