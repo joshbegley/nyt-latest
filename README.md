@@ -1,3 +1,15 @@
+**49ers’ free-agent exodus was expected, but that doesn’t mean it won’t hurt**\
+`Run it back? That no longer appears to be the 49ers' philosophy after losing so many impactful players on the opening day of free agency.`\
+https://nytimes.com/athletic/6192941/2025/03/10/49ers-free-agent-exodus-greenlaw-juszczyk/
+
+**Musk’s Team Must Produce Documents to Comply With Open Records Laws, Judge Says**\
+`A federal judge in Washington ordered Elon Musk’s team and the Office of Management and Budget to begin releasing internal documents “as soon as practicable.”`\
+https://nytimes.com/2025/03/10/us/politics/musk-doge-foia-lawsuit.html
+
+**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs out, Jeremy Chinn in**\
+`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
+
 **Rodrigo Duterte, Philippine Ex-President, Is Arrested on I.C.C. Warrant**\
 `The International Criminal Court has been investigating the deadly crackdown that Mr. Duterte, who was detained in Manila on Tuesday, oversaw while in power.`\
 https://nytimes.com/2025/03/10/world/asia/icc-philippines-rodrigo-duterte.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deporta
 **Judge Orders U.S.A.I.D. and State Dept. to Pay Funds ‘Unlawfully’ Withheld**\
 `The order prohibited the agencies from “unlawfully impounding congressionally appropriated foreign aid funds” owed to contractors and grant recipients. It applied to work completed before Feb. 13.`\
 https://nytimes.com/2025/03/10/us/politics/usaid-foreign-aid-freeze-release-deadline.html
-
-**13 People Injured as School Bus Overturns on Garden State Parkway**\
-`The bus overturned near Montvale, N.J., officials said, closing all lanes in the area. It had been traveling from Lakewood, N.J., to Rockland County, N.Y.`\
-https://nytimes.com/2025/03/10/nyregion/school-bus-overturned-nj.html
-
-**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs out, Jeremy Chinn in**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
-
-**The Cubs' goal for the Tokyo Series is bigger than Kevin Alcántara or Matt Shaw**\
-`The team plans to finalize its travel roster Tuesday morning and leave promptly following an afternoon Cactus League game. `\
-https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
 
