@@ -1,3 +1,19 @@
+**Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
+`Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
+https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
+
+**Kennedy Rattles Food Companies With Vow to Rid Food of Artificial Dyes**\
+`Mr. Kennedy told executives of major food companies that he wants synthetic colors removed from their products. “Decision time is imminent,” a trade group warned its members.`\
+https://nytimes.com/2025/03/11/science/rfk-jr-food-safety-artificial-dyes.html
+
+**Several Children Injured After School Bus Overturns in New Jersey**\
+`At least 31 passengers were on board the bus when it overturned near Montvale, N.J., injuring 14 children and the driver.`\
+https://nytimes.com/video/nyregion/100000010044863/new-jersey-bus-crash.html
+
+**FIFA accused of blocking workers' rights inspection at World Cup 2026 venue**\
+`The Building and Wood Workers’ Union (BWI) says its representatives were denied access to Mexico’s Estadio Azteca for a pre-arranged visit.`\
+https://nytimes.com/athletic/6194597/2025/03/11/fifa-workers-rights-world-cup-2026-azteca/
+
 **Airlines Cut Forecasts, Raising an Early Alarm About Consumer Spending**\
 `The revised projections suggest that flagging economic confidence has started to hurt travel, which can be an indicator for other industries.`\
 https://nytimes.com/2025/03/11/business/airlines-cut-revenue-forecasts-delta-southwest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6185493/2025/03/11/kansas-city-chiefs-2025-free-age
 **The Philharmonic’s New Season: What We’re Excited to Hear**\
 `Our critics choose highlights from a lineup that includes Joshua Bell, Nathalie Joachim, Barbara Hannigan and more.`\
 https://nytimes.com/2025/03/11/arts/music/new-york-philharmonic-2025-26-season.html
-
-**Meow Wolf to Open New York Edition of Its Immersive Art Program**\
-`The Santa Fe, N.M., company has found success tapping into the experience economy and artistic psychedelia.`\
-https://nytimes.com/2025/03/11/arts/design/meow-wolf-new-york.html
-
-**Volkswagen’s Profit Under Pressure From Tariffs and Competition**\
-`The German auto giant saw its earnings fall last year, as it pushed ahead with a restructuring in the face of tariff uncertainty in the United States and lost market share in China.`\
-https://nytimes.com/2025/03/11/world/europe/volkswagen-tariffs-competition.html
-
-**What Elon Musk’s Suit Says About Trump and Power**\
-`When Elon Musk puts on a nice suit, it has a way of looking like a demotion.`\
-https://nytimes.com/2025/03/11/us/politics/elon-musk-suit-trump-white-house.html
-
-**The ‘Chain Saw’ at the Veterans Agency**\
-`Readers react to the deep staff cuts at the V.A. Also: How State Department reductions will hurt Americans abroad.`\
-https://nytimes.com/2025/03/11/opinion/veterans-state-dept-cuts.html
 

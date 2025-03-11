@@ -1,3 +1,19 @@
+**Chiefs add Kristian Fulton: How veteran cornerback fits in Steve Spagnuolo's defense**\
+`Fulton appealed to the Chiefs because of his versatility and tackling ability. His arrival likely means Justin Reid won't be re-signed.`\
+https://nytimes.com/athletic/6194563/2025/03/11/chiefs-kristian-fulton-secondary/
+
+**Kennedy Rattles Food Companies With Vow to Rid Food of Artificial Dyes**\
+`Mr. Kennedy told executives of major food companies that he wants synthetic colors removed from their products. “Decision time is imminent,” a trade group warned its members.`\
+https://nytimes.com/2025/03/11/science/rfk-jr-food-safety-artificial-dyes.html
+
+**Several Children Injured After School Bus Overturns in New Jersey**\
+`At least 31 passengers were on board the bus when it overturned near Montvale, N.J., injuring 14 children and the driver.`\
+https://nytimes.com/video/nyregion/100000010044863/new-jersey-bus-crash.html
+
+**FIFA accused of blocking workers' rights inspection at World Cup 2026 venue**\
+`The Building and Wood Workers’ Union (BWI) says its representatives were denied access to Mexico’s Estadio Azteca for a pre-arranged visit.`\
+https://nytimes.com/athletic/6194597/2025/03/11/fifa-workers-rights-world-cup-2026-azteca/
+
 **Airlines Cut Forecasts, Raising an Early Alarm About Consumer Spending**\
 `The revised projections suggest that flagging economic confidence has started to hurt travel, which can be an indicator for other industries.`\
 https://nytimes.com/2025/03/11/business/airlines-cut-revenue-forecasts-delta-southwest.html
