@@ -1,3 +1,23 @@
+**The U.S. Is Trying to Deport Mahmoud Khalil, a Legal Resident. Here’s What to Know.**\
+`Mr. Khalil, who helped lead protests at Columbia University against high civilian casualties in Gaza, was arrested by immigration officers and sent to a detention center in Louisiana.`\
+https://nytimes.com/2025/03/10/us/politics/mahmoud-khalil-legal-resident-deportation.html
+
+**Judge Orders U.S.A.I.D. and State Dept. to Pay Funds ‘Unlawfully’ Withheld**\
+`The order prohibited the agencies from “unlawfully impounding congressionally appropriated foreign aid funds” owed to contractors and grant recipients. It applied to work completed before Feb. 13.`\
+https://nytimes.com/2025/03/10/us/politics/usaid-foreign-aid-freeze-release-deadline.html
+
+**13 People Injured as School Bus Overturns on Garden State Parkway**\
+`The bus overturned near Montvale, N.J., officials said, closing all lanes in the area. It had been traveling from Lakewood, N.J., to Rockland County, N.Y.`\
+https://nytimes.com/2025/03/10/nyregion/school-bus-overturned-nj.html
+
+**Las Vegas Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs out, Jeremy Chinn in**\
+`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6180989/2025/03/10/las-vegas-raiders-2025-free-agency-tracker/
+
+**As Canadiens seek varied sources of offence, there's no time like now for Alex Newhook**\
+`Newhook has always seen himself as an offensive player and is getting a golden opportunity to show it.`\
+https://nytimes.com/athletic/6192769/2025/03/10/canadiens-alex-newhook-centre-offence/
+
 **The Cubs' goal for the Tokyo Series is bigger than Kevin Alcántara or Matt Shaw**\
 `The team plans to finalize its travel roster Tuesday morning and leave promptly following an afternoon Cactus League game. `\
 https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
