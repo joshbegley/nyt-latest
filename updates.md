@@ -1,3 +1,7 @@
+**Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs, Deablo out, but Koonce stays**\
+`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6180989/2025/03/11/las-vegas-raiders-2025-free-agency-tracker/
+
 **Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
 `Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
 https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/

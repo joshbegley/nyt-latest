@@ -1,3 +1,7 @@
+**Champions League briefing: PSG come of age, untouchable Yamal, and how will exit affect Liverpool?**\
+`Bayern Munich and Inter join PSG and Barcelona in the quarter-finals, with Raphinha topping the competition's scoring charts`\
+https://nytimes.com/athletic/6194951/2025/03/11/champions-league-psg-liverpool-barcelona-yamal-briefing/
+
 **Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
 `Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
 https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champio
 `Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
 https://nytimes.com/athletic/6180989/2025/03/11/las-vegas-raiders-2025-free-agency-tracker/
 
-**You Cannot Run a Country This Way**\
+**A Great Unraveling Is Underway**\
 `Trump’s foreign policy philosophy is not “containment” or “engagement,” but “smash and grab.”`\
 https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194331/2025/03/11/liverpool-psg-champions-league-a
 **T's March 30 Design Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/03/11/ts-march-30-design-issue-2025
-
-**Trump Plugs Tesla at the White House, Offering Musk a Boost**\
-`President Trump has spent years bashing electric vehicles. But with Elon Musk by his side, he said he would buy a bright red one.`\
-https://nytimes.com/2025/03/11/us/politics/trump-buy-tesla-elon-musk.html
 

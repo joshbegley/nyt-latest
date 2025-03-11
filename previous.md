@@ -10,6 +10,10 @@ https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.
 `Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
 https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
 
+**Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs, Deablo out, but Koonce stays**\
+`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
+https://nytimes.com/athletic/6180989/2025/03/11/las-vegas-raiders-2025-free-agency-tracker/
+
 **You Cannot Run a Country This Way**\
 `Trump’s foreign policy philosophy is not “containment” or “engagement,” but “smash and grab.”`\
 https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/t-magazine/2025/03/11/ts-march-30-design-issue-2025
 **Trump Plugs Tesla at the White House, Offering Musk a Boost**\
 `President Trump has spent years bashing electric vehicles. But with Elon Musk by his side, he said he would buy a bright red one.`\
 https://nytimes.com/2025/03/11/us/politics/trump-buy-tesla-elon-musk.html
-
-**Senate Confirms Gail Slater as Justice Dept.’s Antitrust Lead**\
-`Slater, a longtime Washington lawyer, has been particularly critical of power in the tech industry.`\
-https://nytimes.com/2025/03/11/us/politics/senate-confirms-gail-slater-as-justice-depts-antitrust-lead.html
 
