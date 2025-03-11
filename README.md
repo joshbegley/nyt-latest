@@ -2,8 +2,8 @@
 `Ibsen’s scathing drama about medical and moral contagion gets a high-sheen Off Broadway staging starring a riveting Lily Rabe.`\
 https://nytimes.com/2025/03/10/theater/ghosts-review-rabe-linklater-crudup-beatty.html
 
-**Cowboys free-agency analysis: A CB loss, a RB pickup and still plenty of holes to fill**\
-`The Cowboys added versatile RB Javonte Williams, but still need help at other positions, including cornerback, linebacker and D-tackle.`\
+**Cowboys free-agency analysis: A CB loss, an RB pickup and still plenty of holes to fill**\
+`The Cowboys added versatile RB Javonte Williams but still need help at other positions, including cornerback, linebacker and D-tackle.`\
 https://nytimes.com/athletic/6192511/2025/03/10/cowboys-free-agency-analysis-needs-javonte-williams/
 
 **Inside the Former ‘Underworld’ Where Ai Weiwei Makes Art**\
