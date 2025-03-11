@@ -1,3 +1,11 @@
+**3 People Killed in Medical Helicopter Crash in Mississippi**\
+`A pilot and two crew members were aboard the helicopter, which was not carrying any patients when it plunged into the woods outside Jackson.`\
+https://nytimes.com/2025/03/10/us/medical-helicopter-crash-mississippi.html
+
+**Trump Officials Warn 60 Colleges of Possible Antisemitism Penalties**\
+`The administration’s warning came just after it pulled hundreds of millions of dollars from Columbia University.`\
+https://nytimes.com/2025/03/10/us/politics/trump-colleges-antisemitism.html
+
 **At long last, the Patriots made some big-time moves to kick off free agency**\
 `With plenty of holes to fill and the most salary-cap space in the NFL, the Patriots advanced on the opening day of free agency.`\
 https://nytimes.com/athletic/6191973/2025/03/10/patriots-nfl-free-agency-milton-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/10/us/politics/trump-tariffs-fox-news-recession.html
 **Dallas Cowboys free agency tracker: RB Javonte Williams agrees to deal; Jourdan Lewis gone**\
 `Follow here for all the Cowboys free-agent news on players coming and going. `\
 https://nytimes.com/athletic/6180524/2025/03/10/dallas-cowboys-free-agency-tracker-2025/
-
-**Panthers, DT Tershawn Wharton agree to 3-year, $45 million deal: Sources**\
-`Tershawn Wharton finished last season with the Chiefs strong. He had five tackles in the Super Bowl loss to the Eagles.`\
-https://nytimes.com/athletic/6192329/2025/03/10/tershawn-wharton-panthers-free-agency-signing-2025/
-
-**Vikings agree to deal with C Ryan Kelly: What he means for Minnesota's focus on trenches**\
-`The Vikings have wanted to revamp the interior of their offensive line this offseason, and the first domino fell Monday evening.`\
-https://nytimes.com/athletic/6192382/2025/03/10/ryan-kelly-free-agency-signing-2025-vikings/
 
