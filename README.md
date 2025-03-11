@@ -1,3 +1,7 @@
+**Power, Money, Territory: How Trump Shook the World in 50 Days**\
+`The system America took 80 years to assemble proved surprisingly fragile in the face of Trump’s assault, a revolution in how the country exercises power across the globe.`\
+https://nytimes.com/2025/03/11/us/politics/trump-50-days-foreign-policy.html
+
 **Portugal’s Government Falls in No-Confidence Vote After Just a Year**\
 `The vote in Parliament will force new elections, the third in little more than three years.`\
 https://nytimes.com/2025/03/11/world/europe/portugal-government-no-confidence.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/03/11/style/meghan-markle-sussex-surname.html
 `Guerrero broke off extension talks with the Blue Jays last month, but said that day 'I won't close the door if it's a realistic offer.'`\
 https://nytimes.com/athletic/6194664/2025/03/11/vladimir-guerrero-blue-jays-contract-demand/
 
-**Education Department Plans to Fire Up to Half Its Staff**\
+**Education Department Plans to Fire Much of Its Staff**\
 `An announcement could come as soon as Tuesday, according to people familiar with the situation, and could portend a move by the Trump administration to essentially dismantle the department.`\
 https://nytimes.com/2025/03/11/us/politics/trump-education-department-firings.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/briefing/us-aid-ukraine-trump-canada-tariffs.html
 **2,000 Striking N.Y. Prison Officers Fired and Barred From Public Jobs**\
 `Gov. Kathy Hochul made good on a threat to punish those who failed to meet a Monday deadline for returning to their posts after a three-week work stoppage.`\
 https://nytimes.com/2025/03/11/nyregion/new-york-prison-strike-officers-fired.html
-
-**Tell us your best (or worst) March Madness bracket pool stories**\
-`Tell us your worst horror story or your favorite success from March Madness bracket pools. We want to hear your unforgettable stories!`\
-https://nytimes.com/athletic/6194547/2025/03/11/tell-us-your-best-or-worst-march-madness-bracket-pool-stories/
 
