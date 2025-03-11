@@ -1,3 +1,15 @@
+**Arsenal fans: What do you see as the priorities for the new sporting director?**\
+`The club are close to bringing in a new permanent sporting director, but what should be top of his to-do list?`\
+https://nytimes.com/athletic/6191121/2025/03/11/arsenal-berta-priorities-sporting-director/
+
+**The New York Times in Print for Tuesday, March 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/11/todays-new-york-times
+
+**Artyom Levshunov offers tantalizing glimpse into Blackhawks' future in NHL debut**\
+`The Blackhawks' No. 1 defenseman of the future made his NHL debut against one of the fastest teams in the league. Here's how he did.`\
+https://nytimes.com/athletic/6193120/2025/03/11/artyom-levshunov-blackhawks-nhl-debut-avalanche-breakdown/
+
 **Tuesday Briefing**\
 `World markets fall.`\
 https://nytimes.com/2025/03/11/briefing/markets-trump-syria.html
