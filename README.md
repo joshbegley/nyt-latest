@@ -1,3 +1,7 @@
+**The Ferrari romanticism: What drives Lewis Hamilton and other F1 legends to the team?**\
+`Ferrari's cultural legacy and passionate fanbase have drawn drivers to it for decades. `\
+https://nytimes.com/athletic/6193441/2025/03/11/ferrari-f1-lewis-hamilton/
+
 **New York Giants 2025 free agency tracker: Will Joe Schoen find a new starting QB?**\
 `As the Giants look to rebound from a disastrous 2024, follow along here for all of their additions and subtractions during free agency. `\
 https://nytimes.com/athletic/6174919/2025/03/11/new-york-giants-2025-nfl-free-agency-tracker/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/11/us/trump-news
 **Cardinals position battles: Areas to watch as spring competition heats up**\
 `Victor Scott II or Michael Siani remains the most compelling question of Cardinals camp.`\
 https://nytimes.com/athletic/6192198/2025/03/11/cardinals-spring-training-position-battles/
-
-**Michigan has an ambitious recruiting board for 2026. Who tops the list?**\
-`Michigan has assembled an ambitious recruiting board that includes No. 1 prospect Jackson Cantwell and a host of other elite recruits.`\
-https://nytimes.com/athletic/6191132/2025/03/11/michigan-football-recruiting-2026-class/
 
