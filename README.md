@@ -1,3 +1,7 @@
+**Alexander-Arnold unlikely to play in Carabao Cup final - Slot**\
+`The right-back, 26, was replaced on 73 minutes at Anfield on Tuesday after landing awkwardly as he stretched to attempt to intercept a pass.`\
+https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
+
 **Champions League briefing: PSG come of age, untouchable Yamal, and how will exit affect Liverpool?**\
 `Bayern Munich and Inter join PSG and Barcelona in the quarter-finals, with Raphinha topping the competition's scoring charts`\
 https://nytimes.com/athletic/6194951/2025/03/11/champions-league-psg-liverpool-barcelona-yamal-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6195874/2025/03/11/west-virginia-football-tiktok-da
 **The Briefing - Liverpool 0 PSG 1 (1-1 agg, 1-4 pens): Donnarumma heroics seal dramatic win**\
 `The big talking points from the Champions League last-16 decider at Anfield`\
 https://nytimes.com/athletic/6194331/2025/03/11/liverpool-psg-champions-league-analysis/
-
-**T's March 30 Design Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/03/11/ts-march-30-design-issue-2025
 
