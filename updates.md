@@ -1,3 +1,7 @@
+**Serious Intrigue at Loewe**\
+`There was mystery. There was Jamie Dornan. And there were great clothes.`\
+https://nytimes.com/2025/03/11/style/loewe-jonathan-anderson-fall-2025.html
+
 **I’m Obsessed With Survival Shows. Could I Make It 10 Days in the Wilderness?**\
 `I wanted to learn how to prepare for disaster. It turned out I needed skills, yes — but the first thing was learning how to breathe.`\
 https://nytimes.com/2025/03/11/magazine/survival-course-doom-disaster-prep.html

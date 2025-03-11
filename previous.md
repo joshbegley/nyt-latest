@@ -1,3 +1,7 @@
+**Serious Intrigue at Loewe**\
+`There was mystery. There was Jamie Dornan. And there were great clothes.`\
+https://nytimes.com/2025/03/11/style/loewe-jonathan-anderson-fall-2025.html
+
 **I’m Obsessed With Survival Shows. Could I Make It 10 Days in the Wilderness?**\
 `I wanted to learn how to prepare for disaster. It turned out I needed skills, yes — but the first thing was learning how to breathe.`\
 https://nytimes.com/2025/03/11/magazine/survival-course-doom-disaster-prep.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192600/2025/03/11/newcastle-west-ham-carabao-cup-f
 **Among American Jews, a Schism Over ICE Arrest of Columbia Activist**\
 `Some organizations applauded the move. But the raid chilled other American Jews, even some who consider themselves supporters of Israel.`\
 https://nytimes.com/2025/03/11/nyregion/palestinian-activist-arrest-jewish-community.html
-
-**A New Pitch to Fix Penn Station: Move Madison Square Garden**\
-`With few signs of progress on a proposed redevelopment project, one group is hoping to move the famous arena.`\
-https://nytimes.com/2025/03/11/nyregion/penn-station-madison-square-garden.html
 
