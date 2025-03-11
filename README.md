@@ -1,3 +1,15 @@
+**Brayan Bello to start season on Red Sox IL; Rafael Devers’ debut pushed back, again**\
+`Wilyer Abreu and Kutter Crawford could also miss the start of the season, while Devers and others are racing against time to be ready.`\
+https://nytimes.com/athletic/6194073/2025/03/11/red-sox-brayan-bello-rafael-devers-injuries/
+
+**Orange Alert: What Caused the Colors on This Snowy Owl?**\
+`Bird watchers along Lake Huron photographed the bird, which has been nicknamed Rusty and Creamsicle. But there is no consensus about what caused its unusual tint.`\
+https://nytimes.com/2025/03/11/science/snowy-owl-orange-michigan-rusty.html
+
+**U.S. and Ukraine Hold Talks After Drone Attack on Moscow: What to Know**\
+`The United States, Ukraine and Russia have very different ideas about what a potential agreement to end, or at least pause, the war should look like.`\
+https://nytimes.com/2025/03/11/world/europe/us-ukraine-talks-rubio-saudi-arabia.html
+
 **Can Arizona State be the next Clemson? 'That's the goal,' Kenny Dillingham says**\
 `It happens once every 10 years or so. Arizona State surges. Then the Sun Devils stumble. This time could be different.`\
 https://nytimes.com/athletic/6192980/2025/03/11/arizona-state-clemson-kenny-dillingham/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6178741/2025/03/11/daniel-jones-contract-colts-nfl-
 **Trump Doubles Metal Tariffs as He Presses Canada to Become Part of U.S.**\
 `The president said he would double tariffs set to go into effect on Wednesday and threatened further levies, as he ramps up economic pressure on America’s closest ally.`\
 https://nytimes.com/2025/03/11/us/politics/trump-canada-tariffs-metal.html
-
-**Sony Gives N.Y.U. $7.5 Million for an Audio Institute**\
-`A multifaceted new program at the university’s Steinhardt School will train students (on Sony equipment) for jobs in music and audio “that don’t exist yet.”`\
-https://nytimes.com/2025/03/11/arts/music/sony-nyu-audio-institute.html
-
-**Giants Mailbagg, Part 2: Will a more conventional approach lead to success?**\
-`Topics covered include roster management, lineup choices, Bob Melvin's future, the status of former first-round picks and more.`\
-https://nytimes.com/athletic/6188971/2025/03/11/sf-giants-mailbag-roster-management/
-
-**Some Vegans Were Harmed in the Watching of This Movie**\
-`A film critic who provides “vegan alerts” for animal cruelty goes beyond onscreen violence. Milk and eggs are problematic, too.`\
-https://nytimes.com/2025/03/11/movies/vegan-alert-letterboxd-allison-mcculloch.html
 
