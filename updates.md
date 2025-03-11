@@ -1,3 +1,19 @@
+**Wordle Review No. 1,362**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, March 12, 2025.`\
+https://nytimes.com/2025/03/11/crosswords/wordle-review-1362.html
+
+**Trump’s New Charm Offensive, and a Wall Street Dive**\
+`Plus, a D.O.J. dust-up over Mel Gibson.`\
+https://nytimes.com/2025/03/11/podcasts/the-headlines/trump-wall-street-mel-gibson.html
+
+**Connections Companion No. 640**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, March 12, 2025.`\
+https://nytimes.com/2025/03/11/crosswords/connections-companion-640.html
+
+**Man Utd announce plans for new 100,000-capacity stadium**\
+`The Premier League club will leave its iconic Old Trafford home in favour of a new arena built on the surrounding land.`\
+https://nytimes.com/athletic/6184205/2025/03/11/manchester-united-stadium-new-old-trafford/
+
 **Rodrigo Duterte Arrested on I.C.C. Warrant**\
 `The former president of the Philippines was detained at an airport in Manila, a step toward possibly bringing justice to the many Filipinos killed during his drug war.`\
 https://nytimes.com/video/world/asia/100000010044631/icc-philippines-rodrigo-duterte.html
