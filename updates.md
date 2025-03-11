@@ -1,3 +1,7 @@
+**Full Time: Your guide to the NWSL season**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6192900/2025/03/10/nwsl-2025-season-preview-full-time/
+
 **Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
 `If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jaylen Brown to score more.`\
 https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/

@@ -1,3 +1,7 @@
+**Full Time: Your guide to the NWSL season**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6192900/2025/03/10/nwsl-2025-season-preview-full-time/
+
 **Opposing coaches have choices (none good) in stopping the Celtics' 3-point onslaught**\
 `If teams try to prevent 3s from Boston's supporting cast it only forces Jayson Tatum and Jaylen Brown to score more.`\
 https://nytimes.com/athletic/6192820/2025/03/10/celtics-3-pointers-defeat-jazz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192699/2025/03/10/chicago-cubs-tokyo-series-goals/
 **Signs of Spring**\
 `Jared Cappel sticks the landing in his New York Times Crossword debut.`\
 https://nytimes.com/2025/03/10/crosswords/daily-puzzle-2025-03-11.html
-
-**As Canadiens seek varied sources of offence, there's no time like now for Alex Newhook**\
-`Newhook has always seen himself as an offensive player and is getting a golden opportunity to show it.`\
-https://nytimes.com/athletic/6192769/2025/03/10/canadiens-alex-newhook-centre-offence/
 
