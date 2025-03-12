@@ -1,3 +1,23 @@
+**Where Are Our Covid Memes Now?**\
+`The Cat Lawyer, baked feta pasta, a bizarre monolith and Stanley Tucci’s Negroni recipe were among the things that delighted and distracted us during a dark time.`\
+https://nytimes.com/explain/2025/03/12/style/covid-memes
+
+**Musk Email Reaches Italian Workers. It Did Not Go Well.**\
+`Employees at the Aviano Air Base who serve American forces got a familiar demand to list their achievements. Unions say Italy “is not the Wild West like the U.S.”`\
+https://nytimes.com/2025/03/12/world/europe/musk-email-italy-airbase.html
+
+**NBA Rookie Rankings: Stephon Castle, Donovan Clingan are coming on strong**\
+`The Grizzlies' Jaylen Wells still leads for Rookie of the Year, but others are making a push in a historically underwhelming group.`\
+https://nytimes.com/athletic/6189937/2025/03/12/nba-rookie-rankings-stephon-castle-donovan-clingan/
+
+**Mount returning to Man United training after three-month absence**\
+`Mount is not expected to face Real Sociedad on Thursday but is nearing a return to action after a three-month absence.`\
+https://nytimes.com/athletic/6196948/2025/03/12/mount-man-utd-hamstring-injury-return/
+
+**Tariffs Add to Automaker Concerns About Higher Steel Costs**\
+`Even before the new levies took effect, the industry was worried about prices after President Trump opposed a major merger in the steel sector.`\
+https://nytimes.com/2025/03/12/business/economy/steel-tariffs-auto-industry.html
+
 **Bullet Bras and Black Leather**\
 `And more of what everyone is going to need next season, from Miu Miu, Saint Laurent and Hermès.`\
 https://nytimes.com/2025/03/12/style/miu-miu-bullet-bra-hermes-saint-laurent-fall-2025.html
