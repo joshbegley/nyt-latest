@@ -1,3 +1,11 @@
+**Cuts at the Education Department**\
+`How the layoffs could affect the agency.`\
+https://nytimes.com/2025/03/12/briefing/cuts-at-the-education-department.html
+
+**Captain of Ship That Hit North Sea Tanker Is Russian, Company Says**\
+`The police in Britain detained the ship’s captain on suspicion of gross negligence after it crashed into an oil tanker that was being operated by the U.S. Navy.`\
+https://nytimes.com/2025/03/12/world/europe/oil-tanker-crash-north-sea-ship-captain-russian.html
+
 **The Pulse: Some spicy NFL free agency leftovers**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6194533/2025/03/12/nfl-free-agency-joey-bosa-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/style/utah-monolith-red-rock-country.html
 **The Cat Lawyer Figured Out His Zoom Settings**\
 `“I’m glad it happened, even at my expense,” said Rod Ponton, who is (still) not a cat.`\
 https://nytimes.com/2025/03/12/style/cat-lawyer-zoom.html
-
-**Gerald Stratford Is Still Growing Very Big Vegetables**\
-`A photo he shared on social media of himself holding a giant bundle of arugula propelled him to an unusual kind of internet fame.`\
-https://nytimes.com/2025/03/12/style/gerald-stratford-gardener-big-vegetables.html
-
-**Are You Still Hungry for Baked Feta Pasta?**\
-`Tomatoes. Garlic. Olive oil. And a trend that emptied shelves of blocks of feta.`\
-https://nytimes.com/2025/03/12/style/baked-feta-pasta-pandemic-meal.html
 

@@ -1,3 +1,11 @@
+**Cuts at the Education Department**\
+`How the layoffs could affect the agency.`\
+https://nytimes.com/2025/03/12/briefing/cuts-at-the-education-department.html
+
+**Captain of Ship That Hit North Sea Tanker Is Russian, Company Says**\
+`The police in Britain detained the ship’s captain on suspicion of gross negligence after it crashed into an oil tanker that was being operated by the U.S. Navy.`\
+https://nytimes.com/2025/03/12/world/europe/oil-tanker-crash-north-sea-ship-captain-russian.html
+
 **The Pulse: Some spicy NFL free agency leftovers**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6194533/2025/03/12/nfl-free-agency-joey-bosa-the-pulse/

@@ -1,40 +1,40 @@
+**Canadiens’ attempt to develop and win exemplified in victory over Canucks**\
+`Jayden Struble and Juraj Slafkovský are at different stages of their development but combined to help the Canadiens get a big win.`\
+https://nytimes.com/athletic/6196915/2025/03/12/canadiens-canucks-win-juraj-slafkovsky-jayden-struble/
+
+**What would it take to lock up Tarik Skubal, Gunnar Henderson and more?**\
+`Up next: A reigning Cy Young award winner two years from a big payday to a superstar rookie with five years of team control remaining.`\
+https://nytimes.com/athletic/6191047/2025/03/12/mlb-extension-week-tarik-skubal-gunnar-henderson/
+
+**The Blue Jackets were supposed to be one of the worst teams. Their turnaround is simply amazing**\
+`The Blue Jackets look likely to make the playoffs. Defying the odds to this degree could be a signal of even better things to come. `\
+https://nytimes.com/athletic/6194399/2025/03/12/blue-jackets-nhl-playoffs/
+
+**Can Lewis Hamilton and Ferrari write history together before time runs out?**\
+`The clock starts this weekend — here's what's at stake for two of F1's greatest legacies.`\
+https://nytimes.com/athletic/6196250/2025/03/12/f1-lewis-hamilton-ferrari-legacy-2025/
+
+**Arsenal live Q&A: James McNicholas answers your questions**\
+`Get your questions in now for James and he will be with you between 1-2pm GMT (9am-10am ET) to answer as many as he can. `\
+https://nytimes.com/athletic/6191545/2025/03/12/arsenal-live-qa-james-mcnicholas/
+
+**Baseball's 2020 club: Five years ago they realized a dream, but no one was there to see it**\
+`A group of 24 players appeared in 2020, and never again. “It’s almost like a season that has an asterisk next to it,” Brandon Bailey said.`\
+https://nytimes.com/athletic/6188869/2025/03/12/mlb-covid-2020-players/
+
+**Beware the Anteaters: Why NCAA Tournament teams won’t want to see UC Irvine**\
+`The Big West conference tournament tips Wednesday in Henderson, Nev., with second-seeded Irvine receiving a bye to Friday's semifinals.`\
+https://nytimes.com/athletic/6195279/2025/03/12/march-madness-uc-irvine-college-basketball/
+
+**Cooper Kupp? Evan Engram? Examining Broncos' next potential free-agency fits**\
+`The Broncos will certainly search for a running back in the NFL Draft, but there are still potential options in free agency.`\
+https://nytimes.com/athletic/6194744/2025/03/12/broncos-free-agency-second-wave/
+
+**With ‘Él,’ Buñuel Turns His Gaze to Male Pathology**\
+`Luis Buñuel’s Mexican melodrama about a jealous husband who makes his young wife’s life a living hell opens at Film Forum.`\
+https://nytimes.com/2025/03/12/movies/el-luis-bunuel.html
+
 **Cuts at the Education Department**\
 `How the layoffs could affect the agency.`\
 https://nytimes.com/2025/03/12/briefing/cuts-at-the-education-department.html
-
-**Captain of Ship That Hit North Sea Tanker Is Russian, Company Says**\
-`The police in Britain detained the ship’s captain on suspicion of gross negligence after it crashed into an oil tanker that was being operated by the U.S. Navy.`\
-https://nytimes.com/2025/03/12/world/europe/oil-tanker-crash-north-sea-ship-captain-russian.html
-
-**The Pulse: Some spicy NFL free agency leftovers**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6194533/2025/03/12/nfl-free-agency-joey-bosa-the-pulse/
-
-**Stanley Tucci’s Negroni Upended the Internet**\
-`It became the cocktail of the pandemic.`\
-https://nytimes.com/2025/03/12/style/stanley-tucci-negroni.html
-
-**U.S. Inflation Expected to Have Stayed Stubbornly High in February**\
-`Economists are bracing for intensifying price pressures and slower growth, posing a challenge for the Federal Reserve.`\
-https://nytimes.com/2025/03/12/business/inflation-cpi-february-economy.html
-
-**The Iditarod Winner Just Wanted to Get His Sled Dogs Home**\
-`After the 2020 race, it took a vintage plane to get Thomas Waerner and his 16 dogs back home to Norway from Alaska at the start of the pandemic.`\
-https://nytimes.com/2025/03/12/style/thomas-waerner-iditarod-covid.html
-
-**The Sea Shanty Singer is Singing His Own Songs Now**\
-`Nathan Evans was working as a mail carrier when he uploaded his cover of an old whaling tune. Now he has a folk-inspired album of his own songs, which he promises people can still “sing in the car.”`\
-https://nytimes.com/2025/03/12/style/sea-shanty-wellerman-nathan-evans.html
-
-**A Giant Container Ship Got Stuck in the Suez Canal**\
-`As efforts failed to dislodge it, the Ever Given became a symbol of Covid-era anxiety as the pandemic entered its second year.`\
-https://nytimes.com/2025/03/12/business/ever-given-suez-canal.html
-
-**We Still Don’t Know Who Built the Monolith**\
-`The authorities have little to say about a mysterious metal object that appeared, then swiftly vanished, in a remote part of the Red Rock Country region of Utah in 2020.`\
-https://nytimes.com/2025/03/12/style/utah-monolith-red-rock-country.html
-
-**The Cat Lawyer Figured Out His Zoom Settings**\
-`“I’m glad it happened, even at my expense,” said Rod Ponton, who is (still) not a cat.`\
-https://nytimes.com/2025/03/12/style/cat-lawyer-zoom.html
 
