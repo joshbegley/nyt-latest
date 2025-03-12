@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`U.S. aid to Ukraine is back on.`\
+https://nytimes.com/2025/03/12/briefing/ukraine-russia-canada-duterte.html
+
+**Here’s the latest.**\
+`By Isabella Kwai`\
+https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum/heres-the-latest
+
+**Live Updates: Trump’s Metals Tariffs Expected to Raise Costs for U.S. Industries**\
+`President Trump has imposed a 25 percent tariff on steel and aluminum from anywhere in the world. That may hurt American car manufacturers and other businesses.`\
+https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum
+
 **Republican Confronted After Misgendering Trans Democrat**\
 `After the Republican lawmaker misgendered Representative Sarah McBride of Delaware, the ranking Democrat in the subcommittee spoke up in her defense.`\
 https://nytimes.com/video/us/politics/100000010046707/mcbride-self-transgender-congress.html
