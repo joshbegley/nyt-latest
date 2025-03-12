@@ -1,3 +1,11 @@
+**NASA Launches New Space Telescope and Suite of Solar Satellites**\
+`The SPHEREx telescope will create the most colorful map of the cosmos, while the four satellites of the PUNCH mission track the evolution of the solar wind in three dimensions.`\
+https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html
+
+**Tyrese Haliburton's 4-point play helps Pacers edge Bucks in thriller**\
+`Haliburton was fouled on a last-second fadeaway 3, allowing him to sink a game-winning free throw vs. Milwaukee.`\
+https://nytimes.com/athletic/6196567/2025/03/11/pacers-bucks-tyrese-haliburton-comeback/
+
 **Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
 `An inability to get going at puck drop dogged all three losses in Columbus' most recent road trip.`\
 https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
