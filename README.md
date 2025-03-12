@@ -1,3 +1,7 @@
+**The Athletic FC: PSG reborn under Luis Enrique, Raphinha's incredible stats, who is Berta?**\
+`Today in TAFC: PSG are reborn, the hunt for a treble, who is Arsenal's new sporting director, and another incredible scorpion kick.`\
+https://nytimes.com/athletic/6196987/2025/03/12/psg-luis-enrique-raphinha-berta/
+
 **Wine, Soy, Refrigerators: What Products Might Be Hit by European Tariffs**\
 `The European Union wants to force the United States to the negotiating table with retaliatory tariffs on a range of American products, including some from Republican strongholds.`\
 https://nytimes.com/2025/03/12/business/economy/europe-tariffs-products-goods-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6196915/2025/03/12/canadiens-canucks-win-juraj-slaf
 **Trea Turner hears the talk about his future at shortstop. Can he prove the skeptics wrong?**\
 `Turner is in a race. If he doesn't play a better shortstop in 2025, he might be somewhere else in the field come 2026.`\
 https://nytimes.com/athletic/6190906/2025/03/12/trea-turner-phillies-shortstop-defense-future/
-
-**What would it take to lock up Tarik Skubal, Gunnar Henderson and more?**\
-`Up next: A reigning Cy Young award winner two years from a big payday to a superstar rookie with five years of team control remaining.`\
-https://nytimes.com/athletic/6191047/2025/03/12/mlb-extension-week-tarik-skubal-gunnar-henderson/
 

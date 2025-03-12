@@ -1,3 +1,11 @@
+**Wine, Soy, Refrigerators: What Products Might Be Hit by European Tariffs**\
+`The European Union wants to force the United States to the negotiating table with retaliatory tariffs on a range of American products, including some from Republican strongholds.`\
+https://nytimes.com/2025/03/12/business/economy/europe-tariffs-products-goods-trump.html
+
+**Why Britain Has Not Retaliated Against Trump’s Tariffs**\
+`Prime Minister Keir Starmer wants to stay close to the United States, even as the uncertainty unleashed by President Trump offers a chance to build ties with the European Union.`\
+https://nytimes.com/2025/03/12/business/uk-tariffs-trump-starmer.html
+
 **Why Britain Has Not Retaliated to Trump’s Tariffs**\
 `Prime Minister Keir Starmer wants to stay close to the United States, even as the uncertainty unleashed by President Trump offers a chance to build ties with the European Union.`\
 https://nytimes.com/2025/03/12/business/uk-tariffs-trump-starmer.html
