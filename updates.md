@@ -1,3 +1,11 @@
+**E.P.A. Plans to Close All Environmental Justice Offices**\
+`An internal memo directs the closure of offices designed to ease the heavy pollution faced by poor and minority communities.`\
+https://nytimes.com/2025/03/11/climate/epa-closure-environmental-justice-offices.html
+
+**‘Play for the crest’: After roster wreckage, Bruins record a statement win**\
+`"We believe in here," said Mason Lohrei, whose third-period goal tied the game against the defending champions.`\
+https://nytimes.com/athletic/6196650/2025/03/11/bruins-comeback-win-zadorov-panthers/
+
 **NASA Launches New Space Telescope and Suite of Solar Satellites**\
 `The SPHEREx telescope will create the most colorful map of the cosmos, while the four satellites of the PUNCH mission track the evolution of the solar wind in three dimensions.`\
 https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html

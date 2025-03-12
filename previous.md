@@ -1,3 +1,11 @@
+**E.P.A. Plans to Close All Environmental Justice Offices**\
+`An internal memo directs the closure of offices designed to ease the heavy pollution faced by poor and minority communities.`\
+https://nytimes.com/2025/03/11/climate/epa-closure-environmental-justice-offices.html
+
+**‘Play for the crest’: After roster wreckage, Bruins record a statement win**\
+`"We believe in here," said Mason Lohrei, whose third-period goal tied the game against the defending champions.`\
+https://nytimes.com/athletic/6196650/2025/03/11/bruins-comeback-win-zadorov-panthers/
+
 **NASA Launches New Space Telescope and Suite of Solar Satellites**\
 `The SPHEREx telescope will create the most colorful map of the cosmos, while the four satellites of the PUNCH mission track the evolution of the solar wind in three dimensions.`\
 https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6196274/2025/03/11/cavaliers-nets-winning-streak-nb
 **These Senators have never truly competed for playoffs. This stretch run could define them**\
 `The Senators have adopted a "Game 7 mentality" for the remainder of their regular season. If it works, they'll break their playoff drought.`\
 https://nytimes.com/athletic/6194639/2025/03/11/senators-playoffs-stretch-run-perron-tkachuk/
-
-**Steelers free-agency tracker: RB Kenneth Gainwell agrees; still no QB moves**\
-`We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
-https://nytimes.com/athletic/6185212/2025/03/11/steelers-free-agent-tracker-news-grades-2025/
-
-**A Ferocious Paul Mescal Stars in a Brutal ‘Streetcar’**\
-`Desire comes a distant second to violence in a Brooklyn revival of the Tennessee Williams classic.`\
-https://nytimes.com/2025/03/11/theater/streetcar-named-desire-review-mescal-ferran.html
 
