@@ -1,40 +1,40 @@
-**The Athletic FC: PSG reborn under Luis Enrique, Raphinha's incredible stats, who is Berta?**\
-`Today in TAFC: PSG are reborn, the hunt for a treble, who is Arsenal's new sporting director, and another incredible scorpion kick.`\
-https://nytimes.com/athletic/6196987/2025/03/12/psg-luis-enrique-raphinha-berta/
+**Ukraine Hopes for Peace, but Skepticism Runs Deep**\
+`Ukraine, which welcomed the resumption of U.S. military assistance, has said it would support a 30-day cease-fire if Russia does the same.`\
+https://nytimes.com/2025/03/12/world/europe/ukraine-russia-cease-fire-skepticism.html
 
-**Wine, Soy, Refrigerators: What Products Might Be Hit by European Tariffs**\
-`The European Union wants to force the United States to the negotiating table with retaliatory tariffs on a range of American products, including some from Republican strongholds.`\
-https://nytimes.com/2025/03/12/business/economy/europe-tariffs-products-goods-trump.html
+**PWHL trade deadline: Identifying the biggest need for every team**\
+`As the March 13 deadline approaches, some player movement should be on the horizon. What could teams be looking for on the trade market?`\
+https://nytimes.com/athletic/6196466/2025/03/12/pwhl-trade-deadline-2025-biggest-needs/
 
-**Why Britain Has Not Retaliated Against Trump’s Tariffs**\
-`Prime Minister Keir Starmer wants to stay close to the United States, even as the uncertainty unleashed by President Trump offers a chance to build ties with the European Union.`\
-https://nytimes.com/2025/03/12/business/uk-tariffs-trump-starmer.html
+**U.S.-Backed Cease-Fire Offer Poses Dilemma for Putin**\
+`Russia’s leader recently rejected the idea of an interim truce in Ukraine. But he wants to maintain his relationship with President Trump.`\
+https://nytimes.com/2025/03/12/world/europe/putin-russia-ukraine-cease-fire.html
 
-**'Son of a huge b****': Atletico’s Correa given five-game ban for referee insult**\
-`Atletico Madrid are "studying the findings" and are yet to decide if they will appeal against the punishment.`\
-https://nytimes.com/athletic/6197029/2025/03/12/atletico-madrid-angel-correa-ban-referee/
+**Shock, small suitcases and staying predictable: How Jake Walman is adjusting to the Oilers**\
+`Walman has mentioned several times how amazing it is to play meaningful games.`\
+https://nytimes.com/athletic/6195861/2025/03/12/jake-walman-oilers-sharks-adjustment/
 
-**The Washington Wizards need hope. The Detroit Pistons show what's possible**\
-`It took the Pistons awhile, but they're showing that some lottery luck and smart personnel moves can lead to a big turnaround.`\
-https://nytimes.com/athletic/6196805/2025/03/12/washington-wizards-detroit-pistons/
+**Blues' path to playoffs: Remaining opponents, head-to-head records, strength of schedule**\
+`The Blues have 17 games remaining in the regular season, and have the easiest strength of schedule of any team in the NHL.`\
+https://nytimes.com/athletic/6194276/2025/03/12/st-louis-blues-path-to-nhl-playoffs/
 
-**Stocks Pare Losses but Investors Remain Wary of Trade Tensions**\
-`Markets steadied on Wednesday, despite uncertainty spurred by tit-for-tat tariffs and the direction of the Trump administration’s economic policy.`\
-https://nytimes.com/2025/03/12/business/stock-markets-trading-tariffs.html
+**Blackhawks power rankings: Seth Jones' absence, Artyom Levshunov's debut, Kyle Davidson's month**\
+`From savvy deadline moves to successful surgery, Blackhawks GM Davidson has had a lot of wins in the past month.`\
+https://nytimes.com/athletic/6195948/2025/03/12/blackhawks-jones-levshunov-davidson/
 
-**The 3.16.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/03/12/the-31625-issue
+**Yankees fans are mad and second guessing everything. But do they have a point?**\
+`Gerrit Cole's season-ending surgery is one of several blows the Yankees have sustained so far. Should they have done things differently?`\
+https://nytimes.com/athletic/6195475/2025/03/12/ny-yankees-offseason-second-guessing/
 
-**Who could be this March's NC State? Don't count out these underachievers**\
-`Which teams could be this year's out-of-nowhere high-major conference tournament winner to bottle some March magic?`\
-https://nytimes.com/athletic/6194808/2025/03/12/conference-tournament-sleepers-rutgers-villanova/
+**Roman Anthony, MLB's top prospect, impressed from an early age: 'He’s always been really good'**\
+`Anthony's big-league debut is nearing. He's handled every challenge he's faced thus far, and he's ready for the toughest one yet.`\
+https://nytimes.com/athletic/6194679/2025/03/12/roman-anthony-red-sox-mlb-top-prospect/
 
-**Canadiens’ attempt to develop and win exemplified in victory over Canucks**\
-`Jayden Struble and Juraj Slafkovský are at different stages of their development but combined to help the Canadiens get a big win.`\
-https://nytimes.com/athletic/6196915/2025/03/12/canadiens-canucks-win-juraj-slafkovsky-jayden-struble/
+**Van Dijk says he has 'no idea' about Liverpool future**\
+`Van Dijk, like Mohamed Salah and Trent Alexander-Arnold, is out of contract at Liverpool at the end of this season.`\
+https://nytimes.com/athletic/6197033/2025/03/12/virgil-van-dijk-contract-liverpool-latest/
 
-**Trea Turner hears the talk about his future at shortstop. Can he prove the skeptics wrong?**\
-`Turner is in a race. If he doesn't play a better shortstop in 2025, he might be somewhere else in the field come 2026.`\
-https://nytimes.com/athletic/6190906/2025/03/12/trea-turner-phillies-shortstop-defense-future/
+**A Tariff Pile-On Threatens to Escalate a Global Trade War**\
+`American trading partners responded swiftly to President Trump’s latest round of levies with countermeasures, creating more uncertainty for C.E.O.s.`\
+https://nytimes.com/2025/03/12/business/dealbook/tariffs-global-trade-war.html
 
