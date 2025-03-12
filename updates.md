@@ -1,3 +1,11 @@
+**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty perfection**\
+`How the French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
+https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
+
+**Junior Bridgeman, ex-NBA player and entrepreneur, dies at 71**\
+`Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
+https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
+
 **A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty shootout perfection**\
 `How French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
 https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/

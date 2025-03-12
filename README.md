@@ -1,3 +1,11 @@
+**Control of Minnesota House Split After Democrat Wins Special Election**\
+`Republicans in the Minnesota House lost a one-seat edge in the Capitol, where tensions over party dominance have simmered for weeks.`\
+https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.html
+
+**Corrections: March 12, 2025**\
+`Corrections that appeared in print on Wednesday, March 12, 2025.`\
+https://nytimes.com/2025/03/11/pageoneplus/corrections-march-12-2025.html
+
 **A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty perfection**\
 `How the French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
 https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-bask
 **Alexander-Arnold unlikely to play in Carabao Cup final - Slot**\
 `The right-back, 26, was replaced on 73 minutes at Anfield on Tuesday after landing awkwardly as he stretched to attempt to intercept a pass.`\
 https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
-
-**Champions League briefing: PSG come of age, untouchable Yamal, and how will exit affect Liverpool?**\
-`Bayern and Inter join PSG and Barcelona in the quarter-finals, with Raphinha topping the competition's scoring charts`\
-https://nytimes.com/athletic/6194951/2025/03/11/champions-league-psg-liverpool-barcelona-yamal-briefing/
-
-**Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
-`Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
-https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/
 
