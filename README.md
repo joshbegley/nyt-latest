@@ -2,7 +2,7 @@
 `“But why should he, when he did a big commercial for them today, absolutely free?” Kimmel said after the president brought some of Elon Musk’s cars to the White House.`\
 https://nytimes.com/2025/03/12/arts/television/jimmy-kimmel-trump-tesla.html
 
-**Liverpool's Champions League exit will hurt - Arne Slot's job is soothe that pain**\
+**Liverpool's Champions League exit will hurt - Arne Slot's job is to soothe that pain**\
 `Liverpool can have few complaints over their European exit at the hands of PSG. Slot's job now is to refocus hearts and minds`\
 https://nytimes.com/athletic/6196294/2025/03/12/liverpool-champions-league-psg-arne-slot/
 
