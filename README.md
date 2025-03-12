@@ -1,3 +1,23 @@
+**Where Are Our Covid Memes Now?**\
+`The Cat Lawyer, baked feta pasta, a bizarre monolith and Stanley Tucci’s Negroni recipe were among the things that delighted and distracted us during a dark time.`\
+https://nytimes.com/explain/2025/03/12/style/covid-memes
+
+**Musk Email Reaches Italian Workers. It Did Not Go Well.**\
+`Employees at the Aviano Air Base who serve American forces got a familiar demand to list their achievements. Unions say Italy “is not the Wild West like the U.S.”`\
+https://nytimes.com/2025/03/12/world/europe/musk-email-italy-airbase.html
+
+**NBA Rookie Rankings: Stephon Castle, Donovan Clingan are coming on strong**\
+`The Grizzlies' Jaylen Wells still leads for Rookie of the Year, but others are making a push in a historically underwhelming group.`\
+https://nytimes.com/athletic/6189937/2025/03/12/nba-rookie-rankings-stephon-castle-donovan-clingan/
+
+**Mount returning to Man United training after three-month absence**\
+`Mount is not expected to face Real Sociedad on Thursday but is nearing a return to action after a three-month absence.`\
+https://nytimes.com/athletic/6196948/2025/03/12/mount-man-utd-hamstring-injury-return/
+
+**Tariffs Add to Automaker Concerns About Higher Steel Costs**\
+`Even before the new levies took effect, the industry was worried about prices after President Trump opposed a major merger in the steel sector.`\
+https://nytimes.com/2025/03/12/business/economy/steel-tariffs-auto-industry.html
+
 **Bullet Bras and Black Leather**\
 `And more of what everyone is going to need next season, from Miu Miu, Saint Laurent and Hermès.`\
 https://nytimes.com/2025/03/12/style/miu-miu-bullet-bra-hermes-saint-laurent-fall-2025.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/12/world/europe/emboldened-by-trump-serbias-leader-c
 **Students in Serbia Lead Marches to Demand Systemic Change**\
 `The antigovernment protests began in late 2024, calling for accountability for the collapse of a concrete canopy at a railway station in northern Serbia. But public anger has broadened, with protesters now denouncing corruption and the erosion of the rule of law.`\
 https://nytimes.com/video/world/europe/100000010035691/students-in-serbia-lead-marches-to-demand-systemic-change.html
-
-**Mets mailbag: Fans wonder how Clay Holmes will fare as a starter**\
-`Surprisingly, no Mets fans asked a question about Juan Soto, you know, the player getting paid $765 million over the next 15 years.`\
-https://nytimes.com/athletic/6196337/2025/03/12/mets-mailbag-clay-holmes/
-
-**Wait, What Happened? Your Trump 2025 Quiz Is Here.**\
-`Your first quiz of the second Trump administration is here.`\
-https://nytimes.com/interactive/2025/03/12/opinion/columnists/12collins-quiz-spring-twenty-five.html
-
-**Panthers free agency takeaways: Miles Sanders is gone. What could they do for an RB2?**\
-`The Panthers lost Sanders and Johnny Hekker on Tuesday, but they kept the offensive line intact — starters and backups.`\
-https://nytimes.com/athletic/6196319/2025/03/12/panthers-free-agency-takeaways-2025/
-
-**Men’s Clothes That Could Never Be Called an Afterthought**\
-`The best things from Paris included snakeskin sneakers at Miu Miu, Balenciaga’s salaryman suits and smushed hiking boots at Loewe.`\
-https://nytimes.com/2025/03/12/style/mens-clothes-balenciaga-miu-miu-loewe-paris.html
-
-**Ignore the Loose Talk About Recession**\
-`While fears about the economic chaos caused by tariffs are real, the underlying economic data in America remain strong.`\
-https://nytimes.com/2025/03/12/opinion/trump-recession.html
 
