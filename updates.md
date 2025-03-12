@@ -1,3 +1,7 @@
+**Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
+`An inability to get going at puck drop dogged all three losses in Columbus' most recent road trip.`\
+https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
+
 **Red-hot Cavs notch another 15-win streak with rally vs. Nets, but difficult stretch looms**\
 `Every NBA team eventually hits some bumps in the road, but Cleveland has avoided the wrath of the "basketball gods." Will that change?`\
 https://nytimes.com/athletic/6196274/2025/03/11/cavaliers-nets-winning-streak-nba/

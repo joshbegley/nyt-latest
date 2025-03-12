@@ -1,3 +1,11 @@
+**NASA Launches New Space Telescope and Suite of Solar Satellites**\
+`The SPHEREx telescope will create the most colorful map of the cosmos, while the four satellites of the PUNCH mission track the evolution of the solar wind in three dimensions.`\
+https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html
+
+**Tyrese Haliburton's 4-point play helps Pacers edge Bucks in thriller**\
+`Haliburton was fouled on a last-second fadeaway 3, allowing him to sink a game-winning free throw vs. Milwaukee.`\
+https://nytimes.com/athletic/6196567/2025/03/11/pacers-bucks-tyrese-haliburton-comeback/
+
 **Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
 `An inability to get going at puck drop dogged all three losses in Columbus' most recent road trip.`\
 https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6185212/2025/03/11/steelers-free-agent-tracker-news
 **A Ferocious Paul Mescal Stars in a Brutal ‘Streetcar’**\
 `Desire comes a distant second to violence in a Brooklyn revival of the Tennessee Williams classic.`\
 https://nytimes.com/2025/03/11/theater/streetcar-named-desire-review-mescal-ferran.html
-
-**Yarn Spinner’s Tool**\
-`Chandi Deitmer and Kate Hawkins make their collaboration debut.`\
-https://nytimes.com/2025/03/11/crosswords/daily-puzzle-2025-03-12.html
-
-**Jury Awards $120 Million to Illinois Men Wrongfully Convicted of Murder**\
-`John Fulton and Anthony Mitchell were teenagers when they were coerced into giving false confessions in a 2003 murder in Chicago.`\
-https://nytimes.com/2025/03/11/us/chicago-murder-wrongful-conviction-award.html
 
