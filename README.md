@@ -1,5 +1,9 @@
+**Separatists in Pakistan Are Still Holding Hundreds of Hostages in Train Standoff**\
+`Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train.`\
+https://nytimes.com/2025/03/12/world/asia/pakistan-militants-train-hostages.html
+
 **Ukraine Hopes for Peace, but Skepticism Runs Deep**\
-`Ukraine, which welcomed the resumption of U.S. military assistance, has said it would support a 30-day cease-fire if Russia does the same.`\
+`Ukraine, which welcomed the resumption of U.S. military assistance, has said it would agree to a 30-day cease-fire if Russia does the same.`\
 https://nytimes.com/2025/03/12/world/europe/ukraine-russia-cease-fire-skepticism.html
 
 **PWHL trade deadline: Identifying the biggest need for every team**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194679/2025/03/12/roman-anthony-red-sox-mlb-top-pr
 **Van Dijk says he has 'no idea' about Liverpool future**\
 `Van Dijk, like Mohamed Salah and Trent Alexander-Arnold, is out of contract at Liverpool at the end of this season.`\
 https://nytimes.com/athletic/6197033/2025/03/12/virgil-van-dijk-contract-liverpool-latest/
-
-**A Tariff Pile-On Threatens to Escalate a Global Trade War**\
-`American trading partners responded swiftly to President Trump’s latest round of levies with countermeasures, creating more uncertainty for C.E.O.s.`\
-https://nytimes.com/2025/03/12/business/dealbook/tariffs-global-trade-war.html
 
