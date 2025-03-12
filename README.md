@@ -1,3 +1,7 @@
+**Republican Confronted After Misgendering Trans Democrat**\
+`After the Republican lawmaker misgendered Representative Sarah McBride of Delaware, the ranking Democrat in the subcommittee spoke up in her defense.`\
+https://nytimes.com/video/us/politics/100000010046707/mcbride-self-transgender-congress.html
+
 **An Unexpected Trump Bump for the World’s Centrists**\
 `As President Trump’s “shock and awe” policies radiate around the world, they are galvanizing support for moderate leaders and unifying Europe.`\
 https://nytimes.com/2025/03/12/world/europe/trump-starmer-europe-centrists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html
 **Tyrese Haliburton's 4-point play helps Pacers edge Bucks in thriller**\
 `Haliburton was fouled on a last-second fadeaway 3, allowing him to sink a game-winning free throw vs. Milwaukee.`\
 https://nytimes.com/athletic/6196567/2025/03/11/pacers-bucks-tyrese-haliburton-comeback/
-
-**Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
-`An inability to get going at puck drop dogged all three losses in Columbus' most recent trip.`\
-https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
 
