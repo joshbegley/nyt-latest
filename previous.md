@@ -2,7 +2,7 @@
 `An internal memo directs the closure of offices designed to ease the heavy pollution faced by poor and minority communities.`\
 https://nytimes.com/2025/03/11/climate/epa-closure-environmental-justice-offices.html
 
-**‘Play for the crest’: After roster wreckage, Bruins record a statement win**\
+**‘Play for the crest’: After roster wreckage, Bruins record statement win**\
 `"We believe in here," said Mason Lohrei, whose third-period goal tied the game against the defending champions.`\
 https://nytimes.com/athletic/6196650/2025/03/11/bruins-comeback-win-zadorov-panthers/
 
