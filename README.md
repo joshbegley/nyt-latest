@@ -1,4 +1,8 @@
-**Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Source**\
+**E.P.A. Cancels Climate Grants, Intensifying Battle Over $20 Billion**\
+`Here is what we know about the billions in funds that have led to federal investigations, lawsuits and frozen bank accounts for climate nonprofit groups.`\
+https://nytimes.com/2025/03/12/climate/epa-climate-grants-canceled.html
+
+**Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Sources**\
 `In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
 https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197975/2025/03/12/power-conferences-ncaa-working-o
 **Why Aaron Rodgers would (and wouldn't) make sense for the Giants, Steelers and Vikings**\
 `When you're talking about Aaron Rodgers, nothing is simple. Our beat writers explore the pros and cons of adding Rodgers to their teams. `\
 https://nytimes.com/athletic/6197654/2025/03/12/nfl-free-agency-aaron-rodgers-giants-steelers-vikings/
-
-**Federal Agency Dedicated to Mental Illness and Addiction Faces Huge Cuts**\
-`The Substance Abuse and Mental Health Services Administration has already closed offices and could see staff numbers reduced by 50 percent.`\
-https://nytimes.com/2025/03/12/health/federal-cuts-substance-abuse-mental-health.html
 
