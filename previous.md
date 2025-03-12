@@ -1,3 +1,19 @@
+**Trump Appointee Filmed Influencer Videos on the Job**\
+`The official, McLaurine Pinover, the top spokeswoman for the Office of Personnel Management, said she never made any money from the fashion videos filmed in her office.`\
+https://nytimes.com/2025/03/12/us/politics/mclaurine-pinover-trump-doge-influencer.html
+
+**The Killing of an Infowars Reporter Was Likely a Random Attack, Police Say**\
+`But that has not stopped Infowars’ founder, Alex Jones, from spreading misinformation.`\
+https://nytimes.com/2025/03/12/us/infowars-murder-alex-jones.html
+
+**The Balochistan Separatist Movement in Pakistan: What to Know**\
+`A dramatic escalation in the tactics by a Baloch separatist group came with the hijacking of a passenger train on Tuesday.`\
+https://nytimes.com/2025/03/12/world/asia/balochistan-liberation-army-pakistan.html
+
+**ICE Returns All Migrants From Guantánamo to Stateside Facilities**\
+`A court filing described strip searches and the use of restraint chairs on some of the 290 migrants the Trump administration has cycled through the base.`\
+https://nytimes.com/2025/03/12/us/politics/ice-migrants-guantanamo.html
+
 **The Briefing - Arsenal 2 PSV 2 (9-3 agg): Sterling and Zinchenko impress as Arteta rotates his way into quarter-finals**\
 `Jordan Campbell analyses the main talking points from Wednesday's Champions League game in north London`\
 https://nytimes.com/athletic/6194614/2025/03/12/arsenal-psv-result-analysis-briefing/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6198512/2025/03/12/panthers-mike-jackson-free-agenc
 **Maps: Two Small Quakes Strike Near Puerto Rico Coastline**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/12/weather/puerto-rico-quake-tracker.html
-
-**E.P.A. Declares ‘Greatest Day of Deregulation Our Nation Has Seen’**\
-`Lee Zeldin, the E.P.A. administrator, said he would revise or repeal dozens of air, water and climate protections to help industries.`\
-https://nytimes.com/2025/03/12/climate/epa-zeldin-rollbacks-pollution.html
-
-**Trump Official Will No Longer Testify in Challenge to Mass Firings**\
-`The government said in a court filing that Charles Ezell, who issued the memos that agencies interpreted as orders to fire thousands of employees, would not appear in court Thursday.`\
-https://nytimes.com/2025/03/12/us/politics/trump-federal-worker-firings-testify.html
-
-**Protesters Surround Trump’s Border Czar on Khalil Detainment**\
-`Protesters yelled at Tom Homan that Mahmoud Khalil’s detainment by the Trump administration undermined the First Amendment, during a demonstration at the New York State Capitol.`\
-https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-protest.html
-
-**How Congress Could Force $1.1 Billion in Cuts on Washington, D.C.**\
-`District leaders say that a proposed cut to the city budget, part of a plan to avert a federal government shutdown, is unfair. The city raises most of its own money but cannot control how it is spent.`\
-https://nytimes.com/2025/03/12/us/congress-washington-dc-shutdown-budget-cut.html
 

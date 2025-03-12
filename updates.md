@@ -1,3 +1,19 @@
+**Trump Appointee Filmed Influencer Videos on the Job**\
+`The official, McLaurine Pinover, the top spokeswoman for the Office of Personnel Management, said she never made any money from the fashion videos filmed in her office.`\
+https://nytimes.com/2025/03/12/us/politics/mclaurine-pinover-trump-doge-influencer.html
+
+**The Killing of an Infowars Reporter Was Likely a Random Attack, Police Say**\
+`But that has not stopped Infowars’ founder, Alex Jones, from spreading misinformation.`\
+https://nytimes.com/2025/03/12/us/infowars-murder-alex-jones.html
+
+**The Balochistan Separatist Movement in Pakistan: What to Know**\
+`A dramatic escalation in the tactics by a Baloch separatist group came with the hijacking of a passenger train on Tuesday.`\
+https://nytimes.com/2025/03/12/world/asia/balochistan-liberation-army-pakistan.html
+
+**ICE Returns All Migrants From Guantánamo to Stateside Facilities**\
+`A court filing described strip searches and the use of restraint chairs on some of the 290 migrants the Trump administration has cycled through the base.`\
+https://nytimes.com/2025/03/12/us/politics/ice-migrants-guantanamo.html
+
 **The Briefing - Arsenal 2 PSV 2 (9-3 agg): Sterling and Zinchenko impress as Arteta rotates his way into quarter-finals**\
 `Jordan Campbell analyses the main talking points from Wednesday's Champions League game in north London`\
 https://nytimes.com/athletic/6194614/2025/03/12/arsenal-psv-result-analysis-briefing/
