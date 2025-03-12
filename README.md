@@ -1,3 +1,7 @@
+**Marcus Mariota, Commanders agree to 1-year deal: Sources**\
+`Mariota, who played for the Washington Commanders in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free agents list.`\
+https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/
+
 **Fantasy basketball 'All-Winners' picks, plus Stephon Castle rising, Paul George falling**\
 `Eric Wong identifies the fantasy basketball league-winners this season and shares some specialists to help those in category need.`\
 https://nytimes.com/athletic/6197774/2025/03/12/fantasy-basketball-mvps-league-winners-risers-fallers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/health/federal-cuts-substance-abuse-mental-health
 **Watch: Who is Nottingham Forest's best player?**\
 `The FC Podcast discuss Nottingham Forest's standout player and whether they would rather Champions League qualification or the FA Cup`\
 https://nytimes.com/athletic/6197509/2025/03/12/athletic-fc-podcast-nottingham-forest-best-players/
-
-**Are Schools Succeeding? Trump Education Department Cuts Could Make It Hard to Know.**\
-`At least 800 education department research employees and outside partners have lost jobs. The cuts will decimate research and data collection.`\
-https://nytimes.com/2025/03/12/us/education-department-cuts.html
 
