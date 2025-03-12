@@ -1,3 +1,11 @@
+**Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
+`Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
+https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
+
+**Junior Bridgeman, former Louisville basketball great, dies at 71**\
+`Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
+https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
+
 **Alexander-Arnold unlikely to play in Carabao Cup final - Slot**\
 `The right-back, 26, was replaced on 73 minutes at Anfield on Tuesday after landing awkwardly as he stretched to attempt to intercept a pass.`\
 https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
