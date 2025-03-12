@@ -1,3 +1,7 @@
+**At Columbia, Tension Over Gaza Protests Hits Breaking Point Under Trump**\
+`There were protests, arrests, the departure of the school’s president. Then, a new administration arrived in Washington.`\
+https://nytimes.com/2025/03/12/nyregion/columbia-university-trump-protests.html
+
 **E.P.A. Cancels Climate Grants, Intensifying Battle Over $20 Billion**\
 `Here is what we know about the billions in funds that have led to federal investigations, lawsuits and frozen bank accounts for climate nonprofit groups.`\
 https://nytimes.com/2025/03/12/climate/epa-climate-grants-canceled.html
