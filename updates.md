@@ -1,3 +1,11 @@
+**Control of Minnesota House Split After Democrat Wins Special Election**\
+`Republicans in the Minnesota House lost a one-seat edge in the Capitol, where tensions over party dominance have simmered for weeks.`\
+https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.html
+
+**Corrections: March 12, 2025**\
+`Corrections that appeared in print on Wednesday, March 12, 2025.`\
+https://nytimes.com/2025/03/11/pageoneplus/corrections-march-12-2025.html
+
 **A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty perfection**\
 `How the French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
 https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
