@@ -1,3 +1,19 @@
+**Don’t Underestimate the Risks of Benzodiazepines**\
+`The prescription drugs — used to treat anxiety, panic attacks and sleep disorders — play a role in popular TV shows like “The White Lotus” and “The Pitt.”`\
+https://nytimes.com/2025/03/12/well/mind/benzodiazepines-use-risk.html
+
+**How to watch the 2025 ACC men's basketball tourney, with Cooper Flagg's Duke favored**\
+`Cooper Flagg and Duke are big favorites to win this week's conference tourney. Clemson, Louisville and Wake Forest are in the mix.`\
+https://nytimes.com/athletic/6191547/2025/03/12/how-to-watch-acc-basketball-tournament-duke-cooper-flagg-ncaa/
+
+**After Nearly 125 Years, a Lost Jewel by Ravel Gets Its Premiere**\
+`A prelude and dance by the French master recently surfaced in a Paris library. Gustavo Dudamel and the New York Philharmonic will give the world premiere.`\
+https://nytimes.com/2025/03/12/arts/music/ravel-lost-manuscript-dudamel-ny-philharmonic.html
+
+**A University Denies Benefits to Gay Spouses. Can I Attend to Save Money?**\
+`The magazine’s Ethicist columnist on a conflict of morals and budget.`\
+https://nytimes.com/2025/03/12/magazine/university-discrimination-ethics.html
+
 **Trump’s Losses Raise a Question: Should One Judge Set National Policy?**\
 `Trial-court judges continue to block the president’s agenda with injunctions that apply across the country. Some conservatives want to limit that power.`\
 https://nytimes.com/2025/03/12/us/trump-judges.html
