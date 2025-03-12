@@ -1,3 +1,7 @@
+**The Pulse: Some spicy NFL free agency leftovers**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6194533/2025/03/12/nfl-free-agency-joey-bosa-the-pulse/
+
 **Stanley Tucci’s Negroni Upended the Internet**\
 `It became the cocktail of the pandemic.`\
 https://nytimes.com/2025/03/12/style/stanley-tucci-negroni.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/style/gerald-stratford-gardener-big-vegetables.ht
 **Are You Still Hungry for Baked Feta Pasta?**\
 `Tomatoes. Garlic. Olive oil. And a trend that emptied shelves of blocks of feta.`\
 https://nytimes.com/2025/03/12/style/baked-feta-pasta-pandemic-meal.html
-
-**Go ahead and applaud Bears GM Ryan Poles this offseason — he deserves it**\
-`The Bears have three new starters on their offensive line, possibly two more on defense and the draft is still six weeks away.`\
-https://nytimes.com/athletic/6195229/2025/03/12/bears-ryan-poles-winning-offseason/
 
