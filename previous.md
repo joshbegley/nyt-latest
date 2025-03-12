@@ -28,7 +28,7 @@ https://nytimes.com/2025/03/12/arts/covid-five-year-anniversary-theater-music-ar
 
 **Palm Beach Society Goes On, With and Without Trump**\
 `At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
-https://nytimes.com/2025/03/12/style/palm-beach-society-goes-on-with-and-without-trump.html
+https://nytimes.com/2025/03/12/style/palm-beach-florida-trump.html
 
 **Three Opinion Writers Assess the Damage of Trump’s First 50 Days**\
 `Michelle Goldberg and Frank Bruni join Patrick Healy to discuss the issues that have defined Trump’s presidency thus far.`\

@@ -1,3 +1,11 @@
+**Emboldened by Trump, Serbia’s Leader Cracks Down on Activist Groups**\
+`Roiled by months of nationwide protests it blames on foreign meddling, Serbia has sent the police in to raid groups that received funds from U.S.A.I.D.`\
+https://nytimes.com/2025/03/12/world/europe/emboldened-by-trump-serbias-leader-cracks-down-on-activist-groups.html
+
+**Students in Serbia Lead Marches to Demand Systemic Change**\
+`The antigovernment protests began in late 2024, calling for accountability for the collapse of a concrete canopy at a railway station in northern Serbia. But public anger has broadened, with protesters now denouncing corruption and the erosion of the rule of law.`\
+https://nytimes.com/video/world/europe/100000010035691/students-in-serbia-lead-marches-to-demand-systemic-change.html
+
 **Mets mailbag: Fans wonder how Clay Holmes will fare as a starter**\
 `Surprisingly, no Mets fans asked a question about Juan Soto, you know, the player getting paid $765 million over the next 15 years.`\
 https://nytimes.com/athletic/6196337/2025/03/12/mets-mailbag-clay-holmes/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/arts/covid-five-year-anniversary-theater-music-ar
 **Palm Beach Society Goes On, With and Without Trump**\
 `At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
 https://nytimes.com/2025/03/12/style/palm-beach-florida-trump.html
-
-**Three Opinion Writers Assess the Damage of Trump’s First 50 Days**\
-`Michelle Goldberg and Frank Bruni join Patrick Healy to discuss the issues that have defined Trump’s presidency thus far.`\
-https://nytimes.com/2025/03/12/opinion/trump-first-50-days.html
-
-**Kurdish Fighters Called a Truce, But Turkey Kept Up Lethal Strikes**\
-`Turkey is still bombing armed Kurdish insurgents in Iraq and Syria, even after their leader urged them to lay down their arms and disband, and their group declared a cease-fire.`\
-https://nytimes.com/2025/03/12/world/middleeast/turkey-kurds-deadly-airstrikes.html
 

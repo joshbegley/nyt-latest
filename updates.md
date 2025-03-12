@@ -1,3 +1,7 @@
+**Palm Beach Society Goes On, With and Without Trump**\
+`At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
+https://nytimes.com/2025/03/12/style/palm-beach-florida-trump.html
+
 **Mets mailbag: Fans wonder how Clay Holmes will fare as a starter**\
 `Surprisingly, no Mets fans asked a question about Juan Soto, you know, the player getting paid $765 million over the next 15 years.`\
 https://nytimes.com/athletic/6196337/2025/03/12/mets-mailbag-clay-holmes/
