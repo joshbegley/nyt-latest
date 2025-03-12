@@ -1,3 +1,11 @@
+**NFL announces compensatory draft picks for 2025 NFL Drarft**\
+`Baltimore, Dallas and Miami were awarded the maximum allotment of picks. `\
+https://nytimes.com/athletic/6195896/2025/03/11/nfl-draft-compensatory-picks-2025/
+
+**New Yorkers Protest as White House Defends Arrest of Columbia Activist**\
+`Hundreds of demonstrators marched downtown while a spokeswoman for President Trump said the president had the authority to detain Mahmoud Khalil.`\
+https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
+
 **Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
 `Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champio
 **Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs, Deablo out, but Koonce stays**\
 `Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
 https://nytimes.com/athletic/6180989/2025/03/11/las-vegas-raiders-2025-free-agency-tracker/
-
-**A Great Unraveling Is Underway**\
-`Trump’s foreign policy philosophy is not “containment” or “engagement,” but “smash and grab.”`\
-https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
-
-**Man Utd's head of medical services O’Driscoll to leave after 18 months**\
-`O'Driscoll moved to Old Trafford in September 2023 from Arsenal, where he had occupied the same role for six years.`\
-https://nytimes.com/athletic/6194219/2025/03/11/gary-odriscoll-doctor-manchester-united/
 

@@ -1,3 +1,11 @@
+**NFL announces compensatory draft picks for 2025 NFL Drarft**\
+`Baltimore, Dallas and Miami were awarded the maximum allotment of picks. `\
+https://nytimes.com/athletic/6195896/2025/03/11/nfl-draft-compensatory-picks-2025/
+
+**New Yorkers Protest as White House Defends Arrest of Columbia Activist**\
+`Hundreds of demonstrators marched downtown while a spokeswoman for President Trump said the president had the authority to detain Mahmoud Khalil.`\
+https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
+
 **Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
 `Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
