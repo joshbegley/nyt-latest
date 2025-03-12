@@ -1,3 +1,7 @@
+**Minnesota State House District 40B Special Election Results**\
+`Get live results and maps from the 2025 Minnesota State House special election.`\
+https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
+
 **Man Who Shot at Pipeline and Power Station Gets 25 Years in Prison**\
 `Cameron M. Smith, 50, a Canadian who wanted to bring more attention to climate change, was also ordered to pay $2.1 million in restitution for damage he caused in the Dakotas.`\
 https://nytimes.com/2025/03/11/us/north-south-dakota-energy-facility-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agen
 **Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
 `Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
 https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html
-
-**Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
-`Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
-https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
 

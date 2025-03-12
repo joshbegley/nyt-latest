@@ -1,3 +1,7 @@
+**Minnesota State House District 40B Special Election Results**\
+`Get live results and maps from the 2025 Minnesota State House special election.`\
+https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
+
 **Junior Bridgeman, Louisville basketball great, dies at 71**\
 `Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
 https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
