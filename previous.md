@@ -1,3 +1,19 @@
+**Protesters Surround Trump’s Border Czar on Khalil Detainment**\
+`Protesters yelled at Tom Homan that Mahmoud Khalil’s detainment by the Trump administration undermined the First Amendment, during a demonstration at the New York State Capitol.`\
+https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-protest.html
+
+**How Congress Could Force $1.1 Billion in Cuts on Washington, D.C.**\
+`District leaders say that a proposed cut to the city budget, part of a plan to avert a federal government shutdown, is unfair. The city raises most of its own money but cannot control how it is spent.`\
+https://nytimes.com/2025/03/12/us/congress-washington-dc-shutdown-budget-cut.html
+
+**Cowboys star DeMarcus Lawrence, Seahawks agree to 3-year deal: Source**\
+`Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
+https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/
+
+**Justice Dept. Moving to Downsize Units Investigating Fraud and Corruption**\
+`The plans, which have not been finalized, are the latest effort by the Trump administration to limit the ability of prosecutors to bring sensitive and politically fraught cases.`\
+https://nytimes.com/2025/03/12/us/politics/justice-dept-fraud-corruption.html
+
 **John Seidler officially takes over as Padres' control person**\
 `Day-to-day operations are expected to remain largely the same under the older brother of late Padres owner Peter Seidler.`\
 https://nytimes.com/athletic/6198455/2025/03/12/john-seidler-takes-over-padres-control-person/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6195868/2025/03/12/how-to-watch-thunder-celtics-nba
 **Trump’s Revenge on Law Firms Seen as Undermining Justice System**\
 `The president’s use of government power to punish firms is seen by some legal experts as undercutting a basic tenet: the right to a strong legal defense.`\
 https://nytimes.com/2025/03/12/us/politics/trump-law-firms-perkins-coie.html
-
-**Broncos, Evan Engram agree to 2-year deal: How TE can elevate Bo Nix**\
-`The two-time Pro Bowler is a season removed from a career-high 114 receptions and gives Denver a new dimension on offense. `\
-https://nytimes.com/athletic/6198439/2025/03/12/evan-engram-broncos-free-agency-signing-2025/
-
-**Diving With Siberian Bone Hunters**\
-`A search for the fossils of long-extinct creatures, hidden in Russia’s frigid waters.`\
-https://nytimes.com/interactive/2025/03/12/magazine/russia-arctic-fossils-expedition.html
-
-**Coco Gauff out of Indian Wells after relentless performance from Belinda Bencic**\
-`Coco Gauff exits Indian Wells after a three-set defeat to Belinda Bencic, who extended her stirring comeback from giving birth.`\
-https://nytimes.com/athletic/6198470/2025/03/12/coco-gauff-indian-wells-result-analysis-bencic/
-
-**Steelers add ex-Eagles CB Darius Slay, per reports, filling a key need on defense**\
-`A three-time Pro Bowler in five years with Philadelphia, Slay, 34, brings veteran experience to Pittsburgh's locker room.`\
-https://nytimes.com/athletic/6185216/2025/03/12/darius-slay-steelers-deal-nfl-free-agency-2025/
 
