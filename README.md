@@ -14,7 +14,7 @@ https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
 `Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
 
-**Junior Bridgeman, former Louisville basketball great, dies at 71**\
+**Junior Bridgeman, Louisville basketball great, dies at 71**\
 `Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
 https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
 
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-bask
 https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
 
 **Champions League briefing: PSG come of age, untouchable Yamal, and how will exit affect Liverpool?**\
-`Bayern Munich and Inter join PSG and Barcelona in the quarter-finals, with Raphinha topping the competition's scoring charts`\
+`Bayern and Inter join PSG and Barcelona in the quarter-finals, with Raphinha topping the competition's scoring charts`\
 https://nytimes.com/athletic/6194951/2025/03/11/champions-league-psg-liverpool-barcelona-yamal-briefing/
 
 **Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
