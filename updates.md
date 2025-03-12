@@ -1,3 +1,7 @@
+**The Athletic FC: PSG reborn under Luis Enrique, Raphinha's incredible stats, who is Berta?**\
+`Today in TAFC: PSG are reborn, the hunt for a treble, who is Arsenal's new sporting director, and another incredible scorpion kick.`\
+https://nytimes.com/athletic/6196987/2025/03/12/psg-luis-enrique-raphinha-berta/
+
 **Wine, Soy, Refrigerators: What Products Might Be Hit by European Tariffs**\
 `The European Union wants to force the United States to the negotiating table with retaliatory tariffs on a range of American products, including some from Republican strongholds.`\
 https://nytimes.com/2025/03/12/business/economy/europe-tariffs-products-goods-trump.html
