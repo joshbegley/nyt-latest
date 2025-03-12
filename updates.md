@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘My First Post-Divorce Girlfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/12/style/tiny-modern-love-stories-my-first-post-divorce-girlfriend.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`The NHL trade deadline is the rear-view mirror. Have a question about what went down and why? Or anything else relating to the league?`\
+https://nytimes.com/athletic/6197979/2025/03/12/nhl-mailbag-trade-deadline-free-agency/
+
 **Seahawks free-agency tracker: WR Marquez Valdes-Scantling agrees to deal**\
 `The Seahawks have already had an extremely busy offseason. Keep track of all of their moves in free agency right here.`\
 https://nytimes.com/athletic/6182924/2025/03/12/seahawks-free-agent-tracker-news/

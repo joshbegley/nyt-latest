@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘My First Post-Divorce Girlfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/12/style/tiny-modern-love-stories-my-first-post-divorce-girlfriend.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`The NHL trade deadline is the rear-view mirror. Have a question about what went down and why? Or anything else relating to the league?`\
+https://nytimes.com/athletic/6197979/2025/03/12/nhl-mailbag-trade-deadline-free-agency/
+
 **Seahawks free-agency tracker: WR Marquez Valdes-Scantling agrees to deal**\
 `The Seahawks have already had an extremely busy offseason. Keep track of all of their moves in free agency right here.`\
 https://nytimes.com/athletic/6182924/2025/03/12/seahawks-free-agent-tracker-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/opinion/trump-censorship-words.html
 **Who should Amorim pick in his biggest game at Manchester United?**\
 `Our experts select their XIs for United's crucial Europa League tie at Old Trafford`\
 https://nytimes.com/athletic/6197284/2025/03/12/man-utd-real-sociedad-ruben-amorim-team/
-
-**Blackpink’s Members Wrestle With the Mega-Group’s Long Shadow**\
-`On new solo releases, Jennie, Jisoo, Lisa and Rosé each face a choice: double-down or retreat from their roles in the smash K-pop girl group.`\
-https://nytimes.com/2025/03/12/arts/music/blackpink-solo-albums.html
-
-**Brazilian clubs write to FIFA, CONMEBOL demanding action on racism**\
-`"The Brazilian clubs reiterate the need for new measures to combat racism to be taken immediately," the letter reads.`\
-https://nytimes.com/athletic/6197644/2025/03/12/brazil-fifa-conmebol-racism/
 
