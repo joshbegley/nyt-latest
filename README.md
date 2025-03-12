@@ -1,3 +1,11 @@
+**The Washington Wizards need hope. The Detroit Pistons show what's possible**\
+`It took the Pistons awhile, but they're showing that some lottery luck and smart personnel moves can lead to a big turnaround.`\
+https://nytimes.com/athletic/6196805/2025/03/12/washington-wizards-detroit-pistons/
+
+**Stocks Pare Losses but Investors Remain Wary of Trade Tensions**\
+`Markets steadied on Wednesday, despite uncertainty spurred by tit-for-tat tariffs and the direction of the Trump administration’s economic policy.`\
+https://nytimes.com/2025/03/12/business/stock-markets-trading-tariffs.html
+
 **The 3.16.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/03/12/the-31625-issue
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6196250/2025/03/12/f1-lewis-hamilton-ferrari-legacy
 **Arsenal live Q&A: James McNicholas answers your questions**\
 `Get your questions in now for James and he will be with you between 1-2pm GMT (9am-10am ET) to answer as many as he can. `\
 https://nytimes.com/athletic/6191545/2025/03/12/arsenal-live-qa-james-mcnicholas/
-
-**Baseball's 2020 club: Five years ago they realized a dream, but no one was there to see it**\
-`A group of 24 players appeared in 2020, and never again. “It’s almost like a season that has an asterisk next to it,” Brandon Bailey said.`\
-https://nytimes.com/athletic/6188869/2025/03/12/mlb-covid-2020-players/
-
-**Beware the Anteaters: Why NCAA Tournament teams won’t want to see UC Irvine**\
-`The Big West conference tournament tips Wednesday in Henderson, Nev., with second-seeded Irvine receiving a bye to Friday's semifinals.`\
-https://nytimes.com/athletic/6195279/2025/03/12/march-madness-uc-irvine-college-basketball/
 
