@@ -1,4 +1,8 @@
-**Marcus Mariota, Commanders agree to 1-year deal: Sources**\
+**Rams will release Cooper Kupp, end 8-year run with former Super Bowl MVP: Source**\
+`In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
+https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
+
+**Commanders agree to re-sign QB Marcus Mariota to 1-year deal: Sources**\
 `Mariota, who played for the Washington Commanders in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free agents list.`\
 https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197654/2025/03/12/nfl-free-agency-aaron-rodgers-gi
 **Federal Agency Dedicated to Mental Illness and Addiction Faces Huge Cuts**\
 `The Substance Abuse and Mental Health Services Administration has already closed offices and could see staff numbers reduced by 50 percent.`\
 https://nytimes.com/2025/03/12/health/federal-cuts-substance-abuse-mental-health.html
-
-**Watch: Who is Nottingham Forest's best player?**\
-`The FC Podcast discuss Nottingham Forest's standout player and whether they would rather Champions League qualification or the FA Cup`\
-https://nytimes.com/athletic/6197509/2025/03/12/athletic-fc-podcast-nottingham-forest-best-players/
 

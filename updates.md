@@ -1,3 +1,11 @@
+**Rams will release Cooper Kupp, end 8-year run with former Super Bowl MVP: Source**\
+`In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
+https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
+
+**Commanders agree to re-sign QB Marcus Mariota to 1-year deal: Sources**\
+`Mariota, who played for the Washington Commanders in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free agents list.`\
+https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/
+
 **Marcus Mariota, Commanders agree to 1-year deal: Sources**\
 `Mariota, who played for the Washington Commanders in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free agents list.`\
 https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/

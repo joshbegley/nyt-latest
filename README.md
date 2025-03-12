@@ -1,4 +1,4 @@
-**Rams will release Cooper Kupp, end 8-year run with former Super Bowl MVP: Source**\
+**Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Source**\
 `In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
 https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
 
