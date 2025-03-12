@@ -1,3 +1,7 @@
+**NASA Launches Powerful Space Telescope**\
+`A SpaceX Falcon 9 lifted off from California carrying the telescope, named SPHEREx, along with a suite of satellites called PUNCH.`\
+https://nytimes.com/video/science/space/100000010046848/spherex-punch-spacex-nasa.html
+
 **Word of the Day: nonchalantly**\
 `This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/12/learning/word-of-the-day-nonchalantly.html

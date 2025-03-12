@@ -1,3 +1,7 @@
+**NASA Launches Powerful Space Telescope**\
+`A SpaceX Falcon 9 lifted off from California carrying the telescope, named SPHEREx, along with a suite of satellites called PUNCH.`\
+https://nytimes.com/video/science/space/100000010046848/spherex-punch-spacex-nasa.html
+
 **Word of the Day: nonchalantly**\
 `This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/12/learning/word-of-the-day-nonchalantly.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194831/2025/03/12/federico-valverde-real-madrid-ri
 **Old Trafford being bulldozed will hurt - but Man Utd need a new stadium**\
 `Manchester United's home since 1910 is special but tired. A new stadium feels right for a club in need of a fresh start...`\
 https://nytimes.com/athletic/6194963/2025/03/12/manchester-united-old-trafford-new-stadium-fans/
-
-**Why do clubs from the north east not win major trophies?**\
-`Poor decision-making, along with some untimely ill-luck, have seen Newcastle, Middlesbrough and Sunderland win only three cups in 70 years`\
-https://nytimes.com/athletic/6191202/2025/03/12/newcastle-middlesbrough-sunderland-trophies/
 
