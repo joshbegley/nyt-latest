@@ -1,40 +1,40 @@
-**In Trump’s Shadow, Greenland Votes for a New Government**\
-`President Trump has expressed a desire to “get” Greenland, but the party that won Tuesday’s election is in no rush to change the status quo.`\
-https://nytimes.com/2025/03/12/world/europe/greenland-election.html
+**Wait, What Happened? Your Trump 2025 Quiz Is Here.**\
+`Your first quiz of the second Trump administration is here.`\
+https://nytimes.com/interactive/2025/03/12/opinion/columnists/12collins-quiz-spring-twenty-five.html
 
-**Bayern Munich's Leon Goretzka and a lesson in defiance**\
-`Goretzka once appeared to have no future at Bayern Munich. His virtuoso display against Bayern Leverkusen firmly contradicts that narrative `\
-https://nytimes.com/athletic/6196085/2025/03/12/leon-goretzka-bayern-munich-champions-league/
+**Panthers free agency takeaways: Miles Sanders is gone. What could they do for an RB2?**\
+`The Panthers lost Sanders and Johnny Hekker on Tuesday, but they kept the offensive line intact — starters and backups.`\
+https://nytimes.com/athletic/6196319/2025/03/12/panthers-free-agency-takeaways-2025/
 
-**Europe Makes Its First Move as Trump’s Trade Fight Widens**\
-`The European Union responded to American steel and aluminum tariffs with its own tariffs on boats and bourbon — and pledges of more to come.`\
-https://nytimes.com/2025/03/12/world/europe/eu-us-trump-tariffs.html
+**Men’s Clothes That Could Never Be Called an Afterthought**\
+`The best things from Paris included snakeskin sneakers at Miu Miu, Balenciaga’s salaryman suits and smushed hiking boots at Loewe.`\
+https://nytimes.com/2025/03/12/style/mens-clothes-balenciaga-miu-miu-loewe-paris.html
 
-**Jimmy Kimmel Doubts Trump Will Really Buy a Tesla**\
-`“But why should he, when he did a big commercial for them today, absolutely free?” Kimmel said after the president brought some of Elon Musk’s cars to the White House.`\
-https://nytimes.com/2025/03/12/arts/television/jimmy-kimmel-trump-tesla.html
+**Ignore the Loose Talk About Recession**\
+`While fears about the economic chaos caused by tariffs are real, the underlying economic data in America remain strong.`\
+https://nytimes.com/2025/03/12/opinion/trump-recession.html
 
-**Liverpool's Champions League exit will hurt - Arne Slot's job is to soothe that pain**\
-`Liverpool can have few complaints over their European exit at the hands of PSG. Slot's job now is to refocus hearts and minds`\
-https://nytimes.com/athletic/6196294/2025/03/12/liverpool-champions-league-psg-arne-slot/
+**Where Are Trump and Musk Taking Us?**\
+`A typology of constitutional crises and constitutional rot.`\
+https://nytimes.com/2025/03/12/opinion/trump-musk-congress-constitution.html
 
-**The Artifacts of New York’s Pandemic Era**\
-`Stuck to lampposts and floorboards, reminders of Covid’s darkest days are everywhere.`\
-https://nytimes.com/2025/03/12/nyregion/the-artifacts-of-new-yorks-pandemic-era.html
+**5 Years After Covid Closed the Theaters, Audiences Are Returning**\
+`Broadway is almost back, and pop music tours and sports events are booming. But Hollywood, museums and other cultural sectors have yet to bounce back.`\
+https://nytimes.com/2025/03/12/arts/covid-five-year-anniversary-theater-music-art.html
 
-**Jaywalking**\
-`New York City legalized it last year. Should other cities follow suit? Or is it too dangerous?`\
-https://nytimes.com/2025/03/12/learning/jaywalking.html
+**Palm Beach Society Goes On, With and Without Trump**\
+`At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
+https://nytimes.com/2025/03/12/style/palm-beach-society-goes-on-with-and-without-trump.html
 
-**Can a Billionaire Buy St. John’s a Basketball Championship?**\
-`Mike Repole, who loved the homegrown team of his youth, has helped assemble a juggernaut enabled by compensation rules that one critic says created “the wild West.”`\
-https://nytimes.com/2025/03/12/nyregion/st-johns-basketball-benefactor-repole.html
+**Three Opinion Writers Assess the Damage of Trump’s First 50 Days**\
+`Michelle Goldberg and Frank Bruni join Patrick Healy to discuss the issues that have defined Trump’s presidency thus far.`\
+https://nytimes.com/2025/03/12/opinion/trump-first-50-days.html
 
-**The Ordinary New Yorkers Who Became Pandemic Heroes**\
-`During New York City’s darkest days, some residents found purpose and meaning in helping their neighbors stay safe and even find a bit of joy.`\
-https://nytimes.com/2025/03/12/nyregion/new-york-pandemic-heroes.html
+**Kurdish Fighters Called a Truce, But Turkey Kept Up Lethal Strikes**\
+`Turkey is still bombing armed Kurdish insurgents in Iraq and Syria, even after their leader urged them to lay down their arms and disband, and their group declared a cease-fire.`\
+https://nytimes.com/2025/03/12/world/middleeast/turkey-kurds-deadly-airstrikes.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/12/crosswords/spelling-bee-forum.html
+**Why Trump’s Tariffs Won’t Work**\
+`The economist Kimberly Clausing explains the possible costs and consequences of Trump’s tariffs.`\
+https://nytimes.com/2025/03/12/opinion/ezra-klein-podcast-kimberly-clausing.html
 
