@@ -1,3 +1,15 @@
+**Emery excited for 'special' PSG reunion in Champions League**\
+`Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
+https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/
+
+**Panthers agree to terms with RB Rico Dowdle on 1-year deal: Sources**\
+`The multifaceted Cowboys running back made the most of his first career starting opportunity in 2024. `\
+https://nytimes.com/athletic/6181320/2025/03/12/rico-dowdle-free-agency-signing-panthers/
+
+**Cowboys trade for Titans' Kenneth Murray in move to add LB depth**\
+`Murray started 14 games for Tennessee and recorded a team-leading 95 tackles in the 2024 season. `\
+https://nytimes.com/athletic/6198606/2025/03/12/kenneth-murray-cowboys-titans-trade/
+
 **Why the White House Car Show Mattered to Musk**\
 `A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
 https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
