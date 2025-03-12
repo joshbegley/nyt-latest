@@ -1,3 +1,15 @@
+**Federico Valverde: Madrid's jack of all trades… who literally dreamed of playing for them**\
+`The Uruguayan has made himself essential to Ancelotti on the wing, in midfield and now at right-back. This is his story`\
+https://nytimes.com/athletic/6194831/2025/03/12/federico-valverde-real-madrid-right-back/
+
+**Old Trafford being bulldozed will hurt - but Man Utd need a new stadium**\
+`Manchester United's home since 1910 is special but tired. A new stadium feels right for a club in need of a fresh start...`\
+https://nytimes.com/athletic/6194963/2025/03/12/manchester-united-old-trafford-new-stadium-fans/
+
+**Why do clubs from the north east not win major trophies?**\
+`Poor decision-making, along with some untimely ill-luck, have seen Newcastle, Middlesbrough and Sunderland win only three cups in 70 years`\
+https://nytimes.com/athletic/6191202/2025/03/12/newcastle-middlesbrough-sunderland-trophies/
+
 **Has Guardiola's style of football become outdated - or is it more complicated than that?**\
 `In previous seasons, City’s very different approach compared to the rest of the league had been held up as a reason for their dominance`\
 https://nytimes.com/athletic/6191756/2025/03/12/pep-guardiola-style-football-outdated-or-not/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/12/opinion/nuclear-umbrella-us-allies.html
 **Shootout win over Avalanche 'huge' for confidence — and standings: Wild takeaways**\
 `Pulling off a victory against a division rival despite key injuries helped steady the Wild amid a tenuous stretch in the schedule.`\
 https://nytimes.com/athletic/6196726/2025/03/12/wild-shootout-win-confidence-playoffs-avalanche/
-
-**Wednesday Briefing**\
-`U.S. aid to Ukraine is back on.`\
-https://nytimes.com/2025/03/12/briefing/ukraine-russia-canada-duterte.html
-
-**Here’s the latest.**\
-`By Isabella Kwai`\
-https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum/heres-the-latest
-
-**Live Updates: Trump’s Metals Tariffs Expected to Raise Costs for U.S. Industries**\
-`President Trump has imposed a 25 percent tariff on steel and aluminum from anywhere in the world. That may hurt American car manufacturers and other businesses.`\
-https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum
 
