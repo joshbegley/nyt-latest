@@ -1,3 +1,7 @@
+**The Briefing - Arsenal 2 PSV 2 (9-3 agg): Sterling and Zinchenko impress as Arteta rotates his way into quarter-finals**\
+`Jordan Campbell analyses the main talking points from Wednesday's Champions League game in north London`\
+https://nytimes.com/athletic/6194614/2025/03/12/arsenal-psv-result-analysis-briefing/
+
 **Indianapolis Man Who Killed Several Family Members Gets 360-Year Sentence**\
 `The man, Raymond Childs III, was 17 when he turned a gun on his parents, siblings and his brother’s pregnant girlfriend in January 2021, prosecutors said.`\
 https://nytimes.com/2025/03/12/us/indianapolis-family-murder-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-prot
 **How Congress Could Force $1.1 Billion in Cuts on Washington, D.C.**\
 `District leaders say that a proposed cut to the city budget, part of a plan to avert a federal government shutdown, is unfair. The city raises most of its own money but cannot control how it is spent.`\
 https://nytimes.com/2025/03/12/us/congress-washington-dc-shutdown-budget-cut.html
-
-**Ex-Cowboys DE DeMarcus Lawrence joining Seahawks: How will he fit in Seattle?**\
-`Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
-https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/
 

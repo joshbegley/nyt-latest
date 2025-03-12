@@ -1,3 +1,7 @@
+**The Briefing - Arsenal 2 PSV 2 (9-3 agg): Sterling and Zinchenko impress as Arteta rotates his way into quarter-finals**\
+`Jordan Campbell analyses the main talking points from Wednesday's Champions League game in north London`\
+https://nytimes.com/athletic/6194614/2025/03/12/arsenal-psv-result-analysis-briefing/
+
 **Indianapolis Man Who Killed Several Family Members Gets 360-Year Sentence**\
 `The man, Raymond Childs III, was 17 when he turned a gun on his parents, siblings and his brother’s pregnant girlfriend in January 2021, prosecutors said.`\
 https://nytimes.com/2025/03/12/us/indianapolis-family-murder-sentencing.html
