@@ -1,3 +1,11 @@
+**Think Twice Before Using These Words**\
+`Readers react to the Trump administration’s suppression of words in government documents. Also: Bullied Republicans; Iran’s economy.`\
+https://nytimes.com/2025/03/12/opinion/trump-censorship-words.html
+
+**Who should Amorim pick in his biggest game at Manchester United?**\
+`Our experts select their XIs for United's crucial Europa League tie at Old Trafford`\
+https://nytimes.com/athletic/6197284/2025/03/12/man-utd-real-sociedad-ruben-amorim-team/
+
 **Blackpink’s Members Wrestle With the Mega-Group’s Long Shadow**\
 `On new solo releases, Jennie, Jisoo, Lisa and Rosé each face a choice: double-down or retreat from their roles in the smash K-pop girl group.`\
 https://nytimes.com/2025/03/12/arts/music/blackpink-solo-albums.html
