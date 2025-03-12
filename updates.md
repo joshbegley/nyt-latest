@@ -1,4 +1,8 @@
 **Sidney Crosby is chasing a Wayne Gretzky record, too**\
+`Crosby doesn't think about it much, but he is on pace to pass Gretzky's record for most consecutive NHL seasons averaging a point per game.`\
+https://nytimes.com/athletic/6198201/2025/03/12/sidney-crosby-wayne-gretzky-nhl-points-per-game-record/
+
+**Sidney Crosby is chasing a Wayne Gretzky record, too**\
 `He doesn't think about it much, but Crosby is on pace to pass Gretzky's record for most consecutive NHL seasons averaging a point per game.`\
 https://nytimes.com/athletic/6198201/2025/03/12/sidney-crosby-wayne-gretzky-nhl-points-per-game-record/
 
