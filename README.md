@@ -1,3 +1,19 @@
+**Amorim says Man Utd players must prove Ratcliffe wrong**\
+`"If we are being honest, everybody — me, the players — is underperforming this season," Amorim said.`\
+https://nytimes.com/athletic/6197323/2025/03/12/manchester-united-amorim-ratcliffe/
+
+**Gavin Newsom Finds Some Surprising Common Ground With Steve Bannon**\
+`The California governor hosted one of the architects of President Trump’s political movement on his new podcast, and their friendly sparring revealed a few points of agreement.`\
+https://nytimes.com/2025/03/12/us/politics/gavin-newsom-podcast-steve-bannon.html
+
+**Cuthbert signs Chelsea contract extension**\
+`Cuthbert's existing deal had been due to expire at the end of the 2024-25 season.`\
+https://nytimes.com/athletic/6197309/2025/03/12/erin-cuthbert-signs-chelsea-contract-extension/
+
+**Players Championship: 10 notes to know on Scheffler, McIlroy and more**\
+`Scheffler is a combined 37-under-par the last two years at TPC Sawgrass, 12 shots better than any other player.`\
+https://nytimes.com/athletic/6197101/2025/03/12/players-championship-analysis-golf-scheffler-mcilroy/
+
 **Noah Gragson on waxing crescents, gravitational pull and other things: 12 Questions**\
 `Noah Gragson talks about a moon-related joke he played on the garage, what NASCAR needs to be more popular and more.`\
 https://nytimes.com/athletic/6186666/2025/03/12/noah-gragson-waxing-crescents-gravitational-pull-12-questions/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6173545/2025/03/12/fantasy-baseball-2025-second-hal
 **Senator Jeanne Shaheen, New Hampshire Democrat, Won’t Run Again in 2026**\
 `Ms. Shaheen’s retirement will set off a high-stakes fight for an open seat in a state where she has been a leading political figure for decades.`\
 https://nytimes.com/2025/03/12/us/politics/jeanne-shaheen-new-hampshire-senate-2026.html
-
-**The Ducks were quiet at this year's trade deadline, and that's a good thing**\
-`The Ducks were once again soft sellers at the deadline but should make some noise this summer.`\
-https://nytimes.com/athletic/6197009/2025/03/12/ducks-nhl-trade-deadline-2025/
-
-**Syria Violence Marked by Sectarian and Revenge Killings, War Monitor Says**\
-`The Syrian Network for Human Rights said armed groups and foreign fighters aligned with the government but not integrated into it were largely responsible for the sectarian violence.`\
-https://nytimes.com/2025/03/12/world/europe/syria-alawite-killings-human-rights.html
-
-**How Dembele's false-nine role and PSG's movement proved too much for Liverpool**\
-`Luis Enrique's side's intelligence and cohesion came to the fore perfectly at Anfield and left the hosts chasing shadows most of the night`\
-https://nytimes.com/athletic/6196886/2025/03/12/psg-liverpool-champions-league-dembele/
-
-**German Arms Maker Rheinmetall Has Record Sales in ‘Era of Rearmament’**\
-`Since the start of the war in Ukraine, the company moved quickly to meet Europe’s growing need for military spending.`\
-https://nytimes.com/2025/03/12/business/europe-defense-rheinmetall-earnings.html
 
