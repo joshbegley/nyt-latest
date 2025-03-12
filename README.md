@@ -1,3 +1,7 @@
+**Sidney Crosby is chasing a Wayne Gretzky record, too**\
+`He doesn't think about it much, but Crosby is on pace to pass Gretzky's record for most consecutive NHL seasons averaging a point per game.`\
+https://nytimes.com/athletic/6198201/2025/03/12/sidney-crosby-wayne-gretzky-nhl-points-per-game-record/
+
 **F1 president Domenicali extends contract through to 2029 season**\
 `The 59-year-old, who began in the role in 2021, will remain at the helm for another four-and-a-half years.`\
 https://nytimes.com/athletic/6198237/2025/03/12/stefano-domenicali-f1-president-contract-how-long/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signi
 **Fantasy basketball 'All-Winners' picks, plus Stephon Castle rising, Paul George falling**\
 `Eric Wong identifies the fantasy basketball league-winners this season and shares some specialists to help those in category need.`\
 https://nytimes.com/athletic/6197774/2025/03/12/fantasy-basketball-mvps-league-winners-risers-fallers/
-
-**More Senators Should Follow Jeanne Shaheen’s Lead**\
-`Jeanne Shaheen, 78, is the latest Senate Democrat to say she won’t run for re-election. It’s the right call and there’s still time for others to follow.`\
-https://nytimes.com/live/2025/03/10/opinion/thepoint/jeanne-shaheen-retire-new-hampshire
 
