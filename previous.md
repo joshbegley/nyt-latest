@@ -1,3 +1,7 @@
+**Senator Jeanne Shaheen, New Hampshire Democrat, Won’t Run Again in 2026**\
+`Ms. Shaheen’s retirement will set off a high-stakes fight for an open seat in a state where she has been a leading political figure for decades.`\
+https://nytimes.com/2025/03/12/us/politics/jeanne-shaheen-new-hampshire-senate-2026.html
+
 **The Ducks were quiet at this year's trade deadline, and that's a good thing**\
 `The Ducks were once again soft sellers at the deadline but should make some noise this summer.`\
 https://nytimes.com/athletic/6197009/2025/03/12/ducks-nhl-trade-deadline-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/technology/personaltech/how-to-spend-less-time-on
 **The Share of Religious Americans Will Continue to Decline**\
 `There has been a plateau of “nones” in the past few years. It won’t last.`\
 https://nytimes.com/2025/03/12/opinion/decline-religion-america.html
-
-**My Mother Is Punishing Me for Not Coming Out to Her Sooner. Help!**\
-`A young reader variously subjected to cruel words and the silent treatment is reaching the end of her rope with her mother, who has portrayed her daughter’s coming out as deceit.`\
-https://nytimes.com/2025/03/12/style/coming-out-retribution.html
 
