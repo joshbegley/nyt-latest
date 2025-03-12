@@ -1,6 +1,14 @@
+**Who could be this March's NC State? Don't count out these underachievers**\
+`Which teams could be this year's out-of-nowhere high-major conference tournament winner to bottle some March magic?`\
+https://nytimes.com/athletic/6194808/2025/03/12/conference-tournament-sleepers-rutgers-villanova/
+
 **Canadiens’ attempt to develop and win exemplified in victory over Canucks**\
 `Jayden Struble and Juraj Slafkovský are at different stages of their development but combined to help the Canadiens get a big win.`\
 https://nytimes.com/athletic/6196915/2025/03/12/canadiens-canucks-win-juraj-slafkovsky-jayden-struble/
+
+**Trea Turner hears the talk about his future at shortstop. Can he prove the skeptics wrong?**\
+`Turner is in a race. If he doesn't play a better shortstop in 2025, he might be somewhere else in the field come 2026.`\
+https://nytimes.com/athletic/6190906/2025/03/12/trea-turner-phillies-shortstop-defense-future/
 
 **What would it take to lock up Tarik Skubal, Gunnar Henderson and more?**\
 `Up next: A reigning Cy Young award winner two years from a big payday to a superstar rookie with five years of team control remaining.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6195279/2025/03/12/march-madness-uc-irvine-college-
 **Cooper Kupp? Evan Engram? Examining Broncos' next potential free-agency fits**\
 `The Broncos will certainly search for a running back in the NFL Draft, but there are still potential options in free agency.`\
 https://nytimes.com/athletic/6194744/2025/03/12/broncos-free-agency-second-wave/
-
-**With ‘Él,’ Buñuel Turns His Gaze to Male Pathology**\
-`Luis Buñuel’s Mexican melodrama about a jealous husband who makes his young wife’s life a living hell opens at Film Forum.`\
-https://nytimes.com/2025/03/12/movies/el-luis-bunuel.html
-
-**Cuts at the Education Department**\
-`How the layoffs could affect the agency.`\
-https://nytimes.com/2025/03/12/briefing/cuts-at-the-education-department.html
 

@@ -1,3 +1,7 @@
+**The 3.16.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/03/12/the-31625-issue
+
 **Who could be this March's NC State? Don't count out these underachievers**\
 `Which teams could be this year's out-of-nowhere high-major conference tournament winner to bottle some March magic?`\
 https://nytimes.com/athletic/6194808/2025/03/12/conference-tournament-sleepers-rutgers-villanova/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6188869/2025/03/12/mlb-covid-2020-players/
 **Beware the Anteaters: Why NCAA Tournament teams won’t want to see UC Irvine**\
 `The Big West conference tournament tips Wednesday in Henderson, Nev., with second-seeded Irvine receiving a bye to Friday's semifinals.`\
 https://nytimes.com/athletic/6195279/2025/03/12/march-madness-uc-irvine-college-basketball/
-
-**Cooper Kupp? Evan Engram? Examining Broncos' next potential free-agency fits**\
-`The Broncos will certainly search for a running back in the NFL Draft, but there are still potential options in free agency.`\
-https://nytimes.com/athletic/6194744/2025/03/12/broncos-free-agency-second-wave/
 

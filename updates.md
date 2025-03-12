@@ -1,3 +1,11 @@
+**Who could be this March's NC State? Don't count out these underachievers**\
+`Which teams could be this year's out-of-nowhere high-major conference tournament winner to bottle some March magic?`\
+https://nytimes.com/athletic/6194808/2025/03/12/conference-tournament-sleepers-rutgers-villanova/
+
+**Trea Turner hears the talk about his future at shortstop. Can he prove the skeptics wrong?**\
+`Turner is in a race. If he doesn't play a better shortstop in 2025, he might be somewhere else in the field come 2026.`\
+https://nytimes.com/athletic/6190906/2025/03/12/trea-turner-phillies-shortstop-defense-future/
+
 **Canadiens’ attempt to develop and win exemplified in victory over Canucks**\
 `Jayden Struble and Juraj Slafkovský are at different stages of their development but combined to help the Canadiens get a big win.`\
 https://nytimes.com/athletic/6196915/2025/03/12/canadiens-canucks-win-juraj-slafkovsky-jayden-struble/
