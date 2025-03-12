@@ -1,3 +1,11 @@
+**Syria Violence Marked by Sectarian and Revenge Killings, War Monitor Says**\
+`The Syrian Network for Human Rights said armed groups and foreign fighters aligned with the government but not integrated into it were largely responsible for the sectarian violence.`\
+https://nytimes.com/2025/03/12/world/europe/syria-alawite-killings-human-rights.html
+
+**How Ousmane Dembele's false-nine role and PSG's elite movement proved too much for Liverpool**\
+`Luis Enrique's side's intelligence and cohesion came to the fore perfectly at Anfield and left the hosts chasing shadows most of the night`\
+https://nytimes.com/athletic/6196886/2025/03/12/psg-liverpool-champions-league-dembele/
+
 **German Arms Maker Rheinmetall Has Record Sales in ‘Era of Rearmament’**\
 `Since the start of the war in Ukraine, the company moved quickly to meet Europe’s growing need for military spending.`\
 https://nytimes.com/2025/03/12/business/europe-defense-rheinmetall-earnings.html
