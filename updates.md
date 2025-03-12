@@ -1,3 +1,19 @@
+**Blackpink’s Members Wrestle With the Mega-Group’s Long Shadow**\
+`On new solo releases, Jennie, Jisoo, Lisa and Rosé each face a choice: double-down or retreat from their roles in the smash K-pop girl group.`\
+https://nytimes.com/2025/03/12/arts/music/blackpink-solo-albums.html
+
+**Brazilian clubs write to FIFA, CONMEBOL demanding action on racism**\
+`"The Brazilian clubs reiterate the need for new measures to combat racism to be taken immediately," the letter reads.`\
+https://nytimes.com/athletic/6197644/2025/03/12/brazil-fifa-conmebol-racism/
+
+**The Windup: Explaining Vlad Jr.’s $500M demand**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6196776/2025/03/12/vladimir-guerrero-jr-contract-blue-jays-the-windup/
+
+**Economic Outlook Is Clouded by ‘Unthinkable’ Policies**\
+`The mood at a gathering of central bankers, economists and analysts in Europe was somewhat bewildered, as they assessed the unpredictability of trade policy and geopolitics.`\
+https://nytimes.com/2025/03/12/business/economy/economy-uncertainty-tariffs-europe.html
+
 **Spurs confirm freeze of season and match ticket prices for 2025-26 season**\
 `This follows Brentford and Liverpool's decisions to freeze prices for next season.`\
 https://nytimes.com/athletic/6197682/2025/03/12/tottenham-season-ticket-prices-freeze/
