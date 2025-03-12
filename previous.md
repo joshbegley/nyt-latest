@@ -1,3 +1,15 @@
+**Lowetide: Oilers' Jeff Skinner is earning, but not receiving, more playing time**\
+`Skinner can't get into the lineup, and when he does, it's as a depth player on a line ill-suited to his ability.`\
+https://nytimes.com/athletic/6195847/2025/03/12/oilers-jeff-skinner-stats-2025/
+
+**In Duterte’s Arrest, Shifting Political Winds Deliver a Chance for Justice**\
+`Running parallel to Rodrigo Duterte’s transfer to the International Court of Justice in The Hague is a monthslong feud with the Philippines’ current president.`\
+https://nytimes.com/2025/03/12/world/asia/philippines-duterte-arrest-marcos.html
+
+**Videos Show Narwhals Using Their Tusks to Play With Their Food**\
+`Researchers observed a number of surprising behaviors by the ivory-sporting whales during an expedition with drones in the Canadian High Arctic.`\
+https://nytimes.com/2025/03/12/science/narwhals-tusks-video.html
+
 **Amorim says Man Utd players must prove Ratcliffe wrong**\
 `"If we are being honest, everybody — me, the players — is underperforming this season," Amorim said.`\
 https://nytimes.com/athletic/6197323/2025/03/12/manchester-united-amorim-ratcliffe/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/12/us/politics/trump-ireland-martin-visit.html
 **Women’s Champions Classic returns with UConn-Iowa, Tennessee-Louisville games**\
 `This year, Iowa meets UConn in a 2024 Final Four rematch, while Tennessee faces Louisville.`\
 https://nytimes.com/athletic/6196285/2025/03/12/uconn-tennessee-iowa-louisville-champions-classic/
-
-**Canada announces Nations League roster: How new forwards will help Marsch**\
-`The Athletic analyses Canada's latest roster ahead of a Nations League semifinal against Mexico on March 20.`\
-https://nytimes.com/athletic/6195262/2025/03/12/canada-roster-squad-nations-league-finals/
-
-**Buy low on these fantasy baseball pitchers? Brandon Pfaadt, Sonny Gray and more**\
-`Brandon Pfaadt was the unluckiest pitcher of 2024 says Owen Poindexter, who looks at the rebound potential of five second-half strugglers.`\
-https://nytimes.com/athletic/6173545/2025/03/12/fantasy-baseball-2025-second-half-pitcher-struggles-buy-low/
-
-**Senator Jeanne Shaheen, New Hampshire Democrat, Won’t Run Again in 2026**\
-`Ms. Shaheen’s retirement will set off a high-stakes fight for an open seat in a state where she has been a leading political figure for decades.`\
-https://nytimes.com/2025/03/12/us/politics/jeanne-shaheen-new-hampshire-senate-2026.html
 

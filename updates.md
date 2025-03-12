@@ -1,3 +1,15 @@
+**Lowetide: Oilers' Jeff Skinner is earning, but not receiving, more playing time**\
+`Skinner can't get into the lineup, and when he does, it's as a depth player on a line ill-suited to his ability.`\
+https://nytimes.com/athletic/6195847/2025/03/12/oilers-jeff-skinner-stats-2025/
+
+**In Duterte’s Arrest, Shifting Political Winds Deliver a Chance for Justice**\
+`Running parallel to Rodrigo Duterte’s transfer to the International Court of Justice in The Hague is a monthslong feud with the Philippines’ current president.`\
+https://nytimes.com/2025/03/12/world/asia/philippines-duterte-arrest-marcos.html
+
+**Videos Show Narwhals Using Their Tusks to Play With Their Food**\
+`Researchers observed a number of surprising behaviors by the ivory-sporting whales during an expedition with drones in the Canadian High Arctic.`\
+https://nytimes.com/2025/03/12/science/narwhals-tusks-video.html
+
 **Amorim says Man Utd players must prove Ratcliffe wrong**\
 `"If we are being honest, everybody — me, the players — is underperforming this season," Amorim said.`\
 https://nytimes.com/athletic/6197323/2025/03/12/manchester-united-amorim-ratcliffe/
