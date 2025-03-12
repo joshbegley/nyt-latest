@@ -1,3 +1,11 @@
+**Profiling the top utility-only players, and rookies to watch for fantasy baseball 2025**\
+`Gene McCaffrey runs through his ranking of utility-only options for fantasy baseball 2025, with one standing well above all others. `\
+https://nytimes.com/athletic/6181238/2025/03/12/profiling-top-utility-only-rookies-to-watch-fantasy-baseball-2025/
+
+**High government debt is seen as stoking inflation, research shows.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum/high-government-debt-seen-stoking-inflation-research-shows
+
 **After the trade deadline dust settled, who has the edge in the Central Division?**\
 `The Jets, Stars and Avalanche are all Stanley Cup contenders but let's break down which one is actually best built to win it.`\
 https://nytimes.com/athletic/6190938/2025/03/12/nhl-central-division-stanley-cup-checklist/
@@ -7,11 +15,11 @@ https://nytimes.com/athletic/6190938/2025/03/12/nhl-central-division-stanley-cup
 https://nytimes.com/athletic/6196402/2025/03/12/chargers-free-agency-reset-kevin-zeitler/
 
 **Separatists in Pakistan Are Still Holding Hundreds of Hostages in Train Standoff**\
-`Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train.`\
+`Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train carrying more than 400 people.`\
 https://nytimes.com/2025/03/12/world/asia/pakistan-militants-train-hostages.html
 
 **Ukraine Welcomes Resumption of U.S. Military Aid**\
-`Ukraine, which welcomed the resumption of U.S. military assistance, has said it would agree to a 30-day cease-fire if Russia does the same.`\
+`While Ukraine said it would agree to a 30-day cease-fire proposal, many in the country were skeptical about whether Russia would do the same.`\
 https://nytimes.com/2025/03/12/world/europe/ukraine-russia-cease-fire-skepticism.html
 
 **PWHL trade deadline: Identifying the biggest need for every team**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6195861/2025/03/12/jake-walman-oilers-sharks-adjust
 **Blues' path to playoffs: Remaining opponents, head-to-head records, strength of schedule**\
 `The Blues have 17 games remaining in the regular season, and have the easiest strength of schedule of any team in the NHL.`\
 https://nytimes.com/athletic/6194276/2025/03/12/st-louis-blues-path-to-nhl-playoffs/
-
-**Blackhawks power rankings: Seth Jones' absence, Artyom Levshunov's debut, Kyle Davidson's month**\
-`From savvy deadline moves to successful surgery, Blackhawks GM Davidson has had a lot of wins in the past month.`\
-https://nytimes.com/athletic/6195948/2025/03/12/blackhawks-jones-levshunov-davidson/
-
-**Yankees fans are mad and second guessing everything. But do they have a point?**\
-`Gerrit Cole's season-ending surgery is one of several blows the Yankees have sustained so far. Should they have done things differently?`\
-https://nytimes.com/athletic/6195475/2025/03/12/ny-yankees-offseason-second-guessing/
 
