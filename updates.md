@@ -1,3 +1,7 @@
+**The Pulse: Some spicy NFL free agency leftovers**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6194533/2025/03/12/nfl-free-agency-joey-bosa-the-pulse/
+
 **Stanley Tucci’s Negroni Upended the Internet**\
 `It became the cocktail of the pandemic.`\
 https://nytimes.com/2025/03/12/style/stanley-tucci-negroni.html
