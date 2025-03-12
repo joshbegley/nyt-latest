@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6196274/2025/03/11/cavaliers-nets-winning-streak-nb
 `The Senators have adopted a "Game 7 mentality" for the remainder of their regular season. If it works, they'll break their playoff drought.`\
 https://nytimes.com/athletic/6194639/2025/03/11/senators-playoffs-stretch-run-perron-tkachuk/
 
+**Steelers free-agency tracker: RB Kenneth Gainwell agrees; still no QB moves**\
+`We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
+https://nytimes.com/athletic/6185212/2025/03/11/steelers-free-agent-tracker-news-grades-2025/
+
 **A Ferocious Paul Mescal Stars in a Brutal ‘Streetcar’**\
 `Desire comes a distant second to violence in a Brooklyn revival of the Tennessee Williams classic.`\
 https://nytimes.com/2025/03/11/theater/streetcar-named-desire-review-mescal-ferran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/chicago-murder-wrongful-conviction-award.html
 **Bills land DE Joey Bosa on 1-year, $12.6M deal: Sources**\
 `Bosa's 72 sacks in his nine seasons with the Chargers are second-most in team history. He arrives after the Bills released Von Miller.`\
 https://nytimes.com/athletic/6184382/2025/03/11/joey-bosa-free-agency-signing-bills/
-
-**Control of Minnesota House Split After Democrat Wins Special Election**\
-`Republicans in the Minnesota House lost a one-seat edge in the Capitol, where tensions over party dominance have simmered for weeks.`\
-https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.html
 
