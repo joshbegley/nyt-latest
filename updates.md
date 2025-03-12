@@ -1,3 +1,15 @@
+**After the trade deadline dust settled, who has the edge in the Central Division?**\
+`The Jets, Stars and Avalanche are all Stanley Cup contenders but let's break down which one is actually best built to win it.`\
+https://nytimes.com/athletic/6190938/2025/03/12/nhl-central-division-stanley-cup-checklist/
+
+**Chargers free agency reset, Day 2: Radio silence but guard has to be a priority**\
+`The Chargers need to upgrade their interior offensive line and Lions guard Kevin Zeitler is one of their best options. `\
+https://nytimes.com/athletic/6196402/2025/03/12/chargers-free-agency-reset-kevin-zeitler/
+
+**Ukraine Welcomes Resumption of U.S. Military Aid**\
+`Ukraine, which welcomed the resumption of U.S. military assistance, has said it would agree to a 30-day cease-fire if Russia does the same.`\
+https://nytimes.com/2025/03/12/world/europe/ukraine-russia-cease-fire-skepticism.html
+
 **Separatists in Pakistan Are Still Holding Hundreds of Hostages in Train Standoff**\
 `Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train.`\
 https://nytimes.com/2025/03/12/world/asia/pakistan-militants-train-hostages.html

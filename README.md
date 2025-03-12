@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6190938/2025/03/12/nhl-central-division-stanley-cup
 https://nytimes.com/athletic/6196402/2025/03/12/chargers-free-agency-reset-kevin-zeitler/
 
 **Separatists in Pakistan Are Still Holding Hundreds of Hostages in Train Standoff**\
-`Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train.`\
+`Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train carrying more than 400 people.`\
 https://nytimes.com/2025/03/12/world/asia/pakistan-militants-train-hostages.html
 
 **Ukraine Welcomes Resumption of U.S. Military Aid**\
