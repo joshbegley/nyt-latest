@@ -1,3 +1,7 @@
+**Putin, Dressed in Fatigues, Visits Kursk to Cheer Ouster of Ukraine’s Troops**\
+`The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
+https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
+
 **Woman Imprisoned and Starved Stepson for 20 Years, Police Say**\
 `Emergency workers responding to a fire in Waterbury, Conn., found the man, 32, who weighed only 68 pounds and had been held captive in a tiny room.`\
 https://nytimes.com/2025/03/12/nyregion/waterbury-woman-stepson-captive-20-years-connecticut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/world/asia/balochistan-liberation-army-pakistan.h
 **ICE Returns All Migrants From Guantánamo to Stateside Facilities**\
 `A court filing described strip searches and the use of restraint chairs on some of the 290 migrants the Trump administration has cycled through the base.`\
 https://nytimes.com/2025/03/12/us/politics/ice-migrants-guantanamo.html
-
-**The Briefing - Arsenal 2 PSV 2 (9-3 agg): Sterling and Zinchenko impress as Arteta rotates his way into quarter-finals**\
-`Jordan Campbell analyses the main talking points from Wednesday's Champions League game in north London`\
-https://nytimes.com/athletic/6194614/2025/03/12/arsenal-psv-result-analysis-briefing/
 

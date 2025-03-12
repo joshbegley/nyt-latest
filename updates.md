@@ -1,3 +1,7 @@
+**Putin, Dressed in Fatigues, Visits Kursk to Cheer Ouster of Ukraine’s Troops**\
+`The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
+https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
+
 **Woman Imprisoned and Starved Stepson for 20 Years, Police Say**\
 `Emergency workers responding to a fire in Waterbury, Conn., found the man, 32, who weighed only 68 pounds and had been held captive in a tiny room.`\
 https://nytimes.com/2025/03/12/nyregion/waterbury-woman-stepson-captive-20-years-connecticut.html
