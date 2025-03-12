@@ -1,3 +1,27 @@
+**They Lost Someone to Covid. Here’s What They Learned About Grief.**\
+`“It still feels kind of incomplete,” said someone who lost several family friends. “It doesn’t feel like there is that closure on any of it.”`\
+https://nytimes.com/interactive/2025/03/11/us/covid-grief-pandemic-anniversary.html
+
+**49ers add veteran WR Demarcus Robinson: Can he help fill the Deebo Samuel void?**\
+`Robinson will likely have a big role early in the 2025 season as Brandon Aiyuk works his way back from a torn ACL.`\
+https://nytimes.com/athletic/6196328/2025/03/11/demarcus-robinson-49ers-free-agency-signing/
+
+**Cavs notch another win with rally vs. Nets, but difficult stretch looms**\
+`Every NBA team eventually hits some bumps in the road, but Cleveland has avoided the wrath of the "basketball gods." Will that change?`\
+https://nytimes.com/athletic/6196274/2025/03/11/cavaliers-nets-winning-streak-nba/
+
+**These Senators have never truly competed for playoffs. This stretch run could define them**\
+`The Senators have adopted a "Game 7 mentality" for the remainder of their regular season. If it works, they'll break their playoff drought.`\
+https://nytimes.com/athletic/6194639/2025/03/11/senators-playoffs-stretch-run-perron-tkachuk/
+
+**A Ferocious Paul Mescal Stars in a Brutal ‘Streetcar’**\
+`Desire comes a distant second to violence in a Brooklyn revival of the Tennessee Williams classic.`\
+https://nytimes.com/2025/03/11/theater/streetcar-named-desire-review-mescal-ferran.html
+
+**Yarn Spinner’s Tool**\
+`Chandi Deitmer and Kate Hawkins make their collaboration debut.`\
+https://nytimes.com/2025/03/11/crosswords/daily-puzzle-2025-03-12.html
+
 **Jury Awards $120 Million to Illinois Men Wrongfully Convicted of Murder**\
 `John Fulton and Anthony Mitchell were teenagers when they were coerced into giving false confessions in a 2003 murder in Chicago.`\
 https://nytimes.com/2025/03/11/us/chicago-murder-wrongful-conviction-award.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.
 **Corrections: March 12, 2025**\
 `Corrections that appeared in print on Wednesday, March 12, 2025.`\
 https://nytimes.com/2025/03/11/pageoneplus/corrections-march-12-2025.html
-
-**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty perfection**\
-`How the French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
-https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
-
-**Minnesota State House District 40B Special Election Results**\
-`Get live results and maps from the 2025 Minnesota State House special election.`\
-https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
-
-**Man Who Shot at Pipeline and Power Station Gets 25 Years in Prison**\
-`Cameron M. Smith, 50, a Canadian who wanted to bring more attention to climate change, was also ordered to pay $2.1 million in restitution for damage he caused in the Dakotas.`\
-https://nytimes.com/2025/03/11/us/north-south-dakota-energy-facility-attacks.html
-
-**NFL announces compensatory draft picks for 2025 NFL Draft**\
-`Baltimore, Dallas and Miami were awarded the maximum allotment of picks. `\
-https://nytimes.com/athletic/6195896/2025/03/11/nfl-draft-compensatory-picks-2025/
-
-**New Yorkers Protest as White House Defends Arrest of Columbia Activist**\
-`Hundreds of demonstrators marched downtown while a spokeswoman for President Trump said the president had the authority to detain Mahmoud Khalil.`\
-https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
-
-**Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
-`Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
-https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
 

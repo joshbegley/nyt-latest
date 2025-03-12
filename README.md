@@ -1,3 +1,7 @@
+**Cubs Opening Day roster projection 2.0: Matt Shaw makes the Tokyo Series team**\
+`"I’ve been preparing for this opportunity for my entire life," the 23-year-old Shaw said of making Chicago's travel roster.`\
+https://nytimes.com/athletic/6196416/2025/03/11/chicago-cubs-opening-day-roster-projection-tokyo-series/
+
 **They Lost Someone to Covid. Here’s What They Learned About Grief.**\
 `“It still feels kind of incomplete,” said someone who lost several family friends. “It doesn’t feel like there is that closure on any of it.”`\
 https://nytimes.com/interactive/2025/03/11/us/covid-grief-pandemic-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6184382/2025/03/11/joey-bosa-free-agency-signing-bi
 **Control of Minnesota House Split After Democrat Wins Special Election**\
 `Republicans in the Minnesota House lost a one-seat edge in the Capitol, where tensions over party dominance have simmered for weeks.`\
 https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.html
-
-**Corrections: March 12, 2025**\
-`Corrections that appeared in print on Wednesday, March 12, 2025.`\
-https://nytimes.com/2025/03/11/pageoneplus/corrections-march-12-2025.html
 
