@@ -1,11 +1,3 @@
-**Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
-`Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
-https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
-
-**Junior Bridgeman, former Louisville basketball great, dies at 71**\
-`Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
-https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
-
 **Alexander-Arnold unlikely to play in Carabao Cup final - Slot**\
 `The right-back, 26, was replaced on 73 minutes at Anfield on Tuesday after landing awkwardly as he stretched to attempt to intercept a pass.`\
 https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
@@ -37,4 +29,12 @@ https://nytimes.com/2025/03/11/opinion/trump-economy-tariffs.html
 **Man Utd's head of medical services O’Driscoll to leave after 18 months**\
 `O'Driscoll moved to Old Trafford in September 2023 from Arsenal, where he had occupied the same role for six years.`\
 https://nytimes.com/athletic/6194219/2025/03/11/gary-odriscoll-doctor-manchester-united/
+
+**West Virginia coach Rich Rodriguez bans team from dancing on TikTok**\
+`Rodriguez said he wasn’t banning players from the platform; he was just banning them from dancing on it.`\
+https://nytimes.com/athletic/6195874/2025/03/11/west-virginia-football-tiktok-dance-banned/
+
+**The Briefing - Liverpool 0 PSG 1 (1-1 agg, 1-4 pens): Donnarumma heroics seal dramatic win**\
+`The big talking points from the Champions League last-16 decider at Anfield`\
+https://nytimes.com/athletic/6194331/2025/03/11/liverpool-psg-champions-league-analysis/
 
