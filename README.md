@@ -1,3 +1,7 @@
+**Shootout win over Avalanche 'huge' for confidence — and standings: Wild takeaways**\
+`Pulling off a victory against a division rival despite key injuries helped steady the Wild amid a tenuous stretch in the schedule.`\
+https://nytimes.com/athletic/6196726/2025/03/12/wild-shootout-win-confidence-playoffs-avalanche/
+
 **Wednesday Briefing**\
 `U.S. aid to Ukraine is back on.`\
 https://nytimes.com/2025/03/12/briefing/ukraine-russia-canada-duterte.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/pageoneplus/quote-of-the-day-for-duterte-impunity
 **Where U.S. Measles Outbreaks Are Spreading**\
 `As new cases are reported, our maps and illustrations show the spread of the virus and how infections can run through a community.`\
 https://nytimes.com/interactive/2025/health/measles-outbreak-map.html
-
-**E.P.A. Plans to Close All Environmental Justice Offices**\
-`An internal memo directs the closure of offices designed to ease the heavy pollution faced by poor and minority communities.`\
-https://nytimes.com/2025/03/11/climate/epa-closure-environmental-justice-offices.html
 
