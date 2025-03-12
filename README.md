@@ -1,3 +1,7 @@
+**Spurs confirm freeze of season and match ticket prices for 2025-26 season**\
+`This follows Brentford and Liverpool's decisions to freeze prices for next season.`\
+https://nytimes.com/athletic/6197682/2025/03/12/tottenham-season-ticket-prices-freeze/
+
 **A Party-Worthy Chicken Breast Recipe. Really.**\
 `David Tanis wraps the weeknight staple in puff pastry for something that’s not just simple and juicy — it’s simply showstopping.`\
 https://nytimes.com/2025/03/12/dining/chicken-breasts-pastry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/business/egg-prices-inflation.html
 **How to watch the 2025 Big 12 men's basketball tourney: Game times, odds and more**\
 `The Big 12 Tournament begins on Tuesday and runs through Saturday. Kelvin Sampson's Houston Cougars open as the favorites.`\
 https://nytimes.com/athletic/6191169/2025/03/12/how-to-watch-big-12-mens-basketball-tournament/
-
-**Don’t Underestimate the Risks of Benzodiazepines**\
-`Prescription drugs like lorazepam — used to treat anxiety, panic attacks and sleep disorders — play a role in popular TV shows like ‘The White Lotus’ and ‘The Pitt.’`\
-https://nytimes.com/2025/03/12/well/mind/lorazepam-white-lotus-risk-benzodiazepines.html
 

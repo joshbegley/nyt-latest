@@ -1,3 +1,15 @@
+**A Party-Worthy Chicken Breast Recipe. Really.**\
+`David Tanis wraps the weeknight staple in puff pastry for something that’s not just simple and juicy — it’s simply showstopping.`\
+https://nytimes.com/2025/03/12/dining/chicken-breasts-pastry.html
+
+**24 Works of Fiction to Read This Spring**\
+`Watch for a new “Hunger Games” prequel; a quirky romance from Emily Henry; novels by Chimamanda Ngozi Adichie and Ocean Vuong; and more.`\
+https://nytimes.com/2025/03/12/books/new-fiction-books-spring-2025.html
+
+**21 Nonfiction Books to Read This Spring**\
+`A posthumous collection of Joan Didion’s diaries, biographies of Yoko Ono and Mark Twain, a history of The Onion — and plenty more.`\
+https://nytimes.com/2025/03/12/books/new-nonfiction-books-spring-2025.html
+
 **Yale Suspends Scholar After A.I.-Powered News Site Accuses Her of Terrorist Link**\
 `The deputy director of a liberal project at Yale Law School was put on leave over allegations that she is linked to Samidoun, a group the U.S. government has said funds terrorists.`\
 https://nytimes.com/2025/03/12/us/yale-suspends-scholar-terrorism.html
