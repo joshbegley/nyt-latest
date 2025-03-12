@@ -1,3 +1,15 @@
+**Why the White House Car Show Mattered to Musk**\
+`A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
+https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
+
+**Federal Officials Pursue Fraud Case Against Customs Official**\
+`A longtime customs employee has been accused of a scheme to defraud FEMA involving aid from floods in Detroit. She has denied the charges, officials say.`\
+https://nytimes.com/2025/03/12/us/cbp-fema-fraud-charges.html
+
+**Putin, Dressed in Fatigues, Visits Kursk to Cheer Efforts to Oust Ukraine’s Troops**\
+`The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
+https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
+
 **The Briefing - Atletico 1 Real 0 (agg 2-2, Real win on pens): Rudiger's spot kick decides epic derby**\
 `An epic Champions League round-of-16 tie between the two Madrid teams was decided on penalties`\
 https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-penalties-rudiger/
