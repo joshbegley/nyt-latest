@@ -30,7 +30,7 @@ https://nytimes.com/2025/03/12/nyregion/columbia-university-trump-protests.html
 `Here is what we know about the billions in funds that have led to federal investigations, lawsuits and frozen bank accounts for climate nonprofit groups.`\
 https://nytimes.com/2025/03/12/climate/epa-climate-grants-canceled.html
 
-**Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Sources**\
+**Rams release Cooper Kupp, ending 8-year run with former Super Bowl MVP**\
 `In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
 https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
 
