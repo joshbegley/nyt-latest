@@ -1,3 +1,7 @@
+**Rams release Cooper Kupp, ending 8-year run with former Super Bowl MVP**\
+`In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
+https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
+
 **Are You Asian American? Let’s Talk About Your (Gold) Jewelry**\
 `Please tell us about your relationship to gold, jewelry or other inherited adornments of precious metals and how you wear them.`\
 https://nytimes.com/2025/03/12/style/asian-american-jewelry-gold.html
