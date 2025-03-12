@@ -1,3 +1,11 @@
+**Trump’s Losses Raise a Question: Should One Judge Set National Policy?**\
+`Trial-court judges continue to block the president’s agenda with injunctions that apply across the country. Some conservatives want to limit that power.`\
+https://nytimes.com/2025/03/12/us/trump-judges.html
+
+**Climate Group Funded by Bill Gates Slashes Staff in Major Retreat**\
+`Breakthrough Energy, an umbrella group for energy and environmental efforts funded by Mr. Gates, is resetting for the Trump era.`\
+https://nytimes.com/2025/03/12/climate/bill-gates-breakthrough-energy-cuts.html
+
 **A Burned-Out Designer Tried to Heal by Making a Cozy Game**\
 `Davey Wreden, the writer of mind-bending video games, moves away from self-conscious cleverness in a tea shop simulator.`\
 https://nytimes.com/2025/03/12/arts/davey-wreden-wanderstop-stanley-parable.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6197470/2025/03/12/rangers-jonathan-quick-extension
 `The Bills got a number of important contracts done before free agency opens.`\
 https://nytimes.com/athletic/6184048/2025/03/12/bills-free-agency-offseason-tracker/
 
-**Scoop City: Why some teams get free third-round picks**\
+**Scoop City: Why some teams get free third-round picks, how the comp system works**\
 `You might be wondering how the NFL&#8217;s compensatory pick system works.`\
-https://nytimes.com/athletic/6197453/2025/03/12/nfl-compensatory-picks-scoop-city/
-
-**Europe Welcomes a Ukraine Cease-Fire Offer and a Revival of U.S. Aid**\
-`Leaders worked hard to get President Volodymyr Zelensky back in the good graces of President Trump, no matter how humiliating, and to shift the onus to Russia.`\
-https://nytimes.com/2025/03/12/world/europe/europe-ukraine-cease-fire-offer.html
-
-**What’s in Our Queue? ‘Companion’ and More**\
-`Text by Eli Tan`\
-https://nytimes.com/card/2025/03/12/arts/editors-recommendations-companion
+https://nytimes.com/athletic/6197453/2025/03/12/nfl-compensatory-picks-explained-scoop-city/
 
