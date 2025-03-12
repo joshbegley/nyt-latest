@@ -1,3 +1,19 @@
+**An Unexpected Trump Bump for the World’s Centrists**\
+`As President Trump’s “shock and awe” policies radiate around the world, they are galvanizing support for moderate leaders and unifying Europe.`\
+https://nytimes.com/2025/03/12/world/europe/trump-starmer-europe-centrists.html
+
+**Trump’s Tariffs on Steel and Aluminum Go Into Effect**\
+`President Trump imposed a 25 percent tariff on metal imports. The move is expected to raise costs for U.S. manufacturers of cars, solar panels and other products, potentially slowing the economy.`\
+https://nytimes.com/2025/03/12/us/politics/trumps-tariffs-on-steel-and-aluminum-go-into-effect.html
+
+**In Search of a Boring Business**\
+`Younger would-be chief executives are increasingly seeking profits — and freedom from the 9-to-5 — by pivoting from corporate jobs into often unglamorous small-business niches.`\
+https://nytimes.com/2025/03/12/business/young-professionals-boring-small-business-niches.html
+
+**Quote of the Day: For Duterte, Impunity Ends With His Arrest for Drug War**\
+`Quotation of the Day for Wednesday, March 12, 2025`\
+https://nytimes.com/2025/03/11/pageoneplus/quote-of-the-day-for-duterte-impunity-ends-with-his-arrest-for-drug-war.html
+
 **Where U.S. Measles Outbreaks Are Spreading**\
 `As new cases are reported, our maps and illustrations show the spread of the virus and how infections can run through a community.`\
 https://nytimes.com/interactive/2025/health/measles-outbreak-map.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6196567/2025/03/11/pacers-bucks-tyrese-haliburton-c
 **Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
 `An inability to get going at puck drop dogged all three losses in Columbus' most recent trip.`\
 https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
-
-**Cubs Opening Day roster projection 2.0: Matt Shaw makes the Tokyo Series team**\
-`"I’ve been preparing for this opportunity for my entire life," the 23-year-old Shaw said of making Chicago's travel roster.`\
-https://nytimes.com/athletic/6196416/2025/03/11/chicago-cubs-opening-day-roster-projection-tokyo-series/
-
-**They Lost Someone to Covid. Here’s What They Learned About Grief.**\
-`“It still feels kind of incomplete,” said someone who lost several family friends. “It doesn’t feel like there is that closure on any of it.”`\
-https://nytimes.com/interactive/2025/03/11/us/covid-grief-pandemic-anniversary.html
-
-**49ers add veteran WR Demarcus Robinson: Can he help fill the Deebo Samuel void?**\
-`Robinson will likely have a big role early in the 2025 season as Brandon Aiyuk works his way back from a torn ACL.`\
-https://nytimes.com/athletic/6196328/2025/03/11/demarcus-robinson-49ers-free-agency-signing/
-
-**Red-hot Cavs notch another 15-win streak with rally vs. Nets, but difficult stretch looms**\
-`Every NBA team eventually hits some bumps in the road, but Cleveland has avoided the wrath of the "basketball gods." Will that change?`\
-https://nytimes.com/athletic/6196274/2025/03/11/cavaliers-nets-winning-streak-nba/
 
