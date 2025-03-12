@@ -1,3 +1,7 @@
+**At Columbia, Tension Over Gaza Protests Hits Breaking Point Under Trump**\
+`There were protests, arrests, the departure of the school’s president. Then, a new administration arrived in Washington.`\
+https://nytimes.com/2025/03/12/nyregion/columbia-university-trump-protests.html
+
 **E.P.A. Cancels Climate Grants, Intensifying Battle Over $20 Billion**\
 `Here is what we know about the billions in funds that have led to federal investigations, lawsuits and frozen bank accounts for climate nonprofit groups.`\
 https://nytimes.com/2025/03/12/climate/epa-climate-grants-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/12/us/hoover-oswald.html
 **Power leagues, NCAA working on rules enforcement for revenue sharing era**\
 `The new regulatory body stands to shift more of the oversight and control of college sports away from the NCAA and toward the conferences.`\
 https://nytimes.com/athletic/6197975/2025/03/12/power-conferences-ncaa-working-on-plans-for-enforcing-rules-of-new-revenue-sharing-era/
-
-**Why Aaron Rodgers would (and wouldn't) make sense for the Giants, Steelers and Vikings**\
-`When you're talking about Aaron Rodgers, nothing is simple. Our beat writers explore the pros and cons of adding Rodgers to their teams. `\
-https://nytimes.com/athletic/6197654/2025/03/12/nfl-free-agency-aaron-rodgers-giants-steelers-vikings/
 
