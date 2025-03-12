@@ -1,3 +1,7 @@
+**Indianapolis Man Who Killed Several Family Members Gets 360-Year Sentence**\
+`The man, Raymond Childs III, was 17 when he turned a gun on his parents, siblings and his brother’s pregnant girlfriend in January 2021, prosecutors said.`\
+https://nytimes.com/2025/03/12/us/indianapolis-family-murder-sentencing.html
+
 **Columbia Activist’s Case Goes to Court**\
 `Also, a government shutdown looms. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/03/12/briefing/trump-columbia-activist-arrest-trade-war-canada-eu.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/03/12/briefing/trump-columbia-activist-arrest-trade-war
 `The Lions don't have a lot needs to fill this offseason.`\
 https://nytimes.com/athletic/6189041/2025/03/12/lions-free-agency-signings-depth/
 
-**Panthers CB Mike Jackson wandered the NFL 5 years; he's found a home opposite Jaycee Horn**\
-`When Mike Jackson was traded to Carolina, it was a "new sense of life." He was rewarded with a 2-year deal and is eager to get after it.`\
+**Panthers CB Mike Jackson has finally found a home opposite Jaycee Horn**\
+`When Mike Jackson was traded to Carolina, it brought a "new sense of life." He was rewarded with a 2-year deal and is eager to get after it.`\
 https://nytimes.com/athletic/6198512/2025/03/12/panthers-mike-jackson-free-agency-jaycee-horn/
 
 **Maps: Two Small Quakes Strike Near Puerto Rico Coastline**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/us/congress-washington-dc-shutdown-budget-cut.htm
 **Ex-Cowboys DE DeMarcus Lawrence joining Seahawks: How will he fit in Seattle?**\
 `Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
 https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/
-
-**Justice Dept. Moving to Downsize Units Investigating Fraud and Corruption**\
-`The plans, which have not been finalized, are the latest effort by the Trump administration to limit the ability of prosecutors to bring sensitive and politically fraught cases.`\
-https://nytimes.com/2025/03/12/us/politics/justice-dept-fraud-corruption.html
 
