@@ -1,3 +1,7 @@
+**Are You Asian American? Let’s Talk About Your (Gold) Jewelry**\
+`Please tell us about your relationship to gold, jewelry or other inherited adornments of precious metals and how you wear them.`\
+https://nytimes.com/2025/03/12/style/asian-american-jewelry-gold.html
+
 **Sidney Crosby is chasing a Wayne Gretzky record, too**\
 `Crosby doesn't think about it much, but he is on pace to pass Gretzky's record for most consecutive NHL seasons averaging a point per game.`\
 https://nytimes.com/athletic/6198201/2025/03/12/sidney-crosby-wayne-gretzky-nhl-points-per-game-record/
