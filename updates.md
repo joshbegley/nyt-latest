@@ -1,3 +1,11 @@
+**Why Britain Has Not Retaliated to Trump’s Tariffs**\
+`Prime Minister Keir Starmer wants to stay close to the United States, even as the uncertainty unleashed by President Trump offers a chance to build ties with the European Union.`\
+https://nytimes.com/2025/03/12/business/uk-tariffs-trump-starmer.html
+
+**'Son of a huge b****': Atletico’s Correa given five-game ban for referee insult**\
+`Atletico Madrid are "studying the findings" and are yet to decide if they will appeal against the punishment.`\
+https://nytimes.com/athletic/6197029/2025/03/12/atletico-madrid-angel-correa-ban-referee/
+
 **The Washington Wizards need hope. The Detroit Pistons show what's possible**\
 `It took the Pistons awhile, but they're showing that some lottery luck and smart personnel moves can lead to a big turnaround.`\
 https://nytimes.com/athletic/6196805/2025/03/12/washington-wizards-detroit-pistons/

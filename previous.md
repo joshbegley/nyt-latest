@@ -1,3 +1,11 @@
+**Why Britain Has Not Retaliated to Trump’s Tariffs**\
+`Prime Minister Keir Starmer wants to stay close to the United States, even as the uncertainty unleashed by President Trump offers a chance to build ties with the European Union.`\
+https://nytimes.com/2025/03/12/business/uk-tariffs-trump-starmer.html
+
+**'Son of a huge b****': Atletico’s Correa given five-game ban for referee insult**\
+`Atletico Madrid are "studying the findings" and are yet to decide if they will appeal against the punishment.`\
+https://nytimes.com/athletic/6197029/2025/03/12/atletico-madrid-angel-correa-ban-referee/
+
 **The Washington Wizards need hope. The Detroit Pistons show what's possible**\
 `It took the Pistons awhile, but they're showing that some lottery luck and smart personnel moves can lead to a big turnaround.`\
 https://nytimes.com/athletic/6196805/2025/03/12/washington-wizards-detroit-pistons/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6191047/2025/03/12/mlb-extension-week-tarik-skubal-
 **The Blue Jackets were supposed to be one of the worst teams. Their turnaround is simply amazing**\
 `The Blue Jackets look likely to make the playoffs. Defying the odds to this degree could be a signal of even better things to come. `\
 https://nytimes.com/athletic/6194399/2025/03/12/blue-jackets-nhl-playoffs/
-
-**Can Lewis Hamilton and Ferrari write history together before time runs out?**\
-`The clock starts this weekend — here's what's at stake for two of F1's greatest legacies.`\
-https://nytimes.com/athletic/6196250/2025/03/12/f1-lewis-hamilton-ferrari-legacy-2025/
-
-**Arsenal live Q&A: James McNicholas answers your questions**\
-`Get your questions in now for James and he will be with you between 1-2pm GMT (9am-10am ET) to answer as many as he can. `\
-https://nytimes.com/athletic/6191545/2025/03/12/arsenal-live-qa-james-mcnicholas/
 
