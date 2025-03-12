@@ -1,3 +1,11 @@
+**Jimmy Kimmel Doubts Trump Will Really Buy a Tesla**\
+`“But why should he, when he did a big commercial for them today, absolutely free?” Kimmel said after the president brought some of Elon Musk’s cars to the White House.`\
+https://nytimes.com/2025/03/12/arts/television/jimmy-kimmel-trump-tesla.html
+
+**Liverpool's Champions League exit will hurt - Arne Slot's job is to soothe that pain**\
+`Liverpool can have few complaints over their European exit at the hands of PSG. Slot's job now is to refocus hearts and minds`\
+https://nytimes.com/athletic/6196294/2025/03/12/liverpool-champions-league-psg-arne-slot/
+
 **The Artifacts of New York’s Pandemic Era**\
 `Stuck to lampposts and floorboards, reminders of Covid’s darkest days are everywhere.`\
 https://nytimes.com/2025/03/12/nyregion/the-artifacts-of-new-yorks-pandemic-era.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6196329/2025/03/12/paris-saint-germain-luis-enrique
 **Online Influencer Stabbed to Death in Tokyo While Livestreaming**\
 `Police in Japan have charged a man with the murder, saying he was a follower who had tracked her location by the buildings behind her as she filmed herself.`\
 https://nytimes.com/2025/03/12/world/asia/japan-influencer-stabbed-livestreaming.html
-
-**Chinese Warships Circle Australia and Leave It Feeling ‘Near-Naked’**\
-`The unusual deployment by three navy ships over the past month has prompted a debate in Australia about its aging fleet and reliance on the United States.`\
-https://nytimes.com/2025/03/12/world/australia/china-warships-australia-aukus.html
-
-**Passenger Swallows Rosary Beads on Chaotic Flight to Miami**\
-`The man also kicked a flight attendant, an arrest affidavit said. He and his sister said they were traveling to Haiti to escape “religious attacks of a spiritual nature.”`\
-https://nytimes.com/2025/03/12/us/american-airlines-passenger-rosary-beads.html
 
