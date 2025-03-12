@@ -1,3 +1,11 @@
+**The Briefing - Atletico 1 Real 0 (agg 2-2, Real win on pens): Rudiger's spot kick decides epic derby**\
+`An epic Champions League round-of-16 tie between the two Madrid teams was decided on penalties`\
+https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-penalties-rudiger/
+
+**Selma Miriam, Founder of the Feminist Restaurant Bloodroot, Dies at 89**\
+`She and Noel Furie had just come out as lesbians when they opened an unusual gathering place for women in Connecticut. Nearly half a century later, it is still thriving.`\
+https://nytimes.com/2025/03/12/dining/selma-miriam-dead.html
+
 **Putin, Dressed in Fatigues, Visits Kursk to Cheer Ouster of Ukraine’s Troops**\
 `The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
 https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6198606/2025/03/12/kenneth-murray-cowboys-titans-tr
 https://nytimes.com/2025/03/12/us/tennessee-senator-kelsey-trump-pardon.html
 
 **Intel Names New Chief Executive Amid Turnaround Efforts**\
-`The semiconductor pioneer has appointed Lip-Bu Tan, a well-known tech investor and executive, as its new leader.`\
+`The semiconductor pioneer appointed Lip-Bu Tan, a well-known tech investor and executive, as its new leader.`\
 https://nytimes.com/2025/03/12/technology/intel-new-ceo-tan.html
 
 **Trump Appointee Filmed Influencer Videos on the Job**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/us/politics/mclaurine-pinover-trump-doge-influenc
 **The Killing of an Infowars Reporter Was Likely a Random Attack, Police Say**\
 `But that has not stopped Infowars’ founder, Alex Jones, from spreading misinformation.`\
 https://nytimes.com/2025/03/12/us/infowars-murder-alex-jones.html
-
-**The Balochistan Separatist Movement in Pakistan: What to Know**\
-`A dramatic escalation in the tactics by a Baloch separatist group came with the hijacking of a passenger train on Tuesday.`\
-https://nytimes.com/2025/03/12/world/asia/balochistan-liberation-army-pakistan.html
-
-**ICE Returns All Migrants From Guantánamo to Stateside Facilities**\
-`A court filing described strip searches and the use of restraint chairs on some of the 290 migrants the Trump administration has cycled through the base.`\
-https://nytimes.com/2025/03/12/us/politics/ice-migrants-guantanamo.html
 

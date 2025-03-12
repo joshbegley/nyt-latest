@@ -1,3 +1,11 @@
+**Why the White House Car Show Mattered to Musk**\
+`A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
+https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
+
+**Federal Officials Pursue Fraud Case Against Customs Official**\
+`A longtime customs employee has been accused of a scheme to defraud FEMA involving aid from floods in Detroit. She has denied the charges, officials say.`\
+https://nytimes.com/2025/03/12/us/cbp-fema-fraud-charges.html
+
 **The Briefing - Atletico 1 Real 0 (agg 2-2, Real win on pens): Rudiger's spot kick decides epic derby**\
 `An epic Champions League round-of-16 tie between the two Madrid teams was decided on penalties`\
 https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-penalties-rudiger/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-
 `She and Noel Furie had just come out as lesbians when they opened an unusual gathering place for women in Connecticut. Nearly half a century later, it is still thriving.`\
 https://nytimes.com/2025/03/12/dining/selma-miriam-dead.html
 
-**Putin, Dressed in Fatigues, Visits Kursk to Cheer Ouster of Ukraine’s Troops**\
+**Putin, Dressed in Fatigues, Visits Kursk to Cheer Efforts to Oust Ukraine’s Troops**\
 `The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
 https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/us/tennessee-senator-kelsey-trump-pardon.html
 **Intel Names New Chief Executive Amid Turnaround Efforts**\
 `The semiconductor pioneer appointed Lip-Bu Tan, a well-known tech investor and executive, as its new leader.`\
 https://nytimes.com/2025/03/12/technology/intel-new-ceo-tan.html
-
-**Trump Appointee Filmed Influencer Videos on the Job**\
-`The official, McLaurine Pinover, the top spokeswoman for the Office of Personnel Management, said she never made any money from the fashion videos filmed in her office.`\
-https://nytimes.com/2025/03/12/us/politics/mclaurine-pinover-trump-doge-influencer.html
-
-**The Killing of an Infowars Reporter Was Likely a Random Attack, Police Say**\
-`But that has not stopped Infowars’ founder, Alex Jones, from spreading misinformation.`\
-https://nytimes.com/2025/03/12/us/infowars-murder-alex-jones.html
 
