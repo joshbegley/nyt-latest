@@ -1,3 +1,7 @@
+**Man Who Shot at Pipeline and Power Station Gets 25 Years in Prison**\
+`Cameron M. Smith, 50, a Canadian who wanted to bring more attention to climate change, was also ordered to pay $2.1 million in restitution for damage he caused in the Dakotas.`\
+https://nytimes.com/2025/03/11/us/north-south-dakota-energy-facility-attacks.html
+
 **NFL announces compensatory draft picks for 2025 NFL Draft**\
 `Baltimore, Dallas and Miami were awarded the maximum allotment of picks. `\
 https://nytimes.com/athletic/6195896/2025/03/11/nfl-draft-compensatory-picks-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.
 **Kompany warns Bayern 'don't get carried away' after Leverkusen win**\
 `Bayern will now face Inter, who eliminated Feyenoord, in the Champions League quarter-final stage.`\
 https://nytimes.com/athletic/6195927/2025/03/11/bayern-munich-leverkusen-champions-league/
-
-**Raiders 2025 free agency tracker: Spillane, Moehrig, Hobbs, Deablo out, but Koonce stays**\
-`Follow along with our running analysis of the Las Vegas Raiders' moves and key departures during the initial wave of free agency.`\
-https://nytimes.com/athletic/6180989/2025/03/11/las-vegas-raiders-2025-free-agency-tracker/
 
