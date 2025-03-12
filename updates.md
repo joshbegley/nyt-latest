@@ -1,3 +1,11 @@
+**Spurs' Danso out with hamstring injury, will miss AZ clash**\
+`"We have to let it settle down before we get clarity on it," Spurs head coach Ange Postecoglou said on Danso's injury.`\
+https://nytimes.com/athletic/6196991/2025/03/12/kevin-danso-injury-tottenham/
+
+**The Bounce: Is tonight's Thunder-Celtics matchup a preview of the 2025 NBA Finals?**\
+`Wednesday's Thunder-Celtics game could be a glimpse into a high-potential finals matchup. Plus, the NBA says goodbye to a unique great`\
+https://nytimes.com/athletic/6197035/2025/03/12/shai-gilgeous-alexander-thunder-jayson-tatum-celtics-nba-finals-playoffs-the-bounce/
+
 **Lowetide: Oilers' Jeff Skinner is earning, but not receiving, more playing time**\
 `Skinner can't get into the lineup, and when he does, it's as a depth player on a line ill-suited to his ability.`\
 https://nytimes.com/athletic/6195847/2025/03/12/oilers-jeff-skinner-stats-2025/

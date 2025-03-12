@@ -1,3 +1,11 @@
+**Spurs' Danso out with hamstring injury, will miss AZ clash**\
+`"We have to let it settle down before we get clarity on it," Spurs head coach Ange Postecoglou said on Danso's injury.`\
+https://nytimes.com/athletic/6196991/2025/03/12/kevin-danso-injury-tottenham/
+
+**The Bounce: Is tonight's Thunder-Celtics matchup a preview of the 2025 NBA Finals?**\
+`Wednesday's Thunder-Celtics game could be a glimpse into a high-potential finals matchup. Plus, the NBA says goodbye to a unique great`\
+https://nytimes.com/athletic/6197035/2025/03/12/shai-gilgeous-alexander-thunder-jayson-tatum-celtics-nba-finals-playoffs-the-bounce/
+
 **Lowetide: Oilers' Jeff Skinner is earning, but not receiving, more playing time**\
 `Skinner can't get into the lineup, and when he does, it's as a depth player on a line ill-suited to his ability.`\
 https://nytimes.com/athletic/6195847/2025/03/12/oilers-jeff-skinner-stats-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6197101/2025/03/12/players-championship-analysis-go
 **Noah Gragson on waxing crescents, gravitational pull and other things: 12 Questions**\
 `Noah Gragson talks about a moon-related joke he played on the garage, what NASCAR needs to be more popular and more.`\
 https://nytimes.com/athletic/6186666/2025/03/12/noah-gragson-waxing-crescents-gravitational-pull-12-questions/
-
-**Irish Leader to Visit Trump as Ties Between U.S. and Europe Are Tested**\
-`The traditional visit, tied to St. Patrick’s Day, is seen as important to reinforce the longstanding diplomatic relationship between the two countries.`\
-https://nytimes.com/2025/03/12/us/politics/trump-ireland-martin-visit.html
-
-**Women’s Champions Classic returns with UConn-Iowa, Tennessee-Louisville games**\
-`This year, Iowa meets UConn in a 2024 Final Four rematch, while Tennessee faces Louisville.`\
-https://nytimes.com/athletic/6196285/2025/03/12/uconn-tennessee-iowa-louisville-champions-classic/
 
