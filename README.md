@@ -1,3 +1,7 @@
+**Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
+`An inability to get going at puck drop dogged all three losses in Columbus' most recent road trip.`\
+https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
+
 **Cubs Opening Day roster projection 2.0: Matt Shaw makes the Tokyo Series team**\
 `"I’ve been preparing for this opportunity for my entire life," the 23-year-old Shaw said of making Chicago's travel roster.`\
 https://nytimes.com/athletic/6196416/2025/03/11/chicago-cubs-opening-day-roster-projection-tokyo-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/11/crosswords/daily-puzzle-2025-03-12.html
 **Jury Awards $120 Million to Illinois Men Wrongfully Convicted of Murder**\
 `John Fulton and Anthony Mitchell were teenagers when they were coerced into giving false confessions in a 2003 murder in Chicago.`\
 https://nytimes.com/2025/03/11/us/chicago-murder-wrongful-conviction-award.html
-
-**Bills land DE Joey Bosa on 1-year, $12.6M deal: Sources**\
-`Bosa's 72 sacks in his nine seasons with the Chargers are second-most in team history. He arrives after the Bills released Von Miller.`\
-https://nytimes.com/athletic/6184382/2025/03/11/joey-bosa-free-agency-signing-bills/
 
