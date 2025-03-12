@@ -1,3 +1,19 @@
+**What’s in Our Queue? ‘Companion’ and More**\
+`Text by Eli Tan`\
+https://nytimes.com/card/2025/03/12/arts/editors-recommendations-companion
+
+**Swedish Battery Maker Northvolt Collapses, a Blow to Europe**\
+`The company and its assets will be sold after it filed for bankruptcy in Sweden, sinking Europe’s best hope for competing against Asian rivals.`\
+https://nytimes.com/2025/03/12/world/europe/northvolt-battery-bankruptcy.html
+
+**How to watch, odds for Timberwolves at Nuggets with Nikola Jokić hosting Anthony Edwards**\
+`Two of the West's hottest teams take Wednesday's national TV nightcap. Nikola Jokić gets to keep building a case for his fourth NBA MVP.`\
+https://nytimes.com/athletic/6195869/2025/03/12/timberwolves-nuggets-how-to-watch-nba-espn-edwards-jokic/
+
+**She’s Sober. He’s Not. Now What?**\
+`When one partner wants to cut back, or stops drinking altogether, the changes can reverberate throughout a relationship.`\
+https://nytimes.com/2025/03/12/well/family/couples-sober-drinking-alcohol.html
+
 **Spurs' Danso out with hamstring injury, will miss AZ clash**\
 `"We have to let it settle down before we get clarity on it," Spurs head coach Ange Postecoglou said on Danso's injury.`\
 https://nytimes.com/athletic/6196991/2025/03/12/kevin-danso-injury-tottenham/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/12/science/narwhals-tusks-video.html
 **Amorim says Man Utd players must prove Ratcliffe wrong**\
 `"If we are being honest, everybody — me, the players — is underperforming this season," Amorim said.`\
 https://nytimes.com/athletic/6197323/2025/03/12/manchester-united-amorim-ratcliffe/
-
-**Gavin Newsom Finds Some Surprising Common Ground With Steve Bannon**\
-`The California governor hosted one of the architects of President Trump’s political movement on his new podcast, and their friendly sparring revealed a few points of agreement.`\
-https://nytimes.com/2025/03/12/us/politics/gavin-newsom-podcast-steve-bannon.html
-
-**Cuthbert signs Chelsea contract extension**\
-`Cuthbert's existing deal had been due to expire at the end of the 2024-25 season.`\
-https://nytimes.com/athletic/6197309/2025/03/12/erin-cuthbert-signs-chelsea-contract-extension/
-
-**Players Championship: 10 notes to know on Scheffler, McIlroy and more**\
-`Scheffler is a combined 37-under-par the last two years at TPC Sawgrass, 12 shots better than any other player.`\
-https://nytimes.com/athletic/6197101/2025/03/12/players-championship-analysis-golf-scheffler-mcilroy/
-
-**Noah Gragson on waxing crescents, gravitational pull and other things: 12 Questions**\
-`Noah Gragson talks about a moon-related joke he played on the garage, what NASCAR needs to be more popular and more.`\
-https://nytimes.com/athletic/6186666/2025/03/12/noah-gragson-waxing-crescents-gravitational-pull-12-questions/
 
