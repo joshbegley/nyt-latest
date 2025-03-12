@@ -1,3 +1,11 @@
+**Stanley Tucci’s Negroni Upended the Internet**\
+`It became the cocktail of the pandemic.`\
+https://nytimes.com/2025/03/12/style/stanley-tucci-negroni.html
+
+**U.S. Inflation Expected to Have Stayed Stubbornly High in February**\
+`Economists are bracing for intensifying price pressures and slower growth, posing a challenge for the Federal Reserve.`\
+https://nytimes.com/2025/03/12/business/inflation-cpi-february-economy.html
+
 **The Iditarod Winner Just Wanted to Get His Sled Dogs Home**\
 `After the 2020 race, it took a vintage plane to get Thomas Waerner and his 16 dogs back home to Norway from Alaska at the start of the pandemic.`\
 https://nytimes.com/2025/03/12/style/thomas-waerner-iditarod-covid.html

@@ -1,3 +1,11 @@
+**Stanley Tucci’s Negroni Upended the Internet**\
+`It became the cocktail of the pandemic.`\
+https://nytimes.com/2025/03/12/style/stanley-tucci-negroni.html
+
+**U.S. Inflation Expected to Have Stayed Stubbornly High in February**\
+`Economists are bracing for intensifying price pressures and slower growth, posing a challenge for the Federal Reserve.`\
+https://nytimes.com/2025/03/12/business/inflation-cpi-february-economy.html
+
 **The Iditarod Winner Just Wanted to Get His Sled Dogs Home**\
 `After the 2020 race, it took a vintage plane to get Thomas Waerner and his 16 dogs back home to Norway from Alaska at the start of the pandemic.`\
 https://nytimes.com/2025/03/12/style/thomas-waerner-iditarod-covid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/style/baked-feta-pasta-pandemic-meal.html
 **Go ahead and applaud Bears GM Ryan Poles this offseason — he deserves it**\
 `The Bears have three new starters on their offensive line, possibly two more on defense and the draft is still six weeks away.`\
 https://nytimes.com/athletic/6195229/2025/03/12/bears-ryan-poles-winning-offseason/
-
-**As F1 braces for a dramatic season, our staff shares its most anticipated storylines**\
-`Here's what we'll be watching as the lights go out on F1's most anticipated season in years.`\
-https://nytimes.com/athletic/6188528/2025/03/12/f1-season-preview-storylines/
-
-**The future won’t believe us about Nikola Jokić**\
-`Nikola Jokić has so normalized ridiculous that it has desensitized us from appropriate reverence.`\
-https://nytimes.com/athletic/6194918/2025/03/12/nikola-jokic-nba-mvp-debate/
 
