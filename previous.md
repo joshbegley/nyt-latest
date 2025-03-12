@@ -1,3 +1,7 @@
+**In Trump’s Shadow, Greenland Votes for a New Government**\
+`President Trump has expressed a desire to “get” Greenland, but the party that won Tuesday’s election is in no rush to change the status quo.`\
+https://nytimes.com/2025/03/12/world/europe/greenland-election.html
+
 **Bayern Munich's Leon Goretzka and a lesson in defiance**\
 `Goretzka once appeared to have no future at Bayern Munich. His virtuoso display against Bayern Leverkusen firmly contradicts that narrative `\
 https://nytimes.com/athletic/6196085/2025/03/12/leon-goretzka-bayern-munich-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/nyregion/new-york-pandemic-heroes.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/03/12/crosswords/spelling-bee-forum.html
-
-**On the Trail of the Los Angeles Fires**\
-`We hiked to the origins of the Palisades and Eaton fires to investigate how they started.`\
-https://nytimes.com/2025/03/12/insider/los-angeles-fires-maps.html
 
