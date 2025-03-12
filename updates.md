@@ -1,3 +1,7 @@
+**Are Schools Succeeding? Trump Education Department Cuts Could Make It Hard to Know.**\
+`At least 800 education department research employees and outside partners have lost jobs. The cuts will decimate research and data collection.`\
+https://nytimes.com/2025/03/12/us/education-department-cuts.html
+
 **Tiny Love Stories: ‘My First Post-Divorce Girlfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/03/12/style/tiny-modern-love-stories-my-first-post-divorce-girlfriend.html

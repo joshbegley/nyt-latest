@@ -1,3 +1,7 @@
+**Are Schools Succeeding? Trump Education Department Cuts Could Make It Hard to Know.**\
+`At least 800 education department research employees and outside partners have lost jobs. The cuts will decimate research and data collection.`\
+https://nytimes.com/2025/03/12/us/education-department-cuts.html
+
 **Tiny Love Stories: ‘My First Post-Divorce Girlfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/03/12/style/tiny-modern-love-stories-my-first-post-divorce-girlfriend.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197454/2025/03/12/pistons-jb-bickerstaff-winning/
 **Think Twice Before Using These Words**\
 `Readers react to the Trump administration’s suppression of words in government documents. Also: Bullied Republicans; Iran’s economy.`\
 https://nytimes.com/2025/03/12/opinion/trump-censorship-words.html
-
-**Who should Amorim pick in his biggest game at Manchester United?**\
-`Our experts select their XIs for United's crucial Europa League tie at Old Trafford`\
-https://nytimes.com/athletic/6197284/2025/03/12/man-utd-real-sociedad-ruben-amorim-team/
 
