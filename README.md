@@ -1,3 +1,11 @@
+**Jury Awards $120 Million to Illinois Men Wrongfully Convicted of Murder**\
+`John Fulton and Anthony Mitchell were teenagers when they were coerced into giving false confessions in a 2003 murder in Chicago.`\
+https://nytimes.com/2025/03/11/us/chicago-murder-wrongful-conviction-award.html
+
+**Bills land DE Joey Bosa on 1-year, $12.6M deal: Sources**\
+`Bosa's 72 sacks in his nine seasons with the Chargers are second-most in team history. He arrives after the Bills released Von Miller.`\
+https://nytimes.com/athletic/6184382/2025/03/11/joey-bosa-free-agency-signing-bills/
+
 **Control of Minnesota House Split After Democrat Wins Special Election**\
 `Republicans in the Minnesota House lost a one-seat edge in the Capitol, where tensions over party dominance have simmered for weeks.`\
 https://nytimes.com/2025/03/11/us/minnesota-state-house-representative-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
 **Musk Seeks to Put $100 Million Directly Into Trump Political Operation**\
 `Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
-
-**Junior Bridgeman, ex-NBA player and entrepreneur, dies at 71**\
-`Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
-https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
-
-**Alexander-Arnold unlikely to play in Carabao Cup final - Slot**\
-`The right-back, 26, was replaced on 73 minutes at Anfield on Tuesday after landing awkwardly as he stretched to attempt to intercept a pass.`\
-https://nytimes.com/athletic/6195733/2025/03/11/trent-alexander-arnold-injury-update-league-cup-final/
 
