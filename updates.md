@@ -1,3 +1,11 @@
+**E.P.A. Cancels Climate Grants, Intensifying Battle Over $20 Billion**\
+`Here is what we know about the billions in funds that have led to federal investigations, lawsuits and frozen bank accounts for climate nonprofit groups.`\
+https://nytimes.com/2025/03/12/climate/epa-climate-grants-canceled.html
+
+**Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Sources**\
+`In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
+https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
+
 **Rams inform Cooper Kupp they'll release him, ending 8-year run with former Super Bowl MVP: Source**\
 `In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
 https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
