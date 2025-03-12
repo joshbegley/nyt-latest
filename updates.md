@@ -1,3 +1,7 @@
+**Europe Makes Its First Move as Trump’s Trade Fight Widens**\
+`The European Union responded to American steel and aluminum tariffs with its own tariffs on boats and bourbon — and pledges of more to come.`\
+https://nytimes.com/2025/03/12/world/europe/eu-us-trump-tariffs.html
+
 **Jimmy Kimmel Doubts Trump Will Really Buy a Tesla**\
 `“But why should he, when he did a big commercial for them today, absolutely free?” Kimmel said after the president brought some of Elon Musk’s cars to the White House.`\
 https://nytimes.com/2025/03/12/arts/television/jimmy-kimmel-trump-tesla.html
