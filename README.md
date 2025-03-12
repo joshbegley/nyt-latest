@@ -1,3 +1,7 @@
+**Are You Asian American? Let’s Talk About Your (Gold) Jewelry**\
+`Please tell us about your relationship to gold, jewelry or other inherited adornments of precious metals and how you wear them.`\
+https://nytimes.com/2025/03/12/style/asian-american-jewelry-gold.html
+
 **Sidney Crosby is chasing a Wayne Gretzky record, too**\
 `Crosby doesn't think about it much, but he is on pace to pass Gretzky's record for most consecutive NHL seasons averaging a point per game.`\
 https://nytimes.com/athletic/6198201/2025/03/12/sidney-crosby-wayne-gretzky-nhl-points-per-game-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
 **Commanders agree to re-sign QB Marcus Mariota to 1-year deal: Sources**\
 `Mariota, who played for Washington in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free-agents list.`\
 https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/
-
-**Fantasy basketball 'All-Winners' picks, plus Stephon Castle rising, Paul George falling**\
-`Eric Wong identifies the fantasy basketball league-winners this season and shares some specialists to help those in category need.`\
-https://nytimes.com/athletic/6197774/2025/03/12/fantasy-basketball-mvps-league-winners-risers-fallers/
 
