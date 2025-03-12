@@ -1,3 +1,7 @@
+**Republican Confronted After Misgendering Trans Democrat**\
+`After the Republican lawmaker misgendered Representative Sarah McBride of Delaware, the ranking Democrat in the subcommittee spoke up in her defense.`\
+https://nytimes.com/video/us/politics/100000010046707/mcbride-self-transgender-congress.html
+
 **An Unexpected Trump Bump for the World’s Centrists**\
 `As President Trump’s “shock and awe” policies radiate around the world, they are galvanizing support for moderate leaders and unifying Europe.`\
 https://nytimes.com/2025/03/12/world/europe/trump-starmer-europe-centrists.html
