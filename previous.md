@@ -1,4 +1,4 @@
-**NFL announces compensatory draft picks for 2025 NFL Drarft**\
+**NFL announces compensatory draft picks for 2025 NFL Draft**\
 `Baltimore, Dallas and Miami were awarded the maximum allotment of picks. `\
 https://nytimes.com/athletic/6195896/2025/03/11/nfl-draft-compensatory-picks-2025/
 
