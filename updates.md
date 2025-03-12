@@ -1,3 +1,11 @@
+**Indianapolis Man Who Killed Several Family Members Gets 360-Year Sentence**\
+`The man, Raymond Childs III, was 17 when he turned a gun on his parents, siblings and his brother’s pregnant girlfriend in January 2021, prosecutors said.`\
+https://nytimes.com/2025/03/12/us/indianapolis-family-murder-sentencing.html
+
+**Panthers CB Mike Jackson has finally found a home opposite Jaycee Horn**\
+`When Mike Jackson was traded to Carolina, it brought a "new sense of life." He was rewarded with a 2-year deal and is eager to get after it.`\
+https://nytimes.com/athletic/6198512/2025/03/12/panthers-mike-jackson-free-agency-jaycee-horn/
+
 **Columbia Activist’s Case Goes to Court**\
 `Also, a government shutdown looms. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/03/12/briefing/trump-columbia-activist-arrest-trade-war-canada-eu.html
