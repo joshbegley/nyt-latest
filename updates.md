@@ -1,3 +1,7 @@
+**Online Influencer Stabbed to Death in Tokyo While Livestreaming**\
+`Police in Japan have charged a man with the murder, saying he was a follower who had tracked her location by the buildings behind her as she filmed herself.`\
+https://nytimes.com/2025/03/12/world/asia/japan-influencer-stabbed-livestreaming.html
+
 **Chinese Warships Circle Australia and Leave It Feeling ‘Near-Naked’**\
 `The unusual deployment by three navy ships over the past month has prompted a debate in Australia about its aging fleet and reliance on the United States.`\
 https://nytimes.com/2025/03/12/world/australia/china-warships-australia-aukus.html

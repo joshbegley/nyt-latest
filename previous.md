@@ -1,3 +1,7 @@
+**Online Influencer Stabbed to Death in Tokyo While Livestreaming**\
+`Police in Japan have charged a man with the murder, saying he was a follower who had tracked her location by the buildings behind her as she filmed herself.`\
+https://nytimes.com/2025/03/12/world/asia/japan-influencer-stabbed-livestreaming.html
+
 **Chinese Warships Circle Australia and Leave It Feeling ‘Near-Naked’**\
 `The unusual deployment by three navy ships over the past month has prompted a debate in Australia about its aging fleet and reliance on the United States.`\
 https://nytimes.com/2025/03/12/world/australia/china-warships-australia-aukus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6190405/2025/03/12/paul-mullin-wrexham-exit/
 **Chelsea's most important match from each decade: Record crowds, Gronkjaer and Munich**\
 `The Athletic has taken a look at the most important matches in each decade for Chelsea over their 120 years`\
 https://nytimes.com/athletic/6182393/2025/03/12/chelsea-120-years-matches-decades/
-
-**How can Spurs create without the unique skills of Dejan Kulusevski?**\
-`Spurs don't have a like-for-like replacement for the Swede, so who can shoulder the creative burden in the crucial decider against AZ?`\
-https://nytimes.com/athletic/6194718/2025/03/12/spurs-kulusevski-injury-maddison/
 
