@@ -1,3 +1,11 @@
+**The Washington Wizards need hope. The Detroit Pistons show what's possible**\
+`It took the Pistons awhile, but they're showing that some lottery luck and smart personnel moves can lead to a big turnaround.`\
+https://nytimes.com/athletic/6196805/2025/03/12/washington-wizards-detroit-pistons/
+
+**Stocks Pare Losses but Investors Remain Wary of Trade Tensions**\
+`Markets steadied on Wednesday, despite uncertainty spurred by tit-for-tat tariffs and the direction of the Trump administration’s economic policy.`\
+https://nytimes.com/2025/03/12/business/stock-markets-trading-tariffs.html
+
 **The 3.16.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/03/12/the-31625-issue
