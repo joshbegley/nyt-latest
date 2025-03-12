@@ -1,4 +1,4 @@
-**Marcus Mariota, Commanders agree to 1-year deal: Sources**\
+**Commanders agree to re-sign QB Marcus Mariota to 1-year deal: Sources**\
 `Mariota, who played for the Washington Commanders in 2024, was the No. 7 quarterback on The Athletic’s updated top 150 free agents list.`\
 https://nytimes.com/athletic/6184735/2025/03/12/marcus-mariota-free-agency-signing-2025-commanders/
 
