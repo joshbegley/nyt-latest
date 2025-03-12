@@ -1,3 +1,19 @@
+**Columbia Activist’s Case Goes to Court**\
+`Also, a government shutdown looms. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/03/12/briefing/trump-columbia-activist-arrest-trade-war-canada-eu.html
+
+**Lions free agency tracker: Depth will be a priority for a team devastated by injuries last season**\
+`The Lions don't have a lot needs to fill this offseason.`\
+https://nytimes.com/athletic/6189041/2025/03/12/lions-free-agency-signings-depth/
+
+**Panthers CB Mike Jackson wandered the NFL 5 years; he's found a home opposite Jaycee Horn**\
+`When Mike Jackson was traded to Carolina, it was a "new sense of life." He was rewarded with a 2-year deal and is eager to get after it.`\
+https://nytimes.com/athletic/6198512/2025/03/12/panthers-mike-jackson-free-agency-jaycee-horn/
+
+**Maps: Two Small Quakes Strike Near Puerto Rico Coastline**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/12/weather/puerto-rico-quake-tracker.html
+
 **E.P.A. Declares ‘Greatest Day of Deregulation Our Nation Has Seen’**\
 `Lee Zeldin, the E.P.A. administrator, said he would revise or repeal dozens of air, water and climate protections to help industries.`\
 https://nytimes.com/2025/03/12/climate/epa-zeldin-rollbacks-pollution.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-si
 **Justice Dept. Moving to Downsize Units Investigating Fraud and Corruption**\
 `The plans, which have not been finalized, are the latest effort by the Trump administration to limit the ability of prosecutors to bring sensitive and politically fraught cases.`\
 https://nytimes.com/2025/03/12/us/politics/justice-dept-fraud-corruption.html
-
-**John Seidler officially takes over as Padres' control person**\
-`Day-to-day operations are expected to remain largely the same under the older brother of late Padres owner Peter Seidler.`\
-https://nytimes.com/athletic/6198455/2025/03/12/john-seidler-takes-over-padres-control-person/
-
-**SpaceX to Launch Crew-10 Astronauts for NASA to the I.S.S.: How to Watch**\
-`This latest rotation of space station crews will bring Butch Wilmore and Suni Williams home after an extended stay in orbit that many have described as a stranding.`\
-https://nytimes.com/2025/03/12/science/nasa-spacex-astronauts-iss-launch.html
-
-**Russell Wilson to visit Browns, Giants: Sources**\
-`Wilson, 36, finished 6-6 including regular season and playoff appearances with the Pittsburgh Steelers last year. `\
-https://nytimes.com/athletic/6198394/2025/03/12/russell-wilson-visit-browns-giants-free-agency/
-
-**Thursday Briefing: A Widening Trade War**\
-`Plus, a new season of books.`\
-https://nytimes.com/2025/03/12/briefing/tariff-trade-war-khalil-trial-syria-conflict.html
 
