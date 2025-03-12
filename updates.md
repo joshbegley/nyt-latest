@@ -1,3 +1,11 @@
+**Emboldened by Trump, Serbia’s Leader Cracks Down on Activist Groups**\
+`Roiled by months of nationwide protests it blames on foreign meddling, Serbia has sent the police in to raid groups that received funds from U.S.A.I.D.`\
+https://nytimes.com/2025/03/12/world/europe/emboldened-by-trump-serbias-leader-cracks-down-on-activist-groups.html
+
+**Students in Serbia Lead Marches to Demand Systemic Change**\
+`The antigovernment protests began in late 2024, calling for accountability for the collapse of a concrete canopy at a railway station in northern Serbia. But public anger has broadened, with protesters now denouncing corruption and the erosion of the rule of law.`\
+https://nytimes.com/video/world/europe/100000010035691/students-in-serbia-lead-marches-to-demand-systemic-change.html
+
 **Palm Beach Society Goes On, With and Without Trump**\
 `At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
 https://nytimes.com/2025/03/12/style/palm-beach-florida-trump.html
