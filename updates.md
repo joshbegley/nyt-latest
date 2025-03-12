@@ -1,3 +1,7 @@
+**Shootout win over Avalanche 'huge' for confidence — and standings: Wild takeaways**\
+`Pulling off a victory against a division rival despite key injuries helped steady the Wild amid a tenuous stretch in the schedule.`\
+https://nytimes.com/athletic/6196726/2025/03/12/wild-shootout-win-confidence-playoffs-avalanche/
+
 **Wednesday Briefing**\
 `U.S. aid to Ukraine is back on.`\
 https://nytimes.com/2025/03/12/briefing/ukraine-russia-canada-duterte.html
