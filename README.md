@@ -1,3 +1,11 @@
+**Chinese Warships Circle Australia and Leave It Feeling ‘Near-Naked’**\
+`The unusual deployment by three navy ships over the past month has prompted a debate in Australia about its aging fleet and reliance on the United States.`\
+https://nytimes.com/2025/03/12/world/australia/china-warships-australia-aukus.html
+
+**Passenger Swallows Rosary Beads on Chaotic Flight to Miami**\
+`The man also kicked a flight attendant, an arrest affidavit said. He and his sister said they were traveling to Haiti to escape “religious attacks of a spiritual nature.”`\
+https://nytimes.com/2025/03/12/us/american-airlines-passenger-rosary-beads.html
+
 **NASA Launches Powerful Space Telescope**\
 `A SpaceX Falcon 9 lifted off from California carrying the telescope, named SPHEREx, along with a suite of satellites called PUNCH.`\
 https://nytimes.com/video/science/space/100000010046848/spherex-punch-spacex-nasa.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6182393/2025/03/12/chelsea-120-years-matches-decade
 **How can Spurs create without the unique skills of Dejan Kulusevski?**\
 `Spurs don't have a like-for-like replacement for the Swede, so who can shoulder the creative burden in the crucial decider against AZ?`\
 https://nytimes.com/athletic/6194718/2025/03/12/spurs-kulusevski-injury-maddison/
-
-**Federico Valverde: Madrid's jack of all trades… who literally dreamed of playing for them**\
-`The Uruguayan has made himself essential to Ancelotti on the wing, in midfield and now at right-back. This is his story`\
-https://nytimes.com/athletic/6194831/2025/03/12/federico-valverde-real-madrid-right-back/
-
-**Old Trafford being bulldozed will hurt - but Man Utd need a new stadium**\
-`Manchester United's home since 1910 is special but tired. A new stadium feels right for a club in need of a fresh start...`\
-https://nytimes.com/athletic/6194963/2025/03/12/manchester-united-old-trafford-new-stadium-fans/
 
