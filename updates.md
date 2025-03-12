@@ -1,3 +1,7 @@
+**Bayern Munich's Leon Goretzka and a lesson in defiance**\
+`Goretzka once appeared to have no future at Bayern Munich. His virtuoso display against Bayern Leverkusen firmly contradicts that narrative `\
+https://nytimes.com/athletic/6196085/2025/03/12/leon-goretzka-bayern-munich-champions-league/
+
 **Europe Makes Its First Move as Trump’s Trade Fight Widens**\
 `The European Union responded to American steel and aluminum tariffs with its own tariffs on boats and bourbon — and pledges of more to come.`\
 https://nytimes.com/2025/03/12/world/europe/eu-us-trump-tariffs.html
