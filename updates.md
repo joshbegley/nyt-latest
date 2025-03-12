@@ -1,3 +1,19 @@
+**Broncos, Evan Engram agree to 2-year deal: How TE can elevate Bo Nix**\
+`The two-time Pro Bowler is a season removed from a career-high 114 receptions and gives Denver a new dimension on offense. `\
+https://nytimes.com/athletic/6198439/2025/03/12/evan-engram-broncos-free-agency-signing-2025/
+
+**Diving With Siberian Bone Hunters**\
+`A search for the fossils of long-extinct creatures, hidden in Russia’s frigid waters.`\
+https://nytimes.com/interactive/2025/03/12/magazine/russia-arctic-fossils-expedition.html
+
+**Coco Gauff out of Indian Wells after relentless performance from Belinda Bencic**\
+`Coco Gauff exits Indian Wells after a three-set defeat to Belinda Bencic, who extended her stirring comeback from giving birth.`\
+https://nytimes.com/athletic/6198470/2025/03/12/coco-gauff-indian-wells-result-analysis-bencic/
+
+**Steelers agree to terms with ex-Eagles cornerback Darius Slay: Reports**\
+`A three-time Pro Bowler in five years with Philadelphia, Slay, 34, brings veteran experience to Pittsburgh's locker room.`\
+https://nytimes.com/athletic/6185216/2025/03/12/darius-slay-steelers-deal-nfl-free-agency-2025/
+
 **USWNT forward Mallory Swanson will miss Chicago Stars' NWSL season opener**\
 `Swanson has missed time with Chicago and the USWNT. It's unclear when she will return.`\
 https://nytimes.com/athletic/6198174/2025/03/12/mallory-swanson-chicago-starts-season-nwsl/
