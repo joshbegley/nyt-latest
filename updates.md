@@ -1,3 +1,19 @@
+**What’s in Our Queue? ‘Companion’ and More**\
+`Text by Eli Tan`\
+https://nytimes.com/card/2025/03/12/arts/editors-recommendations-companion
+
+**Swedish Battery Maker Northvolt Collapses, a Blow to Europe**\
+`The company and its assets will be sold after it filed for bankruptcy in Sweden, sinking Europe’s best hope for competing against Asian rivals.`\
+https://nytimes.com/2025/03/12/world/europe/northvolt-battery-bankruptcy.html
+
+**How to watch, odds for Timberwolves at Nuggets with Nikola Jokić hosting Anthony Edwards**\
+`Two of the West's hottest teams take Wednesday's national TV nightcap. Nikola Jokić gets to keep building a case for his fourth NBA MVP.`\
+https://nytimes.com/athletic/6195869/2025/03/12/timberwolves-nuggets-how-to-watch-nba-espn-edwards-jokic/
+
+**She’s Sober. He’s Not. Now What?**\
+`When one partner wants to cut back, or stops drinking altogether, the changes can reverberate throughout a relationship.`\
+https://nytimes.com/2025/03/12/well/family/couples-sober-drinking-alcohol.html
+
 **Spurs' Danso out with hamstring injury, will miss AZ clash**\
 `"We have to let it settle down before we get clarity on it," Spurs head coach Ange Postecoglou said on Danso's injury.`\
 https://nytimes.com/athletic/6196991/2025/03/12/kevin-danso-injury-tottenham/
