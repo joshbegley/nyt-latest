@@ -1,3 +1,7 @@
+**Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
+`The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
+https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
+
 **Emery excited for 'special' PSG reunion in Champions League**\
 `Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
 https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/

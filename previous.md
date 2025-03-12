@@ -1,3 +1,7 @@
+**Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
+`The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
+https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
+
 **Emery excited for 'special' PSG reunion in Champions League**\
 `Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
 https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/nyregion/waterbury-woman-stepson-captive-20-years
 **The New Yorker Embraces (Some) Modern Language**\
 `An update to the magazine’s style guide did away with anachronisms like “Web site” and “in-box.” But it was limited to what the staff felt were “lasting” changes.`\
 https://nytimes.com/2025/03/12/style/new-yorker-style-guide.html
-
-**Cowboys trade for Titans' Kenneth Murray in move to add LB depth**\
-`Murray started 14 games for Tennessee and recorded a team-leading 95 tackles in the 2024 season. `\
-https://nytimes.com/athletic/6198606/2025/03/12/kenneth-murray-cowboys-titans-trade/
 
