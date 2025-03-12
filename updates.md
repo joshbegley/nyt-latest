@@ -1,3 +1,11 @@
+**E.P.A. Declares ‘Greatest Day of Deregulation Our Nation Has Seen’**\
+`Lee Zeldin, the E.P.A. administrator, said he would revise or repeal dozens of air, water and climate protections to help industries.`\
+https://nytimes.com/2025/03/12/climate/epa-zeldin-rollbacks-pollution.html
+
+**Trump Official Will No Longer Testify in Challenge to Mass Firings**\
+`The government said in a court filing that Charles Ezell, who issued the memos that agencies interpreted as orders to fire thousands of employees, would not appear in court Thursday.`\
+https://nytimes.com/2025/03/12/us/politics/trump-federal-worker-firings-testify.html
+
 **Ex-Cowboys DE DeMarcus Lawrence joining Seahawks: How will he fit in Seattle?**\
 `Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
 https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/

@@ -1,3 +1,11 @@
+**E.P.A. Declares ‘Greatest Day of Deregulation Our Nation Has Seen’**\
+`Lee Zeldin, the E.P.A. administrator, said he would revise or repeal dozens of air, water and climate protections to help industries.`\
+https://nytimes.com/2025/03/12/climate/epa-zeldin-rollbacks-pollution.html
+
+**Trump Official Will No Longer Testify in Challenge to Mass Firings**\
+`The government said in a court filing that Charles Ezell, who issued the memos that agencies interpreted as orders to fire thousands of employees, would not appear in court Thursday.`\
+https://nytimes.com/2025/03/12/us/politics/trump-federal-worker-firings-testify.html
+
 **Protesters Surround Trump’s Border Czar on Khalil Detainment**\
 `Protesters yelled at Tom Homan that Mahmoud Khalil’s detainment by the Trump administration undermined the First Amendment, during a demonstration at the New York State Capitol.`\
 https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198394/2025/03/12/russell-wilson-visit-browns-gian
 **Thursday Briefing: A Widening Trade War**\
 `Plus, a new season of books.`\
 https://nytimes.com/2025/03/12/briefing/tariff-trade-war-khalil-trial-syria-conflict.html
-
-**How to watch Thunder at Celtics, tonight's possible Finals preview in Boston**\
-`College basketball towers over mid-March, but if there's one pro game to watch this week, it's this game between the Celtics and Thunder.`\
-https://nytimes.com/athletic/6195868/2025/03/12/how-to-watch-thunder-celtics-nba-sga-tatum/
-
-**Trump’s Revenge on Law Firms Seen as Undermining Justice System**\
-`The president’s use of government power to punish firms is seen by some legal experts as undercutting a basic tenet: the right to a strong legal defense.`\
-https://nytimes.com/2025/03/12/us/politics/trump-law-firms-perkins-coie.html
 
