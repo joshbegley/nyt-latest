@@ -1,3 +1,19 @@
+**Thursday Briefing: A Widening Trade War**\
+`Plus, a new season of books.`\
+https://nytimes.com/2025/03/12/briefing/tariff-trade-war-khalil-trial-syria-conflict.html
+
+**How to watch Thunder at Celtics, tonight's possible Finals preview in Boston**\
+`College basketball towers over mid-March, but if there's one pro game to watch this week, it's this game between the Celtics and Thunder.`\
+https://nytimes.com/athletic/6195868/2025/03/12/how-to-watch-thunder-celtics-nba-sga-tatum/
+
+**Trump’s Revenge on Law Firms Seen as Undermining Justice System**\
+`The president’s use of government power to punish firms is seen by some legal experts as undercutting a basic tenet: the right to a strong legal defense.`\
+https://nytimes.com/2025/03/12/us/politics/trump-law-firms-perkins-coie.html
+
+**Steelers add ex-Eagles CB Darius Slay, per reports, filling a key need on defense**\
+`A three-time Pro Bowler in five years with Philadelphia, Slay, 34, brings veteran experience to Pittsburgh's locker room.`\
+https://nytimes.com/athletic/6185216/2025/03/12/darius-slay-steelers-deal-nfl-free-agency-2025/
+
 **Broncos, Evan Engram agree to 2-year deal: How TE can elevate Bo Nix**\
 `The two-time Pro Bowler is a season removed from a career-high 114 receptions and gives Denver a new dimension on offense. `\
 https://nytimes.com/athletic/6198439/2025/03/12/evan-engram-broncos-free-agency-signing-2025/

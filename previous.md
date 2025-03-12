@@ -1,3 +1,15 @@
+**Thursday Briefing: A Widening Trade War**\
+`Plus, a new season of books.`\
+https://nytimes.com/2025/03/12/briefing/tariff-trade-war-khalil-trial-syria-conflict.html
+
+**How to watch Thunder at Celtics, tonight's possible Finals preview in Boston**\
+`College basketball towers over mid-March, but if there's one pro game to watch this week, it's this game between the Celtics and Thunder.`\
+https://nytimes.com/athletic/6195868/2025/03/12/how-to-watch-thunder-celtics-nba-sga-tatum/
+
+**Trump’s Revenge on Law Firms Seen as Undermining Justice System**\
+`The president’s use of government power to punish firms is seen by some legal experts as undercutting a basic tenet: the right to a strong legal defense.`\
+https://nytimes.com/2025/03/12/us/politics/trump-law-firms-perkins-coie.html
+
 **Broncos, Evan Engram agree to 2-year deal: How TE can elevate Bo Nix**\
 `The two-time Pro Bowler is a season removed from a career-high 114 receptions and gives Denver a new dimension on offense. `\
 https://nytimes.com/athletic/6198439/2025/03/12/evan-engram-broncos-free-agency-signing-2025/
@@ -10,7 +22,7 @@ https://nytimes.com/interactive/2025/03/12/magazine/russia-arctic-fossils-expedi
 `Coco Gauff exits Indian Wells after a three-set defeat to Belinda Bencic, who extended her stirring comeback from giving birth.`\
 https://nytimes.com/athletic/6198470/2025/03/12/coco-gauff-indian-wells-result-analysis-bencic/
 
-**Steelers agree to terms with ex-Eagles cornerback Darius Slay: Reports**\
+**Steelers add ex-Eagles CB Darius Slay, per reports, filling a key need on defense**\
 `A three-time Pro Bowler in five years with Philadelphia, Slay, 34, brings veteran experience to Pittsburgh's locker room.`\
 https://nytimes.com/athletic/6185216/2025/03/12/darius-slay-steelers-deal-nfl-free-agency-2025/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6198003/2025/03/12/bucks-nba-playoffs-pacers-daily/
 **Whiplash, confusion and ‘tariff fatigue’ pervade Canada’s steel capital.**\
 `Hamilton`\
 https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum/whiplash-confusion-and-tariff-fatigue-pervade-canadas-steel-capital
-
-**Cowboys acquire former first-round CB Kaiir Elam from Bills in pick swap trade**\
-`Elam, 23, started 13 of his 34 games in Buffalo after joining the team as a first-round pick in 2022.`\
-https://nytimes.com/athletic/6198304/2025/03/12/cowboys-former-bills-cb-kaiir-elam-trade/
-
-**Critic of Israel’s War in Gaza Considered for a Top Intelligence Post**\
-`The potential appointment has highlighted an emerging foreign policy fault line in the new Trump administration.`\
-https://nytimes.com/2025/03/12/us/politics/israel-gaza-intelligence-gabbard-daniel-davis.html
-
-**Fed Governor Michelle Bowman Is Trump’s Pick for Wall Street’s Top Cop**\
-`If confirmed, she is likely to usher in a more hands-off approach to financial regulation than her predecessor’s.`\
-https://nytimes.com/2025/03/12/business/michelle-bowman-federal-reserve-vice-chair.html
 
