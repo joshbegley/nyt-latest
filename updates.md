@@ -1,3 +1,19 @@
+**F1 president Domenicali extends contract through to 2029 season**\
+`The 59-year-old, who began in the role in 2021, will remain at the helm for another four-and-a-half years.`\
+https://nytimes.com/athletic/6198237/2025/03/12/stefano-domenicali-f1-president-contract-how-long/
+
+**Josh Allen on why he didn't need to reset the QB market with extension**\
+`Allen guided Buffalo to a fifth straight AFC East division title and the team's second AFC Championship game appearance in five years. `\
+https://nytimes.com/athletic/6198031/2025/03/12/bills-josh-allen-contract-extension-super-bowl/
+
+**Where Trump Is Giving Liberals a Hand**\
+`Being known as an enemy of Trump has become great politics in Canada and Mexico`\
+https://nytimes.com/2025/03/12/opinion/trump-canada-mexico.html
+
+**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/12/chicago-bears-2025-free-agency-tracker/
+
 **At Columbia, Tension Over Gaza Protests Hits Breaking Point Under Trump**\
 `There were protests, arrests, the departure of the school’s president. Then, a new administration arrived in Washington.`\
 https://nytimes.com/2025/03/12/nyregion/columbia-university-trump-protests.html
