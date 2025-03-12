@@ -1,3 +1,11 @@
+**Think Twice Before Using These Words**\
+`Readers react to the Trump administration’s suppression of words in government documents. Also: Bullied Republicans; Iran’s economy.`\
+https://nytimes.com/2025/03/12/opinion/trump-censorship-words.html
+
+**Who should Amorim pick in his biggest game at Manchester United?**\
+`Our experts select their XIs for United's crucial Europa League tie at Old Trafford`\
+https://nytimes.com/athletic/6197284/2025/03/12/man-utd-real-sociedad-ruben-amorim-team/
+
 **Blackpink’s Members Wrestle With the Mega-Group’s Long Shadow**\
 `On new solo releases, Jennie, Jisoo, Lisa and Rosé each face a choice: double-down or retreat from their roles in the smash K-pop girl group.`\
 https://nytimes.com/2025/03/12/arts/music/blackpink-solo-albums.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/us/yale-suspends-scholar-terrorism.html
 **Fake football shirts survey: 66% happy to carry on buying, 42% say no worries about doing it**\
 `Our survey of subscribers shows that the majority of fans have bought fake shirt in the past - and will keep doing so...`\
 https://nytimes.com/athletic/6196953/2025/03/12/fake-football-shirts-survey/
-
-**24 Works of Fiction to Read This Spring**\
-`Watch for a new “Hunger Games” prequel; a quirky romance from Emily Henry; novels by Chimamanda Ngozi Adichie and Ocean Vuong; and more.`\
-https://nytimes.com/2025/03/12/books/new-fiction-books-spring-2025.html
-
-**21 Nonfiction Books to Read This Spring**\
-`A posthumous collection of Joan Didion’s diaries, biographies of Yoko Ono and Mark Twain, a history of The Onion — and plenty more.`\
-https://nytimes.com/2025/03/12/books/new-nonfiction-books-spring-2025.html
 
