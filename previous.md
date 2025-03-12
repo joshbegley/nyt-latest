@@ -1,8 +1,12 @@
+**The Ducks were quiet at this year's trade deadline, and that's a good thing**\
+`The Ducks were once again soft sellers at the deadline but should make some noise this summer.`\
+https://nytimes.com/athletic/6197009/2025/03/12/ducks-nhl-trade-deadline-2025/
+
 **Syria Violence Marked by Sectarian and Revenge Killings, War Monitor Says**\
 `The Syrian Network for Human Rights said armed groups and foreign fighters aligned with the government but not integrated into it were largely responsible for the sectarian violence.`\
 https://nytimes.com/2025/03/12/world/europe/syria-alawite-killings-human-rights.html
 
-**How Ousmane Dembele's false-nine role and PSG's elite movement proved too much for Liverpool**\
+**How Dembele's false-nine role and PSG's movement proved too much for Liverpool**\
 `Luis Enrique's side's intelligence and cohesion came to the fore perfectly at Anfield and left the hosts chasing shadows most of the night`\
 https://nytimes.com/athletic/6196886/2025/03/12/psg-liverpool-champions-league-dembele/
 
@@ -11,12 +15,16 @@ https://nytimes.com/athletic/6196886/2025/03/12/psg-liverpool-champions-league-d
 https://nytimes.com/2025/03/12/business/europe-defense-rheinmetall-earnings.html
 
 **Judges Are Pushing Back on Trump’s Actions. Here’s a Look at Key Rulings.**\
-`Taken as a whole, the rulings represent an effort to thwart Mr. Trump’s serial attempts to increase his power and the executive branch’s dominion over the government.`\
+`Taken as a whole, the rulings represent an effort to thwart President Trump’s serial attempts to increase his power and the executive branch’s dominion over the government.`\
 https://nytimes.com/2025/03/12/us/politics/trump-policy-executive-orders-rulings.html
 
 **MoneyCall: The fastest-growing sports league?**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter. `\
 https://nytimes.com/athletic/6196822/2025/03/12/nwsl-2025-season-preview-moneycall-newsletter/
+
+**2025 NFL free agency: Fantasy football winners, losers, ranks and more**\
+`Jake Ciely weighs in on all the offseason NFL deals that matter for fantasy football 2025, including DK Metcalf's trade to Pittsburgh.`\
+https://nytimes.com/athletic/6189413/2025/03/12/2025-nfl-free-agency-fantasy-football-winners-losers-ranks/
 
 **How to Spend Less Time on Social Media (or Leave It Altogether)**\
 `If you’re feeling overwhelmed but don’t quite have the willpower to curb your online habit, your phone can help you manage your time online.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/opinion/decline-religion-america.html
 **My Mother Is Punishing Me for Not Coming Out to Her Sooner. Help!**\
 `A young reader variously subjected to cruel words and the silent treatment is reaching the end of her rope with her mother, who has portrayed her daughter’s coming out as deceit.`\
 https://nytimes.com/2025/03/12/style/coming-out-retribution.html
-
-**Profiling the top utility-only players, and rookies to watch for fantasy baseball 2025**\
-`Gene McCaffrey runs through his ranking of utility-only options for fantasy baseball 2025, with one standing well above all others. `\
-https://nytimes.com/athletic/6181238/2025/03/12/profiling-top-utility-only-rookies-to-watch-fantasy-baseball-2025/
-
-**High government debt is seen as stoking inflation, research shows.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/03/12/business/trump-tariffs-steel-aluminum/high-government-debt-seen-stoking-inflation-research-shows
 
