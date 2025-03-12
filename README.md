@@ -1,3 +1,19 @@
+**F1 president Domenicali extends contract through to 2029 season**\
+`The 59-year-old, who began in the role in 2021, will remain at the helm for another four-and-a-half years.`\
+https://nytimes.com/athletic/6198237/2025/03/12/stefano-domenicali-f1-president-contract-how-long/
+
+**Josh Allen on why he didn't need to reset the QB market with extension**\
+`Allen guided Buffalo to a fifth straight AFC East division title and the team's second AFC Championship game appearance in five years. `\
+https://nytimes.com/athletic/6198031/2025/03/12/bills-josh-allen-contract-extension-super-bowl/
+
+**Where Trump Is Giving Liberals a Hand**\
+`Being known as an enemy of Trump has become great politics in Canada and Mexico`\
+https://nytimes.com/2025/03/12/opinion/trump-canada-mexico.html
+
+**Bears free agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/12/chicago-bears-2025-free-agency-tracker/
+
 **At Columbia, Tension Over Gaza Protests Hits Breaking Point Under Trump**\
 `There were protests, arrests, the departure of the school’s president. Then, a new administration arrived in Washington.`\
 https://nytimes.com/2025/03/12/nyregion/columbia-university-trump-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6197774/2025/03/12/fantasy-basketball-mvps-league-w
 **More Senators Should Follow Jeanne Shaheen’s Lead**\
 `Jeanne Shaheen, 78, is the latest Senate Democrat to say she won’t run for re-election. It’s the right call and there’s still time for others to follow.`\
 https://nytimes.com/live/2025/03/10/opinion/thepoint/jeanne-shaheen-retire-new-hampshire
-
-**Luis Matos and the other candidates for the Giants' last outfield spot**\
-`The Giants first four outfield spots are pretty set. Who should they carry for that fifth spot?`\
-https://nytimes.com/athletic/6197434/2025/03/12/sf-giants-outfield-depth-luis-matos-wade-meckler/
-
-**More New Era hats removed from MLB shop as Rangers hat sells for hundreds**\
-`Rangers hat becomes valuable collectors item as others now poised to follow suit `\
-https://nytimes.com/athletic/6197869/2025/03/12/new-era-rangers-astros-angels-overlap-hats/
-
-**Read J. Edgar Hoover’s Memo on Oswald’s Death**\
-`While he was F.B.I director, J. Edgar Hoover dictated the following memo shortly after Jack Ruby fatally shot Lee Harvey Oswald.`\
-https://nytimes.com/interactive/2025/03/12/us/hoover-oswald.html
-
-**Power leagues, NCAA working on rules enforcement for revenue sharing era**\
-`The new regulatory body stands to shift more of the oversight and control of college sports away from the NCAA and toward the conferences.`\
-https://nytimes.com/athletic/6197975/2025/03/12/power-conferences-ncaa-working-on-plans-for-enforcing-rules-of-new-revenue-sharing-era/
 
