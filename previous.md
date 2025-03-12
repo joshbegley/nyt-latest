@@ -1,6 +1,10 @@
+**How to watch the 2025 Big 12 men's basketball tourney: Game times, odds and more**\
+`The Big 12 Tournament begins on Tuesday and runs through Saturday. Kelvin Sampson's Houston Cougars open as the favorites.`\
+https://nytimes.com/athletic/6191169/2025/03/12/how-to-watch-big-12-mens-basketball-tournament/
+
 **Don’t Underestimate the Risks of Benzodiazepines**\
-`The prescription drugs — used to treat anxiety, panic attacks and sleep disorders — play a role in popular TV shows like “The White Lotus” and “The Pitt.”`\
-https://nytimes.com/2025/03/12/well/mind/benzodiazepines-use-risk.html
+`Prescription drugs like lorazepam — used to treat anxiety, panic attacks and sleep disorders — play a role in popular TV shows like “The White Lotus” and “The Pitt.”`\
+https://nytimes.com/2025/03/12/well/mind/lorazepam-white-lotus-risk-benzodiazepines.html
 
 **How to watch the 2025 ACC men's basketball tourney, with Cooper Flagg's Duke favored**\
 `Cooper Flagg and Duke are big favorites to win this week's conference tourney. Clemson, Louisville and Wake Forest are in the mix.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197401/2025/03/12/damar-hamlin-free-agency-signing
 **USWNT's Rodman says she wants to play abroad: 'Just a matter of when'**\
 `Rodman's remarks come after Naomi Girma and Jenna Nighswonger left the NWSL for Chelsea and Arsenal respectively in January.`\
 https://nytimes.com/athletic/6197424/2025/03/12/trinity-rodman-nwsl-transfer-uswnt/
-
-**L.A.’s Clear Skies Conceal a ‘Toxic Soup’**\
-`Scientists collecting water, air and soil samples in neighborhoods ravaged by fires say they’re concerned about long-term health risks for residents.`\
-https://nytimes.com/2025/03/12/well/los-angeles-fires-health.html
 
