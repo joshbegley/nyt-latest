@@ -1,8 +1,16 @@
+**After the trade deadline dust settled, who has the edge in the Central Division?**\
+`The Jets, Stars and Avalanche are all Stanley Cup contenders but let's break down which one is actually best built to win it.`\
+https://nytimes.com/athletic/6190938/2025/03/12/nhl-central-division-stanley-cup-checklist/
+
+**Chargers free agency reset, Day 2: Radio silence but guard has to be a priority**\
+`The Chargers need to upgrade their interior offensive line and Lions guard Kevin Zeitler is one of their best options. `\
+https://nytimes.com/athletic/6196402/2025/03/12/chargers-free-agency-reset-kevin-zeitler/
+
 **Separatists in Pakistan Are Still Holding Hundreds of Hostages in Train Standoff**\
 `Security forces were trying to rescue passengers a day after Baloch ethnic fighters seized a train.`\
 https://nytimes.com/2025/03/12/world/asia/pakistan-militants-train-hostages.html
 
-**Ukraine Hopes for Peace, but Skepticism Runs Deep**\
+**Ukraine Welcomes Resumption of U.S. Military Aid**\
 `Ukraine, which welcomed the resumption of U.S. military assistance, has said it would agree to a 30-day cease-fire if Russia does the same.`\
 https://nytimes.com/2025/03/12/world/europe/ukraine-russia-cease-fire-skepticism.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6195948/2025/03/12/blackhawks-jones-levshunov-david
 **Yankees fans are mad and second guessing everything. But do they have a point?**\
 `Gerrit Cole's season-ending surgery is one of several blows the Yankees have sustained so far. Should they have done things differently?`\
 https://nytimes.com/athletic/6195475/2025/03/12/ny-yankees-offseason-second-guessing/
-
-**Roman Anthony, MLB's top prospect, impressed from an early age: 'He’s always been really good'**\
-`Anthony's big-league debut is nearing. He's handled every challenge he's faced thus far, and he's ready for the toughest one yet.`\
-https://nytimes.com/athletic/6194679/2025/03/12/roman-anthony-red-sox-mlb-top-prospect/
-
-**Van Dijk says he has 'no idea' about Liverpool future**\
-`Van Dijk, like Mohamed Salah and Trent Alexander-Arnold, is out of contract at Liverpool at the end of this season.`\
-https://nytimes.com/athletic/6197033/2025/03/12/virgil-van-dijk-contract-liverpool-latest/
 
