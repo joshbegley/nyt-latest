@@ -1,3 +1,19 @@
+**Don’t Underestimate the Risks of Benzodiazepines**\
+`The prescription drugs — used to treat anxiety, panic attacks and sleep disorders — play a role in popular TV shows like “The White Lotus” and “The Pitt.”`\
+https://nytimes.com/2025/03/12/well/mind/benzodiazepines-use-risk.html
+
+**How to watch the 2025 ACC men's basketball tourney, with Cooper Flagg's Duke favored**\
+`Cooper Flagg and Duke are big favorites to win this week's conference tourney. Clemson, Louisville and Wake Forest are in the mix.`\
+https://nytimes.com/athletic/6191547/2025/03/12/how-to-watch-acc-basketball-tournament-duke-cooper-flagg-ncaa/
+
+**After Nearly 125 Years, a Lost Jewel by Ravel Gets Its Premiere**\
+`A prelude and dance by the French master recently surfaced in a Paris library. Gustavo Dudamel and the New York Philharmonic will give the world premiere.`\
+https://nytimes.com/2025/03/12/arts/music/ravel-lost-manuscript-dudamel-ny-philharmonic.html
+
+**A University Denies Benefits to Gay Spouses. Can I Attend to Save Money?**\
+`The magazine’s Ethicist columnist on a conflict of morals and budget.`\
+https://nytimes.com/2025/03/12/magazine/university-discrimination-ethics.html
+
 **Trump’s Losses Raise a Question: Should One Judge Set National Policy?**\
 `Trial-court judges continue to block the president’s agenda with injunctions that apply across the country. Some conservatives want to limit that power.`\
 https://nytimes.com/2025/03/12/us/trump-judges.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6197424/2025/03/12/trinity-rodman-nwsl-transfer-usw
 **L.A.’s Clear Skies Conceal a ‘Toxic Soup’**\
 `Scientists collecting water, air and soil samples in neighborhoods ravaged by fires say they’re concerned about long-term health risks for residents.`\
 https://nytimes.com/2025/03/12/well/los-angeles-fires-health.html
-
-**Roasted Broccoli is Good. Here’s How to Make It Great.**\
-`Ali Slagle has seven easy, clever ways to turn a staple side into a star.`\
-https://nytimes.com/2025/03/12/dining/roasted-broccoli-recipes.html
-
-**Rangers' Jonathan Quick to return for 19th NHL season, signing 1-year extension**\
-`The 39-year-old Quick is already the all-time leader in wins for an American-born goalie with 402.`\
-https://nytimes.com/athletic/6197470/2025/03/12/rangers-jonathan-quick-extension/
-
-**Bills offseason tracker: Where will Buffalo's cap space be spent in a pivotal offseason?**\
-`The Bills got a number of important contracts done before free agency opens.`\
-https://nytimes.com/athletic/6184048/2025/03/12/bills-free-agency-offseason-tracker/
-
-**Scoop City: Why some teams get free third-round picks, how the comp system works**\
-`You might be wondering how the NFL&#8217;s compensatory pick system works.`\
-https://nytimes.com/athletic/6197453/2025/03/12/nfl-compensatory-picks-explained-scoop-city/
 
