@@ -1,3 +1,7 @@
+**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty shootout perfection**\
+`How French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
+https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
+
 **Minnesota State House District 40B Special Election Results**\
 `Get live results and maps from the 2025 Minnesota State House special election.`\
 https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194951/2025/03/11/champions-league-psg-liverpool-b
 **Ravens, WR DeAndre Hopkins agree to 1-year deal: Source**\
 `Hopkins was ranked No. 40 overall, and the No. 4 wide receiver, on The Athletic's NFL free agency top 150.`\
 https://nytimes.com/athletic/6178369/2025/03/11/deandre-hopkins-ravens-free-agency-signing-2025/
-
-**Republican Refers to Transgender Member as a Man, Cutting Short a House Hearing**\
-`Representative Keith Self of Texas insisted on calling Representative Sarah McBride, the first openly transgender member of Congress, “Mr. McBride,” and adjourned the session when challenged about it.`\
-https://nytimes.com/2025/03/11/us/politics/sarah-mcbride-keith-self-transgender.html
 

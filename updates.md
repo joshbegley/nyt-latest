@@ -1,3 +1,7 @@
+**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty shootout perfection**\
+`How French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
+https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
+
 **Minnesota State House District 40B Special Election Results**\
 `Get live results and maps from the 2025 Minnesota State House special election.`\
 https://nytimes.com/interactive/2025/03/11/us/elections/results-minnesota-state-house-district-40b-special.html

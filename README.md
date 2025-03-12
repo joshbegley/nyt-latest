@@ -1,5 +1,5 @@
-**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty shootout perfection**\
-`How French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
+**A coin toss, megaphone and Donnarumma: Dissecting PSG's penalty perfection**\
+`How the French champions made their own slice of history at Anfield in a thrilling display of nerve - and some outside factors`\
 https://nytimes.com/athletic/6196282/2025/03/11/psg-liverpool-penalties-donnarumma/
 
 **Minnesota State House District 40B Special Election Results**\
@@ -22,7 +22,7 @@ https://nytimes.com/2025/03/11/nyregion/mahmoud-khalil-protest-white-house.html
 `Elon Musk has signaled he wants to make some donations not just to his own super PAC, which is called America PAC and has spent heavily on President Trump in the past, but to an outside entity.`\
 https://nytimes.com/2025/03/11/us/politics/elon-musk-trump-donation.html
 
-**Junior Bridgeman, Louisville basketball great, dies at 71**\
+**Junior Bridgeman, ex-NBA player and entrepreneur, dies at 71**\
 `Bridgeman suffered a medical emergency during a fundraiser at a local hotel in Louisville.`\
 https://nytimes.com/athletic/6195801/2025/03/11/junior-bridgeman-louisville-basketball-bucks-owner-dies/
 
