@@ -1,3 +1,7 @@
+**Word of the Day: nonchalantly**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/12/learning/word-of-the-day-nonchalantly.html
+
 **Why Canucks' lifeless loss to Canadiens had additional cost**\
 `Mostly lifeless isn't going to get it done. Not at this time of year.`\
 https://nytimes.com/athletic/6196742/2025/03/12/canucks-canadiens-loss-3-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194963/2025/03/12/manchester-united-old-trafford-n
 **Why do clubs from the north east not win major trophies?**\
 `Poor decision-making, along with some untimely ill-luck, have seen Newcastle, Middlesbrough and Sunderland win only three cups in 70 years`\
 https://nytimes.com/athletic/6191202/2025/03/12/newcastle-middlesbrough-sunderland-trophies/
-
-**Has Guardiola's style of football become outdated - or is it more complicated than that?**\
-`In previous seasons, City’s very different approach compared to the rest of the league had been held up as a reason for their dominance`\
-https://nytimes.com/athletic/6191756/2025/03/12/pep-guardiola-style-football-outdated-or-not/
 
