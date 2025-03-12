@@ -1,3 +1,7 @@
+**Europe Makes Its First Move as Trump’s Trade Fight Widens**\
+`The European Union responded to American steel and aluminum tariffs with its own tariffs on boats and bourbon — and pledges of more to come.`\
+https://nytimes.com/2025/03/12/world/europe/eu-us-trump-tariffs.html
+
 **Jimmy Kimmel Doubts Trump Will Really Buy a Tesla**\
 `“But why should he, when he did a big commercial for them today, absolutely free?” Kimmel said after the president brought some of Elon Musk’s cars to the White House.`\
 https://nytimes.com/2025/03/12/arts/television/jimmy-kimmel-trump-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/insider/los-angeles-fires-maps.html
 **Paris Saint-Germain, at long last, are appointment viewing - thanks to Luis Enrique**\
 `Having finally won over their own supporters, PSG may yet win over neutrals - they have become a team and are thrilling to watch`\
 https://nytimes.com/athletic/6196329/2025/03/12/paris-saint-germain-luis-enrique-liverpool/
-
-**Online Influencer Stabbed to Death in Tokyo While Livestreaming**\
-`Police in Japan have charged a man with the murder, saying he was a follower who had tracked her location by the buildings behind her as she filmed herself.`\
-https://nytimes.com/2025/03/12/world/asia/japan-influencer-stabbed-livestreaming.html
 
