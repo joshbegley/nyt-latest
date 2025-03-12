@@ -1,3 +1,7 @@
+**Ex-Cowboys DE DeMarcus Lawrence joining Seahawks: How will he fit in Seattle?**\
+`Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
+https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/
+
 **Protesters Surround Trump’s Border Czar on Khalil Detainment**\
 `Protesters yelled at Tom Homan that Mahmoud Khalil’s detainment by the Trump administration undermined the First Amendment, during a demonstration at the New York State Capitol.`\
 https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-protest.html

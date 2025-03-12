@@ -6,7 +6,7 @@ https://nytimes.com/video/nyregion/100000010048773/mahmoud-khalil-detention-prot
 `District leaders say that a proposed cut to the city budget, part of a plan to avert a federal government shutdown, is unfair. The city raises most of its own money but cannot control how it is spent.`\
 https://nytimes.com/2025/03/12/us/congress-washington-dc-shutdown-budget-cut.html
 
-**Cowboys star DeMarcus Lawrence, Seahawks agree to 3-year deal: Source**\
+**Ex-Cowboys DE DeMarcus Lawrence joining Seahawks: How will he fit in Seattle?**\
 `Lawrence, who turns 33 in April, started Dallas' first four games in 2024 before suffering a season-ending injury.`\
 https://nytimes.com/athletic/6195694/2025/03/12/demarcus-lawrence-free-agency-signing-2025/
 
