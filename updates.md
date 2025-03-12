@@ -1,3 +1,11 @@
+**Chinese Warships Circle Australia and Leave It Feeling ‘Near-Naked’**\
+`The unusual deployment by three navy ships over the past month has prompted a debate in Australia about its aging fleet and reliance on the United States.`\
+https://nytimes.com/2025/03/12/world/australia/china-warships-australia-aukus.html
+
+**Passenger Swallows Rosary Beads on Chaotic Flight to Miami**\
+`The man also kicked a flight attendant, an arrest affidavit said. He and his sister said they were traveling to Haiti to escape “religious attacks of a spiritual nature.”`\
+https://nytimes.com/2025/03/12/us/american-airlines-passenger-rosary-beads.html
+
 **NASA Launches Powerful Space Telescope**\
 `A SpaceX Falcon 9 lifted off from California carrying the telescope, named SPHEREx, along with a suite of satellites called PUNCH.`\
 https://nytimes.com/video/science/space/100000010046848/spherex-punch-spacex-nasa.html
