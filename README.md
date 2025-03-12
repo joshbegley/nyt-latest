@@ -19,7 +19,7 @@ https://nytimes.com/2025/03/11/science/spacex-nasa-spherex-punch-launch.html
 https://nytimes.com/athletic/6196567/2025/03/11/pacers-bucks-tyrese-haliburton-comeback/
 
 **Blue Jackets stall out of the gate again, fall behind early in loss to Devils**\
-`An inability to get going at puck drop dogged all three losses in Columbus' most recent road trip.`\
+`An inability to get going at puck drop dogged all three losses in Columbus' most recent trip.`\
 https://nytimes.com/athletic/6196387/2025/03/11/blue-jackets-slow-start-marchenko-olivier-devils/
 
 **Cubs Opening Day roster projection 2.0: Matt Shaw makes the Tokyo Series team**\
