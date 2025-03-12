@@ -1,3 +1,15 @@
+**Trump’s Losses Raise a Question: Should One Judge Set National Policy?**\
+`Trial-court judges continue to block the president’s agenda with injunctions that apply across the country. Some conservatives want to limit that power.`\
+https://nytimes.com/2025/03/12/us/trump-judges.html
+
+**Climate Group Funded by Bill Gates Slashes Staff in Major Retreat**\
+`Breakthrough Energy, an umbrella group for energy and environmental efforts funded by Mr. Gates, is resetting for the Trump era.`\
+https://nytimes.com/2025/03/12/climate/bill-gates-breakthrough-energy-cuts.html
+
+**Scoop City: Why some teams get free third-round picks, how the comp system works**\
+`You might be wondering how the NFL&#8217;s compensatory pick system works.`\
+https://nytimes.com/athletic/6197453/2025/03/12/nfl-compensatory-picks-explained-scoop-city/
+
 **A Burned-Out Designer Tried to Heal by Making a Cozy Game**\
 `Davey Wreden, the writer of mind-bending video games, moves away from self-conscious cleverness in a tea shop simulator.`\
 https://nytimes.com/2025/03/12/arts/davey-wreden-wanderstop-stanley-parable.html
