@@ -1,3 +1,15 @@
+**Women’s Champions Classic returns with UConn-Iowa, Tennessee-Louisville games**\
+`This year, Iowa meets UConn in a 2024 Final Four rematch, while Tennessee faces Louisville.`\
+https://nytimes.com/athletic/6196285/2025/03/12/uconn-tennessee-iowa-louisville-champions-classic/
+
+**Canada announces Nations League roster: How new forwards will help Marsch**\
+`The Athletic analyses Canada's latest roster ahead of a Nations League semifinal against Mexico on March 20.`\
+https://nytimes.com/athletic/6195262/2025/03/12/canada-roster-squad-nations-league-finals/
+
+**Buy low on these fantasy baseball pitchers? Brandon Pfaadt, Sonny Gray and more**\
+`Brandon Pfaadt was the unluckiest pitcher of 2024 says Owen Poindexter, who looks at the rebound potential of five second-half strugglers.`\
+https://nytimes.com/athletic/6173545/2025/03/12/fantasy-baseball-2025-second-half-pitcher-struggles-buy-low/
+
 **Senator Jeanne Shaheen, New Hampshire Democrat, Won’t Run Again in 2026**\
 `Ms. Shaheen’s retirement will set off a high-stakes fight for an open seat in a state where she has been a leading political figure for decades.`\
 https://nytimes.com/2025/03/12/us/politics/jeanne-shaheen-new-hampshire-senate-2026.html

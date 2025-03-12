@@ -1,3 +1,15 @@
+**Women’s Champions Classic returns with UConn-Iowa, Tennessee-Louisville games**\
+`This year, Iowa meets UConn in a 2024 Final Four rematch, while Tennessee faces Louisville.`\
+https://nytimes.com/athletic/6196285/2025/03/12/uconn-tennessee-iowa-louisville-champions-classic/
+
+**Canada announces Nations League roster: How new forwards will help Marsch**\
+`The Athletic analyses Canada's latest roster ahead of a Nations League semifinal against Mexico on March 20.`\
+https://nytimes.com/athletic/6195262/2025/03/12/canada-roster-squad-nations-league-finals/
+
+**Buy low on these fantasy baseball pitchers? Brandon Pfaadt, Sonny Gray and more**\
+`Brandon Pfaadt was the unluckiest pitcher of 2024 says Owen Poindexter, who looks at the rebound potential of five second-half strugglers.`\
+https://nytimes.com/athletic/6173545/2025/03/12/fantasy-baseball-2025-second-half-pitcher-struggles-buy-low/
+
 **Senator Jeanne Shaheen, New Hampshire Democrat, Won’t Run Again in 2026**\
 `Ms. Shaheen’s retirement will set off a high-stakes fight for an open seat in a state where she has been a leading political figure for decades.`\
 https://nytimes.com/2025/03/12/us/politics/jeanne-shaheen-new-hampshire-senate-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/12/us/politics/trump-policy-executive-orders-rulings
 **MoneyCall: The fastest-growing sports league?**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter. `\
 https://nytimes.com/athletic/6196822/2025/03/12/nwsl-2025-season-preview-moneycall-newsletter/
-
-**2025 NFL free agency: Fantasy football winners, losers, ranks and more**\
-`Jake Ciely weighs in on all the offseason NFL deals that matter for fantasy football 2025, including DK Metcalf's trade to Pittsburgh.`\
-https://nytimes.com/athletic/6189413/2025/03/12/2025-nfl-free-agency-fantasy-football-winners-losers-ranks/
-
-**How to Spend Less Time on Social Media (or Leave It Altogether)**\
-`If you’re feeling overwhelmed but don’t quite have the willpower to curb your online habit, your phone can help you manage your time online.`\
-https://nytimes.com/2025/03/12/technology/personaltech/how-to-spend-less-time-on-social-media-or-leave-it-altogether.html
-
-**The Share of Religious Americans Will Continue to Decline**\
-`There has been a plateau of “nones” in the past few years. It won’t last.`\
-https://nytimes.com/2025/03/12/opinion/decline-religion-america.html
 
