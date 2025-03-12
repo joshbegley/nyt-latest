@@ -1,3 +1,7 @@
+**Spurs confirm freeze of season and match ticket prices for 2025-26 season**\
+`This follows Brentford and Liverpool's decisions to freeze prices for next season.`\
+https://nytimes.com/athletic/6197682/2025/03/12/tottenham-season-ticket-prices-freeze/
+
 **A Party-Worthy Chicken Breast Recipe. Really.**\
 `David Tanis wraps the weeknight staple in puff pastry for something that’s not just simple and juicy — it’s simply showstopping.`\
 https://nytimes.com/2025/03/12/dining/chicken-breasts-pastry.html
