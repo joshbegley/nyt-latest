@@ -1,3 +1,11 @@
+**Emery excited for 'special' PSG reunion in Champions League**\
+`Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
+https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/
+
+**Panthers agree to terms with RB Rico Dowdle on 1-year deal: Sources**\
+`The multifaceted Cowboys running back made the most of his first career starting opportunity in 2024. `\
+https://nytimes.com/athletic/6181320/2025/03/12/rico-dowdle-free-agency-signing-panthers/
+
 **Why the White House Car Show Mattered to Musk**\
 `A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
 https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/03/12/nyregion/waterbury-woman-stepson-captive-20-years
 `An update to the magazine’s style guide did away with anachronisms like “Web site” and “in-box.” But it was limited to what the staff felt were “lasting” changes.`\
 https://nytimes.com/2025/03/12/style/new-yorker-style-guide.html
 
-**Cowboys to trade for Titans LB Kenneth Murray: Sources**\
+**Cowboys trade for Titans' Kenneth Murray in move to add LB depth**\
 `Murray started 14 games for Tennessee and recorded a team-leading 95 tackles in the 2024 season. `\
 https://nytimes.com/athletic/6198606/2025/03/12/kenneth-murray-cowboys-titans-trade/
-
-**Trump Pardons Ex-Tennessee State Senator Imprisoned for Campaign Fraud**\
-`Brian Kelsey, a Republican, pleaded guilty to illegally funneling money to his failed campaign for Congress in 2016. He later tried unsuccessfully to withdraw his plea.`\
-https://nytimes.com/2025/03/12/us/tennessee-senator-kelsey-trump-pardon.html
-
-**Intel Names New Chief Executive Amid Turnaround Efforts**\
-`The semiconductor pioneer appointed Lip-Bu Tan, a well-known tech investor and executive, as its new leader.`\
-https://nytimes.com/2025/03/12/technology/intel-new-ceo-tan.html
 
