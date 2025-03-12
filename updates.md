@@ -1,3 +1,27 @@
+**DT Javon Hargrave agrees to terms with Vikings on 2-year deal: Source**\
+`Hargrave, 32, played a career-low three games for the 49ers in 2024 after a partially torn triceps ended his season early.`\
+https://nytimes.com/athletic/6175045/2025/03/12/javon-hargrave-free-agency-signing-vikings/
+
+**Chair of National Endowment for the Humanities Leaves at Trump’s ‘Direction’**\
+`Shelly C. Lowe, a scholar of higher education and the first Native American to lead the agency, was appointed by former President Joseph R. Biden Jr.`\
+https://nytimes.com/2025/03/12/arts/national-endowment-humanities-trump-shelly-lowe.html
+
+**Chris Moore, Illustrator for Classic Sci-Fi Books, Dies at 77**\
+`He conjured fantastical worlds with covers for novels by Philip K. Dick and Arthur C. Clarke. He also left his mark on albums by Fleetwood Mac and Rod Stewart.`\
+https://nytimes.com/2025/03/12/arts/chris-moore-dead.html
+
+**Senate Democrats Balk at Funding Extension, Raising the Risk of a Shutdown**\
+`The top Senate Democrat said his members were not ready to provide the votes to allow the Republican-written stopgap spending measure to pass ahead of a March 14 midnight deadline.`\
+https://nytimes.com/2025/03/12/us/politics/government-shutdown-funding-bill-senate-democrats.html
+
+**Inside Trump’s Crackdown on Dissent: Obscure Laws, ICE Agents and Fear**\
+`President Trump is clamping down broadly on dissent using the tools of the federal government.`\
+https://nytimes.com/2025/03/12/us/politics/trump-crackdown-dissent.html
+
+**The Movies We’ve Loved Since 2000**\
+`Looking for your next great film? Explore more than 3,500 favorites from the last 25 years, chosen by our critics.`\
+https://nytimes.com/interactive/2025/movies/best-movies-since-2000.html
+
 **Rams release Cooper Kupp, ending 8-year run with former Super Bowl MVP**\
 `In eight seasons with the Rams, Cooper Kupp totaled 634 receptions, 7,776 receiving yards and 57 touchdowns.`\
 https://nytimes.com/athletic/6198008/2025/03/12/cooper-kupp-rams-release/
