@@ -1,3 +1,7 @@
+**Why Canucks' lifeless loss to Canadiens had additional cost**\
+`Mostly lifeless isn't going to get it done. Not at this time of year.`\
+https://nytimes.com/athletic/6196742/2025/03/12/canucks-canadiens-loss-3-takeaways/
+
 **Why the Canucks' lifeless loss to Canadiens had an additional cost**\
 `Mostly lifeless isn't going to get it done. Not at this time of year.`\
 https://nytimes.com/athletic/6196742/2025/03/12/canucks-canadiens-loss-3-takeaways/
