@@ -1,3 +1,15 @@
+**Bullet Bras and Black Leather**\
+`And more of what everyone is going to need next season, from Miu Miu, Saint Laurent and Hermès.`\
+https://nytimes.com/2025/03/12/style/miu-miu-bullet-bra-hermes-saint-laurent-fall-2025.html
+
+**Bounce is in the eye of the beholder: Why tennis court conditions can be a mirage**\
+`The riddle of the court surface at Indian Wells has a deceptively simple answer: Players get out what they, and the weather, put in.`\
+https://nytimes.com/athletic/6192923/2025/03/12/tennis-court-conditions-weather-indian-wells/
+
+**The New York Times International Edition in Print for Thursday, March 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/12/todays-new-york-times-international-edition
+
 **Emboldened by Trump, Serbia’s Leader Cracks Down on Activist Groups**\
 `Roiled by months of nationwide protests it blames on foreign meddling, Serbia has sent the police in to raid groups that received funds from U.S.A.I.D.`\
 https://nytimes.com/2025/03/12/world/europe/emboldened-by-trump-serbias-leader-cracks-down-on-activist-groups.html

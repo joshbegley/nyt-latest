@@ -1,3 +1,15 @@
+**Bullet Bras and Black Leather**\
+`And more of what everyone is going to need next season, from Miu Miu, Saint Laurent and Hermès.`\
+https://nytimes.com/2025/03/12/style/miu-miu-bullet-bra-hermes-saint-laurent-fall-2025.html
+
+**Bounce is in the eye of the beholder: Why tennis court conditions can be a mirage**\
+`The riddle of the court surface at Indian Wells has a deceptively simple answer: Players get out what they, and the weather, put in.`\
+https://nytimes.com/athletic/6192923/2025/03/12/tennis-court-conditions-weather-indian-wells/
+
+**The New York Times International Edition in Print for Thursday, March 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/12/todays-new-york-times-international-edition
+
 **Emboldened by Trump, Serbia’s Leader Cracks Down on Activist Groups**\
 `Roiled by months of nationwide protests it blames on foreign meddling, Serbia has sent the police in to raid groups that received funds from U.S.A.I.D.`\
 https://nytimes.com/2025/03/12/world/europe/emboldened-by-trump-serbias-leader-cracks-down-on-activist-groups.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/12/style/mens-clothes-balenciaga-miu-miu-loewe-paris
 **Ignore the Loose Talk About Recession**\
 `While fears about the economic chaos caused by tariffs are real, the underlying economic data in America remain strong.`\
 https://nytimes.com/2025/03/12/opinion/trump-recession.html
-
-**Where Are Trump and Musk Taking Us?**\
-`A typology of constitutional crises and constitutional rot.`\
-https://nytimes.com/2025/03/12/opinion/trump-musk-congress-constitution.html
-
-**5 Years After Covid Closed the Theaters, Audiences Are Returning**\
-`Broadway is almost back, and pop music tours and sports events are booming. But Hollywood, museums and other cultural sectors have yet to bounce back.`\
-https://nytimes.com/2025/03/12/arts/covid-five-year-anniversary-theater-music-art.html
-
-**Palm Beach Society Goes On, With and Without Trump**\
-`At a pair of benefits on this exclusive island, many well-heeled guests were holding their tongues when it came to politics.`\
-https://nytimes.com/2025/03/12/style/palm-beach-florida-trump.html
 
