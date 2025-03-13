@@ -1,3 +1,20 @@
+**A Judge Ordered the U.S. to Rehire Thousands of Workers**\
+`Also, Putin said he was open to a cease-fire, but with many conditions. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/03/13/briefing/rehiring-federal-workers-putin-ukraine-cease-fire.html
+
+**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
+`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
+`\
+https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
+
+**Judge Orders Musk and His Team to Turn Over Records and Answer Questions**\
+`Mr. Musk’s Department of Government Efficiency has largely been shrouded in secrecy, but court cases are one way opponents of President Trump’s overhaul efforts have sought clarity.`\
+https://nytimes.com/2025/03/13/us/politics/elon-musk-doge-records-questioning.html
+
+**In No Hurry for Cease-Fire, Putin Demands Numerous Ukrainian Concessions**\
+`The remarks by the Russian leader suggested he wanted to draw out negotiations or make a truce impossible. Ukraine’s leader called the response to a cease-fire plan “manipulative.”`\
+https://nytimes.com/2025/03/13/world/europe/putin-ceasefire-ukraine-trump.html
+
 **Columbia Disciplines Students Who Occupied Campus Building Last Year**\
 `Sanctions for the Hamilton Hall occupation include expulsions and suspensions.`\
 https://nytimes.com/2025/03/13/nyregion/columbia-university-students-disciplined-hamilton-hall.html
@@ -21,20 +38,4 @@ https://nytimes.com/2025/03/13/us/north-dakota-same-sex-marriage.html
 **German Tourists Detained for Weeks, Then Deported From U.S.**\
 `Amid President Trump’s border crackdown, German news media have closely followed the treatment of two tourists who say they tried to enter the United States legally.`\
 https://nytimes.com/2025/03/13/world/europe/german-tourists-detained-deported.html
-
-**How Trump Cuts Could Change Your Summer Hiking Trip**\
-`The Bureau of Land Management, the Forest Service and the Fish & Wildlife Service manage more public lands than the Parks Service. And their staffs have also been cut.`\
-https://nytimes.com/2025/03/13/travel/trump-cuts-national-parks-summer-travel.html
-
-**Johns Hopkins to Cut More Than 2,000 Workers Funded by Federal Aid**\
-`The university, a leader in scientific research, has been hard hit by the Trump administration’s cuts, which will slash at least $800 million from its budget.`\
-https://nytimes.com/2025/03/13/us/trump-cuts-johns-hopkins-university-layoffs.html
-
-**Flames' Connor Zary suspended 2 games for elbowing Canucks' Elias Pettersson**\
-`The incident occurred Wednesday night during the first period of the Flames-Canucks game at the Scotiabank Saddledome in Calgary.`\
-https://nytimes.com/athletic/6201691/2025/03/13/flames-suspension-zary-pettersson-canucks/
-
-**John Feinstein, Who Wrote ‘A Season on the Brink,’ Dies at 69**\
-`A longtime columnist for The Washington Post, he also wrote dozens of books about basketball, baseball, tennis, golf, football and the Olympics, many of them best sellers.`\
-https://nytimes.com/2025/03/13/books/john-feinstein-dead.html
 
