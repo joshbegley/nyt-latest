@@ -7,7 +7,7 @@ https://nytimes.com/2025/03/13/arts/television/john-mulaney-late-night-everybody
 https://nytimes.com/athletic/6199342/2025/03/13/joe-rothwell-leeds-millwall/
 
 **Jude Bellingham and the friendly fire that sums up his status at Real Madrid**\
-`The England midfielder was dissatisfied with what he perceived to be a lack of work-rate from Vinicius Junior and made his feelings clear`\
+`The England midfielder was dissatisfied with what he perceived to be a lack of work-rate from Vinicius Jr - and made his feelings clear`\
 https://nytimes.com/athletic/6199555/2025/03/13/bellingham-jude-real-madrid-atletico-vinicius/
 
 **Alvarez's penalty woe is just the continuation of Atletico’s Champions League curse**\
