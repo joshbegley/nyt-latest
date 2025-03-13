@@ -1,3 +1,7 @@
+**Alvarez's penalty woe is just the continuation of Atletico’s Champions League curse**\
+`A shootout defeat after a controversially disallowed penalty was just the latest bitterly cruel Champions League exit for Atletico Madrid`\
+https://nytimes.com/athletic/6188466/2025/03/13/alvarez-penalty-atletico-champions-league-curse/
+
 **Nuggets still searching for solutions to the problems Timberwolves cause**\
 `What is patently clear following the last five matchups is that Minnesota is a real issue for Denver.`\
 https://nytimes.com/athletic/6199677/2025/03/13/denver-nuggets-minnesota-timberwolves-bad-matchup/

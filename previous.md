@@ -1,3 +1,7 @@
+**Alvarez's penalty woe is just the continuation of Atletico’s Champions League curse**\
+`A shootout defeat after a controversially disallowed penalty was just the latest bitterly cruel Champions League exit for Atletico Madrid`\
+https://nytimes.com/athletic/6188466/2025/03/13/alvarez-penalty-atletico-champions-league-curse/
+
 **Nuggets still searching for solutions to the problems Timberwolves cause**\
 `What is patently clear following the last five matchups is that Minnesota is a real issue for Denver.`\
 https://nytimes.com/athletic/6199677/2025/03/13/denver-nuggets-minnesota-timberwolves-bad-matchup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6199242/2025/03/13/canucks-comeback-win-flames-elia
 **FPL: The pros and cons of using your Free Hit in Gameweek 29**\
 `Holly Shand explores the merits of using changing your entire team`\
 https://nytimes.com/athletic/6196946/2025/03/13/fpl-gw-29-free-hit-haaland-wood-gvardiol/
-
-**Watching Arsenal's surreal and tensionless Champions League evening**\
-`Arsenal advanced to the Champions League quarter-finals after a huge first leg victory over PSV`\
-https://nytimes.com/athletic/6199071/2025/03/13/arsenal-champions-league-psv-fans/
 
