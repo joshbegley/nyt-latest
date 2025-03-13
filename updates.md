@@ -1,3 +1,19 @@
+**Who should make Tuchel's first England squad?**\
+`A group of our writers pick their 23-man England squads as the Tuchel era begins and explain how they made their decisions`\
+https://nytimes.com/athletic/6193286/2025/03/13/thomas-tuchel-first-england-squad/
+
+**The 25ft screen powering Hansi Flick's Barca revolution**\
+`A new concept introduced by Flick to Barca training sessions has played a part in their success this season`\
+https://nytimes.com/athletic/6197673/2025/03/13/barcelona-hansi-flick-big-screen/
+
+**Ruben Amorim thinks attacking towards the Stretford End in the first half helps Man Utd. What if he's right?**\
+`How the Manchester United head coach has hacked a tactic usually deployed by away sides to try to help improve his team's home form`\
+https://nytimes.com/athletic/6196949/2025/03/13/manchester-united-coin-toss-change-ends-analysis/
+
+**English football is besotted with second balls - but how important are they?**\
+`Analysing one of the basics of football, from Sunday League all the way to the Premier League - even Pep Guardiola agrees `\
+https://nytimes.com/athletic/6193329/2025/03/13/measuring-second-balls-premier-league-analysis/
+
 **Capsized in Sydney and on zero points. Why the US SailGP team is struggling to deliver**\
 `The all-American SailGP team are struggling so far this season, but there are also reasons to be optimistic about the future`\
 https://nytimes.com/athletic/6194031/2025/03/13/sailgp-season-5-team-usa-los-angeles/
