@@ -1,3 +1,15 @@
+**Trump Sees ‘Good Signals’ on Russia-Ukraine Cease-Fire. Zelensky Does Not.**\
+`U.S. officials were in Moscow for talks, and the Russian leader said he was open to a cease-fire, but President Volodymyr Zelensky of Ukraine expressed skepticism.`\
+https://nytimes.com/2025/03/13/us/politics/trump-rutte-russia-ukraine-ceasefire.html
+
+**Putin, in No Hurry for Cease-Fire, Seeks Ukrainian Concessions**\
+`President Vladimir V. Putin of Russia laid out a series of conditions that Ukraine might reject, but displayed a willingness to continue talks with President Trump.`\
+https://nytimes.com/2025/03/13/world/europe/putin-russia-ukraine-ceasefire.html
+
+**Trump Expands Trade Threats in Global Game of Chicken**\
+`Trade wars with allies could spiral as the president tries to get trading partners to back down from retaliation with new threats of his own.`\
+https://nytimes.com/2025/03/13/us/politics/trump-trade-war-europe-canada.html
+
 **Name the Australian Who Has Won His Home Race. Give Up?**\
 `None have ever won F1’s Australian Grand Prix. The Aussies Oscar Piastri of McLaren and Jack Doohan of Alpine hope to change that.`\
 https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6201433/2025/03/13/wisconsin-spring-football-practi
 **True Colors Come Out at the Australian Grand Prix**\
 `Because Formula 1 teams try to hide their capabilities during preseason testing, the first race often shows who is fast and who is not.`\
 https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix-first-race.html
-
-**Live from The Players, it’s The Jordan Spieth Experience**\
-`Spieth has always been golf’s great shot of tequila, playing a different sport from his peers inside the finest of margins.`\
-https://nytimes.com/athletic/6201458/2025/03/13/jordan-spieth-the-players-championship-golf/
-
-**Rafael Devers says he’s OK to be DH on Opening Day; Lucas Giolito to start on IL**\
-`After saying earlier that he didn't want to be a designated hitter, Devers now seems OK with the idea: "I’ve matured a lot during this."`\
-https://nytimes.com/athletic/6201483/2025/03/13/red-sox-rafael-devers-dh-lucas-giolito-injury/
-
-**Trump’s Birthright Citizenship Order Reaches the Supreme Court**\
-`Trump administration lawyers asked the justices to limit the sweep of decisions by three lower courts that had issued nationwide pauses on the policy.`\
-https://nytimes.com/2025/03/13/us/politics/trump-birthright-citizenship-supreme-court.html
 
