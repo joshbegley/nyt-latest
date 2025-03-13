@@ -1,3 +1,8 @@
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **Tori Amos Saw a New Side to Baltimore Thanks to Russell Baker**\
 `His memoir “Growing Up” depicted her hometown “like a shining city on a hill.” Other authors who mean a lot to the musician (and now childrens’ book writer): Kevyn Aucoin and Hilary Mantel.`\
 https://nytimes.com/2025/03/13/books/review/tori-amos-tori-and-the-muses.html
