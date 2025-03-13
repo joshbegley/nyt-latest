@@ -1,5 +1,5 @@
 **Knicks friction? Bridges, Thibodeau disagree on whether they talked minutes**\
-`Tom Thibodeau has faced criticism for playing his starters too much. Mikal Bridges' comments on the matter caused a stir.`\
+`Thibodeau has faced criticism for playing his starters too much. Bridges' comments on the matter caused a stir.`\
 https://nytimes.com/athletic/6199332/2025/03/12/knicks-friction-minutes-mikal-bridges-tom-thibodeau/
 
 **OKC clinches playoff spot, handles Boston as Celtics take team-record 63 3-pointers**\
