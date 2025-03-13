@@ -1,3 +1,7 @@
+**Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
+`An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
+https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
+
 **Corrections: March 13, 2025**\
 `Corrections that appeared in print on Thursday, March 13, 2025.`\
 https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
