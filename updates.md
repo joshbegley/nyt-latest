@@ -1,3 +1,15 @@
+**Fallen caps, untucked jerseys and rain regulations - what are the weirdest rules in sport?**\
+`Following on from the bizarre two-touch penalty drama in the Champions League, our writers pick the oddest rules across the sporting world `\
+https://nytimes.com/athletic/6200989/2025/03/13/what-are-the-weirdest-rules-in-sport/
+
+**Bengals' bet on new DC Al Golden has shifted from safe to reckless during free agency**\
+`How much difference can a coordinator make? The Bengals are about to find out after doing little to add new pieces in early free agency.`\
+https://nytimes.com/athletic/6201191/2025/03/13/bengals-al-golden-defense-free-agency/
+
+**Federal Agency Pauses Program for Energy-Efficient Upgrades in Affordable Housing**\
+`The Department of Housing and Urban Development said it was reviewing all aspects of the Biden-era program to ensure it was carried out consistent with the agency’s core mission.`\
+https://nytimes.com/2025/03/13/business/hud-affordable-housing-green-energy.html
+
 **Bosa signed with Bills in part to pursue Allen's Super Bowl promise of 'immortality'**\
 `Bosa said he was feeling "better than I've ever felt in nine years" before his 2024 injury. Now, he joins a Bills team looking for a ring. `\
 https://nytimes.com/athletic/6201478/2025/03/13/bills-joey-bosa-josh-allen-free-agency/
