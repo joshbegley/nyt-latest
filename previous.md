@@ -1,10 +1,14 @@
+**Chocolate. Guinness. Cake.**\
+`Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
+https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
+
 **Indonesian Fishermen Sue U.S. Canned Tuna Giant Over Claims of Forced Labor**\
 `In a lawsuit filed in California, the plaintiffs said that Bumble Bee Foods was aware of and benefited from abuse by suppliers. The company declined to comment.`\
 https://nytimes.com/2025/03/13/world/asia/bumble-bee-tuna-forced-labor.html
 
 **Dr. David Weldon on the Withdrawal**\
 `The former pick to head the C.D.C. issued a statement following the withdrawal of his nomination.`\
-https://nytimes.com/interactive/2025/03/13/health/weldon-statement.html
+https://nytimes.com/interactive/2025/03/13/health/david-weldon-cdc-statement.html
 
 **Mets' Jeff McNeil to start season on injured list with oblique strain**\
 `McNeil is expected to miss at least three to four weeks. Nearly 20 percent of New York's expected Opening Day roster is injured.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/science/james-reason-dead.html
 **From 'overregulating to the Wild West': Youth soccer players bypassing college for NWSL**\
 `With more teenagers going pro, college soccer is left to soul search - and consider the risks`\
 https://nytimes.com/athletic/6199487/2025/03/13/nwsl-college-soccer-youth-movement/
-
-**The Bounce: Shai Gilgeous-Alexander, Thunder may need more close-game reps before NBA playoffs**\
-`The Thunder had an impressive win over the defending champion Celtics, but they may need more late-game reps for an NBA Finals run`\
-https://nytimes.com/athletic/6200268/2025/03/13/thunder-shai-gilgeous-alexander-jayson-tatum-celtics-nba-the-bounce/
 

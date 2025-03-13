@@ -1,3 +1,11 @@
+**Chocolate. Guinness. Cake.**\
+`Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
+https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
+
+**Dr. David Weldon on the Withdrawal**\
+`The former pick to head the C.D.C. issued a statement following the withdrawal of his nomination.`\
+https://nytimes.com/interactive/2025/03/13/health/david-weldon-cdc-statement.html
+
 **Indonesian Fishermen Sue U.S. Canned Tuna Giant Over Claims of Forced Labor**\
 `In a lawsuit filed in California, the plaintiffs said that Bumble Bee Foods was aware of and benefited from abuse by suppliers. The company declined to comment.`\
 https://nytimes.com/2025/03/13/world/asia/bumble-bee-tuna-forced-labor.html
