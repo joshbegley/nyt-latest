@@ -1,3 +1,15 @@
+**Tori Amos Saw a New Side to Baltimore Thanks to Russell Baker**\
+`His memoir “Growing Up” depicted her hometown “like a shining city on a hill.” Other authors who mean a lot to the musician (and now childrens’ book writer): Kevyn Aucoin and Hilary Mantel.`\
+https://nytimes.com/2025/03/13/books/review/tori-amos-tori-and-the-muses.html
+
+**Sick or Neurotic? This Writer Will Be the Judge.**\
+`What started as a scholarly study becomes, in Will Rees’s hands, a freewheeling journey into our brains and souls.`\
+https://nytimes.com/2025/03/13/books/review/hypochondria-will-rees.html
+
+**The book on Colts QB Daniel Jones: Top traits, biggest weakness and why he gets so much hate**\
+`Why didn't things work out in New York? Will Jones be a mentor for Anthony Richardson? Giants writer Dan Duggan breaks down Indy's new QB. `\
+https://nytimes.com/athletic/6199586/2025/03/13/colts-daniel-jones-anthony-richardson-giants/
+
 **Elon Musk’s Starlink Pushes Its Way Into India**\
 `By signing deals with India’s two biggest telecom players, the tech tycoon and Trump adviser has improved his odds of breaking into an enormous market.`\
 https://nytimes.com/2025/03/13/business/starlink-india-musk.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6199555/2025/03/13/bellingham-jude-real-madrid-atle
 **Alvarez's penalty woe is just the continuation of Atletico’s Champions League curse**\
 `A shootout defeat after a controversially disallowed penalty was just the latest bitterly cruel Champions League exit for Atletico Madrid`\
 https://nytimes.com/athletic/6188466/2025/03/13/alvarez-penalty-atletico-champions-league-curse/
-
-**Nuggets still searching for solutions to the problems Timberwolves cause**\
-`What is patently clear following the last five matchups is that Minnesota is a real issue for Denver.`\
-https://nytimes.com/athletic/6199677/2025/03/13/denver-nuggets-minnesota-timberwolves-bad-matchup/
-
-**Untangle**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/03/13/learning/untangle.html
-
-**New York City’s Population Ticks Up to More Than 8.4 Million**\
-`Fewer people leaving the city and more foreign newcomers have helped erase pandemic losses, new census data shows.`\
-https://nytimes.com/2025/03/13/nyregion/nyc-population-2024.html
 
