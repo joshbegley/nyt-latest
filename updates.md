@@ -1,3 +1,15 @@
+**Even as the Rockets beat the Suns, Amen Thompson's presence is sorely missed**\
+`Even though the Rockets beat the Suns last night, Amen Thompson's defensive acumen was missing.`\
+https://nytimes.com/athletic/6199569/2025/03/13/amen-thompsons-rockets-win-phoenix-suns/
+
+**Democratic Attorneys General Sue Over Gutting of Education Department**\
+`The Trump administration cut about half the work force of the agency, saying it would enable it to deliver services more effectively. The attorneys general called the move “reckless and illegal.”`\
+https://nytimes.com/2025/03/13/nyregion/democratic-attorneys-general-education-department-suit.html
+
+**Hans Henken’s Long Path to SailGP**\
+`The flight controller on the American entry started on small, tricky boats, but now works the big F50 catamarans.`\
+https://nytimes.com/2025/03/13/sports/sailing/sailgp-hans-henken.html
+
 **Alvarez 'two-touch' penalty: Should UEFA rethink the rules after Atletico striker's miss?**\
 `Alvarez's penalty was disallowed by the VAR after the slightest double-touch as he slipped. Should it really have been disallowed?`\
 https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-two-touch-penalty/
