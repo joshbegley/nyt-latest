@@ -1,3 +1,15 @@
+**Watch: ‘Instruments of a Beating Heart’**\
+`What can we learn from a Japanese elementary school’s effort to balance discipline and freedom?`\
+https://nytimes.com/2025/03/13/learning/watch-instruments-of-a-beating-heart.html
+
+**The New York Times International Edition in Print for Friday, March 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/13/todays-new-york-times-international-edition
+
+**BNP Paribas Open at Indian Wells: How to watch Carlos Alcarez, Iga Swiatek make title runs**\
+`Carlos Alcaraz pursues a three-peat at Indian Wells. Iga Swiatek looks to become the tournament's winningest women's singles player.`\
+https://nytimes.com/athletic/6197937/2025/03/13/bnp-paribas-open-indian-wells-tennis-how-to-watch/
+
 **A Rare Auction in Japan: 165,000 Tons of Emergency Rice**\
 `The government held a rare auction this week to make up for a rice shortage that an official called “truly unthinkable.”`\
 https://nytimes.com/2025/03/13/world/asia/japan-rice-prices-auction.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/03/13/realestate/san-francisco-oakland-bay-
 **An ‘Untradable’ Market: Trump Sows Profound Uncertainty for Stocks**\
 `The administration’s whipsawing moves are leaving investors guessing. The risk is that this uncertainty comes at a real cost to the economy.`\
 https://nytimes.com/2025/03/13/business/trump-stock-market.html
-
-**Trump Firings Gut Education Department’s Civil Rights Division**\
-`Many of the office’s cases over the decades have served as a catalyst for broader policy change and social reforms.`\
-https://nytimes.com/2025/03/13/us/politics/trump-firings-gut-education-departments-civil-rights-division.html
-
-**How Has New York Remade Itself Since the Pandemic Arrived?**\
-`New York City was on the front lines of the Covid-19 crisis. It has largely recovered, but has transformed into a place of greater extremes.`\
-https://nytimes.com/interactive/2025/03/13/nyregion/nyc-covid-pandemic-changes.html
-
-**As Markets Whipsaw, Conservative Media Shrugs**\
-`Many conservative websites have either ignored the recent stock declines or framed them in a positive way.`\
-https://nytimes.com/2025/03/13/business/media/stock-market-conservative-media.html
 
