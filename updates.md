@@ -1,3 +1,7 @@
+**Jude Bellingham and the friendly fire that sums up his status at Real Madrid**\
+`The England midfielder was dissatisfied with what he perceived to be a lack of work-rate from Vinicius Junior and made his feelings clear`\
+https://nytimes.com/athletic/6199555/2025/03/13/bellingham-jude-real-madrid-atletico-vinicius/
+
 **Alvarez's penalty woe is just the continuation of Atletico’s Champions League curse**\
 `A shootout defeat after a controversially disallowed penalty was just the latest bitterly cruel Champions League exit for Atletico Madrid`\
 https://nytimes.com/athletic/6188466/2025/03/13/alvarez-penalty-atletico-champions-league-curse/
