@@ -1,3 +1,20 @@
+**Tori Amos Saw a New Side to Baltimore Thanks to Russell Baker**\
+`His memoir “Growing Up” depicted her hometown “like a shining city on a hill.” Other authors who mean a lot to the musician (and now childrens’ book writer): Kevyn Aucoin and Hilary Mantel.`\
+https://nytimes.com/2025/03/13/books/review/tori-amos-tori-and-the-muses.html
+
+**Sick or Neurotic? This Writer Will Be the Judge.**\
+`What started as a scholarly study becomes, in Will Rees’s hands, a freewheeling journey into our brains and souls.`\
+https://nytimes.com/2025/03/13/books/review/hypochondria-will-rees.html
+
+**The book on Colts QB Daniel Jones: Top traits, biggest weakness and why he gets so much hate**\
+`Why didn't things work out in New York? Will Jones be a mentor for Anthony Richardson? Giants writer Dan Duggan breaks down Indy's new QB. `\
+https://nytimes.com/athletic/6199586/2025/03/13/colts-daniel-jones-anthony-richardson-giants/
+
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **Premier League outright markets: Best bets to make with 10 games to go**\
 `Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
 `\
