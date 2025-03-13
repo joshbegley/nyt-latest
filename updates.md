@@ -1,3 +1,7 @@
+**Lando Norris downplays 'short-sighted' hype about McLaren's F1 advantage**\
+`A quick race simulation by Norris on the second day of testing caught the attention of rival teams`\
+https://nytimes.com/athletic/6199720/2025/03/13/f1-lando-norris-mclaren-australian-gp/
+
 **Word of the Day: behest**\
 `This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/13/learning/word-of-the-day-behest.html
