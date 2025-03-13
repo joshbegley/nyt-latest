@@ -1,3 +1,7 @@
+**Justice Dept. Opens Investigation Into Migrant Shelters in New York**\
+`Prosecutors asked for a list of names of “aliens” living at a Manhattan hotel. The city houses about 43,000 migrants in shelters, including dozens of converted hotels.`\
+https://nytimes.com/2025/03/12/nyregion/migrant-shelters-new-york-federal-probe.html
+
 **Why the Philippines’ Ex-President Duterte Was Arrested Now**\
 `Rodrigo Duterte carried out a war on drugs in the Philippines that rights groups say killed 30,000 people.`\
 https://nytimes.com/video/world/asia/100000010045770/duterte-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-
 **Selma Miriam, Founder of the Feminist Restaurant Bloodroot, Dies at 89**\
 `She and Noel Furie had just come out as lesbians when they opened an unusual gathering place for women in Connecticut. Nearly half a century later, it is still thriving.`\
 https://nytimes.com/2025/03/12/dining/selma-miriam-dead.html
-
-**Putin, Dressed in Fatigues, Visits Kursk to Cheer Efforts to Oust Ukraine’s Troops**\
-`The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
-https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
 
