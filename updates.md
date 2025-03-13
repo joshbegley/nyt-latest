@@ -1,3 +1,7 @@
+**Madrid's Mendy suffers hamstring injury**\
+`The 29-year-old sustained the injury during his side’s Champions League round of 16 victory over Atletico Madrid on Wednesday.`\
+https://nytimes.com/athletic/6200112/2025/03/13/ferland-mendy-injury-update-real-madrid/
+
 **Tornado Reported in Los Angeles as Storm Batters California**\
 `Parts of the city had been urged to evacuate as a powerful system brought rain and snow up and down the state.`\
 https://nytimes.com/2025/03/13/weather/los-angeles-tornado-california-storm.html
