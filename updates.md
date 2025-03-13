@@ -1,3 +1,7 @@
+**The Bounce: Shai Gilgeous-Alexander, Thunder may need more close-game reps before NBA playoffs**\
+`The Thunder had an impressive win over the defending champion Celtics, but they may need more late-game reps for an NBA Finals run`\
+https://nytimes.com/athletic/6200268/2025/03/13/thunder-shai-gilgeous-alexander-jayson-tatum-celtics-nba-the-bounce/
+
 **The Trump Loyalist Aiming to Swing Wisconsin Back to the Right**\
 `Brad Schimel, a judge who is so supportive of the president that he dressed up as him for Halloween, is hoping to flip the Wisconsin Supreme Court for conservatives.`\
 https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-court.html

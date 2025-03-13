@@ -1,3 +1,7 @@
+**The Bounce: Shai Gilgeous-Alexander, Thunder may need more close-game reps before NBA playoffs**\
+`The Thunder had an impressive win over the defending champion Celtics, but they may need more late-game reps for an NBA Finals run`\
+https://nytimes.com/athletic/6200268/2025/03/13/thunder-shai-gilgeous-alexander-jayson-tatum-celtics-nba-the-bounce/
+
 **The Trump Loyalist Aiming to Swing Wisconsin Back to the Right**\
 `Brad Schimel, a judge who is so supportive of the president that he dressed up as him for Halloween, is hoping to flip the Wisconsin Supreme Court for conservatives.`\
 https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html
 **It's been a typical free agency for Ravens. Yet, their toughest decisions remain**\
 `GM Eric DeCosta and company have assumed their place on the sideline in the high-stakes bidding for the top outside free agents. `\
 https://nytimes.com/athletic/6199674/2025/03/13/ravens-free-agency-decisions/
-
-**Why Evan Engram is far more than a marriage of convenience with the Broncos**\
-`The Broncos were the NFL's most inefficient team on third down when targeting tight ends in 2024. Engram's history says he'll change that.`\
-https://nytimes.com/athletic/6200117/2025/03/13/evan-engram-broncos-free-agency-tight-end/
 
