@@ -1,3 +1,11 @@
+**Until Saturday: The bizarro Iron Bowl**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/6201204/2025/03/13/college-football-26-leak-until-saturday/
+
+**Trump’s Tariff Threat Sends French Wine and Champagne Makers Reeling**\
+`Industry representatives warned that a 200 percent tax on European wines and spirits would halt shipments to the United States and wipe €4 billion off France’s trade balance.`\
+https://nytimes.com/2025/03/13/us/politics/trump-tariffs-wine-champagne-france.html
+
 **Elon Musk’s Team Is Less Transparent, and Still Making Big Errors.**\
 `After a series of news reports called out DOGE’s error-filled claims, Elon Musk’s Department of Government Efficiency has made its newest claims harder to check — for “security purposes,” according to a White House official.`\
 https://nytimes.com/video/us/politics/100000010047426/elon-musks-team-is-less-transparent-and-still-making-big-errors.html
