@@ -1,3 +1,7 @@
+**Jude Bellingham and the friendly fire that sums up his status at Real Madrid**\
+`The England midfielder was dissatisfied with what he perceived to be a lack of work-rate from Vinicius Jr - and made his feelings clear`\
+https://nytimes.com/athletic/6199555/2025/03/13/bellingham-jude-real-madrid-atletico-vinicius/
+
 **John Mulaney Says His New Show Is Netflix’s Mistake**\
 `The comedian said Netflix “picked up this show by accident. They thought that it was a true-crime documentary because I look like a disappeared boy.”`\
 https://nytimes.com/2025/03/13/arts/television/john-mulaney-late-night-everybodys-live.html
