@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | March 17, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html
+
+**What’s Going On in This Graph? | March 26, 2025**\
+`What do you notice about the mass of biological (living) forms and mass of technological (man-made) forms on Earth? What do you wonder?`\
+https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-graph-march-26-2025.html
+
 **Federal Workers Union Sues Trump Administration to Preserve T.S.A. Contract**\
 `The largest federal employees union is suing the Homeland Security Department to stop the Trump administration from canceling its contract with T.S.A. workers.`\
 https://nytimes.com/2025/03/13/us/politics/federal-workers-union-lawsuit-tsa.html

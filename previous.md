@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | March 17, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html
+
+**What’s Going On in This Graph? | March 26, 2025**\
+`What do you notice about the mass of biological (living) forms and mass of technological (man-made) forms on Earth? What do you wonder?`\
+https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-graph-march-26-2025.html
+
 **Federal Workers Union Sues Trump Administration to Preserve T.S.A. Contract**\
 `The largest federal employees union is suing the Homeland Security Department to stop the Trump administration from canceling its contract with T.S.A. workers.`\
 https://nytimes.com/2025/03/13/us/politics/federal-workers-union-lawsuit-tsa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmak
 **Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
 `Analyzing all of Washington's moves as the 2025 league year begins. `\
 https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-signings-trades/
-
-**Protesters Back Khalil at Trump Tower: ‘Fight Nazis, Not Students’**\
-`Demonstrators led by a progressive Jewish group gathered to support Mahmoud Khalil, the Palestinian activist whom the Trump administration wants to deport.`\
-https://nytimes.com/2025/03/13/us/politics/trump-tower-protests-mahmoud-khalil.html
-
-**Listen: How exciting is the new-look Broncos defense?**\
-`"The Athletic Football Show" discusses the Denver Broncos' acquisitions of Talanoa Hufanga and Dre Greenlaw.`\
-https://nytimes.com/athletic/6197040/2025/03/13/athletic-football-show-denver-broncos-defense/
 
