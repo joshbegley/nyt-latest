@@ -1,3 +1,11 @@
+**Passionate Voices in an Anguished Time**\
+`Readers make heartfelt pleas in the age of Trump. Also: The E.P.A. abandons its mission.`\
+https://nytimes.com/2025/03/13/opinion/trump-voices-anguish.html
+
+**High School Runner Who Struck Rival With Baton Faces Charge**\
+`The episode at an indoor relay race in the Virginia state championships has raised the question of whether it was intentional or an accident.`\
+https://nytimes.com/2025/03/13/us/virginia-high-school-runner-baton-assault.html
+
 **NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
 `The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
 https://nytimes.com/athletic/6198648/2025/03/13/nfl-draft-order-2025-round-by-round/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5793492/2025/03/13/champions-league-projections/
 **America Can’t Be Great if America Is Stupid**\
 `Trump’s attack on higher education and scientific research undermines some of our most competitive advantages.`\
 https://nytimes.com/2025/03/13/opinion/trump-education-department.html
-
-**Keir Starmer Wants to Abolish N.H.S. England: What to Know About His Plan**\
-`The British prime minister said he would scrap an agency that was created in 2013 to help run the health service. He said the move would save money by avoiding duplication.`\
-https://nytimes.com/2025/03/13/world/europe/keir-starmer-nhs-england.html
-
-**Manhole Fires Erupt at Texas Tech University**\
-`Students were evacuated and sent on spring break early after a series of explosions and manhole fires at the Texas Tech University campus in Lubbock.`\
-https://nytimes.com/video/us/100000010049963/texas-tech-manhole-explosions.html
 

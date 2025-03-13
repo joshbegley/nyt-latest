@@ -1,3 +1,11 @@
+**NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
+`The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
+https://nytimes.com/athletic/6198648/2025/03/13/nfl-draft-order-2025-round-by-round/
+
+**Jennifer Johnston, 95, Novelist Who Probed Ireland’s Fault Lines, Dies**\
+`She explored tensions among the social classes and within families in fiction that prompted Roddy Doyle to call her “Ireland’s greatest writer.”`\
+https://nytimes.com/2025/03/13/books/jennifer-johnston-dead.html
+
 **USWNT's Girma to miss Subway Cup final with injury, Chelsea coach confirms**\
 `The defender has only featured once for Chelsea since her $1.1m January arrival from the San Diego Wave.`\
 https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-update/
