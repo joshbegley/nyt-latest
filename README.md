@@ -1,3 +1,7 @@
+**Alvarez 'two-touch' penalty: Should UEFA rethink the rules after Atletico striker's miss?**\
+`Alvarez's penalty was disallowed by the VAR after the slightest double-touch as he slipped. Should it really have been disallowed?`\
+https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-two-touch-penalty/
+
 **Minnesota fires men's basketball coach Ben Johnson after 4 seasons**\
 `Johnson was 56-71 in four seasons and 22-57 in Big Ten games, with no NCAA Tournament appearances.`\
 https://nytimes.com/athletic/6200356/2025/03/13/minnesota-fires-ben-johnson-mens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/us/texas-tech-explosion-lubbock.html
 **Trump Threatens 200 Percent Tariff on Champagne and Wine From Europe**\
 `The president said he would impose the levies if the European Union does not walk back plans to place retaliatory tariffs on whiskey and other U.S. products.`\
 https://nytimes.com/2025/03/13/us/politics/trump-tariff-european-union-whiskey.html
-
-**More than two decades later, viral anthem singer gets redemption in Portland**\
-`On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
-https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
 
