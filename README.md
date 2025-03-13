@@ -1,3 +1,7 @@
+**The Pulse: Let's take a vibe check and buy a vulgar hat**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6197924/2025/03/13/nhl-nba-playoff-races-the-pulse/
+
 **U.S. Negotiators Are En Route to Moscow, Kremlin Says**\
 `President Vladimir V. Putin of Russia is weighing a 30-day cease-fire proposal from the United States and Ukraine.`\
 https://nytimes.com/2025/03/13/world/europe/moscow-us-ukraine-russia-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194865/2025/03/13/mlb-extension-week-tiers-team-pl
 **Chris Powell to take Las Vegas Motor Speedway bow after 26 years as track president**\
 `Chris Powell reflects on a quarter-century overseeing Las Vegas Motor Speedway, one of NASCAR's most popular and innovative tracks.`\
 https://nytimes.com/athletic/6188169/2025/03/13/chris-powell-las-vegas-motor-speedway-president-retiring/
-
-**What's brewing with Red Sox? A chaotic coffee run from two top prospects**\
-`During a chat, Walker Buehler decided Anthony would buy coffee for everyone in the Red Sox organization. Early morning chaos ensued.`\
-https://nytimes.com/athletic/6199437/2025/03/13/red-sox-starbucks-coffee-prank/
 
