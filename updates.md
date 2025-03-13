@@ -1,3 +1,19 @@
+**Russia Claims to Have Regained Control of Key Kursk Town**\
+`Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
+https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
+
+**48 countries and 179 cities: Exploring the geography of Lionel Messi's career**\
+`Soccer's greatest star is poised to play in the Caribbean for the first time - adding a new region to a geographically-diverse career`\
+https://nytimes.com/athletic/6199841/2025/03/13/lionel-messi-geography-career-goals/
+
+**Mbappe back in France squad for first time since September**\
+`The 26-year-old missed the October call-up due to a thigh injury and was also left out of the squad for November's Nations League games.`\
+https://nytimes.com/athletic/6200373/2025/03/13/kylian-mbappe-france-squad-nations-league/
+
+**Xavier Worthy's accuser granted protective order as investigation continues**\
+`Any claims of the investigation being closed are “patently false," the woman's attorney told The Athletic on Thursday.`\
+https://nytimes.com/athletic/6200194/2025/03/13/xavier-worthys-accuser-protective-order/
+
 **Teenagers Say Girls Are Equal to Boys in School, or Are Ahead**\
 `Reflecting a generational change, two Pew surveys show boys tend to feel discouraged in the classroom, and are less likely than girls to pursue college.`\
 https://nytimes.com/2025/03/13/upshot/teenagers-school-girls-boys.html

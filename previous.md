@@ -1,3 +1,19 @@
+**Russia Claims to Have Regained Control of Key Kursk Town**\
+`Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
+https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
+
+**48 countries and 179 cities: Exploring the geography of Lionel Messi's career**\
+`Soccer's greatest star is poised to play in the Caribbean for the first time - adding a new region to a geographically-diverse career`\
+https://nytimes.com/athletic/6199841/2025/03/13/lionel-messi-geography-career-goals/
+
+**Mbappe back in France squad for first time since September**\
+`The 26-year-old missed the October call-up due to a thigh injury and was also left out of the squad for November's Nations League games.`\
+https://nytimes.com/athletic/6200373/2025/03/13/kylian-mbappe-france-squad-nations-league/
+
+**Xavier Worthy's accuser granted protective order as investigation continues**\
+`Any claims of the investigation being closed are “patently false," the woman's attorney told The Athletic on Thursday.`\
+https://nytimes.com/athletic/6200194/2025/03/13/xavier-worthys-accuser-protective-order/
+
 **Teenagers Say Girls Are Equal to Boys in School, or Are Ahead**\
 `Reflecting a generational change, two Pew surveys show boys tend to feel discouraged in the classroom, and are less likely than girls to pursue college.`\
 https://nytimes.com/2025/03/13/upshot/teenagers-school-girls-boys.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6200117/2025/03/13/evan-engram-broncos-free-agency-
 **Even as the Rockets beat the Suns, Amen Thompson's presence is sorely missed**\
 `Even though the Rockets beat the Suns last night, Amen Thompson's defensive acumen was missing.`\
 https://nytimes.com/athletic/6199569/2025/03/13/amen-thompsons-rockets-win-phoenix-suns/
-
-**Democratic Attorneys General Sue Over Gutting of Education Department**\
-`The Trump administration cut about half the work force of the agency, saying it would enable it to deliver services more effectively. The attorneys general called the move “reckless and illegal.”`\
-https://nytimes.com/2025/03/13/nyregion/democratic-attorneys-general-education-department-suit.html
-
-**Hans Henken’s Long Path to SailGP**\
-`The flight controller on the American entry started on small, tricky boats, but now works the big F50 catamarans.`\
-https://nytimes.com/2025/03/13/sports/sailing/sailgp-hans-henken.html
-
-**Alvarez 'two-touch' penalty: Should UEFA rethink the rules after Atletico striker's miss?**\
-`Alvarez's penalty was disallowed by the VAR after the slightest double-touch as he slipped. Should it really have been disallowed?`\
-https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-two-touch-penalty/
-
-**Minnesota fires men's basketball coach Ben Johnson after 4 seasons**\
-`Johnson was 56-71 in four seasons and 22-57 in Big Ten games, with no NCAA Tournament appearances.`\
-https://nytimes.com/athletic/6200356/2025/03/13/minnesota-fires-ben-johnson-mens-basketball/
 

@@ -1,3 +1,7 @@
+**The Trump Loyalist Aiming to Swing Wisconsin Back to the Right**\
+`Brad Schimel, a judge who is so supportive of the president that he dressed up as him for Halloween, is hoping to flip the Wisconsin Supreme Court for conservatives.`\
+https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-court.html
+
 **Russia Claims to Have Regained Control of Key Kursk Town**\
 `Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
 https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6199674/2025/03/13/ravens-free-agency-decisions/
 **Why Evan Engram is far more than a marriage of convenience with the Broncos**\
 `The Broncos were the NFL's most inefficient team on third down when targeting tight ends in 2024. Engram's history says he'll change that.`\
 https://nytimes.com/athletic/6200117/2025/03/13/evan-engram-broncos-free-agency-tight-end/
-
-**Even as the Rockets beat the Suns, Amen Thompson's presence is sorely missed**\
-`Even though the Rockets beat the Suns last night, Amen Thompson's defensive acumen was missing.`\
-https://nytimes.com/athletic/6199569/2025/03/13/amen-thompsons-rockets-win-phoenix-suns/
 
