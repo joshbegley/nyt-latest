@@ -1,3 +1,27 @@
+**Rights Groups Condemn Trump for Using ‘Palestinian’ as a Slur Against Schumer**\
+`President Trump said Chuck Schumer was not “Jewish anymore” in comments that have been widely criticized as offensive.`\
+https://nytimes.com/2025/03/13/us/politics/trump-schumer-palestinian.html
+
+**Champions League winner predictions: Could we see an El Clásico final?**\
+`Julia Ranney discusses whether there’s been any seismic shifts in the Champions League winner markets ahead of the quarter-finals.`\
+https://nytimes.com/athletic/6200288/2025/03/13/champions-league-quarter-finals-betting-tips-predictions/
+
+**Madison Square Park’s Conservancy Names New Chief Curator**\
+`The organization in New York has selected Denise Markonish, the chief curator of Mass MoCA, to lead its next chapter.`\
+https://nytimes.com/2025/03/13/arts/design/madison-square-park-conservancy-curator.html
+
+**Israel-Hamas Talks Deadlocked as Trump Envoy Turns to Ukraine**\
+`The two sides are supposed to negotiate a second phase of the cease-fire agreement that would end the war, but they remain far apart on how to move forward.`\
+https://nytimes.com/2025/03/13/world/middleeast/israel-hamas-ceasefire-trump-ukraine.html
+
+**Explosions and Power Outages Shut Down Texas Tech Campus**\
+`A series of fires and a manhole explosion led officials to shut down the campus and send students home early for spring break.`\
+https://nytimes.com/2025/03/13/us/texas-tech-explosion-lubbock.html
+
+**Trump Threatens 200 Percent Tariff on Champagne and Wine from Europe**\
+`The president said he would impose the levies if the European Union does not walk back plans to slap retaliatory tariffs on whiskey and other U.S. products.`\
+https://nytimes.com/2025/03/13/us/politics/trump-tariff-european-union-whiskey.html
+
 **More than two decades later, viral anthem singer gets redemption in Portland**\
 `On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
 https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/13/arts/television/john-mulaney-everybodys-live-netf
 **Surging Timberwolves have rediscovered their edge: 'It looks really, really good'**\
 `In another win over the Nuggets, Minnesota displayed the tenacity and fire that helped it reach the West finals last season. `\
 https://nytimes.com/athletic/6199788/2025/03/13/timberwolves-nuggets-winning-streak-edge-julius-randle/
-
-**C.E.O.s Look Beyond a Rosy Inflation Report**\
-`Better-than-expected price data can’t quite blunt worries about consumers pulling back, as companies keep scrambling to handle President Trump’s trade fights.`\
-https://nytimes.com/2025/03/13/business/dealbook/ceos-inflation-trade-tariffs.html
-
-**Chargers free-agency reset: Mike Williams return enlivens otherwise ho-hum day**\
-`The Chargers, as expected, haven't made any big-money splash moves. But bringing Williams back to LA is a nice addition. `\
-https://nytimes.com/athletic/6199237/2025/03/13/chargers-free-agency-reset-mike-williams/
-
-**Pete Buttigieg, a Possible 2028 Contender, Won’t Run for Senate in Michigan**\
-`The former transportation secretary, who moved to Michigan from Indiana in 2022, had been seen as the most prominent potential candidate in next year’s marquee contest.`\
-https://nytimes.com/2025/03/13/us/politics/buttigieg-michigan-senate-2028-president.html
-
-**The 49ers' leftovers: Top remaining free-agent fits at positions of need**\
-`It’s slim pickings for teams like the 49ers that held back — way back — at the outset of NFL free agency.`\
-https://nytimes.com/athletic/6198927/2025/03/13/49ers-best-free-agent-fits/
-
-**Sinkers were the subtlety behind Tigers' 'pitching chaos.' Can success continue in 2025?**\
-`The Tigers upped their sinker usage and had terrific batted-ball success during their 31-11 run. Was it luck, or part of a larger trend?`\
-https://nytimes.com/athletic/6195467/2025/03/13/detroit-tigers-sinkers-pitching-success/
-
-**The Versace Era at Versace Is Ending**\
-`Dario Vitale will be the brand’s new designer.`\
-https://nytimes.com/2025/03/13/style/donatella-versace-dario-vitale.html
 
