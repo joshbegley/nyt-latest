@@ -1,3 +1,15 @@
+**Watch: ‘Instruments of a Beating Heart’**\
+`What can we learn from a Japanese elementary school’s effort to balance discipline and freedom?`\
+https://nytimes.com/2025/03/13/learning/watch-instruments-of-a-beating-heart.html
+
+**The New York Times International Edition in Print for Friday, March 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/13/todays-new-york-times-international-edition
+
+**BNP Paribas Open at Indian Wells: How to watch Carlos Alcarez, Iga Swiatek make title runs**\
+`Carlos Alcaraz pursues a three-peat at Indian Wells. Iga Swiatek looks to become the tournament's winningest women's singles player.`\
+https://nytimes.com/athletic/6197937/2025/03/13/bnp-paribas-open-indian-wells-tennis-how-to-watch/
+
 **A Rare Auction in Japan: 165,000 Tons of Emergency Rice**\
 `The government held a rare auction this week to make up for a rice shortage that an official called “truly unthinkable.”`\
 https://nytimes.com/2025/03/13/world/asia/japan-rice-prices-auction.html
