@@ -1,3 +1,11 @@
+**Teenagers Say Girls Are Equal to Boys in School, or Are Ahead**\
+`Reflecting a generational change, two Pew surveys show boys tend to feel discouraged in the classroom, and are less likely than girls to pursue college.`\
+https://nytimes.com/2025/03/13/upshot/teenagers-school-girls-boys.html
+
+**Nottingham Forest Q&A: Key challenges for Ipswich, England squad contenders, what did Nuno say?**\
+`Paul Taylor answers your questions ahead of Nottingham Forest's match with Ipswich Town.`\
+https://nytimes.com/athletic/6200162/2025/03/13/nottingham-forest-england-players-ipswich-team-news/
+
 **In Portugal, a Farmhouse Hotel That’s a Short Walk From the Beach**\
 `Plus: the revival of opera pumps, a new gallery in Texas and more recommendations from T Magazine.`\
 https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html

@@ -1,3 +1,11 @@
+**Teenagers Say Girls Are Equal to Boys in School, or Are Ahead**\
+`Reflecting a generational change, two Pew surveys show boys tend to feel discouraged in the classroom, and are less likely than girls to pursue college.`\
+https://nytimes.com/2025/03/13/upshot/teenagers-school-girls-boys.html
+
+**Nottingham Forest Q&A: Key challenges for Ipswich, England squad contenders, what did Nuno say?**\
+`Paul Taylor answers your questions ahead of Nottingham Forest's match with Ipswich Town.`\
+https://nytimes.com/athletic/6200162/2025/03/13/nottingham-forest-england-players-ipswich-team-news/
+
 **In Portugal, a Farmhouse Hotel That’s a Short Walk From the Beach**\
 `Plus: the revival of opera pumps, a new gallery in Texas and more recommendations from T Magazine.`\
 https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-t
 **Minnesota fires men's basketball coach Ben Johnson after 4 seasons**\
 `Johnson was 56-71 in four seasons and 22-57 in Big Ten games, with no NCAA Tournament appearances.`\
 https://nytimes.com/athletic/6200356/2025/03/13/minnesota-fires-ben-johnson-mens-basketball/
-
-**Kimmich signs new Bayern contract to 2029**\
-`The Germany international, 30, has agreed fresh terms on a new four-year contract with the Bundesliga giants.`\
-https://nytimes.com/athletic/6139571/2025/03/13/bayern-joshua-kimmich-contract-new/
-
-**Houthi Drones Could Become Stealthier and Fly Farther**\
-`A new report documented efforts to smuggle hydrogen fuel cell components into Yemen that will provide Houthi fighters a technological leap ahead.`\
-https://nytimes.com/2025/03/13/us/politics/yemen-houthi-drones-report.html
 
