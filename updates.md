@@ -1,3 +1,7 @@
+**Bosa signed with Bills in part to pursue Allen's Super Bowl promise of 'immortality'**\
+`Bosa said he was feeling "better than I've ever felt in nine years" before his 2024 injury. Now, he joins a Bills team looking for a ring. `\
+https://nytimes.com/athletic/6201478/2025/03/13/bills-joey-bosa-josh-allen-free-agency/
+
 **How Sean McVay's aggressive recruiting style brought Davante Adams to L.A.**\
 `Davante Adams was in Japan when he received video cutups from Sean McVay, who was showing the receiver how he'd fit in the Rams' offense.`\
 https://nytimes.com/athletic/6200998/2025/03/13/rams-davante-adams-sean-mcvay-recruiting/
