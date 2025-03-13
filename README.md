@@ -1,3 +1,11 @@
+**The Windup: Why the AL Central is so tricky to pick**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
+
+**National Rally Leader Heads to Israel, a First for French Far-Right Party**\
+`As Jordan Bardella, its young president, tries to distance the party from its history of antisemitism, it is making common cause with Israel against “Islamist ideology.”`\
+https://nytimes.com/2025/03/13/world/europe/jordan-bardella-israel-far-right.html
+
 **Chocolate. Guinness. Cake.**\
 `Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
 https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champ
 **F1 championship odds project a tight season with no clear favorite**\
 `Lando Norris and McLaren start the 2025 F1 season as the betting favorites to win titles, but neither are clear favorites.`\
 https://nytimes.com/athletic/6195375/2025/03/13/2025-f1-championship-odds-mclaren-ferrari-red-bull-verstappen-norris/
-
-**James Reason, Who Used Swiss Cheese to Explain Human Error, Dies at 86**\
-`Mistakes happen, he theorized, because multiple vulnerabilities in a system align — like the holes in cheese — to create a recipe for disaster.`\
-https://nytimes.com/2025/03/13/science/james-reason-dead.html
-
-**From 'overregulating to the Wild West': Youth soccer players bypassing college for NWSL**\
-`With more teenagers going pro, college soccer is left to soul search - and consider the risks`\
-https://nytimes.com/athletic/6199487/2025/03/13/nwsl-college-soccer-youth-movement/
 
