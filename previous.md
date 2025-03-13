@@ -1,8 +1,24 @@
+**Teixeira, Calling Himself ‘Proud Patriot,’ Appeals to Trump for Leniency**\
+`In pleading guilty during his military-court martial, Jack Teixeira made a direct appeal to President Trump, reflecting a tactic being employed by an increasing number of convicted criminals and their lawyers.`\
+https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.html
+
+**Musk Met This Week With General Who Leads N.S.A. and Cyber Command, an N.S.A. Spokesman Says**\
+`The talks suggest that the effort to shrink the size of the federal work force could soon turn to a critical arm of the intelligence community.`\
+https://nytimes.com/2025/03/13/us/politics/elon-musk-nsa.html
+
+**Seahawks wanted to keep Geno Smith and DK Metcalf but had to pivot, GM says**\
+`GM John Schneider thought he could resolve DK Metcalf's trade requests, while it was "pretty evident" Geno Smith and Seattle were far apart.`\
+https://nytimes.com/athletic/6201681/2025/03/13/seahawks-geno-smith-dk-metcalf-john-schneider/
+
+**‘I Love My Job’: Laid-Off Federal Worker on DOGE Cuts**\
+`Jasmin Dominguez, a former U.S. Forest Service employee, was fired weeks after helping fight the Los Angeles wildfires. Her termination was part of the Trump administration’s efforts to shrink the government.`\
+https://nytimes.com/video/us/politics/100000010032636/federal-worker-layoff-doge.html
+
 **Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
 `Fox, 27, had been playing with a dislocated left pinky finger on his left shooting hand all season long`\
 https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
 
-**Raúl Grijalva, Democrat Who Urged Biden to Drop Out in 2024, Dies of Cancer**\
+**Raúl Grijalva, Democrat who urged Biden to drop out in 2024, dies of cancer.**\
 `Representative Raúl M. Grijalva, 77, was one of the first Democrats to push the president to end his re-election campaign, citing the potential danger of a second Trump administration.`\
 https://nytimes.com/live/2025/03/13/us/trump-tariff-government-news/raul-grijalva-dead-biden
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/13/us/government-shutdown-senate-democrats.html
 **Chiefs, QB Gardner Minshew agree to one-year deal: Sources**\
 `Minshew finished the 2024 season with a 2-7 record for the Raiders. Now, he's the latest veteran quarterback to back up Patrick Mahomes. `\
 https://nytimes.com/athletic/6201970/2025/03/13/gardner-minshew-free-agency-signing-2025-chiefs/
-
-**Felice Picano, Champion of Gay Literature, Is Dead at 81**\
-`At a time when, in his words, “nobody was writing about gay life,” he produced groundbreaking novels and memoirs and published books by Harvey Fierstein and others.`\
-https://nytimes.com/2025/03/13/books/felice-picano-dead.html
-
-**Trump Wants to Speed Up Deportations With Alien Enemies Act: What to Know**\
-`The Alien Enemies Act of 1798 gives the president wartime powers to deport undocumented immigrants with little to no due process.`\
-https://nytimes.com/2025/03/13/us/politics/alien-enemies-act-trump.html
-
-**Larry Buendorf, U.S. Agent Who Saved President Ford, Dies at 87**\
-`By grabbing a loaded handgun from Squeaky Fromme in 1975, Mr. Buendorf, as part of a Secret Service detail, thwarted a would-be assassin in California’s capital.`\
-https://nytimes.com/2025/03/13/us/politics/larry-buendorf-dead.html
-
-**NHL rumblings: 84-game schedule being considered for 2026-27, and could league cancel '26 All-Star Game?**\
-`Also, with the possibility of a first-round series between the Avs and Stars, many around the NHL see reason to change the playoff format.`\
-https://nytimes.com/athletic/6201893/2025/03/13/nhl-rumblings-schedule-all-star-playoff-format/
 
