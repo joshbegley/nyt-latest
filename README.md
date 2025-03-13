@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster
 https://nytimes.com/athletic/6176154/2025/03/13/cameron-brink-sparks-wnba-paris-fashion-week/
 
 **Australian GP storylines: Everyone agrees on McLaren, but Red Bull is a mystery**\
-`Unlike the past few years, reigning champion Max Verstappen doesn’t appear to be the favorite to win the first race.`\
+`Unlike the past few years, reigning champion Max Verstappen doesn’t appear to be the favorite to win the season's first race.`\
 https://nytimes.com/athletic/6199595/2025/03/13/f1-australian-gp-preview-mclaren-lewis-hamilton-max-verstappen/
 
 **Manchester United live Q&A: Mark Critchley answers your questions**\
