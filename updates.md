@@ -1,3 +1,11 @@
+**Seattle's Brandon Montour scores fastest goal in NHL overtime history**\
+`It was Montour's second goal of the game in addition to two assists.`\
+https://nytimes.com/athletic/6200818/2025/03/13/brandon-montour-kraken-canadiens-fastest-goal-overtime-history/
+
+**Wall Street’s Slide Resumes as Tariff Anxiety Persists for Investors**\
+`The S&P 500 is on the cusp of closing in a correction, or a 10% drop from its February high. Constantly moving goal posts on tariffs and trade have rattled investors.`\
+https://nytimes.com/2025/03/13/business/stock-market-today.html
+
 **The E.P.A. Shifts Its Mission**\
 `The agency was created to protect the environment and public health, but a series of moves suggests it is transforming under President Trump.`\
 https://nytimes.com/2025/03/13/climate/the-epa-shifts-its-mission.html
