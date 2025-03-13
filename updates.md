@@ -1,3 +1,7 @@
+**The Pulse: Let's take a vibe check and buy a vulgar hat**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6197924/2025/03/13/nhl-nba-playoff-races-the-pulse/
+
 **U.S. Negotiators Are En Route to Moscow, Kremlin Says**\
 `President Vladimir V. Putin of Russia is weighing a 30-day cease-fire proposal from the United States and Ukraine.`\
 https://nytimes.com/2025/03/13/world/europe/moscow-us-ukraine-russia-talks.html
