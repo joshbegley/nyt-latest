@@ -1,3 +1,15 @@
+**Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
+`Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
+https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
+
+**Wine Businesses Fear Disaster in Threat of Huge Tariffs**\
+`President Trump’s threat to impose  200 percent fees on European wines could harm importers, distributors, retailers and restaurants without necessarily helping U.S. producers.`\
+https://nytimes.com/2025/03/13/dining/drinks/wine-trump-tariffs.html
+
+**Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
+`Fox, 27, had been playing with a dislocated pinky finger on his left shooting hand all season.`\
+https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
+
 **Teixeira, Calling Himself ‘Proud Patriot,’ Appeals to Trump for Leniency**\
 `In pleading guilty during his military-court martial, Jack Teixeira made a direct appeal to President Trump, reflecting a tactic being employed by an increasing number of convicted criminals and their lawyers.`\
 https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.html
