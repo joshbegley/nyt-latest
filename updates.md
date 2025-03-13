@@ -1,3 +1,19 @@
+**Felice Picano, Champion of Gay Literature, Is Dead at 81**\
+`At a time when, in his words, “nobody was writing about gay life,” he produced groundbreaking novels and memoirs and published books by Harvey Fierstein and others.`\
+https://nytimes.com/2025/03/13/books/felice-picano-dead.html
+
+**Trump Wants to Speed Up Deportations With Alien Enemies Act: What to Know**\
+`The Alien Enemies Act of 1798 gives the president wartime powers to deport undocumented immigrants with little to no due process.`\
+https://nytimes.com/2025/03/13/us/politics/alien-enemies-act-trump.html
+
+**Larry Buendorf, U.S. Agent Who Saved President Ford, Dies at 87**\
+`By grabbing a loaded handgun from Squeaky Fromme in 1975, Mr. Buendorf, as part of a Secret Service detail, thwarted a would-be assassin in California’s capital.`\
+https://nytimes.com/2025/03/13/us/politics/larry-buendorf-dead.html
+
+**What to Know About Trump’s Large-Scale Layoff Plans So Far**\
+`Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
+https://nytimes.com/article/trump-firings-layoffs-rif.html
+
 **Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
 `The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
 `\
