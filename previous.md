@@ -1,3 +1,7 @@
+**Nuggets still searching for solutions to the problems Timberwolves cause**\
+`What is patently clear following the last five matchups is that Minnesota is a real issue for Denver.`\
+https://nytimes.com/athletic/6199677/2025/03/13/denver-nuggets-minnesota-timberwolves-bad-matchup/
+
 **Untangle**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/03/13/learning/untangle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6196946/2025/03/13/fpl-gw-29-free-hit-haaland-wood-
 **Watching Arsenal's surreal and tensionless Champions League evening**\
 `Arsenal advanced to the Champions League quarter-finals after a huge first leg victory over PSV`\
 https://nytimes.com/athletic/6199071/2025/03/13/arsenal-champions-league-psv-fans/
-
-**CFC LDN: Why Chelsea are leaning on their London heritage with new branding**\
-`CFC LDN has been popping up around Chelsea's ground and on social media recently - but what does it mean?`\
-https://nytimes.com/athletic/6177006/2025/03/13/cfc-ldn-chelsea-london/
 
