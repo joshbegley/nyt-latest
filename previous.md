@@ -1,3 +1,7 @@
+**NHL rumblings: 84-game schedule being considered for 2026-27, and could league cancel '26 All-Star Game?**\
+`Also, with the possibility of a first-round series between the Avs and Stars, many around the NHL see reason to change the playoff format.`\
+https://nytimes.com/athletic/6201893/2025/03/13/nhl-rumblings-schedule-all-star-playoff-format/
+
 **What to Know About Trump’s Large-Scale Layoffs Plans So Far**\
 `Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
 https://nytimes.com/article/trump-firings-layoffs-rif.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/13/briefing/rehiring-federal-workers-putin-ukraine-c
 `The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
 `\
 https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
-
-**Judge Orders Musk and His Team to Turn Over Records and Answer Questions**\
-`Mr. Musk’s Department of Government Efficiency has largely been shrouded in secrecy, but court cases are one way opponents of President Trump’s overhaul efforts have sought clarity.`\
-https://nytimes.com/2025/03/13/us/politics/elon-musk-doge-records-questioning.html
 

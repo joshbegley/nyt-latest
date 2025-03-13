@@ -1,8 +1,16 @@
+**Trump Wants to Speed Up Deportations With Alien Enemies Act: What to Know**\
+`The Alien Enemies Act of 1798 gives the president wartime powers to deport undocumented immigrants with little to no due process.`\
+https://nytimes.com/2025/03/13/us/politics/trump-wants-to-speed-up-deportations-with-alien-enemies-act-what-to-know.html
+
+**Larry Buendorf, U.S. Agent Who Saved President Ford, Dies at 87**\
+`By grabbing a loaded handgun from Squeaky Fromme in 1975, Mr. Buendorf, as part of a Secret Service detail, thwarted a would-be assassin in California’s capital.`\
+https://nytimes.com/2025/03/13/us/politics/larry-buendorf-dead.html
+
 **NHL rumblings: 84-game schedule being considered for 2026-27, and could league cancel '26 All-Star Game?**\
 `Also, with the possibility of a first-round series between the Avs and Stars, many around the NHL see reason to change the playoff format.`\
 https://nytimes.com/athletic/6201893/2025/03/13/nhl-rumblings-schedule-all-star-playoff-format/
 
-**What to Know About Trump’s Large-Scale Layoffs Plans So Far**\
+**What to Know About Trump’s Large-Scale Layoff Plans So Far**\
 `Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
 https://nytimes.com/article/trump-firings-layoffs-rif.html
 
@@ -29,13 +37,4 @@ https://nytimes.com/2025/03/13/nyregion/vandelay-industries-fraud-sentencing-bro
 **Browns could take a chance on Russell Wilson, but it wouldn't solve their QB problem**\
 `It feels like Cleveland is down to either Wilson or Kirk Cousins in its chase for an opening-day starter and at least a temporary No. 1 QB.`\
 https://nytimes.com/athletic/6201617/2025/03/13/russell-wilson-browns-visit-free-agency/
-
-**A Judge Ordered the U.S. to Rehire Thousands of Workers**\
-`Also, Putin said he was open to a cease-fire, but with many conditions. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/03/13/briefing/rehiring-federal-workers-putin-ukraine-cease-fire.html
-
-**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
-`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
-`\
-https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
 
