@@ -1,3 +1,19 @@
+**Tornado Reported in Los Angeles as Storm Batters California**\
+`Parts of the city had been urged to evacuate as a powerful system brought rain and snow up and down the state.`\
+https://nytimes.com/2025/03/13/weather/los-angeles-tornado-california-storm.html
+
+**What to Know About Russia’s Drive to Push Ukraine’s Troops Out of Kursk**\
+`Russia claimed to retake a key town in the area from Ukrainian forces. Ukraine’s top military commander has said that its forces would continue to “hold the line.”`\
+https://nytimes.com/2025/03/13/world/europe/kursk-ukraine-russia-war.html
+
+**Trump Administration Must Rehire Thousands of Fired Workers, Judge Rules**\
+`A federal judge on Thursday called the administration’s justification for firing thousands of workers with probationary status a “sham.”`\
+https://nytimes.com/2025/03/13/us/politics/trump-federal-workers-rehire-ruling.html
+
+**Cheeto shaped like Michael Jordan's Jumpman logo up for auction**\
+`Cheetos resembling famous people or characters are hot`\
+https://nytimes.com/athletic/6200718/2025/03/13/cheeto-michael-jordan-charizard-pokemon/
+
 **Passionate Voices in an Anguished Time**\
 `Readers make heartfelt pleas in the age of Trump. Also: The E.P.A. abandons its mission.`\
 https://nytimes.com/2025/03/13/opinion/trump-voices-anguish.html
