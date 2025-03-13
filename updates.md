@@ -1,3 +1,12 @@
+**Maker of Pokémon Go Agrees to Sell Unit to Saudi Fund**\
+`Scopely said it would buy Niantic’s video game business, which includes Pokémon Go, for $3.5 billion. Saudi Arabia’s sovereign wealth fund acquired Scopely in 2023.`\
+https://nytimes.com/2025/03/13/world/middleeast/pokemon-go-niantic-scopely-sale.html
+
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **Premier League outright markets: Best bets to make with 10 games to go**\
 `Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
 `\
