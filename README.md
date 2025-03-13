@@ -1,3 +1,11 @@
+**Bears newcomer Grady Jarrett bringing energy to Halas Hall: 'I'm just so fired up'**\
+`Bears fans got their first dose of Jarrett, and the passion he'll bring on and off the field, in his opening news conference at Halas Hall.`\
+https://nytimes.com/athletic/6198911/2025/03/13/bears-grady-jarrett-energy/
+
+**Mistakes doom Celtics against Thunder and must be cleaned up before the playoffs**\
+`Oklahoma City physically overwhelmed Boston, which got careless with the ball and on defense in Wednesday's loss. `\
+https://nytimes.com/athletic/6199729/2025/03/13/celtics-thunder-loss-jayson-tatum-joe-mazzulla/
+
 **Phillies Opening Day roster projection: Who gets the final spots?**\
 `The edges of the roster remain somewhat unsettled. Here's our best guess at how it all looks March 27 in Washington.`\
 https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster-projection/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6199097/2025/03/13/mets-mark-vientos-goals/
 **The top 20 head coaches in college football's Group of 5**\
 `This isn’t a list of coaches most likely to take other jobs. It’s a ranking of what they’ve accomplished in their given situations.`\
 https://nytimes.com/athletic/6198850/2025/03/13/group-of-5-football-head-coach-rankings/
-
-**Coby White's growth on display in Chicago: 'Seeing the game on a totally different level’**\
-`White never stopped chasing improvement. And now the way his coach describes him sounds much different.`\
-https://nytimes.com/athletic/6199198/2025/03/13/coby-white-bulls-nba/
-
-**Browns should have traded Myles Garrett instead of signing him to historic extension**\
-`Garrett is a Hall of Fame player, but it was in the team's best interest to deal him because of where it resides and his career timeline. `\
-https://nytimes.com/athletic/6198082/2025/03/13/cleveland-browns-myles-garrett-contract/
 
