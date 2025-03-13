@@ -1,3 +1,11 @@
+**The E.P.A. Shifts Its Mission**\
+`The agency was created to protect the environment and public health, but a series of moves suggests it is transforming under President Trump.`\
+https://nytimes.com/2025/03/13/climate/the-epa-shifts-its-mission.html
+
+**Rays pull out of ballpark project, leaving St. Petersburg future uncertain**\
+`The Rays said that Hurricane Milton created an unexpected situation and project delays that led to this decision.`\
+https://nytimes.com/athletic/6200970/2025/03/13/rays-stadium-st-petersburg-project-ends/
+
 **The South and Midwest Face Days of Severe Weather and Tornado Threats**\
 `A system over the northern part of the U.S. is expected to fuel damaging winds, hail and tornadoes farther south.`\
 https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html

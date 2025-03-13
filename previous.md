@@ -1,3 +1,11 @@
+**The E.P.A. Shifts Its Mission**\
+`The agency was created to protect the environment and public health, but a series of moves suggests it is transforming under President Trump.`\
+https://nytimes.com/2025/03/13/climate/the-epa-shifts-its-mission.html
+
+**Rays pull out of ballpark project, leaving St. Petersburg future uncertain**\
+`The Rays said that Hurricane Milton created an unexpected situation and project delays that led to this decision.`\
+https://nytimes.com/athletic/6200970/2025/03/13/rays-stadium-st-petersburg-project-ends/
+
 **The South and Midwest Face Days of Severe Weather and Tornado Threats**\
 `A system over the northern part of the U.S. is expected to fuel damaging winds, hail and tornadoes farther south.`\
 https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6192448/2025/03/13/liverpool-premier-league-title-w
 **Time is a Flat Portobello Cap**\
 `It’s been a while since our last Mushroom Week. Let’s correct that today with this maitake au poivre.`\
 https://nytimes.com/2025/03/13/dining/time-is-a-flat-portobello-cap.html
-
-**U.N. Accuses Israel of Targeting Reproductive Health Facilities in Gaza**\
-`A report by a U.N. committee found that Israel has committed “genocidal acts” intended to prevent births. Israel quickly rejected the findings as biased.`\
-https://nytimes.com/2025/03/13/world/middleeast/un-israel-gaza.html
-
-**Madrid's Mendy suffers hamstring injury**\
-`The 29-year-old sustained the injury during his side’s Champions League round of 16 victory over Atletico Madrid on Wednesday.`\
-https://nytimes.com/athletic/6200112/2025/03/13/ferland-mendy-injury-update-real-madrid/
 

@@ -1,3 +1,11 @@
+**Seattle's Brandon Montour scores fastest goal in NHL overtime history**\
+`It was Montour's second goal of the game in addition to two assists.`\
+https://nytimes.com/athletic/6200818/2025/03/13/brandon-montour-kraken-canadiens-fastest-goal-overtime-history/
+
+**Wall Street’s Slide Resumes as Tariff Anxiety Persists for Investors**\
+`The S&P 500 is on the cusp of closing in a correction, or a 10% drop from its February high. Constantly moving goal posts on tariffs and trade have rattled investors.`\
+https://nytimes.com/2025/03/13/business/stock-market-today.html
+
 **The E.P.A. Shifts Its Mission**\
 `The agency was created to protect the environment and public health, but a series of moves suggests it is transforming under President Trump.`\
 https://nytimes.com/2025/03/13/climate/the-epa-shifts-its-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6201070/2025/03/13/duke-cooper-flagg-injury-basketb
 **How to boost your fantasy baseball team's batting average via a closer look at the data**\
 `John Laghezza does a data deep dive into batting average and shares how to boost your fantasy baseball team's batting average. `\
 https://nytimes.com/athletic/6197601/2025/03/13/batting-average-data-fantasy-baseball/
-
-**When can Liverpool win the Premier League title?**\
-`The permutations for when Arne Slot's side can be crowned champions - and what the club might be planning`\
-https://nytimes.com/athletic/6192448/2025/03/13/liverpool-premier-league-title-when-permutations/
-
-**Time is a Flat Portobello Cap**\
-`It’s been a while since our last Mushroom Week. Let’s correct that today with this maitake au poivre.`\
-https://nytimes.com/2025/03/13/dining/time-is-a-flat-portobello-cap.html
 
