@@ -1,3 +1,7 @@
+**EA Sports College Football 26 cover leak highlights more players, coaches**\
+`Players visible on the cover leak include Ohio State's Jeremiah Smith, Alabama's Ryan William and Michigan's Bryce Underwood.`\
+https://nytimes.com/athletic/6199371/2025/03/12/cfb26-cover-leaked-ea-sports/
+
 **Things to Brood Over**\
 `Rich Proulx and Simeon Seigel encourage us to use questionable table manners.`\
 https://nytimes.com/2025/03/12/crosswords/daily-puzzle-2025-03-13.html
