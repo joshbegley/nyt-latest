@@ -1,40 +1,40 @@
-**Sports commentator John Feinstein dies at 68**\
-`Feinstein wrote more than 40 books on a variety of sports including "A Season on the Brink" about Indiana basketball.`\
-https://nytimes.com/athletic/6201375/2025/03/13/sports-commentator-john-feinstein-dies-69/
+**Melbourne Returns as Formula 1’s Season Opener**\
+`The Australian city hosted the first race of the year for most of the last three decades before the Covid-19 pandemic. Now it’s back.`\
+https://nytimes.com/2025/03/13/sports/autoracing/f1-melbourne-season-opener.html
 
-**CrossFit Is for Sale Again Amid Years of Shake-Ups**\
-`The search for new owners comes after a tumultuous five years for the fitness company, including an athlete death and financial concerns.`\
-https://nytimes.com/2025/03/13/business/dealbook/crossfit-for-sale.html
+**Seven takeaways from Wisconsin's opening spring practice amid offseason of change**\
+`“I’ll try to keep my mouth shut because I think we’ve got to prove a lot of different things,” coach Luke Fickell said Thursday. `\
+https://nytimes.com/athletic/6201433/2025/03/13/wisconsin-spring-football-practice-takeaways/
 
-**Voters’ Voices on Trump’s First 100 Days**\
-`A series of check-ins with a variety of voters who made their choices in November’s election with some hesitation. We are documenting their impressions of the first 100 days of President Trump’s second term.`\
-https://nytimes.com/series/voters-voices-trump-administration
+**True Colors Come Out at the Australian Grand Prix**\
+`Because Formula 1 teams try to hide their capabilities during preseason testing, the first race often shows who is fast and who is not.`\
+https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix-first-race.html
 
-**What’s Going On in This Picture? | March 17, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html
+**Live from The Players, it’s The Jordan Spieth Experience**\
+`Spieth has always been golf’s great shot of tequila, playing a different sport from his peers inside the finest of margins.`\
+https://nytimes.com/athletic/6201458/2025/03/13/jordan-spieth-the-players-championship-golf/
 
-**What’s Going On in This Graph? | March 26, 2025**\
-`What do you notice about the mass of biological (living) forms and mass of technological (man-made) forms on Earth? What do you wonder?`\
-https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-graph-march-26-2025.html
+**Rafael Devers says he’s OK to be DH on Opening Day; Lucas Giolito to start on IL**\
+`After saying earlier that he didn't want to be a designated hitter, Devers now seems OK with the idea: "I’ve matured a lot during this."`\
+https://nytimes.com/athletic/6201483/2025/03/13/red-sox-rafael-devers-dh-lucas-giolito-injury/
 
-**Federal Workers Union Sues Trump Administration to Preserve T.S.A. Contract**\
-`The largest federal employees union is suing the Homeland Security Department to stop the Trump administration from canceling its contract with T.S.A. workers.`\
-https://nytimes.com/2025/03/13/us/politics/federal-workers-union-lawsuit-tsa.html
+**Trump’s Birthright Citizenship Order Reaches the Supreme Court**\
+`Trump administration lawyers asked the justices to limit the sweep of decisions by three lower courts that had issued nationwide pauses on the policy.`\
+https://nytimes.com/2025/03/13/us/politics/trump-birthright-citizenship-supreme-court.html
 
-**‘We Hear You, Mr. President’: The World Lines Up to Buy American Gas**\
-`Facing Trump tariff threats, governments and companies are proposing major investments in American liquefied natural gas projects.`\
-https://nytimes.com/2025/03/13/climate/trump-tariff-natural-gas-investment.html
+**What Teens Are Saying About Age Limits for Anti-Aging Skin Care**\
+`Students reacted to a California bill that, if passed, would make it illegal for companies to sell such products to shoppers under 18 years old.`\
+https://nytimes.com/2025/03/13/learning/what-teens-are-saying-about-age-limits-for-anti-aging-skin-care.html
 
-**Review: A Tharp Master Class on Themes, Variations and Allusions**\
-`A program celebrating Twyla Tharp’s 60th year making dances features the masterwork “Diabelli” and the fresh new “Slacktide,” set to Philip Glass.`\
-https://nytimes.com/2025/03/13/arts/dance/review-twyla-tharp-diabelli-slacktide.html
+**A Timeline of Trump’s On-Again, Off-Again Tariffs**\
+`In the first 50 days of his second term, President Trump’s penchant for imposing and then suspending tariffs has shaken markets and confounded trading partners.`\
+https://nytimes.com/2025/03/13/business/economy/trump-tariff-timeline.html
 
-**How to watch Cavalier vs. Inter Miami: Messi's side seeks Concacaf quarterfinals**\
-`Lionel Messi, Javier Mascherano and MLS' Inter Miami continue their run in the Concacaf Champions Cup. It's Messi's Jamaica debut.`\
-https://nytimes.com/athletic/6201140/2025/03/13/inter-miami-cavalier-messi-how-to-watch/
+**A Spotlight on Asian American Culture Today**\
+``\
+https://nytimes.com/issue/arts/2025/03/13/asian-american
 
-**Pistons' Jaden Ivey addresses media for first time since fibula injury**\
-`Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
-https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
+**A Composer Both Fully Modern and Sincerely Spiritual**\
+`Sofia Gubaidulina’s work, with its thorniness and religious themes, put her at odds with the Soviet government.`\
+https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-composer-appraisal.html
 

@@ -1,10 +1,6 @@
-**A Composer Both Fully Modern and Sincerely Spiritual**\
-`Sofia Gubaidulina’s work, with its thorniness and religious themes, put her at odds with the Soviet government.`\
-https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-composer-appraisal.html
-
 **Sports commentator John Feinstein dies at 68**\
 `Feinstein wrote more than 40 books on a variety of sports including "A Season on the Brink" about Indiana basketball.`\
-https://nytimes.com/athletic/6201375/2025/03/13/sports-commentator-john-feinstein-dies-68/
+https://nytimes.com/athletic/6201375/2025/03/13/sports-commentator-john-feinstein-dies-69/
 
 **CrossFit Is for Sale Again Amid Years of Shake-Ups**\
 `The search for new owners comes after a tumultuous five years for the fitness company, including an athlete death and financial concerns.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2025/03/13/arts/dance/review-twyla-tharp-diabelli-slacktide.
 **How to watch Cavalier vs. Inter Miami: Messi's side seeks Concacaf quarterfinals**\
 `Lionel Messi, Javier Mascherano and MLS' Inter Miami continue their run in the Concacaf Champions Cup. It's Messi's Jamaica debut.`\
 https://nytimes.com/athletic/6201140/2025/03/13/inter-miami-cavalier-messi-how-to-watch/
+
+**Pistons' Jaden Ivey addresses media for first time since fibula injury**\
+`Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
+https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
 
