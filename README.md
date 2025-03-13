@@ -1,3 +1,15 @@
+**Things to Brood Over**\
+`Rich Proulx and Simeon Seigel encourage us to use questionable table manners.`\
+https://nytimes.com/2025/03/12/crosswords/daily-puzzle-2025-03-13.html
+
+**Mac Jones, 49ers agree to terms on 2-year deal**\
+`Jones, a 2021 first-round pick by the Patriots, started seven games for the Jaguars in 2024 as Trevor Lawrence's backup.`\
+https://nytimes.com/athletic/6181410/2025/03/12/mac-jones-49ers-free-agency-signing/
+
+**Messi in Jamaica: Calm reception, 'inspiration' – and unclear game status**\
+`Lionel Messi's presence in Jamaica is a significant moment for the Caribbean nation, but whether he'll actually play remains unclear.`\
+https://nytimes.com/athletic/6199293/2025/03/12/messi-jamaica-inter-miami-cavalier-concacaf-champions-cup/
+
 **Kansas ties NCAA record by hitting 5 consecutive home runs**\
 `The home run barrage was part of an eight-run third inning in a 29-1 win over Minnesota at U.S. Bank Stadium in Minneapolis. `\
 https://nytimes.com/athletic/6199315/2025/03/12/kansas-college-baseball-five-home-runs-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-dies-54-nba-suns-a
 **Justice Dept. Opens Investigation Into Migrant Shelters in New York**\
 `Prosecutors asked for a list of names of “aliens” living at a Manhattan hotel. The city houses about 43,000 migrants in shelters, including dozens of converted hotels.`\
 https://nytimes.com/2025/03/12/nyregion/migrant-shelters-new-york-federal-probe.html
-
-**Why the Philippines’ Ex-President Duterte Was Arrested Now**\
-`Rodrigo Duterte carried out a war on drugs in the Philippines that rights groups say killed 30,000 people.`\
-https://nytimes.com/video/world/asia/100000010045770/duterte-arrest.html
-
-**Northwestern coach Chris Collins calls out Big Ten for hotel issue**\
-`The Wildcats beat Minnesota in a Big Ten tournament first-round game on Wednesday and will face Wisconsin on Thursday.`\
-https://nytimes.com/athletic/6199061/2025/03/12/northwestern-basketball-chris-collins-big-ten/
-
-**Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
-`The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
-https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
 
