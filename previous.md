@@ -1,3 +1,19 @@
+**Untangle**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/03/13/learning/untangle.html
+
+**New York City’s Population Ticks Up to More Than 8.4 Million**\
+`Fewer people leaving the city and more foreign newcomers have helped erase pandemic losses, new census data shows.`\
+https://nytimes.com/2025/03/13/nyregion/nyc-population-2024.html
+
+**He Was Once the ‘Subway Ninja.’ He Would Like to Explain.**\
+`In the lowest moment of Selwyn Bernardez’s life, he attacked a stranger with a sword. It was another transit horror story, but with a different ending.`\
+https://nytimes.com/2025/03/13/nyregion/nyc-subway-ninja-sword-interview.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/13/crosswords/spelling-bee-forum.html
+
 **Lando Norris downplays 'short-sighted' hype about McLaren's F1 advantage**\
 `A quick race simulation by Norris on the second day of testing caught the attention of rival teams`\
 https://nytimes.com/athletic/6199720/2025/03/13/f1-lando-norris-mclaren-australian-gp/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6199071/2025/03/13/arsenal-champions-league-psv-fan
 **CFC LDN: Why Chelsea are leaning on their London heritage with new branding**\
 `CFC LDN has been popping up around Chelsea's ground and on social media recently - but what does it mean?`\
 https://nytimes.com/athletic/6177006/2025/03/13/cfc-ldn-chelsea-london/
-
-**Jarell Quansah - Liverpool need you**\
-`The young Liverpool defender may have to step up in the Carabao Cup final again, just as he did last season`\
-https://nytimes.com/athletic/6197610/2025/03/13/jarell-quansah-liverpool-needs-you-carabao-cup-final-newcastle/
-
-**Who should make Tuchel's first England squad?**\
-`A group of our writers pick their 23-man England squads as the Tuchel era begins and explain how they made their decisions`\
-https://nytimes.com/athletic/6193286/2025/03/13/thomas-tuchel-first-england-squad/
-
-**The 25ft screen powering Hansi Flick's Barca revolution**\
-`A new concept introduced by Flick to Barca training sessions has played a part in their success this season`\
-https://nytimes.com/athletic/6197673/2025/03/13/barcelona-hansi-flick-big-screen/
-
-**Ruben Amorim thinks attacking towards the Stretford End in the first half helps Man Utd. What if he's right?**\
-`How the Manchester United head coach has hacked a tactic usually deployed by away sides to try to help improve his team's home form`\
-https://nytimes.com/athletic/6196949/2025/03/13/manchester-united-coin-toss-change-ends-analysis/
 

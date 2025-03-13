@@ -1,3 +1,19 @@
+**Untangle**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/03/13/learning/untangle.html
+
+**New York City’s Population Ticks Up to More Than 8.4 Million**\
+`Fewer people leaving the city and more foreign newcomers have helped erase pandemic losses, new census data shows.`\
+https://nytimes.com/2025/03/13/nyregion/nyc-population-2024.html
+
+**He Was Once the ‘Subway Ninja.’ He Would Like to Explain.**\
+`In the lowest moment of Selwyn Bernardez’s life, he attacked a stranger with a sword. It was another transit horror story, but with a different ending.`\
+https://nytimes.com/2025/03/13/nyregion/nyc-subway-ninja-sword-interview.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/13/crosswords/spelling-bee-forum.html
+
 **Lando Norris downplays 'short-sighted' hype about McLaren's F1 advantage**\
 `A quick race simulation by Norris on the second day of testing caught the attention of rival teams`\
 https://nytimes.com/athletic/6199720/2025/03/13/f1-lando-norris-mclaren-australian-gp/
