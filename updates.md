@@ -1,3 +1,15 @@
+**Teslas at the White House Revive Memories of Musk in Beijing**\
+`When President Trump hosted Elon Musk and his electric vehicles this week, it recalled a visit years earlier to the Communist Party’s leadership compound.`\
+https://nytimes.com/2025/03/13/us/politics/trump-tesla-musk-china-beijing.html
+
+**The Athletic FC: Alvarez penalty nightmare explained, scrap for Club World Cup bases**\
+`Today in TAFC: Alvarez's 'two-touch' penalty and Atleti 'curse' explained. Plus: Club World Cup sides battling for the best training bases.`\
+https://nytimes.com/athletic/6199900/2025/03/13/atletico-real-madrid-champions-league-alvarez-penalty/
+
+**Hours after minutes dispute, Mikal Bridges and Tom Thibodeau enjoy a last-second win**\
+`Things started awkwardly between the Knicks starter and coach, and then ended with Bridges hitting the game-winner in overtime vs. Portland.`\
+https://nytimes.com/athletic/6199732/2025/03/13/knicks-mikal-bridges-tom-thibodeau-minutes-portland/
+
 **Any more questions? Thunder show defending champion Celtics how good they are**\
 `Even missing their second-best player, the Thunder swarmed Boston behind another MVP-level performance from Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/6199713/2025/03/13/thunder-shai-gilgeous-alexander-boston-win/

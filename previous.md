@@ -1,3 +1,15 @@
+**Teslas at the White House Revive Memories of Musk in Beijing**\
+`When President Trump hosted Elon Musk and his electric vehicles this week, it recalled a visit years earlier to the Communist Party’s leadership compound.`\
+https://nytimes.com/2025/03/13/us/politics/trump-tesla-musk-china-beijing.html
+
+**The Athletic FC: Alvarez penalty nightmare explained, scrap for Club World Cup bases**\
+`Today in TAFC: Alvarez's 'two-touch' penalty and Atleti 'curse' explained. Plus: Club World Cup sides battling for the best training bases.`\
+https://nytimes.com/athletic/6199900/2025/03/13/atletico-real-madrid-champions-league-alvarez-penalty/
+
+**Hours after minutes dispute, Mikal Bridges and Tom Thibodeau enjoy a last-second win**\
+`Things started awkwardly between the Knicks starter and coach, and then ended with Bridges hitting the game-winner in overtime vs. Portland.`\
+https://nytimes.com/athletic/6199732/2025/03/13/knicks-mikal-bridges-tom-thibodeau-minutes-portland/
+
 **Any more questions? Thunder show defending champion Celtics how good they are**\
 `Even missing their second-best player, the Thunder swarmed Boston behind another MVP-level performance from Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/6199713/2025/03/13/thunder-shai-gilgeous-alexander-boston-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster
 **Cameron Brink is a face of the WNBA — even if basketball doesn't solely define her**\
 `Basketball is still first, but the 2024 WNBA Draft's No. 2 pick, while recovering from a torn ACL, has remained busy away from the court.`\
 https://nytimes.com/athletic/6176154/2025/03/13/cameron-brink-sparks-wnba-paris-fashion-week/
-
-**Australian GP storylines: Everyone agrees on McLaren, but Red Bull is a mystery**\
-`Unlike the past few years, reigning champion Max Verstappen doesn’t appear to be the favorite to win the season's first race.`\
-https://nytimes.com/athletic/6199595/2025/03/13/f1-australian-gp-preview-mclaren-lewis-hamilton-max-verstappen/
-
-**Manchester United live Q&A: Mark Critchley answers your questions**\
-`Get your questions in now for Mark and he will be with you between 1-2pm GMT (9am-10am ET) to answer as many as he can. `\
-https://nytimes.com/athletic/6193381/2025/03/13/manchester-united-stadium-amorim-ratcliffe/
-
-**NHL goalie tandem power rankings: Evaluating all 32 teams in net this season**\
-`Which team is at the top? Which team will regret not making a trade? Which team clearly has the worst duo in goal?`\
-https://nytimes.com/athletic/6198985/2025/03/13/nhl-goalie-power-rankings-2025/
 
