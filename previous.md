@@ -1,3 +1,15 @@
+**Columbia Disciplines Students Who Occupied Campus Building Last Year**\
+`Sanctions for the Hamilton Hall occupation include expulsions and suspensions.`\
+https://nytimes.com/2025/03/13/nyregion/columbia-university-students-disciplined-hamilton-hall.html
+
+**‘The Devil in the Family’ Is a Poignant and Terrifying Docu-Series**\
+`The story of the disgraced mommy vlogger Ruby Franke has been covered extensively by the news media. A Hulu documentary offers surprising new insights.`\
+https://nytimes.com/2025/03/13/arts/television/the-devil-in-the-family-ruby-franke-hulu.html
+
+**The Patriots' early work in free agency was great. But what about left tackle and receiver?**\
+`The Patriots spent big on the opening day of free agency, landing some impressive players. But several glaring holes still remain.`\
+https://nytimes.com/athletic/6201559/2025/03/13/patriots-nfl-free-agent-signings-tackle-receiver/
+
 **Federal Appeals Court Dismisses Florida Case Over Gender Identity in Schools**\
 `The mother at the center of the case, January Littlejohn, was a guest of the first lady Melania Trump at President Trump’s speech to Congress last week.`\
 https://nytimes.com/2025/03/13/us/politics/florida-school-gender-identity.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6201691/2025/03/13/flames-suspension-zary-pettersso
 **John Feinstein, Who Wrote ‘A Season on the Brink,’ Dies at 69**\
 `A longtime columnist for The Washington Post, he also wrote dozens of books about basketball, baseball, tennis, golf, football and the Olympics, many of them best sellers.`\
 https://nytimes.com/2025/03/13/books/john-feinstein-dead.html
-
-**Friday Briefing: Putin Speaks on Ukraine Cease-Fire**\
-`Plus, Siberia’s bone hunters.`\
-https://nytimes.com/2025/03/13/briefing/putin-ukraine-truce-trump-alcohol-tariffs-syria-destruction.html
-
-**America Is Surrounded by Enemies … That We Created**\
-`What happens when a superpower goes rogue.`\
-https://nytimes.com/2025/03/13/opinion/america-trump-europe.html
-
-**Police Arrest Protesters at Mahmoud Khalil Rally Inside Trump Tower**\
-`Demonstrators packed into the lower level of Trump Tower in Manhattan on Thursday to protest the arrest of Mahmoud Khalil, a Palestinian activist and permanent resident, who the Trump administration has moved to deport.`\
-https://nytimes.com/video/us/politics/100000010050946/trump-tower-protest-mahmoud-khalil.html
 

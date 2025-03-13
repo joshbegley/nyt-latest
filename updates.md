@@ -1,3 +1,15 @@
+**Columbia Disciplines Students Who Occupied Campus Building Last Year**\
+`Sanctions for the Hamilton Hall occupation include expulsions and suspensions.`\
+https://nytimes.com/2025/03/13/nyregion/columbia-university-students-disciplined-hamilton-hall.html
+
+**‘The Devil in the Family’ Is a Poignant and Terrifying Docu-Series**\
+`The story of the disgraced mommy vlogger Ruby Franke has been covered extensively by the news media. A Hulu documentary offers surprising new insights.`\
+https://nytimes.com/2025/03/13/arts/television/the-devil-in-the-family-ruby-franke-hulu.html
+
+**The Patriots' early work in free agency was great. But what about left tackle and receiver?**\
+`The Patriots spent big on the opening day of free agency, landing some impressive players. But several glaring holes still remain.`\
+https://nytimes.com/athletic/6201559/2025/03/13/patriots-nfl-free-agent-signings-tackle-receiver/
+
 **Federal Appeals Court Dismisses Florida Case Over Gender Identity in Schools**\
 `The mother at the center of the case, January Littlejohn, was a guest of the first lady Melania Trump at President Trump’s speech to Congress last week.`\
 https://nytimes.com/2025/03/13/us/politics/florida-school-gender-identity.html
