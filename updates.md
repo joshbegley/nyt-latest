@@ -1,3 +1,7 @@
+**3 Takeaways From Irish Leader’s Visit With Trump at White House**\
+`In a meeting with Ireland’s prime minister, President Trump gave no hint of backing down from actions that have caused fissures in the trans-Atlantic alliance.`\
+https://nytimes.com/2025/03/12/us/politics/takeaways-ireland-martin-trump-tariffs.html
+
 **Trump Administration Cuts Ties With Migrant Shelter Provider After Dropping Child Abuse Lawsuit**\
 `The Justice Department dropped a Biden-era lawsuit against Southwest Key, the largest provider of housing for unaccompanied minors, after the Health and Human Services Department said it stopped sending children to those shelters.`\
 https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migrant-shelters.html

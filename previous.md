@@ -1,3 +1,7 @@
+**3 Takeaways From Irish Leader’s Visit With Trump at White House**\
+`In a meeting with Ireland’s prime minister, President Trump gave no hint of backing down from actions that have caused fissures in the trans-Atlantic alliance.`\
+https://nytimes.com/2025/03/12/us/politics/takeaways-ireland-martin-trump-tariffs.html
+
 **Trump Administration Cuts Ties With Migrant Shelter Provider After Dropping Child Abuse Lawsuit**\
 `The Justice Department dropped a Biden-era lawsuit against Southwest Key, the largest provider of housing for unaccompanied minors, after the Health and Human Services Department said it stopped sending children to those shelters.`\
 https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migrant-shelters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6181320/2025/03/12/rico-dowdle-free-agency-signing-
 **Why the White House Car Show Mattered to Musk**\
 `A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
 https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
-
-**Federal Officials Pursue Fraud Case Against Customs Official**\
-`A longtime customs employee has been accused of a scheme to defraud FEMA involving aid from floods in Detroit. She has denied the charges, officials say.`\
-https://nytimes.com/2025/03/12/us/cbp-fema-fraud-charges.html
 
