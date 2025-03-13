@@ -1,3 +1,19 @@
+**Pistons' Jaden Ivey addresses media for first time since fibula injury**\
+`Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
+https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
+
+**In acquiring Phil Maton, Cardinals add coveted bullpen depth**\
+`The Cardinals believe Maton can provide stability and help mentor the multitude of young arms in St. Louis this season.`\
+https://nytimes.com/athletic/6200848/2025/03/13/cardinals-sign-phil-maton/
+
+**D.C. families, facing lost jobs and a gutted city budget, beseech Republican lawmakers.**\
+`Facing layoffs from the city’s biggest employer and what amounts to a billion-dollar budget cut, D.C. residents rallied on Capitol Hill on Thursday.`\
+https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
+
+**Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
+`Analyzing all of Washington's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-signings-trades/
+
 **Protesters Back Khalil at Trump Tower: ‘Fight Nazis, Not Students’**\
 `Demonstrators led by a progressive Jewish group gathered to support Mahmoud Khalil, the Palestinian activist whom the Trump administration wants to deport.`\
 https://nytimes.com/2025/03/13/us/politics/trump-tower-protests-mahmoud-khalil.html

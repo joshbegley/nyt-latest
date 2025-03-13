@@ -1,3 +1,19 @@
+**Pistons' Jaden Ivey addresses media for first time since fibula injury**\
+`Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
+https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
+
+**In acquiring Phil Maton, Cardinals add coveted bullpen depth**\
+`The Cardinals believe Maton can provide stability and help mentor the multitude of young arms in St. Louis this season.`\
+https://nytimes.com/athletic/6200848/2025/03/13/cardinals-sign-phil-maton/
+
+**D.C. families, facing lost jobs and a gutted city budget, beseech Republican lawmakers.**\
+`Facing layoffs from the city’s biggest employer and what amounts to a billion-dollar budget cut, D.C. residents rallied on Capitol Hill on Thursday.`\
+https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
+
+**Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
+`Analyzing all of Washington's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-signings-trades/
+
 **Protesters Back Khalil at Trump Tower: ‘Fight Nazis, Not Students’**\
 `Demonstrators led by a progressive Jewish group gathered to support Mahmoud Khalil, the Palestinian activist whom the Trump administration wants to deport.`\
 https://nytimes.com/2025/03/13/us/politics/trump-tower-protests-mahmoud-khalil.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/13/business/mercedes-cla-electric-vehicle.html
 **Heat Today: Miami has bottomed out with season-long five-game skid**\
 `"I think, in these last couple games, our spirit hasn’t been at the level it needs to be," All-Star Tyler Herro said.`\
 https://nytimes.com/athletic/6200603/2025/03/13/heat-tyler-herro-losing-streak-nba/
-
-**David Raven, British Drag Performer Known as Maisie Trollette, Dies at 91**\
-`A mainstay of England’s drag circuit, he performed for over five decades and encouraged other drag queens to flourish.`\
-https://nytimes.com/2025/03/13/arts/maisie-trollette-drag-queen-uk-dead.html
-
-**Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
-`The Wizards' 20-year-old first-round pick in 2023 will miss approximately four-to-six weeks, team officials said. `\
-https://nytimes.com/athletic/6201114/2025/03/13/bilal-coulibaly-injury-wizards-hamstring/
-
-**Trump Administration Replaces Top I.R.S. Lawyer**\
-`Attempts by Elon Musk’s team to gain access to I.R.S. data have raised legal concerns at the agency.`\
-https://nytimes.com/2025/03/13/us/politics/trump-irs-lawyer-doge.html
-
-**Until Saturday: The bizarro Iron Bowl**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/6201204/2025/03/13/college-football-26-leak-until-saturday/
 
