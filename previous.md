@@ -1,3 +1,7 @@
+**Knicks friction? Bridges, Thibodeau disagree on whether they talked minutes**\
+`Tom Thibodeau has faced criticism for playing his starters too much. Mikal Bridges' comments on the matter caused a stir.`\
+https://nytimes.com/athletic/6199332/2025/03/12/knicks-friction-minutes-mikal-bridges-tom-thibodeau/
+
 **OKC clinches playoff spot, handles Boston as Celtics take team-record 63 3-pointers**\
 `Defense and versatility help Thunder win battle of top NBA title contenders.`\
 https://nytimes.com/athletic/6198918/2025/03/12/thunder-playoffs-celtics-team-record-3-pointers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6199315/2025/03/12/kansas-college-baseball-five-hom
 **Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
 `An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
 https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
-
-**Corrections: March 13, 2025**\
-`Corrections that appeared in print on Thursday, March 13, 2025.`\
-https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
 
