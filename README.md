@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bet
 https://nytimes.com/2025/03/13/arts/television/john-mulaney-late-night-everybodys-live.html
 
 **Joe Rothwell is emerging as one of the unheralded heroes of Leeds' promotion push**\
-`In a team that needed to atone for Sunday’s loss at Portsmouth, Rothwell played like the one man without that blot in his copybook`\
+`In a team who needed to atone for Sunday’s loss against Portsmouth, Rothwell played like the one man without that blot in his copybook`\
 https://nytimes.com/athletic/6199342/2025/03/13/joe-rothwell-leeds-millwall/
 
 **Jude Bellingham and the friendly fire that sums up his status at Real Madrid**\
