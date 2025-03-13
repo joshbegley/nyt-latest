@@ -1,3 +1,7 @@
+**USWNT's Girma to miss Subway Cup final with injury, Chelsea coach confirms**\
+`The defender has only featured once for Chelsea since her $1.1m January arrival from the San Diego Wave.`\
+https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-update/
+
 **Scoop City: Eight more takeaways from free agency**\
 `Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
 https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
@@ -10,8 +14,12 @@ https://nytimes.com/2025/03/13/books/review/new-books-recommendations.html
 `Rudolph spent the first six years of his NFL career with Pittsburgh before joining the Titans for one season. `\
 https://nytimes.com/athletic/6200768/2025/03/13/mason-rudolph-steelers-nfl-free-agency-signing/
 
-**The Stupidity of Trump’s Attack on Education**\
-`An ignorant America is an inferior America.`\
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the new-look Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/03/13/champions-league-projections/
+
+**America Can’t Be Great if America Is Stupid**\
+`Trump’s attack on higher education and scientific research undermines some of our most competitive advantages.`\
 https://nytimes.com/2025/03/13/opinion/trump-education-department.html
 
 **Keir Starmer Wants to Abolish N.H.S. England: What to Know About His Plan**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/world/europe/merz-germany-spending.html
 **The Windup: Why the AL Central is so tricky to pick**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
-
-**National Rally Leader Heads to Israel, a First for French Far-Right Party**\
-`As Jordan Bardella, its young president, tries to distance the party from its history of antisemitism, it is making common cause with Israel against “Islamist ideology.”`\
-https://nytimes.com/2025/03/13/world/europe/jordan-bardella-israel-far-right.html
-
-**Chocolate. Guinness. Cake.**\
-`Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
-https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
 

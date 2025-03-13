@@ -1,3 +1,15 @@
+**USWNT's Girma to miss Subway Cup final with injury, Chelsea coach confirms**\
+`The defender has only featured once for Chelsea since her $1.1m January arrival from the San Diego Wave.`\
+https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-update/
+
+**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
+`Here's how the rest of the new-look Champions League is projected to play out...`\
+https://nytimes.com/athletic/5793492/2025/03/13/champions-league-projections/
+
+**America Can’t Be Great if America Is Stupid**\
+`Trump’s attack on higher education and scientific research undermines some of our most competitive advantages.`\
+https://nytimes.com/2025/03/13/opinion/trump-education-department.html
+
 **Scoop City: Eight more takeaways from free agency**\
 `Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
 https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
