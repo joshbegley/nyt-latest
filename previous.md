@@ -1,3 +1,7 @@
+**Kansas ties NCAA record by hitting 5 consecutive home runs**\
+`The home run barrage was part of an eight-run third inning in a 29-1 win over Minnesota at U.S. Bank Stadium in Minneapolis. `\
+https://nytimes.com/athletic/6199315/2025/03/12/kansas-college-baseball-five-home-runs-record/
+
 **Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
 `An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
 https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6199061/2025/03/12/northwestern-basketball-chris-co
 **Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
 `The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
 https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
-
-**Emery excited for 'special' PSG reunion in Champions League**\
-`Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
-https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/
 

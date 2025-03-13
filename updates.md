@@ -1,3 +1,7 @@
+**Kansas ties NCAA record by hitting 5 consecutive home runs**\
+`The home run barrage was part of an eight-run third inning in a 29-1 win over Minnesota at U.S. Bank Stadium in Minneapolis. `\
+https://nytimes.com/athletic/6199315/2025/03/12/kansas-college-baseball-five-home-runs-record/
+
 **Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
 `An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
 https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
