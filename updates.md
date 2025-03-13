@@ -1,3 +1,8 @@
+**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
+`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
+`\
+https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
+
 **What to Know About Trump’s Large-Scale Layoffs Plans So Far**\
 `Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
 https://nytimes.com/article/trump-firings-layoffs-rif.html

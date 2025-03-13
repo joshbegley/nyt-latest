@@ -6,7 +6,7 @@ https://nytimes.com/article/trump-firings-layoffs-rif.html
 `He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
 https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
 
-**The Briefing: Man Utd 4 Real 1 (5-2 agg) - Bruno the hero but did referee get calls right?**\
+**The Briefing: Man Utd 4 Real 1 (5-2 agg) - Fernandes the hero but did referee get calls right?**\
 `The major talking points analysed as Manchester United booked a Europa League quarter-final spot`\
 https://nytimes.com/athletic/6194336/2025/03/13/manchester-united-real-sociedad-europa-league-analysis/
 
