@@ -1,3 +1,11 @@
+**Passionate Voices in an Anguished Time**\
+`Readers make heartfelt pleas in the age of Trump. Also: The E.P.A. abandons its mission.`\
+https://nytimes.com/2025/03/13/opinion/trump-voices-anguish.html
+
+**High School Runner Who Struck Rival With Baton Faces Charge**\
+`The episode at an indoor relay race in the Virginia state championships has raised the question of whether it was intentional or an accident.`\
+https://nytimes.com/2025/03/13/us/virginia-high-school-runner-baton-assault.html
+
 **NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
 `The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
 https://nytimes.com/athletic/6198648/2025/03/13/nfl-draft-order-2025-round-by-round/
