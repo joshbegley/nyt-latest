@@ -1,3 +1,7 @@
+**Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
+`An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
+https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
+
 **Corrections: March 13, 2025**\
 `Corrections that appeared in print on Thursday, March 13, 2025.`\
 https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-m
 **Emery excited for 'special' PSG reunion in Champions League**\
 `Emery's side booked their place in the last-eight with a three-goal home win over Club Brugge to complete a 6-1 aggregate victory.`\
 https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-league/
-
-**Panthers agree to terms with RB Rico Dowdle on 1-year deal: Sources**\
-`The multifaceted Cowboys running back made the most of his first career starting opportunity in 2024. `\
-https://nytimes.com/athletic/6181320/2025/03/12/rico-dowdle-free-agency-signing-panthers/
 
