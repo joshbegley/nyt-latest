@@ -1,3 +1,23 @@
+**Federal Appeals Court Dismisses Florida Case Over Gender Identity in Schools**\
+`The mother at the center of the case, January Littlejohn, was a guest of the first lady Melania Trump at President Trump’s speech to Congress last week.`\
+https://nytimes.com/2025/03/13/us/politics/florida-school-gender-identity.html
+
+**North Dakota Senate Rejects Measure Asking Supreme Court to Revisit Gay Marriage**\
+`The resolution, which passed the North Dakota House, was part of a broader push by some conservatives to end the national right to same-sex marriage.`\
+https://nytimes.com/2025/03/13/us/north-dakota-same-sex-marriage.html
+
+**German Tourists Detained for Weeks, Then Deported From U.S.**\
+`Amid President Trump’s border crackdown, German news media have closely followed the treatment of two tourists who say they tried to enter the United States legally.`\
+https://nytimes.com/2025/03/13/world/europe/german-tourists-detained-deported.html
+
+**How Trump Cuts Could Change Your Summer Hiking Trip**\
+`The Bureau of Land Management, the Forest Service and the Fish & Wildlife Service manage more public lands than the Parks Service. And their staffs have also been cut.`\
+https://nytimes.com/2025/03/13/travel/trump-cuts-national-parks-summer-travel.html
+
+**Johns Hopkins to Cut More Than 2,000 Workers Funded by Federal Aid**\
+`The university, a leader in scientific research, has been hard hit by the Trump administration’s cuts, which will slash at least $800 million from its budget.`\
+https://nytimes.com/2025/03/13/us/trump-cuts-johns-hopkins-university-layoffs.html
+
 **Flames' Connor Zary suspended 2 games for elbowing Canucks' Elias Pettersson**\
 `The incident occurred Wednesday night during the first period of the Flames-Canucks game at the Scotiabank Saddledome in Calgary.`\
 https://nytimes.com/athletic/6201691/2025/03/13/flames-suspension-zary-pettersson-canucks/
