@@ -1,3 +1,11 @@
+**CrossFit Looks for New Owners Amid Years of Shake-Ups**\
+`The pending sale comes after a tumultuous five years for the fitness company, including an athlete death and financial concerns.`\
+https://nytimes.com/2025/03/13/business/dealbook/crossfit-for-sale.html
+
+**Voters’ Voices on Trump**\
+`A series of check-ins with a variety of voters who made their choices in November’s election with some hesitation. We are documenting their impressions of President Trump’s first 100 days in office of his second term.`\
+https://nytimes.com/series/voters-voices-trump-administration
+
 **What’s Going On in This Picture? | March 17, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibul
 **In acquiring Phil Maton, Cardinals add coveted bullpen depth**\
 `The Cardinals believe Maton can provide stability and help mentor the multitude of young arms in St. Louis this season.`\
 https://nytimes.com/athletic/6200848/2025/03/13/cardinals-sign-phil-maton/
-
-**D.C. Families, Facing Lost Jobs and a Gutted City Budget, Beseech Republican Lawmakers**\
-`With signs made from crayons and colored markers, children rallied on Capitol Hill with their parents on Thursday, protesting layoffs and spending limits.`\
-https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
-
-**Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
-`Analyzing all of Washington's moves as the 2025 league year begins. `\
-https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-signings-trades/
 
