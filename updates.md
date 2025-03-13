@@ -1,3 +1,7 @@
+**The Trump Loyalist Aiming to Swing Wisconsin Back to the Right**\
+`Brad Schimel, a judge who is so supportive of the president that he dressed up as him for Halloween, is hoping to flip the Wisconsin Supreme Court for conservatives.`\
+https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-court.html
+
 **Russia Claims to Have Regained Control of Key Kursk Town**\
 `Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
 https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
