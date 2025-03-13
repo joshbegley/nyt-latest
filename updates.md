@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-tor
 `\
 https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
 
+**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
+`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
+`\
+https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
+
 **A Judge Ordered the U.S. to Rehire Thousands of Workers**\
 `Also, Putin said he was open to a cease-fire, but with many conditions. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/03/13/briefing/rehiring-federal-workers-putin-ukraine-cease-fire.html
