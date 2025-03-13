@@ -1,3 +1,15 @@
+**Even as the Rockets beat the Suns, Amen Thompson's presence is sorely missed**\
+`Even though the Rockets beat the Suns last night, Amen Thompson's defensive acumen was missing.`\
+https://nytimes.com/athletic/6199569/2025/03/13/amen-thompsons-rockets-win-phoenix-suns/
+
+**Democratic Attorneys General Sue Over Gutting of Education Department**\
+`The Trump administration cut about half the work force of the agency, saying it would enable it to deliver services more effectively. The attorneys general called the move “reckless and illegal.”`\
+https://nytimes.com/2025/03/13/nyregion/democratic-attorneys-general-education-department-suit.html
+
+**Hans Henken’s Long Path to SailGP**\
+`The flight controller on the American entry started on small, tricky boats, but now works the big F50 catamarans.`\
+https://nytimes.com/2025/03/13/sports/sailing/sailgp-hans-henken.html
+
 **Alvarez 'two-touch' penalty: Should UEFA rethink the rules after Atletico striker's miss?**\
 `Alvarez's penalty was disallowed by the VAR after the slightest double-touch as he slipped. Should it really have been disallowed?`\
 https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-two-touch-penalty/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6200288/2025/03/13/champions-league-quarter-finals-
 **Madison Square Park’s Conservancy Names New Chief Curator**\
 `The organization in New York has selected Denise Markonish, the chief curator of Mass MoCA, to lead its next chapter.`\
 https://nytimes.com/2025/03/13/arts/design/madison-square-park-conservancy-curator.html
-
-**Israel-Hamas Talks Deadlocked as Trump Envoy Turns to Ukraine**\
-`The two sides are supposed to negotiate a second phase of the cease-fire agreement that would end the war, but they remain far apart on how to move forward.`\
-https://nytimes.com/2025/03/13/world/middleeast/israel-hamas-ceasefire-trump-ukraine.html
-
-**Explosions and Power Outages Shut Down Texas Tech Campus**\
-`A series of fires and a manhole explosion led officials to shut down the campus and send students home early for spring break.`\
-https://nytimes.com/2025/03/13/us/texas-tech-explosion-lubbock.html
-
-**Trump Threatens 200 Percent Tariff on Champagne and Wine From Europe**\
-`The president said he would impose the levies if the European Union does not walk back plans to place retaliatory tariffs on whiskey and other U.S. products.`\
-https://nytimes.com/2025/03/13/us/politics/trump-tariff-european-union-whiskey.html
 

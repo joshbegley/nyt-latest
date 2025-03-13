@@ -1,3 +1,7 @@
+**Alvarez 'two-touch' penalty: Should UEFA rethink the rules after Atletico striker's miss?**\
+`Alvarez's penalty was disallowed by the VAR after the slightest double-touch as he slipped. Should it really have been disallowed?`\
+https://nytimes.com/athletic/6200234/2025/03/13/atletico-madrid-julian-alvarez-two-touch-penalty/
+
 **Minnesota fires men's basketball coach Ben Johnson after 4 seasons**\
 `Johnson was 56-71 in four seasons and 22-57 in Big Ten games, with no NCAA Tournament appearances.`\
 https://nytimes.com/athletic/6200356/2025/03/13/minnesota-fires-ben-johnson-mens-basketball/
