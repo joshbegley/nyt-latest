@@ -1,3 +1,11 @@
+**The Windup: Why the AL Central is so tricky to pick**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
+
+**National Rally Leader Heads to Israel, a First for French Far-Right Party**\
+`As Jordan Bardella, its young president, tries to distance the party from its history of antisemitism, it is making common cause with Israel against “Islamist ideology.”`\
+https://nytimes.com/2025/03/13/world/europe/jordan-bardella-israel-far-right.html
+
 **Chocolate. Guinness. Cake.**\
 `Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
 https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
