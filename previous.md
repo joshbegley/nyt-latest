@@ -1,40 +1,40 @@
-**How Trump Is Helping Liberals Abroad**\
-`Voters are rallying behind some leaders who oppose President Trump’s tariffs, threats and insults. There’s a theory that explains why.`\
-https://nytimes.com/2025/03/13/briefing/donald-trump-international-relations.html
+**Phillies Opening Day roster projection: Who gets the final spots?**\
+`The edges of the roster remain somewhat unsettled. Here's our best guess at how it all looks March 27 in Washington.`\
+https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster-projection/
 
-**Alvarez penalty disallowed by VAR with no UCL in-ball technology**\
-`Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
-https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
+**Cameron Brink is a face of the WNBA — even if basketball doesn't solely define her**\
+`Basketball is still first, but the 2024 WNBA Draft's No. 2 pick, while recovering from a torn ACL, has remained busy away from the court.`\
+https://nytimes.com/athletic/6176154/2025/03/13/cameron-brink-sparks-wnba-paris-fashion-week/
 
-**Here are the latest developments.**\
-`By Anton Troianovski`\
-https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk/here-are-the-latest-developments
+**Australian GP storylines: Everyone agrees on McLaren, but Red Bull is a mystery**\
+`Unlike the past few years, reigning champion Max Verstappen doesn’t appear to be the favorite to win the first race.`\
+https://nytimes.com/athletic/6199595/2025/03/13/f1-australian-gp-preview-mclaren-lewis-hamilton-max-verstappen/
 
-**Live Updates: U.S. Negotiators Head to Moscow to Discuss Ukraine**\
-`President Vladimir V. Putin of Russia is weighing a 30-day cease-fire proposal from the United States and Ukraine.`\
-https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk
+**Manchester United live Q&A: Mark Critchley answers your questions**\
+`Get your questions in now for Mark and he will be with you between 1-2pm GMT (9am-10am ET) to answer as many as he can. `\
+https://nytimes.com/athletic/6193381/2025/03/13/manchester-united-stadium-amorim-ratcliffe/
 
-**Skinner 'absolutely convinced' of women's team's importance to Man United**\
-`Co-owner Sir Jim Ratcliffe said earlier this week “the women's team is much smaller than the men's team” at the club.`\
-https://nytimes.com/athletic/6199987/2025/03/13/manchester-united-women-ratcliffe-skinner/
+**NHL goalie tandem power rankings: Evaluating all 32 teams in net this season**\
+`Which team is at the top? Which team will regret not making a trade? Which team clearly has the worst duo in goal?`\
+https://nytimes.com/athletic/6198985/2025/03/13/nhl-goalie-power-rankings-2025/
 
-**The Pulse: Let's take a vibe check and buy a vulgar hat**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6197924/2025/03/13/nhl-nba-playoff-races-the-pulse/
+**Building an ace: How college pitching labs are cranking out MLB-ready flamethrowers**\
+`High-tech pitching labs rose from humble beginnings to take center stage in the pitching development revolution in college and in the pros.`\
+https://nytimes.com/athletic/6197518/2025/03/13/mlb-college-baseball-pitching-labs-lsu-vanderbilt/
 
-**U.S. Negotiators Are En Route to Moscow, Kremlin Says**\
-`President Vladimir V. Putin of Russia is weighing a 30-day cease-fire proposal from the United States and Ukraine.`\
-https://nytimes.com/2025/03/13/world/europe/moscow-us-ukraine-russia-talks.html
+**Mark Vientos aced handling failure. Can he handle success just as well?**\
+`Vientos remains awed by the amount of appreciation he’s heard from Mets fans dating back to last summer.`\
+https://nytimes.com/athletic/6199097/2025/03/13/mets-mark-vientos-goals/
 
-**Women's college basketball debate: Will UConn, Texas or another earn the last No. 1 seed?**\
-`Our experts debate which teams the selection committee will reward. `\
-https://nytimes.com/athletic/6197967/2025/03/13/womens-college-basketball-debate-who-will-earn-the-ncaa-tournament-final-no-1-seed/
+**The top 20 head coaches in college football's Group of 5**\
+`This isn’t a list of coaches most likely to take other jobs. It’s a ranking of what they’ve accomplished in their given situations.`\
+https://nytimes.com/athletic/6198850/2025/03/13/group-of-5-football-head-coach-rankings/
 
-**Inside the women’s hockey ‘dynasty’ led by ‘Miracle on Ice’ legend Mark Johnson**\
-`Johnson is the winningest coach in NCAA Division I women’s hockey history. Can he lead the Badgers to yet another championship?`\
-https://nytimes.com/athletic/6196531/2025/03/13/wisconsin-womens-college-hockey-miracle-on-ice/
+**Coby White's growth on display in Chicago: 'Seeing the game on a totally different level’**\
+`White never stopped chasing improvement. And now the way his coach describes him sounds much different.`\
+https://nytimes.com/athletic/6199198/2025/03/13/coby-white-bulls-nba/
 
-**An NBA player lost a friend to cardiac arrest. How he responded is still saving lives**\
-`Ryan Gomes has been an AED advocate for nearly two decades. "The more I go on in life, the more I am grateful for him," Danny Berger said.`\
-https://nytimes.com/athletic/6192138/2025/03/13/ryan-gomes-defibrillator-aed-nba/
+**Browns should have traded Myles Garrett instead of signing him to historic extension**\
+`Garrett is a Hall of Fame player, but it was in the team's best interest to deal him because of where it resides and his career timeline. `\
+https://nytimes.com/athletic/6198082/2025/03/13/cleveland-browns-myles-garrett-contract/
 
