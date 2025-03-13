@@ -1,3 +1,7 @@
+**Any more questions? Thunder show defending champion Celtics how good they are**\
+`Even missing their second-best player, the Thunder swarmed Boston behind another MVP-level performance from Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/6199713/2025/03/13/thunder-shai-gilgeous-alexander-boston-win/
+
 **Spencer Arrighetti's 4-seamer got knocked around in 2024, so he's looking to add a sinker**\
 `Arrighetti is locating his four-seam fastball differently and is working on adding a two-seamer: 'Now I have three big movers both ways.'`\
 https://nytimes.com/athletic/6198465/2025/03/13/astros-spencer-arrighetti-sinker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193381/2025/03/13/manchester-united-stadium-amorim
 **NHL goalie tandem power rankings: Evaluating all 32 teams in net this season**\
 `Which team is at the top? Which team will regret not making a trade? Which team clearly has the worst duo in goal?`\
 https://nytimes.com/athletic/6198985/2025/03/13/nhl-goalie-power-rankings-2025/
-
-**Building an ace: How college pitching labs are cranking out MLB-ready flamethrowers**\
-`High-tech pitching labs rose from humble beginnings to take center stage in the pitching development revolution in college and in the pros.`\
-https://nytimes.com/athletic/6197518/2025/03/13/mlb-college-baseball-pitching-labs-lsu-vanderbilt/
 
