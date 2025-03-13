@@ -1,3 +1,11 @@
+**Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
+`Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
+https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
+
+**Wine Businesses Fear Disaster in Threat of Huge Tariffs**\
+`President Trump’s threat to impose  200 percent fees on European wines could harm importers, distributors, retailers and restaurants without necessarily helping U.S. producers.`\
+https://nytimes.com/2025/03/13/dining/drinks/wine-trump-tariffs.html
+
 **Teixeira, Calling Himself ‘Proud Patriot,’ Appeals to Trump for Leniency**\
 `In pleading guilty during his military-court martial, Jack Teixeira made a direct appeal to President Trump, reflecting a tactic being employed by an increasing number of convicted criminals and their lawyers.`\
 https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6201681/2025/03/13/seahawks-geno-smith-dk-metcalf-j
 https://nytimes.com/video/us/politics/100000010032636/federal-worker-layoff-doge.html
 
 **Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
-`Fox, 27, had been playing with a dislocated left pinky finger on his left shooting hand all season long`\
+`Fox, 27, had been playing with a dislocated pinky finger on his left shooting hand all season.`\
 https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
 
 **Raúl Grijalva, Democrat who urged Biden to drop out in 2024, dies of cancer.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
 **Daniel Jones, Colts' newest QB, hoping for chance to 'compete' in Indy**\
 `Jones wants to start again, and in order to do so, he'll have to beat Anthony Richardson, the Colts’ 2023 No. 4 pick, for the job`\
 https://nytimes.com/athletic/6201689/2025/03/13/daniel-jones-indianapolis-colts-quarterback-competition/
-
-**Schumer Says He’ll Vote to Advance Spending Bill, Breaking With His Party**\
-`Many Democrats are agitating for their party’s senators to block the measure in defiance of President Trump, but the leader said doing so would prompt a shutdown that would only empower Mr. Trump.`\
-https://nytimes.com/2025/03/13/us/government-shutdown-senate-democrats.html
-
-**Chiefs, QB Gardner Minshew agree to one-year deal: Sources**\
-`Minshew finished the 2024 season with a 2-7 record for the Raiders. Now, he's the latest veteran quarterback to back up Patrick Mahomes. `\
-https://nytimes.com/athletic/6201970/2025/03/13/gardner-minshew-free-agency-signing-2025-chiefs/
 
