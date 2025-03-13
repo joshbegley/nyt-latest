@@ -1,3 +1,11 @@
+**Kimmich signs new Bayern contract to 2029**\
+`The Germany international, 30, has agreed fresh terms on a new four-year contract with the Bundesliga giants.`\
+https://nytimes.com/athletic/6139571/2025/03/13/bayern-joshua-kimmich-contract-new/
+
+**Houthi Drones Could Become Stealthier and Fly Farther**\
+`A new report documented efforts to smuggle hydrogen fuel cell components into Yemen that will provide Houthi fighters a technological leap ahead.`\
+https://nytimes.com/2025/03/13/us/politics/yemen-houthi-drones-report.html
+
 **Rights Groups Condemn Trump for Using ‘Palestinian’ as a Slur Against Schumer**\
 `President Trump said Chuck Schumer was not “Jewish anymore” in comments that have been widely criticized as offensive.`\
 https://nytimes.com/2025/03/13/us/politics/trump-schumer-palestinian.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-
 **David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
 `Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
 https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/
-
-**John Mulaney Returns to Late Night on Netflix**\
-`“Everybody’s Live With John Mulaney” resurrected the comic’s eccentric but enjoyable live talk show, with contributions from Richard Kind, Michael Keaton, Joan Baez and many Willy Lomans.`\
-https://nytimes.com/2025/03/13/arts/television/john-mulaney-everybodys-live-netflix.html
-
-**Surging Timberwolves have rediscovered their edge: 'It looks really, really good'**\
-`In another win over the Nuggets, Minnesota displayed the tenacity and fire that helped it reach the West finals last season. `\
-https://nytimes.com/athletic/6199788/2025/03/13/timberwolves-nuggets-winning-streak-edge-julius-randle/
 

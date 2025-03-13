@@ -1,3 +1,11 @@
+**Kimmich signs new Bayern contract to 2029**\
+`The Germany international, 30, has agreed fresh terms on a new four-year contract with the Bundesliga giants.`\
+https://nytimes.com/athletic/6139571/2025/03/13/bayern-joshua-kimmich-contract-new/
+
+**Houthi Drones Could Become Stealthier and Fly Farther**\
+`A new report documented efforts to smuggle hydrogen fuel cell components into Yemen that will provide Houthi fighters a technological leap ahead.`\
+https://nytimes.com/2025/03/13/us/politics/yemen-houthi-drones-report.html
+
 **Rights Groups Condemn Trump for Using ‘Palestinian’ as a Slur Against Schumer**\
 `President Trump said Chuck Schumer was not “Jewish anymore” in comments that have been widely criticized as offensive.`\
 https://nytimes.com/2025/03/13/us/politics/trump-schumer-palestinian.html
