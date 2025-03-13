@@ -1,3 +1,7 @@
+**Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
+`The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
+https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-former-nba-big-man-and-arkansas-star-dies-at-54/
+
 **Justice Dept. Opens Investigation Into Migrant Shelters in New York**\
 `Prosecutors asked for a list of names of “aliens” living at a Manhattan hotel. The city houses about 43,000 migrants in shelters, including dozens of converted hotels.`\
 https://nytimes.com/2025/03/12/nyregion/migrant-shelters-new-york-federal-probe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/us/cbp-fema-fraud-charges.html
 **The Briefing - Atletico 1 Real 0 (agg 2-2, Real win on pens): Rudiger's spot kick decides epic derby**\
 `An epic Champions League round-of-16 tie between the two Madrid teams was decided on penalties`\
 https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-penalties-rudiger/
-
-**Selma Miriam, Founder of the Feminist Restaurant Bloodroot, Dies at 89**\
-`She and Noel Furie had just come out as lesbians when they opened an unusual gathering place for women in Connecticut. Nearly half a century later, it is still thriving.`\
-https://nytimes.com/2025/03/12/dining/selma-miriam-dead.html
 
