@@ -1,3 +1,11 @@
+**China Cools on Musk: ‘Two Cars for the Price of One Tesla’**\
+`Elon Musk, the company’s chief executive, is fast losing out to Chinese electric carmakers in Tesla’s second-most-important market.`\
+https://nytimes.com/2025/03/13/business/tesla-china-sales-elon-musk.html
+
+**Quote of the Day: Chinese Navy Sails Around Australia, Setting Off a Sense of Alarm**\
+`Quotation of the Day for Thursday, March 13, 2025`\
+https://nytimes.com/2025/03/12/pageoneplus/quote-of-the-day-chinese-navy-sails-around-australia-setting-off-a-sense-of-alarm.html
+
 **Knicks friction? Bridges, Thibodeau disagree on whether they talked minutes**\
 `Thibodeau has faced criticism for playing his starters too much. Bridges' comments on the matter caused a stir.`\
 https://nytimes.com/athletic/6199332/2025/03/12/knicks-friction-minutes-mikal-bridges-tom-thibodeau/

@@ -1,3 +1,11 @@
+**China Cools on Musk: ‘Two Cars for the Price of One Tesla’**\
+`Elon Musk, the company’s chief executive, is fast losing out to Chinese electric carmakers in Tesla’s second-most-important market.`\
+https://nytimes.com/2025/03/13/business/tesla-china-sales-elon-musk.html
+
+**Quote of the Day: Chinese Navy Sails Around Australia, Setting Off a Sense of Alarm**\
+`Quotation of the Day for Thursday, March 13, 2025`\
+https://nytimes.com/2025/03/12/pageoneplus/quote-of-the-day-chinese-navy-sails-around-australia-setting-off-a-sense-of-alarm.html
+
 **Knicks friction? Bridges, Thibodeau disagree on whether they talked minutes**\
 `Thibodeau has faced criticism for playing his starters too much. Bridges' comments on the matter caused a stir.`\
 https://nytimes.com/athletic/6199332/2025/03/12/knicks-friction-minutes-mikal-bridges-tom-thibodeau/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6181410/2025/03/12/mac-jones-49ers-free-agency-sign
 **Messi in Jamaica: Calm reception, 'inspiration' – and unclear game status**\
 `Lionel Messi's presence in Jamaica is a significant moment for the Caribbean nation, but whether he'll actually play remains unclear.`\
 https://nytimes.com/athletic/6199293/2025/03/12/messi-jamaica-inter-miami-cavalier-concacaf-champions-cup/
-
-**Kansas ties NCAA record by hitting 5 consecutive home runs**\
-`The home run barrage was part of an eight-run third inning in a 29-1 win over Minnesota at U.S. Bank Stadium in Minneapolis. `\
-https://nytimes.com/athletic/6199315/2025/03/12/kansas-college-baseball-five-home-runs-record/
-
-**Meta Seeks to Block Further Sales of Ex-Employee’s Scathing Memoir**\
-`An arbitrator has prevented the employee from promoting her book and disparaging the company until private arbitration concludes.`\
-https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
 
