@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
 
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **Joe Rothwell is emerging as one of the unheralded heroes of Leeds' promotion push**\
 `In a team that needed to atone for Sunday’s loss at Portsmouth, Rothwell played like the one man without that blot in his copybook`\
 https://nytimes.com/athletic/6199342/2025/03/13/joe-rothwell-leeds-millwall/
