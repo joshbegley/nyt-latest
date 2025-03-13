@@ -1,3 +1,16 @@
+**What to Know About Trump’s Large-Scale Layoffs Plans So Far**\
+`Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
+https://nytimes.com/article/trump-firings-layoffs-rif.html
+
+**Ron Nessen, Ford’s White House Press Secretary, Dies at 90**\
+`He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
+https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
+
+**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
+`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
+`\
+https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
+
 **Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
 `The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
 `\
