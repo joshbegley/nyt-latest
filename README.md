@@ -1,3 +1,19 @@
+**State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
+`Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
+https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
+
+**Daniel Jones, Colts' newest QB, hoping for chance to 'compete' in Indy**\
+`Jones wants to start again, and in order to do so, he'll have to beat Anthony Richardson, the Colts’ 2023 No. 4 pick, for the job`\
+https://nytimes.com/athletic/6201689/2025/03/13/daniel-jones-indianapolis-colts-quarterback-competition/
+
+**Schumer Says He’ll Vote to Advance Spending Bill, Breaking With His Party**\
+`Many Democrats are agitating for their party’s senators to block the measure in defiance of President Trump, but the leader said doing so would prompt a shutdown that would only empower Mr. Trump.`\
+https://nytimes.com/2025/03/13/us/government-shutdown-senate-democrats.html
+
+**Chiefs, QB Gardner Minshew agree to one-year deal: Sources**\
+`Minshew finished the 2024 season with a 2-7 record for the Raiders. Now, he's the latest veteran quarterback to back up Patrick Mahomes. `\
+https://nytimes.com/athletic/6201970/2025/03/13/gardner-minshew-free-agency-signing-2025-chiefs/
+
 **Felice Picano, Champion of Gay Literature, Is Dead at 81**\
 `At a time when, in his words, “nobody was writing about gay life,” he produced groundbreaking novels and memoirs and published books by Harvey Fierstein and others.`\
 https://nytimes.com/2025/03/13/books/felice-picano-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/article/trump-firings-layoffs-rif.html
 **Ron Nessen, Ford’s White House Press Secretary, Dies at 90**\
 `He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
 https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
-
-**The Briefing: Man Utd 4 Real 1 (5-2 agg) - Fernandes the hero but did referee get calls right?**\
-`The major talking points analysed as Manchester United booked a Europa League quarter-final spot`\
-https://nytimes.com/athletic/6194336/2025/03/13/manchester-united-real-sociedad-europa-league-analysis/
-
-**Jose Altuve's shaky adjustment to left field: 'Every ball I get is going to be a new thing'**\
-`Altuve hadn't gotten many chances at his new position heading into Thursday. Then he faced a long fly ball and did not handle it well.`\
-https://nytimes.com/athletic/6201803/2025/03/13/astros-jose-altuve-left-field-adjustment/
-
-**Tottenham 3 AZ 1 (3-2 agg): Spurs progress, Odobert's first two goals and a season kept alive**\
-`Jack Pitt-Brooke and Elias Burke break down the main talking points from Tottenham Hotspur's 3-1 win over AZ`\
-https://nytimes.com/athletic/6194352/2025/03/13/tottenham-3-az-1-odobert-maddison-europa-league/
-
-**N.Y.C. Man (Not George Costanza) Sentenced for ‘Vandelay’ Con**\
-`Thomas John Sfraga appropriated the name from a scheming “Seinfeld” character as he bilked friends and neighbors. He was sentenced to more than two years in prison on Thursday.`\
-https://nytimes.com/2025/03/13/nyregion/vandelay-industries-fraud-sentencing-brooklyn.html
 
