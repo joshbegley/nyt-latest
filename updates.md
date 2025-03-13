@@ -1,3 +1,11 @@
+**D.C. Families, Facing Lost Jobs and a Gutted City Budget, Beseech Republican Lawmakers**\
+`With signs made from crayons and colored markers, children rallied on Capitol Hill with their parents on Thursday, protesting layoffs and spending limits.`\
+https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
+
+**Listen: How exciting is the new-look Broncos defense?**\
+`"The Athletic Football Show" discusses the Denver Broncos' acquisitions of Talanoa Hufanga and Dre Greenlaw.`\
+https://nytimes.com/athletic/6197040/2025/03/13/athletic-football-show-denver-broncos-defense/
+
 **Pistons' Jaden Ivey addresses media for first time since fibula injury**\
 `Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
 https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/

@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibul
 `The Cardinals believe Maton can provide stability and help mentor the multitude of young arms in St. Louis this season.`\
 https://nytimes.com/athletic/6200848/2025/03/13/cardinals-sign-phil-maton/
 
-**D.C. families, facing lost jobs and a gutted city budget, beseech Republican lawmakers.**\
-`Facing layoffs from the city’s biggest employer and what amounts to a billion-dollar budget cut, D.C. residents rallied on Capitol Hill on Thursday.`\
+**D.C. Families, Facing Lost Jobs and a Gutted City Budget, Beseech Republican Lawmakers**\
+`With signs made from crayons and colored markers, children rallied on Capitol Hill with their parents on Thursday, protesting layoffs and spending limits.`\
 https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
 
 **Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-s
 https://nytimes.com/2025/03/13/us/politics/trump-tower-protests-mahmoud-khalil.html
 
 **Listen: How exciting is the new-look Broncos defense?**\
-`The Athletic Football Show discuss the Denver Broncos' acquisitions of Talanoa Hufanga and Dre Greenlaw.`\
+`"The Athletic Football Show" discusses the Denver Broncos' acquisitions of Talanoa Hufanga and Dre Greenlaw.`\
 https://nytimes.com/athletic/6197040/2025/03/13/athletic-football-show-denver-broncos-defense/
 
 **Sofia Gubaidulina, Composer Who Provoked Soviet Censors, Dies at 93**\
