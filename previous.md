@@ -1,3 +1,7 @@
+**Corrections: March 13, 2025**\
+`Corrections that appeared in print on Thursday, March 13, 2025.`\
+https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
+
 **3 Takeaways From Irish Leader’s Visit With Trump at White House**\
 `In a meeting with Ireland’s prime minister, President Trump gave no hint of backing down from actions that have caused fissures in the trans-Atlantic alliance.`\
 https://nytimes.com/2025/03/12/us/politics/takeaways-ireland-martin-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198961/2025/03/12/emery-aston-villa-psg-champions-
 **Panthers agree to terms with RB Rico Dowdle on 1-year deal: Sources**\
 `The multifaceted Cowboys running back made the most of his first career starting opportunity in 2024. `\
 https://nytimes.com/athletic/6181320/2025/03/12/rico-dowdle-free-agency-signing-panthers/
-
-**Why the White House Car Show Mattered to Musk**\
-`A lot has changed since former President Joseph R. Biden Jr. snubbed Elon Musk at an event in 2021.`\
-https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.html
 

@@ -1,3 +1,7 @@
+**Corrections: March 13, 2025**\
+`Corrections that appeared in print on Thursday, March 13, 2025.`\
+https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
+
 **3 Takeaways From Irish Leader’s Visit With Trump at White House**\
 `In a meeting with Ireland’s prime minister, President Trump gave no hint of backing down from actions that have caused fissures in the trans-Atlantic alliance.`\
 https://nytimes.com/2025/03/12/us/politics/takeaways-ireland-martin-trump-tariffs.html
