@@ -1,3 +1,11 @@
+**Indonesian Fishermen Sue U.S. Canned Tuna Giant Over Claims of Forced Labor**\
+`In a lawsuit filed in California, the plaintiffs said that Bumble Bee Foods was aware of and benefited from abuse by suppliers. The company declined to comment.`\
+https://nytimes.com/2025/03/13/world/asia/bumble-bee-tuna-forced-labor.html
+
+**Dr. David Weldon on the Withdrawal**\
+`The former pick to head the C.D.C. issued a statement following the withdrawal of his nomination.`\
+https://nytimes.com/interactive/2025/03/13/health/weldon-statement.html
+
 **Mets' Jeff McNeil to start season on injured list with oblique strain**\
 `McNeil is expected to miss at least three to four weeks. Nearly 20 percent of New York's expected Opening Day roster is injured.`\
 https://nytimes.com/athletic/6200612/2025/03/13/jeff-mcneil-injury-mets-opening-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6199487/2025/03/13/nwsl-college-soccer-youth-moveme
 **The Bounce: Shai Gilgeous-Alexander, Thunder may need more close-game reps before NBA playoffs**\
 `The Thunder had an impressive win over the defending champion Celtics, but they may need more late-game reps for an NBA Finals run`\
 https://nytimes.com/athletic/6200268/2025/03/13/thunder-shai-gilgeous-alexander-jayson-tatum-celtics-nba-the-bounce/
-
-**The Trump Loyalist Aiming to Swing Wisconsin Back to the Right**\
-`Brad Schimel, a judge who is so supportive of the president that he dressed up as him for Halloween, is hoping to flip the Wisconsin Supreme Court for conservatives.`\
-https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-court.html
-
-**Russia Claims to Have Regained Control of Key Kursk Town**\
-`Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
-https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
 
