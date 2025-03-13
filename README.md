@@ -1,3 +1,19 @@
+**Tornado Reported in Los Angeles as Storm Batters California**\
+`Parts of the city had been urged to evacuate as a powerful system brought rain and snow up and down the state.`\
+https://nytimes.com/2025/03/13/weather/los-angeles-tornado-california-storm.html
+
+**What to Know About Russia’s Drive to Push Ukraine’s Troops Out of Kursk**\
+`Russia claimed to retake a key town in the area from Ukrainian forces. Ukraine’s top military commander has said that its forces would continue to “hold the line.”`\
+https://nytimes.com/2025/03/13/world/europe/kursk-ukraine-russia-war.html
+
+**Trump Administration Must Rehire Thousands of Fired Workers, Judge Rules**\
+`A federal judge on Thursday called the administration’s justification for firing thousands of workers with probationary status a “sham.”`\
+https://nytimes.com/2025/03/13/us/politics/trump-federal-workers-rehire-ruling.html
+
+**Cheeto shaped like Michael Jordan's Jumpman logo up for auction**\
+`Cheetos resembling famous people or characters are hot`\
+https://nytimes.com/athletic/6200718/2025/03/13/cheeto-michael-jordan-charizard-pokemon/
+
 **Passionate Voices in an Anguished Time**\
 `Readers make heartfelt pleas in the age of Trump. Also: The E.P.A. abandons its mission.`\
 https://nytimes.com/2025/03/13/opinion/trump-voices-anguish.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-updat
 **Scoop City: Eight more takeaways from free agency**\
 `Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
 https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/03/13/books/review/new-books-recommendations.html
-
-**Steelers continue waiting on Aaron Rodgers, bring back Mason Rudolph: Source**\
-`Rudolph spent the first six years of his NFL career with Pittsburgh before joining the Titans for one season. `\
-https://nytimes.com/athletic/6200768/2025/03/13/mason-rudolph-steelers-nfl-free-agency-signing/
-
-**Champions League projections 2024-25: Who will lift the trophy in Munich on May 31?**\
-`Here's how the rest of the new-look Champions League is projected to play out...`\
-https://nytimes.com/athletic/5793492/2025/03/13/champions-league-projections/
-
-**America Can’t Be Great if America Is Stupid**\
-`Trump’s attack on higher education and scientific research undermines some of our most competitive advantages.`\
-https://nytimes.com/2025/03/13/opinion/trump-education-department.html
 
