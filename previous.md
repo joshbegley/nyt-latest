@@ -15,15 +15,15 @@ https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.htm
 https://nytimes.com/2025/03/13/us/politics/elon-musk-nsa.html
 
 **Seahawks wanted to keep Geno Smith and DK Metcalf but had to pivot, GM says**\
-`GM John Schneider thought he could resolve DK Metcalf's trade requests, while it was "pretty evident" Geno Smith and Seattle were far apart.`\
+`GM John Schneider thought he could resolve DK Metcalf's trade request, while it was "pretty evident" Geno Smith and Seattle were far apart.`\
 https://nytimes.com/athletic/6201681/2025/03/13/seahawks-geno-smith-dk-metcalf-john-schneider/
 
 **‘I Love My Job’: Laid-Off Federal Worker on DOGE Cuts**\
 `Jasmin Dominguez, a former U.S. Forest Service employee, was fired weeks after helping fight the Los Angeles wildfires. Her termination was part of the Trump administration’s efforts to shrink the government.`\
 https://nytimes.com/video/us/politics/100000010032636/federal-worker-layoff-doge.html
 
-**Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
-`Fox, 27, had been playing with a dislocated pinky finger on his left shooting hand all season.`\
+**Spurs' De'Aaron Fox to undergo season-ending surgery on pinkie finger**\
+`Fox, 27, had been playing with a dislocated pinkie finger on his left shooting hand all season.`\
 https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
 
 **Raúl Grijalva, Democrat who urged Biden to drop out in 2024, dies of cancer.**\

@@ -1,3 +1,11 @@
+**Seahawks wanted to keep Geno Smith and DK Metcalf but had to pivot, GM says**\
+`GM John Schneider thought he could resolve DK Metcalf's trade request, while it was "pretty evident" Geno Smith and Seattle were far apart.`\
+https://nytimes.com/athletic/6201681/2025/03/13/seahawks-geno-smith-dk-metcalf-john-schneider/
+
+**Spurs' De'Aaron Fox to undergo season-ending surgery on pinkie finger**\
+`Fox, 27, had been playing with a dislocated pinkie finger on his left shooting hand all season.`\
+https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
+
 **Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
 `Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
 https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
