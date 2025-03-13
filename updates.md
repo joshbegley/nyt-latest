@@ -1,3 +1,11 @@
+**NBA Awards Watch: Have we seen a Rookie of the Year race like this before? Sort of**\
+`In 2017, a Sixer didn't play enough to contend for the honor. We're seeing a repeat of that unfold in 2025.`\
+https://nytimes.com/athletic/6192034/2025/03/13/nba-awards-rookie-of-the-year-odds/
+
+**Brighton owner buys stake in A-League side Melbourne Victory**\
+`Bloom, who is in ongoing talks with Hearts, widens his football portfolio to four clubs with the purchase of the Melbourne Victory stake.`\
+https://nytimes.com/athletic/6199887/2025/03/13/brighton-bloom-melbourne-victory/
+
 **Watch: ‘Instruments of a Beating Heart’**\
 `What can we learn from a Japanese elementary school’s effort to balance discipline and freedom?`\
 https://nytimes.com/2025/03/13/learning/watch-instruments-of-a-beating-heart.html
