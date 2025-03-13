@@ -1,3 +1,7 @@
+**Word of the Day: behest**\
+`This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/13/learning/word-of-the-day-behest.html
+
 **How Elias Pettersson, Quinn Hughes sparked a gutsy Canucks comeback win: 3 takeaways**\
 `Hughes' return to the lineup was a massive boost in Vancouver's 4-3 shootout win over the Calgary Flames.`\
 https://nytimes.com/athletic/6199242/2025/03/13/canucks-comeback-win-flames-elias-pettersson-quinn-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6196949/2025/03/13/manchester-united-coin-toss-chan
 **English football is besotted with second balls - but how important are they?**\
 `Analysing one of the basics of football, from Sunday League all the way to the Premier League - even Pep Guardiola agrees `\
 https://nytimes.com/athletic/6193329/2025/03/13/measuring-second-balls-premier-league-analysis/
-
-**Capsized in Sydney and on zero points. Why the US SailGP team is struggling to deliver**\
-`The all-American SailGP team are struggling so far this season, but there are also reasons to be optimistic about the future`\
-https://nytimes.com/athletic/6194031/2025/03/13/sailgp-season-5-team-usa-los-angeles/
 

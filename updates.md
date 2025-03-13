@@ -1,3 +1,7 @@
+**Word of the Day: behest**\
+`This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/13/learning/word-of-the-day-behest.html
+
 **How Elias Pettersson, Quinn Hughes sparked a gutsy Canucks comeback win: 3 takeaways**\
 `Hughes' return to the lineup was a massive boost in Vancouver's 4-3 shootout win over the Calgary Flames.`\
 https://nytimes.com/athletic/6199242/2025/03/13/canucks-comeback-win-flames-elias-pettersson-quinn-hughes/
