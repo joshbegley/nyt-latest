@@ -1,3 +1,15 @@
+**See How Elon Musk’s Team Inflated, Deleted and Rewrote Its Savings Claims**\
+`The cost-cutting group removed hundreds of contracts from its “wall of receipts,” added back many of them, and inflated savings values.`\
+https://nytimes.com/2025/03/13/upshot/musk-doge-changes-deletions.html
+
+**As Trump’s Untested Emissary to Putin, Witkoff’s Role May Bring Risk**\
+`The real estate developer and president’s friend lacks diplomatic experience, but the new administration might view that as a plus.`\
+https://nytimes.com/2025/03/13/us/politics/witkoff-trumps-russia-putin.html
+
+**A Groundbreaking Ship That Sank in Lake Superior in 1892 Is Discovered**\
+`After searching for two years, researchers discovered the shipwreck of the Western Reserve, an early all-steel ship that broke apart in a gale in 1892 with a sole survivor.`\
+https://nytimes.com/2025/03/13/us/shipwreck-lake-superior-western-reserve.html
+
 **Trump Sees ‘Good Signals’ on Russia-Ukraine Cease-Fire. Zelensky Does Not.**\
 `U.S. officials were in Moscow for talks, and the Russian leader said he was open to a cease-fire, but President Volodymyr Zelensky of Ukraine expressed skepticism.`\
 https://nytimes.com/2025/03/13/us/politics/trump-rutte-russia-ukraine-ceasefire.html
