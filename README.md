@@ -1,3 +1,15 @@
+**German Tourists Detained for Weeks, Then Deported From U.S.**\
+`Amid President Trump’s border crackdown, German news media have closely followed the treatment of two tourists who say they tried to enter the United States legally.`\
+https://nytimes.com/2025/03/13/world/europe/german-tourists-detained-deported.html
+
+**How Trump Cuts Could Change Your Summer Hiking Trip**\
+`The Bureau of Land Management, the Forest Service and the Fish & Wildlife Service manage more public lands than the Parks Service. And their staffs have also been cut.`\
+https://nytimes.com/2025/03/13/travel/trump-cuts-national-parks-summer-travel.html
+
+**Federal Cuts Prompt Johns Hopkins to Cut More Than 2,000 Workers**\
+`The university, a leader in scientific research, has been hard hit by the Trump administration’s cuts, which will slash at least $800 million from its budget.`\
+https://nytimes.com/2025/03/13/us/trump-cuts-johns-hopkins-university-layoffs.html
+
 **Flames' Connor Zary suspended 2 games for elbowing Canucks' Elias Pettersson**\
 `The incident occurred Wednesday night during the first period of the Flames-Canucks game at the Scotiabank Saddledome in Calgary.`\
 https://nytimes.com/athletic/6201691/2025/03/13/flames-suspension-zary-pettersson-canucks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6200989/2025/03/13/what-are-the-weirdest-rules-in-s
 **Bengals' bet on new DC Al Golden has shifted from safe to reckless during free agency**\
 `How much difference can a coordinator make? The Bengals are about to find out after doing little to add new pieces in early free agency.`\
 https://nytimes.com/athletic/6201191/2025/03/13/bengals-al-golden-defense-free-agency/
-
-**Federal Agency Pauses Program for Energy-Efficient Upgrades in Affordable Housing**\
-`The Department of Housing and Urban Development said it was reviewing all aspects of the Biden-era program to ensure it was carried out consistent with the agency’s core mission.`\
-https://nytimes.com/2025/03/13/business/hud-affordable-housing-green-energy.html
-
-**How Sean McVay's aggressive recruiting style brought Davante Adams to L.A.**\
-`Davante Adams was in Japan when he received video cutups from Sean McVay, who was showing the receiver how he'd fit in the Rams' offense.`\
-https://nytimes.com/athletic/6200998/2025/03/13/rams-davante-adams-sean-mcvay-recruiting/
-
-**Oilers GM Stan Bowman files to quash subpoena in John Doe vs. Blackhawks lawsuit**\
-`Bowman’s motion argues he was not properly served a subpoena to be deposed in the civil case of John Doe v. the Chicago Blackhawks.`\
-https://nytimes.com/athletic/6201605/2025/03/13/stan-bowman-john-doe-vs-blackhawks-subpoena/
 

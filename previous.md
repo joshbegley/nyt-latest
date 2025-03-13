@@ -1,3 +1,23 @@
+**Flames' Connor Zary suspended 2 games for elbowing Canucks' Elias Pettersson**\
+`The incident occurred Wednesday night during the first period of the Flames-Canucks game at the Scotiabank Saddledome in Calgary.`\
+https://nytimes.com/athletic/6201691/2025/03/13/flames-suspension-zary-pettersson-canucks/
+
+**John Feinstein, Who Wrote ‘A Season on the Brink,’ Dies at 69**\
+`A longtime columnist for The Washington Post, he also wrote dozens of books about basketball, baseball, tennis, golf, football and the Olympics, many of them best sellers.`\
+https://nytimes.com/2025/03/13/books/john-feinstein-dead.html
+
+**Friday Briefing: Putin Speaks on Ukraine Cease-Fire**\
+`Plus, Siberia’s bone hunters.`\
+https://nytimes.com/2025/03/13/briefing/putin-ukraine-truce-trump-alcohol-tariffs-syria-destruction.html
+
+**America Is Surrounded by Enemies … That We Created**\
+`What happens when a superpower goes rogue.`\
+https://nytimes.com/2025/03/13/opinion/america-trump-europe.html
+
+**Police Arrest Protesters at Mahmoud Khalil Rally Inside Trump Tower**\
+`Demonstrators packed into the lower level of Trump Tower in Manhattan on Thursday to protest the arrest of Mahmoud Khalil, a Palestinian activist and permanent resident, who the Trump administration has moved to deport.`\
+https://nytimes.com/video/us/politics/100000010050946/trump-tower-protest-mahmoud-khalil.html
+
 **Fallen caps, untucked jerseys and rain regulations - what are the weirdest rules in sport?**\
 `Following on from the bizarre two-touch penalty drama in the Champions League, our writers pick the oddest rules across the sporting world `\
 https://nytimes.com/athletic/6200989/2025/03/13/what-are-the-weirdest-rules-in-sport/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6200998/2025/03/13/rams-davante-adams-sean-mcvay-re
 **Oilers GM Stan Bowman files to quash subpoena in John Doe vs. Blackhawks lawsuit**\
 `Bowman’s motion argues he was not properly served a subpoena to be deposed in the civil case of John Doe v. the Chicago Blackhawks.`\
 https://nytimes.com/athletic/6201605/2025/03/13/stan-bowman-john-doe-vs-blackhawks-subpoena/
-
-**Bosa signed with Bills in part to pursue Allen's Super Bowl promise of 'immortality'**\
-`Bosa said he was feeling "better than I've ever felt in nine years" before his 2024 injury. Now, he joins a Bills team looking for a ring. `\
-https://nytimes.com/athletic/6201478/2025/03/13/bills-joey-bosa-josh-allen-free-agency/
-
-**Dawn Robinson, En Vogue Alum, Says She’s Been Living in Her Car for 3 Years**\
-`“I needed to go through this fire,” said Robinson, whose R&B group delivered the hit songs “Hold On” and “Giving Him Something He Can Feel” in the 1990s.`\
-https://nytimes.com/2025/03/13/arts/music/dawn-robinson-en-vogue-homeless.html
-
-**Marvin Harrison Jr., Fanatics settle lawsuit after nearly year-long dispute**\
-`The case dates back to May of 2024, when Fanatics filed a lawsuit against Harrison Jr. for breach of contract.`\
-https://nytimes.com/athletic/6201222/2025/03/13/marvin-harrison-jr-fanatics-settle-lawsuit/
-
-**Zelensky criticizes Putin’s comments on a cease-fire, calling them ‘very manipulative.’**\
-`By Marc Santora`\
-https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk/zelensky-criticizes-putins-comments-on-a-cease-fire-calling-them-very-manipulative
-
-**A Chilling Scream, Then the Discovery of 53 Dead and Dying Migrants**\
-`Prosecutors in San Antonio are putting human smugglers on trial, as legal avenues into the United States are closed off and dangers to undocumented migrants may be rising.`\
-https://nytimes.com/2025/03/13/us/politics/migrants-smugglers-trial.html
 
