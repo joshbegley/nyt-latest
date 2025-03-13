@@ -1,3 +1,7 @@
+**Trump Administration Replaces Top I.R.S. Lawyer**\
+`Attempts by Elon Musk’s team to gain access to I.R.S. data have raised legal concerns at the agency.`\
+https://nytimes.com/2025/03/13/us/politics/trump-irs-lawyer-doge.html
+
 **Until Saturday: The bizarro Iron Bowl**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/6201204/2025/03/13/college-football-26-leak-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6200970/2025/03/13/rays-stadium-st-petersburg-proje
 **The South and Midwest Face Days of Severe Weather and Tornado Threats**\
 `A system over the northern part of the U.S. is expected to fuel damaging winds, hail and tornadoes farther south.`\
 https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html
-
-**Khalil Sues Columbia and Lawmakers to Keep Activists’ Names Secret**\
-`Mahmoud Khalil is among pro-Palestinian demonstrators targeted by the government, which has demanded records from the university. He joined seven unnamed students in the case.`\
-https://nytimes.com/2025/03/13/nyregion/mahmoud-khalil-sues-columbia.html
 

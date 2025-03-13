@@ -1,3 +1,7 @@
+**Trump Administration Replaces Top I.R.S. Lawyer**\
+`Attempts by Elon Musk’s team to gain access to I.R.S. data have raised legal concerns at the agency.`\
+https://nytimes.com/2025/03/13/us/politics/trump-irs-lawyer-doge.html
+
 **Until Saturday: The bizarro Iron Bowl**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/6201204/2025/03/13/college-football-26-leak-until-saturday/
