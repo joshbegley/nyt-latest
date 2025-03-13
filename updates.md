@@ -1,3 +1,7 @@
+**How Elias Pettersson, Quinn Hughes sparked a gutsy Canucks comeback win: 3 takeaways**\
+`Hughes' return to the lineup was a massive boost in Vancouver's 4-3 shootout win over the Calgary Flames.`\
+https://nytimes.com/athletic/6199242/2025/03/13/canucks-comeback-win-flames-elias-pettersson-quinn-hughes/
+
 **FPL: The pros and cons of using your Free Hit in Gameweek 29**\
 `Holly Shand explores the merits of using changing your entire team`\
 https://nytimes.com/athletic/6196946/2025/03/13/fpl-gw-29-free-hit-haaland-wood-gvardiol/

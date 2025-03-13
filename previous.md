@@ -1,3 +1,7 @@
+**How Elias Pettersson, Quinn Hughes sparked a gutsy Canucks comeback win: 3 takeaways**\
+`Hughes' return to the lineup was a massive boost in Vancouver's 4-3 shootout win over the Calgary Flames.`\
+https://nytimes.com/athletic/6199242/2025/03/13/canucks-comeback-win-flames-elias-pettersson-quinn-hughes/
+
 **FPL: The pros and cons of using your Free Hit in Gameweek 29**\
 `Holly Shand explores the merits of using changing your entire team`\
 https://nytimes.com/athletic/6196946/2025/03/13/fpl-gw-29-free-hit-haaland-wood-gvardiol/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193329/2025/03/13/measuring-second-balls-premier-l
 **Capsized in Sydney and on zero points. Why the US SailGP team is struggling to deliver**\
 `The all-American SailGP team are struggling so far this season, but there are also reasons to be optimistic about the future`\
 https://nytimes.com/athletic/6194031/2025/03/13/sailgp-season-5-team-usa-los-angeles/
-
-**The New York Times in Print for Thursday, March 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/13/todays-new-york-times
 
