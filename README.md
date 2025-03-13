@@ -1,3 +1,11 @@
+**The South and Midwest Face Days of Severe Weather and Tornado Threats**\
+`A system over the northern part of the U.S. is expected to fuel damaging winds, hail and tornadoes farther south.`\
+https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html
+
+**Khalil Sues Columbia and Lawmakers to Keep Activists’ Names Secret**\
+`Mahmoud Khalil is among pro-Palestinian demonstrators targeted by the government, which has demanded records from the university. He joined seven unnamed students in the case.`\
+https://nytimes.com/2025/03/13/nyregion/mahmoud-khalil-sues-columbia.html
+
 **Which teams saw their Super Bowl odds move after flurry of free-agency moves**\
 `It's time to check in on winners and losers in Super Bowl outlook after some big roster shifts.`\
 https://nytimes.com/athletic/6200828/2025/03/13/super-bowl-odds-early-free-agency-new-season/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6200828/2025/03/13/super-bowl-odds-early-free-agenc
 `Demna, who led Balenciaga to great heights, will step into the lead role.`\
 https://nytimes.com/2025/03/13/style/demna-gucci-designer.html
 
-**Cooper Flagg exits Duke's ACC tournament opener with apparent ankle injury**\
+**Cooper Flagg exits Duke's ACC tournament opener with ankle injury**\
 `Flagg jumped to grab a rebound when he appeared to land on a teammate’s foot and crumpled to the ground.`\
 https://nytimes.com/athletic/6201070/2025/03/13/duke-cooper-flagg-injury-basketball-acc-tournament/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/world/middleeast/un-israel-gaza.html
 **Madrid's Mendy suffers hamstring injury**\
 `The 29-year-old sustained the injury during his side’s Champions League round of 16 victory over Atletico Madrid on Wednesday.`\
 https://nytimes.com/athletic/6200112/2025/03/13/ferland-mendy-injury-update-real-madrid/
-
-**Tornado Reported in Los Angeles as Storm Batters California**\
-`Parts of the city had been urged to evacuate as a powerful system brought rain and snow up and down the state.`\
-https://nytimes.com/2025/03/13/weather/los-angeles-tornado-california-storm.html
-
-**What to Know About Russia’s Drive to Push Ukraine’s Troops Out of Kursk**\
-`Russia claimed to retake a key town in the area from Ukrainian forces. Ukraine’s top military commander has said that its forces would continue to “hold the line.”`\
-https://nytimes.com/2025/03/13/world/europe/kursk-ukraine-russia-war.html
 
