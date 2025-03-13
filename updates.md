@@ -1,3 +1,12 @@
+**Elon Musk’s Starlink Pushes Its Way Into India**\
+`By signing deals with India’s two biggest telecom players, the tech tycoon and Trump adviser has improved his odds of breaking into an enormous market.`\
+https://nytimes.com/2025/03/13/business/starlink-india-musk.html
+
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **Premier League outright markets: Best bets to make with 10 games to go**\
 `Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
 `\
