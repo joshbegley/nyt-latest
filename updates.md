@@ -1,3 +1,7 @@
+**‘We Hear You, Mr. President’: The World Lines Up to Buy American Gas**\
+`Facing Trump tariff threats, governments and companies are proposing major investments in American liquefied natural gas projects.`\
+https://nytimes.com/2025/03/13/climate/trump-tariff-natural-gas-investment.html
+
 **What’s Going On in This Picture? | March 17, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html

@@ -10,7 +10,7 @@ https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-graph-march-26-20
 `The largest federal employees union is suing the Homeland Security Department to stop the Trump administration from canceling its contract with T.S.A. workers.`\
 https://nytimes.com/2025/03/13/us/politics/federal-workers-union-lawsuit-tsa.html
 
-**‘We Hear You, Mr. President:’ The World Lines Up to Buy American Gas**\
+**‘We Hear You, Mr. President’: The World Lines Up to Buy American Gas**\
 `Facing Trump tariff threats, governments and companies are proposing major investments in American liquefied natural gas projects.`\
 https://nytimes.com/2025/03/13/climate/trump-tariff-natural-gas-investment.html
 
