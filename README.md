@@ -1,3 +1,15 @@
+**Fallen caps, untucked jerseys and rain regulations - what are the weirdest rules in sport?**\
+`Following on from the bizarre two-touch penalty drama in the Champions League, our writers pick the oddest rules across the sporting world `\
+https://nytimes.com/athletic/6200989/2025/03/13/what-are-the-weirdest-rules-in-sport/
+
+**Bengals' bet on new DC Al Golden has shifted from safe to reckless during free agency**\
+`How much difference can a coordinator make? The Bengals are about to find out after doing little to add new pieces in early free agency.`\
+https://nytimes.com/athletic/6201191/2025/03/13/bengals-al-golden-defense-free-agency/
+
+**Federal Agency Pauses Program for Energy-Efficient Upgrades in Affordable Housing**\
+`The Department of Housing and Urban Development said it was reviewing all aspects of the Biden-era program to ensure it was carried out consistent with the agency’s core mission.`\
+https://nytimes.com/2025/03/13/business/hud-affordable-housing-green-energy.html
+
 **How Sean McVay's aggressive recruiting style brought Davante Adams to L.A.**\
 `Davante Adams was in Japan when he received video cutups from Sean McVay, who was showing the receiver how he'd fit in the Rams' offense.`\
 https://nytimes.com/athletic/6200998/2025/03/13/rams-davante-adams-sean-mcvay-recruiting/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk/zelens
 **A Chilling Scream, Then the Discovery of 53 Dead and Dying Migrants**\
 `Prosecutors in San Antonio are putting human smugglers on trial, as legal avenues into the United States are closed off and dangers to undocumented migrants may be rising.`\
 https://nytimes.com/2025/03/13/us/politics/migrants-smugglers-trial.html
-
-**See How Elon Musk’s Team Inflated, Deleted and Rewrote Its Savings Claims**\
-`The cost-cutting group removed hundreds of contracts from its “wall of receipts,” added back many of them, and inflated savings values.`\
-https://nytimes.com/2025/03/13/upshot/musk-doge-changes-deletions.html
-
-**As Trump’s Untested Emissary to Putin, Witkoff’s Role May Bring Risk**\
-`The real estate developer and president’s friend lacks diplomatic experience, but the new administration might view that as a plus.`\
-https://nytimes.com/2025/03/13/us/politics/witkoff-trumps-russia-putin.html
-
-**A Groundbreaking Ship That Sank in Lake Superior in 1892 Is Discovered**\
-`After searching for two years, researchers discovered the shipwreck of the Western Reserve, an early all-steel ship that broke apart in a gale in 1892 with a sole survivor.`\
-https://nytimes.com/2025/03/13/us/shipwreck-lake-superior-western-reserve.html
 
