@@ -1,3 +1,15 @@
+**Elon Musk’s Team Is Less Transparent, and Still Making Big Errors.**\
+`After a series of news reports called out DOGE’s error-filled claims, Elon Musk’s Department of Government Efficiency has made its newest claims harder to check — for “security purposes,” according to a White House official.`\
+https://nytimes.com/video/us/politics/100000010047426/elon-musks-team-is-less-transparent-and-still-making-big-errors.html
+
+**Trump’s Tariff Threat Sends French Wine and Champagne Makers Reeling**\
+`Industry representatives warned that a 200 percent tax on European wines and spirits would halt shipments to the United States and wipe €4 billion off France’s trade balance.`\
+https://nytimes.com/2025/03/13/us/politics/trumps-tariff-threat-sends-french-wine-and-champagne-makers-reeling.html
+
+**‘I Thought I Was Going to Die Here’: 6 Days Trapped in a Car, Just Out of Sight**\
+`Brieonna Cassell crashed into a ditch, shattering bones and getting pinned inside. Just yards away from a road, she was determined to survive until help arrived.`\
+https://nytimes.com/2025/03/13/us/indiana-woman-car-crash-survivor.html
+
 **Seattle's Brandon Montour scores fastest goal in NHL overtime history**\
 `It was Montour's second goal of the game in addition to two assists.`\
 https://nytimes.com/athletic/6200818/2025/03/13/brandon-montour-kraken-canadiens-fastest-goal-overtime-history/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/13/nyregion/mahmoud-khalil-sues-columbia.html
 **Which teams saw their Super Bowl odds move after flurry of free-agency moves**\
 `It's time to check in on winners and losers in Super Bowl outlook after some big roster shifts.`\
 https://nytimes.com/athletic/6200828/2025/03/13/super-bowl-odds-early-free-agency-new-season/
-
-**Gucci Makes Bold Choice for New Designer**\
-`Demna, who led Balenciaga to great heights, will step into the lead role.`\
-https://nytimes.com/2025/03/13/style/demna-gucci-designer.html
-
-**Cooper Flagg exits Duke's ACC tournament opener with ankle injury**\
-`Flagg jumped to grab a rebound when he appeared to land on a teammate’s foot and crumpled to the ground.`\
-https://nytimes.com/athletic/6201070/2025/03/13/duke-cooper-flagg-injury-basketball-acc-tournament/
-
-**How to boost your fantasy baseball team's batting average via a closer look at the data**\
-`John Laghezza does a data deep dive into batting average and shares how to boost your fantasy baseball team's batting average. `\
-https://nytimes.com/athletic/6197601/2025/03/13/batting-average-data-fantasy-baseball/
 

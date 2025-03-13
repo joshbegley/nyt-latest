@@ -1,10 +1,14 @@
+**Until Saturday: The bizarro Iron Bowl**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/6201204/2025/03/13/college-football-26-leak-until-saturday/
+
 **Elon Musk’s Team Is Less Transparent, and Still Making Big Errors.**\
 `After a series of news reports called out DOGE’s error-filled claims, Elon Musk’s Department of Government Efficiency has made its newest claims harder to check — for “security purposes,” according to a White House official.`\
 https://nytimes.com/video/us/politics/100000010047426/elon-musks-team-is-less-transparent-and-still-making-big-errors.html
 
 **Trump’s Tariff Threat Sends French Wine and Champagne Makers Reeling**\
 `Industry representatives warned that a 200 percent tax on European wines and spirits would halt shipments to the United States and wipe €4 billion off France’s trade balance.`\
-https://nytimes.com/2025/03/13/us/politics/trumps-tariff-threat-sends-french-wine-and-champagne-makers-reeling.html
+https://nytimes.com/2025/03/13/us/politics/trump-tariffs-wine-champagne-france.html
 
 **‘I Thought I Was Going to Die Here’: 6 Days Trapped in a Car, Just Out of Sight**\
 `Brieonna Cassell crashed into a ditch, shattering bones and getting pinned inside. Just yards away from a road, she was determined to survive until help arrived.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html
 **Khalil Sues Columbia and Lawmakers to Keep Activists’ Names Secret**\
 `Mahmoud Khalil is among pro-Palestinian demonstrators targeted by the government, which has demanded records from the university. He joined seven unnamed students in the case.`\
 https://nytimes.com/2025/03/13/nyregion/mahmoud-khalil-sues-columbia.html
-
-**Which teams saw their Super Bowl odds move after flurry of free-agency moves**\
-`It's time to check in on winners and losers in Super Bowl outlook after some big roster shifts.`\
-https://nytimes.com/athletic/6200828/2025/03/13/super-bowl-odds-early-free-agency-new-season/
 

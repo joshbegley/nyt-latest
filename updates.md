@@ -1,3 +1,15 @@
+**Elon Musk’s Team Is Less Transparent, and Still Making Big Errors.**\
+`After a series of news reports called out DOGE’s error-filled claims, Elon Musk’s Department of Government Efficiency has made its newest claims harder to check — for “security purposes,” according to a White House official.`\
+https://nytimes.com/video/us/politics/100000010047426/elon-musks-team-is-less-transparent-and-still-making-big-errors.html
+
+**Trump’s Tariff Threat Sends French Wine and Champagne Makers Reeling**\
+`Industry representatives warned that a 200 percent tax on European wines and spirits would halt shipments to the United States and wipe €4 billion off France’s trade balance.`\
+https://nytimes.com/2025/03/13/us/politics/trumps-tariff-threat-sends-french-wine-and-champagne-makers-reeling.html
+
+**‘I Thought I Was Going to Die Here’: 6 Days Trapped in a Car, Just Out of Sight**\
+`Brieonna Cassell crashed into a ditch, shattering bones and getting pinned inside. Just yards away from a road, she was determined to survive until help arrived.`\
+https://nytimes.com/2025/03/13/us/indiana-woman-car-crash-survivor.html
+
 **Seattle's Brandon Montour scores fastest goal in NHL overtime history**\
 `It was Montour's second goal of the game in addition to two assists.`\
 https://nytimes.com/athletic/6200818/2025/03/13/brandon-montour-kraken-canadiens-fastest-goal-overtime-history/
