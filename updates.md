@@ -1,3 +1,11 @@
+**Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
+`Fox, 27, had been playing with a dislocated left pinky finger on his left shooting hand all season long`\
+https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
+
+**Raúl Grijalva, Democrat Who Urged Biden to Drop Out in 2024, Dies of Cancer**\
+`Representative Raúl M. Grijalva, 77, was one of the first Democrats to push the president to end his re-election campaign, citing the potential danger of a second Trump administration.`\
+https://nytimes.com/live/2025/03/13/us/trump-tariff-government-news/raul-grijalva-dead-biden
+
 **State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
 `Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
 https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
