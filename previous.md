@@ -1,3 +1,19 @@
+**Name the Australian Who Has Won His Home Race. Give Up?**\
+`None have ever won F1’s Australian Grand Prix. The Aussies Oscar Piastri of McLaren and Jack Doohan of Alpine hope to change that.`\
+https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix.html
+
+**Stocks Tumble Into Correction as Investors Sour on Trump**\
+`The S&P 500 is now more than 10 percent below its last record high — a line in the sand for investors worried about a sell-off gathering steam.`\
+https://nytimes.com/2025/03/13/business/sp-500-stocks-market-correction.html
+
+**Housing Discrimination Groups Sue DOGE and HUD for Cutting Funds**\
+`Organizations that enforce the federal Fair Housing Act say they are struggling to operate with the sudden elimination of annual grants.`\
+https://nytimes.com/2025/03/13/realestate/fair-housing-discrimination-cuts-lawsuit.html
+
+**The Last of the Winter Salads**\
+`It’s not too late to embrace the bitter and the sweet of chicories and citrus.`\
+https://nytimes.com/2025/03/13/dining/the-last-of-the-winter-salads.html
+
 **Melbourne Returns as Formula 1’s Season Opener**\
 `The Australian city hosted the first race of the year for most of the last three decades before the Covid-19 pandemic. Now it’s back.`\
 https://nytimes.com/2025/03/13/sports/autoracing/f1-melbourne-season-opener.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6201483/2025/03/13/red-sox-rafael-devers-dh-lucas-g
 **Trump’s Birthright Citizenship Order Reaches the Supreme Court**\
 `Trump administration lawyers asked the justices to limit the sweep of decisions by three lower courts that had issued nationwide pauses on the policy.`\
 https://nytimes.com/2025/03/13/us/politics/trump-birthright-citizenship-supreme-court.html
-
-**What Teens Are Saying About Age Limits for Anti-Aging Skin Care**\
-`Students reacted to a California bill that, if passed, would make it illegal for companies to sell such products to shoppers under 18 years old.`\
-https://nytimes.com/2025/03/13/learning/what-teens-are-saying-about-age-limits-for-anti-aging-skin-care.html
-
-**A Timeline of Trump’s On-Again, Off-Again Tariffs**\
-`In the first 50 days of his second term, President Trump’s penchant for imposing and then suspending tariffs has shaken markets and confounded trading partners.`\
-https://nytimes.com/2025/03/13/business/economy/trump-tariff-timeline.html
-
-**A Spotlight on Asian American Culture Today**\
-``\
-https://nytimes.com/issue/arts/2025/03/13/asian-american
-
-**A Composer Both Fully Modern and Sincerely Spiritual**\
-`Sofia Gubaidulina’s work, with its thorniness and religious themes, put her at odds with the Soviet government.`\
-https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-composer-appraisal.html
 
