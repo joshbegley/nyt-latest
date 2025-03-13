@@ -1,3 +1,7 @@
+**More than two decades later, viral anthem singer gets redemption in Portland**\
+`On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
+https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
+
 **Maurice Cheeks watches proudly as Natalie Zito nails national anthem 22 years later**\
 `On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
 https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
