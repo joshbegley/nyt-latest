@@ -1,3 +1,11 @@
+**Bears newcomer Grady Jarrett bringing energy to Halas Hall: 'I'm just so fired up'**\
+`Bears fans got their first dose of Jarrett, and the passion he'll bring on and off the field, in his opening news conference at Halas Hall.`\
+https://nytimes.com/athletic/6198911/2025/03/13/bears-grady-jarrett-energy/
+
+**Mistakes doom Celtics against Thunder and must be cleaned up before the playoffs**\
+`Oklahoma City physically overwhelmed Boston, which got careless with the ball and on defense in Wednesday's loss. `\
+https://nytimes.com/athletic/6199729/2025/03/13/celtics-thunder-loss-jayson-tatum-joe-mazzulla/
+
 **Phillies Opening Day roster projection: Who gets the final spots?**\
 `The edges of the roster remain somewhat unsettled. Here's our best guess at how it all looks March 27 in Washington.`\
 https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster-projection/
