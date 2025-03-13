@@ -1,3 +1,19 @@
+**State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
+`Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
+https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
+
+**Daniel Jones, Colts' newest QB, hoping for chance to 'compete' in Indy**\
+`Jones wants to start again, and in order to do so, he'll have to beat Anthony Richardson, the Colts’ 2023 No. 4 pick, for the job`\
+https://nytimes.com/athletic/6201689/2025/03/13/daniel-jones-indianapolis-colts-quarterback-competition/
+
+**Schumer Says He’ll Vote to Advance Spending Bill, Breaking With His Party**\
+`Many Democrats are agitating for their party’s senators to block the measure in defiance of President Trump, but the leader said doing so would prompt a shutdown that would only empower Mr. Trump.`\
+https://nytimes.com/2025/03/13/us/government-shutdown-senate-democrats.html
+
+**Chiefs, QB Gardner Minshew agree to one-year deal: Sources**\
+`Minshew finished the 2024 season with a 2-7 record for the Raiders. Now, he's the latest veteran quarterback to back up Patrick Mahomes. `\
+https://nytimes.com/athletic/6201970/2025/03/13/gardner-minshew-free-agency-signing-2025-chiefs/
+
 **Felice Picano, Champion of Gay Literature, Is Dead at 81**\
 `At a time when, in his words, “nobody was writing about gay life,” he produced groundbreaking novels and memoirs and published books by Harvey Fierstein and others.`\
 https://nytimes.com/2025/03/13/books/felice-picano-dead.html

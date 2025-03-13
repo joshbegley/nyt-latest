@@ -1,3 +1,11 @@
+**Spurs' De'Aaron Fox to undergo season-ending surgery on pinky finger**\
+`Fox, 27, had been playing with a dislocated left pinky finger on his left shooting hand all season long`\
+https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
+
+**Raúl Grijalva, Democrat Who Urged Biden to Drop Out in 2024, Dies of Cancer**\
+`Representative Raúl M. Grijalva, 77, was one of the first Democrats to push the president to end his re-election campaign, citing the potential danger of a second Trump administration.`\
+https://nytimes.com/live/2025/03/13/us/trump-tariff-government-news/raul-grijalva-dead-biden
+
 **State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
 `Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
 https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/larry-buendorf-dead.html
 **NHL rumblings: 84-game schedule being considered for 2026-27, and could league cancel '26 All-Star Game?**\
 `Also, with the possibility of a first-round series between the Avs and Stars, many around the NHL see reason to change the playoff format.`\
 https://nytimes.com/athletic/6201893/2025/03/13/nhl-rumblings-schedule-all-star-playoff-format/
-
-**What to Know About Trump’s Large-Scale Layoff Plans So Far**\
-`Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
-https://nytimes.com/article/trump-firings-layoffs-rif.html
-
-**Ron Nessen, Ford’s White House Press Secretary, Dies at 90**\
-`He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
-https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
 
