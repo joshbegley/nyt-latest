@@ -1,3 +1,7 @@
+**Madrid's Mendy suffers hamstring injury**\
+`The 29-year-old sustained the injury during his side’s Champions League round of 16 victory over Atletico Madrid on Wednesday.`\
+https://nytimes.com/athletic/6200112/2025/03/13/ferland-mendy-injury-update-real-madrid/
+
 **Tornado Reported in Los Angeles as Storm Batters California**\
 `Parts of the city had been urged to evacuate as a powerful system brought rain and snow up and down the state.`\
 https://nytimes.com/2025/03/13/weather/los-angeles-tornado-california-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/books/jennifer-johnston-dead.html
 **USWNT's Girma to miss Subway Cup final with injury, Chelsea coach confirms**\
 `The defender has only featured once for Chelsea since her $1.1m January arrival from the San Diego Wave.`\
 https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-update/
-
-**Scoop City: Eight more takeaways from free agency**\
-`Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
-https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
 
