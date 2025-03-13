@@ -1,3 +1,7 @@
+**Lando Norris downplays 'short-sighted' hype about McLaren's F1 advantage**\
+`A quick race simulation by Norris on the second day of testing caught the attention of rival teams`\
+https://nytimes.com/athletic/6199720/2025/03/13/f1-lando-norris-mclaren-australian-gp/
+
 **Word of the Day: behest**\
 `This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/13/learning/word-of-the-day-behest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197673/2025/03/13/barcelona-hansi-flick-big-screen
 **Ruben Amorim thinks attacking towards the Stretford End in the first half helps Man Utd. What if he's right?**\
 `How the Manchester United head coach has hacked a tactic usually deployed by away sides to try to help improve his team's home form`\
 https://nytimes.com/athletic/6196949/2025/03/13/manchester-united-coin-toss-change-ends-analysis/
-
-**English football is besotted with second balls - but how important are they?**\
-`Analysing one of the basics of football, from Sunday League all the way to the Premier League - even Pep Guardiola agrees `\
-https://nytimes.com/athletic/6193329/2025/03/13/measuring-second-balls-premier-league-analysis/
 
