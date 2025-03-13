@@ -1,3 +1,7 @@
+**Maurice Cheeks watches proudly as Natalie Zito nails national anthem 22 years later**\
+`On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
+https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
+
 **David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
 `Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
 https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/

@@ -1,3 +1,7 @@
+**Maurice Cheeks watches proudly as Natalie Zito nails national anthem 22 years later**\
+`On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
+https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
+
 **David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
 `Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
 https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6195467/2025/03/13/detroit-tigers-sinkers-pitching-
 **The Versace Era at Versace Is Ending**\
 `Dario Vitale will be the brand’s new designer.`\
 https://nytimes.com/2025/03/13/style/donatella-versace-dario-vitale.html
-
-**How bad is Newcastle's trophy drought according to the numbers? (Very, very bad)**\
-`We dig into the numbers and moments behind the barren run, and our Newcastle correspondent George Caulkin offers his thoughts...`\
-https://nytimes.com/athletic/6112947/2025/03/13/newcastles-trophy-drought-according-to-the-numbers/
 
