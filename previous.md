@@ -1,40 +1,40 @@
-**Teslas at the White House Revive Memories of Musk in Beijing**\
-`When President Trump hosted Elon Musk and his electric vehicles this week, it recalled a visit years earlier to the Communist Party’s leadership compound.`\
-https://nytimes.com/2025/03/13/us/politics/trump-tesla-musk-china-beijing.html
+**Sinkers were the subtlety behind Tigers' 'pitching chaos.' Can success continue in 2025?**\
+`The Tigers upped their sinker usage and had terrific batted-ball success during their 31-11 run. Was it luck, or part of a larger trend?`\
+https://nytimes.com/athletic/6195467/2025/03/13/detroit-tigers-sinkers-pitching-success/
 
-**The Athletic FC: Alvarez penalty nightmare explained, scrap for Club World Cup bases**\
-`Today in TAFC: Alvarez's 'two-touch' penalty and Atleti 'curse' explained. Plus: Club World Cup sides battling for the best training bases.`\
-https://nytimes.com/athletic/6199900/2025/03/13/atletico-real-madrid-champions-league-alvarez-penalty/
+**The Versace Era at Versace Is Ending**\
+`Dario Vitale will be the brand’s new designer.`\
+https://nytimes.com/2025/03/13/style/donatella-versace-dario-vitale.html
 
-**Hours after minutes dispute, Mikal Bridges and Tom Thibodeau enjoy a last-second win**\
-`Things started awkwardly between the Knicks starter and coach, and then ended with Bridges hitting the game-winner in overtime vs. Portland.`\
-https://nytimes.com/athletic/6199732/2025/03/13/knicks-mikal-bridges-tom-thibodeau-minutes-portland/
+**How bad is Newcastle's trophy drought according to the numbers? (Very, very bad)**\
+`We dig into the numbers and moments behind the barren run, and our Newcastle correspondent George Caulkin offers his thoughts...`\
+https://nytimes.com/athletic/6112947/2025/03/13/newcastles-trophy-drought-according-to-the-numbers/
 
-**Any more questions? Thunder show defending champion Celtics how good they are**\
-`Even missing their second-best player, the Thunder swarmed Boston behind another MVP-level performance from Shai Gilgeous-Alexander.`\
-https://nytimes.com/athletic/6199713/2025/03/13/thunder-shai-gilgeous-alexander-boston-win/
+**Meet Dave Sims, the new voice of the Yankees who isn't trying to be John Sterling**\
+`After 18 seasons with the Mariners, Sims brings his unique style back to New York, where he's kept a home for nearly 50 years.`\
+https://nytimes.com/athletic/6198272/2025/03/13/dave-sims-yankees-broadcaster/
 
-**Spencer Arrighetti's 4-seamer got knocked around in 2024, so he's looking to add a sinker**\
-`Arrighetti is locating his four-seam fastball differently and is working on adding a two-seamer: 'Now I have three big movers both ways.'`\
-https://nytimes.com/athletic/6198465/2025/03/13/astros-spencer-arrighetti-sinker/
+**Ryan Nugent-Hopkins' scoring woes are only a part of a wider team problem**\
+`It’s been tough sledding offensively for Nugent-Hopkins. But the offensive slump isn’t limited to the forward as it spreads across the team.`\
+https://nytimes.com/athletic/6199070/2025/03/13/oilers-ryan-nugent-hopkins-offence/
 
-**Villa resume Rory Wilson contract extension talks**\
-`Villa had previously proposed a series of five-year contracts for the Scotland youth international, all of which had been dismissed.`\
-https://nytimes.com/athletic/6199991/2025/03/13/rory-wilson-aston-villa-contract/
+**Twins have MLB's best-projected bullpen, with reasons for optimism and skepticism**\
+`Jhoan Duran and Griffin Jax lead a bullpen with high expectations. Here are three reasons for optimism and three reasons for skepticism.`\
+https://nytimes.com/athletic/6193822/2025/03/13/minnesota-twins-bullpen-2025-season/
 
-**Bears newcomer Grady Jarrett bringing energy to Halas Hall: 'I'm just so fired up'**\
-`Bears fans got their first dose of Jarrett, and the passion he'll bring on and off the field, in his opening news conference at Halas Hall.`\
-https://nytimes.com/athletic/6198911/2025/03/13/bears-grady-jarrett-energy/
+**Brad Keller is part of Cubs' push to never stop looking for the next pitching edge**\
+`Keller, a 6-foot-5 right-hander, impressed in the Cactus League with a fastball jump that has the Cubs envisioning him in shorter bursts.`\
+https://nytimes.com/athletic/6198361/2025/03/13/chicago-cubs-pitching-edge-brad-keller/
 
-**Mistakes doom Celtics against Thunder and must be cleaned up before the playoffs**\
-`Oklahoma City physically overwhelmed Boston, which got careless with the ball and on defense in Wednesday's loss. `\
-https://nytimes.com/athletic/6199729/2025/03/13/celtics-thunder-loss-jayson-tatum-joe-mazzulla/
+**Men's college basketball bubble watch: Ohio State in trouble**\
+`A bubble may have popped in the Big Ten, while in the SEC, the push for a ridiculous NCAA-record 14 bids took a positive turn.`\
+https://nytimes.com/athletic/6199526/2025/03/13/mens-college-basketball-bubble-watch-ohio-state-texas/
 
-**Phillies Opening Day roster projection: Who gets the final spots?**\
-`The edges of the roster remain somewhat unsettled. Here's our best guess at how it all looks March 27 in Washington.`\
-https://nytimes.com/athletic/6193904/2025/03/13/phillies-opening-day-2025-roster-projection/
+**The defense and the drive that make Lamont Butler Kentucky's March X-factor**\
+`Butler is Kentucky's most important player, even if the stat sheet does not scream it.`\
+https://nytimes.com/athletic/6195313/2025/03/13/lamont-butler-kentucky-ncaa-tournament/
 
-**Cameron Brink is a face of the WNBA — even if basketball doesn't solely define her**\
-`Basketball is still first, but the 2024 WNBA Draft's No. 2 pick, while recovering from a torn ACL, has remained busy away from the court.`\
-https://nytimes.com/athletic/6176154/2025/03/13/cameron-brink-sparks-wnba-paris-fashion-week/
+**Continuity, versatility important for Ohio State's secondary this spring**\
+`This spring is an important one as the Buckeyes have to replace starters Lathan Ransom, Denzel Burke and Jordan Hancock.`\
+https://nytimes.com/athletic/6195677/2025/03/13/ohio-state-secondary-spring-practice/
 
