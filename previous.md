@@ -1,3 +1,11 @@
+**Manhole Fires Erupt at Texas Tech University**\
+`Students were evacuated and sent on spring break early after a series of explosions and manhole fires at the Texas Tech University campus in Lubbock.`\
+https://nytimes.com/video/us/100000010049963/texas-tech-manhole-explosions.html
+
+**Merz Challenges Germans to Make a Bold Strategic Shift. Will They Do It?**\
+`The likely next chancellor has staked his government on a move to increase military spending. But the window for change is closing fast.`\
+https://nytimes.com/2025/03/13/world/europe/merz-germany-spending.html
+
 **The Windup: Why the AL Central is so tricky to pick**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6200593/2025/03/13/browns-maliek-collins-free-agenc
 **Can Aussie Oscar Piastri claim this weekend's Australian Grand Prix?**\
 `Examining the favorites ahead of F1's opening race of the 2025 season.`\
 https://nytimes.com/athletic/6200470/2025/03/13/australian-grand-prix-odds-lando-norris-favored-over-aussie-teammate-oscar-piastri/
-
-**Alvarez penalty decision could spark law change; UEFA to discuss with FIFA, IFAB**\
-`Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
-https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
-
-**F1 championship odds project a tight season with no clear favorite**\
-`Lando Norris and McLaren start the 2025 F1 season as the betting favorites to win titles, but neither are clear favorites.`\
-https://nytimes.com/athletic/6195375/2025/03/13/2025-f1-championship-odds-mclaren-ferrari-red-bull-verstappen-norris/
 

@@ -1,3 +1,11 @@
+**Manhole Fires Erupt at Texas Tech University**\
+`Students were evacuated and sent on spring break early after a series of explosions and manhole fires at the Texas Tech University campus in Lubbock.`\
+https://nytimes.com/video/us/100000010049963/texas-tech-manhole-explosions.html
+
+**Merz Challenges Germans to Make a Bold Strategic Shift. Will They Do It?**\
+`The likely next chancellor has staked his government on a move to increase military spending. But the window for change is closing fast.`\
+https://nytimes.com/2025/03/13/world/europe/merz-germany-spending.html
+
 **The Windup: Why the AL Central is so tricky to pick**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
