@@ -1,3 +1,15 @@
+**Capsized in Sydney and on zero points. Why the US SailGP team is struggling to deliver**\
+`The all-American SailGP team are struggling so far this season, but there are also reasons to be optimistic about the future`\
+https://nytimes.com/athletic/6194031/2025/03/13/sailgp-season-5-team-usa-los-angeles/
+
+**The New York Times in Print for Thursday, March 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/13/todays-new-york-times
+
+**What the World Will Lose When This Papacy Ends**\
+`The pope has emerged as an increasingly lonely moral voice against perilous global trends like nationalism and populism.`\
+https://nytimes.com/2025/03/13/opinion/pope-francis-hospital-trump.html
+
 **Mings, McGinn and Watkins symbolise Villa's rise to the Champions League quarter-final**\
 `Aston Villa advanced to the Champions League quarter-finals by beating Club Brugge on Wednesday night`\
 https://nytimes.com/athletic/6197750/2025/03/13/aston-villa-champions-league-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/13/world/asia/china-covid-trauma.html
 **Plans for a Chinese Port Roil the Politics of a Former Soviet Nation**\
 `Georgia’s government sparked an uproar by announcing that a port project on the Black Sea will be awarded to a company from China after canceling a contract with a consortium that included Western firms.`\
 https://nytimes.com/2025/03/13/world/europe/china-georgia-port.html
-
-**Connections: Sports Edition Coach: Hints for March 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6199413/2025/03/13/connections-sports-edition-hints-for-march-13-2025/
-
-**China Cools on Musk: ‘Two Cars for the Price of One Tesla’**\
-`Elon Musk, the company’s chief executive, is fast losing out to Chinese electric carmakers in Tesla’s second-most-important market.`\
-https://nytimes.com/2025/03/13/business/tesla-china-sales-elon-musk.html
-
-**Quote of the Day: Chinese Navy Sails Around Australia, Setting Off a Sense of Alarm**\
-`Quotation of the Day for Thursday, March 13, 2025`\
-https://nytimes.com/2025/03/12/pageoneplus/quote-of-the-day-chinese-navy-sails-around-australia-setting-off-a-sense-of-alarm.html
 
