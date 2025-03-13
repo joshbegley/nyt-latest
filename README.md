@@ -1,3 +1,7 @@
+**What to Know About Trump’s Large-Scale Layoffs Plans So Far**\
+`Federal agencies were given a Thursday deadline to submit their plans for reductions in force, but many have not publicly released details.`\
+https://nytimes.com/article/trump-firings-layoffs-rif.html
+
 **Ron Nessen, Ford’s White House Press Secretary, Dies at 90**\
 `He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
 https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-tor
 **Judge Orders Musk and His Team to Turn Over Records and Answer Questions**\
 `Mr. Musk’s Department of Government Efficiency has largely been shrouded in secrecy, but court cases are one way opponents of President Trump’s overhaul efforts have sought clarity.`\
 https://nytimes.com/2025/03/13/us/politics/elon-musk-doge-records-questioning.html
-
-**In No Hurry for Cease-Fire, Putin Demands Numerous Ukrainian Concessions**\
-`The remarks by the Russian leader suggested he wanted to draw out negotiations or make a truce impossible. Ukraine’s leader called the response to a cease-fire plan “manipulative.”`\
-https://nytimes.com/2025/03/13/world/europe/putin-ceasefire-ukraine-trump.html
 
