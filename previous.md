@@ -1,6 +1,18 @@
+**Mets' Jeff McNeil to start season on injured list with oblique strain**\
+`McNeil is expected to miss at least three to four weeks. Nearly 20 percent of New York's expected Opening Day roster is injured.`\
+https://nytimes.com/athletic/6200612/2025/03/13/jeff-mcneil-injury-mets-opening-day/
+
+**Browns agree to sign DT Maliek Collins to 2-year deal**\
+`Collins is the No. 87 player on The Athletic's list of the top 150 free agents. `\
+https://nytimes.com/athletic/6200593/2025/03/13/browns-maliek-collins-free-agency/
+
 **Can Aussie Oscar Piastri claim this weekend's Australian Grand Prix?**\
 `Examining the favorites ahead of F1's opening race of the 2025 season.`\
 https://nytimes.com/athletic/6200470/2025/03/13/australian-grand-prix-odds-lando-norris-favored-over-aussie-teammate-oscar-piastri/
+
+**Alvarez penalty decision could spark law change; UEFA to discuss with FIFA, IFAB**\
+`Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
+https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
 
 **F1 championship odds project a tight season with no clear favorite**\
 `Lando Norris and McLaren start the 2025 F1 season as the betting favorites to win titles, but neither are clear favorites.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-
 **Russia Claims to Have Regained Control of Key Kursk Town**\
 `Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
 https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
-
-**48 countries and 179 cities: Exploring the geography of Lionel Messi's career**\
-`Soccer's greatest star is poised to play in the Caribbean for the first time - adding a new region to a geographically-diverse career`\
-https://nytimes.com/athletic/6199841/2025/03/13/lionel-messi-geography-career-goals/
-
-**Mbappe back in France squad for first time since September**\
-`The 26-year-old missed the October call-up due to a thigh injury and was also left out of the squad for November's Nations League games.`\
-https://nytimes.com/athletic/6200373/2025/03/13/kylian-mbappe-france-squad-nations-league/
-
-**Xavier Worthy's accuser granted protective order as investigation continues**\
-`Any claims of the investigation being closed are “patently false," the woman's attorney told The Athletic on Thursday.`\
-https://nytimes.com/athletic/6200194/2025/03/13/xavier-worthys-accuser-protective-order/
 
