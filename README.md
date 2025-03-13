@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6200593/2025/03/13/browns-maliek-collins-free-agenc
 `Examining the favorites ahead of F1's opening race of the 2025 season.`\
 https://nytimes.com/athletic/6200470/2025/03/13/australian-grand-prix-odds-lando-norris-favored-over-aussie-teammate-oscar-piastri/
 
+**Alvarez penalty decision could spark law change; UEFA to discuss with FIFA, IFAB**\
+`Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
+https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
+
 **F1 championship odds project a tight season with no clear favorite**\
 `Lando Norris and McLaren start the 2025 F1 season as the betting favorites to win titles, but neither are clear favorites.`\
 https://nytimes.com/athletic/6195375/2025/03/13/2025-f1-championship-odds-mclaren-ferrari-red-bull-verstappen-norris/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/brad-schimel-trump-wisconsin-supreme-
 **Russia Claims to Have Regained Control of Key Kursk Town**\
 `Ukrainian officials have not confirmed a retreat from the town in Russia’s Kursk region, parts of which were captured by Kyiv’s forces last summer.`\
 https://nytimes.com/2025/03/13/world/europe/russia-sudzha-recapture-kursk-ukraine.html
-
-**48 countries and 179 cities: Exploring the geography of Lionel Messi's career**\
-`Soccer's greatest star is poised to play in the Caribbean for the first time - adding a new region to a geographically-diverse career`\
-https://nytimes.com/athletic/6199841/2025/03/13/lionel-messi-geography-career-goals/
 
