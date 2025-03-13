@@ -1,3 +1,11 @@
+**Spencer Arrighetti's 4-seamer got knocked around in 2024, so he's looking to add a sinker**\
+`Arrighetti is locating his four-seam fastball differently and is working on adding a two-seamer: 'Now I have three big movers both ways.'`\
+https://nytimes.com/athletic/6198465/2025/03/13/astros-spencer-arrighetti-sinker/
+
+**Villa resume Rory Wilson contract extension talks**\
+`Villa had previously proposed a series of five-year contracts for the Scotland youth international, all of which had been dismissed.`\
+https://nytimes.com/athletic/6199991/2025/03/13/rory-wilson-aston-villa-contract/
+
 **Bears newcomer Grady Jarrett bringing energy to Halas Hall: 'I'm just so fired up'**\
 `Bears fans got their first dose of Jarrett, and the passion he'll bring on and off the field, in his opening news conference at Halas Hall.`\
 https://nytimes.com/athletic/6198911/2025/03/13/bears-grady-jarrett-energy/

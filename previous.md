@@ -1,3 +1,11 @@
+**Spencer Arrighetti's 4-seamer got knocked around in 2024, so he's looking to add a sinker**\
+`Arrighetti is locating his four-seam fastball differently and is working on adding a two-seamer: 'Now I have three big movers both ways.'`\
+https://nytimes.com/athletic/6198465/2025/03/13/astros-spencer-arrighetti-sinker/
+
+**Villa resume Rory Wilson contract extension talks**\
+`Villa had previously proposed a series of five-year contracts for the Scotland youth international, all of which had been dismissed.`\
+https://nytimes.com/athletic/6199991/2025/03/13/rory-wilson-aston-villa-contract/
+
 **Bears newcomer Grady Jarrett bringing energy to Halas Hall: 'I'm just so fired up'**\
 `Bears fans got their first dose of Jarrett, and the passion he'll bring on and off the field, in his opening news conference at Halas Hall.`\
 https://nytimes.com/athletic/6198911/2025/03/13/bears-grady-jarrett-energy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198985/2025/03/13/nhl-goalie-power-rankings-2025/
 **Building an ace: How college pitching labs are cranking out MLB-ready flamethrowers**\
 `High-tech pitching labs rose from humble beginnings to take center stage in the pitching development revolution in college and in the pros.`\
 https://nytimes.com/athletic/6197518/2025/03/13/mlb-college-baseball-pitching-labs-lsu-vanderbilt/
-
-**Mark Vientos aced handling failure. Can he handle success just as well?**\
-`Vientos remains awed by the amount of appreciation he’s heard from Mets fans dating back to last summer.`\
-https://nytimes.com/athletic/6199097/2025/03/13/mets-mark-vientos-goals/
-
-**The top 20 head coaches in college football's Group of 5**\
-`This isn’t a list of coaches most likely to take other jobs. It’s a ranking of what they’ve accomplished in their given situations.`\
-https://nytimes.com/athletic/6198850/2025/03/13/group-of-5-football-head-coach-rankings/
 
