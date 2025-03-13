@@ -1,3 +1,19 @@
+**A Composer Both Fully Modern and Sincerely Spiritual**\
+`Sofia Gubaidulina’s work, with its thorniness and religious themes, put her at odds with the Soviet government.`\
+https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-composer-appraisal.html
+
+**Sports commentator John Feinstein dies at 68**\
+`Feinstein wrote more than 40 books on a variety of sports including "A Season on the Brink" about Indiana basketball.`\
+https://nytimes.com/athletic/6201375/2025/03/13/sports-commentator-john-feinstein-dies-68/
+
+**CrossFit Is for Sale Again Amid Years of Shake-Ups**\
+`The search for new owners comes after a tumultuous five years for the fitness company, including an athlete death and financial concerns.`\
+https://nytimes.com/2025/03/13/business/dealbook/crossfit-for-sale.html
+
+**Voters’ Voices on Trump’s First 100 Days**\
+`A series of check-ins with a variety of voters who made their choices in November’s election with some hesitation. We are documenting their impressions of the first 100 days of President Trump’s second term.`\
+https://nytimes.com/series/voters-voices-trump-administration
+
 **What’s Going On in This Picture? | March 17, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/13/learning/whats-going-on-in-this-picture-march-17-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/13/arts/dance/review-twyla-tharp-diabelli-slacktide.
 **How to watch Cavalier vs. Inter Miami: Messi's side seeks Concacaf quarterfinals**\
 `Lionel Messi, Javier Mascherano and MLS' Inter Miami continue their run in the Concacaf Champions Cup. It's Messi's Jamaica debut.`\
 https://nytimes.com/athletic/6201140/2025/03/13/inter-miami-cavalier-messi-how-to-watch/
-
-**Pistons' Jaden Ivey addresses media for first time since fibula injury**\
-`Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
-https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
-
-**In acquiring Phil Maton, Cardinals add coveted bullpen depth**\
-`The Cardinals believe Maton can provide stability and help mentor the multitude of young arms in St. Louis this season.`\
-https://nytimes.com/athletic/6200848/2025/03/13/cardinals-sign-phil-maton/
-
-**D.C. Families, Facing Lost Jobs and a Gutted City Budget, Beseech Republican Lawmakers**\
-`With signs made from crayons and colored markers, children rallied on Capitol Hill with their parents on Thursday, protesting layoffs and spending limits.`\
-https://nytimes.com/2025/03/13/us/politics/dc-families-protest-republican-lawmakers.html
-
-**Commanders free-agency tracker: Noah Brown returns, Jonathan Jones signs 1-year deal**\
-`Analyzing all of Washington's moves as the 2025 league year begins. `\
-https://nytimes.com/athletic/6188862/2025/03/13/commanders-free-agency-tracker-signings-trades/
 

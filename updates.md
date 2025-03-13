@@ -1,3 +1,19 @@
+**A Composer Both Fully Modern and Sincerely Spiritual**\
+`Sofia Gubaidulina’s work, with its thorniness and religious themes, put her at odds with the Soviet government.`\
+https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-composer-appraisal.html
+
+**Sports commentator John Feinstein dies at 68**\
+`Feinstein wrote more than 40 books on a variety of sports including "A Season on the Brink" about Indiana basketball.`\
+https://nytimes.com/athletic/6201375/2025/03/13/sports-commentator-john-feinstein-dies-68/
+
+**CrossFit Is for Sale Again Amid Years of Shake-Ups**\
+`The search for new owners comes after a tumultuous five years for the fitness company, including an athlete death and financial concerns.`\
+https://nytimes.com/2025/03/13/business/dealbook/crossfit-for-sale.html
+
+**Voters’ Voices on Trump’s First 100 Days**\
+`A series of check-ins with a variety of voters who made their choices in November’s election with some hesitation. We are documenting their impressions of the first 100 days of President Trump’s second term.`\
+https://nytimes.com/series/voters-voices-trump-administration
+
 **‘We Hear You, Mr. President’: The World Lines Up to Buy American Gas**\
 `Facing Trump tariff threats, governments and companies are proposing major investments in American liquefied natural gas projects.`\
 https://nytimes.com/2025/03/13/climate/trump-tariff-natural-gas-investment.html
