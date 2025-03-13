@@ -1,3 +1,11 @@
+**Trump Administration Cuts Ties With Migrant Shelter Provider After Dropping Child Abuse Lawsuit**\
+`The Justice Department dropped a Biden-era lawsuit against Southwest Key, the largest provider of housing for unaccompanied minors, after the Health and Human Services Department said it stopped sending children to those shelters.`\
+https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migrant-shelters.html
+
+**Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
+`The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
+https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-dies-54-nba-suns-arkansas/
+
 **Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
 `The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
 https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-former-nba-big-man-and-arkansas-star-dies-at-54/
