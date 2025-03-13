@@ -1,3 +1,7 @@
+**Elon Musk’s Starlink Pushes Its Way Into India**\
+`By signing deals with India’s two biggest telecom players, the tech tycoon and Trump adviser has improved his odds of breaking into an enormous market.`\
+https://nytimes.com/2025/03/13/business/starlink-india-musk.html
+
 **Maker of Pokémon Go Agrees to Sell Unit to Saudi Fund**\
 `Scopely said it would buy Niantic’s video game business, which includes Pokémon Go, for $3.5 billion. Saudi Arabia’s sovereign wealth fund acquired Scopely in 2023.`\
 https://nytimes.com/2025/03/13/world/middleeast/pokemon-go-niantic-scopely-sale.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/13/learning/untangle.html
 **New York City’s Population Ticks Up to More Than 8.4 Million**\
 `Fewer people leaving the city and more foreign newcomers have helped erase pandemic losses, new census data shows.`\
 https://nytimes.com/2025/03/13/nyregion/nyc-population-2024.html
-
-**He Was Once the ‘Subway Ninja.’ He Would Like to Explain.**\
-`In the lowest moment of Selwyn Bernardez’s life, he attacked a stranger with a sword. It was another transit horror story, but with a different ending.`\
-https://nytimes.com/2025/03/13/nyregion/nyc-subway-ninja-sword-interview.html
 
