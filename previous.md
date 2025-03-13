@@ -1,3 +1,19 @@
+**Can Aussie Oscar Piastri claim this weekend's Australian Grand Prix?**\
+`Examining the favorites ahead of F1's opening race of the 2025 season.`\
+https://nytimes.com/athletic/6200470/2025/03/13/australian-grand-prix-odds-lando-norris-favored-over-aussie-teammate-oscar-piastri/
+
+**F1 championship odds project a tight season with no clear favorite**\
+`Lando Norris and McLaren start the 2025 F1 season as the betting favorites to win titles, but neither are clear favorites.`\
+https://nytimes.com/athletic/6195375/2025/03/13/2025-f1-championship-odds-mclaren-ferrari-red-bull-verstappen-norris/
+
+**James Reason, Who Used Swiss Cheese to Explain Human Error, Dies at 86**\
+`Mistakes happen, he theorized, because multiple vulnerabilities in a system align — like the holes in cheese — to create a recipe for disaster.`\
+https://nytimes.com/2025/03/13/science/james-reason-dead.html
+
+**From 'overregulating to the Wild West': Youth soccer players bypassing college for NWSL**\
+`With more teenagers going pro, college soccer is left to soul search - and consider the risks`\
+https://nytimes.com/athletic/6199487/2025/03/13/nwsl-college-soccer-youth-movement/
+
 **The Bounce: Shai Gilgeous-Alexander, Thunder may need more close-game reps before NBA playoffs**\
 `The Thunder had an impressive win over the defending champion Celtics, but they may need more late-game reps for an NBA Finals run`\
 https://nytimes.com/athletic/6200268/2025/03/13/thunder-shai-gilgeous-alexander-jayson-tatum-celtics-nba-the-bounce/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6200373/2025/03/13/kylian-mbappe-france-squad-natio
 **Xavier Worthy's accuser granted protective order as investigation continues**\
 `Any claims of the investigation being closed are “patently false," the woman's attorney told The Athletic on Thursday.`\
 https://nytimes.com/athletic/6200194/2025/03/13/xavier-worthys-accuser-protective-order/
-
-**Teenagers Say Girls Are Equal to Boys in School, or Are Ahead**\
-`Reflecting a generational change, two Pew surveys show boys tend to feel discouraged in the classroom, and are less likely than girls to pursue college.`\
-https://nytimes.com/2025/03/13/upshot/teenagers-school-girls-boys.html
-
-**Nottingham Forest Q&A: Key challenges for Ipswich, England squad contenders, what did Nuno say?**\
-`Paul Taylor answers your questions ahead of Nottingham Forest's match with Ipswich Town.`\
-https://nytimes.com/athletic/6200162/2025/03/13/nottingham-forest-england-players-ipswich-team-news/
-
-**In Portugal, a Farmhouse Hotel That’s a Short Walk From the Beach**\
-`Plus: the revival of opera pumps, a new gallery in Texas and more recommendations from T Magazine.`\
-https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html
-
-**It's been a typical free agency for Ravens. Yet, their toughest decisions remain**\
-`GM Eric DeCosta and company have assumed their place on the sideline in the high-stakes bidding for the top outside free agents. `\
-https://nytimes.com/athletic/6199674/2025/03/13/ravens-free-agency-decisions/
 
