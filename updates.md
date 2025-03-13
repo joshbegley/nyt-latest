@@ -1,3 +1,15 @@
+**Trump Sees ‘Good Signals’ on Russia-Ukraine Cease-Fire. Zelensky Does Not.**\
+`U.S. officials were in Moscow for talks, and the Russian leader said he was open to a cease-fire, but President Volodymyr Zelensky of Ukraine expressed skepticism.`\
+https://nytimes.com/2025/03/13/us/politics/trump-rutte-russia-ukraine-ceasefire.html
+
+**Putin, in No Hurry for Cease-Fire, Seeks Ukrainian Concessions**\
+`President Vladimir V. Putin of Russia laid out a series of conditions that Ukraine might reject, but displayed a willingness to continue talks with President Trump.`\
+https://nytimes.com/2025/03/13/world/europe/putin-russia-ukraine-ceasefire.html
+
+**Trump Expands Trade Threats in Global Game of Chicken**\
+`Trade wars with allies could spiral as the president tries to get trading partners to back down from retaliation with new threats of his own.`\
+https://nytimes.com/2025/03/13/us/politics/trump-trade-war-europe-canada.html
+
 **Name the Australian Who Has Won His Home Race. Give Up?**\
 `None have ever won F1’s Australian Grand Prix. The Aussies Oscar Piastri of McLaren and Jack Doohan of Alpine hope to change that.`\
 https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix.html
