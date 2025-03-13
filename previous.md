@@ -1,3 +1,8 @@
+**Premier League outright markets: Best bets to make with 10 games to go**\
+`Sam Tighe has a look at the final 10 games of this season’s Premier League campaign and the betting permutations to note across the table.
+`\
+https://nytimes.com/athletic/6197559/2025/03/13/premier-league-best-outright-bets-final-10-games/
+
 **John Mulaney Says His New Show Is Netflix’s Mistake**\
 `The comedian said Netflix “picked up this show by accident. They thought that it was a true-crime documentary because I look like a disappeared boy.”`\
 https://nytimes.com/2025/03/13/arts/television/john-mulaney-late-night-everybodys-live.html
@@ -33,8 +38,4 @@ https://nytimes.com/2025/03/13/nyregion/nyc-subway-ninja-sword-interview.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/03/13/crosswords/spelling-bee-forum.html
-
-**Lando Norris downplays 'short-sighted' hype about McLaren's F1 advantage**\
-`A quick race simulation by Norris on the second day of testing caught the attention of rival teams`\
-https://nytimes.com/athletic/6199720/2025/03/13/f1-lando-norris-mclaren-australian-gp/
 
