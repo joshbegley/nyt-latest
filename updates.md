@@ -1,3 +1,15 @@
+**The South and Midwest Face Days of Severe Weather and Tornado Threats**\
+`A system over the northern part of the U.S. is expected to fuel damaging winds, hail and tornadoes farther south.`\
+https://nytimes.com/2025/03/13/weather/storms-tornado-forecast-snow-us.html
+
+**Khalil Sues Columbia and Lawmakers to Keep Activists’ Names Secret**\
+`Mahmoud Khalil is among pro-Palestinian demonstrators targeted by the government, which has demanded records from the university. He joined seven unnamed students in the case.`\
+https://nytimes.com/2025/03/13/nyregion/mahmoud-khalil-sues-columbia.html
+
+**Cooper Flagg exits Duke's ACC tournament opener with ankle injury**\
+`Flagg jumped to grab a rebound when he appeared to land on a teammate’s foot and crumpled to the ground.`\
+https://nytimes.com/athletic/6201070/2025/03/13/duke-cooper-flagg-injury-basketball-acc-tournament/
+
 **Which teams saw their Super Bowl odds move after flurry of free-agency moves**\
 `It's time to check in on winners and losers in Super Bowl outlook after some big roster shifts.`\
 https://nytimes.com/athletic/6200828/2025/03/13/super-bowl-odds-early-free-agency-new-season/
