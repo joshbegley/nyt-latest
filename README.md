@@ -1,3 +1,11 @@
+**NFL Draft 2025 order from Rounds 1-7: All 257 picks and 32 teams**\
+`The NFL has released its complete 2025 draft order. Where is each team scheduled to pick at this year's event?`\
+https://nytimes.com/athletic/6198648/2025/03/13/nfl-draft-order-2025-round-by-round/
+
+**Jennifer Johnston, 95, Novelist Who Probed Ireland’s Fault Lines, Dies**\
+`She explored tensions among the social classes and within families in fiction that prompted Roddy Doyle to call her “Ireland’s greatest writer.”`\
+https://nytimes.com/2025/03/13/books/jennifer-johnston-dead.html
+
 **USWNT's Girma to miss Subway Cup final with injury, Chelsea coach confirms**\
 `The defender has only featured once for Chelsea since her $1.1m January arrival from the San Diego Wave.`\
 https://nytimes.com/athletic/6200920/2025/03/13/naomi-girma-chelsea-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/world/europe/keir-starmer-nhs-england.html
 **Manhole Fires Erupt at Texas Tech University**\
 `Students were evacuated and sent on spring break early after a series of explosions and manhole fires at the Texas Tech University campus in Lubbock.`\
 https://nytimes.com/video/us/100000010049963/texas-tech-manhole-explosions.html
-
-**Merz Challenges Germans to Make a Bold Strategic Shift. Will They Do It?**\
-`The likely next chancellor has staked his government on a move to increase military spending. But the window for change is closing fast.`\
-https://nytimes.com/2025/03/13/world/europe/merz-germany-spending.html
-
-**The Windup: Why the AL Central is so tricky to pick**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6199652/2025/03/13/al-central-2025-prediction-preview-the-windup/
 
