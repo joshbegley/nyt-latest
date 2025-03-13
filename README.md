@@ -1,3 +1,7 @@
+**NBA Awards Watch: Have we seen a Rookie of the Year race like this before? Sort of**\
+`In 2017, a Sixer didn't play enough to contend for the honor. We're seeing a repeat of that unfold in 2025.`\
+https://nytimes.com/athletic/6192034/2025/03/13/nba-awards-rookie-of-the-year-odds/
+
 **Watch: ‘Instruments of a Beating Heart’**\
 `What can we learn from a Japanese elementary school’s effort to balance discipline and freedom?`\
 https://nytimes.com/2025/03/13/learning/watch-instruments-of-a-beating-heart.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6197937/2025/03/13/bnp-paribas-open-indian-wells-te
 `The government held a rare auction this week to make up for a rice shortage that an official called “truly unthinkable.”`\
 https://nytimes.com/2025/03/13/world/asia/japan-rice-prices-auction.html
 
-**Brighton owner buys stake in A League side Melbourne Victory**\
+**Brighton owner buys stake in A-League side Melbourne Victory**\
 `Bloom, who is in ongoing talks with Hearts, widens his football portfolio to four clubs with the purchase of the Melbourne Victory stake.`\
 https://nytimes.com/athletic/6199887/2025/03/13/brighton-bloom-melbourne-victory/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/13/business/corporate-america-dei-policy
 **Hard Work, a Dream, and a Bay Area Apartment for Less Than $600,000**\
 `Chris Ramos spent years cycling through room rentals and living in his van, all so he could one day afford a home of his own. Would it be in San Francisco, or across the Bay?`\
 https://nytimes.com/interactive/2025/03/13/realestate/san-francisco-oakland-bay-area-homes-sale.html
-
-**An ‘Untradable’ Market: Trump Sows Profound Uncertainty for Stocks**\
-`The administration’s whipsawing moves are leaving investors guessing. The risk is that this uncertainty comes at a real cost to the economy.`\
-https://nytimes.com/2025/03/13/business/trump-stock-market.html
 
