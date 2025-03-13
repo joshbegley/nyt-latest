@@ -1,3 +1,11 @@
+**Why the Philippines’ Ex-President Duterte Was Arrested Now**\
+`Rodrigo Duterte carried out a war on drugs in the Philippines that rights groups say killed 30,000 people.`\
+https://nytimes.com/video/world/asia/100000010045770/duterte-arrest.html
+
+**Northwestern coach Chris Collins calls out Big Ten for hotel issue**\
+`The Wildcats beat Minnesota in a Big Ten tournament first-round game on Wednesday and will face Wisconsin on Thursday.`\
+https://nytimes.com/athletic/6199061/2025/03/12/northwestern-basketball-chris-collins-big-ten/
+
 **Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
 `The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
 https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/12/dining/selma-miriam-dead.html
 **Putin, Dressed in Fatigues, Visits Kursk to Cheer Efforts to Oust Ukraine’s Troops**\
 `The trip comes as President Trump looks to secure the Russian leader’s support for a 30-day cease-fire.`\
 https://nytimes.com/2025/03/12/world/europe/putin-kursk-ukraine.html
-
-**Woman Imprisoned and Starved Stepson for 20 Years, Police Say**\
-`Emergency workers responding to a fire in Waterbury, Conn., found the man, 32, who weighed only 68 pounds and had been held captive in a tiny room.`\
-https://nytimes.com/2025/03/12/nyregion/waterbury-woman-stepson-captive-20-years-connecticut.html
-
-**The New Yorker Embraces (Some) Modern Language**\
-`An update to the magazine’s style guide did away with anachronisms like “Web site” and “in-box.” But it was limited to what the staff felt were “lasting” changes.`\
-https://nytimes.com/2025/03/12/style/new-yorker-style-guide.html
 

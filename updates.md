@@ -1,3 +1,11 @@
+**Why the Philippines’ Ex-President Duterte Was Arrested Now**\
+`Rodrigo Duterte carried out a war on drugs in the Philippines that rights groups say killed 30,000 people.`\
+https://nytimes.com/video/world/asia/100000010045770/duterte-arrest.html
+
+**Northwestern coach Chris Collins calls out Big Ten for hotel issue**\
+`The Wildcats beat Minnesota in a Big Ten tournament first-round game on Wednesday and will face Wisconsin on Thursday.`\
+https://nytimes.com/athletic/6199061/2025/03/12/northwestern-basketball-chris-collins-big-ten/
+
 **Champions League Briefing: Breaking down a bizarre shootout as Real Madrid go through**\
 `The key talking points from Wednesday's Champions Legaue matches, in which the holders made it through - just`\
 https://nytimes.com/athletic/6198331/2025/03/12/champions-league-briefing-real-madrid-atletico/
