@@ -1,3 +1,15 @@
+**OKC handles Boston as Celtics take team-record 63 3-pointers**\
+`Defense and versatility help Thunder win battle of top NBA title contenders.`\
+https://nytimes.com/athletic/6198918/2025/03/12/thunder-celtics-team-record-3-pointers/
+
+**Former Texas Megachurch Pastor Is Indicted on Child Sex Abuse Charges**\
+`Robert Morris, the former senior pastor of the Dallas-based Gateway Church, abused a girl over several years in the 1980s, the Oklahoma Attorney General’s Office said.`\
+https://nytimes.com/2025/03/12/us/robert-morris-gateway-child-sex-charges.html
+
+**Chargers reunite with WR Mike Williams on a 1-year deal**\
+`The Chargers bought low after a down year, and they could get excellent value if Williams and Herbert are able to rekindle their magic.`\
+https://nytimes.com/athletic/6199352/2025/03/12/mike-williams-chargers-free-agent-signing/
+
 **EA Sports College Football 26 cover leak highlights more players, coaches**\
 `Players visible on the cover leak include Ohio State's Jeremiah Smith, Alabama's Ryan William and Michigan's Bryce Underwood.`\
 https://nytimes.com/athletic/6199371/2025/03/12/cfb26-cover-leaked-ea-sports/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/12/technology/meta-book-sales-blocked.html
 **Corrections: March 13, 2025**\
 `Corrections that appeared in print on Thursday, March 13, 2025.`\
 https://nytimes.com/2025/03/12/pageoneplus/corrections-march-13-2025.html
-
-**3 Takeaways From Irish Leader’s Visit With Trump at White House**\
-`In a meeting with Ireland’s prime minister, President Trump gave no hint of backing down from actions that have caused fissures in the trans-Atlantic alliance.`\
-https://nytimes.com/2025/03/12/us/politics/takeaways-ireland-martin-trump-tariffs.html
-
-**Trump Administration Cuts Ties With Migrant Shelter Provider After Dropping Child Abuse Lawsuit**\
-`The Justice Department dropped a Biden-era lawsuit against Southwest Key, the largest provider of housing for unaccompanied minors, after the Health and Human Services Department said it stopped sending children to those shelters.`\
-https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migrant-shelters.html
-
-**Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
-`The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
-https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-dies-54-nba-suns-arkansas/
 
