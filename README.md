@@ -1,6 +1,10 @@
+**Felice Picano, Champion of Gay Literature, Is Dead at 81**\
+`At a time when, in his words, “nobody was writing about gay life,” he produced groundbreaking novels and memoirs and published books by Harvey Fierstein and others.`\
+https://nytimes.com/2025/03/13/books/felice-picano-dead.html
+
 **Trump Wants to Speed Up Deportations With Alien Enemies Act: What to Know**\
 `The Alien Enemies Act of 1798 gives the president wartime powers to deport undocumented immigrants with little to no due process.`\
-https://nytimes.com/2025/03/13/us/politics/trump-wants-to-speed-up-deportations-with-alien-enemies-act-what-to-know.html
+https://nytimes.com/2025/03/13/us/politics/alien-enemies-act-trump.html
 
 **Larry Buendorf, U.S. Agent Who Saved President Ford, Dies at 87**\
 `By grabbing a loaded handgun from Squeaky Fromme in 1975, Mr. Buendorf, as part of a Secret Service detail, thwarted a would-be assassin in California’s capital.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6194352/2025/03/13/tottenham-3-az-1-odobert-maddiso
 **N.Y.C. Man (Not George Costanza) Sentenced for ‘Vandelay’ Con**\
 `Thomas John Sfraga appropriated the name from a scheming “Seinfeld” character as he bilked friends and neighbors. He was sentenced to more than two years in prison on Thursday.`\
 https://nytimes.com/2025/03/13/nyregion/vandelay-industries-fraud-sentencing-brooklyn.html
-
-**Browns could take a chance on Russell Wilson, but it wouldn't solve their QB problem**\
-`It feels like Cleveland is down to either Wilson or Kirk Cousins in its chase for an opening-day starter and at least a temporary No. 1 QB.`\
-https://nytimes.com/athletic/6201617/2025/03/13/russell-wilson-browns-visit-free-agency/
 
