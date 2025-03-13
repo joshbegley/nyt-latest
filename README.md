@@ -1,3 +1,19 @@
+**Federal Workers Union Sues Trump Administration to Preserve T.S.A. Contract**\
+`The largest federal employees union is suing the Homeland Security Department to stop the Trump administration from canceling its contract with T.S.A. workers.`\
+https://nytimes.com/2025/03/13/us/politics/federal-workers-union-lawsuit-tsa.html
+
+**‘We Hear You, Mr. President:’ The World Lines Up to Buy American Gas**\
+`Facing Trump tariff threats, governments and companies are proposing major investments in American liquefied natural gas projects.`\
+https://nytimes.com/2025/03/13/climate/trump-tariff-natural-gas-investment.html
+
+**Review: A Tharp Master Class on Themes, Variations and Allusions**\
+`A program celebrating Twyla Tharp’s 60th year making dances features the masterwork “Diabelli” and the fresh new “Slacktide,” set to Philip Glass.`\
+https://nytimes.com/2025/03/13/arts/dance/review-twyla-tharp-diabelli-slacktide.html
+
+**How to watch Cavalier vs. Inter Miami: Messi's side seeks Concacaf quarterfinals**\
+`Lionel Messi, Javier Mascherano and MLS' Inter Miami continue their run in the Concacaf Champions Cup. It's Messi's Jamaica debut.`\
+https://nytimes.com/athletic/6201140/2025/03/13/inter-miami-cavalier-messi-how-to-watch/
+
 **Pistons' Jaden Ivey addresses media for first time since fibula injury**\
 `Ivey was averaging 17.6 points on 46 percent from the field and 40.9 percent from 3 before his injury. `\
 https://nytimes.com/athletic/6201212/2025/03/13/jaden-ivey-addresses-media-fibula-injury-pistons/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/trump-tower-protests-mahmoud-khalil.h
 **Listen: How exciting is the new-look Broncos defense?**\
 `"The Athletic Football Show" discusses the Denver Broncos' acquisitions of Talanoa Hufanga and Dre Greenlaw.`\
 https://nytimes.com/athletic/6197040/2025/03/13/athletic-football-show-denver-broncos-defense/
-
-**Sofia Gubaidulina, Composer Who Provoked Soviet Censors, Dies at 93**\
-`Blacklisted at home but finding acclaim abroad, she sought to bridge East and West, the sacred and the secular, in vivid, colorful compositions.`\
-https://nytimes.com/2025/03/13/arts/music/sofia-gubaidulina-dead.html
-
-**Barcelona confirm Martinez's one-year contract extension**\
-`The €25m sale of Vitor Roque to Palmeiras was key to enabling Martinez's salary for next season to be registered.`\
-https://nytimes.com/athletic/6201235/2025/03/13/inigo-martinez-barcelona-contract/
-
-**Mercedes’s Most Affordable Sedan Will Be Electric**\
-`The German luxury carmaker said its latest compact sedan solved problems that had kept people from buying electric vehicles.`\
-https://nytimes.com/2025/03/13/business/mercedes-cla-electric-vehicle.html
-
-**Heat Today: Miami has bottomed out with season-long five-game skid**\
-`"I think, in these last couple games, our spirit hasn’t been at the level it needs to be," All-Star Tyler Herro said.`\
-https://nytimes.com/athletic/6200603/2025/03/13/heat-tyler-herro-losing-streak-nba/
 
