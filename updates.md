@@ -1,3 +1,11 @@
+**A Rare Auction in Japan: 165,000 Tons of Emergency Rice**\
+`The government held a rare auction this week to make up for a rice shortage that an official called “truly unthinkable.”`\
+https://nytimes.com/2025/03/13/world/asia/japan-rice-prices-auction.html
+
+**Brighton owner buys stake in A League side Melbourne Victory**\
+`Bloom, who is in ongoing talks with Hearts, widens his football portfolio to four clubs with the purchase of the Melbourne Victory stake.`\
+https://nytimes.com/athletic/6199887/2025/03/13/brighton-bloom-melbourne-victory/
+
 **Brighton owner Bloom buys 19.1% stake in A League side Melbourne Victory**\
 `Bloom, who is in ongoing talks with Hearts, widens his football portfolio to four clubs with the purchase of the Melbourne Victory stake.`\
 https://nytimes.com/athletic/6199887/2025/03/13/brighton-bloom-melbourne-victory/
