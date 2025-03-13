@@ -1,3 +1,8 @@
+**Montreal Victoire trade Anna Kjellbin to Toronto Sceptres for Kaitlin Willoughby**\
+`The deal — which is a swap of positional depth players — is the lone move announced on a quiet PWHL trade deadline day.
+`\
+https://nytimes.com/athletic/6201725/2025/03/13/pwhl-trade-montreal-victoire-toronto-sceptres/
+
 **The Briefing: Man Utd 4 Real 1 (5-2 agg) - Fernandes the hero but did referee get calls right?**\
 `The major talking points analysed as Manchester United booked a Europa League quarter-final spot`\
 https://nytimes.com/athletic/6194336/2025/03/13/manchester-united-real-sociedad-europa-league-analysis/
