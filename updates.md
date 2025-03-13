@@ -1,3 +1,19 @@
+**Scoop City: Eight more takeaways from free agency**\
+`Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
+https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/03/13/books/review/new-books-recommendations.html
+
+**Steelers continue waiting on Aaron Rodgers, bring back Mason Rudolph: Source**\
+`Rudolph spent the first six years of his NFL career with Pittsburgh before joining the Titans for one season. `\
+https://nytimes.com/athletic/6200768/2025/03/13/mason-rudolph-steelers-nfl-free-agency-signing/
+
+**The Stupidity of Trump’s Attack on Education**\
+`An ignorant America is an inferior America.`\
+https://nytimes.com/2025/03/13/opinion/trump-education-department.html
+
 **Keir Starmer Wants to Abolish N.H.S. England: What to Know About His Plan**\
 `The British prime minister said he would scrap an agency that was created in 2013 to help run the health service. He said the move would save money by avoiding duplication.`\
 https://nytimes.com/2025/03/13/world/europe/keir-starmer-nhs-england.html
