@@ -1,3 +1,11 @@
+**Zelensky criticizes Putin’s comments on a cease-fire, calling them ‘very manipulative.’**\
+`By Marc Santora`\
+https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk/zelensky-criticizes-putins-comments-on-a-cease-fire-calling-them-very-manipulative
+
+**A Chilling Scream, Then the Discovery of 53 Dead and Dying Migrants**\
+`Prosecutors in San Antonio are putting human smugglers on trial, as legal avenues into the United States are closed off and dangers to undocumented migrants may be rising.`\
+https://nytimes.com/2025/03/13/us/politics/migrants-smugglers-trial.html
+
 **See How Elon Musk’s Team Inflated, Deleted and Rewrote Its Savings Claims**\
 `The cost-cutting group removed hundreds of contracts from its “wall of receipts,” added back many of them, and inflated savings values.`\
 https://nytimes.com/2025/03/13/upshot/musk-doge-changes-deletions.html
@@ -27,14 +35,6 @@ https://nytimes.com/2025/03/13/us/politics/trump-trade-war-europe-canada.html
 https://nytimes.com/2025/03/13/sports/autoracing/f1-australian-grand-prix.html
 
 **Stocks Tumble Into Correction as Investors Sour on Trump**\
-`The S&P 500 is now more than 10 percent below its last record high — a line in the sand for investors worried about a sell-off gathering steam.`\
+`The S&P 500 is now more than 10% below its last record high — a line in the sand for investors worried about a sell-off gathering steam.`\
 https://nytimes.com/2025/03/13/business/sp-500-stocks-market-correction.html
-
-**Housing Discrimination Groups Sue DOGE and HUD for Cutting Funds**\
-`Organizations that enforce the federal Fair Housing Act say they are struggling to operate with the sudden elimination of annual grants.`\
-https://nytimes.com/2025/03/13/realestate/fair-housing-discrimination-cuts-lawsuit.html
-
-**The Last of the Winter Salads**\
-`It’s not too late to embrace the bitter and the sweet of chicories and citrus.`\
-https://nytimes.com/2025/03/13/dining/the-last-of-the-winter-salads.html
 
