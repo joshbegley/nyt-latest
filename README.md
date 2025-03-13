@@ -1,3 +1,7 @@
+**EA Sports College Football 26 cover leak highlights more players, coaches**\
+`Players visible on the cover leak include Ohio State's Jeremiah Smith, Alabama's Ryan William and Michigan's Bryce Underwood.`\
+https://nytimes.com/athletic/6199371/2025/03/12/cfb26-cover-leaked-ea-sports/
+
 **Things to Brood Over**\
 `Rich Proulx and Simeon Seigel encourage us to use questionable table manners.`\
 https://nytimes.com/2025/03/12/crosswords/daily-puzzle-2025-03-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migra
 **Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
 `The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
 https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-dies-54-nba-suns-arkansas/
-
-**Justice Dept. Opens Investigation Into Migrant Shelters in New York**\
-`Prosecutors asked for a list of names of “aliens” living at a Manhattan hotel. The city houses about 43,000 migrants in shelters, including dozens of converted hotels.`\
-https://nytimes.com/2025/03/12/nyregion/migrant-shelters-new-york-federal-probe.html
 
