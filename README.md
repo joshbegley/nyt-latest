@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6200998/2025/03/13/rams-davante-adams-sean-mcvay-re
 `Bowman’s motion argues he was not properly served a subpoena to be deposed in the civil case of John Doe v. the Chicago Blackhawks.`\
 https://nytimes.com/athletic/6201605/2025/03/13/stan-bowman-john-doe-vs-blackhawks-subpoena/
 
-**Bosa signed with Bills in part to Allen's Super Bowl promise of 'immortality'**\
+**Bosa signed with Bills in part to pursue Allen's Super Bowl promise of 'immortality'**\
 `Bosa said he was feeling "better than I've ever felt in nine years" before his 2024 injury. Now, he joins a Bills team looking for a ring. `\
 https://nytimes.com/athletic/6201478/2025/03/13/bills-joey-bosa-josh-allen-free-agency/
 
