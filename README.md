@@ -1,7 +1,3 @@
-**How Trump Is Helping Liberals Abroad**\
-`Voters are rallying behind some leaders who oppose President Trump’s tariffs, threats and insults. There’s a theory that explains why.`\
-https://nytimes.com/2025/03/13/briefing/donald-trump-international-relations.html
-
 **Alvarez penalty disallowed by VAR with no UCL in-ball technology**\
 `Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
 https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6196531/2025/03/13/wisconsin-womens-college-hockey-
 **An NBA player lost a friend to cardiac arrest. How he responded is still saving lives**\
 `Ryan Gomes has been an AED advocate for nearly two decades. "The more I go on in life, the more I am grateful for him," Danny Berger said.`\
 https://nytimes.com/athletic/6192138/2025/03/13/ryan-gomes-defibrillator-aed-nba/
+
+**Are the Dodgers, not Yankees, the new 'Evil Empire'? Don't pass the Vader helmet yet**\
+`It's the Dodgers, then everyone else, Hal Steinbrenner said. So are the Yankees no longer the Evil Empire? We've asked around this spring. `\
+https://nytimes.com/athletic/6197439/2025/03/13/yankees-dodgers-mlb-evil-empire/
 

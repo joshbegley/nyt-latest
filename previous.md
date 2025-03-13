@@ -1,3 +1,23 @@
+**How Trump Is Helping Liberals Abroad**\
+`Voters are rallying behind some leaders who oppose President Trump’s tariffs, threats and insults. There’s a theory that explains why.`\
+https://nytimes.com/2025/03/13/briefing/donald-trump-international-relations.html
+
+**Alvarez penalty disallowed by VAR with no UCL in-ball technology**\
+`Alvarez thought he had scored from the spot during the penalty shootout in his side's Champions League last-16 defeat to Real Madrid.`\
+https://nytimes.com/athletic/6199926/2025/03/13/julian-alvarez-penalty-var-champions-league/
+
+**Here are the latest developments.**\
+`By Anton Troianovski`\
+https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk/here-are-the-latest-developments
+
+**Live Updates: U.S. Negotiators Head to Moscow to Discuss Ukraine**\
+`President Vladimir V. Putin of Russia is weighing a 30-day cease-fire proposal from the United States and Ukraine.`\
+https://nytimes.com/live/2025/03/13/world/russia-ukraine-moscow-war-kursk
+
+**Skinner 'absolutely convinced' of women's team's importance to Man United**\
+`Co-owner Sir Jim Ratcliffe said earlier this week “the women's team is much smaller than the men's team” at the club.`\
+https://nytimes.com/athletic/6199987/2025/03/13/manchester-united-women-ratcliffe-skinner/
+
 **The Pulse: Let's take a vibe check and buy a vulgar hat**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6197924/2025/03/13/nhl-nba-playoff-races-the-pulse/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6196531/2025/03/13/wisconsin-womens-college-hockey-
 **An NBA player lost a friend to cardiac arrest. How he responded is still saving lives**\
 `Ryan Gomes has been an AED advocate for nearly two decades. "The more I go on in life, the more I am grateful for him," Danny Berger said.`\
 https://nytimes.com/athletic/6192138/2025/03/13/ryan-gomes-defibrillator-aed-nba/
-
-**Are the Dodgers, not Yankees, the new 'Evil Empire'? Don't pass the Vader helmet yet**\
-`It's the Dodgers, then everyone else, Hal Steinbrenner said. So are the Yankees no longer the Evil Empire? We've asked around this spring. `\
-https://nytimes.com/athletic/6197439/2025/03/13/yankees-dodgers-mlb-evil-empire/
-
-**Energy vampires, media pressure, Tiger’s shadow: Chronicling Scottie’s streak at No. 1**\
-`Scheffler has been the No. 1 player in the world for 95 straight weeks. Those who've been No. 1 before marvel at how he's done it.`\
-https://nytimes.com/athletic/6198208/2025/03/13/scottie-scheffler-tiger-woods-golf-number-one-ranking/
-
-**If women's NCAA basketball players stayed home for college, which state would win March Madness?**\
-`Imagine a team with Californians JuJu Watkins, Gabriela Jaquez, Kaitlyn Chen, Kiki Iriafen and Te-Hina Paopao.`\
-https://nytimes.com/athletic/6198741/2025/03/13/ncaa-womens-basketball-state-debate-tournament/
-
-**MLB Extension Week Tiers: Which deals should get done and which should wait?**\
-`Of the 16 players analyzed, which deals make the most sense for both sides and which favor the player more than the team?`\
-https://nytimes.com/athletic/6194865/2025/03/13/mlb-extension-week-tiers-team-player-analysis/
-
-**Chris Powell to take Las Vegas Motor Speedway bow after 26 years as track president**\
-`Chris Powell reflects on a quarter-century overseeing Las Vegas Motor Speedway, one of NASCAR's most popular and innovative tracks.`\
-https://nytimes.com/athletic/6188169/2025/03/13/chris-powell-las-vegas-motor-speedway-president-retiring/
 
