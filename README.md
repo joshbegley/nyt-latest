@@ -1,3 +1,19 @@
+**Scoop City: Eight more takeaways from free agency**\
+`Inside: Eight things you should know about the second wave of free-agent signings, plus why Aaron Rodgers doesn&#8217;t make sense for the Steelers or Vikings.`\
+https://nytimes.com/athletic/6200888/2025/03/13/nfl-free-agency-recap-scoop-city-day-2-3/
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/03/13/books/review/new-books-recommendations.html
+
+**Steelers continue waiting on Aaron Rodgers, bring back Mason Rudolph: Source**\
+`Rudolph spent the first six years of his NFL career with Pittsburgh before joining the Titans for one season. `\
+https://nytimes.com/athletic/6200768/2025/03/13/mason-rudolph-steelers-nfl-free-agency-signing/
+
+**The Stupidity of Trump’s Attack on Education**\
+`An ignorant America is an inferior America.`\
+https://nytimes.com/2025/03/13/opinion/trump-education-department.html
+
 **Keir Starmer Wants to Abolish N.H.S. England: What to Know About His Plan**\
 `The British prime minister said he would scrap an agency that was created in 2013 to help run the health service. He said the move would save money by avoiding duplication.`\
 https://nytimes.com/2025/03/13/world/europe/keir-starmer-nhs-england.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/13/world/europe/jordan-bardella-israel-far-right.htm
 **Chocolate. Guinness. Cake.**\
 `Nigella Lawson’s cake is a joy to see, a pleasure to eat and a snap to make.`\
 https://nytimes.com/2025/03/13/dining/chocolate-guinness-cake-st-patricks-day.html
-
-**Indonesian Fishermen Sue U.S. Canned Tuna Giant Over Claims of Forced Labor**\
-`In a lawsuit filed in California, the plaintiffs said that Bumble Bee Foods was aware of and benefited from abuse by suppliers. The company declined to comment.`\
-https://nytimes.com/2025/03/13/world/asia/bumble-bee-tuna-forced-labor.html
-
-**Dr. David Weldon on the Withdrawal**\
-`The former pick to head the C.D.C. issued a statement following the withdrawal of his nomination.`\
-https://nytimes.com/interactive/2025/03/13/health/david-weldon-cdc-statement.html
-
-**Mets' Jeff McNeil to start season on injured list with oblique strain**\
-`McNeil is expected to miss at least three to four weeks. Nearly 20 percent of New York's expected Opening Day roster is injured.`\
-https://nytimes.com/athletic/6200612/2025/03/13/jeff-mcneil-injury-mets-opening-day/
-
-**Browns agree to sign DT Maliek Collins to 2-year deal**\
-`Collins is the No. 87 player on The Athletic's list of the top 150 free agents. `\
-https://nytimes.com/athletic/6200593/2025/03/13/browns-maliek-collins-free-agency/
 
