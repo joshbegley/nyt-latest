@@ -1,3 +1,7 @@
+**OKC clinches playoff spot, handles Boston as Celtics take team-record 63 3-pointers**\
+`Defense and versatility help Thunder win battle of top NBA title contenders.`\
+https://nytimes.com/athletic/6198918/2025/03/12/thunder-playoffs-celtics-team-record-3-pointers/
+
 **Mac Jones, 49ers agree to terms on 2-year deal**\
 `Jones was heavily rumored to be a favorite of Kyle Shanahan ahead of the 2021 draft. Now they are together with the 49ers.`\
 https://nytimes.com/athletic/6181410/2025/03/12/mac-jones-49ers-free-agency-signing/

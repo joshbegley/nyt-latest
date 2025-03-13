@@ -1,6 +1,6 @@
-**OKC handles Boston as Celtics take team-record 63 3-pointers**\
+**OKC clinches playoff spot, handles Boston as Celtics take team-record 63 3-pointers**\
 `Defense and versatility help Thunder win battle of top NBA title contenders.`\
-https://nytimes.com/athletic/6198918/2025/03/12/thunder-celtics-team-record-3-pointers/
+https://nytimes.com/athletic/6198918/2025/03/12/thunder-playoffs-celtics-team-record-3-pointers/
 
 **Former Texas Megachurch Pastor Is Indicted on Child Sex Abuse Charges**\
 `Robert Morris, the former senior pastor of the Dallas-based Gateway Church, abused a girl over several years in the 1980s, the Oklahoma Attorney General’s Office said.`\
