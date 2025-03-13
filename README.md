@@ -1,3 +1,7 @@
+**Trump Administration Cuts Ties With Migrant Shelter Provider After Dropping Child Abuse Lawsuit**\
+`The Justice Department dropped a Biden-era lawsuit against Southwest Key, the largest provider of housing for unaccompanied minors, after the Health and Human Services Department said it stopped sending children to those shelters.`\
+https://nytimes.com/2025/03/12/us/politics/trump-admin-lawsuit-child-abuse-migrant-shelters.html
+
 **Oliver Miller, former NBA big man and Arkansas star, dies at 54**\
 `The nine-year NBA veteran was part of the Suns team that reached the NBA Finals in 1993.`\
 https://nytimes.com/athletic/6199032/2025/03/12/oliver-miller-former-nba-big-man-and-arkansas-star-dies-at-54/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/12/us/politics/trump-tesla-elon-musk-white-house.htm
 **Federal Officials Pursue Fraud Case Against Customs Official**\
 `A longtime customs employee has been accused of a scheme to defraud FEMA involving aid from floods in Detroit. She has denied the charges, officials say.`\
 https://nytimes.com/2025/03/12/us/cbp-fema-fraud-charges.html
-
-**The Briefing - Atletico 1 Real 0 (agg 2-2, Real win on pens): Rudiger's spot kick decides epic derby**\
-`An epic Champions League round-of-16 tie between the two Madrid teams was decided on penalties`\
-https://nytimes.com/athletic/6194613/2025/03/12/atletico-madrid-1-real-madrid-0-penalties-rudiger/
 
