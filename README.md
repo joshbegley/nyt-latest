@@ -1,3 +1,7 @@
+**Ron Nessen, Ford’s White House Press Secretary, Dies at 90**\
+`He pledged a new era of openness in the wake of the Watergate scandal, but his relationship with the press corps proved rocky.`\
+https://nytimes.com/2025/03/13/us/politics/ron-nessen-dead.html
+
 **The Briefing: Man Utd 4 Real 1 (5-2 agg) - Bruno the hero but did referee get calls right?**\
 `The major talking points analysed as Manchester United booked a Europa League quarter-final spot`\
 https://nytimes.com/athletic/6194336/2025/03/13/manchester-united-real-sociedad-europa-league-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/13/us/politics/elon-musk-doge-records-questioning.ht
 **In No Hurry for Cease-Fire, Putin Demands Numerous Ukrainian Concessions**\
 `The remarks by the Russian leader suggested he wanted to draw out negotiations or make a truce impossible. Ukraine’s leader called the response to a cease-fire plan “manipulative.”`\
 https://nytimes.com/2025/03/13/world/europe/putin-ceasefire-ukraine-trump.html
-
-**Columbia Disciplines Students Who Occupied Campus Building Last Year**\
-`Sanctions for the Hamilton Hall occupation include expulsions and suspensions.`\
-https://nytimes.com/2025/03/13/nyregion/columbia-university-students-disciplined-hamilton-hall.html
 

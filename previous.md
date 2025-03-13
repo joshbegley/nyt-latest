@@ -1,3 +1,23 @@
+**The Briefing: Man Utd 4 Real 1 (5-2 agg) - Bruno the hero but did referee get calls right?**\
+`The major talking points analysed as Manchester United booked a Europa League quarter-final spot`\
+https://nytimes.com/athletic/6194336/2025/03/13/manchester-united-real-sociedad-europa-league-analysis/
+
+**Jose Altuve's shaky adjustment to left field: 'Every ball I get is going to be a new thing'**\
+`Altuve hadn't gotten many chances at his new position heading into Thursday. Then he faced a long fly ball and did not handle it well.`\
+https://nytimes.com/athletic/6201803/2025/03/13/astros-jose-altuve-left-field-adjustment/
+
+**Tottenham 3 AZ 1 (3-2 agg): Spurs progress, Odobert's first two goals and a season kept alive**\
+`Jack Pitt-Brooke and Elias Burke break down the main talking points from Tottenham Hotspur's 3-1 win over AZ`\
+https://nytimes.com/athletic/6194352/2025/03/13/tottenham-3-az-1-odobert-maddison-europa-league/
+
+**N.Y.C. Man (Not George Costanza) Sentenced for ‘Vandelay’ Con**\
+`Thomas John Sfraga appropriated the name from a scheming “Seinfeld” character as he bilked friends and neighbors. He was sentenced to more than two years in prison on Thursday.`\
+https://nytimes.com/2025/03/13/nyregion/vandelay-industries-fraud-sentencing-brooklyn.html
+
+**Browns could take a chance on Russell Wilson, but it wouldn't solve their QB problem**\
+`It feels like Cleveland is down to either Wilson or Kirk Cousins in its chase for an opening-day starter and at least a temporary No. 1 QB.`\
+https://nytimes.com/athletic/6201617/2025/03/13/russell-wilson-browns-visit-free-agency/
+
 **A Judge Ordered the U.S. to Rehire Thousands of Workers**\
 `Also, Putin said he was open to a cease-fire, but with many conditions. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/03/13/briefing/rehiring-federal-workers-putin-ukraine-cease-fire.html
@@ -18,24 +38,4 @@ https://nytimes.com/2025/03/13/world/europe/putin-ceasefire-ukraine-trump.html
 **Columbia Disciplines Students Who Occupied Campus Building Last Year**\
 `Sanctions for the Hamilton Hall occupation include expulsions and suspensions.`\
 https://nytimes.com/2025/03/13/nyregion/columbia-university-students-disciplined-hamilton-hall.html
-
-**‘The Devil in the Family’ Is a Poignant and Terrifying Docu-Series**\
-`The story of the disgraced mommy vlogger Ruby Franke has been covered extensively by the news media. A Hulu documentary offers surprising new insights.`\
-https://nytimes.com/2025/03/13/arts/television/the-devil-in-the-family-ruby-franke-hulu.html
-
-**The Patriots' early work in free agency was great. But what about left tackle and receiver?**\
-`The Patriots spent big on the opening day of free agency, landing some impressive players. But several glaring holes still remain.`\
-https://nytimes.com/athletic/6201559/2025/03/13/patriots-nfl-free-agent-signings-tackle-receiver/
-
-**Federal Appeals Court Dismisses Florida Case Over Gender Identity in Schools**\
-`The mother at the center of the case, January Littlejohn, was a guest of the first lady Melania Trump at President Trump’s speech to Congress last week.`\
-https://nytimes.com/2025/03/13/us/politics/florida-school-gender-identity.html
-
-**North Dakota Senate Rejects Measure Asking Supreme Court to Revisit Gay Marriage**\
-`The resolution, which passed the North Dakota House, was part of a broader push by some conservatives to end the national right to same-sex marriage.`\
-https://nytimes.com/2025/03/13/us/north-dakota-same-sex-marriage.html
-
-**German Tourists Detained for Weeks, Then Deported From U.S.**\
-`Amid President Trump’s border crackdown, German news media have closely followed the treatment of two tourists who say they tried to enter the United States legally.`\
-https://nytimes.com/2025/03/13/world/europe/german-tourists-detained-deported.html
 
