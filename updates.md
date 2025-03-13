@@ -1,3 +1,11 @@
+**Any more questions? Thunder show defending champion Celtics how good they are**\
+`Even missing their second-best player, the Thunder swarmed Boston behind another MVP-level performance from Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/6199713/2025/03/13/thunder-shai-gilgeous-alexander-boston-win/
+
+**Australian GP storylines: Everyone agrees on McLaren, but Red Bull is a mystery**\
+`Unlike the past few years, reigning champion Max Verstappen doesn’t appear to be the favorite to win the season's first race.`\
+https://nytimes.com/athletic/6199595/2025/03/13/f1-australian-gp-preview-mclaren-lewis-hamilton-max-verstappen/
+
 **Spencer Arrighetti's 4-seamer got knocked around in 2024, so he's looking to add a sinker**\
 `Arrighetti is locating his four-seam fastball differently and is working on adding a two-seamer: 'Now I have three big movers both ways.'`\
 https://nytimes.com/athletic/6198465/2025/03/13/astros-spencer-arrighetti-sinker/
