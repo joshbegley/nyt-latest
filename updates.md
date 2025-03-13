@@ -1,3 +1,15 @@
+**David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
+`Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
+https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/
+
+**John Mulaney Returns to Late Night on Netflix**\
+`“Everybody’s Live With John Mulaney” resurrected the comic’s eccentric but enjoyable live talk show, with contributions from Richard Kind, Michael Keaton, Joan Baez and many Willy Lomans.`\
+https://nytimes.com/2025/03/13/arts/television/john-mulaney-everybodys-live-netflix.html
+
+**Surging Timberwolves have rediscovered their edge: 'It looks really, really good'**\
+`In another win over the Nuggets, Minnesota displayed the tenacity and fire that helped it reach the West finals last season. `\
+https://nytimes.com/athletic/6199788/2025/03/13/timberwolves-nuggets-winning-streak-edge-julius-randle/
+
 **C.E.O.s Look Beyond a Rosy Inflation Report**\
 `Better-than-expected price data can’t quite blunt worries about consumers pulling back, as companies keep scrambling to handle President Trump’s trade fights.`\
 https://nytimes.com/2025/03/13/business/dealbook/ceos-inflation-trade-tariffs.html

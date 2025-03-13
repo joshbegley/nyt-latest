@@ -1,3 +1,15 @@
+**David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
+`Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
+https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/
+
+**John Mulaney Returns to Late Night on Netflix**\
+`“Everybody’s Live With John Mulaney” resurrected the comic’s eccentric but enjoyable live talk show, with contributions from Richard Kind, Michael Keaton, Joan Baez and many Willy Lomans.`\
+https://nytimes.com/2025/03/13/arts/television/john-mulaney-everybodys-live-netflix.html
+
+**Surging Timberwolves have rediscovered their edge: 'It looks really, really good'**\
+`In another win over the Nuggets, Minnesota displayed the tenacity and fire that helped it reach the West finals last season. `\
+https://nytimes.com/athletic/6199788/2025/03/13/timberwolves-nuggets-winning-streak-edge-julius-randle/
+
 **C.E.O.s Look Beyond a Rosy Inflation Report**\
 `Better-than-expected price data can’t quite blunt worries about consumers pulling back, as companies keep scrambling to handle President Trump’s trade fights.`\
 https://nytimes.com/2025/03/13/business/dealbook/ceos-inflation-trade-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/13/style/donatella-versace-dario-vitale.html
 **How bad is Newcastle's trophy drought according to the numbers? (Very, very bad)**\
 `We dig into the numbers and moments behind the barren run, and our Newcastle correspondent George Caulkin offers his thoughts...`\
 https://nytimes.com/athletic/6112947/2025/03/13/newcastles-trophy-drought-according-to-the-numbers/
-
-**Meet Dave Sims, the new voice of the Yankees who isn't trying to be John Sterling**\
-`After 18 seasons with the Mariners, Sims brings his unique style back to New York, where he's kept a home for nearly 50 years.`\
-https://nytimes.com/athletic/6198272/2025/03/13/dave-sims-yankees-broadcaster/
-
-**Ryan Nugent-Hopkins' scoring woes are only a part of a wider team problem**\
-`It’s been tough sledding offensively for Nugent-Hopkins. But the offensive slump isn’t limited to the forward as it spreads across the team.`\
-https://nytimes.com/athletic/6199070/2025/03/13/oilers-ryan-nugent-hopkins-offence/
-
-**Twins have MLB's best-projected bullpen, with reasons for optimism and skepticism**\
-`Jhoan Duran and Griffin Jax lead a bullpen with high expectations. Here are three reasons for optimism and three reasons for skepticism.`\
-https://nytimes.com/athletic/6193822/2025/03/13/minnesota-twins-bullpen-2025-season/
 
