@@ -1,3 +1,11 @@
+**Mings, McGinn and Watkins symbolise Villa's rise to the Champions League quarter-final**\
+`Aston Villa advanced to the Champions League quarter-finals by beating Club Brugge on Wednesday night`\
+https://nytimes.com/athletic/6197750/2025/03/13/aston-villa-champions-league-championship/
+
+**How Howe manages Newcastle: At his desk at 6am, colour-coded drills and 'a little bit of edge'**\
+`Those who have worked closely with the Newcastle head coach provide insight into the man hoping to finally bring a trophy to St James' Park`\
+https://nytimes.com/athletic/6197927/2025/03/13/eddie-howe-newcastle-carabao-cup-final/
+
 **Thursday Briefing**\
 `A widening trade war.`\
 https://nytimes.com/2025/03/13/briefing/canada-europe-tariffs-columbia-activist-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/business/tesla-china-sales-elon-musk.html
 **Quote of the Day: Chinese Navy Sails Around Australia, Setting Off a Sense of Alarm**\
 `Quotation of the Day for Thursday, March 13, 2025`\
 https://nytimes.com/2025/03/12/pageoneplus/quote-of-the-day-chinese-navy-sails-around-australia-setting-off-a-sense-of-alarm.html
-
-**Knicks friction? Bridges, Thibodeau disagree on whether they talked minutes**\
-`Thibodeau has faced criticism for playing his starters too much. Bridges' comments on the matter caused a stir.`\
-https://nytimes.com/athletic/6199332/2025/03/12/knicks-friction-minutes-mikal-bridges-tom-thibodeau/
-
-**OKC clinches playoff spot, handles Boston as Celtics take team-record 63 3-pointers**\
-`Defense and versatility help Thunder win battle of top NBA title contenders.`\
-https://nytimes.com/athletic/6198918/2025/03/12/thunder-playoffs-celtics-team-record-3-pointers/
 
