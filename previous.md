@@ -1,3 +1,7 @@
+**In Portugal, a Farmhouse Hotel That’s a Short Walk From the Beach**\
+`Plus: the revival of opera pumps, a new gallery in Texas and more recommendations from T Magazine.`\
+https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html
+
 **It's been a typical free agency for Ravens. Yet, their toughest decisions remain**\
 `GM Eric DeCosta and company have assumed their place on the sideline in the high-stakes bidding for the top outside free agents. `\
 https://nytimes.com/athletic/6199674/2025/03/13/ravens-free-agency-decisions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6139571/2025/03/13/bayern-joshua-kimmich-contract-n
 **Houthi Drones Could Become Stealthier and Fly Farther**\
 `A new report documented efforts to smuggle hydrogen fuel cell components into Yemen that will provide Houthi fighters a technological leap ahead.`\
 https://nytimes.com/2025/03/13/us/politics/yemen-houthi-drones-report.html
-
-**Rights Groups Condemn Trump for Using ‘Palestinian’ as a Slur Against Schumer**\
-`President Trump said Chuck Schumer was not “Jewish anymore” in comments that have been widely criticized as offensive.`\
-https://nytimes.com/2025/03/13/us/politics/trump-schumer-palestinian.html
 

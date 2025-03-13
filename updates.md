@@ -1,3 +1,7 @@
+**In Portugal, a Farmhouse Hotel That’s a Short Walk From the Beach**\
+`Plus: the revival of opera pumps, a new gallery in Texas and more recommendations from T Magazine.`\
+https://nytimes.com/2025/03/13/t-magazine/portugal-algarve-hotel.html
+
 **It's been a typical free agency for Ravens. Yet, their toughest decisions remain**\
 `GM Eric DeCosta and company have assumed their place on the sideline in the high-stakes bidding for the top outside free agents. `\
 https://nytimes.com/athletic/6199674/2025/03/13/ravens-free-agency-decisions/
