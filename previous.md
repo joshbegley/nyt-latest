@@ -1,3 +1,7 @@
+**Keir Starmer Wants to Abolish N.H.S. England: What to Know About His Plan**\
+`The British prime minister said he would scrap an agency that was created in 2013 to help run the health service. He said the move would save money by avoiding duplication.`\
+https://nytimes.com/2025/03/13/world/europe/keir-starmer-nhs-england.html
+
 **Manhole Fires Erupt at Texas Tech University**\
 `Students were evacuated and sent on spring break early after a series of explosions and manhole fires at the Texas Tech University campus in Lubbock.`\
 https://nytimes.com/video/us/100000010049963/texas-tech-manhole-explosions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6200612/2025/03/13/jeff-mcneil-injury-mets-opening-
 **Browns agree to sign DT Maliek Collins to 2-year deal**\
 `Collins is the No. 87 player on The Athletic's list of the top 150 free agents. `\
 https://nytimes.com/athletic/6200593/2025/03/13/browns-maliek-collins-free-agency/
-
-**Can Aussie Oscar Piastri claim this weekend's Australian Grand Prix?**\
-`Examining the favorites ahead of F1's opening race of the 2025 season.`\
-https://nytimes.com/athletic/6200470/2025/03/13/australian-grand-prix-odds-lando-norris-favored-over-aussie-teammate-oscar-piastri/
 
