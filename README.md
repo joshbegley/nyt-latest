@@ -1,3 +1,7 @@
+**Minnesota fires men's basketball coach Ben Johnson after 4 seasons**\
+`Johnson was 56-71 in four seasons and 22-57 in Big Ten games, with no NCAA Tournament appearances.`\
+https://nytimes.com/athletic/6200356/2025/03/13/minnesota-fires-ben-johnson-mens-basketball/
+
 **Kimmich signs new Bayern contract to 2029**\
 `The Germany international, 30, has agreed fresh terms on a new four-year contract with the Bundesliga giants.`\
 https://nytimes.com/athletic/6139571/2025/03/13/bayern-joshua-kimmich-contract-new/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/03/13/world/middleeast/israel-hamas-ceasefire-trump-ukr
 `A series of fires and a manhole explosion led officials to shut down the campus and send students home early for spring break.`\
 https://nytimes.com/2025/03/13/us/texas-tech-explosion-lubbock.html
 
-**Trump Threatens 200 Percent Tariff on Champagne and Wine from Europe**\
-`The president said he would impose the levies if the European Union does not walk back plans to slap retaliatory tariffs on whiskey and other U.S. products.`\
+**Trump Threatens 200 Percent Tariff on Champagne and Wine From Europe**\
+`The president said he would impose the levies if the European Union does not walk back plans to place retaliatory tariffs on whiskey and other U.S. products.`\
 https://nytimes.com/2025/03/13/us/politics/trump-tariff-european-union-whiskey.html
 
 **More than two decades later, viral anthem singer gets redemption in Portland**\
 `On Wednesday, Natalie Zito was back in the building that changed her life, performing a stunning rendition of "The Star-Spangled Banner."`\
 https://nytimes.com/athletic/6199676/2025/03/13/national-anthem-performance-nba-maurice-cheeks-knicks/
-
-**David Moyes' Real Sociedad memories: Beating Barca, free jamon and a football education**\
-`Exclusive: The Scot reveals why managing in Spain was one of the happiest periods of his career - despite its abrupt end`\
-https://nytimes.com/athletic/6199967/2025/03/13/david-moyes-real-sociedad-memories/
 
