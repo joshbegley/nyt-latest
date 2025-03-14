@@ -1,3 +1,19 @@
+**Duterte Appears in Court in The Hague via Video After Arrest**\
+`Rights groups have said tens of thousands were killed in his antidrug campaign while he was the president of the Philippines.`\
+https://nytimes.com/2025/03/14/world/asia/duterte-philippines-icc-crimes-against-humanity.html
+
+**Penguins mailbag: The great jersey retirement debate**\
+`Josh Yohe digs into statues, jersey retirements, Tristan Jarry's hot streak and much more.`\
+https://nytimes.com/athletic/6202798/2025/03/14/penguins-retired-jerseys/
+
+**Explore the Met Museum With Gavin Creel and More Theater to Stream Now**\
+`Also available for streaming: A masterful F. Murray Abraham in “Beckett Briefs,” and Christopher Walken and Susan Sarandon in a take on “Streetcar.”`\
+https://nytimes.com/2025/03/14/theater/streaming-theater-walk-on-through-beckett-briefs.html
+
+**NHL Power Rankings: Stars take over top spot as we celebrate the league's OGs**\
+`This week, an ode to the OGs. We check in with some of the longest-tenured players from each team and see how they’re doing.`\
+https://nytimes.com/athletic/6202752/2025/03/14/nhl-power-rankings-stars/
+
 **Read the Letter to Columbia University**\
 `The Trump administration sent a letter to Columbia on Thursday demanding that the university make dramatic changes in student discipline and admissions before it would discuss lifting the cancellation of $400 million in government grants and contracts.`\
 https://nytimes.com/interactive/2025/03/14/nyregion/columbia-letter.html

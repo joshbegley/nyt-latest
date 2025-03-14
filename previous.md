@@ -1,3 +1,19 @@
+**Duterte Appears in Court in The Hague via Video After Arrest**\
+`Rights groups have said tens of thousands were killed in his antidrug campaign while he was the president of the Philippines.`\
+https://nytimes.com/2025/03/14/world/asia/duterte-philippines-icc-crimes-against-humanity.html
+
+**Penguins mailbag: The great jersey retirement debate**\
+`Josh Yohe digs into statues, jersey retirements, Tristan Jarry's hot streak and much more.`\
+https://nytimes.com/athletic/6202798/2025/03/14/penguins-retired-jerseys/
+
+**Explore the Met Museum With Gavin Creel and More Theater to Stream Now**\
+`Also available for streaming: A masterful F. Murray Abraham in “Beckett Briefs,” and Christopher Walken and Susan Sarandon in a take on “Streetcar.”`\
+https://nytimes.com/2025/03/14/theater/streaming-theater-walk-on-through-beckett-briefs.html
+
+**NHL Power Rankings: Stars take over top spot as we celebrate the league's OGs**\
+`This week, an ode to the OGs. We check in with some of the longest-tenured players from each team and see how they’re doing.`\
+https://nytimes.com/athletic/6202752/2025/03/14/nhl-power-rankings-stars/
+
 **Read the Letter to Columbia University**\
 `The Trump administration sent a letter to Columbia on Thursday demanding that the university make dramatic changes in student discipline and admissions before it would discuss lifting the cancellation of $400 million in government grants and contracts.`\
 https://nytimes.com/interactive/2025/03/14/nyregion/columbia-letter.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6203318/2025/03/14/mason-mount-injury-return-update
 **‘Ted Lasso’ Is Coming Back**\
 `Apple TV+ announced on Friday that the Emmy-winning comedy will return for a fourth season. Jason Sudeikis will be back to reprise the title role.`\
 https://nytimes.com/2025/03/14/arts/television/ted-lasso-season-4.html
-
-**Row Z: Tuchel looks to the future, respectful Zinchenko and free lunch economics**\
-`Our weekly look at the absurd side of the game also includes Jose Mourinho and Allan Saint-Maximin's odes to stairs and elevators`\
-https://nytimes.com/athletic/6202328/2025/03/14/tuchel-england-ratcliffe-burn-mourinho-row-z/
-
-**De Ligt added to Netherlands' Nations League squad**\
-`De Ligt was not selected when Ronald Koeman named his provisional squad, before Nathan Ake and Stefan de Vrij withdrew due to injury.`\
-https://nytimes.com/athletic/6203335/2025/03/14/matthijs-de-ligt-netherlands-squad-nations-league/
-
-**Germans Reach Deal to Spend Big on Defense, Climate and More**\
-`The agreement between centrist parties, led by the likely next chancellor, Friedrich Merz, was billed as a response to America’s shrinking security guarantees.`\
-https://nytimes.com/2025/03/14/world/europe/germany-defense-climate-spending-deal.html
-
-**Real Madrid's Asencio receives first Spain call-up**\
-`Asencio's inclusion comes amid an ongoing investigation into an allegation he shared a sex tape of a minor.`\
-https://nytimes.com/athletic/6203165/2025/03/14/raul-asencio-spain-squad-real-madrid/
 
