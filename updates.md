@@ -1,3 +1,16 @@
+**Hurzeler embraces Brighton 'pressure' ahead of visit to Man City**\
+`Owner-chairman Tony Bloom described the rest of the campaign as "potentially the biggest two months the football club has ever had."`\
+https://nytimes.com/athletic/6203114/2025/03/14/fabian-hurzeler-brighton-premier-league-results/
+
+**Bringing Astronauts Home**\
+`We explain why two astronauts were stuck in orbit for so long.`\
+https://nytimes.com/2025/03/14/briefing/bringing-astronauts-home.html
+
+**Two players across Premier League, EFL tested positive for banned substance in 2023-24**\
+`An FOI request with UK Anti-Doping (UKAD) showed two players tested positive for a banned substance from the 606 tests carried out.
+`\
+https://nytimes.com/athletic/6201574/2025/03/14/premier-league-efl-drugs/
+
 **Two players across Premier League, EFL tested positive for banned substance in 2023-24**\
 `An FOI request with UK Anti-Doping (UKAD) showed two players tested positive for a banned substance from the 606 tests carried out.
 `\

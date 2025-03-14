@@ -1,3 +1,11 @@
+**Hurzeler embraces Brighton 'pressure' ahead of visit to Man City**\
+`Owner-chairman Tony Bloom described the rest of the campaign as "potentially the biggest two months the football club has ever had."`\
+https://nytimes.com/athletic/6203114/2025/03/14/fabian-hurzeler-brighton-premier-league-results/
+
+**Bringing Astronauts Home**\
+`We explain why two astronauts were stuck in orbit for so long.`\
+https://nytimes.com/2025/03/14/briefing/bringing-astronauts-home.html
+
 **Alexander-Arnold out of Carabao Cup final; Konate expected to play**\
 `The right-back was forced off injured during the second half of Liverpool's Champions League defeat against PSG on Tuesday.`\
 https://nytimes.com/athletic/6196972/2025/03/14/trent-alexander-arnold-injury-carabao-cup-final/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6202635/2025/03/14/maple-leafs-atlantic-division-be
 **How Ben Johnson impacted the Chicago Bears' aggressive start to free agency**\
 `Players are excited to come play for new Bears head coach Ben Johnson, we learned as we met the five acquisitions at Halas Hall.`\
 https://nytimes.com/athletic/6201890/2025/03/14/bears-ben-johnson-nfl-free-agency-2025/
-
-**For Jamaica, Messi's rare visit is not just another night at The Office**\
-`Messi fulfilled his mission in the Caribbean, entertaining and scoring for the tens of thousands who came to catch a glimpse of the GOAT.`\
-https://nytimes.com/athletic/6202463/2025/03/14/messi-goal-jamaica-kingston-cavalier-inter-miami-pele/
-
-**Meet the former F1 engineer behind the 'world's best croissant'**\
-`Without F1, Kate Reid's world-famous croissants would never have existed. Find out why in this exclusive excerpt. `\
-https://nytimes.com/athletic/6201684/2025/03/14/f1-australian-gp-croissants-kate-reid/
 
