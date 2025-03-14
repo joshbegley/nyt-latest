@@ -1,3 +1,7 @@
+**DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
+`“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
+https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
+
 **Anne Kaufman Schneider, 99, Ardent Keeper of Her Father’s Plays, Dies**\
 `She shepherded the works of George S. Kaufman from the 20th century into the next, encouraging regional theater productions and helping to steer two of them to Broadway.`\
 https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/dining/drinks/wine-trump-tariffs.html
 **Teixeira, Calling Himself ‘Proud Patriot,’ Appeals to Trump for Leniency**\
 `In pleading guilty during his military-court martial, Jack Teixeira made a direct appeal to President Trump, reflecting a tactic being employed by an increasing number of convicted criminals and their lawyers.`\
 https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.html
-
-**Musk Met This Week With General Who Leads N.S.A. and Cyber Command, an N.S.A. Spokesman Says**\
-`The talks suggest that the effort to shrink the size of the federal work force could soon turn to a critical arm of the intelligence community.`\
-https://nytimes.com/2025/03/13/us/politics/elon-musk-nsa.html
 

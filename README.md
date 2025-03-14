@@ -1,3 +1,11 @@
+**Georgia football acting like it's Gunner Stockton's team now**\
+`No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
+https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
+
+**Andy Beshear Slams Gavin Newsom for Having Steve Bannon on Podcast**\
+`“I don’t think we should give him oxygen on any platform — ever, anywhere,” the Democratic governor of Kentucky said of President Trump’s former chief strategist.`\
+https://nytimes.com/2025/03/13/us/politics/beshear-newsom-bannon-podcast.html
+
 **DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
 `“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
 https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
@@ -10,8 +18,8 @@ https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
 `The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
 https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-michigan.html
 
-**Colts' Charvarius Ward seeks fresh start: 'I had to get out of San Francisco'**\
-`The new Colts cornerback said he was looking for a fresh start just months after the death of his one-year-old daughter. `\
+**Colts' Charvarius Ward seeks fresh start after tragedy: 'I had to get out of San Francisco'**\
+`The new Colts cornerback said he was looking for a fresh start just months after the death of his 1-year-old daughter. `\
 https://nytimes.com/athletic/6202223/2025/03/13/colts-charvarius-ward-fresh-start-free-agency/
 
 **Chuck Schumer: Trump and Musk Would Love a Shutdown. We Must Not Give Them One.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-
 **Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
 `Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
 https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
-
-**Wine Businesses Fear Disaster in Threat of Huge Tariffs**\
-`President Trump’s threat to impose  200 percent fees on European wines could harm importers, distributors, retailers and restaurants without necessarily helping U.S. producers.`\
-https://nytimes.com/2025/03/13/dining/drinks/wine-trump-tariffs.html
-
-**Teixeira, Calling Himself ‘Proud Patriot,’ Appeals to Trump for Leniency**\
-`In pleading guilty during his military-court martial, Jack Teixeira made a direct appeal to President Trump, reflecting a tactic being employed by an increasing number of convicted criminals and their lawyers.`\
-https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.html
 

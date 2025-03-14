@@ -1,3 +1,7 @@
+**DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
+`“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
+https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
+
 **Anne Kaufman Schneider, 99, Ardent Keeper of Her Father’s Plays, Dies**\
 `She shepherded the works of George S. Kaufman from the 20th century into the next, encouraging regional theater productions and helping to steer two of them to Broadway.`\
 https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
