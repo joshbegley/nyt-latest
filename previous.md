@@ -1,3 +1,7 @@
+**Word of the Day: augment**\
+`This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/14/learning/word-of-the-day-augment.html
+
 **Everton have a creativity problem - does the answer lie in Doucoure, Alcaraz or elsewhere?**\
 `As Everton close in on safety, manager Moyes has chance to experiment at No 10 and decide whether Alcaraz is the future`\
 https://nytimes.com/athletic/6199978/2025/03/14/carlos-alcaraz-everton-abdoulaye-doucoure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197054/2025/03/14/doku-grealish-man-city-wingers/
 **The Slot story: From Dutch Bible Belt to Anfield - and why 'it all comes back to his dad'**\
 `A trip to the Liverpool manager's childhood home of Bergentheim reveals how he was shaped by the village - and his father`\
 https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-netherlands/
-
-**How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
-`The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
-https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
 

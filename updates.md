@@ -1,3 +1,7 @@
+**Word of the Day: augment**\
+`This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/14/learning/word-of-the-day-augment.html
+
 **Everton have a creativity problem - does the answer lie in Doucoure, Alcaraz or elsewhere?**\
 `As Everton close in on safety, manager Moyes has chance to experiment at No 10 and decide whether Alcaraz is the future`\
 https://nytimes.com/athletic/6199978/2025/03/14/carlos-alcaraz-everton-abdoulaye-doucoure/
