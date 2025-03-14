@@ -1,3 +1,15 @@
+**Gold Hits Record High Amid Tariff Anxiety**\
+`The price of gold, considered a haven during turmoil, surpassed $3,000 per ounce for the first time as investors send U.S. stock markets tumbling.`\
+https://nytimes.com/2025/03/14/us/politics/gold-price-record-high.html
+
+**USC mailbag: What made the Trojans finally pay attention to local talent?**\
+`Who's going to be the starting quarterback? Is Lincoln Riley in danger of getting fired?`\
+https://nytimes.com/athletic/6201975/2025/03/14/usc-football-recruiting-spring-season/
+
+**FPL live Q&A: FPL Gameweek 289 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 29 FPL Q&A from 4pm-5pm GMT`\
+https://nytimes.com/athletic/6196961/2025/03/14/fantasy-premier-league-advice-gw29-tips/
+
 **Steph Curry's journey to 4,000 NBA 3-pointers is one nobody ever saw coming**\
 `As the Golden State Warriors icon set yet another shooting record, it's worth remembering the sliding doors moments that got us here.`\
 https://nytimes.com/athletic/6202940/2025/03/14/steph-curry-warriors-3-point-record-legacy/
