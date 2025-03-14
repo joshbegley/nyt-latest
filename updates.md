@@ -1,3 +1,15 @@
+**Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
+`Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
+https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
+
+**Daniil Medvedev's Indian Wells celebration and the sweetness of tennis relief**\
+`Daniil Medvedev's exuberant celebration after beating Arthur Fils was not his normal reaction to winning a tennis match.`\
+https://nytimes.com/athletic/6202407/2025/03/13/daniil-medvedev-celebration-tennis-indian-wells/
+
+**Plane Catches Fire at Denver Airport**\
+`American Airlines, which operated the flight, said the plane had experienced an “engine-related issue.”`\
+https://nytimes.com/video/us/100000010051893/american-airlines-denver-airport-fire.html
+
 **Corrections: March 14, 2025**\
 `Corrections that appeared in print on Friday, March 14, 2025.`\
 https://nytimes.com/2025/03/13/pageoneplus/corrections-march-14-2025.html

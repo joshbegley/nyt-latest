@@ -1,3 +1,15 @@
+**Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
+`Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
+https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
+
+**Daniil Medvedev's Indian Wells celebration and the sweetness of tennis relief**\
+`Daniil Medvedev's exuberant celebration after beating Arthur Fils was not his normal reaction to winning a tennis match.`\
+https://nytimes.com/athletic/6202407/2025/03/13/daniil-medvedev-celebration-tennis-indian-wells/
+
+**Plane Catches Fire at Denver Airport**\
+`American Airlines, which operated the flight, said the plane had experienced an “engine-related issue.”`\
+https://nytimes.com/video/us/100000010051893/american-airlines-denver-airport-fire.html
+
 **Corrections: March 14, 2025**\
 `Corrections that appeared in print on Friday, March 14, 2025.`\
 https://nytimes.com/2025/03/13/pageoneplus/corrections-march-14-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton
 **Andy Beshear Slams Gavin Newsom for Having Steve Bannon on Podcast**\
 `“I don’t think we should give him oxygen on any platform — ever, anywhere,” the Democratic governor of Kentucky said of President Trump’s former chief strategist.`\
 https://nytimes.com/2025/03/13/us/politics/beshear-newsom-bannon-podcast.html
-
-**DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
-`“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
-https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
-
-**Anne Kaufman Schneider, 99, Ardent Keeper of Her Father’s Plays, Dies**\
-`She shepherded the works of George S. Kaufman from the 20th century into the next, encouraging regional theater productions and helping to steer two of them to Broadway.`\
-https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
-
-**Researchers Find Shipwreck Lost Since 1892**\
-`The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
-https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-superior.html
 
