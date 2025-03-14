@@ -1,3 +1,12 @@
+**NASA Astronauts Are About to Return Home**\
+`A spacecraft malfunction last June has kept Suni Williams and Butch Wilmore on the International Space Station for more than nine months. They are slated to return home in the next few days. But before they do, Michael Barbaro spoke with them about their unusually long stay in space.`\
+https://nytimes.com/video/podcasts/the-daily/100000010043909/nasa-astronauts-are-about-to-return-home.html
+
+**Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
+`Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
+`\
+https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
+
 **Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
 `Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
 `\
