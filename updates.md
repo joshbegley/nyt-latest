@@ -1,3 +1,19 @@
+**Anne Kaufman Schneider, 99, Ardent Keeper of Her Father’s Plays, Dies**\
+`She shepherded the works of George S. Kaufman from the 20th century into the next, encouraging regional theater productions and helping to steer two of them to Broadway.`\
+https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
+
+**Researchers Find Shipwreck Lost Since 1892**\
+`The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
+https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-michigan.html
+
+**Colts' Charvarius Ward seeks fresh start: 'I had to get out of San Francisco'**\
+`The new Colts cornerback said he was looking for a fresh start just months after the death of his one-year-old daughter. `\
+https://nytimes.com/athletic/6202223/2025/03/13/colts-charvarius-ward-fresh-start-free-agency/
+
+**Chuck Schumer: Trump and Musk Would Love a Shutdown. We Must Not Give Them One.**\
+`A government shutdown would lead to real pain for the American people.`\
+https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html
+
 **Chuck Schumer: Why Democrats Must Keep the Government Open**\
 `A government shutdown would lead to real pain for the American people.`\
 https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html

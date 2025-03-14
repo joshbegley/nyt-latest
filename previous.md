@@ -1,4 +1,16 @@
-**Chuck Schumer: Why Democrats Must Keep the Government Open**\
+**Anne Kaufman Schneider, 99, Ardent Keeper of Her Father’s Plays, Dies**\
+`She shepherded the works of George S. Kaufman from the 20th century into the next, encouraging regional theater productions and helping to steer two of them to Broadway.`\
+https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
+
+**Researchers Find Shipwreck Lost Since 1892**\
+`The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
+https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-michigan.html
+
+**Colts' Charvarius Ward seeks fresh start: 'I had to get out of San Francisco'**\
+`The new Colts cornerback said he was looking for a fresh start just months after the death of his one-year-old daughter. `\
+https://nytimes.com/athletic/6202223/2025/03/13/colts-charvarius-ward-fresh-start-free-agency/
+
+**Chuck Schumer: Trump and Musk Would Love a Shutdown. We Must Not Give Them One.**\
 `A government shutdown would lead to real pain for the American people.`\
 https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/13/us/politics/jack-teixeira-trump-discord-leaks.htm
 **Musk Met This Week With General Who Leads N.S.A. and Cyber Command, an N.S.A. Spokesman Says**\
 `The talks suggest that the effort to shrink the size of the federal work force could soon turn to a critical arm of the intelligence community.`\
 https://nytimes.com/2025/03/13/us/politics/elon-musk-nsa.html
-
-**Seahawks wanted to keep Geno Smith and DK Metcalf but had to pivot, GM says**\
-`GM John Schneider thought he could resolve DK Metcalf's trade request, while it was "pretty evident" Geno Smith and Seattle were far apart.`\
-https://nytimes.com/athletic/6201681/2025/03/13/seahawks-geno-smith-dk-metcalf-john-schneider/
-
-**‘I Love My Job’: Laid-Off Federal Worker on DOGE Cuts**\
-`Jasmin Dominguez, a former U.S. Forest Service employee, was fired weeks after helping fight the Los Angeles wildfires. Her termination was part of the Trump administration’s efforts to shrink the government.`\
-https://nytimes.com/video/us/politics/100000010032636/federal-worker-layoff-doge.html
-
-**Spurs' De'Aaron Fox to undergo season-ending surgery on pinkie finger**\
-`Fox, 27, had been playing with a dislocated pinkie finger on his left shooting hand all season.`\
-https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
 
