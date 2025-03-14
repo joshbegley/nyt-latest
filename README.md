@@ -1,3 +1,7 @@
+**China Condemns Panama Canal Deal, Asserting a Right to Influence the Region**\
+`The Hong Kong conglomerate CK Hutchison’s planned sale of ports in Panama to a group led by BlackRock, the American finance giant, is under fire from Beijing.`\
+https://nytimes.com/2025/03/14/business/panama-canal-ck-hutchison-blackrock.html
+
 **Why no Morgan Gibbs-White? Forest's star player deserved a place in Tuchel's first England squad**\
 `Gibbs-White’s omission will not just surprise a lot of people at Forest, but many others who have followed his emergence`\
 https://nytimes.com/athletic/6202389/2025/03/14/why-no-morgan-gibbs-white-forests-star-player-deserved-a-place-in-tuchels-first-england-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/trump-speech-justice-department.html
 **SpaceX Tries Again to Launch NASA’s Crew-10 Mission to the I.S.S.: How to Watch**\
 `The flight was scrubbed on Wednesday night, and the astronauts will return to the launchpad for their trip to the International Space Station.`\
 https://nytimes.com/2025/03/14/science/nasa-spacex-astronauts-iss-launch.html
-
-**Democrats Plan Nationwide Blitz of Town Halls in Republican Districts**\
-`A series of events in all 50 states aims to capitalize on a recent warning from Republican leadership that its lawmakers should avoid such public forums.`\
-https://nytimes.com/2025/03/14/us/politics/democrats-town-halls-republicans.html
 
