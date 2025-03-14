@@ -1,3 +1,7 @@
+**JuJu Watkins signs exclusive memorabilia, trading card deal with Fanatics**\
+`Watkins achieves another first in the collectibles world `\
+https://nytimes.com/athletic/6203726/2025/03/14/juju-watkins-fanatics-usc-memorabilia-cards/
+
 **The Windup: Where do the Rays go now?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6202896/2025/03/14/rays-stadium-jose-altuve-left-field-the-windup/
