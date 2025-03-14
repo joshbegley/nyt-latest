@@ -1,3 +1,7 @@
+**Read the Letter to Columbia University**\
+`The Trump administration sent a letter to Columbia on Thursday demanding that the university make dramatic changes in student discipline and admissions before it would discuss lifting the cancellation of $400 million in government grants and contracts.`\
+https://nytimes.com/interactive/2025/03/14/nyregion/columbia-letter.html
+
 **DOGE Could Gut a Piece of Trump Family History**\
 `In the heart of Seattle, a national park memorializes the grit of the Klondike gold rush, where the president’s grandfather built his early wealth. The park is now under threat.`\
 https://nytimes.com/2025/03/14/us/doge-frederick-trump-seattle-park-history.html
