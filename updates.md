@@ -1,3 +1,19 @@
+**The New York Times in Print for Friday, March 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/14/todays-new-york-times
+
+**Friday Briefing**\
+`Vladimir Putin’s conditions for a cease-fire.`\
+https://nytimes.com/2025/03/14/briefing/putin-tariffs-gaza.html
+
+**What Zelensky Does Next**\
+`Different sides of the war in Ukraine reach for different, simple narratives about Mr. Zelensky. The truth has always been more complicated.`\
+https://nytimes.com/2025/03/14/opinion/zelensky-ukraine-war.html
+
+**Dr. Oz’s Dizzying Journey From Heart Doctor to Celebrity to Iconoclast**\
+`A once-respected surgeon found fame and fortune as medicine’s biggest iconoclast. Now he’s on the cusp of power to help shape American public health.`\
+https://nytimes.com/2025/03/14/opinion/dr-oz-medicare-medicaid-trump.html
+
 **Gaudreau's power-play beauty earns the Wild a hard-working point: 3 takeaways**\
 `The Wild are struggling to score but got two power-play goals past Igor Shesterkin to earn an overtime point against the Rangers.`\
 https://nytimes.com/athletic/6202353/2025/03/14/wild-defense-scoring-slump-gaudreau-rangers/

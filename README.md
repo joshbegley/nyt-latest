@@ -1,3 +1,15 @@
+**How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
+`The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
+https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
+
+**Jay Rodriguez on joining Wrexham, playing for England and chatting with Ryan Reynolds**\
+`The striker spent 11 seasons in the Premier League and played for his country but is now battling hard for promotion from League One`\
+https://nytimes.com/athletic/6186363/2025/03/14/jay-rodriguez-wrexham-england-southampton-burnley/
+
+**Odegaard, the 'scoop' pass and why it's so hard to pull off**\
+`Like some of football's finest playmakers, Arsenal captain Odegaard is using the scoop pass to beat a low block. But does it work?`\
+https://nytimes.com/athletic/6197496/2025/03/14/martin-odegaard-arsenal-scoop-pass/
+
 **The New York Times in Print for Friday, March 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/14/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-
 **Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
 `The Wizards' first-round pick in 2023 will miss approximately four-to-six weeks, team officials said.`\
 https://nytimes.com/athletic/6201114/2025/03/14/bilal-coulibaly-injury-wizards-hamstring/
-
-**Another loss demonstrates why Oilers' depth scoring remains pressing issue**\
-`The Oilers lost for the 10th time in their last 15 games, even with Connor McDavid and Leon Draisaitl playing on the same line.`\
-https://nytimes.com/athletic/6202733/2025/03/14/oilers-depth-scoring-henrique-devils/
-
-**Influencer’s Wielding of Wild Wombat Incurs Wrath of a Nation**\
-`A video of an American woman snatching a baby wombat from the side of its mother enraged many in Australia. She left the country Friday.`\
-https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
-
-**In Japan, a Journalist Takes a Stand by Striking Out on His Own**\
-`Makoto Watanabe quit a major newspaper after it retracted a scoop. Now he runs an investigative nonprofit that does not shy away from challenging authority.`\
-https://nytimes.com/2025/03/14/world/asia/japan-journalist.html
 

@@ -1,3 +1,19 @@
+**The New York Times in Print for Friday, March 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/14/todays-new-york-times
+
+**Friday Briefing**\
+`Vladimir Putin’s conditions for a cease-fire.`\
+https://nytimes.com/2025/03/14/briefing/putin-tariffs-gaza.html
+
+**What Zelensky Does Next**\
+`Different sides of the war in Ukraine reach for different, simple narratives about Mr. Zelensky. The truth has always been more complicated.`\
+https://nytimes.com/2025/03/14/opinion/zelensky-ukraine-war.html
+
+**Dr. Oz’s Dizzying Journey From Heart Doctor to Celebrity to Iconoclast**\
+`A once-respected surgeon found fame and fortune as medicine’s biggest iconoclast. Now he’s on the cusp of power to help shape American public health.`\
+https://nytimes.com/2025/03/14/opinion/dr-oz-medicare-medicaid-trump.html
+
 **Gaudreau's power-play beauty earns the Wild a hard-working point: 3 takeaways**\
 `The Wild are struggling to score but got two power-play goals past Igor Shesterkin to earn an overtime point against the Rangers.`\
 https://nytimes.com/athletic/6202353/2025/03/14/wild-defense-scoring-slump-gaudreau-rangers/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
 **In Japan, a Journalist Takes a Stand by Striking Out on His Own**\
 `Makoto Watanabe quit a major newspaper after it retracted a scoop. Now he runs an investigative nonprofit that does not shy away from challenging authority.`\
 https://nytimes.com/2025/03/14/world/asia/japan-journalist.html
-
-**Bonding Over Books and Long Car Rides**\
-`Shannon Wu and John Sanders attended the same book festival in Washington, but didn’t meet until they connected on a dating app.`\
-https://nytimes.com/2025/03/14/style/shannon-wu-john-sanders-wedding.html
-
-**Connections: Sports Edition Coach: Hints for March 14, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6202579/2025/03/14/connections-sports-edition-hints-for-march-14-2025/
-
-**Why China Is Worried About Trump’s Tariffs on Mexico**\
-`China’s exports to developing markets have soared, opening indirect routes to the U.S. market that officials in Beijing worry may be closed under pressure from President Trump.`\
-https://nytimes.com/2025/03/14/business/china-mexico-tariffs-trump.html
-
-**On Good Footing After a Polo Tournament**\
-`A few months after Dr. Orion Mercaitis leased a polo pony from Olivia Stringer in Aiken, S.C., their relationship took off at a gallop.`\
-https://nytimes.com/2025/03/14/style/olivia-stringer-orion-mercaitis-wedding.html
 
