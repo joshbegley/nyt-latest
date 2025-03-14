@@ -1,3 +1,19 @@
+**Scoop City: NFL's highest and most underpaid players as free agency slows**\
+`Inside: Who are the NFL&#8217;s highest-paid players, now that free agency is mostly done? Plus, the league&#8217;s most underpaid, how Sean McVay recruits and why Micah Parsons is so angry.`\
+https://nytimes.com/athletic/6203738/2025/03/14/nfl-highest-paid-underpaid-players-2024-2025-scoop-city/
+
+**Jessie Holmes, former reality TV star, wins longest-ever Iditarod dog race**\
+`Holmes finished in 10 days, 14 hours, 55 minutes and 41 seconds.`\
+https://nytimes.com/athletic/6203410/2025/03/14/jessie-holmes-iditarod-dog-race/
+
+**Hope for a Trump Energy Boom Is Marred by Anxiety About Tariffs**\
+`Energy executives meeting in Houston expressed concerns about President Trump’s trade and economic policy even as they praised him and his administration.`\
+https://nytimes.com/2025/03/14/business/energy-environment/trump-energy-oil-gas.html
+
+**Canada Has a New Prime Minister With a Very Hard First Assignment**\
+`Mark Carney, a central banker turned politician, steps into his role at a crucial moment as President Trump sets his sights on Canada’s sovereignty and keeps threatening more tariffs.`\
+https://nytimes.com/2025/03/14/world/canada/canada-prime-minister-mark-carney-trump.html
+
 **Supreme Court Revives Long-Running Nazi Art Restitution Case**\
 `The case involving a Pissarro is being sent back to federal court in California for review in light of a new state law, in a dispute between heirs and a Spanish museum.`\
 https://nytimes.com/2025/03/14/arts/design/supreme-court-pissarro-nazi-art-restitution.html
@@ -20,21 +36,5 @@ https://nytimes.com/athletic/6203604/2025/03/14/ted-lasso-season-four/
 
 **U.S. Consumer Sentiment Drops as Inflation Anxiety Soars**\
 `A new survey from the University of Michigan shows Americans bracing for economic pain as tariffs and policy uncertainty bite.`\
-https://nytimes.com/2025/03/14/us/politics/inflation-consumer-sentiment.html
-
-**Tariff Pain First, Deals Later, U.S. Tells Canada in Key Meeting**\
-`In talks aimed at finding common ground on tariffs, Canadian officials were told April 2 will be a crucial day in setting the Trump tariff doctrine, and any relief could come later.`\
-https://nytimes.com/2025/03/14/world/canada/trump-tariffs-canada-global-trade.html
-
-**Confirm or Deny: Graydon Carter Edition**\
-`A king of the glossy-magazine era sits for a lightning-round interview.`\
-https://nytimes.com/2025/03/14/style/confirm-or-deny-graydon-carter-edition.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, multidimensional comedy and extraterrestrial drama.`\
-https://nytimes.com/2025/03/14/movies/science-fiction-movies-streaming.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 29?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6194997/2025/03/14/premier-league-predicted-lineups-gw29/
+https://nytimes.com/2025/03/14/business/inflation-consumer-sentiment.html
 
