@@ -1,3 +1,7 @@
+**Norwegian Ski Jumpers Suspended for Illegal Alterations to Their Suits**\
+`The skiers tried to find an extra edge to fly farther by adjusting the crotch of their suits. “We regret it like dogs,” the team’s coach said.`\
+https://nytimes.com/2025/03/14/sports/skiing/norway-ski-jumping-cheating-scandal.html
+
 **JuJu Watkins signs exclusive memorabilia, trading card deal with Fanatics**\
 `Watkins achieves another first in the collectibles world `\
 https://nytimes.com/athletic/6203726/2025/03/14/juju-watkins-fanatics-usc-memorabilia-cards/
