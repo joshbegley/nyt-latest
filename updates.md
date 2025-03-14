@@ -1,3 +1,19 @@
+****\
+`(No description)`\
+https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.html
+
+**Stocks rebound after the S&P 500 fell into a correction but are still heading for a weekly drop.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2025/03/14/us/trump-government-shutdown-news/stocks-rebound-after-the-sp-500-fell-into-a-correction-but-are-still-heading-for-a-weekly-drop
+
+**How a Columbia Activist’s Arrest Has Ignited a Free Speech Battle**\
+`Department of Homeland Security officers arrested Mahmoud Khalil, a recent Columbia University graduate who helped lead campus protests against Israel’s assault in Gaza.`\
+https://nytimes.com/video/us/politics/100000010047548/how-a-columbia-activists-arrest-has-ignited-a-free-speech-battle.html
+
+**Bucks' unconventional starting lineup may be causing defensive issues: 3 observations**\
+`The Bucks have size, but they're struggling at the point of attack. Plus playing through mistakes and Jericho Sims' minutes.`\
+https://nytimes.com/athletic/6203066/2025/03/14/bucks-defense-jericho-sims/
+
 **Dr. Sheldon Greenfield, Who Exposed Gaps in Health Care, Dies at 86**\
 `The author of numerous studies, he urged patients to question their physicians and expressed concern about cancer treatment for older adults.`\
 https://nytimes.com/2025/03/14/health/dr-sheldon-greenfield-dead.html
