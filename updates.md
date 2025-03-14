@@ -1,3 +1,7 @@
+**Why a 100-year-old tree is unnerving the Players Championship field**\
+`“It's meant to be intimidating. So if someone says hey, I have a problem with that tree. I’m like, good, that’s what Pete wanted.”`\
+https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
+
 **Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
 `Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
 https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
