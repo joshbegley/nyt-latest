@@ -1,5 +1,21 @@
-**The Senate Is Set to Pass a Bill to Avoid a Shutdown**\
-`Also, the advance of A.G.I.`\
+**Tuchel says he must 'earn the right' to sing national anthem**\
+`Thomas Tuchel believes that he must “earn the right” to sing the national anthem before England games.`\
+https://nytimes.com/athletic/6203872/2025/03/14/thomas-tuchel-national-anthem-england/
+
+**Postecoglou: Some of my Tottenham criticism is 'cheap and shallow'**\
+`The 59-year-old gave a lengthy answer when he was asked about the scrutiny managers face.`\
+https://nytimes.com/athletic/6204241/2025/03/14/ange-postecoglou-tottenham-critics/
+
+**Normani Is Engaged — With a Little Help From Her Famous Matchmakers**\
+`The R&B artist and the newly traded Pittsburgh Steeler DeKaylin “DK” Metcalf are a success story for friends playing matchmaker. The pair were introduced by Ciara and Russell Wilson in 2022.`\
+https://nytimes.com/2025/03/14/style/normani-dk-metcalf-engaged.html
+
+**Collin Morikawa, the media and the tension at this Players Championship**\
+`Between Morikawa's war of words with the "Live From" analysts to Rory McIlroy's incident with a fan, it's been a week at TPC Sawgrass.`\
+https://nytimes.com/athletic/6204638/2025/03/14/players-championship-collin-morikawa-media/
+
+**The Senate Voted to Avoid a Shutdown**\
+`Also, the advance of A.G.I. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/03/14/briefing/the-senate-is-set-to-pass-a-bill-to-avoid-a-shutdown.html
 
 **Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketba
 **Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
 `The son of an immigrant, he represented a majority Hispanic district in Arizona for 12 terms but had lately been absent from Capitol Hill while being treated for cancer.`\
 https://nytimes.com/2025/03/14/us/politics/raul-m-grijalva-dead.html
-
-**Famous Climate Observatory’s Lease May End Because of DOGE**\
-`NOAA, the nation’s leading climate science agency, may lose dozens of offices, including one that is key to the Mauna Loa Observatory in Hawaii.`\
-https://nytimes.com/2025/03/14/climate/noaa-lease-mauna-loa.html
-
-**TEFAF Returns With Majesty in an Uncertain Market**\
-`The fair has a jewel of a 16th-century illuminated manuscript, and other museum-quality items, but fewer standouts over all. Sales were still brisk.`\
-https://nytimes.com/2025/03/14/arts/design/tefaf-maastricht.html
-
-**G7 Foreign Ministers Keep Tensions in Check to Agree on Ukraine Policy**\
-`Secretary of State Marco Rubio found himself among allies in a fraught moment after President Trump’s tariff policies.`\
-https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
-
-**Trump Administration Opens Leak Investigations**\
-`Tulsi Gabbard, the director of national intelligence, said she intended to hold officials who released information “accountable.”`\
-https://nytimes.com/2025/03/14/us/politics/trump-administration-leak-investigations.html
 
