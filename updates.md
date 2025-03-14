@@ -1,3 +1,12 @@
+**Alexander-Arnold out of Carabao Cup final; Konate expected to play**\
+`The right-back was forced off injured during the second half of Liverpool's Champions League defeat against PSG on Tuesday.`\
+https://nytimes.com/athletic/6196972/2025/03/14/trent-alexander-arnold-injury-carabao-cup-final/
+
+**Two players across Premier League, EFL tested positive for banned substance in 2023-24**\
+`An FOI request with UK Anti-Doping (UKAD) showed two players tested positive for a banned substance from the 606 tests carried out.
+`\
+https://nytimes.com/athletic/6201574/2025/03/14/premier-league-efl-drugs/
+
 **Two Astronauts on an 8-Day Mission That Turned Into a 9-Month Odyssey**\
 `An exclusive interview with Suni Williams and Butch Wilmore, whose planned short mission to space turned into an adventure lasting much, much longer.`\
 https://nytimes.com/2025/03/14/podcasts/the-daily/nasa-spacex-astronauts-iss-launch.html
