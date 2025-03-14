@@ -1,3 +1,7 @@
+**Bird Flu Kills 2 Pet Cats in New York City, Officials Say**\
+`Health authorities say the threat of infection for people remained low even amid the spread of H5N1 virus among birds and cattle nationally.`\
+https://nytimes.com/2025/03/14/nyregion/pet-cats-bird-flu-new-york-city.html
+
 **Ocasio-Cortez Lashes Out at Schumer Over His Support for G.O.P. Budget**\
 `Representative Alexandria Ocasio-Cortez criticized a fellow New York lawmaker, Senator Chuck Schumer, for siding with Republicans. Her tough language even drew talk of a primary challenge.`\
 https://nytimes.com/2025/03/14/nyregion/aoc-schumer-democrats-ny.html

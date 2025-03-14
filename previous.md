@@ -1,3 +1,7 @@
+**Bird Flu Kills 2 Pet Cats in New York City, Officials Say**\
+`Health authorities say the threat of infection for people remained low even amid the spread of H5N1 virus among birds and cattle nationally.`\
+https://nytimes.com/2025/03/14/nyregion/pet-cats-bird-flu-new-york-city.html
+
 **Ocasio-Cortez Lashes Out at Schumer Over His Support for G.O.P. Budget**\
 `Representative Alexandria Ocasio-Cortez criticized a fellow New York lawmaker, Senator Chuck Schumer, for siding with Republicans. Her tough language even drew talk of a primary challenge.`\
 https://nytimes.com/2025/03/14/nyregion/aoc-schumer-democrats-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204107/2025/03/14/kareem-hunt-free-agency-2025-chi
 **Video 1 - Flau'jae**\
 `MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
 https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
-
-**UFL players association files unfair labor practice charges against league**\
-`The season is currently scheduled to kick off with a game between the St. Louis Battlehawks and Houston Roughnecks on March 28.`\
-https://nytimes.com/athletic/6204201/2025/03/14/united-football-league-players-union/
 
