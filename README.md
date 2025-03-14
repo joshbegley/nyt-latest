@@ -1,3 +1,7 @@
+**Gold Hits Record High Amid Tariff Anxiety**\
+`The price of gold, considered a haven during turmoil, surpassed $3,000 per ounce for the first time as investors send U.S. stock markets tumbling.`\
+https://nytimes.com/2025/03/14/us/politics/gold-price-record-high.html
+
 **USC mailbag: What made the Trojans finally pay attention to local talent?**\
 `Who's going to be the starting quarterback? Is Lincoln Riley in danger of getting fired?`\
 https://nytimes.com/athletic/6201975/2025/03/14/usc-football-recruiting-spring-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6201275/2025/03/14/nottingham-forest-steph-curry-40
 **Men's college basketball bubble watch: Boise State, UNC battle on**\
 `Another day of chaos on the bubble leaves us with plenty to discuss.`\
 https://nytimes.com/athletic/6203211/2025/03/14/mens-ncaa-tournament-bubble-watch-unc-boise-state/
-
-**Trump Administration Live Updates: Schumer Says Enough Democrats Will Vote Today to Avert Government Shutdown**\
-``\
-https://nytimes.com/live/2025/03/14/us/trump-government-shutdown-news
 
