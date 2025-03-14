@@ -1,7 +1,3 @@
-**Why a 100-year-old tree is unnerving the Players Championship field**\
-`“It's meant to be intimidating. So if someone says hey, I have a problem with that tree. I’m like, good, that’s what Pete wanted.”`\
-https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
-
 **Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
 `Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
 https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/03/13/us/trump-tariff-government-news/raul-grijalv
 **State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
 `Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
 https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
+
+**Daniel Jones, Colts' newest QB, hoping for chance to 'compete' in Indy**\
+`Jones wants to start again, and in order to do so, he'll have to beat Anthony Richardson, the Colts’ 2023 No. 4 pick, for the job`\
+https://nytimes.com/athletic/6201689/2025/03/13/daniel-jones-indianapolis-colts-quarterback-competition/
 
