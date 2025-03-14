@@ -1,3 +1,23 @@
+**Ocasio-Cortez Lashes Out at Schumer Over His Support for G.O.P. Budget**\
+`Representative Alexandria Ocasio-Cortez criticized a fellow New York lawmaker, Senator Chuck Schumer, for siding with Republicans. Her tough language even drew talk of a primary challenge.`\
+https://nytimes.com/2025/03/14/nyregion/aoc-schumer-democrats-ny.html
+
+**Senate Passes Bill to Make Penalties Permanent for Fentanyl-Related Drugs**\
+`The measure, which passed with bipartisan support and minor changes, now heads back to the House. It is just the second legislative victory for the new Republican-controlled Congress.`\
+https://nytimes.com/2025/03/14/us/politics/congress-fentanyl.html
+
+**Justices to Consider Request to Lift Nationwide Pause on Birthright Citizenship Order**\
+`The justices requested responses by early April from the states and groups who had challenged the executive order.`\
+https://nytimes.com/2025/03/14/us/politics/supreme-court-birthright-citizenship.html
+
+**The Climate Fix: Nuclear Waste Finds Its Forever Home**\
+`Finland may soon become the first country to develop a permanent way to store spent nuclear fuel by burying it in tunnels deep underground.`\
+https://nytimes.com/2025/03/14/climate/nuclear-waster-permanent-storage-finland.html
+
+**Mets pitcher Clay Holmes to make first start since 2018 on Opening Day**\
+`Holmes has made all of four big-league starts, all of them as a rookie with the Pirates in 2018.`\
+https://nytimes.com/athletic/6204290/2025/03/14/clay-holmes-mets-opening-day-starter/
+
 **Flashback: Your Weekly History Quiz, March 15, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/03/14/upshot/flashback.html
@@ -17,24 +37,4 @@ https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
 **UFL players association files unfair labor practice charges against league**\
 `The season is currently scheduled to kick off with a game between the St. Louis Battlehawks and Houston Roughnecks on March 28.`\
 https://nytimes.com/athletic/6204201/2025/03/14/united-football-league-players-union/
-
-**Senior Islamic State Leader Killed in Joint Iraqi-U.S. Operation, Iraq Says**\
-`The killing comes as the group has been reconstituting in Syria, carrying out more attacks than at any time since it lost control of its territory nearly six years ago.`\
-https://nytimes.com/2025/03/14/world/middleeast/islamic-state-leader-killed-iraq-us.html
-
-**Overlooked No More: Beulah Henry, Inventor With an Endless Imagination**\
-`She was so prolific — reimagining things as varied as toys, typewriters, umbrellas and ice-cream makers — that she earned the nickname Lady Edison.`\
-https://nytimes.com/2025/03/14/obituaries/beulah-henry-overlooked.html
-
-**45 Schools Under Federal Investigation Over a Small Diversity Project**\
-`The Ph.D. Project works with universities to increase the racial diversity of professors in business schools. Schools like Yale and Ohio State were named in the investigation.`\
-https://nytimes.com/2025/03/14/us/politics/phd-project-education-department.html
-
-**Fran McCaffery dismissed as Iowa men's basketball coach after 15 seasons**\
-`Under McCaffery, Iowa was ranked nationally in eight seasons but never reached the Sweet 16, an ongoing program drought since 1999.`\
-https://nytimes.com/athletic/6185165/2025/03/14/iowa-basketball-coach-fran-mccaffery-dismissed/
-
-**Postecoglou: 'Potentially' more midfield opportunities for Gray this season**\
-`Gray started seven games in a row at centre-back between December and January as Postecoglou’s squad was crippled by an injury crisis.`\
-https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
 

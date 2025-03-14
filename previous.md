@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, March 15, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/14/upshot/flashback.html
+
 **A Small but Important Risk in Trump’s Tariff Games**\
 `What will happen if foreign investors start shunning U.S. government debt.`\
 https://nytimes.com/2025/03/14/opinion/bond-investors-debt-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185165/2025/03/14/iowa-basketball-coach-fran-mccaf
 **Postecoglou: 'Potentially' more midfield opportunities for Gray this season**\
 `Gray started seven games in a row at centre-back between December and January as Postecoglou’s squad was crippled by an injury crisis.`\
 https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
-
-**Tuchel picking 34-year-old Henderson for England underlines two inconvenient truths**\
-`The decision to recall Henderson defined Tuchel's first England squad - and demonstrated he is not here to win popularity contests`\
-https://nytimes.com/athletic/6203973/2025/03/14/tuchel-henderson-england-squad-world-cup/
 
