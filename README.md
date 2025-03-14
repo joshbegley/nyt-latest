@@ -1,40 +1,40 @@
-**China Condemns Panama Canal Deal, Asserting a Right to Influence the Region**\
-`The Hong Kong conglomerate CK Hutchison’s planned sale of ports in Panama to a group led by BlackRock, the American finance giant, is under fire from Beijing.`\
-https://nytimes.com/2025/03/14/business/panama-canal-ck-hutchison-blackrock.html
+**Two Astronauts on an 8-Day Mission That Turned Into a 9-Month Odyssey**\
+`An exclusive interview with Suni Williams and Butch Wilmore, whose planned short mission to space turned into an adventure lasting much, much longer.`\
+https://nytimes.com/2025/03/14/podcasts/the-daily/nasa-spacex-astronauts-iss-launch.html
 
-**Why no Morgan Gibbs-White? Forest's star player deserved a place in Tuchel's first England squad**\
-`Gibbs-White’s omission will not just surprise a lot of people at Forest, but many others who have followed his emergence`\
-https://nytimes.com/athletic/6202389/2025/03/14/why-no-morgan-gibbs-white-forests-star-player-deserved-a-place-in-tuchels-first-england-squad/
+**Two Astronauts on an 8-Day Mission That Turned Into a 9-Month Odyssey**\
+`It all started in June, when the astronauts Butch Wilmore and Suni Williams embarked on what was supposed to be a short stay on the International Space Station. Months later, they are finally preparing to return.`\
+https://nytimes.com/video/podcasts/the-daily/100000010043916/two-astronauts-on-an-8-day-mission-that-turned-into-a-9-month-odyssey.html
 
-**Forecasters Warn of ‘Wildfire Outbreak’ Across Texas and Oklahoma**\
-`Strong winds and dry conditions could help fuel fires in parts of the Southwest and the Plains on Friday.`\
-https://nytimes.com/2025/03/14/weather/texas-oklahoma-fire-weather.html
+**Bears O-line, Colts secondary, Rams WR corps among most improved units in free agency**\
+`Perhaps all of the new signings won't pan out in the long term, but they should lead to immediate improvement.`\
+https://nytimes.com/athletic/6196682/2025/03/14/most-improved-units-free-agency/
 
-**The New York Times International Edition in Print for Saturday, March 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/14/todays-new-york-times-international-edition
+**Optimism is on the rise for Detroit Tigers fans, according to our 2025 survey**\
+`See how Tigers fans felt about Scott Harris, A.J. Hinch, Chris Ilitch and more in our annual poll. `\
+https://nytimes.com/athletic/6201650/2025/03/14/detroit-tigers-2025-fan-survey-results-optimism-on-rise/
 
-**Rashford's England return must be next stage of his Villa career renaissance**\
-`Marcus Rashford has unexpectedly been called up to the England squad for Thomas Tuchel's first games`\
-https://nytimes.com/athletic/6202037/2025/03/14/marcus-rashford-england-aston-villa/
+**Head-to-head matchup proves Maple Leafs aren't on the Panthers' level yet**\
+`Special teams made all the difference in a battle of two teams fighting for the top spot in the Atlantic Division.`\
+https://nytimes.com/athletic/6202635/2025/03/14/maple-leafs-atlantic-division-berube-panthers/
 
-**Tuchel's first England squad live Q&A: Jack Pitt-Brooke answers your questions**\
-`What do you think of Tuchel's first squad? Get your questions in for Jack Pitt-Brooke and he'll answer as many as he can between 10 and 11am`\
-https://nytimes.com/athletic/6201075/2025/03/14/thomas-tuchel-england-squad-discuss/
+**How Ben Johnson impacted the Chicago Bears' aggressive start to free agency**\
+`Players are excited to come play for new Bears head coach Ben Johnson, we learned as we met the five acquisitions at Halas Hall.`\
+https://nytimes.com/athletic/6201890/2025/03/14/bears-ben-johnson-nfl-free-agency-2025/
 
-**Why Syrians Are Fleeing to Lebanon**\
-`Text by Diego Ibarra Sanchez`\
-https://nytimes.com/card/2025/03/14/world/middleeast/syria-clashes-alawite-lebanon
+**For Jamaica, Messi's rare visit is not just another night at The Office**\
+`Messi fulfilled his mission in the Caribbean, entertaining and scoring for the tens of thousands who came to catch a glimpse of the GOAT.`\
+https://nytimes.com/athletic/6202463/2025/03/14/messi-goal-jamaica-kingston-cavalier-inter-miami-pele/
 
-**Deep league breakout pitchers for the 2025 fantasy baseball season**\
-`Eno Sarris identifies six late-round fantasy baseball starting pitcher options who show the potential for a tidy return on investment.`\
-https://nytimes.com/athletic/6191864/2025/03/14/deep-league-breakout-pitchers-for-the-2025-fantasy-baseball/
+**Meet the former F1 engineer behind the 'world's best croissant'**\
+`Without F1, Kate Reid's world-famous croissants would never have existed. Find out why in this exclusive excerpt. `\
+https://nytimes.com/athletic/6201684/2025/03/14/f1-australian-gp-croissants-kate-reid/
 
-**Trump to Deliver Speech to Justice Dept. After Triumph in Battles Against It**\
-`The president, once the target of federal prosecution, is likely to announce steps to combat “weaponization” of the department, even as he uses its powers to punish enemies and reward allies.`\
-https://nytimes.com/2025/03/14/us/politics/trump-speech-justice-department.html
+**NBA Misery Index: Suns, Mavs, 76ers fans have had it bad. But who's had it worse?**\
+`Disappointment has been a common theme across the league even more than normal. One teams stands above the rest.`\
+https://nytimes.com/athletic/6194291/2025/03/14/nba-misery-suns-sixers-mavericks/
 
-**SpaceX Tries Again to Launch NASA’s Crew-10 Mission to the I.S.S.: How to Watch**\
-`The flight was scrubbed on Wednesday night, and the astronauts will return to the launchpad for their trip to the International Space Station.`\
-https://nytimes.com/2025/03/14/science/nasa-spacex-astronauts-iss-launch.html
+**'So proud of our boy': With family in attendance, Braden Schneider scores OT winner**\
+`Schneider's parents watched the goal from Section 126, then saw their son drop to a knee and punch the air in celebration.`\
+https://nytimes.com/athletic/6202760/2025/03/14/braden-schneider-family-ot-winner/
 
