@@ -1,3 +1,7 @@
+**Corrections: March 14, 2025**\
+`Corrections that appeared in print on Friday, March 14, 2025.`\
+https://nytimes.com/2025/03/13/pageoneplus/corrections-march-14-2025.html
+
 **$3.5 Million Settlement in Sacramento Jail Death**\
 `The fatal overdose of a homeless man at a Sacramento County jail is one of multiple deaths in which staff have been accused of medical neglect.`\
 https://nytimes.com/2025/03/13/us/california-jail-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/theater/anne-kaufman-schneider-dead.html
 **Researchers Find Shipwreck Lost Since 1892**\
 `The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
 https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-superior.html
-
-**Colts' Charvarius Ward seeks fresh start after tragedy: 'I had to get out of San Francisco'**\
-`The new Colts cornerback said he was looking for a fresh start just months after the death of his 1-year-old daughter. `\
-https://nytimes.com/athletic/6202223/2025/03/13/colts-charvarius-ward-fresh-start-free-agency/
 

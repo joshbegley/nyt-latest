@@ -1,3 +1,15 @@
+**$3.5 Million Settlement in Sacramento Jail Death**\
+`The fatal overdose of a homeless man at a Sacramento County jail is one of multiple deaths in which staff have been accused of medical neglect.`\
+https://nytimes.com/2025/03/13/us/california-jail-death.html
+
+**Dodgers announce Tokyo travel roster: 31 thoughts on the 31 players**\
+`The Dodgers brought plenty of star power abroad and also fun stories like Jack Dreyer, Nick Frasso and Luis García. `\
+https://nytimes.com/athletic/6197420/2025/03/13/dodgers-tokyo-travel-roster/
+
+**Players Championship analysis: What to know after Round 1**\
+`Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all — nearly 50 feet more than his average.`\
+https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
+
 **Players Championship analysis: What to know after Round 1**\
 `Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all – nearly 50 feet more than his average.`\
 https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
