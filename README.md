@@ -1,5 +1,5 @@
-**Bobby Brink shows Flyers he belongs as he takes his game 'to another level'**\
-`Brink had his second career two-goal game as the Flyers finally ended a five-losing streak.`\
+**Bobby Brink takes his game 'to another level,' shows Flyers he belongs**\
+`Brink had his second career two-goal game as the Flyers finally ended a five-game losing streak.`\
 https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
 
 **Steph Curry becomes first NBA player to make 4,000 3-pointers**\

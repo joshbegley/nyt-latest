@@ -1,3 +1,11 @@
+**Bobby Brink shows Flyers he belongs as he takes his game 'to another level'**\
+`Brink had his second career two-goal game as the Flyers finally ended a five-losing streak.`\
+https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
+
+**Steph Curry becomes first NBA player to make 4,000 3-pointers**\
+`Curry, who will turn 37 on Friday, entered Thursday already having made 251 3s this season, leading the league at 4.5 per game.`\
+https://nytimes.com/athletic/6201080/2025/03/13/steph-curry-warriors-three-pointers-career/
+
 **Is Tristan Jarry borrowing from Rickard Rakell's script last season?**\
 `Jarry is the biggest reason the Penguins have won three consecutive games for only the second time this season.`\
 https://nytimes.com/athletic/6202615/2025/03/13/penguins-tristan-jarry-turnaround-rickard-rakell-blues/
