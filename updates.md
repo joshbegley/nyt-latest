@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems playoffs preview: Alex Vlasic, Lane Hutson on the rise**\
+`The fantasy hockey playoffs are finally near, and Shayna Goldman's advice, can help you win a championship. `\
+https://nytimes.com/athletic/6202512/2025/03/14/fantasy-trends-hidden-gems-playoff-preview/
+
+**How Manchester United showed 'a little bit of the future' in Real Sociedad win**\
+`On Thursday night United showed concrete signs that they are starting to understand what Ruben Amorim wants from them out of possession`\
+https://nytimes.com/athletic/6203261/2025/03/14/manchester-united-real-sociedad-analysis/
+
 **Duterte Appears in Court in The Hague via Video After Arrest**\
 `Rights groups have said tens of thousands were killed in his antidrug campaign while he was the president of the Philippines.`\
 https://nytimes.com/2025/03/14/world/asia/duterte-philippines-icc-crimes-against-humanity.html
