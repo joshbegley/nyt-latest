@@ -1,3 +1,7 @@
+**Real Madrid's Asencio receives first Spain call-up**\
+`Asencio's inclusion comes amid an ongoing investigation into an allegation he shared a sex tape of a minor.`\
+https://nytimes.com/athletic/6203165/2025/03/14/raul-asencio-spain-squad-real-madrid/
+
 **The coach charged with navigating Manchester City through a season-defining 12 days**\
 `Cushing returns to a WSL that looks very different from the years of his early success in the league`\
 https://nytimes.com/athletic/6200544/2025/03/14/nick-cushing-manchester-city-women/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/dorm-search-columbia-university-dhs.h
 **Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
 `For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
 https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html
-
-**Hamas Says It’s Willing to Free American-Israeli Captive**\
-`The Palestinian armed group said it had agreed to release Edan Alexander and turn over the bodies of four other hostages. Israel did not immediately comment.`\
-https://nytimes.com/2025/03/14/world/middleeast/israel-hamas-hostage-edan-alexander.html
 
