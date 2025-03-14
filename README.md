@@ -1,3 +1,11 @@
+**Quote of the Day: Leaders Standing Up to Trump Widen Their Support at Home**\
+`Quotation of the Day for Friday, March 14, 2025.`\
+https://nytimes.com/2025/03/13/pageoneplus/quote-of-the-day-leaders-standing-up-to-trump-widen-their-support-at-home.html
+
+**Linus Ullmark makes NHL save-of-the-season candidate**\
+`Ullmark's viral web gem should be remembered as his best — and the league's best — of the 2024-25 NHL season.`\
+https://nytimes.com/athletic/6202354/2025/03/13/senators-linus-ullmark-save-nhl/
+
 **Bobby Brink takes his game 'to another level,' shows Flyers he belongs**\
 `Brink had his second career two-goal game as the Flyers finally ended a five-game losing streak.`\
 https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6202099/2025/03/13/maple-leafs-panthers-atlantic-di
 **Postal Service Reaches Deal With Musk’s Department of Government Efficiency**\
 `The U.S. Postal Service has long struggled with its finances. President Trump and Mr. Musk have both suggested it should be privatized.`\
 https://nytimes.com/2025/03/13/us/politics/postal-service-musk-doge.html
-
-**McCaffery's last stand? Coach tossed in Iowa's season-ending blowout loss**\
-`Asked if he expects to be back leading the team next season, the coach said, "I do."`\
-https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss/
-
-**JD Vance Is Booed at a Kennedy Center Concert After Trump’s Takeover**\
-`The vice president and his wife were booed as they took their seats for a National Symphony Orchestra concert of music by Shostakovich and Stravinsky.`\
-https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
 
