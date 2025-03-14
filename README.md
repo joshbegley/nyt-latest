@@ -1,8 +1,16 @@
+**Being a Raven is what DeAndre Hopkins wanted. Lamar Jackson is a big reason why**\
+`Hopkins, who signed a one-year deal with Baltimore, has spoken openly about how much he’d like to play with Jackson. Now he gets his chance.`\
+https://nytimes.com/athletic/6204328/2025/03/14/deandre-hopkins-ravens-lamar-jackson/
+
+**An Agoraphobe Goes to the Grocery Store**\
+`It had been more than 365 days since I went to the supermarket. So I steeled myself and ventured out.`\
+https://nytimes.com/interactive/2025/03/14/magazine/agoraphobia-grocery-store.html
+
 **Yankees name Carlos Rodón as Opening Day starter vs. Brewers**\
 `It will be Rodón’s first Opening Day start since joining the Yankees in 2023 on a six-year, $162-million contract.`\
 https://nytimes.com/athletic/6204355/2025/03/14/yankees-carlos-rodon-opening-day-starter/
 
-**What the Titans free agency moves could mean for the 2025 NFL Draft**\
+**What the Titans' free agency moves could mean for the 2025 NFL Draft**\
 `The fact that they’ve averted their attention from available starting QBs seems to indicate where they’re leaning in the draft`\
 https://nytimes.com/athletic/6204287/2025/03/14/titans-free-agency-nfl-draft-quarterback/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/climate/nuclear-waster-permanent-storage-finland.
 **Mets pitcher Clay Holmes to make first start since 2018 on Opening Day**\
 `Holmes has made all of four big-league starts, all of them as a rookie with the Pirates in 2018.`\
 https://nytimes.com/athletic/6204290/2025/03/14/clay-holmes-mets-opening-day-starter/
-
-**Flashback: Your Weekly History Quiz, March 15, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/03/14/upshot/flashback.html
-
-**A Small but Important Risk in Trump’s Tariff Games**\
-`What will happen if foreign investors start shunning U.S. government debt.`\
-https://nytimes.com/2025/03/14/opinion/bond-investors-debt-trump-tariffs.html
 

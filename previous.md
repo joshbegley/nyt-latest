@@ -1,3 +1,11 @@
+**Yankees name Carlos Rodón as Opening Day starter vs. Brewers**\
+`It will be Rodón’s first Opening Day start since joining the Yankees in 2023 on a six-year, $162-million contract.`\
+https://nytimes.com/athletic/6204355/2025/03/14/yankees-carlos-rodon-opening-day-starter/
+
+**What the Titans free agency moves could mean for the 2025 NFL Draft**\
+`The fact that they’ve averted their attention from available starting QBs seems to indicate where they’re leaning in the draft`\
+https://nytimes.com/athletic/6204287/2025/03/14/titans-free-agency-nfl-draft-quarterback/
+
 **Bird Flu Kills 2 Pet Cats in New York City, Officials Say**\
 `Health authorities say the threat of infection for people remained low even amid the spread of H5N1 virus among birds and cattle nationally.`\
 https://nytimes.com/2025/03/14/nyregion/pet-cats-bird-flu-new-york-city.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/14/upshot/flashback.html
 **A Small but Important Risk in Trump’s Tariff Games**\
 `What will happen if foreign investors start shunning U.S. government debt.`\
 https://nytimes.com/2025/03/14/opinion/bond-investors-debt-trump-tariffs.html
-
-**Chiefs bring back leading rusher Kareem Hunt on 1-year deal: Source**\
-`Hunt led the Chiefs in rushing yards and rushing touchdowns in 2024. `\
-https://nytimes.com/athletic/6204107/2025/03/14/kareem-hunt-free-agency-2025-chiefs/
-
-**Video 1 - Flau'jae**\
-`MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
-https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
 

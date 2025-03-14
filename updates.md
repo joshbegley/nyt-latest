@@ -1,3 +1,11 @@
+**Yankees name Carlos Rodón as Opening Day starter vs. Brewers**\
+`It will be Rodón’s first Opening Day start since joining the Yankees in 2023 on a six-year, $162-million contract.`\
+https://nytimes.com/athletic/6204355/2025/03/14/yankees-carlos-rodon-opening-day-starter/
+
+**What the Titans free agency moves could mean for the 2025 NFL Draft**\
+`The fact that they’ve averted their attention from available starting QBs seems to indicate where they’re leaning in the draft`\
+https://nytimes.com/athletic/6204287/2025/03/14/titans-free-agency-nfl-draft-quarterback/
+
 **Bird Flu Kills 2 Pet Cats in New York City, Officials Say**\
 `Health authorities say the threat of infection for people remained low even amid the spread of H5N1 virus among birds and cattle nationally.`\
 https://nytimes.com/2025/03/14/nyregion/pet-cats-bird-flu-new-york-city.html
