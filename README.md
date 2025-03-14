@@ -2,7 +2,7 @@
 `The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
 https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
 
-**Whitely 'just so proud' after Liverpool secure first WSL win at Anfield**\
+**Whiteley 'just so proud' after Liverpool secure first WSL win at Anfield**\
 `Liverpool stunned Manchester United with a 3-1 victory on Friday night.`\
 https://nytimes.com/athletic/6204692/2025/03/14/amber-whitely-liverpool-wsl-anfield/
 
