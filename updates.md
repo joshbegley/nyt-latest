@@ -1,3 +1,15 @@
+**DeMarcus Lawrence takes shot at Cowboys, sparking tiff with Micah Parsons**\
+`New Seahawks defensive lineman said of Dallas: "I’m not going to win a Super Bowl there." His ex-teammate offered a pointed response.`\
+https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
+
+**Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
+`The Wizards' 20-year-old first-round pick in 2023 will miss approximately four-to-six weeks, team officials said. `\
+https://nytimes.com/athletic/6201114/2025/03/14/bilal-coulibaly-injury-wizards-hamstring/
+
+**Another loss demonstrates why Oilers' depth scoring remains a pressing issue**\
+`The Oilers lost for the 10th time in their last 15 games, even with McDavid and Draisaitl playing on the same line.`\
+https://nytimes.com/athletic/6202733/2025/03/14/oilers-depth-scoring-henrique-devils/
+
 **Influencer’s Wielding of Wild Wombat Incurs Wrath of a Nation**\
 `A video of an American woman snatching a baby wombat from the side of its mother enraged many in Australia. She left the country Friday.`\
 https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
