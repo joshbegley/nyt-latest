@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-b
 https://nytimes.com/athletic/6202301/2025/03/14/spurs-alkmaar-odobert-van-de-ven-romero/
 
 **Rashford set for England return, Grealish to be left out**\
-`Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia`\
+`Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia.`\
 https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
 
 **Chelsea's Conference League margin for error can only benefit Champions League hopes**\

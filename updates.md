@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-b
 `\
 https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
 
+**Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
+`Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
+`\
+https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
+
 **Chelsea reach agreement with Sporting to sign Quenda**\
 `The 17-year-old will remain at the Portuguese club next season and then move to Stamford Bridge in July 2026.`\
 https://nytimes.com/athletic/6130940/2025/03/14/geovany-quenda-chelsea-transfer/
