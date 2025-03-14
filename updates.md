@@ -1,3 +1,15 @@
+**Being a Raven is what DeAndre Hopkins wanted. Lamar Jackson is a big reason why**\
+`Hopkins, who signed a one-year deal with Baltimore, has spoken openly about how much he’d like to play with Jackson. Now he gets his chance.`\
+https://nytimes.com/athletic/6204328/2025/03/14/deandre-hopkins-ravens-lamar-jackson/
+
+**An Agoraphobe Goes to the Grocery Store**\
+`It had been more than 365 days since I went to the supermarket. So I steeled myself and ventured out.`\
+https://nytimes.com/interactive/2025/03/14/magazine/agoraphobia-grocery-store.html
+
+**What the Titans' free agency moves could mean for the 2025 NFL Draft**\
+`The fact that they’ve averted their attention from available starting QBs seems to indicate where they’re leaning in the draft`\
+https://nytimes.com/athletic/6204287/2025/03/14/titans-free-agency-nfl-draft-quarterback/
+
 **Yankees name Carlos Rodón as Opening Day starter vs. Brewers**\
 `It will be Rodón’s first Opening Day start since joining the Yankees in 2023 on a six-year, $162-million contract.`\
 https://nytimes.com/athletic/6204355/2025/03/14/yankees-carlos-rodon-opening-day-starter/
