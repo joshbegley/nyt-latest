@@ -1,3 +1,11 @@
+**A Small but Important Risk in Trump’s Tariff Games**\
+`What will happen if foreign investors start shunning U.S. government debt.`\
+https://nytimes.com/2025/03/14/opinion/bond-investors-debt-trump-tariffs.html
+
+**Chiefs bring back leading rusher Kareem Hunt on 1-year deal: Source**\
+`Hunt led the Chiefs in rushing yards and rushing touchdowns in 2024. `\
+https://nytimes.com/athletic/6204107/2025/03/14/kareem-hunt-free-agency-2025-chiefs/
+
 **Video 1 - Flau'jae**\
 `MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
 https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-mid
 **Tuchel picking 34-year-old Henderson for England underlines two inconvenient truths**\
 `The decision to recall Henderson defined Tuchel's first England squad - and demonstrated he is not here to win popularity contests`\
 https://nytimes.com/athletic/6203973/2025/03/14/tuchel-henderson-england-squad-world-cup/
-
-**Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
-`The Oklahoma Board of Education recently approved a new, more conservative social studies agenda that has irked even some Republicans.`\
-https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
-
-**Brock Faber on heavy workload, late-game fatigue and Wild's OT keepaway strategy: 'It's been a grind'**\
-`Playing 10 games in 20 nights since the 4 Nations, Faber’s average ice time is 27:19 — second-highest in the NHL. It's wearing on him.`\
-https://nytimes.com/athletic/6203939/2025/03/14/brock-faber-fatigue-wild-nhl/
 
