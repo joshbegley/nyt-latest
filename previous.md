@@ -1,3 +1,23 @@
+**Draft List for New Travel Ban Proposes Trump Target 43 Countries**\
+`A draft circulating inside the administration lists three tiers of countries whose citizens may face restrictions on entering the United States.`\
+https://nytimes.com/2025/03/14/us/politics/trump-travel-ban.html
+
+**15 Unexpected Bridal Shower Gifts We Love**\
+`Text by Samantha Schoech`\
+https://nytimes.com/card/2025/03/14/smarter-living/wirecutter/15-unexpected-bridal-shower-gifts-we-love
+
+**Elon Musk Shared, Then Removed a Post Absolving Dictators for Genocide**\
+`The post falsely claimed that Joseph Stalin, Adolf Hitler and Mao Zedong were not responsible for the murders of millions of people, but rather public sector workers were.`\
+https://nytimes.com/2025/03/14/technology/elon-musk-x-post-hitler-stalin-mao.html
+
+**Cooper Kupp agrees with Seahawks on deal worth $15M annually: Source**\
+`Since entering the league, Kupp has the sixth-most receptions, seventh-most touchdowns and eighth-most receiving yards among wide receivers.`\
+https://nytimes.com/athletic/6198934/2025/03/14/cooper-kupp-seahawks-nfl-free-agency-2025/
+
+**Education Department Sued Over Cuts to Civil Rights Office**\
+`A new lawsuit argues that recent layoffs undermine the office’s ability to investigate complaints of discrimination from all students, not just those aligned with President Trump’s agenda.`\
+https://nytimes.com/2025/03/14/us/politics/education-department-civil-rights-office.html
+
 **Tuchel says he must 'earn the right' to sing national anthem**\
 `Thomas Tuchel believes that he must “earn the right” to sing the national anthem before England games.`\
 https://nytimes.com/athletic/6203872/2025/03/14/thomas-tuchel-national-anthem-england/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6204638/2025/03/14/players-championship-collin-mori
 **The Senate Voted to Avoid a Shutdown**\
 `Also, the advance of A.G.I. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/03/14/briefing/the-senate-is-set-to-pass-a-bill-to-avoid-a-shutdown.html
-
-**Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
-`Hoecht informed the Bills of his suspension before contract negotiations began and Ogunjobi found out about his after agreeing to terms.`\
-https://nytimes.com/athletic/6204583/2025/03/14/bills-michael-hoecht-larry-ogunjobi-peds-suspension/
-
-**Duterte Makes First Appearance at International Criminal Court**\
-`Rodrigo Duterte, the former president of the Philippines, appeared by video at a pre-trial hearing on charges of crimes against humanity for the killing of tens of thousands of civilians in his antidrug campaign.`\
-https://nytimes.com/video/world/asia/100000010052495/duterte-philippines-international-criminal-court-hearing.html
-
-**How Each Senator Voted to Fund the Government Through September**\
-`The Senate voted to advance a bill to fund the federal government through September and avoid a shutdown on Saturday.`\
-https://nytimes.com/interactive/2025/03/14/us/politics/senate-government-funding-vote.html
-
-**Dochterman: Fran McCaffery didn't give Iowa fans enough reasons to care**\
-`It's going to take a new approach for Iowa to bring men's basketball fans back after faltering under McCaffery, who was fired Friday.`\
-https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketball-fans/
-
-**Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
-`The son of an immigrant, he represented a majority Hispanic district in Arizona for 12 terms but had lately been absent from Capitol Hill while being treated for cancer.`\
-https://nytimes.com/2025/03/14/us/politics/raul-m-grijalva-dead.html
 

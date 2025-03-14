@@ -1,3 +1,11 @@
+**F.D.A. Issues Warning About Galaxy Gas and Other Nitrous Products**\
+`The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
+https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
+
+**Whitely 'just so proud' after Liverpool secure first WSL win at Anfield**\
+`Liverpool stunned Manchester United with a 3-1 victory on Friday night.`\
+https://nytimes.com/athletic/6204692/2025/03/14/amber-whitely-liverpool-wsl-anfield/
+
 **Draft List for New Travel Ban Proposes Trump Target 43 Countries**\
 `A draft circulating inside the administration lists three tiers of countries whose citizens may face restrictions on entering the United States.`\
 https://nytimes.com/2025/03/14/us/politics/trump-travel-ban.html
@@ -10,7 +18,7 @@ https://nytimes.com/card/2025/03/14/smarter-living/wirecutter/15-unexpected-brid
 `The post falsely claimed that Joseph Stalin, Adolf Hitler and Mao Zedong were not responsible for the murders of millions of people, but rather public sector workers were.`\
 https://nytimes.com/2025/03/14/technology/elon-musk-x-post-hitler-stalin-mao.html
 
-**Cooper Kupp agrees with Seahawks on deal worth $15M annually: Source**\
+**Cooper Kupp agrees with Seahawks on 3-year, $45 million deal: Source**\
 `Since entering the league, Kupp has the sixth-most receptions, seventh-most touchdowns and eighth-most receiving yards among wide receivers.`\
 https://nytimes.com/athletic/6198934/2025/03/14/cooper-kupp-seahawks-nfl-free-agency-2025/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6204241/2025/03/14/ange-postecoglou-tottenham-criti
 **Normani Is Engaged — With a Little Help From Her Famous Matchmakers**\
 `The R&B artist and the newly traded Pittsburgh Steeler DeKaylin “DK” Metcalf are a success story for friends playing matchmaker. The pair were introduced by Ciara and Russell Wilson in 2022.`\
 https://nytimes.com/2025/03/14/style/normani-dk-metcalf-engaged.html
-
-**Collin Morikawa, the media and the tension at this Players Championship**\
-`Between Morikawa's war of words with the "Live From" analysts to Rory McIlroy's incident with a fan, it's been a week at TPC Sawgrass.`\
-https://nytimes.com/athletic/6204638/2025/03/14/players-championship-collin-morikawa-media/
-
-**The Senate Voted to Avoid a Shutdown**\
-`Also, the advance of A.G.I. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/03/14/briefing/the-senate-is-set-to-pass-a-bill-to-avoid-a-shutdown.html
 
