@@ -1,3 +1,7 @@
+**NASA Astronauts Are About to Return Home**\
+`A spacecraft malfunction last June has kept Suni Williams and Butch Wilmore on the International Space Station for more than nine months. They are slated to return home in the next few days. But before they do, Michael Barbaro spoke with them about their unusually long stay in space.`\
+https://nytimes.com/video/podcasts/the-daily/100000010043909/nasa-astronauts-are-about-to-return-home.html
+
 **Chelsea reach agreement with Sporting to sign Quenda**\
 `The 17-year-old will remain at the Portuguese club next season and then move to Stamford Bridge in July 2026.`\
 https://nytimes.com/athletic/6130940/2025/03/14/geovany-quenda-chelsea-transfer/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/14/nyregion/russian-mobster-masih-alinejad.html
 **As Trump Attacks Elite Colleges, Their Usual Allies Are Nowhere in Sight**\
 `The president wants to punish schools like Columbia University for allowing campus protest. College megadonors don’t seem to mind.`\
 https://nytimes.com/2025/03/14/nyregion/trump-columbia-university-antisem.html
-
-**A ‘Sea Change’ in the Subway: Assaults Outnumber Robberies**\
-`While crime remains rare in the New York City subway, a surge in unpredictable attacks, not motivated by theft, signals a worrisome shift.`\
-https://nytimes.com/2025/03/14/nyregion/subway-crime-nyc.html
 
