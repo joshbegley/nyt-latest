@@ -1,3 +1,15 @@
+**DeMarcus Lawrence takes shot at Cowboys, sparking tiff with Micah Parsons**\
+`New Seahawks defensive lineman said of Dallas: "I’m not going to win a Super Bowl there." His ex-teammate offered a pointed response.`\
+https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
+
+**Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
+`The Wizards' 20-year-old first-round pick in 2023 will miss approximately four-to-six weeks, team officials said. `\
+https://nytimes.com/athletic/6201114/2025/03/14/bilal-coulibaly-injury-wizards-hamstring/
+
+**Another loss demonstrates why Oilers' depth scoring remains a pressing issue**\
+`The Oilers lost for the 10th time in their last 15 games, even with McDavid and Draisaitl playing on the same line.`\
+https://nytimes.com/athletic/6202733/2025/03/14/oilers-depth-scoring-henrique-devils/
+
 **Influencer’s Wielding of Wild Wombat Incurs Wrath of a Nation**\
 `A video of an American woman snatching a baby wombat from the side of its mother enraged many in Australia. She left the country Friday.`\
 https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/style/olivia-stringer-orion-mercaitis-wedding.htm
 **Learning a Shared Love Language — One That Includes Signing**\
 `Jerald Creer, who is deaf, and Kent Williams met on a cruise ship in 2009. It took almost 15 years and a card game for them to fall in love.`\
 https://nytimes.com/2025/03/14/style/jerald-creer-kent-williams-wedding.html
-
-**Is My Husband a Doormat?**\
-`How a personality test changed our marriage.`\
-https://nytimes.com/2025/03/14/style/modern-love-my-husband-was-appalled-to-learn-that-he-was-a-doormat.html
-
-**A Love Worth an Early Retirement and a Cross-Country Move**\
-`Dr. Raymond Parungao and Andrew Chen have had a bicoastal relationship for most or their 15 years together.`\
-https://nytimes.com/2025/03/14/style/raymond-parungao-andrew-chen-wedding.html
-
-**Quote of the Day: Leaders Standing Up to Trump Widen Their Support at Home**\
-`Quotation of the Day for Friday, March 14, 2025.`\
-https://nytimes.com/2025/03/13/pageoneplus/quote-of-the-day-leaders-standing-up-to-trump-widen-their-support-at-home.html
 
