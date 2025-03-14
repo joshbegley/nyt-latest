@@ -1,3 +1,7 @@
+**Putin Met With U.S. Envoy and Sent ‘Signals’ for Trump, Kremlin Says**\
+`The talks in Moscow with Steve Witkoff indicated that Russia was keen to keep negotiating with the United States over Ukraine.`\
+https://nytimes.com/2025/03/14/world/europe/russia-ukraine-putin.html
+
 **JD Vance Is Booed at a Kennedy Center Concert in Washington**\
 `Vice President JD Vance was booed at the Kennedy Center for the Performing Arts in Washington Thursday night while attending a concert with his wife. It was his first visit to the institution after its takeover by President Trump.`\
 https://nytimes.com/video/us/100000010052334/vance-booed-kennedy-center-concert-washington.html

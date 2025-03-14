@@ -34,7 +34,7 @@ https://nytimes.com/2025/03/14/world/asia/china-iran-trump-russia.html
 `After missing 31 games with an ankle injury, Kuminga scored 18 points and exploded to the rim often.`\
 https://nytimes.com/athletic/6202814/2025/03/14/jonathan-kuminga-warriors-return-injury-kings/
 
-**Vladimir Putin Met With U.S. Envoy in Moscow, Kremlin Says**\
-`The diplomatic effort signaled that Russia was keen to keep negotiating with the United States about a cease-fire in Ukraine.`\
+**Putin Met With U.S. Envoy and Sent ‘Signals’ for Trump, Kremlin Says**\
+`The talks in Moscow with Steve Witkoff indicated that Russia was keen to keep negotiating with the United States over Ukraine.`\
 https://nytimes.com/2025/03/14/world/europe/russia-ukraine-putin.html
 
