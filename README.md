@@ -1,3 +1,7 @@
+**McCaffery's last stand? Coach tossed in Iowa's season-ending blowout loss**\
+`Asked if he expects to be back leading the team next season, the coach said, "I do."`\
+https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss/
+
 **JD Vance Is Booed at a Kennedy Center Concert After Trump’s Takeover**\
 `The vice president and his wife were booed as they took their seats for a National Symphony Orchestra concert of music by Shostakovich and Stravinsky.`\
 https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6197420/2025/03/13/dodgers-tokyo-travel-roster/
 **Players Championship analysis: What to know after Round 1**\
 `Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all — nearly 50 feet more than his average.`\
 https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
-
-**Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
-`Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
-https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
 
