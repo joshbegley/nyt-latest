@@ -1,3 +1,11 @@
+**Zack Bolduc suits the Blues well: 'Really developing into an all-around NHL player'**\
+`Bolduc scored his 12th goal of the season in Thursday's 5-3 loss to the Pittsburgh Penguins, continuing an impressive stretch.`\
+https://nytimes.com/athletic/6198265/2025/03/13/zack-bolduc-st-louis-blues-forecheck/
+
+**Attempted Theft and Poisoning of a Star Reindeer Leaves Anchorage Miffed**\
+`Star VII, the unofficial mascot for the Alaska city, nearly died when a person sprayed it with air freshener, the animal’s owner said.`\
+https://nytimes.com/2025/03/13/us/star-reindeer-stolen-sick-anchorage.html
+
 **Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
 `The flight had been diverted to the airport after experiencing “engine vibrations,” the authorities said. Six passengers were taken to a hospital for evaluation.`\
 https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html

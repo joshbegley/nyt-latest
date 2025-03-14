@@ -1,3 +1,11 @@
+**Is Tristan Jarry borrowing from Rickard Rakell's script last season?**\
+`PITTSBURGH — Searching for salvation far away from NHL arenas, Tristan Jarry’s phone never stopped ringing.`\
+https://nytimes.com/athletic/6202615/2025/03/13/penguins-tristan-jarry-turnaround-rickard-rakell-blues/
+
+**Struggling special teams let down Blue Jackets in shutout loss to Golden Knights**\
+`After a 4-0 loss to Vegas, Columbus has dropped four of its last five games and been shut out in two of its last four.`\
+https://nytimes.com/athletic/6202519/2025/03/13/blue-jackets-golden-knights-score-standings/
+
 **Zack Bolduc suits the Blues well: 'Really developing into an all-around NHL player'**\
 `Bolduc scored his 12th goal of the season in Thursday's 5-3 loss to the Pittsburgh Penguins, continuing an impressive stretch.`\
 https://nytimes.com/athletic/6198265/2025/03/13/zack-bolduc-st-louis-blues-forecheck/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
 **Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
 `The flight had been diverted to the airport after experiencing “engine vibrations,” the authorities said. Six passengers were taken to a hospital for evaluation.`\
 https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
-
-**Daniil Medvedev's Indian Wells celebration and the sweetness of tennis relief**\
-`Daniil Medvedev's exuberant celebration after beating Arthur Fils was not his normal reaction to winning a tennis match.`\
-https://nytimes.com/athletic/6202407/2025/03/13/daniil-medvedev-celebration-tennis-indian-wells/
-
-**Plane Catches Fire at Denver Airport**\
-`American Airlines, which operated the flight, said the plane had experienced an “engine-related issue.”`\
-https://nytimes.com/video/us/100000010051893/american-airlines-denver-airport-fire.html
 
