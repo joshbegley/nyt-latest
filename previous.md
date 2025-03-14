@@ -1,3 +1,11 @@
+**JD Vance Is Booed at a Kennedy Center Concert in Washington**\
+`Vice President JD Vance was booed at the Kennedy Center for the Performing Arts in Washington Thursday night while attending a concert with his wife. It was his first visit to the institution after its takeover by President Trump.`\
+https://nytimes.com/video/us/100000010052334/vance-booed-kennedy-center-concert-washington.html
+
+**White available for England selection after two-year absence, Tuchel says**\
+`The 27-year-old has not played for his country since leaving the 2022 World Cup in Qatar mid-tournament.`\
+https://nytimes.com/athletic/6203200/2025/03/14/england-ben-white-back-squad-tuchel/
+
 **The Athletic FC: Fernandes shows why Ratcliffe loves him; Henderson, Rashford in England squad**\
 `Today in TAFC: Fernandes proves his worth to Manchester United, Rashford and Henderson in England squad, Messi magic in Jamaica.`\
 https://nytimes.com/athletic/6203062/2025/03/14/henderson-rashford-in-england-squad-messi-delight-in-jamaica/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6202814/2025/03/14/jonathan-kuminga-warriors-return
 **Vladimir Putin Met With U.S. Envoy in Moscow, Kremlin Says**\
 `The diplomatic effort signaled that Russia was keen to keep negotiating with the United States about a cease-fire in Ukraine.`\
 https://nytimes.com/2025/03/14/world/europe/russia-ukraine-putin.html
-
-**Printable March Madness bracket for the men's NCAA Tournament**\
-`The 2025 men’s NCAA Tournament bracket will be released on Sunday, March 16 at 6 p.m. ET on CBS.`\
-https://nytimes.com/athletic/6201422/2025/03/14/mens-march-madness-2025-printable-bracket/
-
-**How Jordan Chiles rediscovered ‘that girl’ at UCLA after Paris Olympics medal controversy**\
-`Chiles spent the second half of 2024 wrestling with the emotional fallout from the Olympics, but she's aiming for NCAA glory with UCLA.`\
-https://nytimes.com/athletic/6202156/2025/03/14/jordan-chiles-ucla-gymnastics-paris-olympics-medal/
 

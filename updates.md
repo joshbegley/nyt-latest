@@ -1,3 +1,11 @@
+**JD Vance Is Booed at a Kennedy Center Concert in Washington**\
+`Vice President JD Vance was booed at the Kennedy Center for the Performing Arts in Washington Thursday night while attending a concert with his wife. It was his first visit to the institution after its takeover by President Trump.`\
+https://nytimes.com/video/us/100000010052334/vance-booed-kennedy-center-concert-washington.html
+
+**White available for England selection after two-year absence, Tuchel says**\
+`The 27-year-old has not played for his country since leaving the 2022 World Cup in Qatar mid-tournament.`\
+https://nytimes.com/athletic/6203200/2025/03/14/england-ben-white-back-squad-tuchel/
+
 **The Athletic FC: Fernandes shows why Ratcliffe loves him; Henderson, Rashford in England squad**\
 `Today in TAFC: Fernandes proves his worth to Manchester United, Rashford and Henderson in England squad, Messi magic in Jamaica.`\
 https://nytimes.com/athletic/6203062/2025/03/14/henderson-rashford-in-england-squad-messi-delight-in-jamaica/
