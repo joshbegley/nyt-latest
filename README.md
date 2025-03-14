@@ -1,4 +1,8 @@
-**Alex Cora on Rafael Devers' position quandary: 'Time will help us'**\
+**Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
+`Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
+https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
+
+**Alex Cora on Rafael Devers' position quandary, Wilyer Abreu cleared to play**\
 `A day after Rafael Devers said he’s willing to serve as the team’s designated hitter, Cora was not ready to announce anything.`\
 https://nytimes.com/athletic/6204360/2025/03/14/rafael-devers-red-sox-position-alex-cora/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204347/2025/03/14/f1-australian-gp-mclaren-oliver-
 **‘People Will Die’: Trump Aid Cuts Threaten Refugees’ Survival, U.N. Says**\
 `At the world’s largest refugee camp, for Rohingya people in Bangladesh, the food allowance per person is set to fall to just $6 per month, far below what aid officials say is required for survival.`\
 https://nytimes.com/2025/03/14/world/asia/trump-aid-cuts-refugees-rohingya.html
-
-**Sean Combs’s Lawyers Say Video of Hallway Assault Was Altered**\
-`The video, a critical piece of the prosecution’s case, shows the music mogul beating and kicking his girlfriend at a hotel in 2016.`\
-https://nytimes.com/2025/03/14/arts/music/sean-combs-cassie-hotel-video-cnn.html
 
