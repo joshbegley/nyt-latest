@@ -1,3 +1,7 @@
+**Dochterman: Fran McCaffery didn't give Iowa fans enough reasons to care**\
+`It’s going to take a new approach for Iowa to bring men’s basketball fans back after faltering under McCaffery, who was fired Friday.`\
+https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketball-fans/
+
 **Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
 `The son of an immigrant, he represented a majority Hispanic district in Arizona for 12 terms but had lately been absent from Capitol Hill while being treated for cancer.`\
 https://nytimes.com/2025/03/14/us/politics/raul-m-grijalva-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/magazine/adoption-incest-secret-ethics.html
 **The Blood Moon Rises: A Total Lunar Eclipse**\
 `The first total lunar eclipse in more than two years lit up the sky last night as humanity, forever fascinated with the Earth’s only natural satellite, watched.`\
 https://nytimes.com/2025/03/14/science/space/blood-moon-lunar-eclipse-photos.html
-
-**Kevin Drum, Influential Early Political Blogger, Dies at 66**\
-`Writing on his own and for Washington Monthly and Mother Jones, he earned a reputation as a serious policy thinker. He also invented Friday cat blogging.`\
-https://nytimes.com/2025/03/14/us/kevin-drum-dead.html
 
