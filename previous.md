@@ -1,3 +1,15 @@
+**Supreme Court Revives Long-Running Nazi Art Restitution Case**\
+`The case involving a Pissarro is being sent back to federal court in California for review in light of a new state law, in a dispute between heirs and a Spanish museum.`\
+https://nytimes.com/2025/03/14/arts/design/supreme-court-pissarro-nazi-art-restitution.html
+
+**The somewhat forgotten Giants of spring: Who could be this year's Heliot Ramos?**\
+`There are players who might play an outsized role on the Giants, yet aren't getting as much attention. Here's a look at some.`\
+https://nytimes.com/athletic/6201653/2025/03/14/giants-spring-key-players-luciano-winn/
+
+**Coach J.B. Bickerstaff says Pistons 'need to own responsibility' for loss to league-worst Wizards**\
+`"Sometimes you've got to learn the hard way," says Pistons coach after dropping game to 14-51 Wizards. `\
+https://nytimes.com/athletic/6203552/2025/03/14/pistons-loss-wizards-jb-bickerstaff/
+
 **Herman Graf, Who Helped Sell ‘Tropic of Cancer,’ Dies at 91**\
 `A major figure in independent publishing, he promoted Henry Miller’s once-banned book and helped make “A Confederacy of Dunces” a best seller after the author’s death.`\
 https://nytimes.com/2025/03/14/books/herman-graf-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/movies/science-fiction-movies-streaming.html
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 29?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6194997/2025/03/14/premier-league-predicted-lineups-gw29/
-
-**Cod With Brown Butter, Coq au Vin, Roasted Winter Tomatoes**\
-`Your task for this weekend is to prepare something delicious and serve it to people you care about. I know you’re up to it.`\
-https://nytimes.com/2025/03/14/dining/cod-with-brown-butter-coq-au-vin-roasted-winter-tomatoes.html
-
-**The Not-So-Discreet Charm of Graydon Carter**\
-`An editor from the heyday of glossy magazines dishes about Anna Wintour and recounts his long-running feud with Donald Trump.`\
-https://nytimes.com/2025/03/14/style/graydon-carter.html
-
-**How Much Should Weight Loss Drugs Cost?**\
-`A new study found that fair prices for medications like Wegovy and Zepbound would be hundreds less per month than they are now.`\
-https://nytimes.com/2025/03/14/health/wegovy-zepbound-cost-weight-loss-drugs.html
 

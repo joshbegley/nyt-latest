@@ -1,3 +1,15 @@
+**Supreme Court Revives Long-Running Nazi Art Restitution Case**\
+`The case involving a Pissarro is being sent back to federal court in California for review in light of a new state law, in a dispute between heirs and a Spanish museum.`\
+https://nytimes.com/2025/03/14/arts/design/supreme-court-pissarro-nazi-art-restitution.html
+
+**The somewhat forgotten Giants of spring: Who could be this year's Heliot Ramos?**\
+`There are players who might play an outsized role on the Giants, yet aren't getting as much attention. Here's a look at some.`\
+https://nytimes.com/athletic/6201653/2025/03/14/giants-spring-key-players-luciano-winn/
+
+**Coach J.B. Bickerstaff says Pistons 'need to own responsibility' for loss to league-worst Wizards**\
+`"Sometimes you've got to learn the hard way," says Pistons coach after dropping game to 14-51 Wizards. `\
+https://nytimes.com/athletic/6203552/2025/03/14/pistons-loss-wizards-jb-bickerstaff/
+
 **Ted Lasso to return for season 4: 'Ted's coaching a women's team'**\
 `Apple TV+ has confirmed Jason Sudeikis will reprise his role as Coach Lasso in the Emmy award-winning show.`\
 https://nytimes.com/athletic/6203604/2025/03/14/ted-lasso-season-four/
