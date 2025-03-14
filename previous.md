@@ -1,3 +1,7 @@
+**Old Trafford serves up a reminder of its value to Man Utd — and what cannot be lost**\
+`Old Trafford crackled as Manchester United beat Real Sociedad in the Europa League on Thursday night`\
+https://nytimes.com/athletic/6202656/2025/03/14/old-trafford-manchester-united-atmosphere/
+
 **Word of the Day: augment**\
 `This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/14/learning/word-of-the-day-augment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6199813/2025/03/14/west-ham-david-moyes-opinion/
 **Doku's relentless dribbling and Grealish in the cold - City's winger situation analysed**\
 `A look at the options City manager Pep Guardiola has at his disposal out wide and the qualities he demands that these players possess`\
 https://nytimes.com/athletic/6197054/2025/03/14/doku-grealish-man-city-wingers/
-
-**The Slot story: From Dutch Bible Belt to Anfield - and why 'it all comes back to his dad'**\
-`A trip to the Liverpool manager's childhood home of Bergentheim reveals how he was shaped by the village - and his father`\
-https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-netherlands/
 

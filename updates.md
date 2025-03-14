@@ -1,3 +1,7 @@
+**Old Trafford serves up a reminder of its value to Man Utd — and what cannot be lost**\
+`Old Trafford crackled as Manchester United beat Real Sociedad in the Europa League on Thursday night`\
+https://nytimes.com/athletic/6202656/2025/03/14/old-trafford-manchester-united-atmosphere/
+
 **Word of the Day: augment**\
 `This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/14/learning/word-of-the-day-augment.html
