@@ -1,5 +1,5 @@
 **Is Tristan Jarry borrowing from Rickard Rakell's script last season?**\
-`PITTSBURGH — Searching for salvation far away from NHL arenas, Tristan Jarry’s phone never stopped ringing.`\
+`Jarry is the biggest reason the Penguins have won three consecutive games for only the second time this season.`\
 https://nytimes.com/athletic/6202615/2025/03/13/penguins-tristan-jarry-turnaround-rickard-rakell-blues/
 
 **Struggling special teams let down Blue Jackets in shutout loss to Golden Knights**\
