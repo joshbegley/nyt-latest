@@ -1,3 +1,7 @@
+**Influencer’s Wielding of Wild Wombat Incurs Wrath of a Nation**\
+`A video of an American woman snatching a baby wombat from the side of its mother enraged many in Australia. She left the country Friday.`\
+https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
+
 **In Japan, a Journalist Takes a Stand by Striking Out on His Own**\
 `Makoto Watanabe quit a major newspaper after it retracted a scoop. Now he runs an investigative nonprofit that does not shy away from challenging authority.`\
 https://nytimes.com/2025/03/14/world/asia/japan-journalist.html
