@@ -1,3 +1,7 @@
+**Players Championship analysis: What to know after Round 1**\
+`Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all – nearly 50 feet more than his average.`\
+https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
+
 **Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
 `Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
 https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html
 **Florida Mayor Threatens Cinema Over Israeli-Palestinian Film**\
 `The mayor of Miami Beach wants to end the lease of a group renting a city-owned property because it is screening the Academy Award-winning “No Other Land” there.`\
 https://nytimes.com/2025/03/13/movies/miami-beach-mayor-israeli-palestinian-film.html
-
-**Why a 100-year-old tree is unnerving golfers at The Players Championship**\
-`"It's meant to be intimidating. So if someone says 'hey, I have a problem with that tree,' I’m like, 'good, that’s what Pete wanted.'"`\
-https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
 

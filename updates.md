@@ -1,3 +1,7 @@
+**Researchers Find Shipwreck Lost Since 1892**\
+`The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
+https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-superior.html
+
 **Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
 `Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
 https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
