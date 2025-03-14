@@ -2,7 +2,7 @@
 `A major figure in independent publishing, he promoted Henry Miller’s once-banned book and helped make “A Confederacy of Dunces” a best seller after the author’s death.`\
 https://nytimes.com/2025/03/14/books/herman-graf-dead.html
 
-**Ted Lasso to return for season four: 'Ted's coaching a women's team'**\
+**Ted Lasso to return for season 4: 'Ted's coaching a women's team'**\
 `Apple TV+ has confirmed Jason Sudeikis will reprise his role as Coach Lasso in the Emmy award-winning show.`\
 https://nytimes.com/athletic/6203604/2025/03/14/ted-lasso-season-four/
 
