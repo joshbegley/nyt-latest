@@ -1,3 +1,11 @@
+**Read the Letter to Columbia University**\
+`The Trump administration sent a letter to Columbia on Thursday demanding that the university make dramatic changes in student discipline and admissions before it would discuss lifting the cancellation of $400 million in government grants and contracts.`\
+https://nytimes.com/interactive/2025/03/14/nyregion/columbia-letter.html
+
+**Alan K. Simpson, Influential Wyoming Republican Senator, Dies at 93**\
+`A plain-spoken, sometimes cantankerous lawmaker, he balanced his conservative views with moderate stands on abortion rights, gay marriage and immigration reform.`\
+https://nytimes.com/2025/03/14/us/politics/alan-k-simpson-dead.html
+
 **Nick Cushing - the interim coach charged with navigating Manchester City Women through a season-defining 12 days**\
 `Cushing returns to a WSL that looks very different from the years of his early success in the league`\
 https://nytimes.com/athletic/6200544/2025/03/14/nick-cushing-manchester-city-women/
