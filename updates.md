@@ -1,3 +1,7 @@
+**Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
+`The flight had been diverted to the airport after experiencing “engine vibrations,” the authorities said. Six passengers were taken to a hospital for evaluation.`\
+https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
+
 **Maple Leafs report cards: Penalty-killing miscues costly against division-rival Panthers**\
 `With a 3-2 loss to Florida, Toronto let the opportunity to bolster its chances of winning the Atlantic slip through its fingers.`\
 https://nytimes.com/athletic/6202099/2025/03/13/maple-leafs-panthers-atlantic-division-standings/
