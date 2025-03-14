@@ -1,3 +1,23 @@
+**The Pandemic Ruined High School for Them. They’re Learning to Live Again.**\
+`Stuck in their bedrooms, the class of 2021 missed important rites of passage — first job, first car, first date. Now young adults, they’re making up for what they missed at 16.`\
+https://nytimes.com/2025/03/14/well/covid-pandemic-oakland-high-school-students-2021.html
+
+**Want to find the most likely upsets in the 2025 NCAA tournament? Here's how**\
+`These key stats can tell you who fits Cinderella's slipper for the Big Dance.`\
+https://nytimes.com/athletic/6201479/2025/03/14/how-to-pick-march-madness-upsets/
+
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6203649/2025/03/14/ask-ornstein-qa-our-football-insider-answers-your-questions-20/
+
+**Hegseth Closes Pentagon Office Focused on Future Wars**\
+`The Office of Net Assessment opened more than 50 years ago and developed concepts for possible conflict with U.S. adversaries, including China.`\
+https://nytimes.com/2025/03/14/us/politics/pete-hegseth-closes-pentagon-office.html
+
+**Graydon Carter and the Golden Age of New York City Media**\
+`The former Vanity Fair editor reflects on an era’s power moves and expense-account adventures in a new memoir.`\
+https://nytimes.com/2025/03/14/books/review/graydon-carter-when-the-going-was-good.html
+
 **A 150-Mile Commute Complicates 3 New York City Mayoral Campaigns**\
 `Zohran Mamdani, Zellnor Myrie and Jessica Ramos are ping-ponging between New York City and Albany as they divide their time between legislating and campaigning.`\
 https://nytimes.com/2025/03/14/nyregion/nyc-mayor-zohran-mamdani-myrie-ramos.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/14/arts/music/dudamel-ravel-new-york-philharmonic.ht
 **‘Yellowjackets’ Season 3, Episode 6 Recap: Goin’ Hungry**\
 `Coach Ben goes on a hunger strike. Young Natalie goes rogue.`\
 https://nytimes.com/2025/03/14/arts/television/yellowjackets-recap-season-3-episode-6.html
-
-**Adin Hill signs 6-year contract extension with Golden Knights**\
-`This season, Hill has a 24-11-4 record in 39 games (all starts) with a 2.53 goals-against average, a .906 save percentage and four shutouts.`\
-https://nytimes.com/athletic/6203578/2025/03/14/adin-hill-golden-knights-contract/
-
-**Arteta proud of Lewis-Skelly England call-up but does not want Nwaneri comparison**\
-`Arteta doesn't want to compare the pairs' journeys but is proud of 18-year-old Lewis-Skelly's maiden England senior call-up.`\
-https://nytimes.com/athletic/6203496/2025/03/14/lewis-skelly-england-call-up-arteta-arsenal/
-
-**DOGE Could Gut a Piece of Trump Family History**\
-`In the heart of Seattle, a national park memorializes the grit of the Klondike gold rush, where the president’s grandfather built his early wealth. The park is now under threat.`\
-https://nytimes.com/2025/03/14/us/doge-frederick-trump-seattle-park-history.html
-
-**Cubs notes from Tokyo: A huge crowd for workouts and Brady Counsell's viral moment**\
-`Some estimated that there were upwards of 10,000 fans at workouts, many of them in Dodgers blue.`\
-https://nytimes.com/athletic/6203029/2025/03/14/chicago-cubs-tokyo-games-crowd-counsell/
-
-**Finland Court Finds Russian Mercenary Guilty of War Crimes in Ukraine**\
-`A court sentenced Voislav Torden, a commander in a Russian paramilitary group, to life in prison for the attack and mutilation of Ukrainian soldiers in 2014.`\
-https://nytimes.com/2025/03/14/world/europe/russia-ukraine-war-crimes-conviction-finland.html
 

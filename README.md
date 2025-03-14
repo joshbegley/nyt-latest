@@ -1,3 +1,23 @@
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, multidimensional comedy and extraterrestrial drama.`\
+https://nytimes.com/2025/03/14/movies/science-fiction-movies-streaming.html
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 29?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6194997/2025/03/14/premier-league-predicted-lineups-gw29/
+
+**Cod With Brown Butter, Coq au Vin, Roasted Winter Tomatoes**\
+`Your task for this weekend is to prepare something delicious and serve it to people you care about. I know you’re up to it.`\
+https://nytimes.com/2025/03/14/dining/cod-with-brown-butter-coq-au-vin-roasted-winter-tomatoes.html
+
+**The Not-So-Discreet Charm of Graydon Carter**\
+`An editor from the heyday of glossy magazines dishes about Anna Wintour and recounts his long-running feud with Donald Trump.`\
+https://nytimes.com/2025/03/14/style/graydon-carter.html
+
+**How Much Should Weight Loss Drugs Cost?**\
+`A new study found that fair prices for medications like Wegovy and Zepbound would be hundreds less per month than they are now.`\
+https://nytimes.com/2025/03/14/health/wegovy-zepbound-cost-weight-loss-drugs.html
+
 **The Pandemic Ruined High School for Them. They’re Learning to Live Again.**\
 `Stuck in their bedrooms, the class of 2021 missed important rites of passage — first job, first car, first date. Now young adults, they’re making up for what they missed at 16.`\
 https://nytimes.com/2025/03/14/well/covid-pandemic-oakland-high-school-students-2021.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/pete-hegseth-closes-pentagon-office.h
 **Graydon Carter and the Golden Age of New York City Media**\
 `The former Vanity Fair editor reflects on an era’s power moves and expense-account adventures in a new memoir.`\
 https://nytimes.com/2025/03/14/books/review/graydon-carter-when-the-going-was-good.html
-
-**A 150-Mile Commute Complicates 3 New York City Mayoral Campaigns**\
-`Zohran Mamdani, Zellnor Myrie and Jessica Ramos are ping-ponging between New York City and Albany as they divide their time between legislating and campaigning.`\
-https://nytimes.com/2025/03/14/nyregion/nyc-mayor-zohran-mamdani-myrie-ramos.html
-
-**Young Democrats’ Anger Boils Over as Schumer Retreats on Shutdown**\
-`A generational divide, seen in newer lawmakers’ impatience with bipartisanship and for colleagues who don’t understand new media, has emerged as one of the deepest rifts within the party.`\
-https://nytimes.com/2025/03/14/us/politics/government-shutdown-spending-bill-schumer-democrats.html
-
-**5 Herby, Bright and Brilliant Recipes for Nowruz**\
-`Andy Baraghani, the recipe creator and cookbook author, keeps his holiday table full of streamlined, modern takes on classic Iranian dishes.`\
-https://nytimes.com/2025/03/14/dining/andy-baraghani-nowruz-recipes.html
-
-**Dudamel Leads a Premiere by a Youthful Ravel. Not Bad for a Kid.**\
-`The New York Philharmonic and its next music director gave “Sémiramis” its first public hearing, alongside other Ravel pieces and works by Varèse and Gershwin.`\
-https://nytimes.com/2025/03/14/arts/music/dudamel-ravel-new-york-philharmonic.html
-
-**‘Yellowjackets’ Season 3, Episode 6 Recap: Goin’ Hungry**\
-`Coach Ben goes on a hunger strike. Young Natalie goes rogue.`\
-https://nytimes.com/2025/03/14/arts/television/yellowjackets-recap-season-3-episode-6.html
 
