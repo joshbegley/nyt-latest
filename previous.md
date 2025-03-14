@@ -1,3 +1,7 @@
+**Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
+`Hoecht informed the Bills of his suspension before contract negotiations began and Ogunjobi found out about his after agreeing to terms.`\
+https://nytimes.com/athletic/6204583/2025/03/14/bills-michael-hoecht-larry-ogunjobi-peds-suspension/
+
 **Duterte Makes First Appearance at International Criminal Court**\
 `Rodrigo Duterte, the former president of the Philippines, appeared by video at a pre-trial hearing on charges of crimes against humanity for the killing of tens of thousands of civilians in his antidrug campaign.`\
 https://nytimes.com/video/world/asia/100000010052495/duterte-philippines-international-criminal-court-hearing.html
@@ -7,7 +11,7 @@ https://nytimes.com/video/world/asia/100000010052495/duterte-philippines-interna
 https://nytimes.com/interactive/2025/03/14/us/politics/senate-government-funding-vote.html
 
 **Dochterman: Fran McCaffery didn't give Iowa fans enough reasons to care**\
-`It’s going to take a new approach for Iowa to bring men’s basketball fans back after faltering under McCaffery, who was fired Friday.`\
+`It's going to take a new approach for Iowa to bring men's basketball fans back after faltering under McCaffery, who was fired Friday.`\
 https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketball-fans/
 
 **Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/trump-administration-leak-investigati
 **Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
 `Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
 https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
-
-**Alex Cora on Rafael Devers' position quandary, Wilyer Abreu cleared to play**\
-`A day after Rafael Devers said he’s willing to serve as the team’s designated hitter, Cora was not ready to announce anything.`\
-https://nytimes.com/athletic/6204360/2025/03/14/rafael-devers-red-sox-position-alex-cora/
 

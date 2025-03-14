@@ -1,3 +1,11 @@
+**Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
+`Hoecht informed the Bills of his suspension before contract negotiations began and Ogunjobi found out about his after agreeing to terms.`\
+https://nytimes.com/athletic/6204583/2025/03/14/bills-michael-hoecht-larry-ogunjobi-peds-suspension/
+
+**Dochterman: Fran McCaffery didn't give Iowa fans enough reasons to care**\
+`It's going to take a new approach for Iowa to bring men's basketball fans back after faltering under McCaffery, who was fired Friday.`\
+https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketball-fans/
+
 **Duterte Makes First Appearance at International Criminal Court**\
 `Rodrigo Duterte, the former president of the Philippines, appeared by video at a pre-trial hearing on charges of crimes against humanity for the killing of tens of thousands of civilians in his antidrug campaign.`\
 https://nytimes.com/video/world/asia/100000010052495/duterte-philippines-international-criminal-court-hearing.html
