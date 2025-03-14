@@ -1,3 +1,7 @@
+**Duterte Makes First Appearance at International Criminal Court**\
+`Rodrigo Duterte, the former president of the Philippines, appeared by video at a pre-trial hearing on charges of crimes against humanity for the killing of tens of thousands of civilians in his antidrug campaign.`\
+https://nytimes.com/video/world/asia/100000010052495/duterte-philippines-international-criminal-court-hearing.html
+
 **How Each Senator Voted to Fund the Government Through September**\
 `The Senate voted to advance a bill to fund the federal government through September and avoid a shutdown on Saturday.`\
 https://nytimes.com/interactive/2025/03/14/us/politics/senate-government-funding-vote.html
