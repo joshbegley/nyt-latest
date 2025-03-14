@@ -1,3 +1,7 @@
+**Alex Cora on Rafael Devers' position quandary: 'Time will help us'**\
+`A day after Rafael Devers said he’s willing to serve as the team’s designated hitter, Cora was not ready to announce anything.`\
+https://nytimes.com/athletic/6204360/2025/03/14/rafael-devers-red-sox-position-alex-cora/
+
 **My Adopted Cousin’s Biological Parents Were Siblings. Do I Tell Her?**\
 `The magazine’s Ethicist columnist on divulging a family secret.`\
 https://nytimes.com/2025/03/14/magazine/adoption-incest-secret-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/world/asia/trump-aid-cuts-refugees-rohingya.html
 **Sean Combs’s Lawyers Say Video of Hallway Assault Was Altered**\
 `The video, a critical piece of the prosecution’s case, shows the music mogul beating and kicking his girlfriend at a hotel in 2016.`\
 https://nytimes.com/2025/03/14/arts/music/sean-combs-cassie-hotel-video-cnn.html
-
-**Being a Raven is what DeAndre Hopkins wanted. Lamar Jackson is a big reason why**\
-`Hopkins, who signed a one-year deal with Baltimore, has spoken openly about how much he’d like to play with Jackson. Now he gets his chance.`\
-https://nytimes.com/athletic/6204328/2025/03/14/deandre-hopkins-ravens-lamar-jackson/
 
