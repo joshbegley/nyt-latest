@@ -1,3 +1,7 @@
+**Judges Have Ordered Federal Workers Back on the Job. Now What?**\
+`Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
+https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html
+
 **F.D.A. Issues Warning About Galaxy Gas and Other Nitrous Products**\
 `The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
 https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
