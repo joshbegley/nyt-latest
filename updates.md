@@ -1,3 +1,15 @@
+**Video 1 - Flau'jae**\
+`MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
+https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
+
+**UFL players association files unfair labor practice charges against league**\
+`The season is currently scheduled to kick off with a game between the St. Louis Battlehawks and Houston Roughnecks on March 28.`\
+https://nytimes.com/athletic/6204201/2025/03/14/united-football-league-players-union/
+
+**Senior Islamic State Leader Killed in Joint Iraqi-U.S. Operation, Iraq Says**\
+`The killing comes as the group has been reconstituting in Syria, carrying out more attacks than at any time since it lost control of its territory nearly six years ago.`\
+https://nytimes.com/2025/03/14/world/middleeast/islamic-state-leader-killed-iraq-us.html
+
 **Overlooked No More: Beulah Henry, Inventor With an Endless Imagination**\
 `She was so prolific — reimagining things as varied as toys, typewriters, umbrellas and ice-cream makers — that she earned the nickname Lady Edison.`\
 https://nytimes.com/2025/03/14/obituaries/beulah-henry-overlooked.html

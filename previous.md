@@ -1,3 +1,15 @@
+**Video 1 - Flau'jae**\
+`MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
+https://nytimes.com/paidpost/athletic/massmutual/stay-ready-flaujae-johnson.html
+
+**UFL players association files unfair labor practice charges against league**\
+`The season is currently scheduled to kick off with a game between the St. Louis Battlehawks and Houston Roughnecks on March 28.`\
+https://nytimes.com/athletic/6204201/2025/03/14/united-football-league-players-union/
+
+**Senior Islamic State Leader Killed in Joint Iraqi-U.S. Operation, Iraq Says**\
+`The killing comes as the group has been reconstituting in Syria, carrying out more attacks than at any time since it lost control of its territory nearly six years ago.`\
+https://nytimes.com/2025/03/14/world/middleeast/islamic-state-leader-killed-iraq-us.html
+
 **Overlooked No More: Beulah Henry, Inventor With an Endless Imagination**\
 `She was so prolific — reimagining things as varied as toys, typewriters, umbrellas and ice-cream makers — that she earned the nickname Lady Edison.`\
 https://nytimes.com/2025/03/14/obituaries/beulah-henry-overlooked.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
 **Brock Faber on heavy workload, late-game fatigue and Wild's OT keepaway strategy: 'It's been a grind'**\
 `Playing 10 games in 20 nights since the 4 Nations, Faber’s average ice time is 27:19 — second-highest in the NHL. It's wearing on him.`\
 https://nytimes.com/athletic/6203939/2025/03/14/brock-faber-fatigue-wild-nhl/
-
-**An ‘In Like a Lion, Out Like a Lamb’ Playlist**\
-`Prepare for spring with songs from the Yeah Yeah Yeahs, Lion Babe, Buddy Guy and others.`\
-https://nytimes.com/2025/03/14/arts/music/amplifier-yeah-yeah-yeahs-paul-mccartney.html
-
-**Former Man Utd defender Williams pleads guilty to dangerous driving**\
-`The CPS stated the 24-year-old was caught driving at 99 mph with a balloon in his mouth.`\
-https://nytimes.com/athletic/6203829/2025/03/14/brandon-williams-dangerous-driving-plea/
-
-**Mark Carney Sworn In as Canada’s 24th Prime Minister**\
-`Mark Carney replaced Justin Trudeau, who led Canada for nearly a decade.`\
-https://nytimes.com/video/world/canada/100000010053081/canada-prime-minister-mark-carney.html
 
