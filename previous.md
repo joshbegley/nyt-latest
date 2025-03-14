@@ -1,3 +1,11 @@
+**Steph Curry's journey to 4,000 NBA 3-pointers is one nobody ever saw coming**\
+`As the Golden State Warriors icon set yet another shooting record, it's worth remembering the sliding doors moments that got us here.`\
+https://nytimes.com/athletic/6202940/2025/03/14/steph-curry-warriors-3-point-record-legacy/
+
+**Federal Agents Search Two Dorm Rooms at Columbia University**\
+`Department of Homeland Security officials conducted the search as the Trump administration sought to deport a former student and pro-Palestinian activist.`\
+https://nytimes.com/2025/03/14/us/politics/dorm-search-columbia-university-dhs.html
+
 **Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
 `For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
 https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6196798/2025/03/14/brooks-lee-twins-swing-changes-f
 **Every move from the first week of 2025 NFL free agency**\
 `As free agency continues, check the signing and trades tracker for the latest offseason moves.`\
 https://nytimes.com/athletic/6201304/2025/03/14/nfl-free-agnecy-signings-trades-2025/
-
-**Is there a reason behind Arsenal's drop-off in goals from corners?**\
-`Once a cornerstone of progress under Mikel Arteta, Arsenal are now without a set-piece goal since January 15 against Tottenham Hotspur`\
-https://nytimes.com/athletic/6200066/2025/03/14/arsenal-corners-analysis-goals/
-
-**Michigan mailbag: Does Sherrone Moore need to make the Playoff in 2025?**\
-`Answering your Michigan questions about Sherrone Moore, Bryce Underwood, the NCAA Tournament, spring football and more.`\
-https://nytimes.com/athletic/6200592/2025/03/14/michigan-football-bryce-underwood-basketball-tournament/
 

@@ -1,3 +1,11 @@
+**Steph Curry's journey to 4,000 NBA 3-pointers is one nobody ever saw coming**\
+`As the Golden State Warriors icon set yet another shooting record, it's worth remembering the sliding doors moments that got us here.`\
+https://nytimes.com/athletic/6202940/2025/03/14/steph-curry-warriors-3-point-record-legacy/
+
+**Federal Agents Search Two Dorm Rooms at Columbia University**\
+`Department of Homeland Security officials conducted the search as the Trump administration sought to deport a former student and pro-Palestinian activist.`\
+https://nytimes.com/2025/03/14/us/politics/dorm-search-columbia-university-dhs.html
+
 **Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
 `For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
 https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html

@@ -1,3 +1,11 @@
+**USC mailbag: What made the Trojans finally pay attention to local talent?**\
+`Who's going to be the starting quarterback? Is Lincoln Riley in danger of getting fired?`\
+https://nytimes.com/athletic/6201975/2025/03/14/usc-football-recruiting-spring-season/
+
+**FPL live Q&A: FPL Gameweek 289 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 29 FPL Q&A from 4pm-5pm GMT`\
+https://nytimes.com/athletic/6196961/2025/03/14/fantasy-premier-league-advice-gw29-tips/
+
 **Steph Curry's journey to 4,000 NBA 3-pointers is one nobody ever saw coming**\
 `As the Golden State Warriors icon set yet another shooting record, it's worth remembering the sliding doors moments that got us here.`\
 https://nytimes.com/athletic/6202940/2025/03/14/steph-curry-warriors-3-point-record-legacy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6203211/2025/03/14/mens-ncaa-tournament-bubble-watc
 **Trump Administration Live Updates: Schumer Says Enough Democrats Will Vote Today to Avert Government Shutdown**\
 ``\
 https://nytimes.com/live/2025/03/14/us/trump-government-shutdown-news
-
-**Twins' Brooks Lee is focused on swing changes, sustainability after flailing vs. fastballs**\
-`Lee had always handled heaters, until his first season in the majors. This winter, aiming to improve, he simplified and shortened his swing.`\
-https://nytimes.com/athletic/6196798/2025/03/14/brooks-lee-twins-swing-changes-fastballs/
-
-**Every move from the first week of 2025 NFL free agency**\
-`As free agency continues, check the signing and trades tracker for the latest offseason moves.`\
-https://nytimes.com/athletic/6201304/2025/03/14/nfl-free-agnecy-signings-trades-2025/
 
