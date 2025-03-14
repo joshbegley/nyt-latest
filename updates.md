@@ -1,3 +1,19 @@
+**Ted Lasso to return for season four: 'Ted's coaching a women's team'**\
+`Apple TV+ has confirmed Jason Sudeikis will reprise his role as Coach Lasso in the Emmy award-winning show.`\
+https://nytimes.com/athletic/6203604/2025/03/14/ted-lasso-season-four/
+
+**U.S. Consumer Sentiment Drops as Inflation Anxiety Soars**\
+`A new survey from the University of Michigan shows Americans bracing for economic pain as tariffs and policy uncertainty bite.`\
+https://nytimes.com/2025/03/14/us/politics/inflation-consumer-sentiment.html
+
+**Tariff Pain First, Deals Later, U.S. Tells Canada in Key Meeting**\
+`In talks aimed at finding common ground on tariffs, Canadian officials were told April 2 will be a crucial day in setting the Trump tariff doctrine, and any relief could come later.`\
+https://nytimes.com/2025/03/14/world/canada/trump-tariffs-canada-global-trade.html
+
+**Confirm or Deny: Graydon Carter Edition**\
+`A king of the glossy-magazine era sits for a lightning-round interview.`\
+https://nytimes.com/2025/03/14/style/confirm-or-deny-graydon-carter-edition.html
+
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s picks, multidimensional comedy and extraterrestrial drama.`\
 https://nytimes.com/2025/03/14/movies/science-fiction-movies-streaming.html
