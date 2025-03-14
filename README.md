@@ -1,40 +1,40 @@
-**Artyom Levshunov aims to stick with Blackhawks; Connor Bedard learns to watch his words**\
-`If Levshunov continues to play as well as he did against Colorado and San Jose, it'd be hard to justify sending him back to Rockford.`\
-https://nytimes.com/athletic/6202892/2025/03/14/blackhawks-sharks-artyom-levshunov-connor-bedard/
+**Chelsea's Conference League margin for error can only benefit Champions League hopes**\
+`Chelsea beat Copenhagen in the Conference League on Thursday night to advance to the quarter-finals of the competition`\
+https://nytimes.com/athletic/6202351/2025/03/14/chelsea-conference-league-champions-league/
 
-**Old Trafford serves up a reminder of its value to Man Utd — and what cannot be lost**\
-`Old Trafford crackled as Manchester United beat Real Sociedad in the Europa League on Thursday night`\
-https://nytimes.com/athletic/6202656/2025/03/14/old-trafford-manchester-united-atmosphere/
+**Bear in Pajamas**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/03/14/learning/bear-in-pajamas.html
 
-**Word of the Day: augment**\
-`This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/14/learning/word-of-the-day-augment.html
+**A Mathematical ‘Fever Dream’ Hits the Road**\
+`Meet “Mathemalchemy,” a traveling math-meets-art installation coming eventually to a dimension near you.`\
+https://nytimes.com/2025/03/14/science/mathematics-daubechies-mathemalchemy.html
 
-**Everton have a creativity problem - does the answer lie in Doucoure, Alcaraz or elsewhere?**\
-`As Everton close in on safety, manager Moyes has chance to experiment at No 10 and decide whether Alcaraz is the future`\
-https://nytimes.com/athletic/6199978/2025/03/14/carlos-alcaraz-everton-abdoulaye-doucoure/
+**How a Russian Mobster Stalked an Iranian Dissident in Brooklyn**\
+`Khalid Mehdiyev was sent to America to establish a beachhead for his gang. The organization then gave him a mission: Kill Masih Alinejad.`\
+https://nytimes.com/2025/03/14/nyregion/russian-mobster-masih-alinejad.html
 
-**Leicester are PL's worst for winning second balls - it epitomises their struggles**\
-`The results alone make for grim reading, but in Leicester's second-ball struggles, we can highlight much of where they are going wrong`\
-https://nytimes.com/athletic/6197314/2025/03/14/leicester-second-balls-premier-league/
+**As Trump Attacks Elite Colleges, Their Usual Allies Are Nowhere in Sight**\
+`The president wants to punish schools like Columbia University for allowing campus protest. College megadonors don’t seem to mind.`\
+https://nytimes.com/2025/03/14/nyregion/trump-columbia-university-antisem.html
 
-**Pereira has a vision for Wolves' back line - and it means more change is coming ﻿**\
-`Wolves have become much more aggressive in the way they defend under Pereira but centre-back will be a priority again in the summer`\
-https://nytimes.com/athletic/6200335/2025/03/14/wolves-back-line-defence-pereira/
+**A ‘Sea Change’ in the Subway: Assaults Outnumber Robberies**\
+`While crime remains rare in the New York City subway, a surge in unpredictable attacks, not motivated by theft, signals a worrisome shift.`\
+https://nytimes.com/2025/03/14/nyregion/subway-crime-nyc.html
 
-**FPL: Why selling Salah might be the best strategy for Gameweek 29**\
-`With double gameweeks coming up and Liverpool blanking, these are the arguments for going without FPL's star man`\
-https://nytimes.com/athletic/6196036/2025/03/14/fantasy-premier-league-mohamed-salah-gameweek-29/
+**Under G.O.P., Congress Cedes Power to Trump, Eroding Its Influence**\
+`On spending, oversight and other issues, Republican lawmakers have willingly ceded power traditionally reserved for Congress to the Trump White House.`\
+https://nytimes.com/2025/03/14/us/politics/trump-republicans-congress-power.html
 
-**Watching Palace loanee Owen Goodman with his father: 'The way he’s developed this season is unbelievable'**\
-`The young goalkeeper has set his sights on representing Canada, where he grew up, as he continues his development at AFC Wimbledon`\
-https://nytimes.com/athletic/6190457/2025/03/14/crystal-palace-goodman-wimbledon-colchester/
+**The Impact of Shrinking Resources in Uganda, Seen Through a Reporter’s Eyes**\
+`After the Trump administration cut most U.S. foreign aid, a reporter wanted to understand how it would affect one of Uganda’s most vulnerable communities.`\
+https://nytimes.com/2025/03/14/insider/uganda-lgbtq.html
 
-**City away: How Brighton are better equipped than ever to conquer their final frontier**\
-`Fabian Hurzeler's side will arrive at the Etihad on Saturday confident they can fight fire with fire and secure their first win there`\
-https://nytimes.com/athletic/6193292/2025/03/14/brighton-manchester-city-hurzeler-etihad/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/14/crosswords/spelling-bee-forum.html
 
-**West Ham's decisions have undone most of Moyes' good work since his exit**\
-`West Ham did not renew David Moyes's contract in the summer after his four-and-a-half years in charge`\
-https://nytimes.com/athletic/6199813/2025/03/14/west-ham-david-moyes-opinion/
+**Late Night Takes Shots at Trump’s Liquor Tariff Threat**\
+`Jimmy Kimmel pointed to the irony of President Trump “making it very expensive to get drunk. He’s the reason we need to get drunk!”`\
+https://nytimes.com/2025/03/14/arts/television/late-night-trump-wine-tariff.html
 
