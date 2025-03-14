@@ -1,3 +1,7 @@
+**The Slot story: From Dutch Bible Belt to Anfield - and why 'it all comes back to his dad'**\
+`A trip to the Liverpool manager's childhood home of Bergentheim reveals how he was shaped by the village - and his father`\
+https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-netherlands/
+
 **How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
 `The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
 https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6202353/2025/03/14/wild-defense-scoring-slump-gaudr
 **DeMarcus Lawrence takes shot at Cowboys, sparking tiff with Micah Parsons**\
 `The new Seahawks defensive lineman said of Dallas: "I'm not going to win a Super Bowl there." His ex-teammate offered a pointed response.`\
 https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
-
-**Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
-`The Wizards' first-round pick in 2023 will miss approximately four-to-six weeks, team officials said.`\
-https://nytimes.com/athletic/6201114/2025/03/14/bilal-coulibaly-injury-wizards-hamstring/
 

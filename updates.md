@@ -1,3 +1,15 @@
+**How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
+`The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
+https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
+
+**Jay Rodriguez on joining Wrexham, playing for England and chatting with Ryan Reynolds**\
+`The striker spent 11 seasons in the Premier League and played for his country but is now battling hard for promotion from League One`\
+https://nytimes.com/athletic/6186363/2025/03/14/jay-rodriguez-wrexham-england-southampton-burnley/
+
+**Odegaard, the 'scoop' pass and why it's so hard to pull off**\
+`Like some of football's finest playmakers, Arsenal captain Odegaard is using the scoop pass to beat a low block. But does it work?`\
+https://nytimes.com/athletic/6197496/2025/03/14/martin-odegaard-arsenal-scoop-pass/
+
 **The New York Times in Print for Friday, March 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/14/todays-new-york-times
