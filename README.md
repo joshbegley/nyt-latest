@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6202896/2025/03/14/rays-stadium-jose-altuve-left-fi
 `In “Terrestrial: The Sprout,” at New York Live Arts, three directors present a show about epic memory and indescribable feelings.`\
 https://nytimes.com/2025/03/14/arts/dance/review-terrestrial-germaine-ingram.html
 
-**Juju Watkins signs exclusive memorabilia, trading card deal with Fanatics**\
+**JuJu Watkins signs exclusive memorabilia, trading card deal with Fanatics**\
 `Watkins achieves another first in the collectibles world `\
 https://nytimes.com/athletic/6203726/2025/03/14/juju-watkins-fanatics-usc-memorabilia-cards/
 
