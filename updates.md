@@ -1,3 +1,7 @@
+**Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
+`The Oklahoma Board of Education recently approved a new, more conservative social studies agenda that has irked even some Republicans.`\
+https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
+
 **Brock Faber on heavy workload, late-game fatigue and Wild's OT keepaway strategy: 'It's been a grind'**\
 `Playing 10 games in 20 nights since the 4 Nations, Faber’s average ice time is 27:19 — second-highest in the NHL. It's wearing on him.`\
 https://nytimes.com/athletic/6203939/2025/03/14/brock-faber-fatigue-wild-nhl/

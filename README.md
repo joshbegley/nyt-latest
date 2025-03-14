@@ -1,3 +1,11 @@
+**Postecoglou: 'Potentially' more midfield opportunities for Gray this season**\
+`Gray started seven games in a row at centre-back between December and January as Postecoglou’s squad was crippled by an injury crisis.`\
+https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
+
+**Tuchel picking 34-year-old Henderson for England underlines two inconvenient truths**\
+`The decision to recall Henderson defined Tuchel's first England squad and demonstrated he is not here to win popularity contests`\
+https://nytimes.com/athletic/6203973/2025/03/14/tuchel-henderson-england-squad-world-cup/
+
 **Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
 `The Oklahoma Board of Education recently approved a new, more conservative social studies agenda that has irked even some Republicans.`\
 https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6203717/2025/03/14/jets-neal-pionk-injury/
 **Chappell Roan’s Bro-Country Tweak and 9 More New Songs**\
 `Hear tracks by Playboi Carti, Haim, Bon Iver, Willie Nelson and others.`\
 https://nytimes.com/2025/03/14/arts/music/playlist-chappell-roan-playboi-carti.html
-
-**Almiron: Howe ‘changed everything’ at Newcastle**\
-`Almiron spent six years at St. James’ Park after joining from Atlanta United in 2019 before rejoining the MLS side earlier this year.`\
-https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcastle/
-
-**Ask Ornstein: Arsenal, Zubimendi and Guimaraes? Liverpool's Kerkez interest?**\
-`Earlier today, we ran the latest edition of our subscriber-exclusive Ask Ornstein session. Here are his answers to your questions...`\
-https://nytimes.com/athletic/6203750/2025/03/14/arsenal-transfer-news-liverpool-milos-kerkez-david-ornstein/
 

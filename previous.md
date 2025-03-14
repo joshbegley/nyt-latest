@@ -1,3 +1,7 @@
+**Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
+`The Oklahoma Board of Education recently approved a new, more conservative social studies agenda that has irked even some Republicans.`\
+https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
+
 **Brock Faber on heavy workload, late-game fatigue and Wild's OT keepaway strategy: 'It's been a grind'**\
 `Playing 10 games in 20 nights since the 4 Nations, Faber’s average ice time is 27:19 — second-highest in the NHL. It's wearing on him.`\
 https://nytimes.com/athletic/6203939/2025/03/14/brock-faber-fatigue-wild-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcas
 **Ask Ornstein: Arsenal, Zubimendi and Guimaraes? Liverpool's Kerkez interest?**\
 `Earlier today, we ran the latest edition of our subscriber-exclusive Ask Ornstein session. Here are his answers to your questions...`\
 https://nytimes.com/athletic/6203750/2025/03/14/arsenal-transfer-news-liverpool-milos-kerkez-david-ornstein/
-
-**University of Minnesota, Under Federal Scrutiny, Limits Its Political Speech**\
-`A vote by regents put the university among roughly 140 colleges that have adopted similar policies since the 2023 attack on Israel by Hamas.`\
-https://nytimes.com/2025/03/14/us/university-of-minnesota-political-speech.html
 
