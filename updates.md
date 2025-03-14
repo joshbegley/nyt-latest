@@ -1,3 +1,15 @@
+**Dr. Sheldon Greenfield, Who Exposed Gaps in Health Care, Dies at 86**\
+`The author of numerous studies, he urged patients to question their physicians and expressed concern about cancer treatment for older adults.`\
+https://nytimes.com/2025/03/14/health/dr-sheldon-greenfield-dead.html
+
+**Who’s Afraid of Lab-Grown Meat?**\
+`Mississippi became the third state to ban cell-derived meat, a product not for sale in the United States. But not all livestock producers are opposed to cultivated protein.`\
+https://nytimes.com/2025/03/14/science/whos-afraid-of-lab-grown-meat.html
+
+**Schumer Is in the Hot Seat for Shrinking From a Shutdown Fight**\
+`Privately, many Senate Democrats conceded that their leader was doing his job by protecting his members from a tough vote and making a politically painful decision. But the backlash from his party was intense.`\
+https://nytimes.com/2025/03/14/us/politics/schumer-trump-government-shutdown.html
+
 **A Close Elon Musk Friend Joins His Effort on Social Security**\
 `The involvement of Antonio Gracias, an investor who has known Elon Musk for two decades, suggests that Mr. Musk has made overhauling the Social Security Administration a priority.`\
 https://nytimes.com/2025/03/14/us/politics/elon-musk-antonio-gracias-social-security-administration.html
