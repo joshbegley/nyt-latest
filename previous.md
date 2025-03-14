@@ -1,3 +1,7 @@
+**Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
+`Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
+https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
+
 **Georgia football acting like it's Gunner Stockton's team now**\
 `No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
 https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/movies/miami-beach-mayor-israeli-palestinian-film
 **Why a 100-year-old tree is unnerving golfers at The Players Championship**\
 `"It's meant to be intimidating. So if someone says 'hey, I have a problem with that tree,' I’m like, 'good, that’s what Pete wanted.'"`\
 https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
-
-**Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
-`Anne Marie Hochhalter, who was paralyzed from the waist down when she was shot in the chest and back, died on Feb. 16. A coroner classified the death as a homicide.`\
-https://nytimes.com/2025/03/13/us/columbine-school-shooting-death-toll.html
 

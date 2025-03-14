@@ -1,3 +1,7 @@
+**Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
+`Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
+https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
+
 **Georgia football acting like it's Gunner Stockton's team now**\
 `No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
 https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
