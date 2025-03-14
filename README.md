@@ -1,11 +1,3 @@
-**Zack Bolduc suits the Blues well: 'Really developing into an all-around NHL player'**\
-`Zack Bolduc scored his 12th goal of the season in Thursday's 5-3 loss to the Pittsburgh Penguins, continuing an impressive stretch.`\
-https://nytimes.com/athletic/6198265/2025/03/13/zack-bolduc-st-louis-blues-forecheck/
-
-**Attempted Theft and Poisoning of a Star Reindeer Leaves Anchorage Miffed**\
-`Star VII, the unofficial mascot for the Alaska city, nearly died when a person sprayed it with air freshener, the animals’ owner said.`\
-https://nytimes.com/2025/03/13/us/star-reindeer-stolen-sick-anchorage.html
-
 **Maple Leafs report cards: Penalty-killing miscues costly against division-rival Panthers**\
 `With a 3-2 loss to Florida, Toronto let the opportunity to bolster its chances of winning the Atlantic slip through its fingers.`\
 https://nytimes.com/athletic/6202099/2025/03/13/maple-leafs-panthers-atlantic-division-standings/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6202407/2025/03/13/daniil-medvedev-celebration-tenn
 **Plane Catches Fire at Denver Airport**\
 `American Airlines, which operated the flight, said the plane had experienced an “engine-related issue.”`\
 https://nytimes.com/video/us/100000010051893/american-airlines-denver-airport-fire.html
+
+**Corrections: March 14, 2025**\
+`Corrections that appeared in print on Friday, March 14, 2025.`\
+https://nytimes.com/2025/03/13/pageoneplus/corrections-march-14-2025.html
+
+**$3.5 Million Settlement in Sacramento Jail Death**\
+`The fatal overdose of a homeless man at a Sacramento County jail is one of multiple deaths in which staff have been accused of medical neglect.`\
+https://nytimes.com/2025/03/13/us/california-jail-death.html
 
