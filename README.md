@@ -1,3 +1,12 @@
+**Alexander-Arnold out of Carabao Cup final; Konate expected to play**\
+`The right-back was forced off injured during the second half of Liverpool's Champions League defeat against PSG on Tuesday.`\
+https://nytimes.com/athletic/6196972/2025/03/14/trent-alexander-arnold-injury-carabao-cup-final/
+
+**Two players across Premier League, EFL tested positive for banned substance in 2023-24**\
+`An FOI request with UK Anti-Doping (UKAD) showed two players tested positive for a banned substance from the 606 tests carried out.
+`\
+https://nytimes.com/athletic/6201574/2025/03/14/premier-league-efl-drugs/
+
 **Two Astronauts on an 8-Day Mission That Turned Into a 9-Month Odyssey**\
 `An exclusive interview with Suni Williams and Butch Wilmore, whose planned short mission to space turned into an adventure lasting much, much longer.`\
 https://nytimes.com/2025/03/14/podcasts/the-daily/nasa-spacex-astronauts-iss-launch.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6202463/2025/03/14/messi-goal-jamaica-kingston-cava
 **Meet the former F1 engineer behind the 'world's best croissant'**\
 `Without F1, Kate Reid's world-famous croissants would never have existed. Find out why in this exclusive excerpt. `\
 https://nytimes.com/athletic/6201684/2025/03/14/f1-australian-gp-croissants-kate-reid/
-
-**NBA Misery Index: Suns, Mavs, 76ers fans have had it bad. But who's had it worse?**\
-`Disappointment has been a common theme across the league even more than normal. One teams stands above the rest.`\
-https://nytimes.com/athletic/6194291/2025/03/14/nba-misery-suns-sixers-mavericks/
-
-**'So proud of our boy': With family in attendance, Braden Schneider scores OT winner**\
-`Schneider's parents watched the goal from Section 126, then saw their son drop to a knee and punch the air in celebration.`\
-https://nytimes.com/athletic/6202760/2025/03/14/braden-schneider-family-ot-winner/
 
