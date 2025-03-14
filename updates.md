@@ -1,3 +1,7 @@
+**Question to One’s Best Friend**\
+`Brandon Koppy provides us with small pleasures.`\
+https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
+
 **Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
 `Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
 https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html

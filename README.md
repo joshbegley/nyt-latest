@@ -1,3 +1,7 @@
+**JD Vance Is Booed at a Kennedy Center Concert After Trump’s Takeover**\
+`The vice president and his wife were booed as they took their seats for a National Symphony Orchestra concert of music by Shostakovich and Stravinsky.`\
+https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
+
 **Question to One’s Best Friend**\
 `Brandon Koppy provides us with small pleasures.`\
 https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-ro
 **Diana Taurasi and the challenge of saying goodbye and discovering what's next**\
 `Retirement hits athletes in different ways. Some need to mourn. Taurasi is experiencing this in her own unique way.`\
 https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-conference/
-
-**Georgia football acting like it's Gunner Stockton's team now**\
-`No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
-https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
 
