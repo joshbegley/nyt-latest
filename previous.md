@@ -1,3 +1,23 @@
+**Review: Out of the Future, a Drab Ritual**\
+`In “Terrestrial: The Sprout,” at New York Live Arts, three directors present a show about epic memory and indescribable feelings.`\
+https://nytimes.com/2025/03/14/arts/dance/review-terrestrial-germaine-ingram.html
+
+**Juju Watkins signs exclusive memorabilia, trading card deal with Fanatics**\
+`Watkins achieves another first in the collectibles world `\
+https://nytimes.com/athletic/6203726/2025/03/14/juju-watkins-fanatics-usc-memorabilia-cards/
+
+**Senate Moves Toward Critical Vote to Avert Shutdown as Schumer Relents**\
+`An afternoon vote was expected to clear the way for a Republican-written bill to keep government funding flowing past midnight after the top Senate Democrat said he would not block it.`\
+https://nytimes.com/2025/03/14/us/politics/senate-vote-shutdown.html
+
+**Father Accused of Fatally Beating His 2-Month-Old Daughter**\
+`Marlon Rabanales-Pretzantzin was charged with second-degree murder in a Long Island court on Thursday. Authorities said he had acknowledged hurting the child.`\
+https://nytimes.com/2025/03/14/nyregion/long-island-father-baby-murder-charge.html
+
+**Mark Gastineau sues ESPN, NFL for $25 million over viral Brett Favre clip**\
+`Gastineu said Favre "took a dive" to help Strahan secure the single-season sack record during the November 2023 encounter, per the clip.`\
+https://nytimes.com/athletic/6203524/2025/03/14/mark-gastineau-espn-nfl-lawsuit-brett-favre/
+
 **Scoop City: NFL's highest and most underpaid players as free agency slows**\
 `Inside: Who are the NFL&#8217;s highest-paid players, now that free agency is mostly done? Plus, the league&#8217;s most underpaid, how Sean McVay recruits and why Micah Parsons is so angry.`\
 https://nytimes.com/athletic/6203738/2025/03/14/nfl-highest-paid-underpaid-players-2024-2025-scoop-city/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/14/world/canada/canada-prime-minister-mark-carney-tr
 **Supreme Court Revives Long-Running Nazi Art Restitution Case**\
 `The case involving a Pissarro is being sent back to federal court in California for review in light of a new state law, in a dispute between heirs and a Spanish museum.`\
 https://nytimes.com/2025/03/14/arts/design/supreme-court-pissarro-nazi-art-restitution.html
-
-**The somewhat forgotten Giants of spring: Who could be this year's Heliot Ramos?**\
-`There are players who might play an outsized role on the Giants, yet aren't getting as much attention. Here's a look at some.`\
-https://nytimes.com/athletic/6201653/2025/03/14/giants-spring-key-players-luciano-winn/
-
-**Coach J.B. Bickerstaff says Pistons 'need to own responsibility' for loss to league-worst Wizards**\
-`"Sometimes you've got to learn the hard way," says Pistons coach after dropping game to 14-51 Wizards. `\
-https://nytimes.com/athletic/6203552/2025/03/14/pistons-loss-wizards-jb-bickerstaff/
-
-**Herman Graf, Who Helped Sell ‘Tropic of Cancer,’ Dies at 91**\
-`A major figure in independent publishing, he promoted Henry Miller’s once-banned book and helped make “A Confederacy of Dunces” a best seller after the author’s death.`\
-https://nytimes.com/2025/03/14/books/herman-graf-dead.html
-
-**Ted Lasso to return for season 4: 'Ted's coaching a women's team'**\
-`Apple TV+ has confirmed Jason Sudeikis will reprise his role as Coach Lasso in the Emmy award-winning show.`\
-https://nytimes.com/athletic/6203604/2025/03/14/ted-lasso-season-four/
-
-**U.S. Consumer Sentiment Drops as Inflation Anxiety Soars**\
-`A new survey from the University of Michigan shows Americans bracing for economic pain as tariffs and policy uncertainty bite.`\
-https://nytimes.com/2025/03/14/business/inflation-consumer-sentiment.html
 
