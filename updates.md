@@ -1,3 +1,15 @@
+**Quote of the Day: Leaders Standing Up to Trump Widen Their Support at Home**\
+`Quotation of the Day for Friday, March 14, 2025.`\
+https://nytimes.com/2025/03/13/pageoneplus/quote-of-the-day-leaders-standing-up-to-trump-widen-their-support-at-home.html
+
+**Linus Ullmark makes NHL save-of-the-season candidate**\
+`Ullmark's viral web gem should be remembered as his best — and the league's best — of the 2024-25 NHL season.`\
+https://nytimes.com/athletic/6202354/2025/03/13/senators-linus-ullmark-save-nhl/
+
+**Bobby Brink takes his game 'to another level,' shows Flyers he belongs**\
+`Brink had his second career two-goal game as the Flyers finally ended a five-game losing streak.`\
+https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
+
 **Bobby Brink shows Flyers he belongs as he takes his game 'to another level'**\
 `Brink had his second career two-goal game as the Flyers finally ended a five-losing streak.`\
 https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
