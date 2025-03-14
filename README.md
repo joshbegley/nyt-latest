@@ -1,3 +1,7 @@
+**Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
+`Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
+https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
+
 **Daniil Medvedev's Indian Wells celebration and the sweetness of tennis relief**\
 `Daniil Medvedev's exuberant celebration after beating Arthur Fils was not his normal reaction to winning a tennis match.`\
 https://nytimes.com/athletic/6202407/2025/03/13/daniil-medvedev-celebration-tennis-indian-wells/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton
 **Andy Beshear Slams Gavin Newsom for Having Steve Bannon on Podcast**\
 `“I don’t think we should give him oxygen on any platform — ever, anywhere,” the Democratic governor of Kentucky said of President Trump’s former chief strategist.`\
 https://nytimes.com/2025/03/13/us/politics/beshear-newsom-bannon-podcast.html
-
-**DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
-`“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
-https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
 
