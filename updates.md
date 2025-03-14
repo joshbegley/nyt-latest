@@ -1,3 +1,7 @@
+**Odobert off the mark, defensive duo reunited - is this the turning point for Spurs?**\
+`After a difficult few months, there is a renewed feeling of optimism at Tottenham following a 3-1 Europa League win over AZ`\
+https://nytimes.com/athletic/6202301/2025/03/14/spurs-alkmaar-odobert-van-de-ven-romero/
+
 **Rashford set for England return, Grealish to be left out**\
 `Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia`\
 https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
