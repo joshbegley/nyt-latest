@@ -1,3 +1,15 @@
+**F.D.A. Issues Warning About Galaxy Gas and Other Nitrous Products**\
+`The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
+https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
+
+**Whiteley 'just so proud' after Liverpool secure first WSL win at Anfield**\
+`Liverpool stunned Manchester United with a 3-1 victory on Friday night.`\
+https://nytimes.com/athletic/6204692/2025/03/14/amber-whitely-liverpool-wsl-anfield/
+
+**Cooper Kupp agrees with Seahawks on 3-year, $45 million deal: Source**\
+`Since entering the league, Kupp has the sixth-most receptions, seventh-most touchdowns and eighth-most receiving yards among wide receivers.`\
+https://nytimes.com/athletic/6198934/2025/03/14/cooper-kupp-seahawks-nfl-free-agency-2025/
+
 **Draft List for New Travel Ban Proposes Trump Target 43 Countries**\
 `A draft circulating inside the administration lists three tiers of countries whose citizens may face restrictions on entering the United States.`\
 https://nytimes.com/2025/03/14/us/politics/trump-travel-ban.html
