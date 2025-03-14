@@ -1,3 +1,15 @@
+**45 Schools Under Federal Investigation Over a Small Diversity Project**\
+`The Ph.D. Project works with universities to increase the racial diversity of professors in business schools. Schools like Yale and Ohio State were named in the investigation.`\
+https://nytimes.com/2025/03/14/us/politics/phd-project-education-department.html
+
+**Fran McCaffery dismissed as Iowa men's basketball coach after 15 seasons**\
+`Under McCaffery, Iowa was ranked nationally in eight seasons but never reached the Sweet 16, an ongoing program drought since 1999.`\
+https://nytimes.com/athletic/6185165/2025/03/14/iowa-basketball-coach-fran-mccaffery-dismissed/
+
+**Syria Has a New Temporary Constitution. Here Are the Highlights.**\
+`The declaration, signed by interim president Ahmed al-Shara, guarantees individual freedoms but gives Mr. al-Shara abundant power and keeps Islamic law as its legal foundation.`\
+https://nytimes.com/2025/03/14/world/europe/syria-constitution-new-government.html
+
 **Postecoglou: 'Potentially' more midfield opportunities for Gray this season**\
 `Gray started seven games in a row at centre-back between December and January as Postecoglou’s squad was crippled by an injury crisis.`\
 https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
