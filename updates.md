@@ -1,3 +1,19 @@
+**Mark Carney Sworn In as Canada’s 24th Prime Minister**\
+`Mark Carney replaced Justin Trudeau, who led Canada for nearly a decade.`\
+https://nytimes.com/video/world/canada/100000010053081/canada-prime-minister-mark-carney.html
+
+**Syria Has a New Temporary Constitution. Here are the Highlights.**\
+`The declaration, signed by interim president Ahmed al-Shara, guarantees individual freedoms but gives Mr. al-Shara abundant power and keeps Islamic law as its legal foundation.`\
+https://nytimes.com/2025/03/14/world/europe/syria-constitution-new-government.html
+
+**Jets defenceman Neal Pionk week-to-week with lower-body injury, will miss time**\
+`Pionk had played through the injury for some time but the Jets are shutting him down now with the playoffs in mind.`\
+https://nytimes.com/athletic/6203717/2025/03/14/jets-neal-pionk-injury/
+
+**Chappell Roan’s Bro-Country Tweak and 9 More New Songs**\
+`Hear tracks by Playboi Carti, Haim, Bon Iver, Willie Nelson and others.`\
+https://nytimes.com/2025/03/14/arts/music/playlist-chappell-roan-playboi-carti.html
+
 **Almiron: Howe ‘changed everything’ at Newcastle**\
 `Almiron spent six years at St. James’ Park after joining from Atlanta United in 2019 before rejoining the MLS side earlier this year.`\
 https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcastle/
