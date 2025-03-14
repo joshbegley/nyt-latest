@@ -1,3 +1,11 @@
+**D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
+`The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
+https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
+
+**Wildfire Smoke Blankets Skies in Oklahoma**\
+`A fast-moving wildfire, fueled by gusty winds and dry air, filled the sky over Oklahoma with smoke.`\
+https://nytimes.com/video/weather/100000010053932/oklahoma-smoke-wildfires-storm.html
+
 **Judges Have Ordered Federal Workers Back on the Job. Now What?**\
 `Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
 https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html

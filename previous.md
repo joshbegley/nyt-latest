@@ -1,3 +1,11 @@
+**D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
+`The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
+https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
+
+**Wildfire Smoke Blankets Skies in Oklahoma**\
+`A fast-moving wildfire, fueled by gusty winds and dry air, filled the sky over Oklahoma with smoke.`\
+https://nytimes.com/video/weather/100000010053932/oklahoma-smoke-wildfires-storm.html
+
 **Judges Have Ordered Federal Workers Back on the Job. Now What?**\
 `Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
 https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198934/2025/03/14/cooper-kupp-seahawks-nfl-free-ag
 **Education Department Sued Over Cuts to Civil Rights Office**\
 `A new lawsuit argues that recent layoffs undermine the office’s ability to investigate complaints of discrimination from all students, not just those aligned with President Trump’s agenda.`\
 https://nytimes.com/2025/03/14/us/politics/education-department-civil-rights-office.html
-
-**Tuchel says he must 'earn the right' to sing national anthem**\
-`Thomas Tuchel believes that he must “earn the right” to sing the national anthem before England games.`\
-https://nytimes.com/athletic/6203872/2025/03/14/thomas-tuchel-national-anthem-england/
-
-**Postecoglou: Some of my Tottenham criticism is 'cheap and shallow'**\
-`The 59-year-old gave a lengthy answer when he was asked about the scrutiny managers face.`\
-https://nytimes.com/athletic/6204241/2025/03/14/ange-postecoglou-tottenham-critics/
 
