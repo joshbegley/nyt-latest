@@ -1,3 +1,7 @@
+**China Condemns Panama Canal Deal, Asserting a Right to Influence the Region**\
+`The Hong Kong conglomerate CK Hutchison’s planned sale of ports in Panama to a group led by BlackRock, the American finance giant, is under fire from Beijing.`\
+https://nytimes.com/2025/03/14/business/panama-canal-ck-hutchison-blackrock.html
+
 **Why no Morgan Gibbs-White? Forest's star player deserved a place in Tuchel's first England squad**\
 `Gibbs-White’s omission will not just surprise a lot of people at Forest, but many others who have followed his emergence`\
 https://nytimes.com/athletic/6202389/2025/03/14/why-no-morgan-gibbs-white-forests-star-player-deserved-a-place-in-tuchels-first-england-squad/
