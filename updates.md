@@ -1,3 +1,11 @@
+**Rashford's England return must be next stage of his Villa career renaissance**\
+`Marcus Rashford has unexpectedly been called up to the England squad for Thomas Tuchel's first games`\
+https://nytimes.com/athletic/6202037/2025/03/14/marcus-rashford-england-aston-villa/
+
+**Tuchel's first England squad live Q&A: Jack Pitt-Brooke answers your questions**\
+`What do you think of Tuchel's first squad? Get your questions in for Jack Pitt-Brooke and he'll answer as many as he can between 10 and 11am`\
+https://nytimes.com/athletic/6201075/2025/03/14/thomas-tuchel-england-squad-discuss/
+
 **Why Syrians Are Fleeing to Lebanon**\
 `Text by Diego Ibarra Sanchez`\
 https://nytimes.com/card/2025/03/14/world/middleeast/syria-clashes-alawite-lebanon
