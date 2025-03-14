@@ -1,3 +1,7 @@
+**Question to One’s Best Friend**\
+`Brandon Koppy provides us with small pleasures.`\
+https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
+
 **Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
 `Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
 https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6202061/2025/03/13/diana-taurasi-retirement-press-c
 **Georgia football acting like it's Gunner Stockton's team now**\
 `No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
 https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
-
-**Andy Beshear Slams Gavin Newsom for Having Steve Bannon on Podcast**\
-`“I don’t think we should give him oxygen on any platform — ever, anywhere,” the Democratic governor of Kentucky said of President Trump’s former chief strategist.`\
-https://nytimes.com/2025/03/13/us/politics/beshear-newsom-bannon-podcast.html
 
