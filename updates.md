@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-b
 `\
 https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
 
+**Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
+`Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
+`\
+https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
+
 **Rashford set for England return, Grealish to be left out**\
 `Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia.`\
 https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
