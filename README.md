@@ -7,7 +7,7 @@ https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
 https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
 
 **Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
-`Videos showed passengers standing on a plane’s wing and climbing down a portable staircase.`\
+`The flight had been diverted to the airport after experiencing “engine vibrations,” the Federal Aviation Administration said.`\
 https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
 
 **Daniil Medvedev's Indian Wells celebration and the sweetness of tennis relief**\
