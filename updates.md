@@ -1,3 +1,11 @@
+**Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
+`Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
+https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
+
+**Alex Cora on Rafael Devers' position quandary, Wilyer Abreu cleared to play**\
+`A day after Rafael Devers said he’s willing to serve as the team’s designated hitter, Cora was not ready to announce anything.`\
+https://nytimes.com/athletic/6204360/2025/03/14/rafael-devers-red-sox-position-alex-cora/
+
 **Alex Cora on Rafael Devers' position quandary: 'Time will help us'**\
 `A day after Rafael Devers said he’s willing to serve as the team’s designated hitter, Cora was not ready to announce anything.`\
 https://nytimes.com/athletic/6204360/2025/03/14/rafael-devers-red-sox-position-alex-cora/
