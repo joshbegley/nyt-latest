@@ -1,3 +1,7 @@
+**Rashford set for England return, Grealish to be left out**\
+`Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia`\
+https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
+
 **Chelsea's Conference League margin for error can only benefit Champions League hopes**\
 `Chelsea beat Copenhagen in the Conference League on Thursday night to advance to the quarter-finals of the competition`\
 https://nytimes.com/athletic/6202351/2025/03/14/chelsea-conference-league-champions-league/

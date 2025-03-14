@@ -1,3 +1,7 @@
+**Rashford set for England return, Grealish to be left out**\
+`Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia`\
+https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
+
 **Chelsea's Conference League margin for error can only benefit Champions League hopes**\
 `Chelsea beat Copenhagen in the Conference League on Thursday night to advance to the quarter-finals of the competition`\
 https://nytimes.com/athletic/6202351/2025/03/14/chelsea-conference-league-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/insider/uganda-lgbtq.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/03/14/crosswords/spelling-bee-forum.html
-
-**Late Night Takes Shots at Trump’s Liquor Tariff Threat**\
-`Jimmy Kimmel pointed to the irony of President Trump “making it very expensive to get drunk. He’s the reason we need to get drunk!”`\
-https://nytimes.com/2025/03/14/arts/television/late-night-trump-wine-tariff.html
 
