@@ -1,3 +1,11 @@
+**Bobby Brink shows Flyers he belongs as he takes his game 'to another level'**\
+`Brink had his second career two-goal game as the Flyers finally ended a five-losing streak.`\
+https://nytimes.com/athletic/6202647/2025/03/13/flyers-bobby-brink-tortorella-lightning/
+
+**Steph Curry becomes first NBA player to make 4,000 3-pointers**\
+`Curry, who will turn 37 on Friday, entered Thursday already having made 251 3s this season, leading the league at 4.5 per game.`\
+https://nytimes.com/athletic/6201080/2025/03/13/steph-curry-warriors-three-pointers-career/
+
 **Is Tristan Jarry borrowing from Rickard Rakell's script last season?**\
 `Jarry is the biggest reason the Penguins have won three consecutive games for only the second time this season.`\
 https://nytimes.com/athletic/6202615/2025/03/13/penguins-tristan-jarry-turnaround-rickard-rakell-blues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss
 **JD Vance Is Booed at a Kennedy Center Concert After Trump’s Takeover**\
 `The vice president and his wife were booed as they took their seats for a National Symphony Orchestra concert of music by Shostakovich and Stravinsky.`\
 https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
-
-**Question to One’s Best Friend**\
-`Brandon Koppy provides us with small pleasures.`\
-https://nytimes.com/2025/03/13/crosswords/daily-puzzle-2025-03-14.html
-
-**Plane Fire at Denver Airport Forces Passengers to Evacuate Onto Wing**\
-`The flight had been diverted to the airport after experiencing “engine vibrations,” the authorities said. Six passengers were taken to a hospital for evaluation.`\
-https://nytimes.com/2025/03/13/us/american-airlines-denver-airport-fire.html
 
