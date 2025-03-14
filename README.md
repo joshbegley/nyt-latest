@@ -1,3 +1,19 @@
+**Mark Carney Sworn In as Canada’s 24th Prime Minister**\
+`Mark Carney replaced Justin Trudeau, who led Canada for nearly a decade.`\
+https://nytimes.com/video/world/canada/100000010053081/canada-prime-minister-mark-carney.html
+
+**Syria Has a New Temporary Constitution. Here are the Highlights.**\
+`The declaration, signed by interim president Ahmed al-Shara, guarantees individual freedoms but gives Mr. al-Shara abundant power and keeps Islamic law as its legal foundation.`\
+https://nytimes.com/2025/03/14/world/europe/syria-constitution-new-government.html
+
+**Jets defenceman Neal Pionk week-to-week with lower-body injury, will miss time**\
+`Pionk had played through the injury for some time but the Jets are shutting him down now with the playoffs in mind.`\
+https://nytimes.com/athletic/6203717/2025/03/14/jets-neal-pionk-injury/
+
+**Chappell Roan’s Bro-Country Tweak and 9 More New Songs**\
+`Hear tracks by Playboi Carti, Haim, Bon Iver, Willie Nelson and others.`\
+https://nytimes.com/2025/03/14/arts/music/playlist-chappell-roan-playboi-carti.html
+
 **Almiron: Howe ‘changed everything’ at Newcastle**\
 `Almiron spent six years at St. James’ Park after joining from Atlanta United in 2019 before rejoining the MLS side earlier this year.`\
 https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcastle/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6202616/2025/03/14/mlb-eno-sarris-live-chat-3-14/
 **Is This a ‘Negative World’ for Christians?**\
 `Readers react to a profile of the Christian author Aaron Renn. Also: The link between poverty and health; absent ex-presidents; solo female travelers.`\
 https://nytimes.com/2025/03/14/opinion/christians-aaron-renn-negative-world.html
-
-**State of the League: After a busy offseason NWSL heads into 2025 lacking some momentum**\
-`The NWSL wants its spotlight in 2025, but that won’t come without the increasing prevalence of U.S. politics.`\
-https://nytimes.com/athletic/6203787/2025/03/14/state-of-the-nwsl-2025-season/
-
-**Science Amid Chaos: What Worked During the Pandemic? What Failed?**\
-`As the coronavirus spread, researchers worldwide scrambled to find ways to keep people safe. Some efforts were misguided. Others saved millions of lives.`\
-https://nytimes.com/2025/03/14/health/covid-pandemic-public-health.html
-
-**Myles Garrett determined to win with Browns, says it's 'never been about money'**\
-`Garrett said his trade request and insistence that he was ready to play for a contender were "necessary" to further the conversation. `\
-https://nytimes.com/athletic/6203979/2025/03/14/myles-garrett-browns-extension-free-agency/
-
-****\
-`(No description)`\
-https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.html
 

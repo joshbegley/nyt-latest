@@ -1,3 +1,11 @@
+**Almiron: Howe ‘changed everything’ at Newcastle**\
+`Almiron spent six years at St. James’ Park after joining from Atlanta United in 2019 before rejoining the MLS side earlier this year.`\
+https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcastle/
+
+**Ask Ornstein: Arsenal, Zubimendi and Guimaraes? Liverpool's Kerkez interest?**\
+`Earlier today, we ran the latest edition of our subscriber-exclusive Ask Ornstein session. Here are his answers to your questions...`\
+https://nytimes.com/athletic/6203750/2025/03/14/arsenal-transfer-news-liverpool-milos-kerkez-david-ornstein/
+
 **University of Minnesota, Under Federal Scrutiny, Limits Its Political Speech**\
 `A vote by regents put the university among roughly 140 colleges that have adopted similar policies since the 2023 attack on Israel by Hamas.`\
 https://nytimes.com/2025/03/14/us/university-of-minnesota-political-speech.html
