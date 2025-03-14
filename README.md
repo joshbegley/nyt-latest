@@ -1,8 +1,24 @@
+**My Adopted Cousin’s Biological Parents Were Siblings. Do I Tell Her?**\
+`The magazine’s Ethicist columnist on divulging a family secret.`\
+https://nytimes.com/2025/03/14/magazine/adoption-incest-secret-ethics.html
+
+**The Blood Moon Rises: A Total Lunar Eclipse**\
+`The first total lunar eclipse in more than two years lit up the sky last night as humanity, forever fascinated with the Earth’s only natural satellite, watched.`\
+https://nytimes.com/2025/03/14/science/space/blood-moon-lunar-eclipse-photos.html
+
+**Kevin Drum, Influential Early Political Blogger, Dies at 66**\
+`Writing on his own and for Washington Monthly and Mother Jones, he earned a reputation as a serious policy thinker. He also invented Friday cat blogging.`\
+https://nytimes.com/2025/03/14/us/kevin-drum-dead.html
+
+**U.S. Arrests 2nd Person Tied to Pro-Palestinian Protests at Columbia**\
+`The action came less than a week after Mahmoud Khalil, a recent Columbia graduate and a prominent figure in campus demonstrations, was arrested.`\
+https://nytimes.com/2025/03/14/us/columbia-protester-leqaa-kordia.html
+
 **Carl Lundstrom, Who Backed the File-Sharing Site Pirate Bay, Dies in Plane Crash**\
 `Mr. Lundstrom was a supporter of far-right causes and, at one point, an unsuccessful candidate for office. He was convicted of aiding copyright infringement in 2009.`\
 https://nytimes.com/2025/03/14/world/europe/carl-lundstrom-dead-pirate-bay.html
 
-**Wildfire Fueled by Dry Conditions Quickly Spreads Across Texas and Oklahoma**\
+**Wildfires Fueled by Dry Conditions Quickly Spread Across Texas and Oklahoma**\
 `Images on social media showed a dystopian view of areas near Lubbock and Amarillo, Texas.`\
 https://nytimes.com/2025/03/14/us/wildfires-texas-oklahoma.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/14/arts/music/sean-combs-cassie-hotel-video-cnn.html
 **Being a Raven is what DeAndre Hopkins wanted. Lamar Jackson is a big reason why**\
 `Hopkins, who signed a one-year deal with Baltimore, has spoken openly about how much he’d like to play with Jackson. Now he gets his chance.`\
 https://nytimes.com/athletic/6204328/2025/03/14/deandre-hopkins-ravens-lamar-jackson/
-
-**An Agoraphobe Goes to the Grocery Store**\
-`It had been more than 365 days since I went to the supermarket. So I steeled myself and ventured out.`\
-https://nytimes.com/interactive/2025/03/14/magazine/agoraphobia-grocery-store.html
-
-**Yankees name Carlos Rodón as Opening Day starter vs. Brewers**\
-`It will be Rodón’s first Opening Day start since joining the Yankees in 2023 on a six-year, $162-million contract.`\
-https://nytimes.com/athletic/6204355/2025/03/14/yankees-carlos-rodon-opening-day-starter/
-
-**What the Titans' free agency moves could mean for the 2025 NFL Draft**\
-`The fact that they’ve averted their attention from available starting QBs seems to indicate where they’re leaning in the draft`\
-https://nytimes.com/athletic/6204287/2025/03/14/titans-free-agency-nfl-draft-quarterback/
-
-**Bird Flu Kills 2 Pet Cats in New York City, Officials Say**\
-`Health authorities say the threat of infection for people remained low even amid the spread of H5N1 virus among birds and cattle nationally.`\
-https://nytimes.com/2025/03/14/nyregion/pet-cats-bird-flu-new-york-city.html
 
