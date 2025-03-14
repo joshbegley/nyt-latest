@@ -1,41 +1,40 @@
-**NASA Astronauts Are About to Return Home**\
-`A spacecraft malfunction last June has kept Suni Williams and Butch Wilmore on the International Space Station for more than nine months. They are slated to return home in the next few days. But before they do, Michael Barbaro spoke with them about their unusually long stay in space.`\
-https://nytimes.com/video/podcasts/the-daily/100000010043909/nasa-astronauts-are-about-to-return-home.html
+**Why Syrians Are Fleeing to Lebanon**\
+`Text by Diego Ibarra Sanchez`\
+https://nytimes.com/card/2025/03/14/world/middleeast/syria-clashes-alawite-lebanon
 
-**Chelsea reach agreement with Sporting to sign Quenda**\
-`The 17-year-old will remain at the Portuguese club next season and then move to Stamford Bridge in July 2026.`\
-https://nytimes.com/athletic/6130940/2025/03/14/geovany-quenda-chelsea-transfer/
+**Deep league breakout pitchers for the 2025 fantasy baseball season**\
+`Eno Sarris identifies six late-round fantasy baseball starting pitcher options who show the potential for a tidy return on investment.`\
+https://nytimes.com/athletic/6191864/2025/03/14/deep-league-breakout-pitchers-for-the-2025-fantasy-baseball/
 
-**Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
-`Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
-`\
-https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
+**Trump to Deliver Speech to Justice Dept. After Triumph in Battles Against It**\
+`The president, once the target of federal prosecution, is likely to announce steps to combat “weaponization” of the department, even as he uses its powers to punish enemies and reward allies.`\
+https://nytimes.com/2025/03/14/us/politics/trump-speech-justice-department.html
 
-**Odobert off the mark, defensive duo reunited: Is this the turning point for Spurs?**\
-`After a difficult few months, there is a renewed feeling of optimism at Tottenham following a 3-1 Europa League win over AZ`\
-https://nytimes.com/athletic/6202301/2025/03/14/spurs-alkmaar-odobert-van-de-ven-romero/
+**SpaceX Tries Again to Launch NASA’s Crew-10 Mission to the I.S.S.: How to Watch**\
+`The flight was scrubbed on Wednesday night, and the astronauts will return to the launchpad for their trip to the International Space Station.`\
+https://nytimes.com/2025/03/14/science/nasa-spacex-astronauts-iss-launch.html
 
-**Rashford set for England return, Grealish to be left out**\
-`Morgan Rogers has also been called up for England's World Cup qualifiers against Albania and Latvia.`\
-https://nytimes.com/athletic/6201980/2025/03/14/marcus-rashford-england-squad-grealish/
+**Democrats Plan Nationwide Blitz of Town Halls in Republican Districts**\
+`A series of events in all 50 states aims to capitalize on a recent warning from Republican leadership that its lawmakers should avoid such public forums.`\
+https://nytimes.com/2025/03/14/us/politics/democrats-town-halls-republicans.html
 
-**Chelsea's Conference League margin for error can only benefit Champions League hopes**\
-`Chelsea beat Copenhagen in the Conference League on Thursday night to advance to the quarter-finals of the competition`\
-https://nytimes.com/athletic/6202351/2025/03/14/chelsea-conference-league-champions-league/
+**Mars Gets a Close-Up and a Photo Bomb as Europe’s Hera Mission Swoops Past**\
+`The Red Planet and its tiny moon Deimos were recorded at a very near distance as the asteroid-chasing spacecraft completed a flyby on Wednesday.`\
+https://nytimes.com/2025/03/14/science/mars-deimos-hera-flyby.html
 
-**Bear in Pajamas**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/03/14/learning/bear-in-pajamas.html
+**4 Weird Signs You’re Getting Older**\
+`We asked experts about what’s normal — and what’s not.`\
+https://nytimes.com/2025/03/14/well/aging-process-getting-older.html
 
-**A Mathematical ‘Fever Dream’ Hits the Road**\
-`Meet “Mathemalchemy,” a traveling math-meets-art installation coming eventually to a dimension near you.`\
-https://nytimes.com/2025/03/14/science/mathematics-daubechies-mathemalchemy.html
+**We Need a Reminder of What the Pre-Vaccine Era Was Like**\
+`The worst manifestations of preventable diseases have faded from public memory.`\
+https://nytimes.com/interactive/2025/03/14/opinion/pre-vaccine-america.html
 
-**How a Russian Mobster Stalked an Iranian Dissident in Brooklyn**\
-`Khalid Mehdiyev was sent to America to establish a beachhead for his gang. The organization then gave him a mission: Kill Masih Alinejad.`\
-https://nytimes.com/2025/03/14/nyregion/russian-mobster-masih-alinejad.html
+**The New York Times News Quiz, March 14, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/03/14/briefing/stocks-mahmoud-khalil-trump-ukraine-quiz.html
 
-**As Trump Attacks Elite Colleges, Their Usual Allies Are Nowhere in Sight**\
-`The president wants to punish schools like Columbia University for allowing campus protest. College megadonors don’t seem to mind.`\
-https://nytimes.com/2025/03/14/nyregion/trump-columbia-university-antisem.html
+**Why Is Gavin Newsom Seeking Common Ground With the Right?**\
+`Democrats are desperate for leaders who will fight on their behalf, not flatter their enemies.`\
+https://nytimes.com/2025/03/14/opinion/gavin-newsom-podcast.html
 
