@@ -1,3 +1,11 @@
+**G7 Foreign Ministers Keep Tensions in Check to Agree on Ukraine Policy**\
+`Secretary of State Marco Rubio found himself among allies in a fraught moment after President Trump’s tariff policies.`\
+https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
+
+**Trump Administration Opens Leak Investigations**\
+`Tulsi Gabbard, the director of national intelligence, said she intended to hold officials who released information “accountable.”`\
+https://nytimes.com/2025/03/14/us/politics/trump-administration-leak-investigations.html
+
 **Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
 `Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
 https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/world/europe/carl-lundstrom-dead-pirate-bay.html
 **Wildfires Fueled by Dry Conditions Quickly Spread Across Texas and Oklahoma**\
 `Images on social media showed a dystopian view of areas near Lubbock and Amarillo, Texas.`\
 https://nytimes.com/2025/03/14/us/wildfires-texas-oklahoma.html
-
-**Prime Tire: McLaren emerges as Melbourne favorite. Plus, Bearman's rookie mistake**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6204347/2025/03/14/f1-australian-gp-mclaren-oliver-bearman-prime-tire/
-
-**‘People Will Die’: Trump Aid Cuts Threaten Refugees’ Survival, U.N. Says**\
-`At the world’s largest refugee camp, for Rohingya people in Bangladesh, the food allowance per person is set to fall to just $6 per month, far below what aid officials say is required for survival.`\
-https://nytimes.com/2025/03/14/world/asia/trump-aid-cuts-refugees-rohingya.html
 
