@@ -1,3 +1,15 @@
+**Why no Morgan Gibbs-White? Forest's star player deserved a place in Tuchel's first England squad**\
+`Gibbs-White’s omission will not just surprise a lot of people at Forest, but many others who have followed his emergence`\
+https://nytimes.com/athletic/6202389/2025/03/14/why-no-morgan-gibbs-white-forests-star-player-deserved-a-place-in-tuchels-first-england-squad/
+
+**Forecasters Warn of ‘Wildfire Outbreak’ Across Texas and Oklahoma**\
+`Strong winds and dry conditions could help fuel fires in parts of the Southwest and the Plains on Friday.`\
+https://nytimes.com/2025/03/14/weather/texas-oklahoma-fire-weather.html
+
+**The New York Times International Edition in Print for Saturday, March 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/14/todays-new-york-times-international-edition
+
 **Rashford's England return must be next stage of his Villa career renaissance**\
 `Marcus Rashford has unexpectedly been called up to the England squad for Thomas Tuchel's first games`\
 https://nytimes.com/athletic/6202037/2025/03/14/marcus-rashford-england-aston-villa/
