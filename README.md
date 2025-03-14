@@ -1,3 +1,7 @@
+**Influencer’s Wielding of Wild Wombat Incurs Wrath of a Nation**\
+`A video of an American woman snatching a baby wombat from the side of its mother enraged many in Australia. She left the country Friday.`\
+https://nytimes.com/2025/03/14/world/australia/womat-american-influencer.html
+
 **In Japan, a Journalist Takes a Stand by Striking Out on His Own**\
 `Makoto Watanabe quit a major newspaper after it retracted a scoop. Now he runs an investigative nonprofit that does not shy away from challenging authority.`\
 https://nytimes.com/2025/03/14/world/asia/japan-journalist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/style/raymond-parungao-andrew-chen-wedding.html
 **Quote of the Day: Leaders Standing Up to Trump Widen Their Support at Home**\
 `Quotation of the Day for Friday, March 14, 2025.`\
 https://nytimes.com/2025/03/13/pageoneplus/quote-of-the-day-leaders-standing-up-to-trump-widen-their-support-at-home.html
-
-**Linus Ullmark makes NHL save-of-the-season candidate**\
-`Ullmark's viral web gem should be remembered as his best — and the league's best — of the 2024-25 NHL season.`\
-https://nytimes.com/athletic/6202354/2025/03/13/senators-linus-ullmark-save-nhl/
 
