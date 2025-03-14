@@ -1,3 +1,7 @@
+**The Windup: Where do the Rays go now?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6202896/2025/03/14/rays-stadium-jose-altuve-left-field-the-windup/
+
 **Review: Out of the Future, a Drab Ritual**\
 `In “Terrestrial: The Sprout,” at New York Live Arts, three directors present a show about epic memory and indescribable feelings.`\
 https://nytimes.com/2025/03/14/arts/dance/review-terrestrial-germaine-ingram.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/business/energy-environment/trump-energy-oil-gas.
 **Canada Has a New Prime Minister With a Very Hard First Assignment**\
 `Mark Carney, a central banker turned politician, steps into his role at a crucial moment as President Trump sets his sights on Canada’s sovereignty and keeps threatening more tariffs.`\
 https://nytimes.com/2025/03/14/world/canada/canada-prime-minister-mark-carney-trump.html
-
-**Supreme Court Revives Long-Running Nazi Art Restitution Case**\
-`The case involving a Pissarro is being sent back to federal court in California for review in light of a new state law, in a dispute between heirs and a Spanish museum.`\
-https://nytimes.com/2025/03/14/arts/design/supreme-court-pissarro-nazi-art-restitution.html
 

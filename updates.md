@@ -1,3 +1,7 @@
+**The Windup: Where do the Rays go now?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6202896/2025/03/14/rays-stadium-jose-altuve-left-field-the-windup/
+
 **Review: Out of the Future, a Drab Ritual**\
 `In “Terrestrial: The Sprout,” at New York Live Arts, three directors present a show about epic memory and indescribable feelings.`\
 https://nytimes.com/2025/03/14/arts/dance/review-terrestrial-germaine-ingram.html
