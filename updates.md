@@ -1,3 +1,7 @@
+**Postal Service Reaches Deal With Musk’s Department of Government Efficiency**\
+`The U.S. Postal Service has long struggled with its finances. President Trump and Mr. Musk have both suggested it should be privatized.`\
+https://nytimes.com/2025/03/13/us/politics/postal-service-musk-doge.html
+
 **McCaffery's last stand? Coach tossed in Iowa's season-ending blowout loss**\
 `Asked if he expects to be back leading the team next season, the coach said, "I do."`\
 https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss/

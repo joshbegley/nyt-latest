@@ -1,3 +1,7 @@
+**Postal Service Reaches Deal With Musk’s Department of Government Efficiency**\
+`The U.S. Postal Service has long struggled with its finances. President Trump and Mr. Musk have both suggested it should be privatized.`\
+https://nytimes.com/2025/03/13/us/politics/postal-service-musk-doge.html
+
 **McCaffery's last stand? Coach tossed in Iowa's season-ending blowout loss**\
 `Asked if he expects to be back leading the team next season, the coach said, "I do."`\
 https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/13/us/california-jail-death.html
 **Dodgers announce Tokyo travel roster: 31 thoughts on the 31 players**\
 `The Dodgers brought plenty of star power abroad and also fun stories like Jack Dreyer, Nick Frasso and Luis García. `\
 https://nytimes.com/athletic/6197420/2025/03/13/dodgers-tokyo-travel-roster/
-
-**Players Championship analysis: What to know after Round 1**\
-`Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all — nearly 50 feet more than his average.`\
-https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
 
