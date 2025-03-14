@@ -1,3 +1,15 @@
+**Georgia football acting like it's Gunner Stockton's team now**\
+`No one has declared Stockton the starter. But everyone is sure talking like he has that role.`\
+https://nytimes.com/athletic/6201897/2025/03/13/georgia-football-gunner-stockton-quarterback/
+
+**Andy Beshear Slams Gavin Newsom for Having Steve Bannon on Podcast**\
+`“I don’t think we should give him oxygen on any platform — ever, anywhere,” the Democratic governor of Kentucky said of President Trump’s former chief strategist.`\
+https://nytimes.com/2025/03/13/us/politics/beshear-newsom-bannon-podcast.html
+
+**Colts' Charvarius Ward seeks fresh start after tragedy: 'I had to get out of San Francisco'**\
+`The new Colts cornerback said he was looking for a fresh start just months after the death of his 1-year-old daughter. `\
+https://nytimes.com/athletic/6202223/2025/03/13/colts-charvarius-ward-fresh-start-free-agency/
+
 **DK Metcalf not worried about Steelers’ QB uncertainty, not recruiting Wilson or Rodgers**\
 `“This is a historic organization,” Metcalf said. “They’ve done the recruiting before I even got here."`\
 https://nytimes.com/athletic/6202019/2025/03/13/dk-metcalf-steelers-qb-situation/
