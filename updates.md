@@ -1,3 +1,7 @@
+**McCaffery's last stand? Coach tossed in Iowa's season-ending blowout loss**\
+`Asked if he expects to be back leading the team next season, the coach said, "I do."`\
+https://nytimes.com/athletic/6202449/2025/03/13/fran-mccaffery-ejected-iowa-loss/
+
 **JD Vance Is Booed at a Kennedy Center Concert After Trump’s Takeover**\
 `The vice president and his wife were booed as they took their seats for a National Symphony Orchestra concert of music by Shostakovich and Stravinsky.`\
 https://nytimes.com/2025/03/13/arts/music/jd-vance-booed-kennedy-center.html
