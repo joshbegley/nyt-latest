@@ -1,3 +1,7 @@
+**Artyom Levshunov aims to stick with Blackhawks; Connor Bedard learns to watch his words**\
+`If Levshunov continues to play as well as he did against Colorado and San Jose, it'd be hard to justify sending him back to Rockford.`\
+https://nytimes.com/athletic/6202892/2025/03/14/blackhawks-sharks-artyom-levshunov-connor-bedard/
+
 **Old Trafford serves up a reminder of its value to Man Utd — and what cannot be lost**\
 `Old Trafford crackled as Manchester United beat Real Sociedad in the Europa League on Thursday night`\
 https://nytimes.com/athletic/6202656/2025/03/14/old-trafford-manchester-united-atmosphere/

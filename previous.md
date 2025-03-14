@@ -1,3 +1,7 @@
+**Artyom Levshunov aims to stick with Blackhawks; Connor Bedard learns to watch his words**\
+`If Levshunov continues to play as well as he did against Colorado and San Jose, it'd be hard to justify sending him back to Rockford.`\
+https://nytimes.com/athletic/6202892/2025/03/14/blackhawks-sharks-artyom-levshunov-connor-bedard/
+
 **Old Trafford serves up a reminder of its value to Man Utd — and what cannot be lost**\
 `Old Trafford crackled as Manchester United beat Real Sociedad in the Europa League on Thursday night`\
 https://nytimes.com/athletic/6202656/2025/03/14/old-trafford-manchester-united-atmosphere/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193292/2025/03/14/brighton-manchester-city-hurzele
 **West Ham's decisions have undone most of Moyes' good work since his exit**\
 `West Ham did not renew David Moyes's contract in the summer after his four-and-a-half years in charge`\
 https://nytimes.com/athletic/6199813/2025/03/14/west-ham-david-moyes-opinion/
-
-**Doku's relentless dribbling and Grealish in the cold - City's winger situation analysed**\
-`A look at the options City manager Pep Guardiola has at his disposal out wide and the qualities he demands that these players possess`\
-https://nytimes.com/athletic/6197054/2025/03/14/doku-grealish-man-city-wingers/
 
