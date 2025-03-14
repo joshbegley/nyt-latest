@@ -1,5 +1,13 @@
-**Why a 100-year-old tree is unnerving the Players Championship field**\
-`“It's meant to be intimidating. So if someone says hey, I have a problem with that tree. I’m like, good, that’s what Pete wanted.”`\
+**Chuck Schumer: Why Democrats Must Keep the Government Open**\
+`A government shutdown would lead to real pain for the American people.`\
+https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html
+
+**Florida Mayor Threatens Cinema Over Israeli-Palestinian Film**\
+`The mayor of Miami Beach wants to end the lease of a group renting a city-owned property because it is screening the Academy Award-winning “No Other Land” there.`\
+https://nytimes.com/2025/03/13/movies/miami-beach-mayor-israeli-palestinian-film.html
+
+**Why a 100-year-old tree is unnerving golfers at The Players Championship**\
+`"It's meant to be intimidating. So if someone says 'hey, I have a problem with that tree,' I’m like, 'good, that’s what Pete wanted.'"`\
 https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
 
 **Death Toll in 1999 Columbine School Shooting Climbs to 14 With Homicide Ruling**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010032636/federal-worker-layoff-doge
 **Spurs' De'Aaron Fox to undergo season-ending surgery on pinkie finger**\
 `Fox, 27, had been playing with a dislocated pinkie finger on his left shooting hand all season.`\
 https://nytimes.com/athletic/6202053/2025/03/13/spurs-deaaron-fox-season-ending-surgery/
-
-**Raúl Grijalva, Democrat who urged Biden to drop out in 2024, dies of cancer.**\
-`Representative Raúl M. Grijalva, 77, was one of the first Democrats to push the president to end his re-election campaign, citing the potential danger of a second Trump administration.`\
-https://nytimes.com/live/2025/03/13/us/trump-tariff-government-news/raul-grijalva-dead-biden
-
-**State Senator Didn’t Use Runway Lights Before Fatal Plane Crash, U.S. Says**\
-`Doug Larsen of North Dakota, his wife and two of their children were killed in 2023 when the plane he was piloting crashed in Utah. Mr. Larsen was most likely disoriented by the lack of light, investigators said.`\
-https://nytimes.com/2025/03/13/us/doug-larsen-plane-crash-investigation.html
 
