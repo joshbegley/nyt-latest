@@ -1,3 +1,7 @@
+**How Each Senator Voted to Fund the Government Through September**\
+`The Senate voted to advance a bill to fund the federal government through September and avoid a shutdown on Saturday.`\
+https://nytimes.com/interactive/2025/03/14/us/politics/senate-government-funding-vote.html
+
 **Dochterman: Fran McCaffery didn't give Iowa fans enough reasons to care**\
 `It’s going to take a new approach for Iowa to bring men’s basketball fans back after faltering under McCaffery, who was fired Friday.`\
 https://nytimes.com/athletic/6204292/2025/03/14/fran-mcaffery-iowa-mens-basketball-fans/
