@@ -1,3 +1,11 @@
+**Rashford's England return must be next stage of his Villa career renaissance**\
+`Marcus Rashford has unexpectedly been called up to the England squad for Thomas Tuchel's first games`\
+https://nytimes.com/athletic/6202037/2025/03/14/marcus-rashford-england-aston-villa/
+
+**Tuchel's first England squad live Q&A: Jack Pitt-Brooke answers your questions**\
+`What do you think of Tuchel's first squad? Get your questions in for Jack Pitt-Brooke and he'll answer as many as he can between 10 and 11am`\
+https://nytimes.com/athletic/6201075/2025/03/14/thomas-tuchel-england-squad-discuss/
+
 **Why Syrians Are Fleeing to Lebanon**\
 `Text by Diego Ibarra Sanchez`\
 https://nytimes.com/card/2025/03/14/world/middleeast/syria-clashes-alawite-lebanon
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/well/aging-process-getting-older.html
 **We Need a Reminder of What the Pre-Vaccine Era Was Like**\
 `The worst manifestations of preventable diseases have faded from public memory.`\
 https://nytimes.com/interactive/2025/03/14/opinion/pre-vaccine-america.html
-
-**The New York Times News Quiz, March 14, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/03/14/briefing/stocks-mahmoud-khalil-trump-ukraine-quiz.html
-
-**Why Is Gavin Newsom Seeking Common Ground With the Right?**\
-`Democrats are desperate for leaders who will fight on their behalf, not flatter their enemies.`\
-https://nytimes.com/2025/03/14/opinion/gavin-newsom-podcast.html
 
