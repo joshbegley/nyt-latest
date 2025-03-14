@@ -1,3 +1,7 @@
+**Nick Cushing - the interim coach charged with navigating Manchester City Women through a season-defining 12 days**\
+`Cushing returns to a WSL that looks very different from the years of his early success in the league`\
+https://nytimes.com/athletic/6200544/2025/03/14/nick-cushing-manchester-city-women/
+
 **The Bounce: Could Steph Curry reach 5,000 career 3s someday? Plus, Shaq vs. Pistons Beef Court**\
 `Steph Curry has reached another 3-point milestone in his illustrious career. How far out of reach can he put his all-time record?`\
 https://nytimes.com/athletic/6203391/2025/03/14/steph-curry-warriors-shaquille-oneal-pistons-nba-the-bounce/

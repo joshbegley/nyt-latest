@@ -1,3 +1,11 @@
+**Read the Letter to Columbia University**\
+`The Trump administration sent a letter to Columbia on Thursday demanding that the university make dramatic changes in student discipline and admissions before it would discuss lifting the cancellation of $400 million in government grants and contracts.`\
+https://nytimes.com/interactive/2025/03/14/nyregion/columbia-letter.html
+
+**Alan K. Simpson, Influential Wyoming Republican Senator, Dies at 93**\
+`A plain-spoken, sometimes cantankerous lawmaker, he balanced his conservative views with moderate stands on abortion rights, gay marriage and immigration reform.`\
+https://nytimes.com/2025/03/14/us/politics/alan-k-simpson-dead.html
+
 **The Bounce: Could Steph Curry reach 5,000 career 3s someday? Plus, Shaq vs. Pistons Beef Court**\
 `Steph Curry has reached another 3-point milestone in his illustrious career. How far out of reach can he put his all-time record?`\
 https://nytimes.com/athletic/6203391/2025/03/14/steph-curry-warriors-shaquille-oneal-pistons-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/world/europe/germany-defense-climate-spending-dea
 **Real Madrid's Asencio receives first Spain call-up**\
 `Asencio's inclusion comes amid an ongoing investigation into an allegation he shared a sex tape of a minor.`\
 https://nytimes.com/athletic/6203165/2025/03/14/raul-asencio-spain-squad-real-madrid/
-
-**Nick Cushing - the interim coach charged with navigating Manchester City Women through a season-defining 12 days**\
-`Cushing returns to a WSL that looks very different from the years of his early success in the league`\
-https://nytimes.com/athletic/6200544/2025/03/14/nick-cushing-manchester-city-women/
-
-**Buying a Car? Trump’s Tariffs Could Make It More Expensive.**\
-`New car prices could increase $4,000 or more, according to one estimate. And used cars could also rise in price. “It’s a crazy situation for consumers,” an expert said.`\
-https://nytimes.com/2025/03/14/your-money/car-shopping-trump-tariffs-cfpb.html
 

@@ -30,7 +30,7 @@ https://nytimes.com/2025/03/14/world/europe/germany-defense-climate-spending-dea
 `Asencio's inclusion comes amid an ongoing investigation into an allegation he shared a sex tape of a minor.`\
 https://nytimes.com/athletic/6203165/2025/03/14/raul-asencio-spain-squad-real-madrid/
 
-**The coach charged with navigating Manchester City through a season-defining 12 days**\
+**Nick Cushing - the interim coach charged with navigating Manchester City Women through a season-defining 12 days**\
 `Cushing returns to a WSL that looks very different from the years of his early success in the league`\
 https://nytimes.com/athletic/6200544/2025/03/14/nick-cushing-manchester-city-women/
 
