@@ -1,3 +1,7 @@
+**Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
+`For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
+https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html
+
 **Hamas Says It’s Willing to Free American-Israeli Captive**\
 `The Palestinian armed group said it had agreed to release Edan Alexander and turn over the bodies of four other hostages. Israel did not immediately comment.`\
 https://nytimes.com/2025/03/14/world/middleeast/israel-hamas-hostage-edan-alexander.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6200066/2025/03/14/arsenal-corners-analysis-goals/
 **Michigan mailbag: Does Sherrone Moore need to make the Playoff in 2025?**\
 `Answering your Michigan questions about Sherrone Moore, Bryce Underwood, the NCAA Tournament, spring football and more.`\
 https://nytimes.com/athletic/6200592/2025/03/14/michigan-football-bryce-underwood-basketball-tournament/
-
-**With the Hurricanes' roster settling, who should flank Sebastian Aho on top line?**\
-`"You’d like to see consistency," Aho said, but even he understands it might not be possible.`\
-https://nytimes.com/athletic/6201835/2025/03/14/sebastian-aho-hurricanes-linemates/
 
