@@ -1,3 +1,7 @@
+**Overlooked No More: Beulah Henry, Inventor With an Endless Imagination**\
+`She was so prolific — reimagining things as varied as toys, typewriters, umbrellas and ice-cream makers — that she earned the nickname Lady Edison.`\
+https://nytimes.com/2025/03/14/obituaries/beulah-henry-overlooked.html
+
 **45 Schools Under Federal Investigation Over a Small Diversity Project**\
 `The Ph.D. Project works with universities to increase the racial diversity of professors in business schools. Schools like Yale and Ohio State were named in the investigation.`\
 https://nytimes.com/2025/03/14/us/politics/phd-project-education-department.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6185165/2025/03/14/iowa-basketball-coach-fran-mccaf
 https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
 
 **Tuchel picking 34-year-old Henderson for England underlines two inconvenient truths**\
-`The decision to recall Henderson defined Tuchel's first England squad and demonstrated he is not here to win popularity contests`\
+`The decision to recall Henderson defined Tuchel's first England squad - and demonstrated he is not here to win popularity contests`\
 https://nytimes.com/athletic/6203973/2025/03/14/tuchel-henderson-england-squad-world-cup/
 
 **Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203829/2025/03/14/brandon-williams-dangerous-drivi
 **Mark Carney Sworn In as Canada’s 24th Prime Minister**\
 `Mark Carney replaced Justin Trudeau, who led Canada for nearly a decade.`\
 https://nytimes.com/video/world/canada/100000010053081/canada-prime-minister-mark-carney.html
-
-**Syria Has a New Temporary Constitution. Here Are the Highlights.**\
-`The declaration, signed by interim president Ahmed al-Shara, guarantees individual freedoms but gives Mr. al-Shara abundant power and keeps Islamic law as its legal foundation.`\
-https://nytimes.com/2025/03/14/world/europe/syria-constitution-new-government.html
 
