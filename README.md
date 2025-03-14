@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
 
 **Wizards' Bilal Coulibaly likely done for season due to hamstring strain**\
-`The Wizards' 20-year-old first-round pick in 2023 will miss approximately four-to-six weeks, team officials said. `\
+`The Wizards' first-round pick in 2023 will miss approximately four-to-six weeks, team officials said.`\
 https://nytimes.com/athletic/6201114/2025/03/14/bilal-coulibaly-injury-wizards-hamstring/
 
 **Another loss demonstrates why Oilers' depth scoring remains pressing issue**\
