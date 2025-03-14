@@ -1,3 +1,11 @@
+**Postecoglou: 'Potentially' more midfield opportunities for Gray this season**\
+`Gray started seven games in a row at centre-back between December and January as Postecoglou’s squad was crippled by an injury crisis.`\
+https://nytimes.com/athletic/6203999/2025/03/14/ange-postecoglou-archie-gray-midfield-tottenham/
+
+**Tuchel picking 34-year-old Henderson for England underlines two inconvenient truths**\
+`The decision to recall Henderson defined Tuchel's first England squad and demonstrated he is not here to win popularity contests`\
+https://nytimes.com/athletic/6203973/2025/03/14/tuchel-henderson-england-squad-world-cup/
+
 **Oklahoma Proposes Teaching 2020 Election ‘Discrepancies’ in U.S. History**\
 `The Oklahoma Board of Education recently approved a new, more conservative social studies agenda that has irked even some Republicans.`\
 https://nytimes.com/2025/03/14/us/oklahoma-2020-election-history-standards.html
