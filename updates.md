@@ -1,3 +1,11 @@
+**Science Amid Chaos: What Worked During the Pandemic? What Failed?**\
+`As the coronavirus spread, researchers worldwide scrambled to find ways to keep people safe. Some efforts were misguided. Others saved millions of lives.`\
+https://nytimes.com/2025/03/14/health/covid-pandemic-public-health.html
+
+**Myles Garrett determined to win with Browns, says it's 'never been about money'**\
+`Garrett said his trade request and insistence that he was ready to play for a contender were "necessary" to further the conversation. `\
+https://nytimes.com/athletic/6203979/2025/03/14/myles-garrett-browns-extension-free-agency/
+
 ****\
 `(No description)`\
 https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.html

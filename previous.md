@@ -1,3 +1,11 @@
+**Science Amid Chaos: What Worked During the Pandemic? What Failed?**\
+`As the coronavirus spread, researchers worldwide scrambled to find ways to keep people safe. Some efforts were misguided. Others saved millions of lives.`\
+https://nytimes.com/2025/03/14/health/covid-pandemic-public-health.html
+
+**Myles Garrett determined to win with Browns, says it's 'never been about money'**\
+`Garrett said his trade request and insistence that he was ready to play for a contender were "necessary" to further the conversation. `\
+https://nytimes.com/athletic/6203979/2025/03/14/myles-garrett-browns-extension-free-agency/
+
 ****\
 `(No description)`\
 https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/schumer-trump-government-shutdown.htm
 **A Close Elon Musk Friend Joins His Effort on Social Security**\
 `The involvement of Antonio Gracias, an investor who has known Elon Musk for two decades, suggests that Mr. Musk has made overhauling the Social Security Administration a priority.`\
 https://nytimes.com/2025/03/14/us/politics/elon-musk-antonio-gracias-social-security-administration.html
-
-**Norwegian Ski Jumpers Suspended for Illegal Alterations to Their Suits**\
-`The skiers tried to find an extra edge to fly farther by adjusting the crotch of their suits. “We regret it like dogs,” the team’s coach said.`\
-https://nytimes.com/2025/03/14/sports/skiing/norway-ski-jumping-cheating-scandal.html
-
-**The Windup: Where do the Rays go now?**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6202896/2025/03/14/rays-stadium-jose-altuve-left-field-the-windup/
 

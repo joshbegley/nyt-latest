@@ -12,7 +12,7 @@ https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.htm
 
 **Stocks rebound after the S&P 500 fell into a correction but are still heading for a weekly drop.**\
 `By Danielle Kaye`\
-https://nytimes.com/live/2025/03/14/us/trump-government-shutdown-news/stocks-rebound-after-the-sp-500-fell-into-a-correction-but-are-still-heading-for-a-weekly-drop
+https://nytimes.com/2025/03/14/us/politics/stock-market-correction-trump-tariffs.html
 
 **How a Columbia Activist’s Arrest Has Ignited a Free Speech Battle**\
 `Department of Homeland Security officers arrested Mahmoud Khalil, a recent Columbia University graduate who helped lead campus protests against Israel’s assault in Gaza.`\
