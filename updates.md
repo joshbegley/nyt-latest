@@ -1,3 +1,11 @@
+**G7 Foreign Ministers Keep Tensions in Check to Agree on Ukraine Policy**\
+`Secretary of State Marco Rubio found himself among allies in a fraught moment after President Trump’s tariff policies.`\
+https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
+
+**Trump Administration Opens Leak Investigations**\
+`Tulsi Gabbard, the director of national intelligence, said she intended to hold officials who released information “accountable.”`\
+https://nytimes.com/2025/03/14/us/politics/trump-administration-leak-investigations.html
+
 **Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
 `Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
 https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
