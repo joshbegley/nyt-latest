@@ -1,3 +1,7 @@
+**The Slot story: From Dutch Bible Belt to Anfield - and why 'it all comes back to his dad'**\
+`A trip to the Liverpool manager's childhood home of Bergentheim reveals how he was shaped by the village - and his father`\
+https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-netherlands/
+
 **How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
 `The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
 https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
