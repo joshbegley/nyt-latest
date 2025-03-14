@@ -1,3 +1,15 @@
+**Chuck Schumer: Why Democrats Must Keep the Government Open**\
+`A government shutdown would lead to real pain for the American people.`\
+https://nytimes.com/2025/03/13/opinion/trump-musk-shutdown-senate.html
+
+**Florida Mayor Threatens Cinema Over Israeli-Palestinian Film**\
+`The mayor of Miami Beach wants to end the lease of a group renting a city-owned property because it is screening the Academy Award-winning “No Other Land” there.`\
+https://nytimes.com/2025/03/13/movies/miami-beach-mayor-israeli-palestinian-film.html
+
+**Why a 100-year-old tree is unnerving golfers at The Players Championship**\
+`"It's meant to be intimidating. So if someone says 'hey, I have a problem with that tree,' I’m like, 'good, that’s what Pete wanted.'"`\
+https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
+
 **Why a 100-year-old tree is unnerving the Players Championship field**\
 `“It's meant to be intimidating. So if someone says hey, I have a problem with that tree. I’m like, good, that’s what Pete wanted.”`\
 https://nytimes.com/athletic/6202145/2025/03/13/players-championship-tree-sixth-hole-tpc-sawgrass/
