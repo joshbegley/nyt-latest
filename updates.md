@@ -1,3 +1,19 @@
+**The Athletic FC: Fernandes shows why Ratcliffe loves him; Henderson, Rashford in England squad**\
+`Today in TAFC: Fernandes proves his worth to Manchester United, Rashford and Henderson in England squad, Messi magic in Jamaica.`\
+https://nytimes.com/athletic/6203062/2025/03/14/henderson-rashford-in-england-squad-messi-delight-in-jamaica/
+
+**Cushing coy on long-term Man City future: 'The door is open to any opportunity'**\
+`Cushing was placed in charge of City until the end of the season following Gareth Taylor's sacking.`\
+https://nytimes.com/athletic/6203110/2025/03/14/nick-cushing-manchester-city-future/
+
+**The Dodgers wanted to 'paint Japan Dodger blue.' Now they're witnessing it in person**\
+`It’s clear in person: Dodgers are ninkimono here in Japan.`\
+https://nytimes.com/athletic/6203048/2025/03/14/dodgers-cubs-tokyo-ohtani/
+
+**Everything NWSL fans need to know about 2025: Big questions, schedule and how to follow**\
+`What you need to know at the start of the 2025 NWSL season`\
+https://nytimes.com/athletic/6202973/2025/03/14/nwsl-soccer-schedule-storylines-2025/
+
 **Kim Min-jae to miss next 'couple of weeks' - Kompany**\
 `Kompany hopes that the South Korea international's injury is "nothing bad."`\
 https://nytimes.com/athletic/6203143/2025/03/14/bayern-kim-min-jae-injury-achilles/
