@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems playoffs preview: Alex Vlasic, Lane Hutson on the rise**\
+`The fantasy hockey playoffs are finally near, and Shayna Goldman's advice, can help you win a championship. `\
+https://nytimes.com/athletic/6202512/2025/03/14/fantasy-trends-hidden-gems-playoff-preview/
+
+**How Manchester United showed 'a little bit of the future' in Real Sociedad win**\
+`On Thursday night United showed concrete signs that they are starting to understand what Ruben Amorim wants from them out of possession`\
+https://nytimes.com/athletic/6203261/2025/03/14/manchester-united-real-sociedad-analysis/
+
 **Duterte Appears in Court in The Hague via Video After Arrest**\
 `Rights groups have said tens of thousands were killed in his antidrug campaign while he was the president of the Philippines.`\
 https://nytimes.com/2025/03/14/world/asia/duterte-philippines-icc-crimes-against-humanity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6203391/2025/03/14/steph-curry-warriors-shaquille-o
 **Giants takeaways from free agency: NY betting big that right QB can be cure-all**\
 `Giants GM Joe Schoen and coach Brian Brian Daboll’s theory about the cause of the offensive’s ineptitude will be tested. `\
 https://nytimes.com/athletic/6202338/2025/03/14/new-york-giants-nfl-free-agency-quarterback-aaron-rodgers/
-
-**Mount returns to Man Utd matchday squad; Mainoo 'a few weeks away'**\
-`Mount returned to United team training this week after three months out with a hamstring injury suffered against Man City in December.`\
-https://nytimes.com/athletic/6203318/2025/03/14/mason-mount-injury-return-update-manchester-united/
-
-**‘Ted Lasso’ Is Coming Back**\
-`Apple TV+ announced on Friday that the Emmy-winning comedy will return for a fourth season. Jason Sudeikis will be back to reprise the title role.`\
-https://nytimes.com/2025/03/14/arts/television/ted-lasso-season-4.html
 
