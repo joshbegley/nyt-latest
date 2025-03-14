@@ -1,3 +1,15 @@
+**Row Z: Tuchel looks to the future, respectful Zinchenko and free lunch economics**\
+`Our weekly look at the absurd side of the game also includes Jose Mourinho and Allan Saint-Maximin's odes to stairs and elevators`\
+https://nytimes.com/athletic/6202328/2025/03/14/tuchel-england-ratcliffe-burn-mourinho-row-z/
+
+**De Ligt added to Netherlands' Nations League squad**\
+`De Ligt was not selected when Ronald Koeman named his provisional squad, before Nathan Ake and Stefan de Vrij withdrew due to injury.`\
+https://nytimes.com/athletic/6203335/2025/03/14/matthijs-de-ligt-netherlands-squad-nations-league/
+
+**Germans Reach Deal to Spend Big on Defense, Climate and More**\
+`The agreement between centrist parties, led by the likely next chancellor, Friedrich Merz, was billed as a response to America’s shrinking security guarantees.`\
+https://nytimes.com/2025/03/14/world/europe/germany-defense-climate-spending-deal.html
+
 **Real Madrid's Asencio receives first Spain call-up**\
 `Asencio's inclusion comes amid an ongoing investigation into an allegation he shared a sex tape of a minor.`\
 https://nytimes.com/athletic/6203165/2025/03/14/raul-asencio-spain-squad-real-madrid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6201975/2025/03/14/usc-football-recruiting-spring-s
 **FPL live Q&A: FPL Gameweek 289 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 29 FPL Q&A from 4pm-5pm GMT`\
 https://nytimes.com/athletic/6196961/2025/03/14/fantasy-premier-league-advice-gw29-tips/
-
-**Steph Curry's journey to 4,000 NBA 3-pointers is one nobody ever saw coming**\
-`As the Golden State Warriors icon set yet another shooting record, it's worth remembering the sliding doors moments that got us here.`\
-https://nytimes.com/athletic/6202940/2025/03/14/steph-curry-warriors-3-point-record-legacy/
-
-**Federal Agents Search Two Dorm Rooms at Columbia University**\
-`Department of Homeland Security officials conducted the search as the Trump administration sought to deport a former student and pro-Palestinian activist.`\
-https://nytimes.com/2025/03/14/us/politics/dorm-search-columbia-university-dhs.html
-
-**Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
-`For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
-https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html
 
