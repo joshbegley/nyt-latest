@@ -1,3 +1,7 @@
+**Gaudreau's power-play beauty earns the Wild a hard-working point: 3 takeaways**\
+`The Wild are struggling to score but got two power-play goals past Igor Shesterkin to earn an overtime point against the Rangers.`\
+https://nytimes.com/athletic/6202353/2025/03/14/wild-defense-scoring-slump-gaudreau-rangers/
+
 **DeMarcus Lawrence takes shot at Cowboys, sparking tiff with Micah Parsons**\
 `The new Seahawks defensive lineman said of Dallas: "I'm not going to win a Super Bowl there." His ex-teammate offered a pointed response.`\
 https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/business/china-mexico-tariffs-trump.html
 **On Good Footing After a Polo Tournament**\
 `A few months after Dr. Orion Mercaitis leased a polo pony from Olivia Stringer in Aiken, S.C., their relationship took off at a gallop.`\
 https://nytimes.com/2025/03/14/style/olivia-stringer-orion-mercaitis-wedding.html
-
-**Learning a Shared Love Language — One That Includes Signing**\
-`Jerald Creer, who is deaf, and Kent Williams met on a cruise ship in 2009. It took almost 15 years and a card game for them to fall in love.`\
-https://nytimes.com/2025/03/14/style/jerald-creer-kent-williams-wedding.html
 
