@@ -1,3 +1,15 @@
+**Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
+`The son of an immigrant, he represented a majority Hispanic district in Arizona for 12 terms but had lately been absent from Capitol Hill while being treated for cancer.`\
+https://nytimes.com/2025/03/14/us/politics/raul-m-grijalva-dead.html
+
+**Famous Climate Observatory’s Lease May End Because of DOGE**\
+`NOAA, the nation’s leading climate science agency, may lose dozens of offices, including one that is key to the Mauna Loa Observatory in Hawaii.`\
+https://nytimes.com/2025/03/14/climate/noaa-lease-mauna-loa.html
+
+**TEFAF Returns With Majesty in an Uncertain Market**\
+`The fair has a jewel of a 16th-century illuminated manuscript, and other museum-quality items, but fewer standouts over all. Sales were still brisk.`\
+https://nytimes.com/2025/03/14/arts/design/tefaf-maastricht.html
+
 **G7 Foreign Ministers Keep Tensions in Check to Agree on Ukraine Policy**\
 `Secretary of State Marco Rubio found himself among allies in a fraught moment after President Trump’s tariff policies.`\
 https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/science/space/blood-moon-lunar-eclipse-photos.htm
 **Kevin Drum, Influential Early Political Blogger, Dies at 66**\
 `Writing on his own and for Washington Monthly and Mother Jones, he earned a reputation as a serious policy thinker. He also invented Friday cat blogging.`\
 https://nytimes.com/2025/03/14/us/kevin-drum-dead.html
-
-**U.S. Arrests 2nd Person Tied to Pro-Palestinian Protests at Columbia**\
-`The action came less than a week after Mahmoud Khalil, a recent Columbia graduate and a prominent figure in campus demonstrations, was arrested.`\
-https://nytimes.com/2025/03/14/us/columbia-protester-leqaa-kordia.html
-
-**Carl Lundstrom, Who Backed the File-Sharing Site Pirate Bay, Dies in Plane Crash**\
-`Mr. Lundstrom was a supporter of far-right causes and, at one point, an unsuccessful candidate for office. He was convicted of aiding copyright infringement in 2009.`\
-https://nytimes.com/2025/03/14/world/europe/carl-lundstrom-dead-pirate-bay.html
-
-**Wildfires Fueled by Dry Conditions Quickly Spread Across Texas and Oklahoma**\
-`Images on social media showed a dystopian view of areas near Lubbock and Amarillo, Texas.`\
-https://nytimes.com/2025/03/14/us/wildfires-texas-oklahoma.html
 

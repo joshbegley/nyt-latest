@@ -1,3 +1,15 @@
+**Raul M. Grijalva, a Democratic Progressive in the House, Dies at 77**\
+`The son of an immigrant, he represented a majority Hispanic district in Arizona for 12 terms but had lately been absent from Capitol Hill while being treated for cancer.`\
+https://nytimes.com/2025/03/14/us/politics/raul-m-grijalva-dead.html
+
+**Famous Climate Observatory’s Lease May End Because of DOGE**\
+`NOAA, the nation’s leading climate science agency, may lose dozens of offices, including one that is key to the Mauna Loa Observatory in Hawaii.`\
+https://nytimes.com/2025/03/14/climate/noaa-lease-mauna-loa.html
+
+**TEFAF Returns With Majesty in an Uncertain Market**\
+`The fair has a jewel of a 16th-century illuminated manuscript, and other museum-quality items, but fewer standouts over all. Sales were still brisk.`\
+https://nytimes.com/2025/03/14/arts/design/tefaf-maastricht.html
+
 **G7 Foreign Ministers Keep Tensions in Check to Agree on Ukraine Policy**\
 `Secretary of State Marco Rubio found himself among allies in a fraught moment after President Trump’s tariff policies.`\
 https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
