@@ -1,3 +1,11 @@
+**Almiron: Howe ‘changed everything’ at Newcastle**\
+`Almiron spent six years at St. James’ Park after joining from Atlanta United in 2019 before rejoining the MLS side earlier this year.`\
+https://nytimes.com/athletic/6204053/2025/03/14/miguel-almiron-eddie-howe-newcastle/
+
+**Ask Ornstein: Arsenal, Zubimendi and Guimaraes? Liverpool's Kerkez interest?**\
+`Earlier today, we ran the latest edition of our subscriber-exclusive Ask Ornstein session. Here are his answers to your questions...`\
+https://nytimes.com/athletic/6203750/2025/03/14/arsenal-transfer-news-liverpool-milos-kerkez-david-ornstein/
+
 **University of Minnesota, Under Federal Scrutiny, Limits Its Political Speech**\
 `A vote by regents put the university among roughly 140 colleges that have adopted similar policies since the 2023 attack on Israel by Hamas.`\
 https://nytimes.com/2025/03/14/us/university-of-minnesota-political-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6203979/2025/03/14/myles-garrett-browns-extension-f
 ****\
 `(No description)`\
 https://nytimes.com/video/homepage/100000010053050/00gulf-domestics-hp-promo.html
-
-**Stocks Rebound After S&P’s Fall Into Correction, but Trump Tariffs Keep Markets on Edge**\
-`The gains were not enough to overcome steep losses from earlier in the week, and the S&P 500 was still down roughly 2.6 percent for the week.`\
-https://nytimes.com/2025/03/14/us/politics/stock-market-correction-trump-tariffs.html
-
-**How a Columbia Activist’s Arrest Has Ignited a Free Speech Battle**\
-`Department of Homeland Security officers arrested Mahmoud Khalil, a recent Columbia University graduate who helped lead campus protests against Israel’s assault in Gaza.`\
-https://nytimes.com/video/us/politics/100000010047548/how-a-columbia-activists-arrest-has-ignited-a-free-speech-battle.html
 
