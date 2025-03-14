@@ -1,40 +1,40 @@
-**JD Vance Is Booed at a Kennedy Center Concert in Washington**\
-`Vice President JD Vance was booed at the Kennedy Center for the Performing Arts in Washington Thursday night while attending a concert with his wife. It was his first visit to the institution after its takeover by President Trump.`\
-https://nytimes.com/video/us/100000010052334/vance-booed-kennedy-center-concert-washington.html
+**Their Children Died in Duterte’s Drug War. His Arrest Brought Joy and Pain.**\
+`For many Filipinos, Rodrigo Duterte’s transfer to the International Criminal Court was a milestone in their quest for justice. But some were conflicted.`\
+https://nytimes.com/2025/03/14/world/asia/philippines-duterte-arrest-victims-justice.html
 
-**White available for England selection after two-year absence, Tuchel says**\
-`The 27-year-old has not played for his country since leaving the 2022 World Cup in Qatar mid-tournament.`\
-https://nytimes.com/athletic/6203200/2025/03/14/england-ben-white-back-squad-tuchel/
+**Hamas Says It’s Willing to Free American-Israeli Captive**\
+`The Palestinian armed group said it had agreed to release Edan Alexander and turn over the bodies of four other hostages. Israel did not immediately comment.`\
+https://nytimes.com/2025/03/14/world/middleeast/israel-hamas-hostage-edan-alexander.html
 
-**The Athletic FC: Fernandes shows why Ratcliffe loves him; Henderson, Rashford in England squad**\
-`Today in TAFC: Fernandes proves his worth to Manchester United, Rashford and Henderson in England squad, Messi magic in Jamaica.`\
-https://nytimes.com/athletic/6203062/2025/03/14/henderson-rashford-in-england-squad-messi-delight-in-jamaica/
+**Cowboys, Seahawks interested in Cooper Kupp as decision nears: Sources**\
+`The 31-year-old was released by the Los Angeles Rams on Wednesday after an eight-year run that included the Super Bowl LVI MVP award. `\
+https://nytimes.com/athletic/6203242/2025/03/14/cooper-kupp-free-agency-decision-seahawks-cowboys/
 
-**Cushing coy on long-term Man City future: 'The door is open to any opportunity'**\
-`Cushing was placed in charge of City until the end of the season following Gareth Taylor's sacking.`\
-https://nytimes.com/athletic/6203110/2025/03/14/nick-cushing-manchester-city-future/
+**The Pulse: An unbelievable glow-up**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6201275/2025/03/14/nottingham-forest-steph-curry-4000-the-pulse/
 
-**The Dodgers wanted to 'paint Japan Dodger blue.' Now they're witnessing it in person**\
-`It’s clear in person: Dodgers are ninkimono here in Japan.`\
-https://nytimes.com/athletic/6203048/2025/03/14/dodgers-cubs-tokyo-ohtani/
+**Men's college basketball bubble watch: Boise State, UNC battle on**\
+`Another day of chaos on the bubble leaves us with plenty to discuss.`\
+https://nytimes.com/athletic/6203211/2025/03/14/mens-ncaa-tournament-bubble-watch-unc-boise-state/
 
-**Everything NWSL fans need to know about 2025: Big questions, schedule and how to follow**\
-`What you need to know at the start of the 2025 NWSL season`\
-https://nytimes.com/athletic/6202973/2025/03/14/nwsl-soccer-schedule-storylines-2025/
+**Trump Administration Live Updates: Schumer Says Enough Democrats Will Vote Today to Avert Government Shutdown**\
+``\
+https://nytimes.com/live/2025/03/14/us/trump-government-shutdown-news
 
-**Kim Min-jae to miss next 'couple of weeks' - Kompany**\
-`Kompany hopes that the South Korea international's injury is "nothing bad."`\
-https://nytimes.com/athletic/6203143/2025/03/14/bayern-kim-min-jae-injury-achilles/
+**Twins' Brooks Lee is focused on swing changes, sustainability after flailing vs. fastballs**\
+`Lee had always handled heaters, until his first season in the majors. This winter, aiming to improve, he simplified and shortened his swing.`\
+https://nytimes.com/athletic/6196798/2025/03/14/brooks-lee-twins-swing-changes-fastballs/
 
-**China Backs Iran in Nuclear Talks, Slams ‘Threat of Force’ From the West**\
-`Beijing sought to position itself as a key player in negotiations with Iran over its nuclear program, as President Trump called for talks with Tehran.`\
-https://nytimes.com/2025/03/14/world/asia/china-iran-trump-russia.html
+**Every move from the first week of 2025 NFL free agency**\
+`As free agency continues, check the signing and trades tracker for the latest offseason moves.`\
+https://nytimes.com/athletic/6201304/2025/03/14/nfl-free-agnecy-signings-trades-2025/
 
-**Jonathan Kuminga impresses in return, gives Warriors ‘different dimension’ in rout of Kings**\
-`After missing 31 games with an ankle injury, Kuminga scored 18 points and exploded to the rim often.`\
-https://nytimes.com/athletic/6202814/2025/03/14/jonathan-kuminga-warriors-return-injury-kings/
+**Is there a reason behind Arsenal's drop-off in goals from corners?**\
+`Once a cornerstone of progress under Mikel Arteta, Arsenal are now without a set-piece goal since January 15 against Tottenham Hotspur`\
+https://nytimes.com/athletic/6200066/2025/03/14/arsenal-corners-analysis-goals/
 
-**Putin Met With U.S. Envoy and Sent ‘Signals’ for Trump, Kremlin Says**\
-`The talks in Moscow with Steve Witkoff indicated that Russia was keen to keep negotiating with the United States over Ukraine.`\
-https://nytimes.com/2025/03/14/world/europe/russia-ukraine-putin.html
+**Michigan mailbag: Does Sherrone Moore need to make the Playoff in 2025?**\
+`Answering your Michigan questions about Sherrone Moore, Bryce Underwood, the NCAA Tournament, spring football and more.`\
+https://nytimes.com/athletic/6200592/2025/03/14/michigan-football-bryce-underwood-basketball-tournament/
 
