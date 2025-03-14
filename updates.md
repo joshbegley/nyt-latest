@@ -1,3 +1,11 @@
+**Is Tristan Jarry borrowing from Rickard Rakell's script last season?**\
+`Jarry is the biggest reason the Penguins have won three consecutive games for only the second time this season.`\
+https://nytimes.com/athletic/6202615/2025/03/13/penguins-tristan-jarry-turnaround-rickard-rakell-blues/
+
+**Struggling special teams let down Blue Jackets in shutout loss to Golden Knights**\
+`After a 4-0 loss to Vegas, Columbus has dropped four of its last five games and been shut out in two of its last four.`\
+https://nytimes.com/athletic/6202519/2025/03/13/blue-jackets-golden-knights-score-standings/
+
 **Zack Bolduc suits the Blues well: 'Really developing into an all-around NHL player'**\
 `Bolduc scored his 12th goal of the season in Thursday's 5-3 loss to the Pittsburgh Penguins, continuing an impressive stretch.`\
 https://nytimes.com/athletic/6198265/2025/03/13/zack-bolduc-st-louis-blues-forecheck/
