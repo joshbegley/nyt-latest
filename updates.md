@@ -1,3 +1,7 @@
+**Players Championship analysis: What to know after Round 1**\
+`Glover made all three of his looks from 10 to 15 feet, holing 120 feet, 11 inches of putts in all – nearly 50 feet more than his average.`\
+https://nytimes.com/athletic/6202205/2025/03/13/players-championship-analysis-round-one-mcilroy-glover/
+
 **Researchers Find Shipwreck Lost Since 1892**\
 `The Great Lakes Shipwreck Historical Society used a remotely controlled vehicle to discover the rusty Western Reserve, an early all-steel ship sunk by a storm more than 130 years ago.`\
 https://nytimes.com/video/us/100000010049562/shipwreck-western-reserve-lake-superior.html
