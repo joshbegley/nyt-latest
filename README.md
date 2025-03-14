@@ -1,3 +1,15 @@
+**Why no Morgan Gibbs-White? Forest's star player deserved a place in Tuchel's first England squad**\
+`Gibbs-White’s omission will not just surprise a lot of people at Forest, but many others who have followed his emergence`\
+https://nytimes.com/athletic/6202389/2025/03/14/why-no-morgan-gibbs-white-forests-star-player-deserved-a-place-in-tuchels-first-england-squad/
+
+**Forecasters Warn of ‘Wildfire Outbreak’ Across Texas and Oklahoma**\
+`Strong winds and dry conditions could help fuel fires in parts of the Southwest and the Plains on Friday.`\
+https://nytimes.com/2025/03/14/weather/texas-oklahoma-fire-weather.html
+
+**The New York Times International Edition in Print for Saturday, March 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/14/todays-new-york-times-international-edition
+
 **Rashford's England return must be next stage of his Villa career renaissance**\
 `Marcus Rashford has unexpectedly been called up to the England squad for Thomas Tuchel's first games`\
 https://nytimes.com/athletic/6202037/2025/03/14/marcus-rashford-england-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/science/nasa-spacex-astronauts-iss-launch.html
 **Democrats Plan Nationwide Blitz of Town Halls in Republican Districts**\
 `A series of events in all 50 states aims to capitalize on a recent warning from Republican leadership that its lawmakers should avoid such public forums.`\
 https://nytimes.com/2025/03/14/us/politics/democrats-town-halls-republicans.html
-
-**Mars Gets a Close-Up and a Photo Bomb as Europe’s Hera Mission Swoops Past**\
-`The Red Planet and its tiny moon Deimos were recorded at a very near distance as the asteroid-chasing spacecraft completed a flyby on Wednesday.`\
-https://nytimes.com/2025/03/14/science/mars-deimos-hera-flyby.html
-
-**4 Weird Signs You’re Getting Older**\
-`We asked experts about what’s normal — and what’s not.`\
-https://nytimes.com/2025/03/14/well/aging-process-getting-older.html
-
-**We Need a Reminder of What the Pre-Vaccine Era Was Like**\
-`The worst manifestations of preventable diseases have faded from public memory.`\
-https://nytimes.com/interactive/2025/03/14/opinion/pre-vaccine-america.html
 
