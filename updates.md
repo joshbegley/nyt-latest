@@ -1,3 +1,12 @@
+**Chelsea reach agreement with Sporting to sign Quenda**\
+`The 17-year-old will remain at the Portuguese club next season and then move to Stamford Bridge in July 2026.`\
+https://nytimes.com/athletic/6130940/2025/03/14/geovany-quenda-chelsea-transfer/
+
+**Arsenal vs Chelsea odds: Can Maresca snuff out the Gunners’ set-piece mastery?**\
+`Julia Ranney takes a look at the best bets around this weekend’s top-four Premier League clash between Arsenal and Chelsea.
+`\
+https://nytimes.com/athletic/6200967/2025/03/14/arsenal-chelsea-premier-league-betting-predictions-tips-odds/
+
 **Odobert off the mark, defensive duo reunited: Is this the turning point for Spurs?**\
 `After a difficult few months, there is a renewed feeling of optimism at Tottenham following a 3-1 Europa League win over AZ`\
 https://nytimes.com/athletic/6202301/2025/03/14/spurs-alkmaar-odobert-van-de-ven-romero/
