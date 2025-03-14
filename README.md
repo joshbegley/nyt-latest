@@ -1,3 +1,7 @@
+**Judges Have Ordered Federal Workers Back on the Job. Now What?**\
+`Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
+https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html
+
 **F.D.A. Issues Warning About Galaxy Gas and Other Nitrous Products**\
 `The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
 https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203872/2025/03/14/thomas-tuchel-national-anthem-en
 **Postecoglou: Some of my Tottenham criticism is 'cheap and shallow'**\
 `The 59-year-old gave a lengthy answer when he was asked about the scrutiny managers face.`\
 https://nytimes.com/athletic/6204241/2025/03/14/ange-postecoglou-tottenham-critics/
-
-**Normani Is Engaged — With a Little Help From Her Famous Matchmakers**\
-`The R&B artist and the newly traded Pittsburgh Steeler DeKaylin “DK” Metcalf are a success story for friends playing matchmaker. The pair were introduced by Ciara and Russell Wilson in 2022.`\
-https://nytimes.com/2025/03/14/style/normani-dk-metcalf-engaged.html
 
