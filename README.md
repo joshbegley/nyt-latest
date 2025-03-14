@@ -1,3 +1,15 @@
+**Dr. Sheldon Greenfield, Who Exposed Gaps in Health Care, Dies at 86**\
+`The author of numerous studies, he urged patients to question their physicians and expressed concern about cancer treatment for older adults.`\
+https://nytimes.com/2025/03/14/health/dr-sheldon-greenfield-dead.html
+
+**Who’s Afraid of Lab-Grown Meat?**\
+`Mississippi became the third state to ban cell-derived meat, a product not for sale in the United States. But not all livestock producers are opposed to cultivated protein.`\
+https://nytimes.com/2025/03/14/science/whos-afraid-of-lab-grown-meat.html
+
+**Schumer Is in the Hot Seat for Shrinking From a Shutdown Fight**\
+`Privately, many Senate Democrats conceded that their leader was doing his job by protecting his members from a tough vote and making a politically painful decision. But the backlash from his party was intense.`\
+https://nytimes.com/2025/03/14/us/politics/schumer-trump-government-shutdown.html
+
 **A Close Elon Musk Friend Joins His Effort on Social Security**\
 `The involvement of Antonio Gracias, an investor who has known Elon Musk for two decades, suggests that Mr. Musk has made overhauling the Social Security Administration a priority.`\
 https://nytimes.com/2025/03/14/us/politics/elon-musk-antonio-gracias-social-security-administration.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/senate-vote-shutdown.html
 **Father Accused of Fatally Beating His 2-Month-Old Daughter**\
 `Marlon Rabanales-Pretzantzin was charged with second-degree murder in a Long Island court on Thursday. Authorities said he had acknowledged hurting the child.`\
 https://nytimes.com/2025/03/14/nyregion/long-island-father-baby-murder-charge.html
-
-**Mark Gastineau sues ESPN, NFL for $25 million over viral Brett Favre clip**\
-`Gastineu said Favre "took a dive" to help Strahan secure the single-season sack record during the November 2023 encounter, per the clip.`\
-https://nytimes.com/athletic/6203524/2025/03/14/mark-gastineau-espn-nfl-lawsuit-brett-favre/
-
-**Scoop City: NFL's highest and most underpaid players as free agency slows**\
-`Inside: Who are the NFL&#8217;s highest-paid players, now that free agency is mostly done? Plus, the league&#8217;s most underpaid, how Sean McVay recruits and why Micah Parsons is so angry.`\
-https://nytimes.com/athletic/6203738/2025/03/14/nfl-highest-paid-underpaid-players-2024-2025-scoop-city/
-
-**Jessie Holmes, former reality TV star, wins longest-ever Iditarod dog race**\
-`Holmes finished in 10 days, 14 hours, 55 minutes and 41 seconds.`\
-https://nytimes.com/athletic/6203410/2025/03/14/jessie-holmes-iditarod-dog-race/
 

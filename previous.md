@@ -1,3 +1,7 @@
+**A Close Elon Musk Friend Joins His Effort on Social Security**\
+`The involvement of Antonio Gracias, an investor who has known Elon Musk for two decades, suggests that Mr. Musk has made overhauling the Social Security Administration a priority.`\
+https://nytimes.com/2025/03/14/us/politics/elon-musk-antonio-gracias-social-security-administration.html
+
 **Norwegian Ski Jumpers Suspended for Illegal Alterations to Their Suits**\
 `The skiers tried to find an extra edge to fly farther by adjusting the crotch of their suits. “We regret it like dogs,” the team’s coach said.`\
 https://nytimes.com/2025/03/14/sports/skiing/norway-ski-jumping-cheating-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203738/2025/03/14/nfl-highest-paid-underpaid-playe
 **Jessie Holmes, former reality TV star, wins longest-ever Iditarod dog race**\
 `Holmes finished in 10 days, 14 hours, 55 minutes and 41 seconds.`\
 https://nytimes.com/athletic/6203410/2025/03/14/jessie-holmes-iditarod-dog-race/
-
-**Hope for a Trump Energy Boom Is Marred by Anxiety About Tariffs**\
-`Energy executives meeting in Houston expressed concerns about President Trump’s trade and economic policy even as they praised him and his administration.`\
-https://nytimes.com/2025/03/14/business/energy-environment/trump-energy-oil-gas.html
 

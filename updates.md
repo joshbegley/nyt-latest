@@ -1,3 +1,7 @@
+**A Close Elon Musk Friend Joins His Effort on Social Security**\
+`The involvement of Antonio Gracias, an investor who has known Elon Musk for two decades, suggests that Mr. Musk has made overhauling the Social Security Administration a priority.`\
+https://nytimes.com/2025/03/14/us/politics/elon-musk-antonio-gracias-social-security-administration.html
+
 **Norwegian Ski Jumpers Suspended for Illegal Alterations to Their Suits**\
 `The skiers tried to find an extra edge to fly farther by adjusting the crotch of their suits. “We regret it like dogs,” the team’s coach said.`\
 https://nytimes.com/2025/03/14/sports/skiing/norway-ski-jumping-cheating-scandal.html
