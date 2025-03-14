@@ -1,3 +1,35 @@
+**Everton have a creativity problem - does the answer lie in Doucoure, Alcaraz or elsewhere?**\
+`As Everton close in on safety, manager Moyes has chance to experiment at No 10 and decide whether Alcaraz is the future`\
+https://nytimes.com/athletic/6199978/2025/03/14/carlos-alcaraz-everton-abdoulaye-doucoure/
+
+**Leicester are PL's worst for winning second balls - it epitomises their struggles**\
+`The results alone make for grim reading, but in Leicester's second-ball struggles, we can highlight much of where they are going wrong`\
+https://nytimes.com/athletic/6197314/2025/03/14/leicester-second-balls-premier-league/
+
+**Pereira has a vision for Wolves' back line - and it means more change is coming ﻿**\
+`Wolves have become much more aggressive in the way they defend under Pereira but centre-back will be a priority again in the summer`\
+https://nytimes.com/athletic/6200335/2025/03/14/wolves-back-line-defence-pereira/
+
+**FPL: Why selling Salah might be the best strategy for Gameweek 29**\
+`With double gameweeks coming up and Liverpool blanking, these are the arguments for going without FPL's star man`\
+https://nytimes.com/athletic/6196036/2025/03/14/fantasy-premier-league-mohamed-salah-gameweek-29/
+
+**Watching Palace loanee Owen Goodman with his father: 'The way he’s developed this season is unbelievable'**\
+`The young goalkeeper has set his sights on representing Canada, where he grew up, as he continues his development at AFC Wimbledon`\
+https://nytimes.com/athletic/6190457/2025/03/14/crystal-palace-goodman-wimbledon-colchester/
+
+**City away: How Brighton are better equipped than ever to conquer their final frontier**\
+`Fabian Hurzeler's side will arrive at the Etihad on Saturday confident they can fight fire with fire and secure their first win there`\
+https://nytimes.com/athletic/6193292/2025/03/14/brighton-manchester-city-hurzeler-etihad/
+
+**West Ham's decisions have undone most of Moyes' good work since his exit**\
+`West Ham did not renew David Moyes's contract in the summer after his four-and-a-half years in charge`\
+https://nytimes.com/athletic/6199813/2025/03/14/west-ham-david-moyes-opinion/
+
+**Doku's relentless dribbling and Grealish in the cold - City's winger situation analysed**\
+`A look at the options City manager Pep Guardiola has at his disposal out wide and the qualities he demands that these players possess`\
+https://nytimes.com/athletic/6197054/2025/03/14/doku-grealish-man-city-wingers/
+
 **The Slot story: From Dutch Bible Belt to Anfield - and why 'it all comes back to his dad'**\
 `A trip to the Liverpool manager's childhood home of Bergentheim reveals how he was shaped by the village - and his father`\
 https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-netherlands/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6193710/2025/03/14/arne-slot-liverpool-father-nethe
 **How Isak went from Newcastle substitute two years ago to Europe's most-wanted striker**\
 `The centre-forward was on the bench the last time Newcastle reached the Carabao Cup final but a lot has changed since then`\
 https://nytimes.com/athletic/6190068/2025/03/14/alexander-isak-newcastle-carabao-cup-final/
-
-**Jay Rodriguez on joining Wrexham, playing for England and chatting with Ryan Reynolds**\
-`The striker spent 11 seasons in the Premier League and played for his country but is now battling hard for promotion from League One`\
-https://nytimes.com/athletic/6186363/2025/03/14/jay-rodriguez-wrexham-england-southampton-burnley/
-
-**Odegaard, the 'scoop' pass and why it's so hard to pull off**\
-`Like some of football's finest playmakers, Arsenal captain Odegaard is using the scoop pass to beat a low block. But does it work?`\
-https://nytimes.com/athletic/6197496/2025/03/14/martin-odegaard-arsenal-scoop-pass/
-
-**The New York Times in Print for Friday, March 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/14/todays-new-york-times
-
-**Friday Briefing**\
-`Vladimir Putin’s conditions for a cease-fire.`\
-https://nytimes.com/2025/03/14/briefing/putin-tariffs-gaza.html
-
-**What Zelensky Does Next**\
-`Different sides of the war in Ukraine reach for different, simple narratives about Mr. Zelensky. The truth has always been more complicated.`\
-https://nytimes.com/2025/03/14/opinion/zelensky-ukraine-war.html
-
-**Dr. Oz’s Dizzying Journey From Heart Doctor to Celebrity to Iconoclast**\
-`A once-respected surgeon found fame and fortune as medicine’s biggest iconoclast. Now he’s on the cusp of power to help shape American public health.`\
-https://nytimes.com/2025/03/14/opinion/dr-oz-medicare-medicaid-trump.html
-
-**Gaudreau's power-play beauty earns the Wild a hard-working point: 3 takeaways**\
-`The Wild are struggling to score but got two power-play goals past Igor Shesterkin to earn an overtime point against the Rangers.`\
-https://nytimes.com/athletic/6202353/2025/03/14/wild-defense-scoring-slump-gaudreau-rangers/
-
-**DeMarcus Lawrence takes shot at Cowboys, sparking tiff with Micah Parsons**\
-`The new Seahawks defensive lineman said of Dallas: "I'm not going to win a Super Bowl there." His ex-teammate offered a pointed response.`\
-https://nytimes.com/athletic/6202454/2025/03/14/cowboys-demarcus-lawrence-micah-parsons-seahawks/
 
