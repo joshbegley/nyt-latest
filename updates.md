@@ -1,3 +1,7 @@
+**Corrections: March 14, 2025**\
+`Corrections that appeared in print on Friday, March 14, 2025.`\
+https://nytimes.com/2025/03/13/pageoneplus/corrections-march-14-2025.html
+
 **$3.5 Million Settlement in Sacramento Jail Death**\
 `The fatal overdose of a homeless man at a Sacramento County jail is one of multiple deaths in which staff have been accused of medical neglect.`\
 https://nytimes.com/2025/03/13/us/california-jail-death.html
