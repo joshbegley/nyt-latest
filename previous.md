@@ -1,3 +1,7 @@
+**The Senate Is Set to Pass a Bill to Avoid a Shutdown**\
+`Also, the advance of A.G.I.`\
+https://nytimes.com/2025/03/14/briefing/the-senate-is-set-to-pass-a-bill-to-avoid-a-shutdown.html
+
 **Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
 `Hoecht informed the Bills of his suspension before contract negotiations began and Ogunjobi found out about his after agreeing to terms.`\
 https://nytimes.com/athletic/6204583/2025/03/14/bills-michael-hoecht-larry-ogunjobi-peds-suspension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/world/canada/g7-ukraine-policy-trump-tariffs.html
 **Trump Administration Opens Leak Investigations**\
 `Tulsi Gabbard, the director of national intelligence, said she intended to hold officials who released information “accountable.”`\
 https://nytimes.com/2025/03/14/us/politics/trump-administration-leak-investigations.html
-
-**Senators Grill Oz on Medicaid Cuts and Medicare Changes**\
-`Dr. Mehmet Oz, the TV celebrity, dodged queries about Republican plans to cut health insurance for the poor, and emerged unscathed on his ties to major industries.`\
-https://nytimes.com/2025/03/14/health/dr-oz-senate-confirmation-medicaid-medicare-cms.html
 

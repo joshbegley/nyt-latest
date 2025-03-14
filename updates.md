@@ -1,3 +1,7 @@
+**The Senate Is Set to Pass a Bill to Avoid a Shutdown**\
+`Also, the advance of A.G.I.`\
+https://nytimes.com/2025/03/14/briefing/the-senate-is-set-to-pass-a-bill-to-avoid-a-shutdown.html
+
 **Bills' Hoecht, Ogunjobi each facing 6-game suspensions over PEDs**\
 `Hoecht informed the Bills of his suspension before contract negotiations began and Ogunjobi found out about his after agreeing to terms.`\
 https://nytimes.com/athletic/6204583/2025/03/14/bills-michael-hoecht-larry-ogunjobi-peds-suspension/
