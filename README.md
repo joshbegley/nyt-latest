@@ -1,3 +1,11 @@
+**Trump Orders Gutting of 7 Agencies, Including Voice of America’s Parent**\
+`The order targeting the agencies, largely obscure entities that address issues like labor mediation and homelessness prevention, appeared to test the bounds of the president’s power.`\
+https://nytimes.com/2025/03/15/us/politics/trump-order-voice-of-america.html
+
+**Explained: How Chelsea secured Quenda, United's interest and style of play**\
+`Chelsea have reached an agreement to sign Geovany Quenda — this is what it means`\
+https://nytimes.com/athletic/6203998/2025/03/15/chelsea-geovany-quenda-transfer-manchester-united-analysis-latest/
+
 **Manchester United's 'Theatre of Dreams': A history of Old Trafford**\
 `Manchester United's home of 115 years has had a life of its own, becoming a leading character in the story of the club and English football`\
 https://nytimes.com/athletic/6194339/2025/03/15/old-trafford-manchester-united-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6205051/2025/03/15/creighton-uconn-big-east-tournam
 **For Leon Draisaitl, 2 points from an Oilers win exceed his 100-point milestone**\
 `His name is mentioned among all the NHL trophy talk but Draisaitl is more focused on leading his team to victory. `\
 https://nytimes.com/athletic/6202318/2025/03/15/oilers-leon-draisaitl-100-points/
-
-**Chargers sign Mekhi Becton, provide needed boost to interior offensive line**\
-`Interior offensive line was the Chargers' biggest need and they filled it with the second-best guard on The Athletic's top-150 list.`\
-https://nytimes.com/athletic/6205018/2025/03/15/mekhi-becton-chargers-nfl-free-agency-signing/
-
-**Dear Newcastle, no letters, we promise. Just a little love note to say: get into them**\
-`George Caulkin gets a few things off his chest before Wembley`\
-https://nytimes.com/athletic/6203606/2025/03/15/dear-newcastle-letters-carabao-cup-final-george-caulkin/
 
