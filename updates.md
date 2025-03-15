@@ -1,3 +1,7 @@
+**Home Sellers and Buyers Accuse Realtors of Blocking Lower Fees**\
+`A year after a landmark settlement called for a disruption in how real estate agents are paid, people say they still feel forced to pay them excessive commissions.`\
+https://nytimes.com/2025/03/15/realestate/sellers-buyers-realtors-high-commissions.html
+
 **Ohtani hits home run on return to Tokyo Dome**\
 `Ohtani has tested the bounds of the ballpark before, hitting one through the ceiling of the building dubbed “The Big Egg” back in 2016.`\
 https://nytimes.com/athletic/6205305/2025/03/15/shohei-ohtani-home-run-tokyo/
