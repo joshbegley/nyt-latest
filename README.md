@@ -1,3 +1,7 @@
+**Dear Newcastle, no letters, we promise. Just a little love note to say: get into them**\
+`George Caulkin gets a few things off his chest before Wembley`\
+https://nytimes.com/athletic/6203606/2025/03/15/dear-newcastle-letters-carabao-cup-final-george-caulkin/
+
 **Connections: Sports Edition Coach: Hints for March 15, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6204944/2025/03/15/connections-sports-edition-hints-for-march-15-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/judge-guantanamo-detention-migrants.h
 **Fact-Checking Trump’s Speech at the Justice Department**\
 `The president revived a number of falsehoods he had used on the campaign trail last year, including his lie that the 2020 election was stolen from him.`\
 https://nytimes.com/2025/03/14/us/politics/fact-check-trump-justice-immigration-crime-eggs.html
-
-**Mirra Andreeva beats Iga Swiatek at Indian Wells and marches on to the final**\
-`Andreeva is coming for women's tennis. Or maybe she has already taken it.`\
-https://nytimes.com/athletic/6204914/2025/03/14/mirra-andreeva-womens-tennis/
 
