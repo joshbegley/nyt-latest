@@ -1,3 +1,15 @@
+**Hurzeler tells Brighton squad: 'The same as a boxer, you have to stand up'**\
+`The Brighton head coach opened up on starting boxing and revealed the lessons that the sport could teach him and his squad. `\
+https://nytimes.com/athletic/6203811/2025/03/15/brighton-hurzeler-boxing-harlem-eubank/
+
+**The New York Times in Print for Saturday, March 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/15/todays-new-york-times
+
+**For Leon Draisaitl, 2 points from an Oilers win exceed his 100-point milestone**\
+`His name is mentioned among all the NHL trophy talk but Draisaitl is more focused on leading his team to victory. `\
+https://nytimes.com/athletic/6202318/2025/03/15/oilers-leon-draisaitl-100-points/
+
 **Creighton's Jamiya Neal apologizes for celebratory windmill dunk vs. UConn**\
 `Neal threw down a dunk with 1.5 seconds left and did a pull-up on the rim as Hassan Diarra met him on the floor with a push.`\
 https://nytimes.com/athletic/6205051/2025/03/15/creighton-uconn-big-east-tournament-dunk/
