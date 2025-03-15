@@ -1,3 +1,11 @@
+**Rejected by Washington, Federal Workers Find Open Arms in State Governments**\
+`Seeking to serve as a counterweight to the Trump administration, a flurry of mostly blue states has created initiatives — and ad campaigns — to lure federal employees to state government jobs.`\
+https://nytimes.com/2025/03/15/us/politics/states-hiring-fired-federal-workers.html
+
+**Wrexham fan taken to hospital after medical emergency stopped Wycombe game**\
+`Play was halted for almost 50 minutes in the second half at Adams Park after fans alerted the authorities to an emergency in the away end.`\
+https://nytimes.com/athletic/6205804/2025/03/15/wrexham-wycombe-suspended-medical-emergency/
+
 **Brighton's Lamptey missed Man City game after training injury**\
 `Lamptey was not part of the matchday squad for the trip to Manchester City on Saturday.`\
 https://nytimes.com/athletic/6205794/2025/03/15/brighton-tariq-lamptey-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/us/politics/us-attack-houthis.html
 **Fear of Trump’s Tariffs Ripples Through France’s Champagne Region**\
 `Merchants worried that a trade war could wreak financial havoc in a region that has a robust business exporting the world’s finest bubbly to the United States.`\
 https://nytimes.com/2025/03/15/business/france-champagne-wine-tariffs-trump.html
-
-**The Aaron Rodgers waiting game: Two QBs, three teams wait on Kevin O'Connell and Vikings' call**\
-`O'Connell must decide if he's committed to signing the future Hall of Famer rather than starting 2024 first-round pick J.J. McCarthy. `\
-https://nytimes.com/athletic/6205101/2025/03/15/aaron-rodgers-vikings-quarterback-jj-mccarthy/
-
-**The Briefing: Man City 2 Brighton 2 – Unwelcome first for Guardiola; was Ortega at fault?**\
-`The major talking points from Saturday's Premier League match at the Etihad Stadium`\
-https://nytimes.com/athletic/6197582/2025/03/15/manchester-city-brighton-premier-league-result-analysis/
 

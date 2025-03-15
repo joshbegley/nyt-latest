@@ -1,3 +1,11 @@
+**Rejected by Washington, Federal Workers Find Open Arms in State Governments**\
+`Seeking to serve as a counterweight to the Trump administration, a flurry of mostly blue states has created initiatives — and ad campaigns — to lure federal employees to state government jobs.`\
+https://nytimes.com/2025/03/15/us/politics/states-hiring-fired-federal-workers.html
+
+**Wrexham fan taken to hospital after medical emergency stopped Wycombe game**\
+`Play was halted for almost 50 minutes in the second half at Adams Park after fans alerted the authorities to an emergency in the away end.`\
+https://nytimes.com/athletic/6205804/2025/03/15/wrexham-wycombe-suspended-medical-emergency/
+
 **Kash Patel Pushes Command Changes at F.B.I.**\
 `The move means almost all top agents in the field will no longer answer to the deputy director, a significant departure from the way the F.B.I. has worked.`\
 https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
