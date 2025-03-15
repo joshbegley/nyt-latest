@@ -1,3 +1,7 @@
+**Protest Against Serbian Leader Draws 100,000 in Biggest Crowd Yet**\
+`The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
+https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
+
 **‘It Got Everything’: Oklahoma Residents Who Escaped Fires Brace for Losses**\
 `Hundreds of homes and other buildings were destroyed in Oklahoma, as fierce winds and wildfires swept the region.`\
 https://nytimes.com/2025/03/15/us/wildfires-oklahoma-texas-damage.html

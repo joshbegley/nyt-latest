@@ -1,3 +1,7 @@
+**Protest Against Serbian Leader Draws 100,000 in Biggest Crowd Yet**\
+`The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
+https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
+
 **‘It Got Everything’: Oklahoma Residents Who Escaped Fires Brace for Losses**\
 `Hundreds of homes and other buildings were destroyed in Oklahoma, as fierce winds and wildfires swept the region.`\
 https://nytimes.com/2025/03/15/us/wildfires-oklahoma-texas-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-predictio
 **Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
 `Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
 https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-arrest.html
-
-**Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
-`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death.`\
-https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
 
