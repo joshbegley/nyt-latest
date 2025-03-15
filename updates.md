@@ -1,3 +1,15 @@
+**Jaden McDaniels, Donte DiVincenzo shine in Wolves' comeback win**\
+`McDaniels and DiVincenzo combined for 16 points on 7-of-7 shooting in the fourth quarter, while also playing lockdown defense.`\
+https://nytimes.com/athletic/6204841/2025/03/15/jaden-mcdaniels-donte-divincenzo-wolves-comeback/
+
+**Lakers look to regroup in Los Angeles after their disastrous 0-4 road trip**\
+`On Friday, it looked as if the shorthanded Lakers were going to shock the Nuggets, but miscues down the stretch led to another loss.`\
+https://nytimes.com/athletic/6204922/2025/03/15/lakers-nba-road-trip-lebron-redick/
+
+**49ers reuniting with Kyle Juszczyk on 2-year, $8 million deal: Source**\
+`Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
+https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
+
 **49ers re-signing Pro Bowl FB Kyle Juszczyk**\
 `Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
 https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
