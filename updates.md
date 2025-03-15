@@ -1,3 +1,15 @@
+**Reds roster prediction 3.0: Fingers crossed edition**\
+`Tyler Stephenson’s oblique bring catching depth into question.`\
+https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
+
+**Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
+`Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
+https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-lawyers-release-video-of-his-arrest.html
+
+**Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
+`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death. Dangerous fire conditions threatened areas from Texas to Iowa.`\
+https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
+
 **Rejected by Washington, Federal Workers Find Open Arms in State Governments**\
 `Seeking to serve as a counterweight to the Trump administration, a flurry of mostly blue states has created initiatives — and ad campaigns — to lure federal employees to state government jobs.`\
 https://nytimes.com/2025/03/15/us/politics/states-hiring-fired-federal-workers.html
