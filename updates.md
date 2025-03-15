@@ -1,3 +1,7 @@
+**Chelsea beat Man City to win League Cup final, keep quadruple on track**\
+`Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
+https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
+
 **Trump’s Grievance-Filled Speech Makes Clear His Quest for Vengeance Is Personal**\
 `The sole offense of those President Trump singled out in remarks at the Justice Department appeared to have been trying to hold him accountable for his actions.`\
 https://nytimes.com/2025/03/15/us/politics/trump-speech-doj-retribution.html

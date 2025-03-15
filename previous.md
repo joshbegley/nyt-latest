@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-reca
 `Ja Morant had 44 points, but the Cavs won their 16th straight as Cleveland controlled the game and any attempts by Morant to take over.`\
 https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
 
-**Chelsea beat Man City to win Subway Cup final, keep quadruple on track**\
+**Chelsea beat Man City to win League Cup final, keep quadruple on track**\
 `Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
 https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
 
