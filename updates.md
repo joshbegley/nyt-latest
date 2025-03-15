@@ -1,3 +1,7 @@
+**Marco Rubio Essentially Expels South Africa’s U.S. Ambassador**\
+`The secretary of state lashed out on social media over comments the ambassador reportedly made in Johannesburg that were critical of the Trump administration.`\
+https://nytimes.com/2025/03/14/us/politics/south-africa-ambassador-marco-rubio.html
+
 **Appeals Court Allows Trump Administration’s Diversity Crackdown to Proceed, but Judges Debate D.E.I. Merits**\
 `Three judges on a Virginia appeals panel agreed to let the Trump administration orders move forward but were sharply divided on the values of diversity, equity and inclusion.`\
 https://nytimes.com/2025/03/14/us/politics/trump-dei-court-ruling.html
