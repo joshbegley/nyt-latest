@@ -1,3 +1,7 @@
+**Trump Invokes the Alien Enemies Act, Seeking to Deport Venezuelans**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
+
 **Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
 `Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
 https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
