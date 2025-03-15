@@ -1,3 +1,7 @@
+**Tim Walz Talks to Anxious Iowa Democrats as Post-Election Travels Pick Up**\
+`Mr. Walz, the governor of Minnesota and last year’s Democratic nominee for vice president, has been meeting with members of his party in recent weeks.`\
+https://nytimes.com/2025/03/14/us/tim-walz-politics.html
+
 **SpaceX Launches NASA’s Crew-10 Mission**\
 `The mission would allow Suni Williams and Butch Wilmore, two NASA astronauts, to return to Earth. Their brief scheduled visit to the space station last June was unexpectedly stretched to more than nine months.`\
 https://nytimes.com/video/science/space/100000010054023/spacex-nasa-crew10-launch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
 **Whiteley 'just so proud' after Liverpool secure first WSL win at Anfield**\
 `Liverpool stunned Manchester United with a 3-1 victory on Friday night.`\
 https://nytimes.com/athletic/6204692/2025/03/14/amber-whitely-liverpool-wsl-anfield/
-
-**Draft List for New Travel Ban Proposes Trump Target 43 Countries**\
-`A draft circulating inside the administration lists three tiers of countries whose citizens may face restrictions on entering the United States.`\
-https://nytimes.com/2025/03/14/us/politics/trump-travel-ban.html
 
