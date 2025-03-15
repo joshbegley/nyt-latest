@@ -1,3 +1,11 @@
+**Nuno tells Nottingham Forest England hopefuls their chance will come**\
+`Thomas Tuchel left Morgan Gibbs-White out of his first England squad on Friday; Elliot Anderson and Callum Hudson-Odoi also missed out.`\
+https://nytimes.com/athletic/6205768/2025/03/15/nottingham-forest-england-squad-nuno/
+
+**U.S. Launches Broad Attack on Militant Sites in Yemen**\
+`The air and naval strikes on targets controlled by Houthi fighters were intended to open up international shipping lanes in the Red Sea.`\
+https://nytimes.com/2025/03/15/us/politics/us-attack-houthis.html
+
 **Fear of Trump’s Tariffs Ripples Through France’s Champagne Region**\
 `Merchants worried that a trade war could wreak financial havoc in a region that has a robust business exporting the world’s finest bubbly to the United States.`\
 https://nytimes.com/2025/03/15/business/france-champagne-wine-tariffs-trump.html
