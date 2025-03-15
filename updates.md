@@ -1,3 +1,7 @@
+**Trump Tries to Use White South Africans as Cautionary Tale**\
+`The president and his allies accuse South Africa of discriminating against and killing white people, and warn that it could happen in America if antiracism laws aren’t stopped.`\
+https://nytimes.com/2025/03/15/world/africa/south-africa-whites-trump.html
+
 **Lando Norris on pole for Australian Grand Prix as McLaren secures front row lockout**\
 `McLaren secures front row lockout as Ferrari struggles ahead of the opening race of the 2025 F1 season`\
 https://nytimes.com/athletic/6205064/2025/03/15/lando-norris-mclaren-pole-australian-gp/
