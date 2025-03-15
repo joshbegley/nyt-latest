@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-predictio
 https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-arrest.html
 
 **Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
-`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death. Dangerous fire conditions threatened areas from Texas to Iowa.`\
+`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death.`\
 https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
 
 **Rejected by Washington, Federal Workers Find Open Arms in State Governments**\

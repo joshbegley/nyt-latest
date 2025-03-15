@@ -1,3 +1,11 @@
+**Roy L. Prosterman, 89, Dies; Worked to Secure Land for the Rural Poor**\
+`Seeing land rights as the key to lifting up the impoverished, he pushed authoritarian governments as well as emerging democratic ones to distribute farmland.`\
+https://nytimes.com/2025/03/15/world/roy-prosterman-dead.html
+
+**S.C. State commits inadvertent late-game foul, helping Norfolk St. claim NCAA berth**\
+`After tying the game, South Carolina State's Caleb McCarty fouled Norfolk St.’s Christian Ings to send the Spartans to the foul line`\
+https://nytimes.com/athletic/6205898/2025/03/15/norfolk-state-south-carolina-state-mens-basketball-ncaa-tournament/
+
 **Chelsea reach agreement with Sporting CP for midfielder Essugo**\
 `A fee of £18.5million ($23.9m) has been agreed for the 20-year-old.`\
 https://nytimes.com/athletic/6205880/2025/03/15/dario-essugo-chelsea-transfer/
