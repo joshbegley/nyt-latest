@@ -1,3 +1,11 @@
+**Trump Orders Gutting of 7 Agencies, Including Voice of America’s Parent**\
+`The order targeting the agencies, largely obscure entities that address issues like labor mediation and homelessness prevention, appeared to test the bounds of the president’s power.`\
+https://nytimes.com/2025/03/15/us/politics/trump-order-voice-of-america.html
+
+**Explained: How Chelsea secured Quenda, United's interest and style of play**\
+`Chelsea have reached an agreement to sign Geovany Quenda — this is what it means`\
+https://nytimes.com/athletic/6203998/2025/03/15/chelsea-geovany-quenda-transfer-manchester-united-analysis-latest/
+
 **Manchester United's 'Theatre of Dreams': A history of Old Trafford**\
 `Manchester United's home of 115 years has had a life of its own, becoming a leading character in the story of the club and English football`\
 https://nytimes.com/athletic/6194339/2025/03/15/old-trafford-manchester-united-history/
