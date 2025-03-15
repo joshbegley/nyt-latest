@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6205794/2025/03/15/brighton-tariq-lamptey-injury/
 `He became an entrepreneur during a solid career with the Milwaukee Bucks. He later bought hundreds of fast-food outlets, a Coca-Cola bottling business and Ebony and Jet magazines.`\
 https://nytimes.com/2025/03/15/sports/basketball/junior-bridgeman-dead.html
 
-**Patel Pushes Command Changes at F.B.I.**\
+**Kash Patel Pushes Command Changes at F.B.I.**\
 `The move means almost all top agents in the field will no longer answer to the deputy director, a significant departure from the way the F.B.I. has worked.`\
 https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
 
