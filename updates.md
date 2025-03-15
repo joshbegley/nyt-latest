@@ -1,3 +1,35 @@
+**Scouting notes from the Mariners-Guardians Breakout game: Law**\
+`The Seattle-Cleveland game was kind of sloppy but still featured a handful of standouts from some of the top prospects on both sides.`\
+https://nytimes.com/athletic/6205188/2025/03/15/mariners-guardians-breakout-game-law/
+
+**As UNC basketball awaits bubble fate, plan for needed change is underway**\
+`UNC could miss the NCAA Tournament for the second time in three seasons. Will a new GM fix Tar Heels' struggles under Hubert Davis?`\
+https://nytimes.com/athletic/6204635/2025/03/15/march-madness-2025-unc-basketball-duke/
+
+**The last undefeated team in men's basketball is one you've never heard of**\
+`Division II Daemen University is the most underrated team in college basketball. Can it bring unlucky Buffalo a championship at last?`\
+https://nytimes.com/athletic/6203965/2025/03/15/march-madness-2025-college-basketball-undefeated-teams/
+
+**Chicago Cubs 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Even in a division as weak as the National League Central, it won’t be an easy journey for the Cubs.`\
+https://nytimes.com/athletic/6204325/2025/03/15/mlb-chicago-cubs-season-preview-2025/
+
+**A Hectic Week in Canadian Politics and Trade, With More Action on the Way**\
+`As Justin Trudeau’s nearly decade-long tenure as prime minister came to an end, new trade threats and tariffs came from Washington.`\
+https://nytimes.com/2025/03/15/world/canada/a-hectic-week-in-canadian-politics-and-trade-with-more-action-on-the-way.html
+
+**Wordle Review No. 1,366**\
+`Scroll down for hints and conversation about the puzzle for Sunday, March 16, 2025.`\
+https://nytimes.com/2025/03/15/crosswords/wordle-review-1366.html
+
+**Connections Companion No. 644**\
+`Scroll down for hints and conversation about the puzzle for Sunday, March 16, 2025.`\
+https://nytimes.com/2025/03/15/crosswords/connections-companion-644.html
+
+**Cavaliers' historic 16th straight win set up by football game in Nashville**\
+`Coach Kenny Atkinson credited the Cavaliers' success, in part, to their getaway to Nashville before heading to Memphis.`\
+https://nytimes.com/athletic/6205091/2025/03/15/cavaliers-16th-straight-win-team-bonding-nashville/
+
 **Your ‘Innie’ Will Want to Read This**\
 `As “Severance” nears the end of its second season, the show has created a “cultural moment” that is changing the way people discuss work-life balance.`\
 https://nytimes.com/2025/03/15/style/severance-innie-outie-work-life-balance.html
