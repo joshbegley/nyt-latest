@@ -1,4 +1,4 @@
-**'Wasn't pretty. But we'll take it': Weary Nuggets want victories, even the ugly ones**\
+**'Wasn't pretty. But we'll take it': Weary Nuggets happy for victories, even the ugly ones**\
 `Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
 https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/
 
