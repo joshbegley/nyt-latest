@@ -1,3 +1,19 @@
+**'Wasn't pretty. But we'll take it': Weary Nuggets want victories, even the ugly ones**\
+`Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
+https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/
+
+**Grizzlies must level up to compete with NBA’s elite**\
+`Ja Morant had 44 points, but the Cavs won their 16th straight as Cleveland controlled the game and any attempts by Morant to take over.`\
+https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
+
+**Chelsea beat Man City to win Subway Cup final, keep quadruple on track**\
+`Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
+https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
+
+**Mavericks' loss to Rockets is a painful reminder of what Dallas could have been**\
+`Dallas looked like a dominant team last month. Injuries have made it a shell of itself with a month left in the regular season.`\
+https://nytimes.com/athletic/6205010/2025/03/15/mavericks-nba-injuries-kyrie-anthony-davis-luka/
+
 **Jaden McDaniels, Donte DiVincenzo shine in Wolves' comeback win**\
 `McDaniels and DiVincenzo combined for 16 points on 7-of-7 shooting in the fourth quarter, while also playing lockdown defense.`\
 https://nytimes.com/athletic/6204841/2025/03/15/jaden-mcdaniels-donte-divincenzo-wolves-comeback/
