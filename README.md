@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6205101/2025/03/15/aaron-rodgers-vikings-quarterbac
 https://nytimes.com/athletic/6197582/2025/03/15/manchester-city-brighton-premier-league-result-analysis/
 
 **Max Homa and the 'toxic relationship' he's feeling with golf right now**\
-`“It’s hard to care this much about something and just not get anything out of it, I guess. But I am of the mind that it will happen."`\
+`Homa: “It’s hard to care this much about something and just not get anything out of it, I guess. But I am of the mind that it will happen."`\
 https://nytimes.com/athletic/6205487/2025/03/15/max-homa-golf-pga-tour-toxic/
 
 **After Kyle Neptune's firing, is 'The Villanova Way' over?**\
