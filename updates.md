@@ -1,3 +1,11 @@
+**Ohtani hits home run on return to Tokyo Dome**\
+`Ohtani has tested the bounds of the ballpark before, hitting one through the ceiling of the building dubbed “The Big Egg” back in 2016.`\
+https://nytimes.com/athletic/6205305/2025/03/15/shohei-ohtani-home-run-tokyo/
+
+**Russia Presses Offensive in Kursk Amid Cease-Fire Talks With U.S.**\
+`Moscow said it had retaken two villages outside the town of Sudzha in Russia’s Kursk region. Ukrainian officials did not immediately comment on the claim.`\
+https://nytimes.com/2025/03/15/world/europe/russia-ukraine-kursk-cease-fire-talks.html
+
 **Need a goalie upgrade this offseason? Bad news: the free-agent options are sparse**\
 `For teams looking for a bonafide starter — or even a goalie to lead a tandem with a 50-50 split — there won’t be much available.`\
 https://nytimes.com/athletic/6204536/2025/03/15/goalie-free-agents-2025/
