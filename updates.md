@@ -1,3 +1,11 @@
+**Musk Keeps His Eye on Social Security**\
+`The tech billionaire has repeatedly suggested, without evidence, that Social Security is rife with fraud, even as President Trump denies plans to cut those benefits.`\
+https://nytimes.com/2025/03/14/us/politics/musk-doge-social-security.html
+
+**BOS Nation FC is out: Boston NWSL team to reveal new name in 'next few weeks'**\
+`The Boston team launched the BOS Nation FC name and colors last October to an overwhelmingly negative reaction.`\
+https://nytimes.com/athletic/6204128/2025/03/14/boston-nwsl-expansion-bos-nation-fc/
+
 **D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
 `The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
 https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
