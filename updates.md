@@ -1,3 +1,15 @@
+**How a Columbia Student Fled to Canada After ICE Came Looking for Her**\
+`Ranjani Srinivasan’s student visa was revoked by U.S. immigration authorities. That was just the start of her odyssey.`\
+https://nytimes.com/2025/03/15/nyregion/columbia-student-kristi-noem-video.html
+
+**Lowetide: Is there a changing of the guard on Oilers' No. 1 line?**\
+`When Connor McDavid is on a line without Leon Draisaitl at five-on-five, the numbers fall drastically.`\
+https://nytimes.com/athletic/6195176/2025/03/15/oilers-lines-draisaitl-mcdavid-stats/
+
+**Got Yogurt?**\
+`Then you might have questions about how long it’s good for, or need ideas for using it up. We have answers and recipes.`\
+https://nytimes.com/2025/03/15/dining/yogurt-questions-recipes.html
+
 **Chelsea beat Man City to win League Cup final, keep quadruple on track**\
 `Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
 https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/

@@ -1,3 +1,15 @@
+**How a Columbia Student Fled to Canada After ICE Came Looking for Her**\
+`Ranjani Srinivasan’s student visa was revoked by U.S. immigration authorities. That was just the start of her odyssey.`\
+https://nytimes.com/2025/03/15/nyregion/columbia-student-kristi-noem-video.html
+
+**Lowetide: Is there a changing of the guard on Oilers' No. 1 line?**\
+`When Connor McDavid is on a line without Leon Draisaitl at five-on-five, the numbers fall drastically.`\
+https://nytimes.com/athletic/6195176/2025/03/15/oilers-lines-draisaitl-mcdavid-stats/
+
+**Got Yogurt?**\
+`Then you might have questions about how long it’s good for, or need ideas for using it up. We have answers and recipes.`\
+https://nytimes.com/2025/03/15/dining/yogurt-questions-recipes.html
+
 **Trump’s Grievance-Filled Speech Makes Clear His Quest for Vengeance Is Personal**\
 `The sole offense of those President Trump singled out in remarks at the Justice Department appeared to have been trying to hold him accountable for his actions.`\
 https://nytimes.com/2025/03/15/us/politics/trump-speech-doj-retribution.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6204922/2025/03/15/lakers-nba-road-trip-lebron-redi
 **49ers reuniting with Kyle Juszczyk on 2-year, $8 million deal: Source**\
 `Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
 https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
-
-**Trump Administration Live Updates: Order Aims to Gut 7 Agencies, Including Overseer of Voice of America**\
-``\
-https://nytimes.com/live/2025/03/15/us/trump-news
-
-**Mavericks' loss to Rockets is a painful reminder of what Dallas could have been**\
-`Dallas looked like a dominant team last month. Injuries have made it a shell of itself with a month left in the regular season.`\
-https://nytimes.com/athletic/6205010/2025/03/15/mavericks-nba-injuries-kyrie-anthony-davis-luka/
-
-**Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
-`On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
-https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
 
