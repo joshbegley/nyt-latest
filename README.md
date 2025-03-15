@@ -1,3 +1,11 @@
+**Roy L. Prosterman, 89, Dies; Worked to Secure Land for the Rural Poor**\
+`Seeing land rights as the key to lifting up the impoverished, he pushed authoritarian governments as well as emerging democratic ones to distribute farmland.`\
+https://nytimes.com/2025/03/15/world/roy-prosterman-dead.html
+
+**S.C. State commits inadvertent late-game foul, helping Norfolk St. claim NCAA berth**\
+`After tying the game, South Carolina State's Caleb McCarty fouled Norfolk St.’s Christian Ings to send the Spartans to the foul line`\
+https://nytimes.com/athletic/6205898/2025/03/15/norfolk-state-south-carolina-state-mens-basketball-ncaa-tournament/
+
 **Chelsea reach agreement with Sporting CP for midfielder Essugo**\
 `A fee of £18.5million ($23.9m) has been agreed for the 20-year-old.`\
 https://nytimes.com/athletic/6205880/2025/03/15/dario-essugo-chelsea-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6205804/2025/03/15/wrexham-wycombe-suspended-medica
 **Brighton's Lamptey missed Man City game after training injury**\
 `Lamptey was not part of the matchday squad for the trip to Manchester City on Saturday.`\
 https://nytimes.com/athletic/6205794/2025/03/15/brighton-tariq-lamptey-injury/
-
-**Junior Bridgeman, N.B.A. Player Turned Mogul, Dies at 71**\
-`He became an entrepreneur during a solid career with the Milwaukee Bucks. He later bought hundreds of fast-food outlets, a Coca-Cola bottling business and Ebony and Jet magazines.`\
-https://nytimes.com/2025/03/15/sports/basketball/junior-bridgeman-dead.html
-
-**Kash Patel Pushes Command Changes at F.B.I.**\
-`The move means almost all top agents in the field will no longer answer to the deputy director, a significant departure from the way the F.B.I. has worked.`\
-https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
 
