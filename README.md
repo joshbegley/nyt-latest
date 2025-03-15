@@ -1,3 +1,11 @@
+**Musk Keeps His Eye on Social Security**\
+`The tech billionaire has repeatedly suggested, without evidence, that Social Security is rife with fraud, even as President Trump denies plans to cut those benefits.`\
+https://nytimes.com/2025/03/14/us/politics/musk-doge-social-security.html
+
+**BOS Nation FC is out: Boston NWSL team to reveal new name in 'next few weeks'**\
+`The Boston team launched the BOS Nation FC name and colors last October to an overwhelmingly negative reaction.`\
+https://nytimes.com/athletic/6204128/2025/03/14/boston-nwsl-expansion-bos-nation-fc/
+
 **D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
 `The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
 https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/03/14/smarter-living/wirecutter/15-unexpected-brid
 **Elon Musk Shared, Then Removed a Post Absolving Dictators for Genocide**\
 `The post falsely claimed that Joseph Stalin, Adolf Hitler and Mao Zedong were not responsible for the murders of millions of people, but rather public sector workers were.`\
 https://nytimes.com/2025/03/14/technology/elon-musk-x-post-hitler-stalin-mao.html
-
-**Cooper Kupp agrees with Seahawks on 3-year, $45 million deal: Source**\
-`Since entering the league, Kupp has the sixth-most receptions, seventh-most touchdowns and eighth-most receiving yards among wide receivers.`\
-https://nytimes.com/athletic/6198934/2025/03/14/cooper-kupp-seahawks-nfl-free-agency-2025/
-
-**Education Department Sued Over Cuts to Civil Rights Office**\
-`A new lawsuit argues that recent layoffs undermine the office’s ability to investigate complaints of discrimination from all students, not just those aligned with President Trump’s agenda.`\
-https://nytimes.com/2025/03/14/us/politics/education-department-civil-rights-office.html
 
