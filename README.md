@@ -1,3 +1,15 @@
+**Reds roster prediction 3.0: Fingers crossed edition**\
+`Tyler Stephenson’s oblique bring catching depth into question.`\
+https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
+
+**Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
+`Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
+https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-lawyers-release-video-of-his-arrest.html
+
+**Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
+`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death. Dangerous fire conditions threatened areas from Texas to Iowa.`\
+https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
+
 **Rejected by Washington, Federal Workers Find Open Arms in State Governments**\
 `Seeking to serve as a counterweight to the Trump administration, a flurry of mostly blue states has created initiatives — and ad campaigns — to lure federal employees to state government jobs.`\
 https://nytimes.com/2025/03/15/us/politics/states-hiring-fired-federal-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/15/us/politics/trump-spending-bill-government-shutdo
 **Harry Reid’s Letter to James Comey**\
 `The Senate minority leader, Harry Reid, sent a letter on Monday to the F.B.I. director, James B. Comey Jr., expressing concern that Russia was trying to influence the presidential election and requesting that the F.B.I. open an investigation.`\
 https://nytimes.com/interactive/2025/03/15/us/reid-letter-to-comey.html
-
-**Nuno tells Nottingham Forest England hopefuls their chance will come**\
-`Thomas Tuchel left Morgan Gibbs-White out of his first England squad on Friday; Elliot Anderson and Callum Hudson-Odoi also missed out.`\
-https://nytimes.com/athletic/6205768/2025/03/15/nottingham-forest-england-squad-nuno/
-
-**U.S. Launches Broad Attack on Militant Sites in Yemen**\
-`The air and naval strikes on targets controlled by Houthi fighters were intended to open up international shipping lanes in the Red Sea.`\
-https://nytimes.com/2025/03/15/us/politics/us-attack-houthis.html
-
-**Fear of Trump’s Tariffs Ripples Through France’s Champagne Region**\
-`Merchants worried that a trade war could wreak financial havoc in a region that has a robust business exporting the world’s finest bubbly to the United States.`\
-https://nytimes.com/2025/03/15/business/france-champagne-wine-tariffs-trump.html
 
