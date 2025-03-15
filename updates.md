@@ -1,3 +1,7 @@
+**Protest Against Serbian Leader Draws Over 100,000 in Biggest Crowd Yet**\
+`The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
+https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
+
 **Trump Invokes the Alien Enemies Act, a Wartime Law, to Deport Venezuelans**\
 `The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
 https://nytimes.com/2025/03/15/us/politics/trump-alien-enemies-act-deportations-venezuelans.html
