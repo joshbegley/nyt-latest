@@ -1,3 +1,27 @@
+**History Lessons on One-Inch Templates**\
+`In the 1920s and ’30s, clerks at The Times collected stamps from overseas mail. The postage tells of a fluid world history.`\
+https://nytimes.com/2025/03/15/insider/stamp-collection.html
+
+**Five Years On, Ghosts of a Pandemic We Didn’t Imagine Still Haunt Us**\
+`Time’s passage may have granted the illusion of distance, but we are living in a world that has yet to put the effects of Covid behind it.`\
+https://nytimes.com/2025/03/15/us/pandemic-five-years-dan-barry.html
+
+**How to Watch the New York City St. Patrick’s Day Parade**\
+`The parade on Monday will kick off at 11 a.m. and proceed north along Fifth Avenue in its usual fashion.`\
+https://nytimes.com/2025/03/15/nyregion/nyc-st-patricks-day-parade-watch.html
+
+**In the Ring, It Doesn’t Matter How Much Money His Parents Have**\
+`Sean O’Bradaigh grew up in a world of Manhattan privilege, but private schools and ski vacations have nothing on the dream of being a professional boxer.`\
+https://nytimes.com/2025/03/15/nyregion/in-the-ring-it-doesnt-matter-how-much-money-his-parents-have.html
+
+**How a TikTok Cook Spends Her Sundays**\
+`Justine Doiron, who is better known as Justine Snacks, is the early bird at the farmer’s market, then spends her day trying new recipes, cleaning and checking out new books.`\
+https://nytimes.com/2025/03/15/nyregion/justine-snacks-tiktok.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/15/crosswords/spelling-bee-forum.html
+
 **Trump Tries to Use White South Africans as Cautionary Tale**\
 `The president and his allies accuse South Africa of discriminating against and killing white people, and warn that it could happen in America if antiracism laws aren’t stopped.`\
 https://nytimes.com/2025/03/15/world/africa/south-africa-whites-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/15/us/politics/trump-order-voice-of-america.html
 **Explained: How Chelsea secured Quenda, United's interest and style of play**\
 `Chelsea have reached an agreement to sign Geovany Quenda — this is what it means`\
 https://nytimes.com/athletic/6203998/2025/03/15/chelsea-geovany-quenda-transfer-manchester-united-analysis-latest/
-
-**Manchester United's 'Theatre of Dreams': A history of Old Trafford**\
-`Manchester United's home of 115 years has had a life of its own, becoming a leading character in the story of the club and English football`\
-https://nytimes.com/athletic/6194339/2025/03/15/old-trafford-manchester-united-history/
-
-**'You've got to be fine with missing. I'm not fine if I'm driving home knowing I was too scared to take a penalty'**\
-`In an exclusive interview, the Liverpool midfielder tells The Athletic about life under Slot, backing himself and response to penalty miss`\
-https://nytimes.com/athletic/6203294/2025/03/15/liverpool-curtis-jones-interview-arne-slot/
-
-**Is Isak the striker who troubles Van Dijk more than any other?**\
-`Liverpool's captain is usually imperious but history shows the Newcastle forward has the capacity to trouble him like few others`\
-https://nytimes.com/athletic/6183109/2025/03/15/isak-van-dijk-carabao-cup-final/
-
-**Tuchel set out his England vision - and, unlike Southgate, he wants to go on the front foot**\
-`The new head coach wants his team to play like a Premier League club - will that work in modern international football?`\
-https://nytimes.com/athletic/6203845/2025/03/15/thomas-tuchel-style-england-southgate/
-
-**Hurzeler tells Brighton squad: 'The same as a boxer, you have to stand up'**\
-`The Brighton head coach opened up on starting boxing and revealed the lessons that the sport could teach him and his squad. `\
-https://nytimes.com/athletic/6203811/2025/03/15/brighton-hurzeler-boxing-harlem-eubank/
-
-**The New York Times in Print for Saturday, March 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/15/todays-new-york-times
 
