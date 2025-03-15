@@ -1,3 +1,11 @@
+**Grizzlies must level up to compete with NBA’s elite**\
+`Ja Morant had 44 points, but the Cavs won their 16th straight as Cleveland controlled the game and any attempts by Morant to take over.`\
+https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
+
+**Chelsea beat Man City to win Subway Cup final, keep quadruple on track**\
+`Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
+https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
+
 **Jaden McDaniels, Donte DiVincenzo shine in Wolves' comeback win**\
 `McDaniels and DiVincenzo combined for 16 points on 7-of-7 shooting in the fourth quarter, while also playing lockdown defense.`\
 https://nytimes.com/athletic/6204841/2025/03/15/jaden-mcdaniels-donte-divincenzo-wolves-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/world/middleeast/syria-druse-visit-israel.html
 **Syrian Druse Pilgrims Enter Israel in a Historic Visit**\
 `Syrian Druse pilgrims entered Israel from Syria in a rare visit to a shrine, and were welcomed by the local Druse community.`\
 https://nytimes.com/video/world/middleeast/100000010052390/syrian-druse-pilgrimage-israel.html
-
-**How to watch the Australian Grand Prix, F1's 2025 season-opener**\
-`For the first time in six years, the F1 season begins at Melbourne's Albert Park. Lewis Hamilton makes his Ferrari debut.`\
-https://nytimes.com/athletic/6201258/2025/03/15/f1-australian-grand-prix-how-to-watch/
-
-**McLaren’s front-row lockout a ‘good problem’ to manage but Ferrari gap a surprise**\
-`After qualifying for the Australian Grand Prix in pole, Lando Norris can no longer deflect attention from his team`\
-https://nytimes.com/athletic/6205262/2025/03/15/australian-grand-prix-qualifying-mclaren-lewis-hamilton-ferrari/
 

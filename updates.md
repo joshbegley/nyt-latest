@@ -1,3 +1,11 @@
+**Jaden McDaniels, Donte DiVincenzo shine in Wolves' comeback win**\
+`McDaniels and DiVincenzo combined for 16 points on 7-of-7 shooting in the fourth quarter, while also playing lockdown defense.`\
+https://nytimes.com/athletic/6204841/2025/03/15/jaden-mcdaniels-donte-divincenzo-wolves-comeback/
+
+**Lakers look to regroup in Los Angeles after disastrous 0-4 road trip**\
+`On Friday, it looked as if the short-handed Lakers were going to shock the Nuggets, but miscues down the stretch led to another loss.`\
+https://nytimes.com/athletic/6204922/2025/03/15/lakers-nba-road-trip-lebron-redick/
+
 **Rangers' Jonny Brodzinski looking out for, and feeding, young teammates he captained in AHL**\
 `Brennan Othmann, 22, played with the veteran in Hartford and says his parents “go to bed happy at night knowing Jonny is taking care of me.”`\
 https://nytimes.com/athletic/6204377/2025/03/15/jonny-brodzinski-rangers-ahl-captain-teammates/
