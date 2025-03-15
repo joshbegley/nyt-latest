@@ -1,3 +1,19 @@
+**‘It Got Everything’: Oklahoma Residents Who Escaped Fires Brace for Losses**\
+`Hundreds of homes and other buildings were destroyed in Oklahoma, as fierce winds and wildfires swept the region.`\
+https://nytimes.com/2025/03/15/us/wildfires-oklahoma-texas-damage.html
+
+**Wrexham's double over Wycombe flips promotion chances in their favour – the race is on...**\
+`The two clubs' respective run-ins could be the decisive factor with Wycombe's looking harder on paper. Here's how it stands`\
+https://nytimes.com/athletic/6199955/2025/03/15/wycombe-wrexham-promotion-chances/
+
+**Trump Seeks More Sway in Picking Kennedy Center Honorees**\
+`The president, who recently had himself installed as the center’s chairman, has called a meeting of its board to approve changes that would give him more input in the process.`\
+https://nytimes.com/2025/03/15/arts/music/trump-kennedy-center-honors.html
+
+**SC State commits inadvertent late-game foul, helping Norfolk State claim NCAA berth**\
+`After tying the game, South Carolina State's Caleb McCarty fouled Norfolk St.’s Christian Ings to send the Spartans to the foul line`\
+https://nytimes.com/athletic/6205898/2025/03/15/norfolk-state-south-carolina-state-mens-basketball-ncaa-tournament/
+
 **Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
 `More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death.`\
 https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
