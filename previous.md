@@ -1,3 +1,11 @@
+**Ratcliffe says he will step down if he 'fails' at Man United**\
+`The British billionaire's takeover hasn't been the catalyst for an upturn in form for the Premier League club.`\
+https://nytimes.com/athletic/6205290/2025/03/15/jim-ratcliffe-manchester-united-leave/
+
+**U.S. Punishes Thai Officials Over Deportation of Uyghurs to China**\
+`The State Department said it was “combating China’s efforts to pressure governments to forcibly return Uyghurs and other groups to China.”`\
+https://nytimes.com/2025/03/15/world/asia/us-sanctions-thai-uyghurs-china.html
+
 **Social Distance**\
 `On the five-year anniversary of Covid, a look at the ways we vowed our lives and relationships would change afterward — and how they still might.`\
 https://nytimes.com/2025/03/15/briefing/social-distance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/crosswords/wordle-review-1366.html
 **Connections Companion No. 644**\
 `Scroll down for hints and conversation about the puzzle for Sunday, March 16, 2025.`\
 https://nytimes.com/2025/03/15/crosswords/connections-companion-644.html
-
-**Cavaliers' historic 16th straight win set up by football game in Nashville**\
-`Coach Kenny Atkinson credited the Cavaliers' success, in part, to their getaway to Nashville before heading to Memphis.`\
-https://nytimes.com/athletic/6205091/2025/03/15/cavaliers-16th-straight-win-team-bonding-nashville/
-
-**Your ‘Innie’ Will Want to Read This**\
-`As “Severance” nears the end of its second season, the show has created a “cultural moment” that is changing the way people discuss work-life balance.`\
-https://nytimes.com/2025/03/15/style/severance-innie-outie-work-life-balance.html
 
