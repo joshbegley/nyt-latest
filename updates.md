@@ -1,3 +1,7 @@
+**Lando Norris on pole for Australian Grand Prix as McLaren secures front row lockout**\
+`McLaren secures front row lockout as Ferrari struggles ahead of the opening race of the 2025 F1 season`\
+https://nytimes.com/athletic/6205064/2025/03/15/lando-norris-mclaren-pole-australian-gp/
+
 **Trump Orders Gutting of 7 Agencies, Including Voice of America’s Parent**\
 `The order targeting the agencies, largely obscure entities that address issues like labor mediation and homelessness prevention, appeared to test the bounds of the president’s power.`\
 https://nytimes.com/2025/03/15/us/politics/trump-order-voice-of-america.html

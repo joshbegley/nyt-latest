@@ -1,3 +1,7 @@
+**Lando Norris on pole for Australian Grand Prix as McLaren secures front row lockout**\
+`McLaren secures front row lockout as Ferrari struggles ahead of the opening race of the 2025 F1 season`\
+https://nytimes.com/athletic/6205064/2025/03/15/lando-norris-mclaren-pole-australian-gp/
+
 **Trump Orders Gutting of 7 Agencies, Including Voice of America’s Parent**\
 `The order targeting the agencies, largely obscure entities that address issues like labor mediation and homelessness prevention, appeared to test the bounds of the president’s power.`\
 https://nytimes.com/2025/03/15/us/politics/trump-order-voice-of-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/03/15/todays-new-york-times
 **Creighton's Jamiya Neal apologizes for celebratory windmill dunk vs. UConn**\
 `Neal threw down a dunk with 1.5 seconds left and did a pull-up on the rim as Hassan Diarra met him on the floor with a push.`\
 https://nytimes.com/athletic/6205051/2025/03/15/creighton-uconn-big-east-tournament-dunk/
-
-**For Leon Draisaitl, 2 points from an Oilers win exceed his 100-point milestone**\
-`His name is mentioned among all the NHL trophy talk but Draisaitl is more focused on leading his team to victory. `\
-https://nytimes.com/athletic/6202318/2025/03/15/oilers-leon-draisaitl-100-points/
 
