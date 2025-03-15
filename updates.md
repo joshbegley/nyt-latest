@@ -1,3 +1,7 @@
+**Trump’s Grievance-Filled Speech Makes Clear His Quest for Vengeance Is Personal**\
+`The sole offense of those President Trump singled out in remarks at the Justice Department appeared to have been trying to hold him accountable for his actions.`\
+https://nytimes.com/2025/03/15/us/politics/trump-speech-doj-retribution.html
+
 **'Wasn't pretty. But we'll take it': Weary Nuggets happy for victories, even the ugly ones**\
 `Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
 https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/

@@ -1,3 +1,7 @@
+**Trump’s Grievance-Filled Speech Makes Clear His Quest for Vengeance Is Personal**\
+`The sole offense of those President Trump singled out in remarks at the Justice Department appeared to have been trying to hold him accountable for his actions.`\
+https://nytimes.com/2025/03/15/us/politics/trump-speech-doj-retribution.html
+
 **'Wasn't pretty. But we'll take it': Weary Nuggets happy for victories, even the ugly ones**\
 `Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
 https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205010/2025/03/15/mavericks-nba-injuries-kyrie-ant
 **Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
 `On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
 https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
-
-**Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
-`Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
-https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/
 
