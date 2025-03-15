@@ -1,3 +1,7 @@
+**Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
+`Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
+https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/
+
 **Syrian Druse Pilgrims Pay Rare Visit to Israel**\
 `As part of an effort to deepen its influence in southern Syria, Israel has been seeking stronger ties with the Druse religious minority that holds sway there.`\
 https://nytimes.com/2025/03/15/world/middleeast/syria-druse-visit-israel.html
