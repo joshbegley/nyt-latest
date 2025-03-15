@@ -1,3 +1,7 @@
+**Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
+`Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
+https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
+
 **Forecasters Issue Highest Risk Alert for Tornadoes in the South**\
 `A rare outlook for potentially violent tornadoes is being forecast Saturday.`\
 https://nytimes.com/2025/03/14/weather/forecasters-issue-highest-risk-alert-for-tornadoes-in-the-south.html

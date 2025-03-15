@@ -1,3 +1,7 @@
+**Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
+`Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
+https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
+
 **Forecasters Issue Highest Risk Alert for Tornadoes in the South**\
 `A rare outlook for potentially violent tornadoes is being forecast Saturday.`\
 https://nytimes.com/2025/03/14/weather/forecasters-issue-highest-risk-alert-for-tornadoes-in-the-south.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/iowa-immigration-lawsuit.html
 **Pac-12, Mountain West file motion to pause California poaching penalties case**\
 `The conferences appear closer to resolving their legal fights over the latest conference realignment and more than $150 million in fees.`\
 https://nytimes.com/athletic/6204908/2025/03/14/pac-12-mountain-west-poaching-penalties-motion-mediation/
-
-**‘Extermination Camp’ Found in Mexico, Group Searching for the Missing Says**\
-`The authorities are investigating the discovery of cremation ovens, human remains, piles of shoes and other personal effects at an abandoned ranch outside Guadalajara.`\
-https://nytimes.com/2025/03/14/world/americas/mexico-extermination-camp.html
 
