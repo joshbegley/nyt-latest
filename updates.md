@@ -1,3 +1,7 @@
+**Sabres thoughts: Why Rasmus Dahlin thinks Buffalo looks like 'a real team' now**\
+`The Sabres' season has been a miserable slog, but their home win against the Golden Knights gave Buffalo fans a rare reason to be satisfied.`\
+https://nytimes.com/athletic/6205982/2025/03/15/sabres-golden-knights-rasmus-dahlin/
+
 **Protest Against Serbian Leader Draws Over 100,000 in Biggest Crowd Yet**\
 `The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
 https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
