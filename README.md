@@ -1,3 +1,11 @@
+**The Democratic Divide: Would a Shutdown Have Helped or Hurt Trump?**\
+`The party’s split over supporting a spending extension to avert a lapse in government funding boiled down to a practical question of how much power the president has in a shutdown.`\
+https://nytimes.com/2025/03/14/us/politics/democrats-schumer-shutdown-trump.html
+
+**Players Championship analysis: What to know about Justin Thomas' big day**\
+`Thomas is seven back of the co-leaders, the same position he sat in through two rounds in 2021 when he went on to win.`\
+https://nytimes.com/athletic/6204864/2025/03/14/players-championship-analysis-justin-thomas/
+
 **Trump Expands Attacks on Law Firms, Singling Out Paul, Weiss**\
 `Experts have warned that the president’s efforts threaten the ability of lawyers to do their jobs and private citizens to obtain legal counsel.`\
 https://nytimes.com/2025/03/14/us/politics/trump-law-firm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6204128/2025/03/14/boston-nwsl-expansion-bos-nation
 **D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
 `The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
 https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
-
-**Wildfire Smoke Blankets Skies in Oklahoma**\
-`A fast-moving wildfire, fueled by gusty winds and dry air, filled the sky over Oklahoma with smoke.`\
-https://nytimes.com/video/weather/100000010053932/oklahoma-smoke-wildfires-storm.html
-
-**Judges Have Ordered Federal Workers Back on the Job. Now What?**\
-`Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
-https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html
 
