@@ -1,3 +1,7 @@
+**Adam Boehler, Trump’s pick to run hostage negotiations, was withdrawn from consideration.**\
+`Mr. Boehler, an ally of Jared Kushner’s, will instead serve as a so-called special government employee, and will still be involved in the Trump administration’s work to free U.S. hostages.`\
+https://nytimes.com/live/2025/03/15/us/trump-news/hostages-adam-boehler-withdrawn
+
 **Protest Against Serbian Leader Draws 100,000 in Biggest Crowd Yet**\
 `The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
 https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6169531/2025/03/15/dele-alli-debut-como-red-card/
 **Reds roster prediction 3.0: Fingers crossed edition**\
 `Tyler Stephenson’s oblique bring catching depth into question.`\
 https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
-
-**Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
-`Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
-https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-arrest.html
 
