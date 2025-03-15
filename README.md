@@ -1,3 +1,11 @@
+**Nuno tells Nottingham Forest England hopefuls their chance will come**\
+`Thomas Tuchel left Morgan Gibbs-White out of his first England squad on Friday; Elliot Anderson and Callum Hudson-Odoi also missed out.`\
+https://nytimes.com/athletic/6205768/2025/03/15/nottingham-forest-england-squad-nuno/
+
+**U.S. Launches Broad Attack on Militant Sites in Yemen**\
+`The air and naval strikes on targets controlled by Houthi fighters were intended to open up international shipping lanes in the Red Sea.`\
+https://nytimes.com/2025/03/15/us/politics/us-attack-houthis.html
+
 **Fear of Trump’s Tariffs Ripples Through France’s Champagne Region**\
 `Merchants worried that a trade war could wreak financial havoc in a region that has a robust business exporting the world’s finest bubbly to the United States.`\
 https://nytimes.com/2025/03/15/business/france-champagne-wine-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/health/measles-texas-kennedy.html
 **The Founders Were Afraid for the Country, Too**\
 `Franklin was worried. Madison was more optimistic.`\
 https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.html
-
-**Israel Keeps Up Attacks in Gaza Despite Truce**\
-`In the latest strikes, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
-https://nytimes.com/2025/03/15/world/middleeast/israel-gaza-cease-fire-attacks.html
-
-**Villanova fires Kyle Neptune after 3 seasons, no tourney appearances**\
-`Neptune went 31-29 in Big East games and never finished higher than sixth place. `\
-https://nytimes.com/athletic/6186415/2025/03/15/kyle-neptune-villanova-fired-basketball/
 
