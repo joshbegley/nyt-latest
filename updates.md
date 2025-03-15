@@ -1,3 +1,15 @@
+**Alex Ovechkin 8 goals away from breaking Wayne Gretzky's record with No. 887**\
+`The Washington Capitals superstar continued to close in on Wayne Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gretzky/
+
+**Emotional Mikko Rantanen clears the air on departure from Avalanche: 'I never wanted to leave'**\
+`"I told them I'll be flexible and I want to play here for a long time. Then a couple days later they traded me," Rantanen said Saturday.`\
+https://nytimes.com/athletic/6206058/2025/03/15/stars-mikko-rantanen-avalanche-hurricanes/
+
+**Garrett Crochet Opening Day starter; Rafael Devers, Wilyer Abreu play first spring game**\
+`"I hope to shoulder all the responsibilities that come with it with pride and just lead this team," Crochet said.`\
+https://nytimes.com/athletic/6205964/2025/03/15/red-sox-garrett-crochet-opening-day-starter/
+
 **Trump Invokes the Alien Enemies Act, Seeking to Deport Venezuelans**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans

@@ -1,3 +1,15 @@
+**Alex Ovechkin 8 goals away from breaking Wayne Gretzky's record with No. 887**\
+`The Washington Capitals superstar continued to close in on Wayne Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gretzky/
+
+**Emotional Mikko Rantanen clears the air on departure from Avalanche: 'I never wanted to leave'**\
+`"I told them I'll be flexible and I want to play here for a long time. Then a couple days later they traded me," Rantanen said Saturday.`\
+https://nytimes.com/athletic/6206058/2025/03/15/stars-mikko-rantanen-avalanche-hurricanes/
+
+**Garrett Crochet Opening Day starter; Rafael Devers, Wilyer Abreu play first spring game**\
+`"I hope to shoulder all the responsibilities that come with it with pride and just lead this team," Crochet said.`\
+https://nytimes.com/athletic/6205964/2025/03/15/red-sox-garrett-crochet-opening-day-starter/
+
 **Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
 `Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
 https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/15/crosswords/daily-puzzle-2025-03-16.html
 **Ancelotti says Real Madrid to refuse to play without 72-hour rest period**\
 `Madrid's La Liga fixture against Villarreal was played just under 67 hours after Wednesday's Champions League last-16 tie against Atletico.`\
 https://nytimes.com/athletic/6205948/2025/03/15/carlo-ancelotti-real-madrid-rest/
-
-**Adam Boehler, Trump’s pick to run hostage negotiations, was withdrawn from consideration.**\
-`Mr. Boehler, an ally of Jared Kushner’s, will instead serve as a so-called special government employee, and will still be involved in the Trump administration’s work to free U.S. hostages.`\
-https://nytimes.com/live/2025/03/15/us/trump-news/hostages-adam-boehler-withdrawn
-
-**Protest Against Serbian Leader Draws Over 100,000 in Biggest Crowd Yet**\
-`The rally on Saturday in the capital, Belgrade, came as protests have spread to towns around the country and have drawn increasingly insistent calls that President Aleksandar Vucic step aside.`\
-https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
-
-**‘It Got Everything’: Oklahoma Residents Who Escaped Fires Brace for Losses**\
-`Hundreds of homes and other buildings were destroyed in Oklahoma, as fierce winds and wildfires swept the region.`\
-https://nytimes.com/2025/03/15/us/wildfires-oklahoma-texas-damage.html
 
