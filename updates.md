@@ -1,3 +1,11 @@
+**Forecasters Issue Highest Risk Alert for Tornadoes in the South**\
+`A rare outlook for potentially violent tornadoes is being forecast Saturday.`\
+https://nytimes.com/2025/03/14/weather/forecasters-issue-highest-risk-alert-for-tornadoes-in-the-south.html
+
+**Arlington Cemetery Website Loses Pages on Black Veterans, Women and Civil War**\
+`The cemetery, which is operated by the Army, said it was working to restore the content. Among the obscured pages was material about civil rights.`\
+https://nytimes.com/2025/03/14/us/politics/arlington-cemetery-website-dei.html
+
 **UNC sends Duke to ACC title game on lane violation mishap**\
 `Forward Jae’Lyn Withers moved too early, negating Ven-Allen Lubin’s free-throw attempt and giving Duke the ball back.`\
 https://nytimes.com/athletic/6204899/2025/03/14/duke-north-carolina-mens-basketball-acc-tournament/
