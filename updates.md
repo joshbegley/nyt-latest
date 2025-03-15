@@ -1,3 +1,11 @@
+**UNC sends Duke to ACC title game on lane violation mishap**\
+`Forward Jae’Lyn Withers moved too early, negating Ven-Allen Lubin’s free-throw attempt and giving Duke the ball back.`\
+https://nytimes.com/athletic/6204899/2025/03/14/duke-north-carolina-mens-basketball-acc-tournament/
+
+**Judge Rejects Attempts to Temporarily Stop Migrant Detention at Guantánamo**\
+`A federal judge expressed doubts toward those challenging the federal policy, a potentially favorable sign for President Trump as he seeks to clamp down on immigration.`\
+https://nytimes.com/2025/03/14/us/politics/judge-guantanamo-detention-migrants.html
+
 **Fact-Checking Trump’s Speech at the Justice Department**\
 `The president revived a number of falsehoods he had used on the campaign trail last year, including his lie that the 2020 election was stolen from him.`\
 https://nytimes.com/2025/03/14/us/politics/fact-check-trump-justice-immigration-crime-eggs.html
