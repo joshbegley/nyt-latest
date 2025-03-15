@@ -1,3 +1,7 @@
+**Russia Presses Offensive in Kursk Amid Cease-Fire Talks With U.S.**\
+`Moscow said it had retaken two villages outside the town of Sudzha in Russia’s Kursk region. Ukrainian officials did not immediately comment on the claim.`\
+https://nytimes.com/2025/03/15/world/europe/russia-ukraine-kursk-cease-fire-talks.html
+
 **Need a goalie upgrade this offseason? Bad news: the free-agent options are sparse**\
 `For teams looking for a bonafide starter — or even a goalie to lead a tandem with a 50-50 split — there won’t be much available.`\
 https://nytimes.com/athletic/6204536/2025/03/15/goalie-free-agents-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/opinion/thom-tillis-trump-republicans.html
 **Musk Said No One Has Died Since Aid Was Cut. That Isn’t True.**\
 `A journey through the front lines of global poverty shows that when the world’s richest men slash aid for the world’s poorest children, the result is sickness, starvation and death.`\
 https://nytimes.com/interactive/2025/03/15/opinion/foreign-aid-cuts-impact.html
-
-**Colleges Are Under Attack. They Can Fight Back.**\
-`This is a moment to trumpet the strengths of higher education and address its weaknesses.`\
-https://nytimes.com/2025/03/15/opinion/trump-research-cuts.html
 
