@@ -1,40 +1,40 @@
-**How Mirra Andreeva's inevitable rise to the top of tennis accelerated**\
-`Andreeva's rise to the top of tennis is no surprise. Its steepness is another matter.`\
-https://nytimes.com/athletic/6199725/2025/03/15/tennis-mirra-andreeva-results-coach-conchita-martinez/
+**Need a goalie upgrade this offseason? Bad news: the free-agent options are sparse**\
+`For teams looking for a bonafide starter — or even a goalie to lead a tandem with a 50-50 split — there won’t be much available.`\
+https://nytimes.com/athletic/6204536/2025/03/15/goalie-free-agents-2025/
 
-**Ratcliffe says he will step down if he 'fails' at Man United**\
-`The British billionaire's takeover hasn't been the catalyst for an upturn in form for the Premier League club.`\
-https://nytimes.com/athletic/6205290/2025/03/15/jim-ratcliffe-manchester-united-leave/
+**Is the NHL's next scoring breakthrough hiding behind the net?**\
+`Given the high percentage of a below-the-line sequence becoming a goal, perhaps more NHLers should look to occupy Wayne Gretzky's office.`\
+https://nytimes.com/athletic/6116603/2025/03/15/nhl-goals-behind-the-net/
 
-**U.S. Punishes Thai Officials Over Deportation of Uyghurs to China**\
-`The State Department said it was “combating China’s efforts to pressure governments to forcibly return Uyghurs and other groups to China.”`\
-https://nytimes.com/2025/03/15/world/asia/us-sanctions-thai-uyghurs-china.html
+**Should Suns fans brace themselves for a hard breakup?**\
+`Devin Booker has been a pillar in Phoenix. But loyalty is tricky in sports. It often comes with an expiration date.`\
+https://nytimes.com/athletic/6194622/2025/03/15/devin-booker-suns-trade-rumors-nba/
 
-**Social Distance**\
-`On the five-year anniversary of Covid, a look at the ways we vowed our lives and relationships would change afterward — and how they still might.`\
-https://nytimes.com/2025/03/15/briefing/social-distance.html
+**NCAA Tournament Bracket Watch 2025: St. John’s, Alabama, Houston make statements**\
+`If Tennessee beats Auburn tomorrow, maybe the committee should give the final No. 1 seed to the SEC tournament champion. `\
+https://nytimes.com/athletic/6203931/2025/03/15/ncaa-tournament-bracket-projections-st-johns-alabama-houston/
 
-**Scouting notes from the Mariners-Guardians Breakout game: Law**\
-`The Seattle-Cleveland game was kind of sloppy but still featured a handful of standouts from some of the top prospects on both sides.`\
-https://nytimes.com/athletic/6205188/2025/03/15/mariners-guardians-breakout-game-law/
+**NHL season predictions 5.0: How did the trade deadline impact our picks?**\
+`A team that made a huge splash at the deadline takes over as Stanley Cup favorite, plus the Hart Trophy race heats up down the stretch.`\
+https://nytimes.com/athletic/6198673/2025/03/15/nhl-trade-deadline-2024-25-season-predictions/
 
-**As UNC basketball awaits bubble fate, plan for needed change is underway**\
-`UNC could miss the NCAA Tournament for the second time in three seasons. Will a new GM fix Tar Heels' struggles under Hubert Davis?`\
-https://nytimes.com/athletic/6204635/2025/03/15/march-madness-2025-unc-basketball-duke/
+**'I did not sleep one second': Travel takes a toll on Big Ten West Coast basketball teams**\
+`The adjustment has been difficult for USC, UCLA, Washington and Oregon.`\
+https://nytimes.com/athletic/6204931/2025/03/15/big-ten-west-coast-teams-basketball-travel/
 
-**The last undefeated team in men's basketball is one you've never heard of**\
-`Division II Daemen University is the most underrated team in college basketball. Can it bring unlucky Buffalo a championship at last?`\
-https://nytimes.com/athletic/6203965/2025/03/15/march-madness-2025-college-basketball-undefeated-teams/
+**‘A Really Easy Mark for Trump’: Three Columnists on the Threats to Elite Colleges**\
+`What went wrong for higher education?`\
+https://nytimes.com/2025/03/15/opinion/trump-higher-education.html
 
-**Chicago Cubs 2025 season preview: roster breakdown, projections, and bold prediction**\
-`Even in a division as weak as the National League Central, it won’t be an easy journey for the Cubs.`\
-https://nytimes.com/athletic/6204325/2025/03/15/mlb-chicago-cubs-season-preview-2025/
+**‘He Has to Shrink Away From Greatness’: The Poignant Surrender of a Republican Under Trump**\
+`It is very hard to be principled, independent or any of those other bygone adjectives in today’s G.O.P.`\
+https://nytimes.com/2025/03/15/opinion/thom-tillis-trump-republicans.html
 
-**A Hectic Week in Canadian Politics and Trade, With More Action on the Way**\
-`As Justin Trudeau’s nearly decade-long tenure as prime minister came to an end, new trade threats and tariffs came from Washington.`\
-https://nytimes.com/2025/03/15/world/canada/a-hectic-week-in-canadian-politics-and-trade-with-more-action-on-the-way.html
+**Musk Said No One Has Died Since Aid Was Cut. That Isn’t True.**\
+`A journey through the front lines of global poverty shows that when the world’s richest men slash aid for the world’s poorest children, the result is sickness, starvation and death.`\
+https://nytimes.com/interactive/2025/03/15/opinion/foreign-aid-cuts-impact.html
 
-**Wordle Review No. 1,366**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 16, 2025.`\
-https://nytimes.com/2025/03/15/crosswords/wordle-review-1366.html
+**Colleges Are Under Attack. They Can Fight Back.**\
+`This is a moment to trumpet the strengths of higher education and address its weaknesses.`\
+https://nytimes.com/2025/03/15/opinion/trump-research-cuts.html
 
