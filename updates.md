@@ -1,3 +1,7 @@
+**Fear of Trump’s Tariffs Ripples Through France’s Champagne Region**\
+`Merchants worried that a trade war could wreak financial havoc in a region that has a robust business exporting the world’s finest bubbly to the United States.`\
+https://nytimes.com/2025/03/15/business/france-champagne-wine-tariffs-trump.html
+
 **The Aaron Rodgers waiting game: Two QBs, three teams wait on Kevin O'Connell and Vikings' call**\
 `O'Connell must decide if he's committed to signing the future Hall of Famer rather than starting 2024 first-round pick J.J. McCarthy. `\
 https://nytimes.com/athletic/6205101/2025/03/15/aaron-rodgers-vikings-quarterback-jj-mccarthy/
