@@ -1,3 +1,7 @@
+**Corrections: March 15, 2025**\
+`Corrections that appeared in print on Saturday, March 15, 2025.`\
+https://nytimes.com/2025/03/14/pageoneplus/corrections-march-15-2025.html
+
 **Marco Rubio Essentially Expels South Africa’s U.S. Ambassador**\
 `The secretary of state lashed out on social media over comments the ambassador reportedly made in Johannesburg that were critical of the Trump administration.`\
 https://nytimes.com/2025/03/14/us/politics/south-africa-ambassador-marco-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000010054023/spacex-nasa-crew10-launc
 **Auburn and Chad Baker-Mazara are combustible, which means more than one thing**\
 `Baker-Mazara is an inspirational and essential part of Auburn's team, but can the Tigers trust him?`\
 https://nytimes.com/athletic/6204543/2025/03/14/auburn-basketball-chad-baker-mazara-bruce-pearl/
-
-**Musk Keeps His Eye on Social Security**\
-`The tech billionaire has repeatedly suggested, without evidence, that Social Security is rife with fraud, even as President Trump denies plans to cut those benefits.`\
-https://nytimes.com/2025/03/14/us/politics/musk-doge-social-security.html
 

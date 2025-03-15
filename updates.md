@@ -1,3 +1,7 @@
+**Corrections: March 15, 2025**\
+`Corrections that appeared in print on Saturday, March 15, 2025.`\
+https://nytimes.com/2025/03/14/pageoneplus/corrections-march-15-2025.html
+
 **Marco Rubio Essentially Expels South Africa’s U.S. Ambassador**\
 `The secretary of state lashed out on social media over comments the ambassador reportedly made in Johannesburg that were critical of the Trump administration.`\
 https://nytimes.com/2025/03/14/us/politics/south-africa-ambassador-marco-rubio.html
