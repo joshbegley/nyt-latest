@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/15/us/politics/trump-alien-enemies-act-deportations-venezuelans.html
 
 **Sabres thoughts: Why Rasmus Dahlin thinks Buffalo looks like 'a real team' now**\
-`The Sabres’ season has been a miserable slog, but their home win against the Golden Knights gave Buffalo fans a rare reason to be satisfied.`\
+`The Sabres' season has been a miserable slog, but their home win against the Golden Knights gave Buffalo fans a rare reason to be satisfied.`\
 https://nytimes.com/athletic/6205982/2025/03/15/sabres-golden-knights-rasmus-dahlin/
 
 **Tennessee beats Auburn, Florida crushes Alabama in SEC semis: The No. 1 seed implications**\
