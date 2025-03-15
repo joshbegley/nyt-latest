@@ -1,3 +1,7 @@
+**Patel Pushes Command Changes at F.B.I.**\
+`The move means almost all top agents in the field will no longer answer to the deputy director, a significant departure from the way the F.B.I. has worked.`\
+https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
+
 **Trump Signs Spending Bill to Fund Government, Spokesman Says**\
 `The bill was passed just hours before a midnight deadline to avoid a lapse in funding, which would have shut down the government.`\
 https://nytimes.com/2025/03/15/us/politics/trump-spending-bill-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205487/2025/03/15/max-homa-golf-pga-tour-toxic/
 **After Kyle Neptune's firing, is 'The Villanova Way' over?**\
 `One of college basketball’s most tradition-rich programs is at a critical juncture, both in where it will go and how it will look.`\
 https://nytimes.com/athletic/6205642/2025/03/15/kyle-neptune-villanova-coaching-search-jay-wright/
-
-**Bompastor asks if Women's League Cup final pitch would be accepted in men's game**\
-`Chelsea and Manchester City players and coaches were critical of the Pride Park playing surface.`\
-https://nytimes.com/athletic/6205448/2025/03/15/womens-league-cup-final-pitch/
 
