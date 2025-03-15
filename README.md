@@ -1,3 +1,11 @@
+**Brighton's Lamptey missed Man City game after training injury**\
+`Lamptey was not part of the matchday squad for the trip to Manchester City on Saturday.`\
+https://nytimes.com/athletic/6205794/2025/03/15/brighton-tariq-lamptey-injury/
+
+**Junior Bridgeman, N.B.A. Player Turned Mogul, Dies at 71**\
+`He became an entrepreneur during a solid career with the Milwaukee Bucks. He later bought hundreds of fast-food outlets, a Coca-Cola bottling business and Ebony and Jet magazines.`\
+https://nytimes.com/2025/03/15/sports/basketball/junior-bridgeman-dead.html
+
 **Patel Pushes Command Changes at F.B.I.**\
 `The move means almost all top agents in the field will no longer answer to the deputy director, a significant departure from the way the F.B.I. has worked.`\
 https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6205101/2025/03/15/aaron-rodgers-vikings-quarterbac
 **The Briefing: Man City 2 Brighton 2 – Unwelcome first for Guardiola; was Ortega at fault?**\
 `The major talking points from Saturday's Premier League match at the Etihad Stadium`\
 https://nytimes.com/athletic/6197582/2025/03/15/manchester-city-brighton-premier-league-result-analysis/
-
-**Max Homa and the 'toxic relationship' he's feeling with golf right now**\
-`Homa: “It’s hard to care this much about something and just not get anything out of it, I guess. But I am of the mind that it will happen."`\
-https://nytimes.com/athletic/6205487/2025/03/15/max-homa-golf-pga-tour-toxic/
-
-**After Kyle Neptune's firing, is 'The Villanova Way' over?**\
-`One of college basketball’s most tradition-rich programs is at a critical juncture, both in where it will go and how it will look.`\
-https://nytimes.com/athletic/6205642/2025/03/15/kyle-neptune-villanova-coaching-search-jay-wright/
 
