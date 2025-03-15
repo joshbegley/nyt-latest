@@ -1,3 +1,7 @@
+**Israel Keeps Up Attacks in Gaza Despite Truce**\
+`In the latest strikes, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
+https://nytimes.com/2025/03/15/world/middleeast/israel-gaza-cease-fire-attacks.html
+
 **The Founders Were Afraid for the Country, Too**\
 `Franklin was worried. Madison was more optimistic.`\
 https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.html
