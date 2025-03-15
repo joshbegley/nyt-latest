@@ -1,3 +1,11 @@
+**Trump Signs Spending Bill to Fund Government, Spokesman Says**\
+`The bill was passed just hours before a midnight deadline to avoid a lapse in funding, which would have shut down the government.`\
+https://nytimes.com/2025/03/15/us/politics/trump-spending-bill-government-shutdown.html
+
+**Harry Reid’s Letter to James Comey**\
+`The Senate minority leader, Harry Reid, sent a letter on Monday to the F.B.I. director, James B. Comey Jr., expressing concern that Russia was trying to influence the presidential election and requesting that the F.B.I. open an investigation.`\
+https://nytimes.com/interactive/2025/03/15/us/reid-letter-to-comey.html
+
 **Nuno tells Nottingham Forest England hopefuls their chance will come**\
 `Thomas Tuchel left Morgan Gibbs-White out of his first England squad on Friday; Elliot Anderson and Callum Hudson-Odoi also missed out.`\
 https://nytimes.com/athletic/6205768/2025/03/15/nottingham-forest-england-squad-nuno/
