@@ -1,3 +1,7 @@
+**Ancelotti says Real Madrid to refuse to play without 72-hour rest period**\
+`Madrid's La Liga fixture against Villarreal was played just under 67 hours after Wednesday's Champions League last-16 tie against Atletico.`\
+https://nytimes.com/athletic/6205948/2025/03/15/carlo-ancelotti-real-madrid-rest/
+
 **Adam Boehler, Trump’s pick to run hostage negotiations, was withdrawn from consideration.**\
 `Mr. Boehler, an ally of Jared Kushner’s, will instead serve as a so-called special government employee, and will still be involved in the Trump administration’s work to free U.S. hostages.`\
 https://nytimes.com/live/2025/03/15/us/trump-news/hostages-adam-boehler-withdrawn

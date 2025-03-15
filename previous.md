@@ -1,3 +1,7 @@
+**Ancelotti says Real Madrid to refuse to play without 72-hour rest period**\
+`Madrid's La Liga fixture against Villarreal was played just under 67 hours after Wednesday's Champions League last-16 tie against Atletico.`\
+https://nytimes.com/athletic/6205948/2025/03/15/carlo-ancelotti-real-madrid-rest/
+
 **Adam Boehler, Trump’s pick to run hostage negotiations, was withdrawn from consideration.**\
 `Mr. Boehler, an ally of Jared Kushner’s, will instead serve as a so-called special government employee, and will still be involved in the Trump administration’s work to free U.S. hostages.`\
 https://nytimes.com/live/2025/03/15/us/trump-news/hostages-adam-boehler-withdrawn
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205880/2025/03/15/dario-essugo-chelsea-transfer/
 **Dele sent off 10 minutes into first appearance in over two years**\
 `Dele joined joined Italian club Como on an 18-month contract in January, through to the end of the 2025-26 season.`\
 https://nytimes.com/athletic/6169531/2025/03/15/dele-alli-debut-como-red-card/
-
-**Reds roster prediction 3.0: Fingers crossed edition**\
-`Tyler Stephenson’s oblique bring catching depth into question.`\
-https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
 

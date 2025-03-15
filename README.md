@@ -1,3 +1,7 @@
+**Have It Both Ways**\
+`Paul Coulter’s puzzle will have you looking up, down and all around.`\
+https://nytimes.com/2025/03/15/crosswords/daily-puzzle-2025-03-16.html
+
 **Ancelotti says Real Madrid to refuse to play without 72-hour rest period**\
 `Madrid's La Liga fixture against Villarreal was played just under 67 hours after Wednesday's Champions League last-16 tie against Atletico.`\
 https://nytimes.com/athletic/6205948/2025/03/15/carlo-ancelotti-real-madrid-rest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205898/2025/03/15/norfolk-state-south-carolina-sta
 **Chelsea reach agreement with Sporting CP for midfielder Essugo**\
 `A fee of £18.5million ($23.9m) has been agreed for the 20-year-old.`\
 https://nytimes.com/athletic/6205880/2025/03/15/dario-essugo-chelsea-transfer/
-
-**Dele sent off 10 minutes into first appearance in over two years**\
-`Dele joined joined Italian club Como on an 18-month contract in January, through to the end of the 2025-26 season.`\
-https://nytimes.com/athletic/6169531/2025/03/15/dele-alli-debut-como-red-card/
 
