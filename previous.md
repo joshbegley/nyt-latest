@@ -1,3 +1,15 @@
+**The Founders Were Afraid for the Country, Too**\
+`Franklin was worried. Madison was more optimistic.`\
+https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.html
+
+**Israel Keeps Up Attacks in Gaza Despite Truce**\
+`In the latest airstrike, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
+https://nytimes.com/2025/03/15/world/middleeast/israel-gaza-cease-fire-attacks.html
+
+**Villanova parts ways with Kyle Neptune after 3 seasons, no NCAA tourney appearances**\
+`Neptune went 31-29 in Big East games and never finished higher than sixth place. `\
+https://nytimes.com/athletic/6186415/2025/03/15/kyle-neptune-villanova-fired-basketball/
+
 **How a Columbia Student Fled to Canada After ICE Came Looking for Her**\
 `Ranjani Srinivasan’s student visa was revoked by U.S. immigration authorities. That was just the start of her odyssey.`\
 https://nytimes.com/2025/03/15/nyregion/columbia-student-kristi-noem-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
 **Chelsea beat Man City to win League Cup final, keep quadruple on track**\
 `Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
 https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
-
-**Jaden McDaniels, Donte DiVincenzo shine in Wolves' comeback win**\
-`McDaniels and DiVincenzo combined for 16 points on 7-of-7 shooting in the fourth quarter, while also playing lockdown defense.`\
-https://nytimes.com/athletic/6204841/2025/03/15/jaden-mcdaniels-donte-divincenzo-wolves-comeback/
-
-**Lakers look to regroup in Los Angeles after disastrous 0-4 road trip**\
-`On Friday, it looked as if the short-handed Lakers were going to shock the Nuggets, but miscues down the stretch led to another loss.`\
-https://nytimes.com/athletic/6204922/2025/03/15/lakers-nba-road-trip-lebron-redick/
-
-**49ers reuniting with Kyle Juszczyk on 2-year, $8 million deal: Source**\
-`Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
-https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
 

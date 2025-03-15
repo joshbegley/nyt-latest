@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.html
 
 **Israel Keeps Up Attacks in Gaza Despite Truce**\
-`In the latest airstrike, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
+`In the latest strikes, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
 https://nytimes.com/2025/03/15/world/middleeast/israel-gaza-cease-fire-attacks.html
 
 **Villanova parts ways with Kyle Neptune after 3 seasons, no NCAA tourney appearances**\
