@@ -1,3 +1,7 @@
+**Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
+`Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
+https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
+
 **Duke's Cooper Flagg to be available for NCAA Tournament**\
 `Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
 https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
