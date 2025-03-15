@@ -2,7 +2,7 @@
 `Seeing land rights as the key to lifting up the impoverished, he pushed authoritarian governments as well as emerging democratic ones to distribute farmland.`\
 https://nytimes.com/2025/03/15/world/roy-prosterman-dead.html
 
-**S.C. State commits inadvertent late-game foul, helping Norfolk St. claim NCAA berth**\
+**SC State commits inadvertent late-game foul, helping Norfolk State claim NCAA berth**\
 `After tying the game, South Carolina State's Caleb McCarty fouled Norfolk St.’s Christian Ings to send the Spartans to the foul line`\
 https://nytimes.com/athletic/6205898/2025/03/15/norfolk-state-south-carolina-state-mens-basketball-ncaa-tournament/
 

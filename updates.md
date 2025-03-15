@@ -1,3 +1,7 @@
+**Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
+`More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death.`\
+https://nytimes.com/video/climate/100000010054567/oklahoma-wildfires-texas.html
+
 **Roy L. Prosterman, 89, Dies; Worked to Secure Land for the Rural Poor**\
 `Seeing land rights as the key to lifting up the impoverished, he pushed authoritarian governments as well as emerging democratic ones to distribute farmland.`\
 https://nytimes.com/2025/03/15/world/roy-prosterman-dead.html
