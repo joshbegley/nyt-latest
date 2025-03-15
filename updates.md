@@ -1,3 +1,7 @@
+**A Tale of Two Speeches at the Justice Department**\
+`In 1940, Robert Jackson gave a very different speech about the power and discretion of the prosecutor in the same room President Trump spoke in Friday.`\
+https://nytimes.com/live/2025/03/10/opinion/thepoint/donald-trump-justice-department-speech
+
 **Tim Walz Talks to Anxious Iowa Democrats as Post-Election Travels Pick Up**\
 `Mr. Walz, the governor of Minnesota and last year’s Democratic nominee for vice president, has been meeting with members of his party in recent weeks.`\
 https://nytimes.com/2025/03/14/us/tim-walz-politics.html
