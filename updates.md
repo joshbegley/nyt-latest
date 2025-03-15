@@ -1,3 +1,19 @@
+**Dear Newcastle, no letters, we promise. Just a little love note to say: get into them**\
+`George Caulkin gets a few things off his chest before Wembley`\
+https://nytimes.com/athletic/6203606/2025/03/15/dear-newcastle-letters-carabao-cup-final-george-caulkin/
+
+**Connections: Sports Edition Coach: Hints for March 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6204944/2025/03/15/connections-sports-edition-hints-for-march-15-2025/
+
+**‘On the Tightrope’: Britain Tries to Bridge a Widening Trans-Atlantic Gap**\
+`Five years after Brexit, Prime Minister Keir Starmer’s intense diplomacy on Ukraine has put Britain back in a familiar role on the global stage.`\
+https://nytimes.com/2025/03/15/world/europe/uk-europe-trump.html
+
+**Quote of the Day: The New Yorker Reëxamines Style Guide, and Those Dots Stay**\
+`Quotation of the Day for Saturday, March 15, 2025.`\
+https://nytimes.com/2025/03/14/pageoneplus/quote-of-the-day-the-new-yorker-reexamines-style-guide-and-those-dots-stay.html
+
 **'I was hungry': Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
 `Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
 https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/

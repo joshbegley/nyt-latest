@@ -1,3 +1,19 @@
+**Dear Newcastle, no letters, we promise. Just a little love note to say: get into them**\
+`George Caulkin gets a few things off his chest before Wembley`\
+https://nytimes.com/athletic/6203606/2025/03/15/dear-newcastle-letters-carabao-cup-final-george-caulkin/
+
+**Connections: Sports Edition Coach: Hints for March 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6204944/2025/03/15/connections-sports-edition-hints-for-march-15-2025/
+
+**‘On the Tightrope’: Britain Tries to Bridge a Widening Trans-Atlantic Gap**\
+`Five years after Brexit, Prime Minister Keir Starmer’s intense diplomacy on Ukraine has put Britain back in a familiar role on the global stage.`\
+https://nytimes.com/2025/03/15/world/europe/uk-europe-trump.html
+
+**Quote of the Day: The New Yorker Reëxamines Style Guide, and Those Dots Stay**\
+`Quotation of the Day for Saturday, March 15, 2025.`\
+https://nytimes.com/2025/03/14/pageoneplus/quote-of-the-day-the-new-yorker-reexamines-style-guide-and-those-dots-stay.html
+
 **'I was hungry': Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
 `Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
 https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/judge-guantanamo-detention-migrants.h
 **Fact-Checking Trump’s Speech at the Justice Department**\
 `The president revived a number of falsehoods he had used on the campaign trail last year, including his lie that the 2020 election was stolen from him.`\
 https://nytimes.com/2025/03/14/us/politics/fact-check-trump-justice-immigration-crime-eggs.html
-
-**Mirra Andreeva beats Iga Swiatek at Indian Wells and marches on to the final**\
-`Andreeva is coming for women's tennis. Or maybe she has already taken it.`\
-https://nytimes.com/athletic/6204914/2025/03/14/mirra-andreeva-womens-tennis/
-
-**Contemporary**\
-`Ryan McCarty’s latest themeless puzzle is a modern maelstrom.`\
-https://nytimes.com/2025/03/14/crosswords/daily-puzzle-2025-03-15.html
-
-**Justice Department Moves to Dismiss Challenge to Iowa Immigration Law**\
-`The law remains blocked for now. It was not immediately clear whether the dismissal request signaled a broader shift on state-level immigration enforcement.`\
-https://nytimes.com/2025/03/14/us/iowa-immigration-lawsuit.html
-
-**Pac-12, Mountain West file motion to pause California poaching penalties case**\
-`The conferences appear closer to resolving their legal fights over the latest conference realignment and more than $150 million in fees.`\
-https://nytimes.com/athletic/6204908/2025/03/14/pac-12-mountain-west-poaching-penalties-motion-mediation/
 
