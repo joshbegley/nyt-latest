@@ -1,8 +1,16 @@
+**Hurzeler tells Brighton squad: 'The same as a boxer, you have to stand up'**\
+`The Brighton head coach opened up on starting boxing and revealed the lessons that the sport could teach him and his squad. `\
+https://nytimes.com/athletic/6203811/2025/03/15/brighton-hurzeler-boxing-harlem-eubank/
+
+**The New York Times in Print for Saturday, March 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/15/todays-new-york-times
+
 **Creighton's Jamiya Neal apologizes for celebratory windmill dunk vs. UConn**\
 `Neal threw down a dunk with 1.5 seconds left and did a pull-up on the rim as Hassan Diarra met him on the floor with a push.`\
 https://nytimes.com/athletic/6205051/2025/03/15/creighton-uconn-big-east-tournament-dunk/
 
-**For Leon Draisaitl, 2 points and an Oilers' win exceed his 100-point milestone**\
+**For Leon Draisaitl, 2 points from an Oilers win exceed his 100-point milestone**\
 `His name is mentioned among all the NHL trophy talk but Draisaitl is more focused on leading his team to victory. `\
 https://nytimes.com/athletic/6202318/2025/03/15/oilers-leon-draisaitl-100-points/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/14/pageoneplus/quote-of-the-day-the-new-yorker-reexa
 **'I was hungry': Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
 `Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
 https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
-
-**Forecasters Issue Highest Risk Alert for Tornadoes in the South**\
-`A rare outlook for potentially violent tornadoes is being forecast Saturday.`\
-https://nytimes.com/2025/03/14/weather/forecasters-issue-highest-risk-alert-for-tornadoes-in-the-south.html
-
-**Arlington Cemetery Website Loses Pages on Black Veterans, Women and Civil War**\
-`The cemetery, which is operated by the Army, said it was working to restore the content. Among the obscured pages was material about civil rights.`\
-https://nytimes.com/2025/03/14/us/politics/arlington-cemetery-website-dei.html
 
