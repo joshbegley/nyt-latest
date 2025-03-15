@@ -1,3 +1,7 @@
+**Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
+`Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
+https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/
+
 **Syrian Druse Pilgrims Pay Rare Visit to Israel**\
 `As part of an effort to deepen its influence in southern Syria, Israel has been seeking stronger ties with the Druse religious minority that holds sway there.`\
 https://nytimes.com/2025/03/15/world/middleeast/syria-druse-visit-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/business/dealbook/deal-makers-restaff-for-the-tru
 **Home Sellers and Buyers Accuse Realtors of Blocking Lower Fees**\
 `A year after a landmark settlement called for a disruption in how real estate agents are paid, people say they still feel forced to pay them excessive commissions.`\
 https://nytimes.com/2025/03/15/realestate/sellers-buyers-realtors-high-commissions.html
-
-**Ohtani hits home run on return to Tokyo Dome**\
-`Ohtani has tested the bounds of the ballpark before, hitting one through the ceiling of the building dubbed “The Big Egg” back in 2016.`\
-https://nytimes.com/athletic/6205305/2025/03/15/shohei-ohtani-home-run-tokyo/
 
