@@ -1,3 +1,7 @@
+**'Wasn't pretty. But we'll take it': Weary Nuggets want victories, even the ugly ones**\
+`Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
+https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/
+
 **Grizzlies must level up to compete with NBA’s elite**\
 `Ja Morant had 44 points, but the Cavs won their 16th straight as Cleveland controlled the game and any attempts by Morant to take over.`\
 https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-sign
 ``\
 https://nytimes.com/live/2025/03/15/us/trump-news
 
+**Mavericks' loss to Rockets is a painful reminder of what Dallas could have been**\
+`Dallas looked like a dominant team last month. Injuries have made it a shell of itself with a month left in the regular season.`\
+https://nytimes.com/athletic/6205010/2025/03/15/mavericks-nba-injuries-kyrie-anthony-davis-luka/
+
 **Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
 `On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
 https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
 **Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
 `Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
 https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/
-
-**Syrian Druse Pilgrims Pay Rare Visit to Israel**\
-`As part of an effort to deepen its influence in southern Syria, Israel has been seeking stronger ties with the Druse religious minority that holds sway there.`\
-https://nytimes.com/2025/03/15/world/middleeast/syria-druse-visit-israel.html
-
-**Syrian Druse Pilgrims Enter Israel in a Historic Visit**\
-`Syrian Druse pilgrims entered Israel from Syria in a rare visit to a shrine, and were welcomed by the local Druse community.`\
-https://nytimes.com/video/world/middleeast/100000010052390/syrian-druse-pilgrimage-israel.html
 
