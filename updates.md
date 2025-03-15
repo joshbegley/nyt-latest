@@ -1,3 +1,11 @@
+**Brighton's Lamptey missed Man City game after training injury**\
+`Lamptey was not part of the matchday squad for the trip to Manchester City on Saturday.`\
+https://nytimes.com/athletic/6205794/2025/03/15/brighton-tariq-lamptey-injury/
+
+**Junior Bridgeman, N.B.A. Player Turned Mogul, Dies at 71**\
+`He became an entrepreneur during a solid career with the Milwaukee Bucks. He later bought hundreds of fast-food outlets, a Coca-Cola bottling business and Ebony and Jet magazines.`\
+https://nytimes.com/2025/03/15/sports/basketball/junior-bridgeman-dead.html
+
 **Trump Signs Spending Bill to Fund Government**\
 `The bill was passed just hours before a midnight deadline to avoid a lapse in funding, which would have shut down the government.`\
 https://nytimes.com/2025/03/15/us/politics/trump-spending-bill-government-shutdown.html
