@@ -1,3 +1,7 @@
+**How Mirra Andreeva's inevitable rise to the top of tennis accelerated**\
+`Andreeva's rise to the top of tennis is no surprise. Its steepness is another matter.`\
+https://nytimes.com/athletic/6199725/2025/03/15/tennis-mirra-andreeva-results-coach-conchita-martinez/
+
 **Ratcliffe says he will step down if he 'fails' at Man United**\
 `The British billionaire's takeover hasn't been the catalyst for an upturn in form for the Premier League club.`\
 https://nytimes.com/athletic/6205290/2025/03/15/jim-ratcliffe-manchester-united-leave/
