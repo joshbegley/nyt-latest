@@ -1,10 +1,14 @@
+**Dele sent off 10 minutes into first appearance in over two years**\
+`Dele joined joined Italian club Como on an 18-month contract in January, through to the end of the 2025-26 season.`\
+https://nytimes.com/athletic/6169531/2025/03/15/dele-alli-debut-como-red-card/
+
 **Reds roster prediction 3.0: Fingers crossed edition**\
 `Tyler Stephenson’s oblique bring catching depth into question.`\
 https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
 
 **Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
 `Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
-https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-lawyers-release-video-of-his-arrest.html
+https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-arrest.html
 
 **Dozens of Wildfires Scorch Parts of Texas and Oklahoma**\
 `More than 150 blazes were burning in Oklahoma alone, damaging many structures and hundreds of thousands of acres, and causing one death. Dangerous fire conditions threatened areas from Texas to Iowa.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/us/politics/kash-patel-fbi-deputy-director.html
 **Trump Signs Spending Bill to Fund Government**\
 `The bill was passed just hours before a midnight deadline to avoid a lapse in funding, which would have shut down the government.`\
 https://nytimes.com/2025/03/15/us/politics/trump-spending-bill-government-shutdown.html
-
-**Harry Reid’s Letter to James Comey**\
-`The Senate minority leader, Harry Reid, sent a letter on Monday to the F.B.I. director, James B. Comey Jr., expressing concern that Russia was trying to influence the presidential election and requesting that the F.B.I. open an investigation.`\
-https://nytimes.com/interactive/2025/03/15/us/reid-letter-to-comey.html
 

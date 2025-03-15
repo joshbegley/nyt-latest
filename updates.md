@@ -1,3 +1,11 @@
+**Dele sent off 10 minutes into first appearance in over two years**\
+`Dele joined joined Italian club Como on an 18-month contract in January, through to the end of the 2025-26 season.`\
+https://nytimes.com/athletic/6169531/2025/03/15/dele-alli-debut-como-red-card/
+
+**Mahmoud Khalil’s Lawyers Release Video of His Arrest**\
+`Footage filmed by Noor Abdalla, Mahmoud Khalil’s wife, and posted by the American Civil Liberties Union shows the moment Khalil was detained by agents wearing plain clothes and badges.`\
+https://nytimes.com/video/us/politics/100000010054472/mahmoud-khalils-arrest.html
+
 **Reds roster prediction 3.0: Fingers crossed edition**\
 `Tyler Stephenson’s oblique bring catching depth into question.`\
 https://nytimes.com/athletic/6205719/2025/03/15/cincinnati-reds-roster-prediction/
