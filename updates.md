@@ -1,3 +1,7 @@
+**Have It Both Ways**\
+`Paul Coulter’s puzzle will have you looking up, down and all around.`\
+https://nytimes.com/2025/03/15/crosswords/daily-puzzle-2025-03-16.html
+
 **Ancelotti says Real Madrid to refuse to play without 72-hour rest period**\
 `Madrid's La Liga fixture against Villarreal was played just under 67 hours after Wednesday's Champions League last-16 tie against Atletico.`\
 https://nytimes.com/athletic/6205948/2025/03/15/carlo-ancelotti-real-madrid-rest/
