@@ -1,3 +1,7 @@
+**The president ordered deportations under a rarely used 1798 law.**\
+`The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
+https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
+
 **Alex Ovechkin 8 goals away from breaking Wayne Gretzky's record with No. 887**\
 `The Washington Capitals superstar continued to close in on Wayne Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gretzky/

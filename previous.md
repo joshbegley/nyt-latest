@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-resul
 `Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
 https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
 
-**Trump Invokes the Alien Enemies Act, Seeking to Deport Venezuelans**\
-`By Tim Balk`\
+**The president ordered deportations under a rarely used 1798 law.**\
+`The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
 https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
 
 **Sabres thoughts: Why Rasmus Dahlin thinks Buffalo looks like 'a real team' now**\
