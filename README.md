@@ -1,3 +1,7 @@
+**Trump Tries to Use White South Africans as Cautionary Tale**\
+`The president and his allies accuse South Africa of discriminating against and killing white people, and warn that it could happen in America if antiracism laws aren’t stopped.`\
+https://nytimes.com/2025/03/15/world/africa/south-africa-whites-trump.html
+
 **Lando Norris on pole for Australian Grand Prix as McLaren secures front row lockout**\
 `McLaren secures front row lockout as Ferrari struggles ahead of the opening race of the 2025 F1 season`\
 https://nytimes.com/athletic/6205064/2025/03/15/lando-norris-mclaren-pole-australian-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203811/2025/03/15/brighton-hurzeler-boxing-harlem-
 **The New York Times in Print for Saturday, March 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/15/todays-new-york-times
-
-**Creighton's Jamiya Neal apologizes for celebratory windmill dunk vs. UConn**\
-`Neal threw down a dunk with 1.5 seconds left and did a pull-up on the rim as Hassan Diarra met him on the floor with a push.`\
-https://nytimes.com/athletic/6205051/2025/03/15/creighton-uconn-big-east-tournament-dunk/
 
