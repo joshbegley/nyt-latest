@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Order Aims to Gut 7 Agencies, Including Overseer of Voice of America**\
+``\
+https://nytimes.com/live/2025/03/15/us/trump-news
+
 **Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
 `On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
 https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
