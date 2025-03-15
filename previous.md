@@ -1,3 +1,7 @@
+**Social Distance**\
+`On the five-year anniversary of Covid, a look at the ways we vowed our lives and relationships would change afterward — and how they still might.`\
+https://nytimes.com/2025/03/15/briefing/social-distance.html
+
 **Scouting notes from the Mariners-Guardians Breakout game: Law**\
 `The Seattle-Cleveland game was kind of sloppy but still featured a handful of standouts from some of the top prospects on both sides.`\
 https://nytimes.com/athletic/6205188/2025/03/15/mariners-guardians-breakout-game-law/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205091/2025/03/15/cavaliers-16th-straight-win-team
 **Your ‘Innie’ Will Want to Read This**\
 `As “Severance” nears the end of its second season, the show has created a “cultural moment” that is changing the way people discuss work-life balance.`\
 https://nytimes.com/2025/03/15/style/severance-innie-outie-work-life-balance.html
-
-**The 2028 Democratic Shadow Primary Is Now Underway**\
-`Tim Walz was in Iowa. JB Pritzker’s heading to New Hampshire. Pete Buttigieg is keeping his options open. It’s far too early to run for president, but some Democrats seem to be exploring the idea.`\
-https://nytimes.com/2025/03/15/us/politics/democrats-president-2028-buttigieg-newsom-walz.html
 

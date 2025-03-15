@@ -1,3 +1,7 @@
+**Social Distance**\
+`On the five-year anniversary of Covid, a look at the ways we vowed our lives and relationships would change afterward — and how they still might.`\
+https://nytimes.com/2025/03/15/briefing/social-distance.html
+
 **Scouting notes from the Mariners-Guardians Breakout game: Law**\
 `The Seattle-Cleveland game was kind of sloppy but still featured a handful of standouts from some of the top prospects on both sides.`\
 https://nytimes.com/athletic/6205188/2025/03/15/mariners-guardians-breakout-game-law/
