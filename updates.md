@@ -1,3 +1,7 @@
+**Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
+`On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
+https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
+
 **Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
 `Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
 https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/

@@ -1,3 +1,7 @@
+**Lady Gaga Sells ‘Mayhem’ Hard. But Does It Work?**\
+`On Popcast, a discussion about the singer’s latest “return to form” album and whether her aggressive promotion of it adds up to anything new.`\
+https://nytimes.com/2025/03/15/arts/music/lady-gaga-mayhem-popcast.html
+
 **Bubble watch: On the eve of Selection Sunday, who has work left to do?**\
 `Outside of Texas and the A-10, most of Friday's bubble action came from out west — the Mountain West in particular.`\
 https://nytimes.com/athletic/6205319/2025/03/15/mens-basketball-ncaa-tournament-bubble-selection-sunday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205289/2025/03/15/mlb-gold-logoman-ohtani-skenes/
 **Deal Makers Restaff for the Trump Era**\
 `Clients increasingly want to know how to navigate shifting diplomatic alliances, unexpected conflicts and an unpredictable American administration.`\
 https://nytimes.com/2025/03/15/business/dealbook/deal-makers-restaff-for-the-trump-era.html
-
-**Home Sellers and Buyers Accuse Realtors of Blocking Lower Fees**\
-`A year after a landmark settlement called for a disruption in how real estate agents are paid, people say they still feel forced to pay them excessive commissions.`\
-https://nytimes.com/2025/03/15/realestate/sellers-buyers-realtors-high-commissions.html
 
