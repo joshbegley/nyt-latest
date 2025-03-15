@@ -1,3 +1,11 @@
+**The Democratic Divide: Would a Shutdown Have Helped or Hurt Trump?**\
+`The party’s split over supporting a spending extension to avert a lapse in government funding boiled down to a practical question of how much power the president has in a shutdown.`\
+https://nytimes.com/2025/03/14/us/politics/democrats-schumer-shutdown-trump.html
+
+**Players Championship analysis: What to know about Justin Thomas' big day**\
+`Thomas is seven back of the co-leaders, the same position he sat in through two rounds in 2021 when he went on to win.`\
+https://nytimes.com/athletic/6204864/2025/03/14/players-championship-analysis-justin-thomas/
+
 **Trump Expands Attacks on Law Firms, Singling Out Paul, Weiss**\
 `Experts have warned that the president’s efforts threaten the ability of lawyers to do their jobs and private citizens to obtain legal counsel.`\
 https://nytimes.com/2025/03/14/us/politics/trump-law-firm.html
