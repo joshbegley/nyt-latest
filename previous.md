@@ -6,7 +6,7 @@ https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.ht
 `In the latest strikes, the Israeli military killed at least nine people, according to the Gaza health ministry. Israel says militants were threatening its forces.`\
 https://nytimes.com/2025/03/15/world/middleeast/israel-gaza-cease-fire-attacks.html
 
-**Villanova parts ways with Kyle Neptune after 3 seasons, no NCAA tourney appearances**\
+**Villanova fires Kyle Neptune after 3 seasons, no tourney appearances**\
 `Neptune went 31-29 in Big East games and never finished higher than sixth place. `\
 https://nytimes.com/athletic/6186415/2025/03/15/kyle-neptune-villanova-fired-basketball/
 
