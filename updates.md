@@ -1,3 +1,7 @@
+**'I was hungry': Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
+`Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
+https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
+
 **Aryna Sabalenka dismantles Madison Keys at Indian Wells, advances to final**\
 `Sabalenka can be one of the most relentless opponents in the game. She didn't need to be Friday night.`\
 https://nytimes.com/athletic/6204994/2025/03/14/aryna-sabalenka-beats-madison-keys-indian-wells/
