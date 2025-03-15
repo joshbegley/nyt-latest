@@ -1,3 +1,7 @@
+**Trump Expands Attacks on Law Firms, Singling Out Paul, Weiss**\
+`Experts have warned that the president’s efforts threaten the ability of lawyers to do their jobs and private citizens to obtain legal counsel.`\
+https://nytimes.com/2025/03/14/us/politics/trump-law-firm.html
+
 **A Tale of Two Speeches at the Justice Department**\
 `In 1940, Robert Jackson gave a very different speech about the power and discretion of the prosecutor in the same room President Trump spoke in Friday.`\
 https://nytimes.com/live/2025/03/10/opinion/thepoint/donald-trump-justice-department-speech

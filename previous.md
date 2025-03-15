@@ -1,3 +1,7 @@
+**Trump Expands Attacks on Law Firms, Singling Out Paul, Weiss**\
+`Experts have warned that the president’s efforts threaten the ability of lawyers to do their jobs and private citizens to obtain legal counsel.`\
+https://nytimes.com/2025/03/14/us/politics/trump-law-firm.html
+
 **A Tale of Two Speeches at the Justice Department**\
 `In 1940, Robert Jackson gave a very different speech about the power and discretion of the prosecutor in the same room President Trump spoke in Friday.`\
 https://nytimes.com/live/2025/03/10/opinion/thepoint/donald-trump-justice-department-speech
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010053932/oklahoma-smoke-wildfires-storm
 **Judges Have Ordered Federal Workers Back on the Job. Now What?**\
 `Fired employees expressed excitement about the prospect of reinstatement, as well as back pay. But there’s no template for rehiring en masse.`\
 https://nytimes.com/2025/03/14/us/politics/judges-federal-workers-reinstatement.html
-
-**F.D.A. Issues Warning About Galaxy Gas and Other Nitrous Products**\
-`The agency is advising people to avoid misusing or inhaling the products that are marketed as whipped cream chargers but have been used as recreational drugs.`\
-https://nytimes.com/2025/03/14/style/galaxy-gas-fda-warning.html
 
