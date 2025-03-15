@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump Administration’s Diversity Crackdown to Proceed, but Judges Debate D.E.I. Merits**\
+`Three judges on a Virginia appeals panel agreed to let the Trump administration orders move forward but were sharply divided on the values of diversity, equity and inclusion.`\
+https://nytimes.com/2025/03/14/us/politics/trump-dei-court-ruling.html
+
+**Auburn and Chad Baker-Mazara are combustible, which means more than one thing**\
+`Baker-Mazara is an inspirational and essential part of Auburn's team, but can the Tigers trust him?`\
+https://nytimes.com/athletic/6204543/2025/03/14/auburn-basketball-chad-baker-mazara-bruce-pearl/
+
 **The Democratic Divide: Would a Shutdown Have Helped or Hurt Trump?**\
 `The party’s split over supporting a spending extension to avert a lapse in government funding boiled down to a practical question of how much power the president has in a shutdown.`\
 https://nytimes.com/2025/03/14/us/politics/democrats-schumer-shutdown-trump.html

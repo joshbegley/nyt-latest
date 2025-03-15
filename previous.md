@@ -1,3 +1,7 @@
+**Appeals Court Allows Trump Administration’s Diversity Crackdown to Proceed, but Judges Debate D.E.I. Merits**\
+`Three judges on a Virginia appeals panel agreed to let the Trump administration orders move forward but were sharply divided on the values of diversity, equity and inclusion.`\
+https://nytimes.com/2025/03/14/us/politics/trump-dei-court-ruling.html
+
 **The Democratic Divide: Would a Shutdown Have Helped or Hurt Trump?**\
 `The party’s split over supporting a spending extension to avert a lapse in government funding boiled down to a practical question of how much power the president has in a shutdown.`\
 https://nytimes.com/2025/03/14/us/politics/democrats-schumer-shutdown-trump.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/03/14/us/tim-walz-politics.html
 https://nytimes.com/video/science/space/100000010054023/spacex-nasa-crew10-launch.html
 
 **Auburn and Chad Baker-Mazara are combustible, which means more than one thing**\
-`Baker-Mazara is an inspirational and essential piece to Auburn's team, but can the Tigers trust him?`\
+`Baker-Mazara is an inspirational and essential part of Auburn's team, but can the Tigers trust him?`\
 https://nytimes.com/athletic/6204543/2025/03/14/auburn-basketball-chad-baker-mazara-bruce-pearl/
 
 **Musk Keeps His Eye on Social Security**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/14/us/politics/musk-doge-social-security.html
 **BOS Nation FC is out: Boston NWSL team to reveal new name in 'next few weeks'**\
 `The Boston team launched the BOS Nation FC name and colors last October to an overwhelmingly negative reaction.`\
 https://nytimes.com/athletic/6204128/2025/03/14/boston-nwsl-expansion-bos-nation-fc/
-
-**D.C. Appears Likely to Avoid a $1.1 Billion Budget Cut**\
-`The Senate approved a separate bill that allows D.C. to continue operating under its current budget, which seemed on track to pass in the House. Senator Susan Collins said it had President Trump’s support.`\
-https://nytimes.com/2025/03/14/us/politics/dc-billion-budget-cut.html
 

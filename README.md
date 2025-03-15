@@ -1,3 +1,7 @@
+**Marco Rubio Essentially Expels South Africa’s U.S. Ambassador**\
+`The secretary of state lashed out on social media over comments the ambassador reportedly made in Johannesburg that were critical of the Trump administration.`\
+https://nytimes.com/2025/03/14/us/politics/south-africa-ambassador-marco-rubio.html
+
 **Appeals Court Allows Trump Administration’s Diversity Crackdown to Proceed, but Judges Debate D.E.I. Merits**\
 `Three judges on a Virginia appeals panel agreed to let the Trump administration orders move forward but were sharply divided on the values of diversity, equity and inclusion.`\
 https://nytimes.com/2025/03/14/us/politics/trump-dei-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204543/2025/03/14/auburn-basketball-chad-baker-maz
 **Musk Keeps His Eye on Social Security**\
 `The tech billionaire has repeatedly suggested, without evidence, that Social Security is rife with fraud, even as President Trump denies plans to cut those benefits.`\
 https://nytimes.com/2025/03/14/us/politics/musk-doge-social-security.html
-
-**BOS Nation FC is out: Boston NWSL team to reveal new name in 'next few weeks'**\
-`The Boston team launched the BOS Nation FC name and colors last October to an overwhelmingly negative reaction.`\
-https://nytimes.com/athletic/6204128/2025/03/14/boston-nwsl-expansion-bos-nation-fc/
 
