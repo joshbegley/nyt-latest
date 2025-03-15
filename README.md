@@ -1,3 +1,7 @@
+**Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
+`Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
+https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
+
 **Duke's Cooper Flagg to be available for NCAA Tournament**\
 `Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
 https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/world/europe/serbia-protest-president-vucic.html
 **‘It Got Everything’: Oklahoma Residents Who Escaped Fires Brace for Losses**\
 `Hundreds of homes and other buildings were destroyed in Oklahoma, as fierce winds and wildfires swept the region.`\
 https://nytimes.com/2025/03/15/us/wildfires-oklahoma-texas-damage.html
-
-**Wrexham's double over Wycombe flips promotion chances in their favour – the race is on...**\
-`The two clubs' respective run-ins could be the decisive factor with Wycombe's looking harder on paper. Here's how it stands`\
-https://nytimes.com/athletic/6199955/2025/03/15/wycombe-wrexham-promotion-chances/
 
