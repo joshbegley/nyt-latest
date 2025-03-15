@@ -1,3 +1,7 @@
+**Ohtani hits home run on return to Tokyo Dome**\
+`Ohtani has tested the bounds of the ballpark before, hitting one through the ceiling of the building dubbed “The Big Egg” back in 2016.`\
+https://nytimes.com/athletic/6205305/2025/03/15/shohei-ohtani-home-run-tokyo/
+
 **Russia Presses Offensive in Kursk Amid Cease-Fire Talks With U.S.**\
 `Moscow said it had retaken two villages outside the town of Sudzha in Russia’s Kursk region. Ukrainian officials did not immediately comment on the claim.`\
 https://nytimes.com/2025/03/15/world/europe/russia-ukraine-kursk-cease-fire-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/opinion/trump-higher-education.html
 **‘He Has to Shrink Away From Greatness’: The Poignant Surrender of a Republican Under Trump**\
 `It is very hard to be principled, independent or any of those other bygone adjectives in today’s G.O.P.`\
 https://nytimes.com/2025/03/15/opinion/thom-tillis-trump-republicans.html
-
-**Musk Said No One Has Died Since Aid Was Cut. That Isn’t True.**\
-`A journey through the front lines of global poverty shows that when the world’s richest men slash aid for the world’s poorest children, the result is sickness, starvation and death.`\
-https://nytimes.com/interactive/2025/03/15/opinion/foreign-aid-cuts-impact.html
 
