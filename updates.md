@@ -1,3 +1,7 @@
+**49ers re-signing Pro Bowl FB Kyle Juszczyk**\
+`Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
+https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
+
 **Trump Administration Live Updates: Order Aims to Gut 7 Agencies, Including Overseer of Voice of America**\
 ``\
 https://nytimes.com/live/2025/03/15/us/trump-news

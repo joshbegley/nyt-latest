@@ -1,3 +1,7 @@
+**49ers re-signing Pro Bowl FB Kyle Juszczyk**\
+`Juszczyk took a visit with the Pittsburgh Steelers but will return to San Francisco, where he spent the last eight years of his NFL career.`\
+https://nytimes.com/athletic/6205352/2025/03/15/san-francisco-kyle-juszczyk-signing/
+
 **Trump Administration Live Updates: Order Aims to Gut 7 Agencies, Including Overseer of Voice of America**\
 ``\
 https://nytimes.com/live/2025/03/15/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204377/2025/03/15/jonny-brodzinski-rangers-ahl-cap
 **Alex Vlasic embraces new role as Blackhawks' No. 1 defenseman following Seth Jones trade**\
 `With Jones now playing in South Florida, Vlasic is feeling the weight of his new role as the Blackhawks' clear No. 1 defenseman.`\
 https://nytimes.com/athletic/6204376/2025/03/15/blackhawks-alex-vlasic-seth-jones-trade/
-
-**Ohtani, Skenes and other MLB award winners to have gold logo on their jerseys**\
-`MLB award winners will now be recognizable through the patches on their jerseys, giving way to a new line of rare trading cards`\
-https://nytimes.com/athletic/6205289/2025/03/15/mlb-gold-logoman-ohtani-skenes/
 
