@@ -1,3 +1,11 @@
+**Bompastor asks if Women's League Cup final pitch would be accepted in men's game**\
+`Chelsea and Manchester City players and coaches were critical of the Pride Park playing surface.`\
+https://nytimes.com/athletic/6205448/2025/03/15/womens-league-cup-final-pitch/
+
+**Keeping With Kennedy’s Advice, Measles Patients Turn to Unproven Treatments**\
+`In West Texas, some with severe illness have not been taken to a doctor until their conditions worsened, officials said.`\
+https://nytimes.com/2025/03/15/health/measles-texas-kennedy.html
+
 **Villanova fires Kyle Neptune after 3 seasons, no tourney appearances**\
 `Neptune went 31-29 in Big East games and never finished higher than sixth place. `\
 https://nytimes.com/athletic/6186415/2025/03/15/kyle-neptune-villanova-fired-basketball/

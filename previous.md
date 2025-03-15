@@ -1,3 +1,11 @@
+**Bompastor asks if Women's League Cup final pitch would be accepted in men's game**\
+`Chelsea and Manchester City players and coaches were critical of the Pride Park playing surface.`\
+https://nytimes.com/athletic/6205448/2025/03/15/womens-league-cup-final-pitch/
+
+**Keeping With Kennedy’s Advice, Measles Patients Turn to Unproven Treatments**\
+`In West Texas, some with severe illness have not been taken to a doctor until their conditions worsened, officials said.`\
+https://nytimes.com/2025/03/15/health/measles-texas-kennedy.html
+
 **The Founders Were Afraid for the Country, Too**\
 `Franklin was worried. Madison was more optimistic.`\
 https://nytimes.com/2025/03/15/opinion/columnists/founders-optimism-pessimism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/15/us/politics/trump-speech-doj-retribution.html
 **'Wasn't pretty. But we'll take it': Weary Nuggets happy for victories, even the ugly ones**\
 `Denver struggled against a depleted Lakers team, and coach Michael Malone has to walk a fine line between urgency and rest.`\
 https://nytimes.com/athletic/6205124/2025/03/15/nikola-jokic-nuggets-lakers-recap/
-
-**Grizzlies must level up to compete with NBA’s elite**\
-`Ja Morant had 44 points, but the Cavs won their 16th straight as Cleveland controlled the game and any attempts by Morant to take over.`\
-https://nytimes.com/athletic/6205209/2025/03/15/ja-morant-grizzlies-cavaliers/
-
-**Chelsea beat Man City to win League Cup final, keep quadruple on track**\
-`Mayra Ramirez’s first-half goal and an own goal from Yui Hasegawa proved the difference in a tight contest.`\
-https://nytimes.com/athletic/6205443/2025/03/15/chelsea-man-city-league-cup-final-result/
 
