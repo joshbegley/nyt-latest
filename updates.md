@@ -1,3 +1,23 @@
+**Dick Vitale tears up reflecting on ESPN return after battling cancer: 'It's been unbelievable'**\
+`Vitale missed almost two full college basketball seasons due to an extensive cancer battle.`\
+https://nytimes.com/athletic/6206483/2025/03/16/dick-vitale-espn-return-cancer-emotional-moment/
+
+**Why Maids Keep Dying in Saudi Arabia**\
+`East African leaders and Saudi royals are among those profiting off a lucrative, deadly trade in domestic workers.`\
+https://nytimes.com/2025/03/16/world/africa/saudi-arabia-kenya-uganda-maids-women.html
+
+**To Investigate Labor Abuse, We Began With a Question: Who Profits?**\
+`Housekeepers from East Africa suffer beatings, starvation and sexual assault in Saudi Arabia. Here’s what else we learned about the cross-border trade in domestic workers.`\
+https://nytimes.com/2025/03/16/world/africa/to-investigate-labor-abuse-we-began-with-a-question-who-profits.html
+
+**At 95, He’s the World’s Oldest Speedskater. He’s Gunning for 100.**\
+`Iichi Marumo started competing in his late 80s, after a life spent farming, publishing poetry and volunteering to fly in a kamikaze mission during World War II.`\
+https://nytimes.com/2025/03/16/world/asia/japan-speedskater-age-record.html
+
+**Connections: Sports Edition Coach: Hints for March 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6206153/2025/03/16/connections-sports-edition-hints-for-march-16-2025/
+
 **Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
 `The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
 `\

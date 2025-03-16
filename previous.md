@@ -1,3 +1,23 @@
+**Dick Vitale tears up reflecting on ESPN return after battling cancer: 'It's been unbelievable'**\
+`Vitale missed almost two full college basketball seasons due to an extensive cancer battle.`\
+https://nytimes.com/athletic/6206483/2025/03/16/dick-vitale-espn-return-cancer-emotional-moment/
+
+**Why Maids Keep Dying in Saudi Arabia**\
+`East African leaders and Saudi royals are among those profiting off a lucrative, deadly trade in domestic workers.`\
+https://nytimes.com/2025/03/16/world/africa/saudi-arabia-kenya-uganda-maids-women.html
+
+**To Investigate Labor Abuse, We Began With a Question: Who Profits?**\
+`Housekeepers from East Africa suffer beatings, starvation and sexual assault in Saudi Arabia. Here’s what else we learned about the cross-border trade in domestic workers.`\
+https://nytimes.com/2025/03/16/world/africa/to-investigate-labor-abuse-we-began-with-a-question-who-profits.html
+
+**At 95, He’s the World’s Oldest Speedskater. He’s Gunning for 100.**\
+`Iichi Marumo started competing in his late 80s, after a life spent farming, publishing poetry and volunteering to fly in a kamikaze mission during World War II.`\
+https://nytimes.com/2025/03/16/world/asia/japan-speedskater-age-record.html
+
+**Connections: Sports Edition Coach: Hints for March 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6206153/2025/03/16/connections-sports-edition-hints-for-march-16-2025/
+
 **Blue Jackets look nervous, panicked vs. Rangers as they fall out of playoff spot**\
 `Columbus, one of the NHL's highest-scoring clubs all season, has now endured three shutouts in its last five games.`\
 https://nytimes.com/athletic/6206283/2025/03/15/blue-jackets-rangers-nhl-playoffs/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6206384/2025/03/15/kristaps-porzingis-celtics-defea
 **Travis Konecny's dreadful slump is as surprising at it is concerning**\
 `The Flyers’ most consistent offensive weapon for the past few years is in a woeful scoring slump with just one goal in his last 21 games.`\
 https://nytimes.com/athletic/6206351/2025/03/15/flyers-travis-konecny-slump/
-
-**Without Cooper Flagg, Duke grinds out first ACC title sweep since 2006**\
-`Saturday's victory was not only a testament to the Blue Devils' talent but also a sign of their depth.`\
-https://nytimes.com/athletic/6206422/2025/03/15/duke-acc-tournament-champions-louisville/
-
-**Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
-`The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
-`\
-https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
-
-**At Gridiron Dinner, Jokes About Trump, Musk and Russia Abound**\
-`But President Trump wasn’t around to hear any of the barbs thrown at the annual D.C. event.`\
-https://nytimes.com/2025/03/15/us/politics/gridiron-dinner-trump-musk-russia-moore.html
-
-**Morgan Geekie, a new core and identifying who will be part of it**\
-`Geekie is part of the Bruins' rebuild. Can he take another step to become an even bigger offensive threat?`\
-https://nytimes.com/athletic/6206363/2025/03/15/bruins-lightning-morgan-geekie/
-
-**New Zealand surges to top spot at Rolex Los Angeles Sail Grand Prix**\
-`After four frenetic two-lap races, the United States finished the day in seventh place.`\
-https://nytimes.com/athletic/6206272/2025/03/15/rolex-los-angeles-sail-grand-prix-results-day-one/
 

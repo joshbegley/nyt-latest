@@ -1,3 +1,7 @@
+**'Not playing to our level': Leafs sound out of answers as they endure season's worst stretch**\
+`The Maple Leafs have struggled to produce offence and lack the pace and urgency they’ll need to win playoff games in a few weeks.`\
+https://nytimes.com/athletic/6206481/2025/03/16/maple-leafs-senators-season-nhl-playoffs/
+
 **Dick Vitale tears up reflecting on ESPN return after battling cancer: 'It's been unbelievable'**\
 `Vitale missed almost two full college basketball seasons due to an extensive cancer battle.`\
 https://nytimes.com/athletic/6206483/2025/03/16/dick-vitale-espn-return-cancer-emotional-moment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206382/2025/03/15/rangers-blue-jackets-playoffs-mi
 **Kristaps Porziņģis returns from mysterious illness to rescue Celtics in win over Nets**\
 `In his first game since Feb. 26, Porziņģis delivered a clutch performance, finishing with 24 points over 31 minutes.`\
 https://nytimes.com/athletic/6206384/2025/03/15/kristaps-porzingis-celtics-defeat-nets/
-
-**Travis Konecny's dreadful slump is as surprising at it is concerning**\
-`The Flyers’ most consistent offensive weapon for the past few years is in a woeful scoring slump with just one goal in his last 21 games.`\
-https://nytimes.com/athletic/6206351/2025/03/15/flyers-travis-konecny-slump/
 
