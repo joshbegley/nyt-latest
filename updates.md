@@ -1,3 +1,7 @@
+**Intense Storms Spawn Destructive Tornadoes in the Southern U.S.**\
+`More than 20 people were killed in the storms that ripped across Alabama, Arkansas, Mississippi and Missouri.`\
+https://nytimes.com/video/weather/100000010055205/storms-tornadoes-southern-us.html
+
 **The Briefing: Liverpool 1 Newcastle 2 - 70 years of hurt ended as Slot's side fall flat**\
 `Analysing the major discussion points from today's Carabao Cup final at Wembley`\
 https://nytimes.com/athletic/6203910/2025/03/16/newcastle-liverpool-carabao-cup-final-analysis/
