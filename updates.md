@@ -1,3 +1,7 @@
+**Chelsea's new Bompastor era claims first trophy but a familiar face in Bright 'sets the tone'**\
+`Bright is one of those key elements of continuity that has provided such a strong base for this remarkable season.`\
+https://nytimes.com/athletic/6206689/2025/03/16/chelsea-women-mille-bright/
+
 **Lewis Hamilton says Australian GP a 'crash course' in new car**\
 `Lewis Hamilton says his Ferrari race debut was a big learning curve after finishing a chaotic Australian Grand Prix in 10th`\
 https://nytimes.com/athletic/6206701/2025/03/16/lewis-hamilton-ferrari-australian-grand-prix-reaction/
