@@ -1,3 +1,7 @@
+**How Senators completed a season sweep of the Maple Leafs; 4 takeaways**\
+`Ottawa has now beaten Toronto by a combined score of 9-3 in three meetings this season.`\
+https://nytimes.com/athletic/6206055/2025/03/16/senators-sweep-maple-leafs-takeaways/
+
 **'Not playing to our level': Leafs sound out of answers as they endure season's worst stretch**\
 `The Maple Leafs have struggled to produce offence and lack the pace and urgency they’ll need to win playoff games in a few weeks.`\
 https://nytimes.com/athletic/6206481/2025/03/16/maple-leafs-senators-season-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6192140/2025/03/15/uc-san-diego-ncaa-tournament-eri
 **Zibanejad's aggressiveness helps Rangers bounce back vs. Blue Jackets: 4 takeaways**\
 `Strong defense and more good goaltending helped the Rangers beat the Blue Jackets 4-0 and put New York in a playoff position.`\
 https://nytimes.com/athletic/6206382/2025/03/15/rangers-blue-jackets-playoffs-mika-zibanejad/
-
-**Kristaps Porziņģis returns from mysterious illness to rescue Celtics in win over Nets**\
-`In his first game since Feb. 26, Porziņģis delivered a clutch performance, finishing with 24 points over 31 minutes.`\
-https://nytimes.com/athletic/6206384/2025/03/15/kristaps-porzingis-celtics-defeat-nets/
 
