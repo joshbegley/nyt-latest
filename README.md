@@ -1,3 +1,7 @@
+**St. John's tops Creighton to win Big East tournament title, lock up NCAA bid**\
+`St. John's improved to 12-0 at Madison Square Garden and will head into the NCAA Tournament likely as a No. 2 seed.`\
+https://nytimes.com/athletic/6206244/2025/03/15/st-johns-creighton-mens-basketball-big-east-championship/
+
 **No Corrections: March 16, 2025**\
 `No corrections appeared in print on Sunday, March 16, 2025.`\
 https://nytimes.com/2025/03/15/pageoneplus/no-corrections-march-16-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206058/2025/03/15/stars-mikko-rantanen-avalanche-h
 **Garrett Crochet Opening Day starter; Rafael Devers, Wilyer Abreu play first spring game**\
 `"I hope to shoulder all the responsibilities that come with it with pride and just lead this team," Crochet said.`\
 https://nytimes.com/athletic/6205964/2025/03/15/red-sox-garrett-crochet-opening-day-starter/
-
-**Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
-`Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
-https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
 
