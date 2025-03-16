@@ -1,3 +1,11 @@
+**Napheesa Collier named MVP of Unrivaled's inaugural season**\
+`Angel Reese is named Unrivaled's Defensive Player of the Year, DJ Sackmann earns Coach of the Year honor.`\
+https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
+
+**Cardinals name Sonny Gray Opening Day starter; concern over shaky spring minimal**\
+`Gray's outing was abysmal against a Marlins lineup that didn't exactly pack much star power but still beat the Cardinals 11-5.`\
+https://nytimes.com/athletic/6207035/2025/03/16/cardinals-sonny-gray-opening-day-starter/
+
 **The NCAA Tournament runs through football country (and Cooper Flagg)**\
 `Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
 https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-me
 `Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
 https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
 
-**With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
-`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
+**With Deportations, Trump Steps Closer to Showdown With Judicial Branch**\
+`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights to his country turn back to the United States. Top administration officials thanked him.`\
 https://nytimes.com/2025/03/16/us/constitutional-crisis.html
 
 **Slick Watts, N.B.A. Fan Favorite and Headband Pioneer, Dies at 73**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/us/storms-south-midwest-tornado-photos-video.html
 **Game, Set, Match: Jack Draper routs Holger Rune to win Indian Wells title**\
 `Draper's first-serve potency and a bad day on court for Rune took the Brit to a first 1,000-level title with relative ease.`\
 https://nytimes.com/athletic/6206993/2025/03/16/draper-rune-indian-wells-final-result-analysis/
-
-**Mrazek's shutout powers Red Wings as Raymond breaks drought: 5 thoughts**\
-`The Red Wings' shutout win over Vegas was among Detroit's most complete showings of the season.`\
-https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lucas-raymond-golden-knights/
-
-**SEC breaks record with 14 teams in men's NCAA Tournament; see full bracket**\
-`From No. 1 overall (Auburn) to the last team in (North Carolina), view the full 2025 men's NCAA Tournament bracket.`\
-https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
 

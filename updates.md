@@ -1,3 +1,15 @@
+**Napheesa Collier named MVP of Unrivaled's inaugural season**\
+`Angel Reese is named Unrivaled's Defensive Player of the Year, DJ Sackmann earns Coach of the Year honor.`\
+https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
+
+**Cardinals name Sonny Gray Opening Day starter; concern over shaky spring minimal**\
+`Gray's outing was abysmal against a Marlins lineup that didn't exactly pack much star power but still beat the Cardinals 11-5.`\
+https://nytimes.com/athletic/6207035/2025/03/16/cardinals-sonny-gray-opening-day-starter/
+
+**With Deportations, Trump Steps Closer to Showdown With Judicial Branch**\
+`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights to his country turn back to the United States. Top administration officials thanked him.`\
+https://nytimes.com/2025/03/16/us/constitutional-crisis.html
+
 **The NCAA Tournament runs through football country (and Cooper Flagg)**\
 `Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
 https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
