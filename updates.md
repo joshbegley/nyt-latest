@@ -1,3 +1,7 @@
+**Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
+`Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
+https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
+
 **The Briefing: Leicester 0 Manchester United 3 - Hojlund and Garnacho end goal droughts, Heaven off on a stretcher**\
 `Charlotte Harpur breaks down the main talking points from Manchester United's 3-0 win over Leicester City`\
 https://nytimes.com/athletic/6206945/2025/03/16/leicester-0-manchester-united-3-hojlund-garnacho-heaven/
