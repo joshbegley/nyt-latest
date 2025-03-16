@@ -1,3 +1,7 @@
+**Nita M. Lowey, Tenacious New York Representative, Dies at 87**\
+`A Democrat, she represented Westchester County for three decades and became the first woman to lead the powerful House Appropriations Committee.`\
+https://nytimes.com/2025/03/16/us/politics/nita-m-lowey-dead.html
+
 **The Pulse: Tiger Woods finally meets the end?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6206443/2025/03/16/tiger-woods-achilles-nwsl-return-the-pulse/
