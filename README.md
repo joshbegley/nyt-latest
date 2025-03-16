@@ -1,8 +1,12 @@
+**The Rise of Women’s Basketball**\
+`Caitlin Clark helped push the sport to new highs. She didn’t do it alone.`\
+https://nytimes.com/2025/03/16/briefing/womens-basketball.html
+
 **Bubble watch: All eyes on Memphis, VCU on Selection Sunday**\
 `It's the day of reckoning for bubble squads across the country, and Saturday’s games produced mixed results for the teams sweating it out.`\
 https://nytimes.com/athletic/6206373/2025/03/16/mens-college-basketball-bubble-memphis-vcu-selection-sunday/
 
-**Nightclub Fire Kills at Least 51 in North Macedonia**\
+**Nightclub Fire Kills at Least 59 in North Macedonia**\
 `The tragedy occurred after fireworks set the club’s roof on fire during a pop concert, the country’s interior minister said.`\
 https://nytimes.com/2025/03/16/world/europe/north-macedonia-club-fire.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tourna
 **Clippers are heating up, getting healthy, just as schedule gets tougher**\
 `The Clippers appear to be jelling at the right time. They have won five of six games entering Sunday’s home contest.`\
 https://nytimes.com/athletic/6206279/2025/03/16/la-clippers-healthy-tough-schedule/
-
-**From big upsets to Charles Barkley banter, Greg Gumbel guided viewers through March Madness**\
-`Marking the first NCAA Tournament without the longtime CBS host: "If he was calling it, you knew it was an important, special event.”`\
-https://nytimes.com/athletic/6206049/2025/03/16/greg-gumbel-cbs-selection-sunday/
 
