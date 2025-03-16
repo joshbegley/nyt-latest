@@ -1,3 +1,11 @@
+**Dozens Dead in Nightclub Fire in North Macedonia**\
+`Pyrotechnics appeared to have started the fire, which killed nearly 60 people and injured more than 150 others.`\
+https://nytimes.com/video/world/europe/100000010055226/north-macedonia-nightclub-fire.html
+
+**Game, Set, Match: Mirra Andreeva beats Aryna Sabalenka for Indian Wells title**\
+`Andreeva won her second successive WTA 1,000 title with a performance of poise, authority and resilience against the world No.1.`\
+https://nytimes.com/athletic/6206991/2025/03/16/sabalenka-andreeva-indian-wells-womens-final-result-analysis/
+
 **One Devastating Storm System: What to Know About the Havoc**\
 `The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
 https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
