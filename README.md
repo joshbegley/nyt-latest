@@ -1,3 +1,7 @@
+**How Zibanejad's aggressiveness helped Rangers bounce back vs. Blue Jackets: 4 takeaways**\
+`Strong defense and more good goaltending helped the Rangers beat Columbus 4-0 and put the team in a playoff position.`\
+https://nytimes.com/athletic/6206382/2025/03/15/rangers-blue-jackets-playoffs-mika-zibanejad/
+
 **Kristaps Porziņģis returns from mysterious illness to rescue Celtics in win over Nets**\
 `In his first game since Feb. 26, Porziņģis delivered a clutch performance, finishing with 24 points over 31 minutes.`\
 https://nytimes.com/athletic/6206384/2025/03/15/kristaps-porzingis-celtics-defeat-nets/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6206257/2025/03/15/jordan-mason-trade-grade-vikings
 **49ers trade RB Jordan Mason to Vikings: Source**\
 `Before suffering an ankle injury in Week 13, Mason accumulated 789 yards and three touchdowns on 153 carries. `\
 https://nytimes.com/athletic/6206273/2025/03/15/49ers-jordan-mason-vikings-trade/
-
-**Players Championship analysis: What to know about J.J. Spaun, Bud Cauley and more**\
-`Spaun will have to break an ominous run of players who held a solo, one-shot lead through 54 holes at this championship.`\
-https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-spaun-cauley/
 
