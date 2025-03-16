@@ -1,3 +1,7 @@
+**Norris wins, rain causes chaos, six crash out - F1 Australian Grand Prix briefing**\
+`McLaren's Lando Norris wins a chaotic, rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
+https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefing/
+
 **Montreal's fans provide the playoff atmosphere the Canadiens hope to experience**\
 `The Canadiens' playoff push is fueled in part by a desire to have a peak Bell Centre experience. They came close Saturday night.`\
 https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205393/2025/03/16/manchester-united-jim-ratcliffe-
 **Arsenal, Chelsea and the Raheem Sterling situation**\
 `It has been a frustrating, stop-start season for Sterling at Arsenal, who face the winger’s parent club Chelsea this weekend`\
 https://nytimes.com/athletic/6190428/2025/03/16/arsenal-chelsea-raheem-sterling-latest/
-
-**Manchester City and life after Gareth Taylor: A dismissal, a week of change and a cup final lost**\
-`The manner of City's defeat to Chelsea was cruel on a squad who have experienced plenty of change this week. Here's the inside story`\
-https://nytimes.com/athletic/6204813/2025/03/16/manchester-city-gareth-taylor-cushing-league-cup-final/
 
