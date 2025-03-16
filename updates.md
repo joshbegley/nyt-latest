@@ -1,3 +1,11 @@
+**Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
+`"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
+https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
+
+**Leeds stared into abyss again at Loftus Road - what does their recovery mean for promotion hopes?**\
+`For Leeds, the ghosts of disasters past are plentiful at QPR. Farke wanted an exorcism. It wasn't quite, but there was fight to build on`\
+https://nytimes.com/athletic/6205681/2025/03/16/leeds-qpr-promotion-championship/
+
 **Seething Pistons coach Bickerstaff 'disgusted' by officiating in loss to Thunder**\
 `DETROIT — The box score sitting on the postgame podium stood no chance against Detroit Pistons (37-31) coach J.`\
 https://nytimes.com/athletic/6206579/2025/03/16/pistons-lose-bickerstaff-officiating/
