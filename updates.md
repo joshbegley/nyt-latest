@@ -1,3 +1,7 @@
+**Jordan Poole's Wizards stun Nikola Jokic's Nuggets: 'Just get me the ball'**\
+`With rookies Alex Sarr, Kyshawn George and Bub Carrington improving, the Wizards have won six of their last 10 games.`\
+https://nytimes.com/athletic/6206622/2025/03/16/jordan-poole-alex-sarr-wizards-beat-nuggets/
+
 **Warriors crank up defense and beat Knicks for 7th straight win: 5 observations**\
 `Golden State's win streak puts them in the sixth seed for the playoffs with a month left in the regular season.`\
 https://nytimes.com/athletic/6206586/2025/03/16/warriors-seventh-straight-win/

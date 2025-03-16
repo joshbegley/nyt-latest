@@ -1,3 +1,7 @@
+**Jordan Poole's Wizards stun Nikola Jokic's Nuggets: 'Just get me the ball'**\
+`With rookies Alex Sarr, Kyshawn George and Bub Carrington improving, the Wizards have won six of their last 10 games.`\
+https://nytimes.com/athletic/6206622/2025/03/16/jordan-poole-alex-sarr-wizards-beat-nuggets/
+
 **Warriors crank up defense and beat Knicks for 7th straight win: 5 observations**\
 `Golden State's win streak puts them in the sixth seed for the playoffs with a month left in the regular season.`\
 https://nytimes.com/athletic/6206586/2025/03/16/warriors-seventh-straight-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206530/2025/03/16/canucks-offense-win-blackhawks/
 **Liverpool vs Newcastle: Predictions, talking points and the stars to watch in the Carabao Cup final**\
 `Our Liverpool and Newcastle reporters discuss the hopes, dreams and worries of each club going into this weekend's Wembley showpiece`\
 https://nytimes.com/athletic/6203332/2025/03/16/carabao-cup-final-liverpool-newcastle-salah-isak/
-
-**Ratcliffe has become the Glazers' fireguard - and that suits them just fine**\
-`Manchester United's majority shareholders have been silent in one of the club's biggest weeks in years, leaving Ratcliffe centre-stage`\
-https://nytimes.com/athletic/6205393/2025/03/16/manchester-united-jim-ratcliffe-glazers/
 
