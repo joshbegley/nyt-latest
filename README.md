@@ -1,4 +1,4 @@
-**The Players broke (nearly) everyone on Saturday. Who can get it together on Sunday?**\
+**The Players broke (nearly) everyone Saturday. Who can get it together Sunday?**\
 `Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
 https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
 
