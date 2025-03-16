@@ -1,3 +1,7 @@
+**Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
+`"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
+https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
+
 **Yohe's 10 observations: Penguins — out of nowhere — have won four straight games**\
 `The Penguins' winning streak reached four games with a dominant 7-3 win against the Devils on Saturday in Pittsburgh.`\
 https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/

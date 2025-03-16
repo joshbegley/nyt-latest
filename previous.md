@@ -1,3 +1,7 @@
+**Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
+`"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
+https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
+
 **Yohe's 10 observations: Penguins — out of nowhere — have won four straight games**\
 `The Penguins' winning streak reached four games with a dominant 7-3 win against the Devils on Saturday in Pittsburgh.`\
 https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-to
 **A judge moves to immediately halt deportations, ordering any planes be turned around.**\
 `The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
 https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
-
-**Sabres thoughts: Why Rasmus Dahlin thinks Buffalo looks like 'a real team' now**\
-`The Sabres' season has been a miserable slog, but their home win against the Golden Knights gave Buffalo fans a rare reason to be satisfied.`\
-https://nytimes.com/athletic/6205982/2025/03/15/sabres-golden-knights-rasmus-dahlin/
 
