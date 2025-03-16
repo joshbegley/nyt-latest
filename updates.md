@@ -1,3 +1,7 @@
+**49ers trade RB Jordan Mason to Vikings: Source**\
+`Before suffering an ankle injury in Week 13, Mason accumulated 789 yards and three touchdowns on 153 carries. `\
+https://nytimes.com/athletic/6206273/2025/03/15/49ers-jordan-mason-vikings-trade/
+
 **Players Championship analysis: What to know about J.J. Spaun, Bud Cauley and more**\
 `Spaun will have to break an ominous run of players who held a solo, one-shot lead through 54 holes at this championship.`\
 https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-spaun-cauley/
