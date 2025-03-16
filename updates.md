@@ -1,3 +1,11 @@
+**Palmer out of Chelsea squad for trip to Arsenal**\
+`The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
+https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
+
+**Ukraine Retreats From All but a Sliver of Land in Russia’s Kursk Region**\
+`The daring campaign Ukraine launched last summer to seize and occupy Russian territory appears to be nearing an end.`\
+https://nytimes.com/2025/03/16/world/europe/kursk-russia-ukraine.html
+
 **Facing Trump Tariffs, China Outlines Plan to Bolster the Economy**\
 `Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
 https://nytimes.com/2025/03/16/business/china-consumption.html
