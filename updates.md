@@ -1,3 +1,15 @@
+**One Devastating Storm System: What to Know About the Havoc**\
+`The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
+https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
+
+**Forest's Gibbs-White added to England squad**\
+`Gibbs-White has registered five goals and seven assists in 25 Premier League games for Forest this season.`\
+https://nytimes.com/athletic/6207588/2025/03/16/morgan-gibbs-white-england-squad-forest/
+
+**Doctor and Professor Is Deported to Lebanon Despite a Judge’s Order**\
+`Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
+https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
+
 **How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
 `At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
 https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html

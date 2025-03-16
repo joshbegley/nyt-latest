@@ -1,3 +1,11 @@
+**One Devastating Storm System: What to Know About the Havoc**\
+`The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
+https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
+
+**Forest's Gibbs-White added to England squad**\
+`Gibbs-White has registered five goals and seven assists in 25 Premier League games for Forest this season.`\
+https://nytimes.com/athletic/6207588/2025/03/16/morgan-gibbs-white-england-squad-forest/
+
 **How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
 `At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
 https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament
 `Six African Penguins at the New England Aquarium in Boston have made a new home on an island designed to address the aches and pains of aging.`\
 https://nytimes.com/2025/03/16/science/penguin-retirement-home-aquarium.html
 
-**Surgeon and Professor Is Deported to Lebanon Despite a Judge’s Order**\
+**Doctor and Professor Is Deported to Lebanon Despite a Judge’s Order**\
 `Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
 https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamst
 **Intense Storms Spawn Destructive Tornadoes in the Southern U.S.**\
 `More than 20 people were killed in the storms that ripped across Alabama, Arkansas, Mississippi and Missouri.`\
 https://nytimes.com/video/weather/100000010055205/storms-tornadoes-southern-us.html
-
-**The Briefing: Liverpool 1 Newcastle 2 - 70 years of hurt ended as Slot's side fall flat**\
-`Analysing the major discussion points from today's Carabao Cup final at Wembley`\
-https://nytimes.com/athletic/6203910/2025/03/16/newcastle-liverpool-carabao-cup-final-analysis/
-
-**Ravens free-agency tracker: QB Cooper Rush agrees to 2-year deal**\
-`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
-https://nytimes.com/athletic/6188842/2025/03/16/ravens-free-agency-tracker-signings-trades/
 
