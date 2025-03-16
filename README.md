@@ -1,3 +1,11 @@
+**Dozens Dead in Nightclub Fire in North Macedonia**\
+`Pyrotechnics appeared to have started the fire, which killed nearly 60 people and injured more than 150 others.`\
+https://nytimes.com/video/world/europe/100000010055226/north-macedonia-nightclub-fire.html
+
+**Game, Set, Match: Mirra Andreeva beats Aryna Sabalenka for Indian Wells title**\
+`Andreeva won her second successive WTA 1,000 title with a performance of poise, authority and resilience against the world No.1.`\
+https://nytimes.com/athletic/6206991/2025/03/16/sabalenka-andreeva-indian-wells-womens-final-result-analysis/
+
 **One Devastating Storm System: What to Know About the Havoc**\
 `The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
 https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
 **As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
 `President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
 https://nytimes.com/2025/03/16/business/voa-trump-dismantle.html
-
-**Twins' Royce Lewis strains hamstring 11 days before season opener**\
-`This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
-https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamstring/
-
-**Intense Storms Spawn Destructive Tornadoes in the Southern U.S.**\
-`More than 20 people were killed in the storms that ripped across Alabama, Arkansas, Mississippi and Missouri.`\
-https://nytimes.com/video/weather/100000010055205/storms-tornadoes-southern-us.html
 
