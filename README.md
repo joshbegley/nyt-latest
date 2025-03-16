@@ -1,3 +1,11 @@
+**Morgan Geekie, a new core and identifying who will be part of it**\
+`Geekie is part of the Bruins' rebuild. Can he take another step to become an even bigger offensive threat?`\
+https://nytimes.com/athletic/6206363/2025/03/15/bruins-lightning-morgan-geekie/
+
+**New Zealand surges to top spot at Rolex Los Angeles Sail Grand Prix**\
+`After four frenetic two-lap races, the United States finished the day in seventh place.`\
+https://nytimes.com/athletic/6206272/2025/03/15/rolex-los-angeles-sail-grand-prix-results-day-one/
+
 **Jordan Mason trade grades: Vikings build solid 1-2 punch at RB; 49ers' playing long game**\
 `Mason is a great fit in Minnesota and will provide quality insurance for 30-year-old lead back Aaron Jones. `\
 https://nytimes.com/athletic/6206257/2025/03/15/jordan-mason-trade-grade-vikings-49ers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-resu
 **Yohe's 10 observations: Penguins — out of nowhere — have won 4 straight games**\
 `The Penguins are indeed mathematically alive for the playoffs and they've been winning against high-caliber competition.`\
 https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
-
-**Milos Uzan, Houston outlast Arizona for Big 12 tournament championship**\
-`Houston completed a sweep of the Big 12's regular-season and tournament titles, with an Oklahoma transfer growing into an X-factor.`\
-https://nytimes.com/athletic/6206158/2025/03/15/houston-big-12-tournament-milos-uzan-arizona/
-
-**What Is Tren de Aragua?**\
-`A gang with roots in a Venezuelan prison, the criminal group was at the center of President Trump’s order invoking the Alien Enemies Act of 1798.`\
-https://nytimes.com/2025/03/15/world/americas/tren-de-aragua-gang-venezuela.html
 
