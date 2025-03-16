@@ -1,3 +1,7 @@
+**Facing Trump Tariffs, China Outlines Plan to Bolster Economy**\
+`Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
+https://nytimes.com/2025/03/16/business/china-consumption.html
+
 **The ACC needed a new coaching star. Jon Scheyer delivered**\
 `Duke's ACC Tournament run without Cooper Flagg is confirmation that the 37-year-old Scheyer is already one of the game's best coaches.`\
 https://nytimes.com/athletic/6206826/2025/03/16/jon-scheyer-duke-basketball-acc-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205392/2025/03/16/march-madness-2025-knicks-colleg
 **Mayor Adams’s Biggest Backer in the State Capitol Endorses Cuomo**\
 `Rodneyse Bichotte Hermelyn, chairwoman of the Brooklyn Democratic Party, had been one of the mayor’s staunchest supporters.`\
 https://nytimes.com/2025/03/16/nyregion/rodneyse-bichotte-hermelyn-cuomo-adams.html
-
-**Storm Risk Shifts to East Coast**\
-`Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from Central Florida to western Pennsylvania. The weather system also spawned deadly tornadoes in the Midwest and South.`\
-https://nytimes.com/2025/03/16/weather/tornado-storm-forecast-south.html
 
