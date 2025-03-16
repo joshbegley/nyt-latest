@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analy
 `\
 https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
 
+**Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
+`The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
+`\
+https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
+
 **Blue Jackets look nervous, panicked vs. Rangers as they fall out of playoff spot**\
 `Columbus, one of the NHL's highest-scoring clubs all season, has now endured three shutouts in its last five games.`\
 https://nytimes.com/athletic/6206283/2025/03/15/blue-jackets-rangers-nhl-playoffs/
