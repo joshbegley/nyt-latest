@@ -1,3 +1,15 @@
+**The Pulse: Tiger Woods finally meets the end?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6206443/2025/03/16/tiger-woods-achilles-nwsl-return-the-pulse/
+
+**SpaceX Capsule Docks in Space, Paving the Way for Astronauts’ Return**\
+`A SpaceX capsule docked at the International Space Station, bringing a replacement crew for Suni Williams and Butch Wilmore to return home after an unexpectedly long stay in orbit.`\
+https://nytimes.com/2025/03/16/us/spacex-iss-nasa-astronauts-return.html
+
+**The Briefing: Fulham 2 Tottenham 0 - Tel struggles and is Europe only thing keeping Postecoglou safe?**\
+`Our writers analyse and evaluate all the key talking points following Tottenham's loss to Fulham in the Premier League`\
+https://nytimes.com/athletic/6200009/2025/03/16/fulham-tottenham-postecoglou-premier-league-europa-league/
+
 **Quinton Byfield could be the difference-maker the Kings need in the playoffs**\
 `Byfield, whose development has been uneven at times, now has scored in a career-high six consecutive games.`\
 https://nytimes.com/athletic/6206723/2025/03/16/byfield-kings-goal-streak/
