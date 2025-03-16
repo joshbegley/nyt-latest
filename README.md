@@ -1,3 +1,11 @@
+**The ACC needed a new coaching star. Jon Scheyer delivered**\
+`Duke's ACC Tournament run without Cooper Flagg is confirmation that the 37-year-old Scheyer is already one of the game's best coaches.`\
+https://nytimes.com/athletic/6206826/2025/03/16/jon-scheyer-duke-basketball-acc-tournament/
+
+**NCAA Tournament Bracket Watch 2025: Mountain West soars in final projection**\
+`Among several changes on this final bracket, Florida moves up to the No. 3 overall seed and into the Midwest Region.`\
+https://nytimes.com/athletic/6205949/2025/03/16/ncaa-tournament-bracket-watch-2025-colorado-state-mountain-west/
+
 **Wright hat-trick gives USMNT coach Pochettino timely reminder of his talent**\
 `If he can use this hat-trick as a springboard — and stay fit — it will put him firmly on Pochettino’s radar and boost his World Cup chances.`\
 https://nytimes.com/athletic/6206804/2025/03/16/haji-wright-usmnt-pochettino/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/nyregion/rodneyse-bichotte-hermelyn-cuomo-adams.h
 **Storm Risk Shifts to East Coast**\
 `Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from Central Florida to western Pennsylvania. The weather system also spawned deadly tornadoes in the Midwest and South.`\
 https://nytimes.com/2025/03/16/weather/tornado-storm-forecast-south.html
-
-**Law: Scouting notes from the Giants-Rangers Spring Breakout game**\
-`The Giants and Rangers played their Breakout game Saturday, and despite the 5-5 score, the story of the game was the pitching.`\
-https://nytimes.com/athletic/6206584/2025/03/16/giants-rangers-spring-breakout-game-scouting-notes-law/
-
-**Rick Pitino and the new kings of New York**\
-`A native son who’s synonymous with both the city and the game has reclaimed attention in a city that doesn’t offer it easily.`\
-https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tournament/
 
