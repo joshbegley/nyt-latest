@@ -1,9 +1,13 @@
+**The Players broke (nearly) everyone on Saturday. Who can get it together on Sunday?**\
+`Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
+https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
+
 **Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
 `"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
 https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
 
-**Yohe's 10 observations: Penguins — out of nowhere — have won four straight games**\
-`The Penguins' winning streak reached four games with a dominant 7-3 win against the Devils on Saturday in Pittsburgh.`\
+**Yohe's 10 observations: Penguins — out of nowhere — have won 4 straight games**\
+`The Penguins are indeed mathematically alive for the playoffs and they've been winning against high-caliber competition.`\
 https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
 
 **Milos Uzan, Houston outlast Arizona for Big 12 tournament championship**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-resul
 **Duke's Cooper Flagg to be available for NCAA Tournament**\
 `Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
 https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
-
-**A judge moves to immediately halt deportations, ordering any planes be turned around.**\
-`The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
-https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
 

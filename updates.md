@@ -1,3 +1,11 @@
+**The Players broke (nearly) everyone on Saturday. Who can get it together on Sunday?**\
+`Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
+https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
+
+**Yohe's 10 observations: Penguins — out of nowhere — have won 4 straight games**\
+`The Penguins are indeed mathematically alive for the playoffs and they've been winning against high-caliber competition.`\
+https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
+
 **Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
 `"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
 https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
