@@ -1,3 +1,7 @@
+**How Senators completed a season sweep of the Maple Leafs; 4 takeaways**\
+`Ottawa has now beaten Toronto by a combined score of 9-3 in three meetings this season.`\
+https://nytimes.com/athletic/6206055/2025/03/16/senators-sweep-maple-leafs-takeaways/
+
 **'Not playing to our level': Leafs sound out of answers as they endure season's worst stretch**\
 `The Maple Leafs have struggled to produce offence and lack the pace and urgency they’ll need to win playoff games in a few weeks.`\
 https://nytimes.com/athletic/6206481/2025/03/16/maple-leafs-senators-season-nhl-playoffs/
