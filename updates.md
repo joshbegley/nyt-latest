@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Penguins — out of nowhere — have won four straight games**\
+`The Penguins' winning streak reached four games with a dominant 7-3 win against the Devils on Saturday in Pittsburgh.`\
+https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
+
+**Milos Uzan, Houston outlast Arizona for Big 12 tournament championship**\
+`Houston completed a sweep of the Big 12's regular-season and tournament titles, with an Oklahoma transfer growing into an X-factor.`\
+https://nytimes.com/athletic/6206158/2025/03/15/houston-big-12-tournament-milos-uzan-arizona/
+
 **A judge moves to immediately halt deportations, ordering any planes be turned around.**\
 `The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
 https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
