@@ -1,3 +1,11 @@
+**Lewis Hamilton says Australian GP a 'crash course' in new car**\
+`Lewis Hamilton says his Ferrari race debut was a big learning curve after finishing a chaotic Australian Grand Prix in 10th`\
+https://nytimes.com/athletic/6206701/2025/03/16/lewis-hamilton-ferrari-australian-grand-prix-reaction/
+
+**Norris wins, rain causes chaos, six crash out - F1 Australian Grand Prix briefing**\
+`McLaren's Lando Norris wins a chaotic rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
+https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefing/
+
 **Villarreal 1-2 Real Madrid: Mbappe, Courtois to the rescue and 72-hour rest-period row**\
 `Mbappe surpasses a Madrid great, their defence is saved again by their goalkeeper and the row over rest time with La Liga intensifies.`\
 https://nytimes.com/athletic/6206152/2025/03/16/real-madrid-mbappe-courtois-la-liga-schedule/

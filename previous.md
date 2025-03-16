@@ -1,3 +1,7 @@
+**Lewis Hamilton says Australian GP a 'crash course' in new car**\
+`Lewis Hamilton says his Ferrari race debut was a big learning curve after finishing a chaotic Australian Grand Prix in 10th`\
+https://nytimes.com/athletic/6206701/2025/03/16/lewis-hamilton-ferrari-australian-grand-prix-reaction/
+
 **Villarreal 1-2 Real Madrid: Mbappe, Courtois to the rescue and 72-hour rest-period row**\
 `Mbappe surpasses a Madrid great, their defence is saved again by their goalkeeper and the row over rest time with La Liga intensifies.`\
 https://nytimes.com/athletic/6206152/2025/03/16/real-madrid-mbappe-courtois-la-liga-schedule/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6206622/2025/03/16/jordan-poole-alex-sarr-wizards-b
 https://nytimes.com/athletic/6206586/2025/03/16/warriors-seventh-straight-win/
 
 **Norris wins, rain causes chaos, six crash out - F1 Australian Grand Prix briefing**\
-`McLaren's Lando Norris wins a chaotic, rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
+`McLaren's Lando Norris wins a chaotic rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
 https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefing/
-
-**Montreal's fans provide the playoff atmosphere the Canadiens hope to experience**\
-`The Canadiens' playoff push is fueled in part by a desire to have a peak Bell Centre experience. They came close Saturday night.`\
-https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experience/
 
