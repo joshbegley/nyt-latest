@@ -1,7 +1,3 @@
-**Surgeon and Professor Is Deported to Lebanon Despite a Judge’s Order**\
-`Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
-https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
-
 **Gene Winfield, Whose Cars Starred in Film and on TV, Dies at 97**\
 `He was know for modifying cars with innovative metal work and paint jobs, and for building vehicles like the Galileo shuttle for the original “Star Trek” series.`\
 https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2025/03/16/us/trump-news/cornell-lawsuit-activist-depor
 **Blue Jackets Sunday Gathering: John H. McConnell II assuming a bigger role**\
 `McConnell II's growing presence with the Blue Jackets in recent months suggests he'll be more of a hands-on owner than his father.`\
 https://nytimes.com/athletic/6206892/2025/03/16/blue-jackets-nhl-ownership/
+
+**Nita M. Lowey, Tenacious New York Representative, Dies at 87**\
+`A Democrat, she represented Westchester County for three decades and became the first woman to lead the powerful House Appropriations Committee.`\
+https://nytimes.com/2025/03/16/us/politics/nita-m-lowey-dead.html
 
