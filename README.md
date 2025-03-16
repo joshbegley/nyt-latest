@@ -2,7 +2,7 @@
 `President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
 https://nytimes.com/live/2025/03/16/us/trump-news/voa-trump-dismantle
 
-**Twins' Royce Lewis suffers strained hamstring 11 days before season opener**\
+**Twins' Royce Lewis strains hamstring 11 days before season opener**\
 `This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
 https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamstring/
 
