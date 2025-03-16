@@ -1,3 +1,11 @@
+**Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
+`"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
+https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
+
+**Leeds stared into abyss again at Loftus Road - what does their recovery mean for promotion hopes?**\
+`For Leeds, the ghosts of disasters past are plentiful at QPR. Farke wanted an exorcism. It wasn't quite, but there was fight to build on`\
+https://nytimes.com/athletic/6205681/2025/03/16/leeds-qpr-promotion-championship/
+
 **Seething Pistons coach Bickerstaff 'disgusted' by officiating in loss to Thunder**\
 `DETROIT — The box score sitting on the postgame podium stood no chance against Detroit Pistons (37-31) coach J.`\
 https://nytimes.com/athletic/6206579/2025/03/16/pistons-lose-bickerstaff-officiating/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6204813/2025/03/16/manchester-city-gareth-taylor-cu
 **How Brighton proved against Man City they are Champions League ready**\
 `Hurzeler has put Brighton in contention to reach Europe's top competition - they have as good a chance as anyone`\
 https://nytimes.com/athletic/6205359/2025/03/16/brighton-man-city-champions-league/
-
-**Brighton set to sign South Korean winger Yun**\
-`The 18-year-old will fly into the UK on Sunday to finalise a move from Daejeon Hana Citizen.`\
-https://nytimes.com/athletic/6205310/2025/03/16/brighton-transfers-yun-do-young/
-
-**The New York Times in Print for Sunday, March 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/16/todays-new-york-times
 
