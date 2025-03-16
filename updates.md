@@ -1,3 +1,7 @@
+**Lowetide: Is the Oilers' AHL team equipped to help the NHL team soon?**\
+`Edmonton's real prospects in the AHL are easy to spot because they are rare at the moment.`\
+https://nytimes.com/athletic/6205608/2025/03/16/oilers-recalls-savoie-2025/
+
 **What a Small Island Off the Coast of Scotland Could Teach America**\
 `In 2025, the idea of settling anyplace other than Mars might seem anachronistic, but the people on Ulva are pioneers.`\
 https://nytimes.com/2025/03/16/opinion/scotland-rural-communities-ulva.html
