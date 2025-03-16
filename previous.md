@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-ya
 `Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
 https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
 
-**Face Shapes**\
-`Kathy Lowden gives her all.`\
-https://nytimes.com/2025/03/16/crosswords/daily-puzzle-2025-03-17.html
+**Printable March Madness bracket for the men's NCAA Tournament**\
+`The 2025 men’s NCAA Tournament bracket will be released on Sunday, March 16 at 6 p.m. ET on CBS.`\
+https://nytimes.com/athletic/6201422/2025/03/16/mens-march-madness-2025-printable-bracket/
 

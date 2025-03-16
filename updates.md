@@ -1,3 +1,7 @@
+**Printable March Madness bracket for the men's NCAA Tournament**\
+`The 2025 men’s NCAA Tournament bracket will be released on Sunday, March 16 at 6 p.m. ET on CBS.`\
+https://nytimes.com/athletic/6201422/2025/03/16/mens-march-madness-2025-printable-bracket/
+
 **With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
 `“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
 https://nytimes.com/2025/03/16/us/constitutional-crisis.html
