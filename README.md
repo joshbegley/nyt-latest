@@ -1,3 +1,15 @@
+**What a Small Island Off the Coast of Scotland Could Teach America**\
+`In 2025, the idea of settling anyplace other than Mars might seem anachronistic, but the people on Ulva are pioneers.`\
+https://nytimes.com/2025/03/16/opinion/scotland-rural-communities-ulva.html
+
+**Mixed Messages on Masculinity**\
+`Readers weigh in on masculinity in politics. Also: Making way for corruption; when Donald Trump flouts laws; the perversion of U.S. power.`\
+https://nytimes.com/2025/03/16/opinion/masculinity-republicans-politics.html
+
+**In dealing with pressure, rain and Verstappen, Norris proved his growth in Australia win**\
+`This time 12 months ago, the Australian Grand Prix was the sort of race that Lando Norris and McLaren may have lost `\
+https://nytimes.com/athletic/6206769/2025/03/16/lando-norris-australia-grand-prix-max-verstappen-analysis/
+
 **Palmer out of Chelsea squad vs. Arsenal with injury**\
 `The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
 https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6206804/2025/03/16/haji-wright-usmnt-pochettino/
 **The Rise of Women’s Basketball**\
 `Caitlin Clark helped push the sport to new highs. She didn’t do it alone.`\
 https://nytimes.com/2025/03/16/briefing/womens-basketball.html
-
-**Bubble watch: All eyes on Memphis, VCU on Selection Sunday**\
-`It's the day of reckoning for bubble squads across the country, and Saturday’s games produced mixed results for the teams sweating it out.`\
-https://nytimes.com/athletic/6206373/2025/03/16/mens-college-basketball-bubble-memphis-vcu-selection-sunday/
-
-**Nightclub Fire Kills at Least 59 in North Macedonia**\
-`The tragedy occurred after fireworks set the club’s roof on fire during a pop concert, the country’s interior minister said.`\
-https://nytimes.com/2025/03/16/world/europe/north-macedonia-club-fire.html
-
-**How 'incredible' Jake O'Brien became a top 2025 NHL Draft prospect**\
-`O'Brien has ascended to the top of the 2025 class and has a chance to be a top-10 pick at the draft in June.`\
-https://nytimes.com/athletic/6200636/2025/03/16/jake-obrien-2025-nhl-draft/
 
