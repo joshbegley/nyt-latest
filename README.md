@@ -1,3 +1,27 @@
+**Seething Pistons coach Bickerstaff 'disgusted' by officiating in loss to Thunder**\
+`DETROIT — The box score sitting on the postgame podium stood no chance against Detroit Pistons (37-31) coach J.`\
+https://nytimes.com/athletic/6206579/2025/03/16/pistons-lose-bickerstaff-officiating/
+
+**Nottingham Forest Women: Their mission to return to the top a decade after nearly folding**\
+`How the women's team at Forest are recovering from past neglect and trying to get themselves back into the WSL`\
+https://nytimes.com/athletic/6193297/2025/03/16/inside-nottingham-forest-women/
+
+**Canucks offense breaks out in rout of Blackhawks: 3 takeaways**\
+`Vancouver took care of business without drama or suspense Saturday night, soundly defeating Chicago 6-2.`\
+https://nytimes.com/athletic/6206530/2025/03/16/canucks-offense-win-blackhawks/
+
+**Liverpool vs Newcastle: Predictions, talking points and the stars to watch in the Carabao Cup final**\
+`Our Liverpool and Newcastle reporters discuss the hopes, dreams and worries of each club going into this weekend's Wembley showpiece`\
+https://nytimes.com/athletic/6203332/2025/03/16/carabao-cup-final-liverpool-newcastle-salah-isak/
+
+**Ratcliffe has become the Glazers' fireguard - and that suits them just fine**\
+`Manchester United's majority shareholders have been silent in one of the club's biggest weeks in years, leaving Ratcliffe centre-stage`\
+https://nytimes.com/athletic/6205393/2025/03/16/manchester-united-jim-ratcliffe-glazers/
+
+**Arsenal, Chelsea and the Raheem Sterling situation**\
+`It has been a frustrating, stop-start season for Sterling at Arsenal, who face the winger’s parent club Chelsea this weekend`\
+https://nytimes.com/athletic/6190428/2025/03/16/arsenal-chelsea-raheem-sterling-latest/
+
 **Manchester City and life after Gareth Taylor: A dismissal, a week of change and a cup final lost**\
 `The manner of City's defeat to Chelsea was cruel on a squad who have experienced plenty of change this week. Here's the inside story`\
 https://nytimes.com/athletic/6204813/2025/03/16/manchester-city-gareth-taylor-cushing-league-cup-final/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6205310/2025/03/16/brighton-transfers-yun-do-young/
 **The New York Times in Print for Sunday, March 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/16/todays-new-york-times
-
-**Don’t Fool Yourself Into Thinking It Will Stop With Mahmoud Khalil**\
-`Events at Columbia show that the culture war is no longer just a culture war.`\
-https://nytimes.com/2025/03/16/opinion/trump-khalil-columbia-speech.html
-
-**The End of the University as We Know It**\
-`The Trump administration’s attacks on universities will lead to the permanent diminishment of vital American institutions.`\
-https://nytimes.com/2025/03/16/opinion/university-defunding-trump-rufo.html
-
-**I Don’t Want Anyone to Read My Diaries. Yet I Can’t Burn Them.**\
-`It could be that keeping a diary — “keep” being the operative word — is how we stay true to ourselves, even the embarrassing bits.`\
-https://nytimes.com/2025/03/16/opinion/diary-didion-writing.html
-
-**How Senators completed a season sweep of the Maple Leafs; 4 takeaways**\
-`Ottawa has now beaten Toronto by a combined score of 9-3 in three meetings this season.`\
-https://nytimes.com/athletic/6206055/2025/03/16/senators-sweep-maple-leafs-takeaways/
-
-**'Not playing to our level': Leafs sound out of answers as they endure season's worst stretch**\
-`The Maple Leafs have struggled to produce offence and lack the pace and urgency they’ll need to win playoff games in a few weeks.`\
-https://nytimes.com/athletic/6206481/2025/03/16/maple-leafs-senators-season-nhl-playoffs/
-
-**Dick Vitale tears up reflecting on ESPN return after battling cancer: 'It's been unbelievable'**\
-`Vitale missed almost two full college basketball seasons due to an extensive cancer battle.`\
-https://nytimes.com/athletic/6206483/2025/03/16/dick-vitale-espn-return-cancer-emotional-moment/
 

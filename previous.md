@@ -1,3 +1,7 @@
+**Manchester City and life after Gareth Taylor: A dismissal, a week of change and a cup final lost**\
+`The manner of City's defeat to Chelsea was cruel on a squad who have experienced plenty of change this week. Here's the inside story`\
+https://nytimes.com/athletic/6204813/2025/03/16/manchester-city-gareth-taylor-cushing-league-cup-final/
+
 **How Brighton proved against Man City they are Champions League ready**\
 `Hurzeler has put Brighton in contention to reach Europe's top competition - they have as good a chance as anyone`\
 https://nytimes.com/athletic/6205359/2025/03/16/brighton-man-city-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206481/2025/03/16/maple-leafs-senators-season-nhl-
 **Dick Vitale tears up reflecting on ESPN return after battling cancer: 'It's been unbelievable'**\
 `Vitale missed almost two full college basketball seasons due to an extensive cancer battle.`\
 https://nytimes.com/athletic/6206483/2025/03/16/dick-vitale-espn-return-cancer-emotional-moment/
-
-**Why Maids Keep Dying in Saudi Arabia**\
-`East African leaders and Saudi royals are among those profiting off a lucrative, deadly trade in domestic workers.`\
-https://nytimes.com/2025/03/16/world/africa/saudi-arabia-kenya-uganda-maids-women.html
 
