@@ -1,3 +1,11 @@
+**Travis Konecny's dreadful slump is as surprising at it is concerning**\
+`The Flyers’ most consistent offensive weapon for the past few years is in a woeful scoring slump with just one goal in his last 21 games.`\
+https://nytimes.com/athletic/6206351/2025/03/15/flyers-travis-konecny-slump/
+
+**Without Cooper Flagg, Duke grinds out first ACC title sweep since 2006**\
+`Saturday's victory was not only a testament to the Blue Devils' talent but also a sign of their depth.`\
+https://nytimes.com/athletic/6206422/2025/03/15/duke-acc-tournament-champions-louisville/
+
 **Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
 `The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-sp
 **St. John's tops Creighton to win Big East tournament title, lock up NCAA bid**\
 `St. John's improved to 12-0 at Madison Square Garden and will head into the NCAA Tournament likely as a No. 2 seed.`\
 https://nytimes.com/athletic/6206244/2025/03/15/st-johns-creighton-mens-basketball-big-east-championship/
-
-**No Corrections: March 16, 2025**\
-`No corrections appeared in print on Sunday, March 16, 2025.`\
-https://nytimes.com/2025/03/15/pageoneplus/no-corrections-march-16-2025.html
-
-**The Players broke (nearly) everyone Saturday. Who can get it together Sunday?**\
-`Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
-https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
 
