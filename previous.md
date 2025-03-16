@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Toronto unable to match Ottawa’s urgency and desperation**\
+`The Maple Leafs looked disconnected and disorganized as the Senators beat Toronto 4-2 to sweep the regular-season series.
+`\
+https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
+
 **At Gridiron Dinner, Jokes About Trump, Musk and Russia Abound**\
 `But President Trump wasn’t around to hear any of the barbs thrown at the annual D.C. event.`\
 https://nytimes.com/2025/03/15/us/politics/gridiron-dinner-trump-musk-russia-moore.html
@@ -33,8 +38,4 @@ https://nytimes.com/2025/03/15/pageoneplus/no-corrections-march-16-2025.html
 **The Players broke (nearly) everyone Saturday. Who can get it together Sunday?**\
 `Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
 https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
-
-**Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
-`"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
-https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
 
