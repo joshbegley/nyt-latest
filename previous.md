@@ -1,3 +1,23 @@
+**How a Columbia Student Activist Landed in Federal Detention**\
+`Mahmoud Khalil never shielded his face with a mask the way some protesters did. That made him a target when President Trump decided to move aggressively against campus activists.`\
+https://nytimes.com/2025/03/16/nyregion/mahmoud-khalil-columbia-university.html
+
+**Glimpsing a Ferry Terminal’s Faded Grandeur Before Beauty Is Restored**\
+`Hoboken’s busy transit hub, which dates to a time when railroad companies built lavish structures to serve passengers, is being renovated.`\
+https://nytimes.com/2025/03/16/nyregion/hoboken-ferry-terminal.html
+
+**‘We Planned a Rare Date Night Out and Found a Friend to Babysit’**\
+`Seeing stars on the Upper East Side, a spare pen to the rescue and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/03/16/nyregion/metropolitan-diary.html
+
+**When Brands Need a Truly Wild Shoe, They Hire This Man**\
+`Shoes with teeth. Shoes with soles at right angles. Shoes made from two shoes. Shintaro Yamamoto is the footwear Dr. Frankenstein behind them all.`\
+https://nytimes.com/2025/03/16/style/mens-shoes-shintaro-yamamoto-kids-love-gaite.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/16/crosswords/spelling-bee-forum.html
+
 **Jordan Poole's Wizards stun Nikola Jokic's Nuggets: 'Just get me the ball'**\
 `With rookies Alex Sarr, Kyshawn George and Bub Carrington improving, the Wizards have won six of their last 10 games.`\
 https://nytimes.com/athletic/6206622/2025/03/16/jordan-poole-alex-sarr-wizards-beat-nuggets/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experien
 **Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
 `"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
 https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
-
-**Leeds stared into abyss again at Loftus Road - what does their recovery mean for promotion hopes?**\
-`For Leeds, the ghosts of disasters past are plentiful at QPR. Farke wanted an exorcism. It wasn't quite, but there was fight to build on`\
-https://nytimes.com/athletic/6205681/2025/03/16/leeds-qpr-promotion-championship/
-
-**Seething Pistons coach Bickerstaff 'disgusted' by officiating in loss to Thunder**\
-`DETROIT — The box score sitting on the postgame podium stood no chance against Detroit Pistons (37-31) coach J.`\
-https://nytimes.com/athletic/6206579/2025/03/16/pistons-lose-bickerstaff-officiating/
-
-**Nottingham Forest Women: Their mission to return to the top a decade after nearly folding**\
-`How the women's team at Forest are recovering from past neglect and trying to get themselves back into the WSL`\
-https://nytimes.com/athletic/6193297/2025/03/16/inside-nottingham-forest-women/
-
-**Canucks offense breaks out in rout of Blackhawks: 3 takeaways**\
-`Vancouver took care of business without drama or suspense Saturday night, soundly defeating Chicago 6-2.`\
-https://nytimes.com/athletic/6206530/2025/03/16/canucks-offense-win-blackhawks/
-
-**Liverpool vs Newcastle: Predictions, talking points and the stars to watch in the Carabao Cup final**\
-`Our Liverpool and Newcastle reporters discuss the hopes, dreams and worries of each club going into this weekend's Wembley showpiece`\
-https://nytimes.com/athletic/6203332/2025/03/16/carabao-cup-final-liverpool-newcastle-salah-isak/
 
