@@ -1,3 +1,7 @@
+**The Briefing: Atletico 2 Barcelona 4 - Yamal, Torres put Barca in control of La Liga title race**\
+`Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
+https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
+
 **Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
 `Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
 https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/

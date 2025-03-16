@@ -1,3 +1,7 @@
+**Auburn earns No. 1 overall seed in men's NCAA Tournament**\
+`The Tigers (28-5) are a No. 1 seed for just the second time in program history.`\
+https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
+
 **The Briefing: Atletico 2 Barcelona 4 - Yamal, Torres put Barca in control of La Liga title race**\
 `Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
 https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/us/politics/trump-gridiron-club-dinner.html
 **Map: 5.5-Magnitude Earthquake Strikes Ethiopia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/16/weather/ethiopia-quake-tracker.html
-
-**Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
-`Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
-https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
 
