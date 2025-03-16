@@ -1,3 +1,7 @@
+**The Briefing: Leicester 0 Manchester United 3 - Hojlund and Garnacho end goal droughts, Heaven off on a stretcher**\
+`Charlotte Harpur breaks down the main talking points from Manchester United's 3-0 win over Leicester City`\
+https://nytimes.com/athletic/6206945/2025/03/16/leicester-0-manchester-united-3-hojlund-garnacho-heaven/
+
 **Monday Briefing: U.S. Deports Hundreds in Face of a Court Order**\
 `Plus, shadows light up Iranian history.`\
 https://nytimes.com/2025/03/16/briefing/us-deportations-ukraine-retreat-kenya-saudi-arabia.html
