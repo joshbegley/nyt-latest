@@ -1,5 +1,13 @@
-**How Zibanejad's aggressiveness helped Rangers bounce back vs. Blue Jackets: 4 takeaways**\
-`Strong defense and more good goaltending helped the Rangers beat Columbus 4-0 and put the team in a playoff position.`\
+**Blue Jackets look nervous, panicked vs. Rangers as they fall out of playoff spot**\
+`Columbus, one of the NHL's highest-scoring clubs all season, has now endured three shutouts in its last five games.`\
+https://nytimes.com/athletic/6206283/2025/03/15/blue-jackets-rangers-nhl-playoffs/
+
+**Making the NCAA Tournament is hard. UC San Diego kicked the door down**\
+`The Tritons could become the first Division I newcomer to make the tournament on its first try since Northern Kentucky in 2017.`\
+https://nytimes.com/athletic/6192140/2025/03/15/uc-san-diego-ncaa-tournament-eric-olen/
+
+**Zibanejad's aggressiveness helps Rangers bounce back vs. Blue Jackets: 4 takeaways**\
+`Strong defense and more good goaltending helped the Rangers beat the Blue Jackets 4-0 and put New York in a playoff position.`\
 https://nytimes.com/athletic/6206382/2025/03/15/rangers-blue-jackets-playoffs-mika-zibanejad/
 
 **Kristaps Porziņģis returns from mysterious illness to rescue Celtics in win over Nets**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6206363/2025/03/15/bruins-lightning-morgan-geekie/
 **New Zealand surges to top spot at Rolex Los Angeles Sail Grand Prix**\
 `After four frenetic two-lap races, the United States finished the day in seventh place.`\
 https://nytimes.com/athletic/6206272/2025/03/15/rolex-los-angeles-sail-grand-prix-results-day-one/
-
-**Jordan Mason trade grades: Vikings build solid 1-2 punch at RB; 49ers' playing long game**\
-`Mason is a great fit in Minnesota and will provide quality insurance for 30-year-old lead back Aaron Jones. `\
-https://nytimes.com/athletic/6206257/2025/03/15/jordan-mason-trade-grade-vikings-49ers/
-
-**49ers trade RB Jordan Mason to Vikings: Source**\
-`Before suffering an ankle injury in Week 13, Mason accumulated 789 yards and three touchdowns on 153 carries. `\
-https://nytimes.com/athletic/6206273/2025/03/15/49ers-jordan-mason-vikings-trade/
 
