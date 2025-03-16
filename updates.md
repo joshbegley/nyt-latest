@@ -1,3 +1,7 @@
+**Eat These Easy Noodles for Breakfast, Lunch or Dinner**\
+`Or breakfast, lunch and dinner. These soy sauce noodles with cabbage and fried eggs are that good.`\
+https://nytimes.com/2025/03/16/dining/easy-noodles-breakfast-lunch-dinner.html
+
 **Trump Sends Hundreds of Venezuelans to El Salvador in Face of Judge’s Order**\
 `President Nayib Bukele of El Salvador announced that his country had taken in more than 200 prisoners whom the U.S. has accused of being part of the Tren de Aragua gang.`\
 https://nytimes.com/2025/03/16/us/politics/trump-venezuelans-deportations-el-salvador.html
