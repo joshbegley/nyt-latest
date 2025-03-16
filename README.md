@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6206993/2025/03/16/draper-rune-indian-wells-final-r
 `The Red Wings' shutout win over Vegas was among Detroit's most complete showings of the season.`\
 https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lucas-raymond-golden-knights/
 
-**Auburn, Duke, Houston earn No. 1 seeds in men's NCAA Tournament**\
+**SEC breaks record with 14 teams in men's NCAA Tournament; see full bracket**\
 `The Tigers (28-5) are a No. 1 seed for just the second time in program history.`\
 https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
 
