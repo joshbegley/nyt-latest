@@ -1,3 +1,7 @@
+**Bubble watch: All eyes on Memphis, VCU on Selection Sunday**\
+`It's the day of reckoning for bubble squads across the country, and Saturday’s games produced mixed results for the teams sweating it out.`\
+https://nytimes.com/athletic/6206373/2025/03/16/mens-college-basketball-bubble-memphis-vcu-selection-sunday/
+
 **Nightclub Fire Kills at Least 51 in North Macedonia**\
 `The tragedy occurred after fireworks set the club’s roof on fire during a pop concert, the country’s interior minister said.`\
 https://nytimes.com/2025/03/16/world/europe/north-macedonia-club-fire.html
