@@ -1,3 +1,7 @@
+**Milos Uzan, Houston outlast Arizona for Big 12 tournament championship**\
+`Houston completed a sweep of the Big 12's regular-season and tournament titles, with an Oklahoma transfer growing into an X-factor.`\
+https://nytimes.com/athletic/6206158/2025/03/15/houston-big-12-tournament-milos-uzan-arizona/
+
 **What Is Tren de Aragua?**\
 `A gang with roots in a Venezuelan prison, the criminal group was at the center of President Trump’s order invoking the Alien Enemies Act of 1798.`\
 https://nytimes.com/2025/03/15/world/americas/tren-de-aragua-gang-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205982/2025/03/15/sabres-golden-knights-rasmus-dah
 **Tennessee beats Auburn, Florida crushes Alabama in SEC semis: The No. 1 seed implications**\
 `Florida’s latest show of dominance should cement a No. 1 seed for the Gators, win or lose tomorrow in the SEC tournament championship game. `\
 https://nytimes.com/athletic/6205975/2025/03/15/sec-tournament-no-1-seed-tennessee-auburn-florida/
-
-**Have It Both Ways**\
-`Paul Coulter’s puzzle will have you looking up, down and all around.`\
-https://nytimes.com/2025/03/15/crosswords/daily-puzzle-2025-03-16.html
 

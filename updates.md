@@ -1,3 +1,7 @@
+**A judge moves to immediately halt deportations, ordering any planes be turned around.**\
+`The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
+https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
+
 **What Is Tren de Aragua?**\
 `A gang with roots in a Venezuelan prison, the criminal group was at the center of President Trump’s order invoking the Alien Enemies Act of 1798.`\
 https://nytimes.com/2025/03/15/world/americas/tren-de-aragua-gang-venezuela.html
