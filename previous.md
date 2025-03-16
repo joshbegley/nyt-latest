@@ -1,3 +1,7 @@
+**At Gridiron Dinner, Jokes About Trump, Musk and Russia Abound**\
+`But President Trump wasn’t around to hear any of the barbs thrown at the annual D.C. event.`\
+https://nytimes.com/2025/03/15/us/politics/gridiron-dinner-trump-musk-russia-moore.html
+
 **Morgan Geekie, a new core and identifying who will be part of it**\
 `Geekie is part of the Bruins' rebuild. Can he take another step to become an even bigger offensive threat?`\
 https://nytimes.com/athletic/6206363/2025/03/15/bruins-lightning-morgan-geekie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-go
 **Jack Draper upsets Carlos Alcaraz to reach Indian Wells final**\
 `"Incredible," Draper said, "to beat Carlos Alcaraz on this court."`\
 https://nytimes.com/athletic/6205445/2025/03/15/alcaraz-draper-indian-wells-result-analysis/
-
-**Yohe's 10 observations: Penguins — out of nowhere — have won 4 straight games**\
-`The Penguins are indeed mathematically alive for the playoffs and they've been winning against high-caliber competition.`\
-https://nytimes.com/athletic/6205970/2025/03/15/penguins-devils-win-streak-nhl-playoffs/
 

@@ -1,3 +1,7 @@
+**At Gridiron Dinner, Jokes About Trump, Musk and Russia Abound**\
+`But President Trump wasn’t around to hear any of the barbs thrown at the annual D.C. event.`\
+https://nytimes.com/2025/03/15/us/politics/gridiron-dinner-trump-musk-russia-moore.html
+
 **Morgan Geekie, a new core and identifying who will be part of it**\
 `Geekie is part of the Bruins' rebuild. Can he take another step to become an even bigger offensive threat?`\
 https://nytimes.com/athletic/6206363/2025/03/15/bruins-lightning-morgan-geekie/
