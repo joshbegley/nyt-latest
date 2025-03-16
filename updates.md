@@ -1,3 +1,7 @@
+**Warriors crank up defense and beat Knicks for 7th straight win: 5 observations**\
+`Golden State's win streak puts them in the sixth seed for the playoffs with a month left in the regular season.`\
+https://nytimes.com/athletic/6206586/2025/03/16/warriors-seventh-straight-win/
+
 **Norris wins, rain causes chaos, six crash out - F1 Australian Grand Prix briefing**\
 `McLaren's Lando Norris wins a chaotic, rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
 https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefing/
