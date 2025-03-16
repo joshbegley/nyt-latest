@@ -1,8 +1,20 @@
+**Michigan staves off Wisconsin 59-53 to claim Big Ten tournament title**\
+`In a game that featured seven lead changes and seven ties, guts and toughness earned Michigan its first NCAA tournament berth since 2022`\
+https://nytimes.com/athletic/6207917/2025/03/16/michigan-wisconsin-mens-basketball-big-ten-championship/
+
+**Scenes From Eight States Battered by Weekend Storms**\
+`A survey of the damage from a cross-country storm system that tore through the South and Midwest over the weekend.`\
+https://nytimes.com/2025/03/16/us/storms-south-midwest-tornado-photos-video.html
+
+**Game, Set, Match: Jack Draper routs Holger Rune to win Indian Wells title**\
+`Draper's first-serve potency and a bad day on court for Rune took the Brit to a first 1,000-level title with relative ease.`\
+https://nytimes.com/athletic/6206993/2025/03/16/draper-rune-indian-wells-final-result-analysis/
+
 **Mrazek's shutout powers Red Wings as Raymond breaks drought: 5 thoughts**\
 `The Red Wings' shutout win over Vegas was among Detroit's most complete showings of the season.`\
 https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lucas-raymond-golden-knights/
 
-**Auburn, Duke earn No. 1 seeds in men's NCAA Tournament**\
+**Auburn, Duke, Houston earn No. 1 seeds in men's NCAA Tournament**\
 `The Tigers (28-5) are a No. 1 seed for just the second time in program history.`\
 https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/16/world/middleeast/israel-netanyahu-firing-intellig
 **What I'm hearing about the Mets' early-season pitching plans**\
 `After Clay Holmes starts Opening Day in Houston, the Mets are likely to start right-handers Tylor Megill and Griffin Canning next.`\
 https://nytimes.com/athletic/6207728/2025/03/16/mets-early-season-pitching-plans/
-
-**Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
-`Short-handed Orlando stuns Cleveland, a team it could be in line to meet in the first round of the NBA playoffs.`\
-https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
-
-**Zach Dezenzo and Cam Smith need everyday at-bats. When will they get them in the majors?**\
-`Dezenzo and Smith are putting up strong numbers in spring training, but Joe Espada doesn't want to put young players in part-time roles. `\
-https://nytimes.com/athletic/6207771/2025/03/16/astros-zack-dezenzo-cam-smith-opening-day-roster/
-
-**A Clubby Washington Tradition Carries On Uncomfortably Without Trump**\
-`President Trump and most members of his administration steered clear of the annual Gridiron Club dinner on Saturday, where politicians and the press usually toast and lightly roast one another.`\
-https://nytimes.com/2025/03/16/us/politics/trump-gridiron-club-dinner.html
 

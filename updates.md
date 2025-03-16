@@ -1,3 +1,15 @@
+**Mrazek's shutout powers Red Wings as Raymond breaks drought: 5 thoughts**\
+`The Red Wings' shutout win over Vegas was among Detroit's most complete showings of the season.`\
+https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lucas-raymond-golden-knights/
+
+**Auburn, Duke earn No. 1 seeds in men's NCAA Tournament**\
+`The Tigers (28-5) are a No. 1 seed for just the second time in program history.`\
+https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
+
+**The Briefing: Atletico 2 Barcelona 4 - Late Yamal and Torres goals seize control of title race**\
+`Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
+https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
+
 **The Briefing: Atletico 2 Barcelona 4 - Yamal, Torres put Barca in control of La Liga title race**\
 `Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
 https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
