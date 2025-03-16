@@ -1,3 +1,7 @@
+**Players Championship analysis: What to know about J.J. Spaun, Bud Cauley and more**\
+`Spaun will have to break an ominous run of players who held a solo, one-shot lead through 54 holes at this championship.`\
+https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-spaun-cauley/
+
 **St. John's tops Creighton to win Big East tournament title, lock up NCAA bid**\
 `St. John's improved to 12-0 at Madison Square Garden and will head into the NCAA Tournament likely as a No. 2 seed.`\
 https://nytimes.com/athletic/6206244/2025/03/15/st-johns-creighton-mens-basketball-big-east-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gre
 **Emotional Mikko Rantanen clears the air on departure from Avalanche: 'I never wanted to leave'**\
 `"I told them I'll be flexible and I want to play here for a long time. Then a couple days later they traded me," Rantanen said Saturday.`\
 https://nytimes.com/athletic/6206058/2025/03/15/stars-mikko-rantanen-avalanche-hurricanes/
-
-**Garrett Crochet Opening Day starter; Rafael Devers, Wilyer Abreu play first spring game**\
-`"I hope to shoulder all the responsibilities that come with it with pride and just lead this team," Crochet said.`\
-https://nytimes.com/athletic/6205964/2025/03/15/red-sox-garrett-crochet-opening-day-starter/
 
