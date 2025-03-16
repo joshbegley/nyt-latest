@@ -1,4 +1,4 @@
-**Palmer out of Chelsea squad for trip to Arsenal**\
+**Palmer out of Chelsea squad vs. Arsenal with injury**\
 `The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
 https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
 
