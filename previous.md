@@ -1,3 +1,7 @@
+**Quinton Byfield could be the difference-maker the Kings need in the playoffs**\
+`Byfield, whose development has been uneven at times, now has scored in a career-high six consecutive games.`\
+https://nytimes.com/athletic/6206723/2025/03/16/byfield-kings-goal-streak/
+
 **Donald 'Slick' Watts, Sonics and Seattle legend, dies at 73**\
 `The point guard, known for his smile, shaved head and headbands, was a fan favorite in Seattle.`\
 https://nytimes.com/athletic/6206973/2025/03/16/donald-slick-watts-sonics-seattle-dies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/us/politics/trump-venezuelans-deportations-el-sal
 **Women's March Madness 2025 Selection Sunday: How to watch, who will be No. 1 seeds?**\
 `What are the tournament sites? Can the tournament build on last year's success?`\
 https://nytimes.com/athletic/6201044/2025/03/16/womens-march-madness-2025-selection-sunday-how-to-watch/
-
-**Lowetide: Is the Oilers' AHL team equipped to help the NHL team soon?**\
-`Edmonton's real prospects in the AHL are easy to spot because they are rare at the moment.`\
-https://nytimes.com/athletic/6205608/2025/03/16/oilers-recalls-savoie-2025/
 

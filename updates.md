@@ -1,3 +1,7 @@
+**Quinton Byfield could be the difference-maker the Kings need in the playoffs**\
+`Byfield, whose development has been uneven at times, now has scored in a career-high six consecutive games.`\
+https://nytimes.com/athletic/6206723/2025/03/16/byfield-kings-goal-streak/
+
 **Donald 'Slick' Watts, Sonics and Seattle legend, dies at 73**\
 `The point guard, known for his smile, shaved head and headbands, was a fan favorite in Seattle.`\
 https://nytimes.com/athletic/6206973/2025/03/16/donald-slick-watts-sonics-seattle-dies/
