@@ -1,4 +1,4 @@
-**Facing Trump Tariffs, China Outlines Plan to Bolster Economy**\
+**Facing Trump Tariffs, China Outlines Plan to Bolster the Economy**\
 `Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
 https://nytimes.com/2025/03/16/business/china-consumption.html
 

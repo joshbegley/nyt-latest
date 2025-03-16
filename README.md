@@ -1,3 +1,11 @@
+**Palmer out of Chelsea squad for trip to Arsenal**\
+`The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
+https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
+
+**Ukraine Retreats From All but a Sliver of Land in Russia’s Kursk Region**\
+`The daring campaign Ukraine launched last summer to seize and occupy Russian territory appears to be nearing an end.`\
+https://nytimes.com/2025/03/16/world/europe/kursk-russia-ukraine.html
+
 **Facing Trump Tariffs, China Outlines Plan to Bolster the Economy**\
 `Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
 https://nytimes.com/2025/03/16/business/china-consumption.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/world/europe/north-macedonia-club-fire.html
 **How 'incredible' Jake O'Brien became a top 2025 NHL Draft prospect**\
 `O'Brien has ascended to the top of the 2025 class and has a chance to be a top-10 pick at the draft in June.`\
 https://nytimes.com/athletic/6200636/2025/03/16/jake-obrien-2025-nhl-draft/
-
-**Jalen Brunson to Michigan State? Knicks players reveal the college they almost attended**\
-`We all know where the likes of Brunson and Josh Hart attended college. But what was option No. 2? They reveal.`\
-https://nytimes.com/athletic/6205392/2025/03/16/march-madness-2025-knicks-college-jalen-brunson/
-
-**Mayor Adams’s Biggest Backer in the State Capitol Endorses Cuomo**\
-`Rodneyse Bichotte Hermelyn, chairwoman of the Brooklyn Democratic Party, had been one of the mayor’s staunchest supporters.`\
-https://nytimes.com/2025/03/16/nyregion/rodneyse-bichotte-hermelyn-cuomo-adams.html
 
