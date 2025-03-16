@@ -1,3 +1,7 @@
+**No Corrections: March 16, 2025**\
+`No corrections appeared in print on Sunday, March 16, 2025.`\
+https://nytimes.com/2025/03/15/pageoneplus/no-corrections-march-16-2025.html
+
 **The Players broke (nearly) everyone Saturday. Who can get it together Sunday?**\
 `Swirling winds made life difficult all day, and for an hour on the back nine nearly the entire field fell into disarray.`\
 https://nytimes.com/athletic/6206123/2025/03/15/players-championship-saturday-golf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6205964/2025/03/15/red-sox-garrett-crochet-opening-
 **Holger Rune outfoxes and upsets Daniil Medvedev to reach Indian Wells final**\
 `Rune kept Medvedev off-balance all afternoon, beating him 7-5, 6-4 to earn a spot in Sunday's final. `\
 https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-result-analysis/
-
-**Duke's Cooper Flagg to be available for NCAA Tournament**\
-`Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
-https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
 
