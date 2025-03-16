@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 1 Newcastle 2 - 70 years of hurt ended as Slot's side fall flat**\
+`Analysing the major discussion points from today's Carabao Cup final at Wembley`\
+https://nytimes.com/athletic/6203910/2025/03/16/newcastle-liverpool-carabao-cup-final-analysis/
+
+**Ravens free-agency tracker: QB Cooper Rush agrees to 2-year deal**\
+`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188842/2025/03/16/ravens-free-agency-tracker-signings-trades/
+
 **Airman Charged in Killing of Woman Missing Since August**\
 `Sahela Sangrait, 21, was murdered at Ellsworth Air Force Base in South Dakota, officials said; her body was found this month nearly 40 miles away.`\
 https://nytimes.com/2025/03/16/us/air-force-murder-ellsworth-south-dakota.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6206723/2025/03/16/byfield-kings-goal-streak/
 **Donald 'Slick' Watts, Sonics and Seattle legend, dies at 73**\
 `The point guard, known for his smile, shaved head and headbands, was a fan favorite in Seattle.`\
 https://nytimes.com/athletic/6206973/2025/03/16/donald-slick-watts-sonics-seattle-dies/
-
-**The Briefing: Fulham 2 Tottenham 0 - Tel struggles and is Europe only thing keeping Postecoglou safe?**\
-`Our writers analyse and evaluate all the key talking points following Tottenham's loss to Fulham in the Premier League`\
-https://nytimes.com/athletic/6200009/2025/03/16/fulham-tottenham-postecoglou-premier-league-europa-league/
-
-**Children Try to Cheer Pope Francis During His Hospital Stay**\
-`Dozens of young people gathered under the pontiff’s windows at the Gemelli hospital to offer wishes for a quick recovery.`\
-https://nytimes.com/2025/03/16/world/europe/children-cheer-pope-francis-hospital.html
 

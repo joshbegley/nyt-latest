@@ -1,3 +1,7 @@
+**Airman Charged in Killing of Woman Missing Since August**\
+`Sahela Sangrait, 21, was murdered at Ellsworth Air Force Base in South Dakota, officials said; her body was found this month nearly 40 miles away.`\
+https://nytimes.com/2025/03/16/us/air-force-murder-ellsworth-south-dakota.html
+
 **A Cornell graduate student fearing deportation files a pre-emptive lawsuit.**\
 `A doctoral student from Gambia sued the Trump administration on First Amendment grounds over two Trump executive orders aimed at pro-Palestinian activism.`\
 https://nytimes.com/live/2025/03/16/us/trump-news/cornell-lawsuit-activist-deport-momoduo-taal
