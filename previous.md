@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6205444/2025/03/15/medvedev-rune-indian-wells-resul
 `Flagg missed his first game all season Friday when Duke defeated rival North Carolina.`\
 https://nytimes.com/athletic/6206032/2025/03/15/duke-cooper-flagg-injury-ncaa-tournament/
 
-**A judge moves to halt deportations under a rarely used 1798 law.**\
+**The president ordered deportations under a rarely used 1798 law.**\
 `The order declared that unauthorized Venezuelan immigrants who are at least 14 years old and part of the Tren de Aragua gang can be “apprehended, restrained, secured and removed.”`\
 https://nytimes.com/live/2025/03/15/us/trump-news/trump-alien-enemies-act-deportations-venezuelans
 
