@@ -1,5 +1,5 @@
 **Storm Risk Shifts to East Coast**\
-`Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from northern Florida to central Virginia. The weather system also spawned deadly tornadoes in the Midwest and South.`\
+`Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from Central Florida to western Pennsylvania. The weather system also spawned deadly tornadoes in the Midwest and South.`\
 https://nytimes.com/2025/03/16/weather/tornado-storm-forecast-south.html
 
 **Law: Scouting notes from the Giants-Rangers Spring Breakout game**\
