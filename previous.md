@@ -1,3 +1,7 @@
+**How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
+`At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
+https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html
+
 **Florida beats Tennessee for SEC tournament title, sends warning: Beware of Gators**\
 `The SEC is historically good this season, yet no one could hang with the Gators in the conference tournament in Nashville. `\
 https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203910/2025/03/16/newcastle-liverpool-carabao-cup-
 **Ravens free-agency tracker: QB Cooper Rush agrees to 2-year deal**\
 `Analyzing all of Baltimore's moves as the 2025 league year begins. `\
 https://nytimes.com/athletic/6188842/2025/03/16/ravens-free-agency-tracker-signings-trades/
-
-**Airman Charged in Killing of Woman Missing Since August**\
-`Sahela Sangrait, 21, was murdered at Ellsworth Air Force Base in South Dakota, officials said; her body was found this month nearly 40 miles away.`\
-https://nytimes.com/2025/03/16/us/air-force-murder-ellsworth-south-dakota.html
 

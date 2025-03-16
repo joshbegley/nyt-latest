@@ -1,3 +1,7 @@
+**How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
+`At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
+https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html
+
 **Florida beats Tennessee for SEC tournament title, sends warning: Beware of Gators**\
 `The SEC is historically good this season, yet no one could hang with the Gators in the conference tournament in Nashville. `\
 https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament-title/
