@@ -1,3 +1,15 @@
+**Donald 'Slick' Watts, Sonics and Seattle legend, dies at 73**\
+`The point guard, known for his smile, shaved head and headbands, was a fan favorite in Seattle.`\
+https://nytimes.com/athletic/6206973/2025/03/16/donald-slick-watts-sonics-seattle-dies/
+
+**The Briefing: Fulham 2 Tottenham 0 - Tel struggles and is only Europa League keeping Postecoglou safe?**\
+`Our writers analyse and evaluate all the key talking points following Tottenham's loss to Fulham in the Premier League`\
+https://nytimes.com/athletic/6200009/2025/03/16/fulham-tottenham-postecoglou-premier-league-europa-league/
+
+**Children Try to Cheer Pope Francis During His Hospital Stay**\
+`Dozens of young people gathered under the pontiff’s windows at the Gemelli hospital to offer wishes for a quick recovery.`\
+https://nytimes.com/2025/03/16/world/europe/children-cheer-pope-francis-hospital.html
+
 **Arsenal 1 Chelsea 0: Stand-in Merino seals another win, absent Palmer is missed - The Briefing**\
 `Writers from both teams break down the action from a feisty London derby at the Emirates.`\
 https://nytimes.com/athletic/6200007/2025/03/16/arsenal-chelsea-martinelli-sanchez/
