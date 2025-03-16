@@ -1,3 +1,12 @@
+**How Zibanejad's aggressiveness helped Rangers bounce back vs. Blue Jackets: 4 takeaways**\
+`Strong defense and more good goaltending helped the Rangers beat Columbus 4-0 and put the team in a playoff position.`\
+https://nytimes.com/athletic/6206382/2025/03/15/rangers-blue-jackets-playoffs-mika-zibanejad/
+
+**Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
+`The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
+`\
+https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
+
 **Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
 `The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
 `\
