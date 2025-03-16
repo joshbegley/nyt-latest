@@ -1,3 +1,7 @@
+**Jordan Mason trade grades: Vikings build solid 1-2 punch at RB; 49ers' playing long game**\
+`Mason is a great fit in Minnesota and will provide quality insurance for 30-year-old lead back Aaron Jones. `\
+https://nytimes.com/athletic/6206257/2025/03/15/jordan-mason-trade-grade-vikings-49ers/
+
 **49ers trade RB Jordan Mason to Vikings: Source**\
 `Before suffering an ankle injury in Week 13, Mason accumulated 789 yards and three touchdowns on 153 carries. `\
 https://nytimes.com/athletic/6206273/2025/03/15/49ers-jordan-mason-vikings-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206158/2025/03/15/houston-big-12-tournament-milos-
 **What Is Tren de Aragua?**\
 `A gang with roots in a Venezuelan prison, the criminal group was at the center of President Trump’s order invoking the Alien Enemies Act of 1798.`\
 https://nytimes.com/2025/03/15/world/americas/tren-de-aragua-gang-venezuela.html
-
-**Alex Ovechkin 8 goals away from breaking Wayne Gretzky's record with No. 887**\
-`The Washington Capitals superstar continued to close in on Wayne Gretzky’s longstanding record of 894 career NHL goals.`\
-https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gretzky/
 
