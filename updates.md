@@ -1,3 +1,7 @@
+**Twins' Royce Lewis suffers strained hamstring 11 days before season opener**\
+`This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
+https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamstring/
+
 **Intense Storms Spawn Destructive Tornadoes in the Southern U.S.**\
 `More than 20 people were killed in the storms that ripped across Alabama, Arkansas, Mississippi and Missouri.`\
 https://nytimes.com/video/weather/100000010055205/storms-tornadoes-southern-us.html

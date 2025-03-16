@@ -1,3 +1,7 @@
+**Twins' Royce Lewis suffers strained hamstring 11 days before season opener**\
+`This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
+https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamstring/
+
 **Intense Storms Spawn Destructive Tornadoes in the Southern U.S.**\
 `More than 20 people were killed in the storms that ripped across Alabama, Arkansas, Mississippi and Missouri.`\
 https://nytimes.com/video/weather/100000010055205/storms-tornadoes-southern-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206443/2025/03/16/tiger-woods-achilles-nwsl-return
 **SpaceX Capsule Docks in Space, Paving the Way for Astronauts’ Return**\
 `A SpaceX capsule docked at the International Space Station, bringing a replacement crew for Suni Williams and Butch Wilmore to return home after an unexpectedly long stay in orbit.`\
 https://nytimes.com/2025/03/16/us/spacex-iss-nasa-astronauts-return.html
-
-**Quinton Byfield could be the difference-maker the Kings need in the playoffs**\
-`Byfield, whose development has been uneven at times, now has scored in a career-high six consecutive games.`\
-https://nytimes.com/athletic/6206723/2025/03/16/byfield-kings-goal-streak/
 

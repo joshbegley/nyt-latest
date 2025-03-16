@@ -1,3 +1,7 @@
+**As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
+`President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
+https://nytimes.com/live/2025/03/16/us/trump-news/voa-trump-dismantle
+
 **Twins' Royce Lewis suffers strained hamstring 11 days before season opener**\
 `This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
 https://nytimes.com/athletic/6207383/2025/03/16/twins-royce-lewis-strained-hamstring/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/us/politics/nita-m-lowey-dead.html
 **The Pulse: Tiger Woods finally meets the end?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6206443/2025/03/16/tiger-woods-achilles-nwsl-return-the-pulse/
-
-**SpaceX Capsule Docks in Space, Paving the Way for Astronauts’ Return**\
-`A SpaceX capsule docked at the International Space Station, bringing a replacement crew for Suni Williams and Butch Wilmore to return home after an unexpectedly long stay in orbit.`\
-https://nytimes.com/2025/03/16/us/spacex-iss-nasa-astronauts-return.html
 
