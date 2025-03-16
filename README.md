@@ -1,3 +1,11 @@
+**A Clubby Washington Tradition Carries On Uncomfortably Without Trump**\
+`President Trump and most members of his administration steered clear of the annual Gridiron Club dinner on Saturday, where politicians and the press usually toast and lightly roast one another.`\
+https://nytimes.com/2025/03/16/us/politics/trump-gridiron-club-dinner.html
+
+**Map: 5.5-Magnitude Earthquake Strikes Ethiopia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/16/weather/ethiopia-quake-tracker.html
+
 **Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
 `Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
 https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6206991/2025/03/16/sabalenka-andreeva-indian-wells-
 **One Devastating Storm System: What to Know About the Havoc**\
 `The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
 https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
-
-**Forest's Gibbs-White added to England squad**\
-`Gibbs-White has registered five goals and seven assists in 25 Premier League games for Forest this season.`\
-https://nytimes.com/athletic/6207588/2025/03/16/morgan-gibbs-white-england-squad-forest/
-
-**How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
-`At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
-https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html
 
