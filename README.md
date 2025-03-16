@@ -1,3 +1,7 @@
+**Mak Whitham, 14, becomes youngest player in NWSL history**\
+`Whitham was also the youngest women's soccer player to sign an NIL deal with Nike.`\
+https://nytimes.com/athletic/6207874/2025/03/16/gotham-nwsl-mak-whitham-debut/
+
 **Napheesa Collier named MVP of Unrivaled's inaugural season**\
 `Angel Reese is named Unrivaled's Defensive Player of the Year, DJ Sackmann earns Coach of the Year honor.`\
 https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207917/2025/03/16/michigan-wisconsin-mens-basketba
 **Scenes From Eight States Battered by Weekend Storms**\
 `A survey of the damage from a cross-country storm system that tore through the South and Midwest over the weekend.`\
 https://nytimes.com/2025/03/16/us/storms-south-midwest-tornado-photos-video.html
-
-**Game, Set, Match: Jack Draper routs Holger Rune to win Indian Wells title**\
-`Draper's first-serve potency and a bad day on court for Rune took the Brit to a first 1,000-level title with relative ease.`\
-https://nytimes.com/athletic/6206993/2025/03/16/draper-rune-indian-wells-final-result-analysis/
 
