@@ -1,3 +1,11 @@
+**Gene Winfield, Whose Cars Starred in Film and on TV, Dies at 97**\
+`He was know for modifying cars with innovative metal work and paint jobs, and for building vehicles like the Galileo shuttle for the original “Star Trek” series.`\
+https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
+
+**As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
+`President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
+https://nytimes.com/2025/03/16/business/voa-trump-dismantle.html
+
 **As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
 `President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
 https://nytimes.com/live/2025/03/16/us/trump-news/voa-trump-dismantle

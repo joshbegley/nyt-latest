@@ -1,6 +1,10 @@
+**Gene Winfield, Whose Cars Starred in Film and on TV, Dies at 97**\
+`He was know for modifying cars with innovative metal work and paint jobs, and for building vehicles like the Galileo shuttle for the original “Star Trek” series.`\
+https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
+
 **As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
 `President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
-https://nytimes.com/live/2025/03/16/us/trump-news/voa-trump-dismantle
+https://nytimes.com/2025/03/16/business/voa-trump-dismantle.html
 
 **Twins' Royce Lewis strains hamstring 11 days before season opener**\
 `This is the latest in a long line of injuries for the third baseman, who has played just 152 games in three seasons with the Twins.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206892/2025/03/16/blue-jackets-nhl-ownership/
 **Nita M. Lowey, Tenacious New York Representative, Dies at 87**\
 `A Democrat, she represented Westchester County for three decades and became the first woman to lead the powerful House Appropriations Committee.`\
 https://nytimes.com/2025/03/16/us/politics/nita-m-lowey-dead.html
-
-**The Pulse: Tiger Woods finally meets the end?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/6206443/2025/03/16/tiger-woods-achilles-nwsl-return-the-pulse/
 
