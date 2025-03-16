@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6207874/2025/03/16/gotham-nwsl-mak-whitham-debut/
 
 **Napheesa Collier named MVP of Unrivaled's inaugural season**\
-`Angel Reese is named Unrivaled's Defensive Player of the Year, DJ Sackmann earns Coach of the Year honor.`\
+`Angel Reese was named Unrivaled's Defensive Player of the Year, and DJ Sackmann earned Coach of the Year honors.`\
 https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
 
 **Cardinals name Sonny Gray Opening Day starter; concern over shaky spring minimal**\
