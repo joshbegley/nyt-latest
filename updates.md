@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, March 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/16/todays-new-york-times-international-edition
+
 **‘I Had to Do What I Had to Do​’: Excerpts ​From ​The Interview ​With Chuck Schumer**\
 `The day after angering many Democrats’ by backing a Republican spending bill, Schumer argued that he can still lead his party in the Senate, even amid furious backlash.`\
 https://nytimes.com/2025/03/16/magazine/chuck-schumer-interviews-takeaways.html
