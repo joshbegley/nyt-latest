@@ -1,3 +1,7 @@
+**Jessie Diggins clinches third overall World Cup cross-country title, extending U.S. record**\
+`The American cross-country star added another major accolade to her career Sunday, clinching another overall World Cup title.`\
+https://nytimes.com/athletic/6206961/2025/03/16/jessie-diggins-world-cup-cross-country-skiing-title/
+
 **Eat These Easy Noodles for Breakfast, Lunch or Dinner**\
 `Or breakfast, lunch and dinner. These soy sauce noodles with cabbage and fried eggs are that good.`\
 https://nytimes.com/2025/03/16/dining/easy-noodles-breakfast-lunch-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
 **Ukraine Retreats From All but a Sliver of Land in Russia’s Kursk Region**\
 `The daring campaign Ukraine launched last summer to seize and occupy Russian territory appears to be nearing an end.`\
 https://nytimes.com/2025/03/16/world/europe/kursk-russia-ukraine.html
-
-**Facing Trump Tariffs, China Outlines Plan to Bolster the Economy**\
-`Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
-https://nytimes.com/2025/03/16/business/china-consumption.html
 

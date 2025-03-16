@@ -1,3 +1,7 @@
+**Jessie Diggins clinches third overall World Cup cross-country title, extending U.S. record**\
+`The American cross-country star added another major accolade to her career Sunday, clinching another overall World Cup title.`\
+https://nytimes.com/athletic/6206961/2025/03/16/jessie-diggins-world-cup-cross-country-skiing-title/
+
 **Eat These Easy Noodles for Breakfast, Lunch or Dinner**\
 `Or breakfast, lunch and dinner. These soy sauce noodles with cabbage and fried eggs are that good.`\
 https://nytimes.com/2025/03/16/dining/easy-noodles-breakfast-lunch-dinner.html
