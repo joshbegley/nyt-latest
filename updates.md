@@ -1,3 +1,11 @@
+**Florida beats Tennessee for SEC tournament title, sends warning: Beware of Gators**\
+`The SEC is historically good this season, yet no one could hang with the Gators in the conference tournament in Nashville. `\
+https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament-title/
+
+**At a Penguin ‘Retirement Home,’ a Slower Pace and Plenty of Fish**\
+`Six African Penguins at the New England Aquarium in Boston have made a new home on an island designed to address the aches and pains of aging.`\
+https://nytimes.com/2025/03/16/science/penguin-retirement-home-aquarium.html
+
 **Surgeon and Professor Is Deported to Lebanon Despite a Judge’s Order**\
 `Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
 https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html

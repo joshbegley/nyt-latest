@@ -1,3 +1,11 @@
+**Florida beats Tennessee for SEC tournament title, sends warning: Beware of Gators**\
+`The SEC is historically good this season, yet no one could hang with the Gators in the conference tournament in Nashville. `\
+https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament-title/
+
+**At a Penguin ‘Retirement Home,’ a Slower Pace and Plenty of Fish**\
+`Six African Penguins at the New England Aquarium in Boston have made a new home on an island designed to address the aches and pains of aging.`\
+https://nytimes.com/2025/03/16/science/penguin-retirement-home-aquarium.html
+
 **Surgeon and Professor Is Deported to Lebanon Despite a Judge’s Order**\
 `Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
 https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6188842/2025/03/16/ravens-free-agency-tracker-signi
 **Airman Charged in Killing of Woman Missing Since August**\
 `Sahela Sangrait, 21, was murdered at Ellsworth Air Force Base in South Dakota, officials said; her body was found this month nearly 40 miles away.`\
 https://nytimes.com/2025/03/16/us/air-force-murder-ellsworth-south-dakota.html
-
-**A Cornell graduate student fearing deportation files a pre-emptive lawsuit.**\
-`A doctoral student from Gambia sued the Trump administration on First Amendment grounds over two Trump executive orders aimed at pro-Palestinian activism.`\
-https://nytimes.com/live/2025/03/16/us/trump-news/cornell-lawsuit-activist-deport-momoduo-taal
-
-**Blue Jackets Sunday Gathering: John H. McConnell II assuming a bigger role**\
-`McConnell II's growing presence with the Blue Jackets in recent months suggests he'll be more of a hands-on owner than his father.`\
-https://nytimes.com/athletic/6206892/2025/03/16/blue-jackets-nhl-ownership/
 
