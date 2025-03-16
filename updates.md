@@ -1,3 +1,15 @@
+**With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
+`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
+https://nytimes.com/2025/03/16/us/constitutional-crisis.html
+
+**Slick Watts, N.B.A. Fan Favorite and Headband Pioneer, Dies at 73**\
+`An undrafted, 6-foot-1 point guard with patchy hair, he made an enduring fashion statement and became seen as the ultimate Seattle SuperSonic.`\
+https://nytimes.com/2025/03/16/obituaries/slick-watts-dead.html
+
+**SEC breaks record with 14 teams in men's NCAA Tournament; see full bracket**\
+`From No. 1 overall (Auburn) to the last team in (North Carolina), view the full 2025 men's NCAA Tournament bracket.`\
+https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
+
 **Michigan staves off Wisconsin 59-53 to claim Big Ten tournament title**\
 `In a game that featured seven lead changes and seven ties, guts and toughness earned Michigan its first NCAA tournament berth since 2022`\
 https://nytimes.com/athletic/6207917/2025/03/16/michigan-wisconsin-mens-basketball-big-ten-championship/

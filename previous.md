@@ -1,3 +1,11 @@
+**With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
+`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
+https://nytimes.com/2025/03/16/us/constitutional-crisis.html
+
+**Slick Watts, N.B.A. Fan Favorite and Headband Pioneer, Dies at 73**\
+`An undrafted, 6-foot-1 point guard with patchy hair, he made an enduring fashion statement and became seen as the ultimate Seattle SuperSonic.`\
+https://nytimes.com/2025/03/16/obituaries/slick-watts-dead.html
+
 **Michigan staves off Wisconsin 59-53 to claim Big Ten tournament title**\
 `In a game that featured seven lead changes and seven ties, guts and toughness earned Michigan its first NCAA tournament berth since 2022`\
 https://nytimes.com/athletic/6207917/2025/03/16/michigan-wisconsin-mens-basketball-big-ten-championship/
@@ -14,8 +22,8 @@ https://nytimes.com/athletic/6206993/2025/03/16/draper-rune-indian-wells-final-r
 `The Red Wings' shutout win over Vegas was among Detroit's most complete showings of the season.`\
 https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lucas-raymond-golden-knights/
 
-**Auburn, Duke, Houston earn No. 1 seeds in men's NCAA Tournament**\
-`The Tigers (28-5) are a No. 1 seed for just the second time in program history.`\
+**SEC breaks record with 14 teams in men's NCAA Tournament; see full bracket**\
+`From No. 1 overall (Auburn) to the last team in (North Carolina), view the full 2025 men's NCAA Tournament bracket.`\
 https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
 
 **The Briefing: Atletico 2 Barcelona 4 - Late Yamal and Torres goals seize control of title race**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-
 **Face Shapes**\
 `Kathy Lowden gives her all.`\
 https://nytimes.com/2025/03/16/crosswords/daily-puzzle-2025-03-17.html
-
-**Netanyahu Moves to Fire Israel’s Domestic Intelligence Chief**\
-`The Israeli prime minister’s effort to remove the Shin Bet chief is raising concerns about whether he was seeking to undermine the agency’s independence.`\
-https://nytimes.com/2025/03/16/world/middleeast/israel-netanyahu-firing-intelligence-chief.html
-
-**What I'm hearing about the Mets' early-season pitching plans**\
-`After Clay Holmes starts Opening Day in Houston, the Mets are likely to start right-handers Tylor Megill and Griffin Canning next.`\
-https://nytimes.com/athletic/6207728/2025/03/16/mets-early-season-pitching-plans/
 
