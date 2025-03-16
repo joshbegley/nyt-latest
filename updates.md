@@ -1,3 +1,11 @@
+**Monday Briefing: U.S. Deports Hundreds in Face of a Court Order**\
+`Plus, shadows light up Iranian history.`\
+https://nytimes.com/2025/03/16/briefing/us-deportations-ukraine-retreat-kenya-saudi-arabia.html
+
+**The Briefing: Leicester 0 Manchester United 3 - Hojlund and Garnacho end goal droughts, Heaven stretchered off**\
+`Charlotte Harpur breaks down the main talking points from Manchester United's 3-0 win over Leicester City`\
+https://nytimes.com/athletic/6206945/2025/03/16/leicester-0-manchester-united-3-hojlund-garnacho-heaven/
+
 **Was the Australian Grand Prix the perfect F1 season opener?**\
 `In a post-race live room with readers, The Athletic's senior F1 writer discusses what he saw at the season's first race.`\
 https://nytimes.com/athletic/6207490/2025/03/16/australian-grand-prix-f1-season-opener-live-room/
