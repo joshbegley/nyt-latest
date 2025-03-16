@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, March 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/16/todays-new-york-times-international-edition
+
 **‘I Had to Do What I Had to Do​’: Excerpts ​From ​The Interview ​With Chuck Schumer**\
 `The day after angering many Democrats’ by backing a Republican spending bill, Schumer argued that he can still lead his party in the Senate, even amid furious backlash.`\
 https://nytimes.com/2025/03/16/magazine/chuck-schumer-interviews-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/nyregion/organ-donation.html
 **Michael Waltz, Trump’s National Security Adviser, Is Taking Fire From Both Sides**\
 `Mr. Waltz has worked hard to burnish his credentials among the president’s supporters, in the process dismaying his former associates while not convincing his new ones.`\
 https://nytimes.com/2025/03/16/us/politics/michael-waltz-trump.html
-
-**It Fought to Save the Whales. Can Greenpeace Save Itself?**\
-`The storied group has a remarkable history of daring protests and high-profile blunders. It faces a reckoning in North Dakota.`\
-https://nytimes.com/2025/03/16/climate/it-fought-to-save-the-whales-can-greenpeace-save-itself.html
 
