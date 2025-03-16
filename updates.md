@@ -1,3 +1,7 @@
+**Players Championship analysis: What to know about J.J. Spaun, Bud Cauley and more**\
+`Spaun will have to break an ominous run of players who held a solo, one-shot lead through 54 holes at this championship.`\
+https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-spaun-cauley/
+
 **St. John's tops Creighton to win Big East tournament title, lock up NCAA bid**\
 `St. John's improved to 12-0 at Madison Square Garden and will head into the NCAA Tournament likely as a No. 2 seed.`\
 https://nytimes.com/athletic/6206244/2025/03/15/st-johns-creighton-mens-basketball-big-east-championship/
