@@ -1,4 +1,4 @@
-**A Cornell graduate student fearing deportation files a pre-emptive lawsuit**\
+**A Cornell graduate student fearing deportation files a pre-emptive lawsuit.**\
 `A doctoral student from Gambia sued the Trump administration on First Amendment grounds over two Trump executive orders aimed at pro-Palestinian activism.`\
 https://nytimes.com/live/2025/03/16/us/trump-news/cornell-lawsuit-activist-deport-momoduo-taal
 

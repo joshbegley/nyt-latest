@@ -1,3 +1,11 @@
+**A Cornell graduate student fearing deportation files a pre-emptive lawsuit**\
+`A doctoral student from Gambia sued the Trump administration on First Amendment grounds over two Trump executive orders aimed at pro-Palestinian activism.`\
+https://nytimes.com/live/2025/03/16/us/trump-news/cornell-lawsuit-activist-deport-momoduo-taal
+
+**Blue Jackets Sunday Gathering: John H. McConnell II assuming a bigger role**\
+`McConnell II's growing presence with the Blue Jackets in recent months suggests he'll be more of a hands-on owner than his father.`\
+https://nytimes.com/athletic/6206892/2025/03/16/blue-jackets-nhl-ownership/
+
 **Nita M. Lowey, Tenacious New York Representative, Dies at 87**\
 `A Democrat, she represented Westchester County for three decades and became the first woman to lead the powerful House Appropriations Committee.`\
 https://nytimes.com/2025/03/16/us/politics/nita-m-lowey-dead.html
