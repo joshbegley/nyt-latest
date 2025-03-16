@@ -1,3 +1,15 @@
+**What a Small Island Off the Coast of Scotland Could Teach America**\
+`In 2025, the idea of settling anyplace other than Mars might seem anachronistic, but the people on Ulva are pioneers.`\
+https://nytimes.com/2025/03/16/opinion/scotland-rural-communities-ulva.html
+
+**Mixed Messages on Masculinity**\
+`Readers weigh in on masculinity in politics. Also: Making way for corruption; when Donald Trump flouts laws; the perversion of U.S. power.`\
+https://nytimes.com/2025/03/16/opinion/masculinity-republicans-politics.html
+
+**In dealing with pressure, rain and Verstappen, Norris proved his growth in Australia win**\
+`This time 12 months ago, the Australian Grand Prix was the sort of race that Lando Norris and McLaren may have lost `\
+https://nytimes.com/athletic/6206769/2025/03/16/lando-norris-australia-grand-prix-max-verstappen-analysis/
+
 **Palmer out of Chelsea squad vs. Arsenal with injury**\
 `The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
 https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
