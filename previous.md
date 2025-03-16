@@ -1,3 +1,11 @@
+**Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
+`Short-handed Orlando stuns Cleveland, a team it is in line to meet in the first round of the NBA playoffs.`\
+https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
+
+**Zach Dezenzo and Cam Smith need everyday at-bats. When will they get them in the majors?**\
+`Dezenzo and Smith are putting up strong numbers in spring training, but Joe Espada doesn't want to put young players in part-time roles. `\
+https://nytimes.com/athletic/6207771/2025/03/16/astros-zack-dezenzo-cam-smith-opening-day-roster/
+
 **A Clubby Washington Tradition Carries On Uncomfortably Without Trump**\
 `President Trump and most members of his administration steered clear of the annual Gridiron Club dinner on Saturday, where politicians and the press usually toast and lightly roast one another.`\
 https://nytimes.com/2025/03/16/us/politics/trump-gridiron-club-dinner.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207490/2025/03/16/australian-grand-prix-f1-season-
 **Dozens Dead in Nightclub Fire in North Macedonia**\
 `Pyrotechnics appeared to have started the fire, which killed nearly 60 people and injured more than 150 others.`\
 https://nytimes.com/video/world/europe/100000010055226/north-macedonia-nightclub-fire.html
-
-**Game, Set, Match: Mirra Andreeva beats Aryna Sabalenka for Indian Wells title**\
-`Andreeva won her second successive WTA 1,000 title with a performance of poise, authority and resilience against the world No.1.`\
-https://nytimes.com/athletic/6206991/2025/03/16/sabalenka-andreeva-indian-wells-womens-final-result-analysis/
-
-**One Devastating Storm System: What to Know About the Havoc**\
-`The tornadoes, dust storms and wind-fanned wildfires have led to at least 36 deaths across the nation this past week.`\
-https://nytimes.com/2025/03/16/us/storms-tornadoes-wildfire-weather-deaths.html
 
