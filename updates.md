@@ -1,3 +1,11 @@
+**A Clubby Washington Tradition Carries On Uncomfortably Without Trump**\
+`President Trump and most members of his administration steered clear of the annual Gridiron Club dinner on Saturday, where politicians and the press usually toast and lightly roast one another.`\
+https://nytimes.com/2025/03/16/us/politics/trump-gridiron-club-dinner.html
+
+**Map: 5.5-Magnitude Earthquake Strikes Ethiopia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/16/weather/ethiopia-quake-tracker.html
+
 **Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
 `Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
 https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
