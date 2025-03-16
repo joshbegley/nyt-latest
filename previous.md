@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6206689/2025/03/16/chelsea-women-mille-bright/
 https://nytimes.com/athletic/6206701/2025/03/16/lewis-hamilton-ferrari-australian-grand-prix-reaction/
 
 **Villarreal 1-2 Real Madrid: Mbappe, Courtois to the rescue and 72-hour rest-period row**\
-`Mbappe surpasses a Madrid great, their defence is saved again by their goalkeeper and the row over rest time with La Liga intensifies.`\
+`Mbappe surpasses a Madrid great, their defence is saved again by the goalkeeper and the row over rest time with La Liga intensifies`\
 https://nytimes.com/athletic/6206152/2025/03/16/real-madrid-mbappe-courtois-la-liga-schedule/
 
 **How a Columbia Student Activist Landed in Federal Detention**\

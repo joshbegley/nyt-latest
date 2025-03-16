@@ -1,5 +1,5 @@
 **Chelsea's new Bompastor era claims first trophy but a familiar face in Bright 'sets the tone'**\
-`Bright is one of those key elements of continuity that has provided such a strong base for this remarkable season.`\
+`Bright is one of those key elements of continuity that has provided such a strong base for this remarkable season`\
 https://nytimes.com/athletic/6206689/2025/03/16/chelsea-women-mille-bright/
 
 **Lewis Hamilton says Australian GP a 'crash course' in new car**\
