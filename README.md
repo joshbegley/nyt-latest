@@ -1,3 +1,7 @@
+**Montreal's fans provide the playoff atmosphere the Canadiens hope to experience**\
+`The Canadiens' playoff push is fueled in part by a desire to have a peak Bell Centre experience. They came close Saturday night.`\
+https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experience/
+
 **Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
 `"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
 https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6190428/2025/03/16/arsenal-chelsea-raheem-sterling-
 **Manchester City and life after Gareth Taylor: A dismissal, a week of change and a cup final lost**\
 `The manner of City's defeat to Chelsea was cruel on a squad who have experienced plenty of change this week. Here's the inside story`\
 https://nytimes.com/athletic/6204813/2025/03/16/manchester-city-gareth-taylor-cushing-league-cup-final/
-
-**How Brighton proved against Man City they are Champions League ready**\
-`Hurzeler has put Brighton in contention to reach Europe's top competition - they have as good a chance as anyone`\
-https://nytimes.com/athletic/6205359/2025/03/16/brighton-man-city-champions-league/
 
