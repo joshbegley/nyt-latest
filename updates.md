@@ -1,3 +1,7 @@
+**Facing Trump Tariffs, China Outlines Plan to Bolster Economy**\
+`Beijing’s leaders are ordering fiscally strapped local governments to spend more to help workers, consumers and businesses.`\
+https://nytimes.com/2025/03/16/business/china-consumption.html
+
 **The ACC needed a new coaching star. Jon Scheyer delivered**\
 `Duke's ACC Tournament run without Cooper Flagg is confirmation that the 37-year-old Scheyer is already one of the game's best coaches.`\
 https://nytimes.com/athletic/6206826/2025/03/16/jon-scheyer-duke-basketball-acc-tournament/
