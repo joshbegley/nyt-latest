@@ -1,3 +1,11 @@
+**Rick Pitino and the new kings of New York**\
+`A native son who’s synonymous with both the city and the game has reclaimed attention in a city that doesn’t offer it easily.`\
+https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tournament/
+
+**Clippers are heating up, getting healthy, just as schedule gets tougher**\
+`The Clippers appear to be jelling at the right time. They have won five of six games entering Sunday’s home contest.`\
+https://nytimes.com/athletic/6206279/2025/03/16/la-clippers-healthy-tough-schedule/
+
 **Law: Scouting notes from the Giants-Rangers Spring Breakout game**\
 `The Giants and Rangers played their Breakout game Saturday, and despite the 5-5 score, the story of the game was the pitching.`\
 https://nytimes.com/athletic/6206584/2025/03/16/giants-rangers-spring-breakout-game-scouting-notes-law/

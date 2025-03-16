@@ -2,6 +2,14 @@
 `The Giants and Rangers played their Breakout game Saturday, and despite the 5-5 score, the story of the game was the pitching.`\
 https://nytimes.com/athletic/6206584/2025/03/16/giants-rangers-spring-breakout-game-scouting-notes-law/
 
+**Rick Pitino and the new kings of New York**\
+`A native son who’s synonymous with both the city and the game has reclaimed attention in a city that doesn’t offer it easily.`\
+https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tournament/
+
+**Clippers are heating up, getting healthy, just as schedule gets tougher**\
+`The Clippers appear to be jelling at the right time. They have won five of six games entering Sunday’s home contest.`\
+https://nytimes.com/athletic/6206279/2025/03/16/la-clippers-healthy-tough-schedule/
+
 **From big upsets to Charles Barkley banter, Greg Gumbel guided viewers through March Madness**\
 `Marking the first NCAA Tournament without the longtime CBS host: "If he was calling it, you knew it was an important, special event.”`\
 https://nytimes.com/athletic/6206049/2025/03/16/greg-gumbel-cbs-selection-sunday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/crosswords/wordle-review-1367.html
 **Connections Companion No. 645**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 17, 2025.`\
 https://nytimes.com/2025/03/16/crosswords/connections-companion-645.html
-
-**Trump Administration Live Updates: Judge Orders Halt on Deportations of Venezuelans Under Wartime Law**\
-``\
-https://nytimes.com/live/2025/03/16/us/trump-news
-
-**Houthis Vow Retaliation Against U.S., Saying Yemen Strikes Killed at Least 31**\
-`The Iran-backed rebels, who have targeted Israel and shipping in the Red Sea, said children were among those killed in the strikes ordered by President Trump.`\
-https://nytimes.com/2025/03/16/world/middleeast/houthis-us-airstrikes-yemen-response.html
 
