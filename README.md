@@ -1,3 +1,7 @@
+**Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
+`Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
+https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
+
 **Monday Briefing: U.S. Deports Hundreds in Face of a Court Order**\
 `Plus, shadows light up Iranian history.`\
 https://nytimes.com/2025/03/16/briefing/us-deportations-ukraine-retreat-kenya-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207588/2025/03/16/morgan-gibbs-white-england-squad
 **How Ukraine’s Offensive in Russia’s Kursk Region Unraveled**\
 `At the height of the campaign, Ukrainian forces controlled some 500 square miles of Russian territory. Now they hold just a small sliver of land along the border.`\
 https://nytimes.com/2025/03/16/world/europe/ukraine-kursk-retreat-russia.html
-
-**Florida beats Tennessee for SEC tournament title, sends warning: Beware of Gators**\
-`The SEC is historically good this season, yet no one could hang with the Gators in the conference tournament in Nashville. `\
-https://nytimes.com/athletic/6207539/2025/03/16/florida-tennessee-sec-tournament-title/
 
