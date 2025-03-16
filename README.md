@@ -2,7 +2,7 @@
 `Senator Chuck Schumer, the minority leader, continued to face criticism from members of his own party after he reversed course and allowed the stopgap spending bill to come to a vote.`\
 https://nytimes.com/2025/03/16/us/politics/absolutely-ridiculous-democrats-seethe-at-schumer-for-backing-gop-spending-bill.html
 
-**Transcript: Was the Australian Grand Prix the perfect F1 season opener?**\
+**Was the Australian Grand Prix the perfect F1 season opener?**\
 `In a post-race live room with readers, The Athletic's senior F1 writer discusses what he saw at the season's first race.`\
 https://nytimes.com/athletic/6207490/2025/03/16/australian-grand-prix-f1-season-opener-live-room/
 
