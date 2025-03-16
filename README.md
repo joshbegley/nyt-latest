@@ -1,3 +1,11 @@
+**‘Absolutely Ridiculous’: Democrats Seethe at Schumer for Backing G.O.P. Spending Bill**\
+`Senator Chuck Schumer, the minority leader, continued to face criticism from members of his own party after he reversed course and allowed the stopgap spending bill to come to a vote.`\
+https://nytimes.com/2025/03/16/us/politics/absolutely-ridiculous-democrats-seethe-at-schumer-for-backing-gop-spending-bill.html
+
+**Transcript: Was the Australian Grand Prix the perfect F1 season opener?**\
+`In a post-race live room with readers, The Athletic's senior F1 writer discusses what he saw at the season's first race.`\
+https://nytimes.com/athletic/6207490/2025/03/16/australian-grand-prix-f1-season-opener-live-room/
+
 **Dozens Dead in Nightclub Fire in North Macedonia**\
 `Pyrotechnics appeared to have started the fire, which killed nearly 60 people and injured more than 150 others.`\
 https://nytimes.com/video/world/europe/100000010055226/north-macedonia-nightclub-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/science/penguin-retirement-home-aquarium.html
 **Doctor and Professor Is Deported to Lebanon Despite a Judge’s Order**\
 `Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
 https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
-
-**Gene Winfield, Whose Cars Starred in Film and on TV, Dies at 97**\
-`He was know for modifying cars with innovative metal work and paint jobs, and for building vehicles like the Galileo shuttle for the original “Star Trek” series.`\
-https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
-
-**As Voice of America Goes Dark, Some Broadcasts Are Replaced by Music**\
-`President Trump’s executive order on Friday calling for the dismantling of the federal agency that oversees the broadcaster is part of a wider campaign to weaken the news media.`\
-https://nytimes.com/2025/03/16/business/voa-trump-dismantle.html
 
