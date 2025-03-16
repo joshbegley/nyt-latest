@@ -1,3 +1,7 @@
+**Trump Sends Hundreds of Venezuelans to El Salvador in Face of Judge’s Order**\
+`President Nayib Bukele of El Salvador announced that his country had taken in more than 200 prisoners whom the U.S. has accused of being part of the Tren de Aragua gang.`\
+https://nytimes.com/2025/03/16/us/politics/trump-venezuelans-deportations-el-salvador.html
+
 **Dallas Cowboys free-agency tracker: Dante Fowler returns; Miles Sanders joins RB room**\
 `Follow here for all the Cowboys free-agent news on players coming and going. `\
 https://nytimes.com/athletic/6180524/2025/03/16/dallas-cowboys-free-agency-tracker-2025/

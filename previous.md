@@ -1,3 +1,7 @@
+**Trump Sends Hundreds of Venezuelans to El Salvador in Face of Judge’s Order**\
+`President Nayib Bukele of El Salvador announced that his country had taken in more than 200 prisoners whom the U.S. has accused of being part of the Tren de Aragua gang.`\
+https://nytimes.com/2025/03/16/us/politics/trump-venezuelans-deportations-el-salvador.html
+
 **Lowetide: Is the Oilers' AHL team equipped to help the NHL team soon?**\
 `Edmonton's real prospects in the AHL are easy to spot because they are rare at the moment.`\
 https://nytimes.com/athletic/6205608/2025/03/16/oilers-recalls-savoie-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/business/china-consumption.html
 **The ACC needed a new coaching star. Jon Scheyer delivered**\
 `Duke's ACC Tournament run without Cooper Flagg is confirmation that the 37-year-old Scheyer is already one of the game's best coaches.`\
 https://nytimes.com/athletic/6206826/2025/03/16/jon-scheyer-duke-basketball-acc-tournament/
-
-**NCAA Tournament Bracket Watch 2025: Mountain West soars in final projection**\
-`Among several changes on this final bracket, Florida moves up to the No. 3 overall seed and into the Midwest Region.`\
-https://nytimes.com/athletic/6205949/2025/03/16/ncaa-tournament-bracket-watch-2025-colorado-state-mountain-west/
 
