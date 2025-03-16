@@ -1,7 +1,3 @@
-**The NCAA Tournament runs through football country (and Cooper Flagg)**\
-`Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
-https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
-
 **The 2025 men's NCAA tournament team that looks most like a champ is ...**\
 `Four squads sure look a lot like past tourney champions in critical statistical areas, but one stands above the rest.`\
 https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-mens-ncaa-tournament/
@@ -10,8 +6,8 @@ https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-me
 `Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
 https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
 
-**With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
-`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
+**With Deportations, Trump Steps Closer to Showdown With Judicial Branch**\
+`“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights to his country turn back to the United States. Top administration officials thanked him.`\
 https://nytimes.com/2025/03/16/us/constitutional-crisis.html
 
 **Slick Watts, N.B.A. Fan Favorite and Headband Pioneer, Dies at 73**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6207665/2025/03/16/red-wings-petr-mrazek-shutout-lu
 **SEC breaks record with 14 teams in men's NCAA Tournament; see full bracket**\
 `From No. 1 overall (Auburn) to the last team in (North Carolina), view the full 2025 men's NCAA Tournament bracket.`\
 https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-tournament-2025/
+
+**The Briefing: Atletico 2 Barcelona 4 - Late Yamal and Torres goals seize control of title race**\
+`Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
+https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
 

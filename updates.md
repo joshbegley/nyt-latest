@@ -1,3 +1,7 @@
+**The NCAA Tournament runs through football country (and Cooper Flagg)**\
+`Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
+https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
+
 **The 2025 men's NCAA tournament team that looks most like a champ is ...**\
 `Four squads sure look a lot like past tourney champions in critical statistical areas, but one stands above the rest.`\
 https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-mens-ncaa-tournament/
