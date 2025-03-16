@@ -1,4 +1,4 @@
-**Arsenal 1 Chelsea 0 - Stand-in Merino seals another win as Chelsea feel Palmer's absence**\
+**Arsenal 1 Chelsea 0: Stand-in Merino seals another win, absent Palmer is missed - The Briefing**\
 `Writers from both teams break down the action from a feisty London derby at the Emirates.`\
 https://nytimes.com/athletic/6200007/2025/03/16/arsenal-chelsea-martinelli-sanchez/
 
