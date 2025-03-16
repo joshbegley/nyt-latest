@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Toronto unable to match Ottawa's urgency and desperation**\
+`The Maple Leafs looked disconnected and disorganized as the Senators beat them 4-2 to sweep the regular-season series.
+`\
+https://nytimes.com/athletic/6206323/2025/03/15/maple-leafs-senators-score-analysis-grades/
+
 **Maple Leafs report cards: Toronto unable to match Ottawa’s urgency and desperation**\
 `The Maple Leafs looked disconnected and disorganized as the Senators beat Toronto 4-2 to sweep the regular-season series.
 `\
