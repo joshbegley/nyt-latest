@@ -2,6 +2,10 @@
 `Edmonton's real prospects in the AHL are easy to spot because they are rare at the moment.`\
 https://nytimes.com/athletic/6205608/2025/03/16/oilers-recalls-savoie-2025/
 
+**Dallas Cowboys free-agency tracker: Dante Fowler returns; Miles Sanders joins RB room**\
+`Follow here for all the Cowboys free-agent news on players coming and going. `\
+https://nytimes.com/athletic/6180524/2025/03/16/dallas-cowboys-free-agency-tracker-2025/
+
 **What a Small Island Off the Coast of Scotland Could Teach America**\
 `In 2025, the idea of settling anyplace other than Mars might seem anachronistic, but the people on Ulva are pioneers.`\
 https://nytimes.com/2025/03/16/opinion/scotland-rural-communities-ulva.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206826/2025/03/16/jon-scheyer-duke-basketball-acc-
 **NCAA Tournament Bracket Watch 2025: Mountain West soars in final projection**\
 `Among several changes on this final bracket, Florida moves up to the No. 3 overall seed and into the Midwest Region.`\
 https://nytimes.com/athletic/6205949/2025/03/16/ncaa-tournament-bracket-watch-2025-colorado-state-mountain-west/
-
-**Wright hat-trick gives USMNT coach Pochettino timely reminder of his talent**\
-`If he can use this hat-trick as a springboard — and stay fit — it will put him firmly on Pochettino’s radar and boost his World Cup chances.`\
-https://nytimes.com/athletic/6206804/2025/03/16/haji-wright-usmnt-pochettino/
 
