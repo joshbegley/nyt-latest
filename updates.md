@@ -1,3 +1,7 @@
+**Storm Risk Shifts to East Coast**\
+`Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from northern Florida to central Virginia. The weather system also spawned deadly tornadoes in the Midwest and South.`\
+https://nytimes.com/2025/03/16/weather/tornado-storm-forecast-south.html
+
 **Rick Pitino and the new kings of New York**\
 `A native son who’s synonymous with both the city and the game has reclaimed attention in a city that doesn’t offer it easily.`\
 https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tournament/

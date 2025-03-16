@@ -1,3 +1,7 @@
+**Storm Risk Shifts to East Coast**\
+`Forecasters said there was a slight risk on Sunday of severe storms and tornadoes from northern Florida to central Virginia. The weather system also spawned deadly tornadoes in the Midwest and South.`\
+https://nytimes.com/2025/03/16/weather/tornado-storm-forecast-south.html
+
 **Law: Scouting notes from the Giants-Rangers Spring Breakout game**\
 `The Giants and Rangers played their Breakout game Saturday, and despite the 5-5 score, the story of the game was the pitching.`\
 https://nytimes.com/athletic/6206584/2025/03/16/giants-rangers-spring-breakout-game-scouting-notes-law/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/16/opinion/no-other-land-documentary-israel-gaza.htm
 **Wordle Review No. 1,367**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 17, 2025.`\
 https://nytimes.com/2025/03/16/crosswords/wordle-review-1367.html
-
-**Connections Companion No. 645**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 17, 2025.`\
-https://nytimes.com/2025/03/16/crosswords/connections-companion-645.html
 
