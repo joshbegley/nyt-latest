@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Orders Halt on Deportations of Venezuelans Under Wartime Law**\
+``\
+https://nytimes.com/live/2025/03/16/us/trump-news
+
+**Houthis Vow Retaliation Against U.S., Saying Yemen Strikes Killed at Least 31**\
+`The Iran-backed rebels, who have targeted Israel and shipping in the Red Sea, said children were among those killed in the strikes ordered by President Trump.`\
+https://nytimes.com/2025/03/16/world/middleeast/houthis-us-airstrikes-yemen-response.html
+
 **The New York Times International Edition in Print for Monday, March 17, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/16/todays-new-york-times-international-edition

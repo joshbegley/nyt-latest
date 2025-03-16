@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Orders Halt on Deportations of Venezuelans Under Wartime Law**\
+``\
+https://nytimes.com/live/2025/03/16/us/trump-news
+
+**Houthis Vow Retaliation Against U.S., Saying Yemen Strikes Killed at Least 31**\
+`The Iran-backed rebels, who have targeted Israel and shipping in the Red Sea, said children were among those killed in the strikes ordered by President Trump.`\
+https://nytimes.com/2025/03/16/world/middleeast/houthis-us-airstrikes-yemen-response.html
+
 **The New York Times International Edition in Print for Monday, March 17, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/16/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/magazine/chuck-schumer-interview.html
 **Craig Counsell hopes Japan trip bonds Cubs before a pressure-filled season**\
 `Becoming a winning team "is about getting to know each other," Justin Turner said. "Trips like this can kick-start that."`\
 https://nytimes.com/athletic/6205996/2025/03/16/cubs-tokyo-series-team-bonding-craig-counsell/
-
-**His Death Was Interrupted, Just as He Had Planned**\
-`Brendan Costello’s family was bracing for goodbyes. But he had one last wish.`\
-https://nytimes.com/2025/03/16/nyregion/organ-donation.html
-
-**Michael Waltz, Trump’s National Security Adviser, Is Taking Fire From Both Sides**\
-`Mr. Waltz has worked hard to burnish his credentials among the president’s supporters, in the process dismaying his former associates while not convincing his new ones.`\
-https://nytimes.com/2025/03/16/us/politics/michael-waltz-trump.html
 
