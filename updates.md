@@ -1,3 +1,7 @@
+**Montreal's fans provide the playoff atmosphere the Canadiens hope to experience**\
+`The Canadiens' playoff push is fueled in part by a desire to have a peak Bell Centre experience. They came close Saturday night.`\
+https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experience/
+
 **Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
 `"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
 https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
