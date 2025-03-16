@@ -1,3 +1,7 @@
+**Villarreal 1-2 Real Madrid: Mbappe, Courtois to the rescue and 72-hour rest-period row**\
+`Mbappe surpasses a Madrid great, their defence is saved again by their goalkeeper and the row over rest time with La Liga intensifies.`\
+https://nytimes.com/athletic/6206152/2025/03/16/real-madrid-mbappe-courtois-la-liga-schedule/
+
 **How a Columbia Student Activist Landed in Federal Detention**\
 `Mahmoud Khalil never shielded his face with a mask the way some protesters did. That made him a target when President Trump decided to move aggressively against campus activists.`\
 https://nytimes.com/2025/03/16/nyregion/mahmoud-khalil-columbia-university.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefin
 **Montreal's fans provide the playoff atmosphere the Canadiens hope to experience**\
 `The Canadiens' playoff push is fueled in part by a desire to have a peak Bell Centre experience. They came close Saturday night.`\
 https://nytimes.com/athletic/6206603/2025/03/16/montreal-fans-canadiens-experience/
-
-**Russo: Wild look broken, tired and incapable of scoring, and help is not on the way**\
-`"At the end of the day, if we lose 5-1 at home, it's not acceptable," Mats Zuccarello said after Saturday's loss.`\
-https://nytimes.com/athletic/6206567/2025/03/16/wild-lose-to-blues/
 
