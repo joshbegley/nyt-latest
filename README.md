@@ -23,7 +23,7 @@ https://nytimes.com/2025/03/16/world/asia/japan-speedskater-age-record.html
 https://nytimes.com/athletic/6206153/2025/03/16/connections-sports-edition-hints-for-march-16-2025/
 
 **Blue Jackets look nervous, panicked vs. Rangers as they fall out of playoff spot**\
-`Columbus, one of the NHL's highest-scoring clubs all season, has now endured three shutouts in its last five games.`\
+`Columbus, one of the NHL's highest-scoring clubs all season, has endured three shutouts in its last five games.`\
 https://nytimes.com/athletic/6206283/2025/03/15/blue-jackets-rangers-nhl-playoffs/
 
 **Making the NCAA Tournament is hard. UC San Diego kicked the door down**\
