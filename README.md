@@ -1,3 +1,7 @@
+**The Briefing: Atletico 2 Barcelona 4 - Yamal, Torres put Barca in control of La Liga title race**\
+`Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
+https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
+
 **Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
 `Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
 https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/16/weather/ethiopia-quake-tracker.html
 **Slot rejects idea that Newcastle were 'hungrier' than Liverpool in cup final defeat**\
 `Newcastle beat Liverpool 2-1 at Wembley Stadium to secure their first domestic honours since 1955.`\
 https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-final/
-
-**Monday Briefing: U.S. Deports Hundreds in Face of a Court Order**\
-`Plus, shadows light up Iranian history.`\
-https://nytimes.com/2025/03/16/briefing/us-deportations-ukraine-retreat-kenya-saudi-arabia.html
 

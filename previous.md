@@ -1,3 +1,19 @@
+**Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
+`Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
+https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
+
+**Face Shapes**\
+`Kathy Lowden gives her all.`\
+https://nytimes.com/2025/03/16/crosswords/daily-puzzle-2025-03-17.html
+
+**Netanyahu Moves to Fire Israel’s Domestic Intelligence Chief**\
+`The Israeli prime minister’s effort to remove the Shin Bet chief is raising concerns about whether he was seeking to undermine the agency’s independence.`\
+https://nytimes.com/2025/03/16/world/middleeast/israel-netanyahu-firing-intelligence-chief.html
+
+**What I'm hearing about the Mets' early-season pitching plans**\
+`After Clay Holmes starts Opening Day in Houston, the Mets are likely to start right-handers Tylor Megill and Griffin Canning next.`\
+https://nytimes.com/athletic/6207728/2025/03/16/mets-early-season-pitching-plans/
+
 **Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
 `Short-handed Orlando stuns Cleveland, a team it could be in line to meet in the first round of the NBA playoffs.`\
 https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6207822/2025/03/16/arne-slot-liverpool-carabao-cup-
 **Monday Briefing: U.S. Deports Hundreds in Face of a Court Order**\
 `Plus, shadows light up Iranian history.`\
 https://nytimes.com/2025/03/16/briefing/us-deportations-ukraine-retreat-kenya-saudi-arabia.html
-
-**The Briefing: Leicester 0 Manchester United 3 - Hojlund and Garnacho end goal droughts, Heaven off on a stretcher**\
-`Charlotte Harpur breaks down the main talking points from Manchester United's 3-0 win over Leicester City`\
-https://nytimes.com/athletic/6206945/2025/03/16/leicester-0-manchester-united-3-hojlund-garnacho-heaven/
-
-**‘Absolutely Ridiculous’: Democrats Seethe at Schumer for Backing G.O.P. Spending Bill**\
-`Senator Chuck Schumer, the minority leader, continued to face criticism from members of his own party after he reversed course and allowed the stopgap spending bill to come to a vote.`\
-https://nytimes.com/2025/03/16/us/politics/absolutely-ridiculous-democrats-seethe-at-schumer-for-backing-gop-spending-bill.html
-
-**Was the Australian Grand Prix the perfect F1 season opener?**\
-`In a post-race live room with readers, The Athletic's senior F1 writer discusses what he saw at the season's first race.`\
-https://nytimes.com/athletic/6207490/2025/03/16/australian-grand-prix-f1-season-opener-live-room/
-
-**Dozens Dead in Nightclub Fire in North Macedonia**\
-`Pyrotechnics appeared to have started the fire, which killed nearly 60 people and injured more than 150 others.`\
-https://nytimes.com/video/world/europe/100000010055226/north-macedonia-nightclub-fire.html
 

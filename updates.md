@@ -1,3 +1,19 @@
+**Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
+`Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
+https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
+
+**Face Shapes**\
+`Kathy Lowden gives her all.`\
+https://nytimes.com/2025/03/16/crosswords/daily-puzzle-2025-03-17.html
+
+**Netanyahu Moves to Fire Israel’s Domestic Intelligence Chief**\
+`The Israeli prime minister’s effort to remove the Shin Bet chief is raising concerns about whether he was seeking to undermine the agency’s independence.`\
+https://nytimes.com/2025/03/16/world/middleeast/israel-netanyahu-firing-intelligence-chief.html
+
+**What I'm hearing about the Mets' early-season pitching plans**\
+`After Clay Holmes starts Opening Day in Houston, the Mets are likely to start right-handers Tylor Megill and Griffin Canning next.`\
+https://nytimes.com/athletic/6207728/2025/03/16/mets-early-season-pitching-plans/
+
 **Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
 `Short-handed Orlando stuns Cleveland, a team it could be in line to meet in the first round of the NBA playoffs.`\
 https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
