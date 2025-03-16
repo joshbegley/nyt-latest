@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 1 Newcastle 2 - 70 years of hurt ended as Slot's side fall flat**\
+`Analysing the major discussion points from today's Carabao Cup final at Wembley`\
+https://nytimes.com/athletic/6203910/2025/03/16/newcastle-liverpool-carabao-cup-final-analysis/
+
+**Ravens free-agency tracker: QB Cooper Rush agrees to 2-year deal**\
+`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188842/2025/03/16/ravens-free-agency-tracker-signings-trades/
+
 **Airman Charged in Killing of Woman Missing Since August**\
 `Sahela Sangrait, 21, was murdered at Ellsworth Air Force Base in South Dakota, officials said; her body was found this month nearly 40 miles away.`\
 https://nytimes.com/2025/03/16/us/air-force-murder-ellsworth-south-dakota.html
