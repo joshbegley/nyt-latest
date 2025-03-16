@@ -1,3 +1,7 @@
+**March Madness bracket prep 2025: Strengths, weaknesses, team previews and more**\
+`Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
+https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
+
 **With Deportations to El Salvador, Trump May Have Defied a Judge’s Order**\
 `“Oopsie … Too late,” El Salvador’s president said, mocking a court order that deportation flights turn back to the United States. Top administration officials thanked him.`\
 https://nytimes.com/2025/03/16/us/constitutional-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-ya
 **Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
 `Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
 https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
-
-**Printable March Madness bracket for the men's NCAA Tournament**\
-`The 2025 men’s NCAA Tournament bracket will be released on Sunday, March 16 at 6 p.m. ET on CBS.`\
-https://nytimes.com/athletic/6201422/2025/03/16/mens-march-madness-2025-printable-bracket/
 

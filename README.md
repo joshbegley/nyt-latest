@@ -1,3 +1,7 @@
+**The 2025 men's NCAA tournament team that looks most like a champ is ...**\
+`Four squads sure look a lot like past tourney champions in critical statistical areas, but one stands above the rest.`\
+https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-mens-ncaa-tournament/
+
 **March Madness bracket prep 2025: Strengths, weaknesses, team previews and more**\
 `Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
 https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207488/2025/03/16/mens-march-madness-bracket-ncaa-
 **The Briefing: Atletico 2 Barcelona 4 - Late Yamal and Torres goals seize control of title race**\
 `Barca struck a potentially decisive blow in the La Liga title race with their win against Atletico`\
 https://nytimes.com/athletic/6206946/2025/03/16/atletico-madrid-2-barcelona-4-yamal-torres/
-
-**Ligue 1 game abandoned after fans throw smoke bombs, cause fire**\
-`Montpellier were losing 2-0 when the fixture was abandoned in what was a clash between Ligue 1's bottom two clubs.`\
-https://nytimes.com/athletic/6207916/2025/03/16/montpellier-saint-etienne-ligue-1/
 
