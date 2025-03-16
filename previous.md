@@ -1,3 +1,11 @@
+**Arsenal 1 Chelsea 0 - Stand-in Merino seals another win as Chelsea feel Palmer's absence**\
+`Writers from both teams break down the action from a feisty London derby at the Emirates.`\
+https://nytimes.com/athletic/6200007/2025/03/16/arsenal-chelsea-martinelli-sanchez/
+
+**Giannis Antetokounmpo, Damian Lillard lead Bucks in bounce-back win against Pacers**\
+`Make Lillard give up the ball or crowd Antetokounmpo? The Bucks' two All-Stars made the Pacers pay for their defensive decision on Saturday.`\
+https://nytimes.com/athletic/6206497/2025/03/16/giannis-damian-lillard-bucks-pacers-2/
+
 **Jessie Diggins clinches third overall World Cup cross-country title, extending U.S. record**\
 `The American cross-country star added another major accolade to her career Sunday, clinching another overall World Cup title.`\
 https://nytimes.com/athletic/6206961/2025/03/16/jessie-diggins-world-cup-cross-country-skiing-title/
@@ -9,6 +17,10 @@ https://nytimes.com/2025/03/16/dining/easy-noodles-breakfast-lunch-dinner.html
 **Trump Sends Hundreds of Venezuelans to El Salvador in Face of Judge’s Order**\
 `President Nayib Bukele of El Salvador announced that his country had taken in more than 200 prisoners whom the U.S. has accused of being part of the Tren de Aragua gang.`\
 https://nytimes.com/2025/03/16/us/politics/trump-venezuelans-deportations-el-salvador.html
+
+**Women's March Madness 2025 Selection Sunday: How to watch, who will be No. 1 seeds?**\
+`What are the tournament sites? Can the tournament build on last year's success?`\
+https://nytimes.com/athletic/6201044/2025/03/16/womens-march-madness-2025-selection-sunday-how-to-watch/
 
 **Lowetide: Is the Oilers' AHL team equipped to help the NHL team soon?**\
 `Edmonton's real prospects in the AHL are easy to spot because they are rare at the moment.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/16/opinion/scotland-rural-communities-ulva.html
 **Mixed Messages on Masculinity**\
 `Readers weigh in on masculinity in politics. Also: Making way for corruption; when Donald Trump flouts laws; the perversion of U.S. power.`\
 https://nytimes.com/2025/03/16/opinion/masculinity-republicans-politics.html
-
-**In dealing with pressure, rain and Verstappen, Norris proved his growth in Australia win**\
-`This time 12 months ago, the Australian Grand Prix was the sort of race that Lando Norris and McLaren may have lost `\
-https://nytimes.com/athletic/6206769/2025/03/16/lando-norris-australia-grand-prix-max-verstappen-analysis/
-
-**Palmer out of Chelsea squad vs. Arsenal with injury**\
-`The England international had started all of Chelsea's previous 28 Premier League games so far this season. `\
-https://nytimes.com/athletic/6206870/2025/03/16/chelsea-cole-palmer-arsenal-out/
-
-**Ukraine Retreats From All but a Sliver of Land in Russia’s Kursk Region**\
-`The daring campaign Ukraine launched last summer to seize and occupy Russian territory appears to be nearing an end.`\
-https://nytimes.com/2025/03/16/world/europe/kursk-russia-ukraine.html
 
