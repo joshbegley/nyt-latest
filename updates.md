@@ -1,4 +1,8 @@
 **Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
+`Short-handed Orlando stuns Cleveland, a team it could be in line to meet in the first round of the NBA playoffs.`\
+https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
+
+**Magic formula? Orlando gets physical to end Cavs' 16-game winning streak**\
 `Short-handed Orlando stuns Cleveland, a team it is in line to meet in the first round of the NBA playoffs.`\
 https://nytimes.com/athletic/6207594/2025/03/16/magic-end-cavaliers-winning-streak/
 
