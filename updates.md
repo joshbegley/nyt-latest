@@ -1,3 +1,7 @@
+**The 2025 men's NCAA tournament team that looks most like a champ is ...**\
+`Four squads sure look a lot like past tourney champions in critical statistical areas, but one stands above the rest.`\
+https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-mens-ncaa-tournament/
+
 **March Madness bracket prep 2025: Strengths, weaknesses, team previews and more**\
 `Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
 https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
