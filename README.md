@@ -1,3 +1,7 @@
+**49ers trade RB Jordan Mason to Vikings: Source**\
+`Before suffering an ankle injury in Week 13, Mason accumulated 789 yards and three touchdowns on 153 carries. `\
+https://nytimes.com/athletic/6206273/2025/03/15/49ers-jordan-mason-vikings-trade/
+
 **Players Championship analysis: What to know about J.J. Spaun, Bud Cauley and more**\
 `Spaun will have to break an ominous run of players who held a solo, one-shot lead through 54 holes at this championship.`\
 https://nytimes.com/athletic/6206135/2025/03/15/players-championship-analysis-spaun-cauley/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/15/world/americas/tren-de-aragua-gang-venezuela.html
 **Alex Ovechkin 8 goals away from breaking Wayne Gretzky's record with No. 887**\
 `The Washington Capitals superstar continued to close in on Wayne Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6195311/2025/03/15/alex-ovechkin-goal-887-wayne-gretzky/
-
-**Emotional Mikko Rantanen clears the air on departure from Avalanche: 'I never wanted to leave'**\
-`"I told them I'll be flexible and I want to play here for a long time. Then a couple days later they traded me," Rantanen said Saturday.`\
-https://nytimes.com/athletic/6206058/2025/03/15/stars-mikko-rantanen-avalanche-hurricanes/
 
