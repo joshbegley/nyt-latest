@@ -1,3 +1,7 @@
+**Warriors crank up defense and beat Knicks for 7th straight win: 5 observations**\
+`Golden State's win streak puts them in the sixth seed for the playoffs with a month left in the regular season.`\
+https://nytimes.com/athletic/6206586/2025/03/16/warriors-seventh-straight-win/
+
 **Norris wins, rain causes chaos, six crash out - F1 Australian Grand Prix briefing**\
 `McLaren's Lando Norris wins a chaotic, rain-hit Australian Grand Prix as the 2025 season starts with a dramatic race`\
 https://nytimes.com/athletic/6206412/2025/03/16/f1-australian-grand-prix-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6203332/2025/03/16/carabao-cup-final-liverpool-newc
 **Ratcliffe has become the Glazers' fireguard - and that suits them just fine**\
 `Manchester United's majority shareholders have been silent in one of the club's biggest weeks in years, leaving Ratcliffe centre-stage`\
 https://nytimes.com/athletic/6205393/2025/03/16/manchester-united-jim-ratcliffe-glazers/
-
-**Arsenal, Chelsea and the Raheem Sterling situation**\
-`It has been a frustrating, stop-start season for Sterling at Arsenal, who face the winger’s parent club Chelsea this weekend`\
-https://nytimes.com/athletic/6190428/2025/03/16/arsenal-chelsea-raheem-sterling-latest/
 
