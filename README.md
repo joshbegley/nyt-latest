@@ -1,3 +1,7 @@
+**Wright hat-trick gives USMNT coach Pochettino timely reminder of his talent**\
+`If he can use this hat-trick as a springboard — and stay fit — it will put him firmly on Pochettino’s radar and boost his World Cup chances.`\
+https://nytimes.com/athletic/6206804/2025/03/16/haji-wright-usmnt-pochettino/
+
 **The Rise of Women’s Basketball**\
 `Caitlin Clark helped push the sport to new highs. She didn’t do it alone.`\
 https://nytimes.com/2025/03/16/briefing/womens-basketball.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6206584/2025/03/16/giants-rangers-spring-breakout-g
 **Rick Pitino and the new kings of New York**\
 `A native son who’s synonymous with both the city and the game has reclaimed attention in a city that doesn’t offer it easily.`\
 https://nytimes.com/athletic/6206295/2025/03/16/rick-pitino-st-johns-ncaa-tournament/
-
-**Clippers are heating up, getting healthy, just as schedule gets tougher**\
-`The Clippers appear to be jelling at the right time. They have won five of six games entering Sunday’s home contest.`\
-https://nytimes.com/athletic/6206279/2025/03/16/la-clippers-healthy-tough-schedule/
 
