@@ -1,3 +1,7 @@
+**Surgeon and Professor Is Deported to Lebanon Despite a Judge’s Order**\
+`Dr. Rasha Alawieh, a kidney transplant specialist and Brown University professor who had a valid visa, was expelled in apparent defiance of a court order.`\
+https://nytimes.com/2025/03/16/us/brown-university-rasha-alawieh-professor-deported.html
+
 **Gene Winfield, Whose Cars Starred in Film and on TV, Dies at 97**\
 `He was know for modifying cars with innovative metal work and paint jobs, and for building vehicles like the Galileo shuttle for the original “Star Trek” series.`\
 https://nytimes.com/2025/03/16/obituaries/gene-winfield-dead.html
