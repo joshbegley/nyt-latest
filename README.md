@@ -1,3 +1,11 @@
+**'My career was hanging by a thread': Iga Swiatek responds to criticism of on-court behavior**\
+`Swiatek has described the impact of her positive doping test and fight for the WTA No. 1 ranking on her mindset.`\
+https://nytimes.com/athletic/6210421/2025/03/17/iga-swiatek-tennis-season-indian-wells-behavior/
+
+**Vladimir Guerrero Jr., Ceddanne Rafaela and other notable multi-position eligible players**\
+`Scott Engel runs through all the players with 10-game position eligibility who matter for fantasy baseball 2025.`\
+https://nytimes.com/athletic/6209968/2025/03/17/multi-position-eligibility-fantasy-baseball-2025/
+
 **Gene Hackman’s Wife Died at Least a Day Later Than Originally Thought**\
 `Betsy Arakawa made several calls to a medical clinic on Feb. 12, the day after the authorities initially believed that she died.`\
 https://nytimes.com/2025/03/17/movies/gene-hackman-betsy-arakawa-died-later.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/arts/emilie-dequenne-dead.html
 **Man United doctor Moxon set to join Brighton when he leaves Old Trafford in summer**\
 `The Athletic reported earlier this month Moxon was to leave Old Trafford after two years at the club.`\
 https://nytimes.com/athletic/6210295/2025/03/17/jim-moxon-man-united-brighton/
-
-**Judge Wants U.S. to Explain Timing of Deportation Flights Amid His Order Barring Them**\
-`Tom Homan, the Trump administration’s so-called border czar, suggested he would continue deportation flights no matter what. “I don’t care what the judges think,” he said.`\
-https://nytimes.com/2025/03/17/us/politics/trump-deportation-flights-hearing.html
-
-**The Ugly Effect of Fashion Rumors**\
-`The gossip was right: Jonathan Anderson is leaving Loewe. But the way it is happening is not a great look.`\
-https://nytimes.com/2025/03/17/style/jonathan-anderson-loewe-dior.html
 
