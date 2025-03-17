@@ -1,3 +1,19 @@
+**Rising Democratic Star Enters Race to Fill Houston House Seat**\
+`Christian Menefee, the outspoken Harris County attorney, jumped into the race for a U.S. House seat representing a heavily Democratic district. But Gov. Greg Abbott has yet to set an election date.`\
+https://nytimes.com/2025/03/17/us/houston-house-seat.html
+
+**How to watch the MLB Tokyo Series, baseball's international opener for Cubs and Dodgers**\
+`The Los Angeles Dodgers and Chicago Cubs open the 2025 MLB season from Japan's Tokyo Dome. The two-game series runs Tuesday and Wednesday.`\
+https://nytimes.com/athletic/6204487/2025/03/17/cubs-dodgers-tokyo-series-mlb-how-to-watch/
+
+**Digital Therapists Get Stressed Too, Study Finds**\
+`Chatbots should be built with enough resilience to deal with difficult emotional situations, researchers said.`\
+https://nytimes.com/2025/03/17/science/chatgpt-digital-therapists-anxiety.html
+
+**No Corrections: March 17, 2025**\
+`No corrections appeared in print on Monday, March 17, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/no-corrections-march-17-2025.html
+
 **What I'm seeing from the Jets: Dylan Samberg's emergence, top line's return to form**\
 `Also: Cole Perfetti's top-six success, Scott Arniel's late-game adjustments and how Luke Schenn helps unlock Samberg's defensive game.`\
 https://nytimes.com/athletic/6201299/2025/03/17/winnipeg-jets-nhl-dylan-samberg/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6208091/2025/03/17/fantasy-premier-league-gameweek-
 **Where the NBA playoff (and tanking) races stand with less than a month to go**\
 `There's a scrum for the No. 2 spot in the West and in the middle of the East, while some teams are trying to actively avoid the playoffs.`\
 https://nytimes.com/athletic/6202956/2025/03/17/nba-playoff-races-east-west-tank/
-
-**Conan O’Brien to Host the Oscars Next Year, Too**\
-`Mr. O’Brien received high marks for his work as the emcee of the 97th Oscar telecast this month. It was his first time hosting the show.`\
-https://nytimes.com/2025/03/17/business/conan-obrien-oscars-host-2026.html
-
-**Canadiens weekly notebook: The misfit toys line, Lane Hutson’s shyness to shoot and more**\
-`Also in this week's notebook, Christian Dvorak's details, the Jake Evans line's deep game, and a key defensive principle.`\
-https://nytimes.com/athletic/6209133/2025/03/17/canadiens-weekly-notebook/
-
-**Telegram Founder Charged With Multiple Crimes Is Allowed to Leave France**\
-`Pavel Durov said that the investigation into illicit activity on the messaging app he runs is ongoing, but that he had returned home to Dubai.`\
-https://nytimes.com/2025/03/17/world/europe/pavel-durov-france-telegram-founder.html
-
-**Netanyahu’s Move to Fire Shin Bet Chief Reflects Wider Push for Control**\
-`The effort is part of a dispute between Benjamin Netanyahu’s right-wing alliance and its opponents about the nature and future of the Israeli state.`\
-https://nytimes.com/2025/03/17/world/middleeast/israel-netanyahu-shin-bet-firing.html
 

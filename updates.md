@@ -1,3 +1,19 @@
+**Rising Democratic Star Enters Race to Fill Houston House Seat**\
+`Christian Menefee, the outspoken Harris County attorney, jumped into the race for a U.S. House seat representing a heavily Democratic district. But Gov. Greg Abbott has yet to set an election date.`\
+https://nytimes.com/2025/03/17/us/houston-house-seat.html
+
+**How to watch the MLB Tokyo Series, baseball's international opener for Cubs and Dodgers**\
+`The Los Angeles Dodgers and Chicago Cubs open the 2025 MLB season from Japan's Tokyo Dome. The two-game series runs Tuesday and Wednesday.`\
+https://nytimes.com/athletic/6204487/2025/03/17/cubs-dodgers-tokyo-series-mlb-how-to-watch/
+
+**Digital Therapists Get Stressed Too, Study Finds**\
+`Chatbots should be built with enough resilience to deal with difficult emotional situations, researchers said.`\
+https://nytimes.com/2025/03/17/science/chatgpt-digital-therapists-anxiety.html
+
+**No Corrections: March 17, 2025**\
+`No corrections appeared in print on Monday, March 17, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/no-corrections-march-17-2025.html
+
 **What I'm seeing from the Jets: Dylan Samberg's emergence, top line's return to form**\
 `Also: Cole Perfetti's top-six success, Scott Arniel's late-game adjustments and how Luke Schenn helps unlock Samberg's defensive game.`\
 https://nytimes.com/athletic/6201299/2025/03/17/winnipeg-jets-nhl-dylan-samberg/
