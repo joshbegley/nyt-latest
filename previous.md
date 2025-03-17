@@ -1,3 +1,7 @@
+**Braving Artillery Strikes to Serve Fresh Sushi in a Frontline Town**\
+`Sushi has long been a popular indulgence in Ukraine. For the residents of Sloviansk, a city in Russian cross hairs, it can provide a sense of normalcy that is akin to a necessity in wartime.`\
+https://nytimes.com/2025/03/17/world/europe/ukraine-sloviansk-sushi-restaurant.html
+
 **A Special St. Patrick’s Day Guest: the Head of King George V**\
 `At its show in Australia this weekend, the raucously political rap trio Kneecap brought what appeared to be the missing head of a King George V statue onstage.`\
 https://nytimes.com/2025/03/17/world/australia/king-george-v-stolen-statue-melbourne-kneecap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6209656/2025/03/17/hurricanes-trade-deadline-tulsky
 **Women's March Madness 2025 staff picks: Final Four, national champs, susceptible top seeds**\
 `Our experts are leaning toward UConn to end its title drought and cut down the nets in Tampa.`\
 https://nytimes.com/athletic/6209654/2025/03/17/womens-march-madness-staff-picks-final-four-predictions/
-
-**The Bounce: Are the Magic a kryptonite for the Cavaliers? Plus, Nikola Jokić can't beat the Wizards**\
-`The Cavaliers' 16-game win streak was snapped against the Magic. Could Sunday's loss be a sign of things to come?`\
-https://nytimes.com/athletic/6209629/2025/03/17/donovan-mitchell-cavaliers-magic-nikola-jokic-nuggets-jordan-poole-wizards-nba-the-bounce/
 

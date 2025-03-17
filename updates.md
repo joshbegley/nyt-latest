@@ -1,3 +1,7 @@
+**Braving Artillery Strikes to Serve Fresh Sushi in a Frontline Town**\
+`Sushi has long been a popular indulgence in Ukraine. For the residents of Sloviansk, a city in Russian cross hairs, it can provide a sense of normalcy that is akin to a necessity in wartime.`\
+https://nytimes.com/2025/03/17/world/europe/ukraine-sloviansk-sushi-restaurant.html
+
 **A Special St. Patrick’s Day Guest: the Head of King George V**\
 `At its show in Australia this weekend, the raucously political rap trio Kneecap brought what appeared to be the missing head of a King George V statue onstage.`\
 https://nytimes.com/2025/03/17/world/australia/king-george-v-stolen-statue-melbourne-kneecap.html
