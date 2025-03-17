@@ -1,3 +1,19 @@
+**What I'm seeing from the Jets: Dylan Samberg's emergence, top line's return to form**\
+`Also: Cole Perfetti's top-six success, Scott Arniel's late-game adjustments and how Luke Schenn helps unlock Samberg's defensive game.`\
+https://nytimes.com/athletic/6201299/2025/03/17/winnipeg-jets-nhl-dylan-samberg/
+
+**College baseball week in review: Tennessee asserts dominance, sweeps Florida**\
+`Stanford's Rintaro Sasaki blasts three homers in weekend sweep. Alabama makes a statement. Successful SEC debuts for Oklahoma, Texas. `\
+https://nytimes.com/athletic/6207756/2025/03/17/college-baseball-tennessee-florida-sec/
+
+**Barcelona to appeal after new date for Osasuna game causes fixture clash**\
+`Raphinha and Araujo will be unable to play on the new date as their national teams have World Cup qualifiers only two days before.`\
+https://nytimes.com/athletic/6209429/2025/03/17/barcelona-osasuna-date-la-liga/
+
+**Investigating Deadly Nightclub Fire, North Macedonia Detains Officials**\
+`At least 59 people died and more than 150 were injured in the inferno. The authorities said the venue’s hospitality permit had been issued illegally.`\
+https://nytimes.com/2025/03/17/world/europe/north-macedonia-nightclub-fire-pulse.html
+
 **FPL: What we learned from Gameweek 29 - Palmer woes and how to plan for Gameweek 30**\
 `Abdule Rehman breaks down the main talking points from Gameweek 29 in Fantasy Premier League`\
 https://nytimes.com/athletic/6208091/2025/03/17/fantasy-premier-league-gameweek-29-palmer-elanga/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/17/world/europe/pavel-durov-france-telegram-founder.
 **Netanyahu’s Move to Fire Shin Bet Chief Reflects Wider Push for Control**\
 `The effort is part of a dispute between Benjamin Netanyahu’s right-wing alliance and its opponents about the nature and future of the Israeli state.`\
 https://nytimes.com/2025/03/17/world/middleeast/israel-netanyahu-shin-bet-firing.html
-
-**Is NCAA Tournament expansion a 'slam dunk'?**\
-`College sports leaders have been discussing the possibility of allowing more teams to participate in March Madness for about four years.`\
-https://nytimes.com/athletic/6208926/2025/03/17/ncaa-basketball-tournament-field-expansion-revenue/
-
-**Trump Administration Live Updates: Trump Says He Will Discuss Ukraine With Putin on Tuesday**\
-``\
-https://nytimes.com/live/2025/03/17/us/trump-news
-
-**Accusations of Corporate Espionage Shake a Software Rivalry**\
-`A lawsuit by Rippling accuses a top competitor, Deel, of placing a mole in its ranks — which it uncovered via a “honeypot” trap on Slack.`\
-https://nytimes.com/2025/03/17/business/dealbook/rippling-deel-corporate-spy.html
-
-**Analyzing Rockets' cap situaton, re-signing Fred VanVleet and leverage over Suns**\
-`Kelly Iko talks to cap expert Danny Leroux about how the playoffs will impact the decisions the Rockets will have to make this summer.`\
-https://nytimes.com/athletic/6206243/2025/03/17/rockets-fred-van-vleet-cap-free-agency/
 

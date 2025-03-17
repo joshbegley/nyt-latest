@@ -1,3 +1,19 @@
+**What I'm seeing from the Jets: Dylan Samberg's emergence, top line's return to form**\
+`Also: Cole Perfetti's top-six success, Scott Arniel's late-game adjustments and how Luke Schenn helps unlock Samberg's defensive game.`\
+https://nytimes.com/athletic/6201299/2025/03/17/winnipeg-jets-nhl-dylan-samberg/
+
+**College baseball week in review: Tennessee asserts dominance, sweeps Florida**\
+`Stanford's Rintaro Sasaki blasts three homers in weekend sweep. Alabama makes a statement. Successful SEC debuts for Oklahoma, Texas. `\
+https://nytimes.com/athletic/6207756/2025/03/17/college-baseball-tennessee-florida-sec/
+
+**Barcelona to appeal after new date for Osasuna game causes fixture clash**\
+`Raphinha and Araujo will be unable to play on the new date as their national teams have World Cup qualifiers only two days before.`\
+https://nytimes.com/athletic/6209429/2025/03/17/barcelona-osasuna-date-la-liga/
+
+**Investigating Deadly Nightclub Fire, North Macedonia Detains Officials**\
+`At least 59 people died and more than 150 were injured in the inferno. The authorities said the venue’s hospitality permit had been issued illegally.`\
+https://nytimes.com/2025/03/17/world/europe/north-macedonia-nightclub-fire-pulse.html
+
 **FPL: What we learned from Gameweek 29 - Palmer woes and how to plan for Gameweek 30**\
 `Abdule Rehman breaks down the main talking points from Gameweek 29 in Fantasy Premier League`\
 https://nytimes.com/athletic/6208091/2025/03/17/fantasy-premier-league-gameweek-29-palmer-elanga/
