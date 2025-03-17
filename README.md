@@ -1,3 +1,7 @@
+**Maple Leafs season-ticket price hikes anger fans: 'The cost is enormous'**\
+`Prices in some sections saw a hike of over 20 percent for next year's season tickets.`\
+https://nytimes.com/athletic/6210720/2025/03/17/maple-leafs-ticket-price-increases/
+
 **Trump Discussion With Putin to Focus on What Ukraine Will Lose**\
 `In an echo of the Yalta Conference in 1945, the American and Russian leaders will talk on Tuesday about who gets what in the process of ending the war in Ukraine.`\
 https://nytimes.com/2025/03/17/us/politics/trump-putin-ceasefire-negotiation-ukraine-concessions.html
@@ -33,8 +37,4 @@ https://nytimes.com/section/polls
 **A Venezuelan official, reacting to Trump deportations, wants to discourage Venezuelans from visiting the U.S.**\
 `By Julie Turkewitz`\
 https://nytimes.com/live/2025/03/17/us/trump-news/a-venezuelan-official-reacting-to-trump-deportations-wants-to-discourage-venezuelans-from-visiting-the-us
-
-**Thomas Moser, Woodworker Whose Chairs Were Works of Art, Dies at 90**\
-`Self-taught, he practiced “the lost art of making furniture well,” producing pieces for collectors, presidents and even the pope.`\
-https://nytimes.com/2025/03/17/arts/design/thomas-moser-dead.html
 

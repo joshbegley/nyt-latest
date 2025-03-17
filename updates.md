@@ -1,3 +1,7 @@
+**Trump Discussion With Putin to Focus on What Ukraine Will Lose**\
+`In an echo of the Yalta Conference in 1945, the American and Russian leaders will talk on Tuesday about who gets what in the process of ending the war in Ukraine.`\
+https://nytimes.com/2025/03/17/us/politics/trump-putin-ceasefire-negotiation-ukraine-concessions.html
+
 **Padres name Michael King Opening Day starter over Darvish and Cease**\
 `Michael King arrived as a relative unknown in Padres camp last spring. A year later, the former reliever will start for them on Opening Day.`\
 https://nytimes.com/athletic/6210971/2025/03/17/padres-michael-king-opening-day-starter/
