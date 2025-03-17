@@ -1,3 +1,7 @@
+**Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
+`Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
+https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/
+
 **Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
 `The pair, tied at 12 under par through four rounds, will face off in a three-hole aggregate playoff Monday morning.`\
 https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207874/2025/03/16/gotham-nwsl-mak-whitham-debut/
 **Napheesa Collier named MVP of Unrivaled's inaugural season**\
 `Angel Reese was named Unrivaled's defensive player of the year, and DJ Sackmann earned coach of the year.`\
 https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
-
-**Cardinals name Sonny Gray Opening Day starter; concern over shaky spring minimal**\
-`Gray's outing was abysmal against a Marlins lineup that didn't exactly pack much star power but still beat the Cardinals 11-5.`\
-https://nytimes.com/athletic/6207035/2025/03/16/cardinals-sonny-gray-opening-day-starter/
 
