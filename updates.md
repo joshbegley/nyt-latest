@@ -1,3 +1,11 @@
+**The Windup: MLB season starts very soon**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6209114/2025/03/17/mlb-opening-day-dodgers-cubs-the-windup/
+
+**What I learned from scouting Rockies-White Sox, Reds-Brewers Spring Breakout Games**\
+`The arms shined in the White Sox-Rockies battle, while the bats were on display for the Brewers-Reds prospect showdown.`\
+https://nytimes.com/athletic/6209069/2025/03/17/scouting-rockies-white-sox-brewers-reds-spring-breakout/
+
 **Can You Uncover These 13 Hidden Book Titles?**\
 `See how many works of prose and poetry by popular Irish authors you can find in this short scene — and build a reading list along the way.`\
 https://nytimes.com/interactive/2025/03/17/books/review/irish-title-search.html
