@@ -1,3 +1,7 @@
+**Newcastle United are losers no longer: At last, they are something else**\
+`On March 16 2025, Newcastle rocked up at Wembley and brought the noise. The foundations shook as they ended 70-year domestic trophy drought`\
+https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win-trophy/
+
 **What went wrong for Liverpool at Wembley?**\
 `Liverpool are on course to win the Premier League but they fluffed their lines in the Carabao Cup final. We analyse what happened...`\
 https://nytimes.com/athletic/6207907/2025/03/17/liverpool-carabao-cup-defeat-analysis-slot-salah/
