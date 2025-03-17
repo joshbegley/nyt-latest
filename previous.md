@@ -1,3 +1,15 @@
+**Connections: Sports Edition Coach: Hints for March 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6208955/2025/03/17/connections-sports-edition-hints-for-march-17-2025/
+
+**Nary a Critical Word: Bill Gates’s Close Bond With Narendra Modi**\
+`The relationship between the billionaire philanthropist and the Indian leader helps both men meet their mission. But it also papers over the erosion of rights under Mr. Modi.`\
+https://nytimes.com/2025/03/17/world/asia/india-bill-gates-narendra-modi.html
+
+**Bengals agree to long-term deals with both Chase, Higgins: Source**\
+`Chase becomes the highest paid non-quarterback in the NFL.`\
+https://nytimes.com/athletic/6204498/2025/03/16/jamarr-chase-tee-higgins-extensions/
+
 **South Carolina, UConn open as favorites for the women's March Madness win**\
 `South Carolina and Connecticut opened as the betting favorites, but a group of strong teams are right behind them on the betting board.`\
 https://nytimes.com/athletic/6208595/2025/03/16/march-madness-2025-womens-betting-favorites-national-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
 **Canada wins Los Angeles Sail Grand Prix as favored rivals falter**\
 `Light wind conditions prove troublesome, small mistakes costly for Australia, New Zealand.`\
 https://nytimes.com/athletic/6208633/2025/03/16/los-angeles-sail-grand-prix-canada-wins/
-
-**Who is playing in this year's NIT Tournament? Dayton, SMU among top seeds**\
-`Dayton is making its 28th appearance in the tournament, the most of any team in the 2025 field and the second most all time`\
-https://nytimes.com/athletic/6208585/2025/03/16/nit-mens-basketball-tournament-smu-dayton/
-
-**UConn's path to the Final Four: Will it include a Paige Bueckers vs. JuJu Watkins showdown?**\
-`What hurdles will the Huskies face as they try to win their first championship since 2016?`\
-https://nytimes.com/athletic/6207213/2025/03/16/uconn-bracket-path-final-four/
-
-**The 10 most likely first-round upsets for the 2025 men's NCAA tournament**\
-`Meet the underdogs our predictive model believes have the biggest bite for their first-round foes.`\
-https://nytimes.com/athletic/6207783/2025/03/16/march-madness-2025-upset-picks-first-round/
 
