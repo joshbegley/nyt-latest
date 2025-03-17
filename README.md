@@ -15,7 +15,7 @@ https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
 https://nytimes.com/athletic/6210714/2025/03/17/dougie-freedman-palace-exit/
 
 **Trump Visits Kennedy Center for First Time Since Taking It Over**\
-`The president, who ousted Democrats from the board of the once-bipartisan institution and had himself elected chairman, planned to preside over a meeting of its trustees.`\
+`The president had harsh words for “Hamilton,” which canceled a planned tour there after his takeover, but seemed excited about a long-planned “Les Misérables.”`\
 https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
 
 **Warned Off Meeting Voters, Republicans Who Do Confront Anger and Unease**\
