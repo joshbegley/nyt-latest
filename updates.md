@@ -1,3 +1,7 @@
+**The Athletic college baseball Top 25: Alabama surges after sweeping Texas A&M**\
+`Stanford crashes the top 10 after a weekend sweep over Duke. Florida falls four spots after losing three at No. 1 Tennessee. `\
+https://nytimes.com/athletic/6209648/2025/03/17/college-baseball-rankings-alabama-texas-am-tennessee-florida/
+
 **Texans extend Derek Stingley Jr. on largest deal for DB in NFL history**\
 `Stingley, 23, was a first-team All-Pro in 2024, his third year in the league.`\
 https://nytimes.com/athletic/6209501/2025/03/17/texans-derek-stingley-jr-contract-extension/
