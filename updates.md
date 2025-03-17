@@ -1,3 +1,7 @@
+**D.H.S. Says Deported Professor Attended Hezbollah Leader’s Funeral**\
+`Dr. Rasha Alawieh was detained in Boston and then deported after returning from a trip to Lebanon. The government says a judge’s order that she be allowed to stay in the U.S. came too late.`\
+https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
+
 **Jury Awards Man $50 Million After Starbucks Drink Causes Burns**\
 `Surveillance footage from inside a Starbucks in Los Angeles shows a man writhing in pain after a hot drink spilled on his lap. The video was released by his lawyers.`\
 https://nytimes.com/video/us/100000010056486/starbucks-50-million-hot-tea-accident.html

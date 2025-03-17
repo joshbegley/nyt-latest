@@ -1,3 +1,7 @@
+**D.H.S. Says Deported Professor Attended Hezbollah Leader’s Funeral**\
+`Dr. Rasha Alawieh was detained in Boston and then deported after returning from a trip to Lebanon. The government says a judge’s order that she be allowed to stay in the U.S. came too late.`\
+https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
+
 **Jury Awards Man $50 Million After Starbucks Drink Causes Burns**\
 `Surveillance footage from inside a Starbucks in Los Angeles shows a man writhing in pain after a hot drink spilled on his lap. The video was released by his lawyers.`\
 https://nytimes.com/video/us/100000010056486/starbucks-50-million-hot-tea-accident.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210421/2025/03/17/iga-swiatek-tennis-season-indian
 **Vladimir Guerrero Jr., Ceddanne Rafaela and other notable multi-position eligible players**\
 `Scott Engel runs through all the players with 10-game position eligibility who matter for fantasy baseball 2025.`\
 https://nytimes.com/athletic/6209968/2025/03/17/multi-position-eligibility-fantasy-baseball-2025/
-
-**Gene Hackman’s Wife Died at Least a Day Later Than Originally Thought**\
-`Betsy Arakawa made several calls to a medical clinic on Feb. 12, the day after the authorities initially believed that she died.`\
-https://nytimes.com/2025/03/17/movies/gene-hackman-betsy-arakawa-died-later.html
 

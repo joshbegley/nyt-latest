@@ -1,3 +1,7 @@
+**Universal Music Calls Drake’s ‘Not Like Us’ Lawsuit ‘Misguided’**\
+`The label behind Drake and Kendrick Lamar filed a motion on Monday to dismiss Drake’s lawsuit, which accused it of defamation and harassment over the diss song.`\
+https://nytimes.com/2025/03/17/arts/music/umg-response-drake-lawsuit.html
+
 **D.H.S. Says Deported Professor Attended Hezbollah Leader’s Funeral**\
 `Dr. Rasha Alawieh was detained in Boston and then deported after returning from a trip to Lebanon. The government says a judge’s order that she be allowed to stay in the U.S. came too late.`\
 https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/style/gym-wear-fitness-fashion-trends.html
 **'My career was hanging by a thread': Iga Swiatek responds to criticism of on-court behavior**\
 `Swiatek has described the impact of her positive doping test and fight for the WTA No. 1 ranking on her mindset.`\
 https://nytimes.com/athletic/6210421/2025/03/17/iga-swiatek-tennis-season-indian-wells-behavior/
-
-**Vladimir Guerrero Jr., Ceddanne Rafaela and other notable multi-position eligible players**\
-`Scott Engel runs through all the players with 10-game position eligibility who matter for fantasy baseball 2025.`\
-https://nytimes.com/athletic/6209968/2025/03/17/multi-position-eligibility-fantasy-baseball-2025/
 
