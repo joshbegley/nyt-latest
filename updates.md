@@ -1,3 +1,11 @@
+**Texans extend Derek Stingley Jr. on largest deal for DB in NFL history**\
+`Stingley, 23, was a first-team All-Pro in 2024, his third year in the league.`\
+https://nytimes.com/athletic/6209501/2025/03/17/texans-derek-stingley-jr-contract-extension/
+
+**Extremely Critical Fire Conditions Expected to Return to the Southern Plains**\
+`Forecasters warn that more “very destructive” fires could spread uncontrollably.`\
+https://nytimes.com/2025/03/17/weather/fire-forecast-oklahoma-texas.html
+
 **Rising Democratic Star Enters Race to Fill Houston House Seat**\
 `Christian Menefee, the outspoken Harris County attorney, jumped into the race for a U.S. House seat representing a heavily Democratic district. But Gov. Greg Abbott has yet to set an election date.`\
 https://nytimes.com/2025/03/17/us/houston-house-seat.html
