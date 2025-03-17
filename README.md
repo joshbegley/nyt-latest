@@ -1,4 +1,12 @@
-**USC's path to the Final Four: Before a UConn rematch, Kansas State's 6-6 center looms**\
+**Dodgers' Mookie Betts won’t play in Tokyo Series due to illness**\
+`Dodgers manager Dave Roberts noted that at one point Betts had lost 15 pounds and was severely dehydrated.`\
+https://nytimes.com/athletic/6208764/2025/03/16/dodgers-mookie-betts-illness-tokyo-series/
+
+**Rangers defend well again, but special teams, bad gaps let them down: 4 takeaways**\
+`In a stretch where every point counts, the Rangers played well, but not enough to win against the Oilers.`\
+https://nytimes.com/athletic/6208587/2025/03/16/rangers-defense-special-teams-shesterkin-oilers/
+
+**USC's path to the Final Four: Tall tasks loom before a UConn rematch**\
 `Can JuJu Watkins and Co. make a long run? `\
 https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
 **PWHL sets U.S. attendance record in Detroit as part of Takeover Tour**\
 `The city of Detroit recaptured the U.S. attendance record for professional women's hockey as the PWHL celebrated one million fans.`\
 https://nytimes.com/athletic/6208371/2025/03/16/pwhl-us-attendance-record-detroit-takeover-tour/
-
-**‘The White Lotus’ Season 3, Episode 5 Recap: A Poetic Act**\
-`It was a big week for cutting loose and confessions, for sex as a metaphor but also just for sex.`\
-https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html
-
-**Why are the Phoenix Suns so bad? 'It's not one thing'**\
-`In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
-https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
 
