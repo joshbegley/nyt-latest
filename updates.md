@@ -1,3 +1,7 @@
+**Explaining Man United's ticket price rise - and how a much bigger increase was avoided**\
+`Changes announced on Monday will add an extra £15m in revenue for the club, but how did they arrive at their decision?`\
+https://nytimes.com/athletic/6211010/2025/03/17/manchester-united-season-ticket-rises-explained/
+
 **‘Most European Non-European Country’: Canada Turns to Allies as Trump Threatens**\
 `Days after becoming prime minister, Mark Carney visited Paris and London to highlight deep European friendships as his country fights back against President Trump’s tariffs and annexation talk.`\
 https://nytimes.com/2025/03/17/world/canada/canada-trump-carney-europe.html
