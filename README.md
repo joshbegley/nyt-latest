@@ -1,3 +1,7 @@
+**Man Utd to increase season ticket prices**\
+`This marks the third straight year United have increased season ticket prices.`\
+https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
+
 **Iona fires coach Tobin Anderson after 2 seasons, MAAC championship loss**\
 `Anderson coached Fairleigh Dickinson to a win over Purdue in one of the most iconic upsets in NCAA Tournament history in 2023.`\
 https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets
 **What to know about Rory McIlroy's Players Championship win**\
 `This now makes 16 PGA Tour victories for McIlroy when trailing after 54 holes, by far the most since his first title back in 2010.`\
 https://nytimes.com/athletic/6210007/2025/03/17/players-championship-analysis-mcilroy-win/
-
-**Scoop City: Risers and fallers after free agency's opening week**\
-`Inside: The biggest beneficiaries from the first week of free agency — a list with Caleb Williams, Sean Payton and two of the Bengals&#8217; stars — and the teams whose stocks took hits.`\
-https://nytimes.com/athletic/6209982/2025/03/17/nfl-risers-fallers-trending-free-agency-2025-bears-raiders-seahawks/
 
