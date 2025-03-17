@@ -1,3 +1,7 @@
+**A Special St. Patrick’s Day Guest: the Head of King George V**\
+`At its show in Australia this weekend, the raucously political rap trio Kneecap brought what appeared to be the missing head of a King George V statue onstage.`\
+https://nytimes.com/2025/03/17/world/australia/king-george-v-stolen-statue-melbourne-kneecap.html
+
 **What I learned from scouting Rockies-White Sox, Reds-Brewers Spring Breakout Games**\
 `The arms shined in the White Sox/Rockies battle, while the bats were on display for the Brewers/Reds prospect showdown.`\
 https://nytimes.com/athletic/6209069/2025/03/17/scouting-rockies-white-sox-brewers-reds-spring-breakout/
