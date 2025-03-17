@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, March 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/17/todays-new-york-times-international-edition
+
+**Lamine Yamal steps up for 'Baby Barca' as Hansi Flick's side take control of La Liga title race**\
+`The 17-year-old superstar scored the crucial goal in the 92nd minute as Barcelona overturned a 2-0 deficit to beat Atletico in Madrid`\
+https://nytimes.com/athletic/6209180/2025/03/17/barcelona-atletico-la-liga-title-race/
+
 **Seahawks hope to unlock 'point guard' version of Sam Darnold**\
 `The Seahawks are betting on the philosophy change Darnold adopted the last few years with the 49ers and Vikings will carry over to Seattle.`\
 https://nytimes.com/athletic/6207194/2025/03/17/sam-darnold-seahawks-play-action-passing/
