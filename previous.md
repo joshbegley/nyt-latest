@@ -1,40 +1,40 @@
-**Rob Manfred not expecting change to Japanese player acquisitions with NPB**\
-`Manfred met with his NPB counterpart Sadayuki Sakakibara on Sunday, the second of two days of games between MLB teams and NPB teams.`\
-https://nytimes.com/athletic/6209367/2025/03/17/dodgers-cubs-tokyo-series-japan-manfred-posting/
+**Trump Administration Live Updates: Trump Says He Will Discuss Ukraine With Putin on Tuesday**\
+``\
+https://nytimes.com/live/2025/03/17/us/trump-news
 
-**The Athletic FC: Triumph, tears as Newcastle end 70-year wait, Barca take control in La Liga**\
-`Today in TAFC: Newcastle end their 70-year wait for a domestic trophy, Ancelotti makes a stand, Messi's latest bit of brilliance.`\
-https://nytimes.com/athletic/6209292/2025/03/17/newcastle-league-cup-barcelona-liga/
+**Accusations of Corporate Espionage Shake a Software Rivalry**\
+`A lawsuit by Rippling accuses a top competitor, Deel, of placing a mole in its ranks — which it uncovered via a “honeypot” trap on Slack.`\
+https://nytimes.com/2025/03/17/business/dealbook/rippling-deel-corporate-spy.html
 
-**Kremlin Stays Mum on Agenda for Putin’s Call With Trump**\
-`The call, scheduled for Tuesday, will be the first known conversation between the two leaders since Mr. Putin laid out numerous conditions for a cease-fire with Ukraine.`\
-https://nytimes.com/2025/03/17/world/europe/putin-trump-russia-ukraine.html
+**Analyzing Rockets' cap situaton, re-signing Fred VanVleet and leverage over Suns**\
+`Kelly Iko talks to cap expert Danny Leroux about how the playoffs will impact the decisions the Rockets will have to make this summer.`\
+https://nytimes.com/athletic/6206243/2025/03/17/rockets-fred-van-vleet-cap-free-agency/
 
-**Tennis Briefing: Carlos Alcaraz and Iga Swiatek leave Indian Wells with contrasting challenges**\
-`Both defending champions lost in the semifinals, but their next few months look very different as they defend last year's ranking points.`\
-https://nytimes.com/athletic/6207054/2025/03/17/tennis-carlos-alcaraz-iga-swiatek-season/
+**NCAA Tournament East Region analysis: Can anyone slow down Cooper Flagg and Duke?**\
+`Duke is the clear favorite, but Alabama is one of the best offensive teams in the nation and capable of returning to the Final Four.`\
+https://nytimes.com/athletic/6208273/2025/03/17/east-region-ncaa-tournament-analysis/
 
-**Senators notebook: Drake Batherson's resurgence, Claude Giroux's contract projections, more**\
-`Also, we take a deep look at Dylan Cozens' first five games with the Senators.`\
-https://nytimes.com/athletic/6202062/2025/03/17/ottawa-senators-giroux-batherson-cozens/
+**The Angels got nothing for losing Shohei Ohtani. Could Ryan Johnson shift that narrative?**\
+`If Johnson can turn into something special, maybe there’s at least a silver lining for a downtrodden organization.`\
+https://nytimes.com/athletic/6207431/2025/03/17/angels-ryan-johnson-shohei-ohtani/
 
-**SEC made NCAA Tournament history, but its performance from here will be defining**\
-`The NCAA selection committee echoed what people have been saying since December. Now, it's time for the league to win games when it matters.`\
-https://nytimes.com/athletic/6208794/2025/03/17/sec-ncaa-tournament-14-teams/
+**Russo and Smith: As Wild season spirals, deadline regret is inevitable — 'Not getting any younger'**\
+`Marcus Foligno says for players, it "gives you a little bit of jealousy" to see other teams do more than the Wild at the deadline.`\
+https://nytimes.com/athletic/6207787/2025/03/17/wild-trade-deadline-regret-foligno/
 
-**NCAA Tournament power rankings: The 16 teams most likely to win it all**\
-`The SEC is well-represented among title contenders, but its best squads open behind the No. 1 team in these pre-tournament rankings.`\
-https://nytimes.com/athletic/6208532/2025/03/17/ncaa-tournament-power-rankings-champion-favorites/
+**Midwest Region breakdown: Can Houston take down Tennessee and Kentucky for Final Four trip?**\
+`The Midwest Region features an intriguing mix of NCAA Tournament staples and upstarts with the capability to bust brackets.`\
+https://nytimes.com/athletic/6208224/2025/03/17/midwest-region-ncaa-tournament-analysis-houston/
 
-**P.J. Washington, Mavericks players 'sick and tired' of hearing 'Fire Nico' chants**\
-`"We just want to go out there and play, and we need the fans to support us, no matter who’s on the floor," Washington said on Sunday.`\
-https://nytimes.com/athletic/6208022/2025/03/17/mavericks-pj-washington-fire-nico-chants/
+**NCAA Tournament West Region analysis: Get ready for a clash of coaching titans**\
+`The West Region features potential clashes of some of the sport's biggest coaches, from Bill Self to John Calipari and Rick Pitino. `\
+https://nytimes.com/athletic/6208300/2025/03/17/west-region-ncaa-tournament-analysis/
 
-**Los Angeles Dodgers 2025 season preview: roster breakdown, projections, and bold prediction**\
-`Can the Dodgers become MLB's first repeat champions since the Yankees pulled off a three-peat with World Series wins in 1998, 1999 and 2000?`\
-https://nytimes.com/athletic/6204570/2025/03/17/los-angeles-dodgers-2025-season-preview/
+**Unpicking the curious genius of Joelinton - a player like no other**\
+`The Brazilian has become invaluable to Newcastle in a bewildering array of roles and could be just what his national team need`\
+https://nytimes.com/athletic/6207965/2025/03/17/joelinton-newcastle-carabao-cup/
 
-**What I'm seeing at Astros camp: Where Chas McCormick stands, Jake Meyers' voice and more**\
-`Cam Smith playing right field throws McCormick's future with the team into question and Isaac Paredes is getting a look as the No. 2 hitter.`\
-https://nytimes.com/athletic/6205879/2025/03/17/astros-cam-smith-chas-mccormick-jose-altuve-jake-meyers-outfield/
+**Could Bryce Underwood be Michigan's Day 1 starter? 5 spring questions**\
+`Michigan opens spring football practice on Tuesday. Here's what we're paying close attention to over the next few weeks.`\
+https://nytimes.com/athletic/6206996/2025/03/17/michigan-football-bryce-underwood-spring-practice/
 
