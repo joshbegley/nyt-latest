@@ -1,3 +1,7 @@
+**gws-older-woman-babygirl-kidman**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/older-woman-babygirl-kidman
+
 **gws-arts-music-nona-hendryx**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/arts-music-nona-hendryx
