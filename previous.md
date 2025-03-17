@@ -1,3 +1,15 @@
+**The Briefing: How should we feel about Newcastle's win - and what's happened to Chelsea?**\
+`Analysing the big talking points from the English football weekend - including the Carabao Cup final and an awful bottom three`\
+https://nytimes.com/athletic/6207666/2025/03/17/newcastle-carabao-cup-win-saudi-owners/
+
+**Blues pull even in points for a playoff spot in the West behind captain Brayden Schenn**\
+`Columbus' 7-2 win over Anaheim on Sunday gave it 73 points, pulling it even with Vancouver for the second wild card in the West.`\
+https://nytimes.com/athletic/6208058/2025/03/17/blues-playoff-spot-brayden-schenn-ducks/
+
+**Newcastle United are losers no longer: at last, they are something else**\
+`On March 16 2025, Newcastle rocked up at Wembley and brought the noise. The foundations shook as they ended 70-year domestic trophy drought`\
+https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win-trophy/
+
 **Word of the Day: shenanigan**\
 `This word has appeared in 159 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/17/learning/word-of-the-day-shenanigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6205469/2025/03/17/tomas-soucek-west-ham-moyes/
 **Chelsea's big-game mentality has deserted them - just look at their record against the top teams**\
 `It has been years since Chelsea beat Liverpool, Arsenal or Manchester City away from home. Their mentality has to change`\
 https://nytimes.com/athletic/6207167/2025/03/17/chelsea-arsenal-results-mentality/
-
-**O'Brien has demonstrated his value to Everton**\
-`Struggling for game-time under Dyche, now thriving out of position at full-back, the Irishman has repaid the club's faith in his talent`\
-https://nytimes.com/athletic/6205936/2025/03/17/jake-obrien-everton-transfer-2/
-
-**Manchester United are slowly finding their physical side**\
-`There were marginal improvements across the pitch as Ruben Amorim's side humbled Leicester with the requisite intensity`\
-https://nytimes.com/athletic/6203258/2025/03/17/manchester-united-leicester-physicality-leicester/
-
-**Elanga and Milenkovic offer further proof this Forest side is packed with international class**\
-`The Swede's attacking prowess and the Serbian's all-round game have played a huge part in the club's bid for Champions League qualification`\
-https://nytimes.com/athletic/6206776/2025/03/17/elanga-and-milenkovic-prove-this-forest-side-is-packed-with-international-class/
 
