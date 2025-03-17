@@ -1,3 +1,7 @@
+**Freedman to leave role as Palace sporting director**\
+`The 50-year-old, who also played for the south London club, has had build a strong reputation in the role since taking it on in 2017.`\
+https://nytimes.com/athletic/6210714/2025/03/17/dougie-freedman-palace-exit/
+
 **Trump Visits Kennedy Center for First Time Since Taking It Over**\
 `The president, who ousted Democrats from the board of the once-bipartisan institution and had himself elected chairman, planned to preside over a meeting of its trustees.`\
 https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
