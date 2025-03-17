@@ -1,3 +1,27 @@
+**Trump Says He Will Talk to Putin on Tuesday to Discuss Ukraine**\
+`President Trump’s special envoy met with President Vladimir V. Putin of Russia last week to discuss a cease-fire proposal.`\
+https://nytimes.com/2025/03/17/us/politics/trump-putin-ukraine-phone-call.html
+
+**Monday Briefing**\
+`The Trump administration deported hundreds of Venezuelans.`\
+https://nytimes.com/2025/03/17/briefing/venezuelans-trump-ukraine.html
+
+**The Women Most Affected by Abortion Bans**\
+`After the Dobbs decision, births rose in states with bans, but more for some women than others.`\
+https://nytimes.com/2025/03/17/upshot/abortion-bans-births-study.html
+
+**The New York Times in Print for Monday, March 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/17/todays-new-york-times
+
+**Trump Isn’t Just Attacking Trans People. He’s Denationalizing Them.**\
+`The message is that we are a threat to the nation. The subtext is that we are not of this nation.`\
+https://nytimes.com/2025/03/17/opinion/trump-trans-denationalizing.html
+
+**‘The Residence,’ Plus 7 Things to Watch on TV this Week**\
+`A new murder-mystery series, starring Uzo Aduba, comes to Netflix, and Oscar-winning films come to streaming platforms.`\
+https://nytimes.com/2025/03/17/arts/television/the-residence-plus-7-things-to-watch-on-tv-this-week.html
+
 **Texas' path to the Final Four: Will Notre Dame, Tennessee or Ohio State stand in the way?**\
 `The Longhorns haven't been to the Final Four since 2003. Is this their year? `\
 https://nytimes.com/athletic/6207826/2025/03/17/texas-path-final-four-region/
