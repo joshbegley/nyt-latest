@@ -1,3 +1,11 @@
+**Yohe: Penguins fans believe in tanking for good reason, but it's a dangerous game**\
+`Tanking for draft picks doesn't usually lead to success, so don't fret about this Penguins' winning streak. `\
+https://nytimes.com/athletic/6209652/2025/03/17/penguins-fans-tanking-draft/
+
+**Democracy Is on the Line in Israel and America**\
+`The rule of law is in danger in both America and Israel if some red lines are not drawn and defended.`\
+https://nytimes.com/live/2025/03/10/opinion/thepoint/netanyahu-shin-bet-israel
+
 **Listen: Pod on the Tyne capture the immediate reaction to Newcastle ending their trophy drought**\
 `Pod On The Tyne discuss Newcastle's historic Carabao Cup triumph over Liverpool`\
 https://nytimes.com/athletic/6209661/2025/03/17/pod-on-the-tyne-newcastle-podcast-carabao-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/17/books/review/irish-title-search.html
 **‘This Is Actually a Perfect Recipe’**\
 `David Tanis’s five-star Irish stew needs only six ingredients, but the result is classic comfort.`\
 https://nytimes.com/2025/03/17/dining/perfect-irish-stew.html
-
-**How Facing Death Prepared Me for Heart Surgery**\
-`A writer explores how a Jewish ritual changed her relationship with mortality.`\
-https://nytimes.com/2025/03/17/well/mind/surviving-heart-surgery.html
-
-**Lowetide: What Oilers can expect from Trent Frederic when he enters lineup**\
-`Frederic will soon start ramping up for his first NHL action with his new team.`\
-https://nytimes.com/athletic/6207255/2025/03/17/edmonton-oilers-trent-frederic-stats/
 
