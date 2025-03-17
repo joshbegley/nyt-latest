@@ -1,3 +1,7 @@
+**Premier League announces Puma as new ball supplier, replacing Nike**\
+`As The Athletic reported in 2023, the agreement ends Nike's 25-year association with the Premier League.`\
+https://nytimes.com/athletic/6209235/2025/03/17/premier-league-puma-nike-ball/
+
 **The New York Times International Edition in Print for Tuesday, March 18, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/17/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/business/economy-inflation-fed-trump.html
 **High-Rise? Low-Rise? How Do I Know Which Jeans Are Best for Me?**\
 `In the current moment, it can seem as if anything goes. Our critic explains how to solve the riddle of which cut of jeans is right for you.`\
 https://nytimes.com/2025/03/17/fashion/jeans-high-low-rise.html
-
-**Evaluating Cowboys' free-agency work: Where did they improve? Where are the holes?**\
-`Receiver, cornerback and defensive tackle remain key positions where the Cowboys still have plenty of work to do.`\
-https://nytimes.com/athletic/6207561/2025/03/17/cowboys-free-agency-evaluation-position-analysis/
 
