@@ -1,3 +1,7 @@
+**Ohio State spring practice takeaways: Early look at 3-man QB room, fresh faces in O-line**\
+`Ohio State opened spring practice Monday, less than two months after its national championship.`\
+https://nytimes.com/athletic/6210309/2025/03/17/ohio-state-spring-practice-takeaways-early-look-at-3-man-qb-room-fresh-faces-in-o-line/
+
 **Watch: Who are the NBA playoff favorites in the West?**\
 `NBA Daily discuss the fierce playoff battle in the Western Conference and who will secure the No. 2 seed.`\
 https://nytimes.com/athletic/6209852/2025/03/17/nba-daily-playoffs-western-conference/

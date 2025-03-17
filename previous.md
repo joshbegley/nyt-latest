@@ -1,3 +1,7 @@
+**Ohio State spring practice takeaways: Early look at 3-man QB room, fresh faces in O-line**\
+`Ohio State opened spring practice Monday, less than two months after its national championship.`\
+https://nytimes.com/athletic/6210309/2025/03/17/ohio-state-spring-practice-takeaways-early-look-at-3-man-qb-room-fresh-faces-in-o-line/
+
 **Watch: Who are the NBA playoff favorites in the West?**\
 `NBA Daily discuss the fierce playoff battle in the Western Conference and who will secure the No. 2 seed.`\
 https://nytimes.com/athletic/6209852/2025/03/17/nba-daily-playoffs-western-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6181787/2025/03/17/steelers-nfl-draft-prospect-visi
 **Jury Awards $50 Million to California Man Burned by Starbucks Tea**\
 `Michael Garcia, 30, underwent skin grafts on his genitals after a hot tea spilled on him in a Starbucks drive-through in 2020, his lawyers said.`\
 https://nytimes.com/2025/03/17/business/starbucks-driver-burn-verdict.html
-
-**Chiefs free agency tracker: QB Gardner Minshew is Patrick Mahomes' new backup**\
-`Nick Bolton, Kareem Hunt and JuJu Smith-Schuster are among the players the Chiefs are bringing back.  We're tracking all their moves here.`\
-https://nytimes.com/athletic/6185493/2025/03/17/kansas-city-chiefs-2025-free-agency-tracker/
 
