@@ -1,3 +1,7 @@
+**Trump Visits Kennedy Center for First Time Since Taking It Over**\
+`The president, who ousted Democrats from the board of the once-bipartisan institution and had himself elected chairman, planned to preside over a meeting of its trustees.`\
+https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
+
 **Warned Off Meeting Voters, Republicans Who Do Confront Anger and Unease**\
 `In a deeply conservative district and a more liberal one, two Republicans found uncertainty and anxiety about the Trump administration’s agenda and their support of it.`\
 https://nytimes.com/2025/03/17/us/politics/republicans-town-halls.html
@@ -14,8 +18,8 @@ https://nytimes.com/2025/03/17/arts/music/jesse-colin-young-dead.html
 `The label behind Drake and Kendrick Lamar filed a motion on Monday to dismiss Drake’s lawsuit, which accused it of defamation and harassment over the diss song.`\
 https://nytimes.com/2025/03/17/arts/music/umg-response-drake-lawsuit.html
 
-**D.H.S. Says Deported Professor Attended Hezbollah Leader’s Funeral**\
-`Dr. Rasha Alawieh was detained in Boston and then deported after returning from a trip to Lebanon. The government says a judge’s order that she be allowed to stay in the U.S. came too late.`\
+**D.H.S. Sheds Light on Why it Deported Rhode Island Doctor**\
+`Dr. Rasha Alawieh was detained in Boston and denied entry when returning from a trip to Lebanon. The government says she attended a Hezbollah leader’s funeral.`\
 https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
 
 **Jury Awards Man $50 Million After Starbucks Drink Causes Burns**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210517/2025/03/17/boxing-olympics-los-angeles-iba/
 **West Virginia governor: WVU omission from NCAA tourney a 'miscarriage of justice'**\
 `Gov. Patrick Morrisey held a news conference one day after the West Virginia Mountaineers were left off the men's bracket unveiled Sunday.`\
 https://nytimes.com/athletic/6210432/2025/03/17/west-virginia-governor-ncaa-tournament-basketball/
-
-**Sanders wants Colorado playing 'competitive' opponent in future spring games**\
-`Sanders' idea mimics the NFL and would feature joint practices before the spring scrimmage.`\
-https://nytimes.com/athletic/6210481/2025/03/17/colorado-deion-sanders-spring-game-opponent-comments/
 
