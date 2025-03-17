@@ -1,3 +1,7 @@
+**Jesse Colin Young, Singer Who Urged Us to ‘Get Together,’ Dies at 83**\
+`As the leader of the Youngbloods, he sang one of the enduring anthems of the peace-and-love era. He went on to have a prolific career as a solo artist.`\
+https://nytimes.com/2025/03/17/arts/music/jesse-colin-young-dead.html
+
 **Universal Music Calls Drake’s ‘Not Like Us’ Lawsuit ‘Misguided’**\
 `The label behind Drake and Kendrick Lamar filed a motion on Monday to dismiss Drake’s lawsuit, which accused it of defamation and harassment over the diss song.`\
 https://nytimes.com/2025/03/17/arts/music/umg-response-drake-lawsuit.html

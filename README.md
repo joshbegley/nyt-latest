@@ -1,3 +1,11 @@
+**Warned Off Meeting Voters, Republicans Who Do Confront Anger and Unease**\
+`In a deeply conservative district and a more liberal one, two Republicans found uncertainty and anxiety about the Trump administration’s agenda and their support of it.`\
+https://nytimes.com/2025/03/17/us/politics/republicans-town-halls.html
+
+**Men's NCAA Tournament best bets for champion, Final Four, Sweet 16**\
+`Austin Mock makes his best futures bets for the 2025 men's NCAA Tournament, including one bet on a national champion.`\
+https://nytimes.com/athletic/6210647/2025/03/17/mens-ncaa-tournament-best-bets-futures/
+
 **Jesse Colin Young, Singer Who Urged Us to ‘Get Together,’ Dies at 83**\
 `As the leader of the Youngbloods, he sang one of the enduring anthems of the peace-and-love era. He went on to have a prolific career as a solo artist.`\
 https://nytimes.com/2025/03/17/arts/music/jesse-colin-young-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6210432/2025/03/17/west-virginia-governor-ncaa-tour
 **Sanders wants Colorado playing 'competitive' opponent in future spring games**\
 `Sanders' idea mimics the NFL and would feature joint practices before the spring scrimmage.`\
 https://nytimes.com/athletic/6210481/2025/03/17/colorado-deion-sanders-spring-game-opponent-comments/
-
-**Chalk is for suckers! Four teams to fade in the men's bracket**\
-`Four teams look shakier than their seeding would indicate. Brett Koremenos breaks down the data to see which popular teams could fall early.`\
-https://nytimes.com/athletic/6207520/2025/03/17/popular-2025-march-madness-favorites-that-could-lose-early/
-
-**Millennials and Gen Z Are Fighting Again. This Time About Gym Clothes.**\
-`Are you team tight-on-tight or tight-on-baggy?`\
-https://nytimes.com/2025/03/17/style/gym-wear-fitness-fashion-trends.html
 
