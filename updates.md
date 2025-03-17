@@ -1,3 +1,11 @@
+**The 10 most likely first-round upsets for the 2025 men's NCAA tournament**\
+`Meet the underdogs our predictive model believes have the biggest bite for their first-round foes.`\
+https://nytimes.com/athletic/6207783/2025/03/16/march-madness-2025-upset-picks-first-round/
+
+**South Carolina's road to the Final Four: Could Duke's momentum upturn the Gamecocks?**\
+`Will the Gamecocks be able to repeat as national champs? `\
+https://nytimes.com/athletic/6207860/2025/03/16/south-carolinas-path-final-four-region/
+
 **How A.I. Is Changing the Way the World Builds Computers**\
 `Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
 https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html

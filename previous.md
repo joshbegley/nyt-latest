@@ -1,3 +1,11 @@
+**The 10 most likely first-round upsets for the 2025 men's NCAA tournament**\
+`Meet the underdogs our predictive model believes have the biggest bite for their first-round foes.`\
+https://nytimes.com/athletic/6207783/2025/03/16/march-madness-2025-upset-picks-first-round/
+
+**South Carolina's road to the Final Four: Could Duke's momentum upturn the Gamecocks?**\
+`Will the Gamecocks be able to repeat as national champs? `\
+https://nytimes.com/athletic/6207860/2025/03/16/south-carolinas-path-final-four-region/
+
 **How A.I. Is Changing the Way the World Builds Computers**\
 `Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
 https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207081/2025/03/16/womens-march-madness-bracket-pre
 **Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
 `Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
 https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/
-
-**Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
-`The pair, tied at 12 under par through four rounds, will face off in a three-hole aggregate playoff Monday morning.`\
-https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
-
-**How North Carolina nabbed final spot in NCAA Tournament**\
-`The Tar Heels, who hold a 1-12 record against Quad 1 teams this season, earned a bid despite a poor showing against the country’s top teams.`\
-https://nytimes.com/athletic/6208212/2025/03/16/north-carolina-ncaa-tournament-2/
 
