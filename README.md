@@ -1,3 +1,11 @@
+**Why are the Phoenix Suns so bad? 'It's not one thing'**\
+`In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
+https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
+
+**No. 1 UCLA's road to the Final Four: Will LSU or Baylor contain Lauren Betts? Not likely**\
+`Can Lauren Betts and Co. make a run to a national championship? `\
+https://nytimes.com/athletic/6207406/2025/03/16/ucla-final-four-path-region/
+
 **CJ Moore picks every game of the NCAA Tournament: Why Florida wins it all**\
 `Early chalk might not make for as fun of a first weekend, but the matchups in the second weekend and at the Final Four could be epic.`\
 https://nytimes.com/athletic/6207830/2025/03/16/mens-ncaa-tournament-2025-bracket-picks-all-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/16/world/americas/el-salvador-venezuela-deportations
 **Who were the first 4 teams left out of men's NCAA Tournament?**\
 `Were Indiana, West Virginia, Ohio State and Boise State snubbed? A look at how teams fared during regular season.`\
 https://nytimes.com/athletic/6207963/2025/03/16/first-four-out-ncaa-tournament-west-virginia/
-
-**Quotation of the Day: Five Years Ago They Realized a Dream. Covid-19 Stopped Anyone From Seeing It.**\
-`Quotation of the Day for Monday, March 17, 2025.`\
-https://nytimes.com/2025/03/16/pageoneplus/quotation-of-the-day-five-years-ago-they-realized-a-dream-covid-19-stopped-anyone-from-seeing-it.html
-
-**Print your March Madness bracket for the women's NCAA Tournament**\
-`Fill out your tournament bracket.`\
-https://nytimes.com/athletic/6201899/2025/03/16/printable-womens-march-madness-bracket/
 
