@@ -1,3 +1,19 @@
+**Jury Awards $50 Million to California Man Burned by Starbucks Tea**\
+`Michael Garcia, 30, underwent skin grafts on his genitals after a hot tea spilled on him in a Starbucks drive-through in 2020, his lawyers said.`\
+https://nytimes.com/2025/03/17/business/starbucks-driver-burn-verdict.html
+
+**Hansi Flick has turned Barcelona into an unusually complete football team**\
+`Diego Simeone describes Barcelona's crossing as a 'natural' part of their game - but that's down to the changes Flick has implemented`\
+https://nytimes.com/athletic/6210066/2025/03/17/barcelona-style-hansi-flick-crossing/
+
+**Preston's Osmajic charged by FA after Hannibal's accusation of racism**\
+`The alleged incident happened during a Championship game on February 15. Preston has previously rejected the allegation on Osmajic's behalf.`\
+https://nytimes.com/athletic/6138369/2025/03/17/osmajic-hannibal-mejbri-burnley-preston/
+
+**Chiefs free agency tracker: QB Gardner Minshew is Patrick Mahomes' new backup**\
+`Nick Bolton, Kareem Hunt and JuJu Smith-Schuster are among the players the Chiefs are bringing back.  We're tracking all their moves here.`\
+https://nytimes.com/athletic/6185493/2025/03/17/kansas-city-chiefs-2025-free-agency-tracker/
+
 **Why Helsinki Is Worth Visiting for the Architecture Alone**\
 `With its radical buildings by Eliel Saarinen and Alvar Aalto, the Finnish capital is one of Europe’s most fascinating, if lesser-sung, design capitals.`\
 https://nytimes.com/2025/03/17/t-magazine/helsinki-finland-architecture-guide.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6209775/2025/03/17/nascar-las-vegas-takeaways-wood-
 **Watching Newcastle win a trophy in the city centre: 'I'm over the moon for Kevin Keegan'**\
 `The streets of Newcastle were deserted while supporters crammed in to pubs and watched, entranced, as their team triumphed 270 miles away`\
 https://nytimes.com/athletic/6209182/2025/03/17/newcastle-carabao-cup-supporters-city-centre-blyth/
-
-**Bucks' offense stalls in loss to Thunder as five-game Western Conference trip looms**\
-`Oklahoma City, with the league's top defense by a wide margin, made it tough on Milwaukee's offense to play with freedom and purpose.`\
-https://nytimes.com/athletic/6209290/2025/03/17/bucks-thunder-giannis-antetokounmpo/
-
-**Schumer and the Shutdown About-Face**\
-`Responses to Senator Chuck Schumer’s reversal on the stopgap spending bill. Also: A Trump threat to law firms; the risk of TB; theaters in peril.`\
-https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown.html
-
-**Messi left out of Argentina squad for World Cup qualifiers**\
-`The workload of the 37-year-old Argentina captain has been managed since the start of the Major League Soccer season.`\
-https://nytimes.com/athletic/6210178/2025/03/17/lionel-messi-argentina-squad/
-
-**Man Utd to increase season ticket prices**\
-`This marks the third straight year United have increased season ticket prices.`\
-https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
 
