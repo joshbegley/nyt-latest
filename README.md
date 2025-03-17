@@ -1,3 +1,7 @@
+**You’ve Come to the Right Person**\
+`Big mysteries that require one specific person to answer them.`\
+https://nytimes.com/2025/03/17/podcasts/youve-come-to-the-right-person-this-american-life-nyt-audio.html
+
 **World Cup Cinderellas chasing the magic of first-time qualification**\
 `A handful of underdogs find themselves with a real chance of clinching a historic World Cup place.`\
 https://nytimes.com/athletic/6201777/2025/03/17/2026-world-cup-qualifying-cinderellas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207907/2025/03/17/liverpool-carabao-cup-defeat-ana
 **Blues pull even in points for a playoff spot in the West behind captain Brayden Schenn**\
 `Columbus' 7-2 win over Anaheim on Sunday gave it 73 points, pulling it even with Vancouver for the second wild card in the West.`\
 https://nytimes.com/athletic/6208058/2025/03/17/blues-playoff-spot-brayden-schenn-ducks/
-
-**Newcastle United are losers no longer: At last, they are something else**\
-`On March 16 2025, Newcastle rocked up at Wembley and brought the noise. The foundations shook as they ended 70-year domestic trophy drought`\
-https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win-trophy/
 
