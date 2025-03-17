@@ -1,4 +1,4 @@
-**Tired Canucks blew opportunity to crush Utah’s playoff chances: 3 takeaways**\
+**Tired Canucks blow opportunity to crush Utah’s playoff chances: 3 takeaways**\
 `A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
 https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
 

@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/16/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Tired Canucks blow opportunity to crush Utah’s playoff chances: 3 takeaways**\
 `A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
 https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207783/2025/03/16/march-madness-2025-upset-picks-f
 **South Carolina's road to the Final Four: Could Duke's momentum upturn the Gamecocks?**\
 `Will the Gamecocks be able to repeat as national champs? `\
 https://nytimes.com/athletic/6207860/2025/03/16/south-carolinas-path-final-four-region/
-
-**How A.I. Is Changing the Way the World Builds Computers**\
-`Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
-https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
 
