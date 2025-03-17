@@ -1,3 +1,7 @@
+**South Carolina, UConn open as favorites for the women's March Madness win**\
+`South Carolina and Connecticut opened as the betting favorites, but a group of strong teams are right behind them on the betting board.`\
+https://nytimes.com/athletic/6208595/2025/03/16/march-madness-2025-womens-betting-favorites-national-championship/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/16/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
