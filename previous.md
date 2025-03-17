@@ -1,3 +1,7 @@
+**Introducing a New Project to Track Polls**\
+`The Times will aggregate public opinion surveys and produce new polling averages, starting with polls that ask about President Trump’s job performance. And we will make the data available to everyone.`\
+https://nytimes.com/2025/03/17/polls/donald-trump-approval-poll-tracker.html
+
 **Latest Polls: Do Americans Approve of President Trump?**\
 `Track the latest polls about Americans’ approval of President Trump.`\
 https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/republicans-town-halls.html
 **Men's NCAA Tournament best bets for champion, Final Four, Sweet 16**\
 `Austin Mock makes his best futures bets for the 2025 men's NCAA Tournament, including one bet on a national champion.`\
 https://nytimes.com/athletic/6210647/2025/03/17/mens-ncaa-tournament-best-bets-futures/
-
-**Jesse Colin Young, Singer Who Urged Us to ‘Get Together,’ Dies at 83**\
-`As the leader of the Youngbloods, he sang one of the enduring anthems of the peace-and-love era. He went on to have a prolific career as a solo artist.`\
-https://nytimes.com/2025/03/17/arts/music/jesse-colin-young-dead.html
 

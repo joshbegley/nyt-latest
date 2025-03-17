@@ -1,3 +1,7 @@
+**Introducing a New Project to Track Polls**\
+`The Times will aggregate public opinion surveys and produce new polling averages, starting with polls that ask about President Trump’s job performance. And we will make the data available to everyone.`\
+https://nytimes.com/2025/03/17/polls/donald-trump-approval-poll-tracker.html
+
 **Latest Polls: Do Americans Approve of President Trump?**\
 `Track the latest polls about Americans’ approval of President Trump.`\
 https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
