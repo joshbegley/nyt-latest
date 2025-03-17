@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, March 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/17/todays-new-york-times-international-edition
+
+**Lamine Yamal steps up for 'Baby Barca' as Hansi Flick's side take control of La Liga title race**\
+`The 17-year-old superstar scored the crucial goal in the 92nd minute as Barcelona overturned a 2-0 deficit to beat Atletico in Madrid`\
+https://nytimes.com/athletic/6209180/2025/03/17/barcelona-atletico-la-liga-title-race/
+
 **There’s a Price for Promising What Isn’t Possible in Congress**\
 `If Democrats don’t get a better grip on what is achievable in Congress, they will fall victim to the infighting that has long plagued Republicans.`\
 https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown-tea-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/fashion/jeans-high-low-rise.html
 **Evaluating Cowboys' free-agency work: Where did they improve? Where are the holes?**\
 `Receiver, cornerback and defensive tackle remain key positions where the Cowboys still have plenty of work to do.`\
 https://nytimes.com/athletic/6207561/2025/03/17/cowboys-free-agency-evaluation-position-analysis/
-
-**The Blood Worm Moon and the Mustard Seed**\
-`Despite our worst actions, nature still delivers us miracles, above and below.`\
-https://nytimes.com/2025/03/17/opinion/total-eclipse-tennessee-flowers.html
-
-**Syria’s Struggle to Unify Military Was Evident in Outburst of Violence**\
-`Sectarian-driven killings of civilians this month displayed the government’s weak control over both its own forces and affiliated fighters, experts said.`\
-https://nytimes.com/2025/03/17/world/middleeast/syria-military-assad.html
 
