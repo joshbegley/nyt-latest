@@ -1,3 +1,11 @@
+**From Welcoming New Life to Mourning Its Loss, in 22 Weeks**\
+`In the memoir “Firstborn,” Lauren Christensen writes about losing the daughter she was expecting.`\
+https://nytimes.com/2025/03/17/books/review/firstborn-lauren-christensen.html
+
+**Do You Want to Learn How to Make a Crossword?**\
+`The fourth New York Times Diverse Crossword Constructor Fellowship begins in June.`\
+https://nytimes.com/2025/03/17/crosswords/do-you-want-to-learn-how-to-make-a-crossword.html
+
 **The 10 most likely first-round upsets for the 2025 women's NCAA tournament**\
 `Upsets aren't as frequent in the women's tournament, making it even more valuable when you can predict them for your bracket pool.`\
 https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets-first-round/

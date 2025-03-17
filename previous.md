@@ -1,3 +1,11 @@
+**From Welcoming New Life to Mourning Its Loss, in 22 Weeks**\
+`In the memoir “Firstborn,” Lauren Christensen writes about losing the daughter she was expecting.`\
+https://nytimes.com/2025/03/17/books/review/firstborn-lauren-christensen.html
+
+**Do You Want to Learn How to Make a Crossword?**\
+`The fourth New York Times Diverse Crossword Constructor Fellowship begins in June.`\
+https://nytimes.com/2025/03/17/crosswords/do-you-want-to-learn-how-to-make-a-crossword.html
+
 **The 10 most likely first-round upsets for the 2025 women's NCAA tournament**\
 `Upsets aren't as frequent in the women's tournament, making it even more valuable when you can predict them for your bracket pool.`\
 https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets-first-round/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6209457/2025/03/17/nba-all-defense-rules-impact-dra
 **Schumer Postpones Book Tour Amid Backlash to Voting With Republicans**\
 `Many Democratic activists, desperate for their leaders to stand up to President Trump, have been staging protests outside of Senator Chuck Schumer’s home and calling for his resignation.`\
 https://nytimes.com/2025/03/17/us/politics/chuck-schumer-book-tour-postponed.html
-
-**Review: ‘We Are the Lucky Ones’ Gives Voice to a Generation**\
-`This new opera assembles a compassionate, haunting portrait of the middle class that emerged from World War II and considers what they leave behind.`\
-https://nytimes.com/2025/03/17/arts/music/we-are-the-lucky-ones-amsterdam-review.html
-
-**In ‘Weather Girl,’ Climate Change Sets Off a Meltdown**\
-`A new one-woman show from the producer of “Baby Reindeer” and “Fleabag” is an irreverent allegory about wildfires and global warming.`\
-https://nytimes.com/2025/03/17/theater/weather-girl-soho-theater.html
 
