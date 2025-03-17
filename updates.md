@@ -1,3 +1,11 @@
+**Watch: Who are the NBA playoff favorites in the West?**\
+`NBA Daily discuss the fierce playoff battle in the Western Conference and who will secure the No. 2 seed.`\
+https://nytimes.com/athletic/6209852/2025/03/17/nba-daily-playoffs-western-conference/
+
+**2025 Men's NCAA Tournament: Breaking down upset picks in the South**\
+`Peter Keating and Jordan Brenner look to the South Region for upset potential. San Diego State and UC San Diego could cause havoc. `\
+https://nytimes.com/athletic/6210013/2025/03/17/march-madness-upsets-south-region-mens-ncaa-tournament/
+
 **2025 Men's NCAA Tournament: Breaking down upset picks in the South**\
 `Peter Keating and Jordan Brenner look to the South region for upset potential. San Diego State and UC San Diego could cause havoc. `\
 https://nytimes.com/athletic/6210013/2025/03/17/march-madness-upsets-south-region-mens-ncaa-tournament/
