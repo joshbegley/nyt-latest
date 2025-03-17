@@ -1,3 +1,7 @@
+**Premier League announces Puma as new ball supplier, replacing Nike**\
+`As The Athletic reported in 2023, the agreement ends Nike's 25-year association with the Premier League.`\
+https://nytimes.com/athletic/6209235/2025/03/17/premier-league-puma-nike-ball/
+
 **The New York Times International Edition in Print for Tuesday, March 18, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/17/todays-new-york-times-international-edition
