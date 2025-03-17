@@ -1,3 +1,7 @@
+**Padres name Michael King Opening Day starter over Darvish and Cease**\
+`Michael King arrived as a relative unknown in Padres camp last spring. A year later, the former reliever will start for them on Opening Day.`\
+https://nytimes.com/athletic/6210971/2025/03/17/padres-michael-king-opening-day-starter/
+
 **Anti-Abortion Lawyer Pushed Out of F.D.A. After Republican Senator’s Pressure Campaign**\
 `Hilary Perkins, a career lawyer and a conservative, was targeted by Senator Josh Hawley of Missouri for defending the Biden administration’s position on the abortion pill.`\
 https://nytimes.com/2025/03/17/us/politics/lawyer-fda-abortion-josh-hawley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/arts/design/thomas-moser-dead.html
 **Introducing a New Project to Track Polls**\
 `The Times will aggregate public opinion surveys and produce new polling averages, starting with polls that ask about President Trump’s job performance. And we will make the data available to everyone.`\
 https://nytimes.com/2025/03/17/polls/donald-trump-approval-poll-tracker.html
-
-**Latest Polls: Do Americans Approve of President Trump?**\
-`Track the latest polls about Americans’ approval of President Trump.`\
-https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
 
