@@ -1,6 +1,14 @@
+**Gene Hackman’s Wife Died at Least a Day Later Than Originally Thought**\
+`Betsy Arakawa made several calls to a medical clinic on Feb. 12, the day after the authorities initially believed that she died.`\
+https://nytimes.com/2025/03/17/movies/gene-hackman-betsy-arakawa-died-later.html
+
+**Trump’s Unwelcome News to Auto Chiefs: Buckle Up for What’s to Come**\
+`President Trump’s approach to tariffs has unsettled many corporate leaders who believed he would use the levies as a negotiating tool. As it turns out, he sees them as an end in themselves.`\
+https://nytimes.com/2025/03/17/us/politics/trump-tariffs-auto-industry-corporate-executives.html
+
 **Ohio State spring practice takeaways: Early look at 3-man QB room, fresh faces in O-line**\
 `Ohio State opened spring practice Monday, less than two months after its national championship.`\
-https://nytimes.com/athletic/6210309/2025/03/17/ohio-state-spring-practice-takeaways-early-look-at-3-man-qb-room-fresh-faces-in-o-line/
+https://nytimes.com/athletic/6210309/2025/03/17/ohio-state-spring-practice-takeaways/
 
 **Watch: Who are the NBA playoff favorites in the West?**\
 `NBA Daily discuss the fierce playoff battle in the Western Conference and who will secure the No. 2 seed.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/trump-deportation-flights-hearing.htm
 **The Ugly Effect of Fashion Rumors**\
 `The gossip was right: Jonathan Anderson is leaving Loewe. But the way it is happening is not a great look.`\
 https://nytimes.com/2025/03/17/style/jonathan-anderson-loewe-dior.html
-
-**Steelers pre-draft visit tracker: Iowa State WR Jayden Higgins up next**\
-`Keep track of every prospect who visits the Steelers' facility between now and the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6181787/2025/03/17/steelers-nfl-draft-prospect-visitors-tracker/
-
-**Jury Awards $50 Million to California Man Burned by Starbucks Tea**\
-`Michael Garcia, 30, underwent skin grafts on his genitals after a hot tea spilled on him in a Starbucks drive-through in 2020, his lawyers said.`\
-https://nytimes.com/2025/03/17/business/starbucks-driver-burn-verdict.html
 
