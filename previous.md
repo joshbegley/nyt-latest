@@ -1,3 +1,11 @@
+**Families Mourn, Demand Answers After North Macedonia Fire**\
+`Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
+https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html
+
+**Peruvian Fishermen Rescued After Spending 95 Days Lost At Sea**\
+`Maximo Napa, a Peruvian fisherman, was reunited with his family last Friday after being rescued from his fishing boat adrift in the Pacific Ocean. He had been stranded there since Dec. 7.`\
+https://nytimes.com/video/world/americas/100000010056612/fishermen-lost-at-sea-rescued.html
+
 **Mark Grossich, Who Opened the Campbell Apartment and Other Luxe Bars, Dies at 74**\
 `His upscale cocktail lounges in landmark Manhattan settings like Grand Central Terminal and the Empire State Building conjured the elegance of a bygone era.`\
 https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
 https://nytimes.com/athletic/6210714/2025/03/17/dougie-freedman-palace-exit/
 
 **Trump Visits Kennedy Center for First Time Since Taking It Over**\
-`The president, who ousted Democrats from the board of the once-bipartisan institution and had himself elected chairman, planned to preside over a meeting of its trustees.`\
+`The president had harsh words for “Hamilton,” which canceled a planned tour there after his takeover, but seemed excited about a long-planned “Les Misérables.”`\
 https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
 
 **Warned Off Meeting Voters, Republicans Who Do Confront Anger and Unease**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/arts/music/umg-response-drake-lawsuit.html
 **D.H.S. Sheds Light on Why it Deported Rhode Island Doctor**\
 `Dr. Rasha Alawieh was detained in Boston and denied entry when returning from a trip to Lebanon. The government says she attended a Hezbollah leader’s funeral.`\
 https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
-
-**Jury Awards Man $50 Million After Starbucks Drink Causes Burns**\
-`Surveillance footage from inside a Starbucks in Los Angeles shows a man writhing in pain after a hot drink spilled on his lap. The video was released by his lawyers.`\
-https://nytimes.com/video/us/100000010056486/starbucks-50-million-hot-tea-accident.html
-
-**These Iguanas Got Carried Away and Ended Up 5,000 Miles From Home**\
-`Genetic evidence suggests that the reptiles somehow managed millions of years ago to make an ocean crossing from North America to Fiji.`\
-https://nytimes.com/2025/03/17/science/iguanas-fiji-rafting.html
 

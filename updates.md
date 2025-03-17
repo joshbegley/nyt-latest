@@ -1,3 +1,15 @@
+**Families Mourn, Demand Answers After North Macedonia Fire**\
+`Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
+https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html
+
+**Peruvian Fishermen Rescued After Spending 95 Days Lost At Sea**\
+`Maximo Napa, a Peruvian fisherman, was reunited with his family last Friday after being rescued from his fishing boat adrift in the Pacific Ocean. He had been stranded there since Dec. 7.`\
+https://nytimes.com/video/world/americas/100000010056612/fishermen-lost-at-sea-rescued.html
+
+**Trump Visits Kennedy Center for First Time Since Taking It Over**\
+`The president had harsh words for “Hamilton,” which canceled a planned tour there after his takeover, but seemed excited about a long-planned “Les Misérables.”`\
+https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
+
 **Mark Grossich, Who Opened the Campbell Apartment and Other Luxe Bars, Dies at 74**\
 `His upscale cocktail lounges in landmark Manhattan settings like Grand Central Terminal and the Empire State Building conjured the elegance of a bygone era.`\
 https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
