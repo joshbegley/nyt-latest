@@ -1,3 +1,7 @@
+**2025 Women's NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
+`Our women's college basketball experts explains her picks and breaks down every region.`\
+https://nytimes.com/athletic/6207143/2025/03/17/2025-womens-march-madness-bracket-picks-chantel-jennings/
+
 **Notre Dame's path to the Final Four won't be easy as a No. 3 seed**\
 `Our expert analyzes the Irish's hurdles as they try to make it to Tampa.`\
 https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-four/

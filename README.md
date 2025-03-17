@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>For this week&#8217;s Mailbag, I issue an annual challenge: Come up with a clever question that incorporates both college football and March Madness.</p>
+<p>And please include your city.</p>
+`\
+https://nytimes.com/athletic/6209001/2025/03/17/submit-a-question-for-stewart-mandels-college-football-mailbag-295/
+
 **Notre Dame's path to the Final Four won't be easy as a No. 3 seed**\
 `Our expert analyzes the Irish's hurdles as they try to make it to Tampa.`\
 https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-four/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6204498/2025/03/16/jamarr-chase-tee-higgins-extensi
 **South Carolina, UConn open as favorites for the women's March Madness win**\
 `South Carolina and Connecticut opened as the betting favorites, but a group of strong teams are right behind them on the betting board.`\
 https://nytimes.com/athletic/6208595/2025/03/16/march-madness-2025-womens-betting-favorites-national-championship/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/16/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
