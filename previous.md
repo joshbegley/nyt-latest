@@ -1,3 +1,11 @@
+**Lowetide: What Oilers can expect from Trent Frederic when he enters lineup**\
+`Frederic will soon start ramping up for his first NHL action with his new team.`\
+https://nytimes.com/athletic/6207255/2025/03/17/edmonton-oilers-trent-frederic-stats/
+
+**What is the College Basketball Crown, and who's invited to the first one?**\
+`The Crown, developed by Fox Sports as a rival to the longstanding NIT, will be hosted in Las Vegas from March 31 to April 6.`\
+https://nytimes.com/athletic/6209797/2025/03/17/college-basketball-crown-tournament-bracket-faq/
+
 **Braving Artillery Strikes to Serve Fresh Sushi in a Frontline Town**\
 `Sushi has long been a popular indulgence in Ukraine. For the residents of Sloviansk, a city in Russian cross hairs, it can provide a sense of normalcy that is akin to a necessity in wartime.`\
 https://nytimes.com/2025/03/17/world/europe/ukraine-sloviansk-sushi-restaurant.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/spring-break-city-break-kids-travel
 **Cuts to Housing Nonprofits Will Spur Discrimination, Democrats Say**\
 `“Soon there’ll be no enforcement,” said Representative Maxine Waters of California. “We really are going to go backward.”`\
 https://nytimes.com/2025/03/17/realestate/warren-waters-hud-doge-budget-cuts.html
-
-**Inside the Hurricanes' stressful deadline, why they don't regret the Rantanen trade: Catching up with Eric Tulsky**\
-`Winners of seven straight, the Canes have parked a drama-filled deadline behind them and look like contenders despite moving a superstar.`\
-https://nytimes.com/athletic/6209656/2025/03/17/hurricanes-trade-deadline-tulsky-rantanen/
-
-**Women's March Madness 2025 staff picks: Final Four, national champs, susceptible top seeds**\
-`Our experts are leaning toward UConn to end its title drought and cut down the nets in Tampa.`\
-https://nytimes.com/athletic/6209654/2025/03/17/womens-march-madness-staff-picks-final-four-predictions/
 

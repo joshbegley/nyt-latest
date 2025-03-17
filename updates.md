@@ -1,3 +1,11 @@
+**Lowetide: What Oilers can expect from Trent Frederic when he enters lineup**\
+`Frederic will soon start ramping up for his first NHL action with his new team.`\
+https://nytimes.com/athletic/6207255/2025/03/17/edmonton-oilers-trent-frederic-stats/
+
+**What is the College Basketball Crown, and who's invited to the first one?**\
+`The Crown, developed by Fox Sports as a rival to the longstanding NIT, will be hosted in Las Vegas from March 31 to April 6.`\
+https://nytimes.com/athletic/6209797/2025/03/17/college-basketball-crown-tournament-bracket-faq/
+
 **Braving Artillery Strikes to Serve Fresh Sushi in a Frontline Town**\
 `Sushi has long been a popular indulgence in Ukraine. For the residents of Sloviansk, a city in Russian cross hairs, it can provide a sense of normalcy that is akin to a necessity in wartime.`\
 https://nytimes.com/2025/03/17/world/europe/ukraine-sloviansk-sushi-restaurant.html
