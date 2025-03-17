@@ -1,3 +1,7 @@
+**Napheesa Collier named MVP of Unrivaled's inaugural season**\
+`Angel Reese was named Unrivaled's defensive player of the year, and DJ Sackmann earned coach of the year.`\
+https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
+
 **Mak Whitham, 14, becomes youngest player in NWSL history**\
 `Whitham was also the youngest women's soccer player to sign an NIL deal with Nike.`\
 https://nytimes.com/athletic/6207874/2025/03/16/gotham-nwsl-mak-whitham-debut/
