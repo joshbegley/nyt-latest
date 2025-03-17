@@ -1,3 +1,7 @@
+**Mark Grossich, Who Opened the Campbell Apartment and Other Luxe Bars, Dies at 74**\
+`His upscale cocktail lounges in landmark Manhattan settings like Grand Central Terminal and the Empire State Building conjured the elegance of a bygone era.`\
+https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
+
 **Freedman to leave role as Palace sporting director**\
 `The 50-year-old, who also played for the south London club, has had build a strong reputation in the role since taking it on in 2017.`\
 https://nytimes.com/athletic/6210714/2025/03/17/dougie-freedman-palace-exit/
