@@ -1,3 +1,7 @@
+**Notre Dame's path to the Final Four won't be easy as a No. 3 seed**\
+`Our expert analyzes the Irish's hurdles as they try to make it to Tampa.`\
+https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-four/
+
 **U.S. to Withdraw From Group Investigating Responsibility for Ukraine Invasion**\
 `The decision is the latest indication of the Trump administration’s move away from holding President Vladimir V. Putin of Russia accountable for crimes committed against Ukrainians.`\
 https://nytimes.com/2025/03/17/us/politics/trump-ukraine-invasion-accountability.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6208595/2025/03/16/march-madness-2025-womens-bettin
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/16/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Tired Canucks blow opportunity to crush Utah’s playoff chances: 3 takeaways**\
-`A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
-https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
 
