@@ -1,3 +1,7 @@
+**Texas' path to the Final Four: Will Notre Dame, Tennessee or Ohio State stand in the way?**\
+`The Longhorns haven't been to the Final Four since 2003. Is this their year? `\
+https://nytimes.com/athletic/6207826/2025/03/17/texas-path-final-four-region/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>For this week&#8217;s Mailbag, I issue an annual challenge: Come up with a clever question that incorporates both college football and March Madness.</p>
 <p>And please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2025/03/17/world/asia/india-bill-gates-narendra-modi.html
 **Bengals agree to long-term deals with both Chase, Higgins: Source**\
 `Chase becomes the highest paid non-quarterback in the NFL.`\
 https://nytimes.com/athletic/6204498/2025/03/16/jamarr-chase-tee-higgins-extensions/
-
-**South Carolina, UConn open as favorites for the women's March Madness win**\
-`South Carolina and Connecticut opened as the betting favorites, but a group of strong teams are right behind them on the betting board.`\
-https://nytimes.com/athletic/6208595/2025/03/16/march-madness-2025-womens-betting-favorites-national-championship/
 
