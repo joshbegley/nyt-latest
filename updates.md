@@ -1,3 +1,7 @@
+**Inside Newcastle United's Carabao Cup glory - Shearer's text, Howe's banner and tactics, and a half-time slideshow**\
+`This is the story of how Eddie Howe and Newcastle finally ended the club's long wait for a major trophy`\
+https://nytimes.com/athletic/6208563/2025/03/17/inside-newcastle-united-carabao-cup/
+
 **The Briefing: How should we feel about Newcastle's win - and what's happened to Chelsea?**\
 `Analysing the big talking points from the English football weekend - including the Carabao Cup final and an awful bottom three`\
 https://nytimes.com/athletic/6207666/2025/03/17/newcastle-carabao-cup-win-saudi-owners/

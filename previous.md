@@ -1,3 +1,7 @@
+**Inside Newcastle United's Carabao Cup glory - Shearer's text, Howe's banner and tactics, and a half-time slideshow**\
+`This is the story of how Eddie Howe and Newcastle finally ended the club's long wait for a major trophy`\
+https://nytimes.com/athletic/6208563/2025/03/17/inside-newcastle-united-carabao-cup/
+
 **The Briefing: How should we feel about Newcastle's win - and what's happened to Chelsea?**\
 `Analysing the big talking points from the English football weekend - including the Carabao Cup final and an awful bottom three`\
 https://nytimes.com/athletic/6207666/2025/03/17/newcastle-carabao-cup-win-saudi-owners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6057535/2025/03/17/enzo-barrenechea-aston-villa-val
 **Tomas Soucek, an early Moyes signing, remains integral (and underappreciated)**\
 `He has been a constant throughout a period when the club transitioned from mid-table hopefuls to UEFA Conference League winners`\
 https://nytimes.com/athletic/6205469/2025/03/17/tomas-soucek-west-ham-moyes/
-
-**Chelsea's big-game mentality has deserted them - just look at their record against the top teams**\
-`It has been years since Chelsea beat Liverpool, Arsenal or Manchester City away from home. Their mentality has to change`\
-https://nytimes.com/athletic/6207167/2025/03/17/chelsea-arsenal-results-mentality/
 

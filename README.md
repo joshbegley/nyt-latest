@@ -1,3 +1,19 @@
+**Post NFL free agency fantasy football 2025 rankings update**\
+`Now that most of the dust has settled in NFL free agency, Jake Ciely updates his fantasy football player rankings for the 2025 campaign.`\
+https://nytimes.com/athletic/6207688/2025/03/17/post-nfl-free-agency-fantasy-football-rankings-update/
+
+**Money Pours In for Zohran Mamdani’s Mayoral Campaign**\
+`Mr. Mamdani, a relatively unknown state lawmaker from Queens, has proved to be a strong fund-raiser, with 16,000 individual donors.`\
+https://nytimes.com/2025/03/17/nyregion/zohran-mamdani-nyc-mayor-race.html
+
+**Legal Experts Question Trump’s Authority to Cancel Columbia’s Funding**\
+`The government has demanded drastic changes to the university before it will consider reinstating $400 million. Lee C. Bollinger, the school’s former president calls it an “existential threat.”`\
+https://nytimes.com/2025/03/17/nyregion/columbia-trump-administration-funding-fight.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/17/crosswords/spelling-bee-forum.html
+
 **Inside Newcastle United's Carabao Cup glory - Shearer's text, Howe's banner and tactics, and a half-time slideshow**\
 `This is the story of how Eddie Howe and Newcastle finally ended the club's long wait for a major trophy`\
 https://nytimes.com/athletic/6208563/2025/03/17/inside-newcastle-united-carabao-cup/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/17/learning/word-of-the-day-shenanigan.html
 **Forever 21 Operator Files for Bankruptcy**\
 `The company, which helped popularize fast fashion in the United States, has struggled to compete with online retailers. It is the company’s second bankruptcy filing in six years.`\
 https://nytimes.com/2025/03/17/business/forever-21-bankruptcy.html
-
-**Leicester look lost - but Van Nistelrooy's reputation is also on the line**\
-`Dire records are being broken with every passing week, raising serious questions over the Leicester manager`\
-https://nytimes.com/athletic/6208096/2025/03/17/leicester-city-ruud-van-nistelrooy-future/
-
-**Jorgen Strand Larsen has his critics but goalscoring glimpses show he is learning**\
-`Despite his problems, the striker's output in a first season in a new league is impressive - and there should be more to come`\
-https://nytimes.com/athletic/6206749/2025/03/17/jorgen-strand-larsen-wolves/
-
-**Enzo Barrenechea: The Aston Villa loanee playing a key role in Valencia's survival fight**\
-`Enzo Barrenechea is impressing on loan with Valencia in La Liga - what does the future hold for him at Aston Villa?`\
-https://nytimes.com/athletic/6057535/2025/03/17/enzo-barrenechea-aston-villa-valencia/
-
-**Tomas Soucek, an early Moyes signing, remains integral (and underappreciated)**\
-`He has been a constant throughout a period when the club transitioned from mid-table hopefuls to UEFA Conference League winners`\
-https://nytimes.com/athletic/6205469/2025/03/17/tomas-soucek-west-ham-moyes/
 
