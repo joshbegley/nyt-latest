@@ -1,3 +1,11 @@
+**Chalk is for suckers! Four teams to fade in the men's bracket**\
+`Four teams look shakier than their seeding would indicate. Brett Koremenos breaks down the data to see which popular teams could fall early.`\
+https://nytimes.com/athletic/6207520/2025/03/17/popular-2025-march-madness-favorites-that-could-lose-early/
+
+**Millennials and Gen Z Are Fighting Again. This Time About Gym Clothes.**\
+`Are you team tight-on-tight or tight-on-baggy?`\
+https://nytimes.com/2025/03/17/style/gym-wear-fitness-fashion-trends.html
+
 **'My career was hanging by a thread': Iga Swiatek responds to criticism of on-court behavior**\
 `Swiatek has described the impact of her positive doping test and fight for the WTA No. 1 ranking on her mindset.`\
 https://nytimes.com/athletic/6210421/2025/03/17/iga-swiatek-tennis-season-indian-wells-behavior/
