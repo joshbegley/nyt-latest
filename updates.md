@@ -1,3 +1,7 @@
+**World Cup Cinderellas chasing the magic of first-time qualification**\
+`A handful of underdogs find themselves with a real chance of clinching a historic World Cup place.`\
+https://nytimes.com/athletic/6201777/2025/03/17/2026-world-cup-qualifying-cinderellas/
+
 **Newcastle United are losers no longer: At last, they are something else**\
 `On March 16 2025, Newcastle rocked up at Wembley and brought the noise. The foundations shook as they ended 70-year domestic trophy drought`\
 https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win-trophy/
