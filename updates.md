@@ -1,3 +1,11 @@
+**Tired Canucks blew opportunity to crush Utah’s playoff chances: 3 takeaways**\
+`A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
+https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
+
+**Dodgers' Mookie Betts won’t play in Tokyo Series due to illness**\
+`Dodgers manager Dave Roberts noted that at one point Betts had lost 15 pounds and was severely dehydrated.`\
+https://nytimes.com/athletic/6208764/2025/03/16/dodgers-mookie-betts-illness-tokyo-series/
+
 **‘The White Lotus’ Season 3, Episode 5 Recap: A Poetic Act**\
 `It was a big week for cutting loose and confessions, for sex as a metaphor but also just for sex.`\
 https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html

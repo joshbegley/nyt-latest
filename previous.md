@@ -1,3 +1,11 @@
+**Tired Canucks blew opportunity to crush Utah’s playoff chances: 3 takeaways**\
+`A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
+https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
+
+**Dodgers' Mookie Betts won’t play in Tokyo Series due to illness**\
+`Dodgers manager Dave Roberts noted that at one point Betts had lost 15 pounds and was severely dehydrated.`\
+https://nytimes.com/athletic/6208764/2025/03/16/dodgers-mookie-betts-illness-tokyo-series/
+
 **Rangers defend well again, but special teams, bad gaps let them down: 4 takeaways**\
 `In a stretch where every point counts, the Rangers played well, but not enough to win against the Oilers.`\
 https://nytimes.com/athletic/6208587/2025/03/16/rangers-defense-special-teams-shesterkin-oilers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207860/2025/03/16/south-carolinas-path-final-four-
 **How A.I. Is Changing the Way the World Builds Computers**\
 `Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
 https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
-
-**PWHL sets U.S. attendance record in Detroit as part of Takeover Tour**\
-`The city of Detroit recaptured the U.S. attendance record for professional women's hockey as the PWHL celebrated one million fans.`\
-https://nytimes.com/athletic/6208371/2025/03/16/pwhl-us-attendance-record-detroit-takeover-tour/
-
-**‘The White Lotus’ Season 3, Episode 5 Recap: A Poetic Act**\
-`It was a big week for cutting loose and confessions, for sex as a metaphor but also just for sex.`\
-https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html
 
