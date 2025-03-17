@@ -1,3 +1,7 @@
+**What went wrong for Liverpool at Wembley?**\
+`Liverpool are on course to win the Premier League but they fluffed their lines in the Carabao Cup final. We analyse what happened...`\
+https://nytimes.com/athletic/6207907/2025/03/17/liverpool-carabao-cup-defeat-analysis-slot-salah/
+
 **Post NFL free agency fantasy football 2025 rankings update**\
 `Now that most of the dust has settled in NFL free agency, Jake Ciely updates his fantasy football player rankings for the 2025 campaign.`\
 https://nytimes.com/athletic/6207688/2025/03/17/post-nfl-free-agency-fantasy-football-rankings-update/

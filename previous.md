@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6208563/2025/03/17/inside-newcastle-united-carabao-
 `Analysing the big talking points from the English football weekend - including the Carabao Cup final and an awful bottom three`\
 https://nytimes.com/athletic/6207666/2025/03/17/newcastle-carabao-cup-win-saudi-owners/
 
+**What went wrong for Liverpool at Wembley?**\
+`Liverpool are on course to win the Premier League but they fluffed their lines in the Carabao Cup final. We analyse what happened...`\
+https://nytimes.com/athletic/6207907/2025/03/17/liverpool-carabao-cup-defeat-analysis-slot-salah/
+
 **Blues pull even in points for a playoff spot in the West behind captain Brayden Schenn**\
 `Columbus' 7-2 win over Anaheim on Sunday gave it 73 points, pulling it even with Vancouver for the second wild card in the West.`\
 https://nytimes.com/athletic/6208058/2025/03/17/blues-playoff-spot-brayden-schenn-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win
 **Word of the Day: shenanigan**\
 `This word has appeared in 159 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/17/learning/word-of-the-day-shenanigan.html
-
-**Forever 21 Operator Files for Bankruptcy**\
-`The company, which helped popularize fast fashion in the United States, has struggled to compete with online retailers. It is the company’s second bankruptcy filing in six years.`\
-https://nytimes.com/2025/03/17/business/forever-21-bankruptcy.html
 
