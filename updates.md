@@ -1,3 +1,11 @@
+**Wilshere interview: 'I'd never seen someone coach the way Arteta does'**\
+`The former Arsenal midfielder speaks about his ambitions in management and what makes Myles Lewis-Skelly tick.`\
+https://nytimes.com/athletic/6183671/2025/03/17/jack-wilshere-interview-arsenal-myles-lewis-skelly/
+
+**Citing Trump’s Order, V.A. Halts Most Transgender Care**\
+`Veterans who wish to change their gender “can do so on their own dime,” the V.A. secretary said.`\
+https://nytimes.com/2025/03/17/health/veterans-transgender-health-care.html
+
 **Sixers' Paul George out for regular season after knee, adductor procedures**\
 `George, 34, hadn't played since March 4 after battling several injuries this season.`\
 https://nytimes.com/athletic/6211308/2025/03/17/sixers-paul-george-injury-knee-season/

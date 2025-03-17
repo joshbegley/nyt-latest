@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6211308/2025/03/17/sixers-paul-george-injury-knee-season/
 
 **Wilshere interview: 'I'd never seen someone coach the way Arteta does'**\
-`The former Arsenal midfielder tells The Athletic about his ambitions in management and what makes Myles Lewis-Skelly tick`\
+`The former Arsenal midfielder speaks about his ambitions in management and what makes Myles Lewis-Skelly tick.`\
 https://nytimes.com/athletic/6183671/2025/03/17/jack-wilshere-interview-arsenal-myles-lewis-skelly/
 
 **Ming Fay, Who Made Magical Sculptures of the Natural World, Dies at 82**\
@@ -12,7 +12,7 @@ https://nytimes.com/2025/03/17/arts/ming-fay-dead.html
 
 **Citing Trump’s Order, V.A. Halts Most Transgender Care**\
 `Veterans who wish to change their gender “can do so on their own dime,” the V.A. secretary said.`\
-https://nytimes.com/live/2025/03/17/us/trump-news/veterans-transgender-health-care
+https://nytimes.com/2025/03/17/health/veterans-transgender-health-care.html
 
 **A Court Showdown on Deportations**\
 `Also, wildfire danger looms over the southern Plains. Here’s the latest at the end of Monday.`\
