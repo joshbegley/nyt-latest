@@ -1,3 +1,19 @@
+**Tomas Soucek, an early Moyes signing, remains integral (and underappreciated)**\
+`He has been a constant throughout a period when the club transitioned from mid-table hopefuls to UEFA Conference League winners`\
+https://nytimes.com/athletic/6205469/2025/03/17/tomas-soucek-west-ham-moyes/
+
+**Chelsea's big-game mentality has deserted them - just look at their record against the top teams**\
+`It has been years since Chelsea beat Liverpool, Arsenal or Manchester City away from home. Their mentality has to change`\
+https://nytimes.com/athletic/6207167/2025/03/17/chelsea-arsenal-results-mentality/
+
+**O'Brien has demonstrated his value to Everton**\
+`Struggling for game-time under Dyche, now thriving out of position at full-back, the Irishman has repaid the club's faith in his talent`\
+https://nytimes.com/athletic/6205936/2025/03/17/jake-obrien-everton-transfer-2/
+
+**Manchester United are slowly finding their physical side**\
+`There were marginal improvements across the pitch as Ruben Amorim's side humbled Leicester with the requisite intensity`\
+https://nytimes.com/athletic/6203258/2025/03/17/manchester-united-leicester-physicality-leicester/
+
 **Elanga and Milenkovic offer further proof this Forest side is packed with international class**\
 `The Swede's attacking prowess and the Serbian's all-round game have played a huge part in the club's bid for Champions League qualification`\
 https://nytimes.com/athletic/6206776/2025/03/17/elanga-and-milenkovic-prove-this-forest-side-is-packed-with-international-class/
