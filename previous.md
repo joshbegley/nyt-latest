@@ -1,3 +1,27 @@
+**Tuesday Briefing: A Trump-Putin Call**\
+`Plus, a “retirement home” for penguins.`\
+https://nytimes.com/2025/03/17/briefing/trump-putin-ukraine-us-deportations-rwanda-sanctions.html
+
+**Braves' Spencer Strider moves closer to return with dominant first spring outing**\
+`Strider struck out six of eight batters he faced in his first outing since elbow surgery nearly a year ago.`\
+https://nytimes.com/athletic/6210951/2025/03/17/braves-spencer-strider-spring-injury/
+
+**Out at Sea for 95 Days, a Peruvian Fisherman Clung to Hope**\
+`Máximo Napa Castro, 61, was spotted by the crew of an Ecuadorean tuna boat after he set out from the Peruvian port of Marcona in December.`\
+https://nytimes.com/2025/03/17/world/americas/peruvian-fisherman-95-days-lost-at-sea.html
+
+**Polls**\
+``\
+https://nytimes.com/section/polls
+
+**A Venezuelan official, reacting to Trump deportations, wants to discourage Venezuelans from visiting the U.S.**\
+`By Julie Turkewitz`\
+https://nytimes.com/live/2025/03/17/us/trump-news/a-venezuelan-official-reacting-to-trump-deportations-wants-to-discourage-venezuelans-from-visiting-the-us
+
+**Thomas Moser, Woodworker Whose Chairs Were Works of Art, Dies at 90**\
+`Self-taught, he practiced “the lost art of making furniture well,” producing pieces for collectors, presidents and even the pope.`\
+https://nytimes.com/2025/03/17/arts/design/thomas-moser-dead.html
+
 **Introducing a New Project to Track Polls**\
 `The Times will aggregate public opinion surveys and produce new polling averages, starting with polls that ask about President Trump’s job performance. And we will make the data available to everyone.`\
 https://nytimes.com/2025/03/17/polls/donald-trump-approval-poll-tracker.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6210026/2025/03/17/cubs-season-preview-kyle-tucker-
 **Families Mourn, Demand Answers After North Macedonia Fire**\
 `Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
 https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html
-
-**Peruvian Fishermen Rescued After Spending 95 Days Lost At Sea**\
-`Maximo Napa, a Peruvian fisherman, was reunited with his family last Friday after being rescued from his fishing boat adrift in the Pacific Ocean. He had been stranded there since Dec. 7.`\
-https://nytimes.com/video/world/americas/100000010056612/fishermen-lost-at-sea-rescued.html
-
-**Mark Grossich, Who Opened the Campbell Apartment and Other Luxe Bars, Dies at 74**\
-`His upscale cocktail lounges in landmark Manhattan settings like Grand Central Terminal and the Empire State Building conjured the elegance of a bygone era.`\
-https://nytimes.com/2025/03/17/nyregion/mark-grossich-dead.html
-
-**Freedman to leave role as Palace sporting director**\
-`The 50-year-old, who also played for the south London club, has had build a strong reputation in the role since taking it on in 2017.`\
-https://nytimes.com/athletic/6210714/2025/03/17/dougie-freedman-palace-exit/
-
-**Trump Visits Kennedy Center for First Time Since Taking It Over**\
-`The president had harsh words for “Hamilton,” which canceled a planned tour there after his takeover, but seemed excited about a long-planned “Les Misérables.”`\
-https://nytimes.com/2025/03/17/arts/music/trump-kennedy-center-visit.html
-
-**Warned Off Meeting Voters, Republicans Who Do Confront Anger and Unease**\
-`In a deeply conservative district and a more liberal one, two Republicans found uncertainty and anxiety about the Trump administration’s agenda and their support of it.`\
-https://nytimes.com/2025/03/17/us/politics/republicans-town-halls.html
-
-**Men's NCAA Tournament best bets for champion, Final Four, Sweet 16**\
-`Austin Mock makes his best futures bets for the 2025 men's NCAA Tournament, including one bet on a national champion.`\
-https://nytimes.com/athletic/6210647/2025/03/17/mens-ncaa-tournament-best-bets-futures/
 

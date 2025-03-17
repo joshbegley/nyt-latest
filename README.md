@@ -1,3 +1,11 @@
+**Anti-Abortion Lawyer Pushed Out of F.D.A. After Republican Senator’s Pressure Campaign**\
+`Hilary Perkins, a career lawyer and a conservative, was targeted by Senator Josh Hawley of Missouri for defending the Biden administration’s position on the abortion pill.`\
+https://nytimes.com/2025/03/17/us/politics/lawyer-fda-abortion-josh-hawley.html
+
+**Commanders new LT Laremy Tunsil 'can't wait to block for Jayden Daniels'**\
+`The five-time Pro Bowler is excited to join Washington and is looking forward to playing with the 2024 Offensive Rookie of the Year.`\
+https://nytimes.com/athletic/6211044/2025/03/17/commanders-laremy-tunsil-jayden-daniels/
+
 **Tuesday Briefing: A Trump-Putin Call**\
 `Plus, a “retirement home” for penguins.`\
 https://nytimes.com/2025/03/17/briefing/trump-putin-ukraine-us-deportations-rwanda-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/polls/donald-trump-approval-poll-tracker.html
 **Latest Polls: Do Americans Approve of President Trump?**\
 `Track the latest polls about Americans’ approval of President Trump.`\
 https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
-
-**Greenberg: It's 'Go Cubs Go' in 2025, but where will they be in October?**\
-`The team's performance this season could change lives in Chicago, starting with president of baseball operations Jed Hoyer.`\
-https://nytimes.com/athletic/6210026/2025/03/17/cubs-season-preview-kyle-tucker-column/
-
-**Families Mourn, Demand Answers After North Macedonia Fire**\
-`Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
-https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html
 
