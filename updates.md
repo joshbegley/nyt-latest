@@ -1,3 +1,7 @@
+**Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
+`Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
+https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/
+
 **Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
 `The pair, tied at 12 under par through four rounds, will face off in a three-hole aggregate playoff Monday morning.`\
 https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
