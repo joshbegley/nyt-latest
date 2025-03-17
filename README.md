@@ -1,3 +1,27 @@
+**Trump Says He Will Talk to Putin on Tuesday to Discuss Ukraine**\
+`President Trump’s special envoy met with President Vladimir V. Putin of Russia last week to discuss a cease-fire proposal.`\
+https://nytimes.com/2025/03/17/us/politics/trump-putin-ukraine-phone-call.html
+
+**Monday Briefing**\
+`The Trump administration deported hundreds of Venezuelans.`\
+https://nytimes.com/2025/03/17/briefing/venezuelans-trump-ukraine.html
+
+**The Women Most Affected by Abortion Bans**\
+`After the Dobbs decision, births rose in states with bans, but more for some women than others.`\
+https://nytimes.com/2025/03/17/upshot/abortion-bans-births-study.html
+
+**The New York Times in Print for Monday, March 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/17/todays-new-york-times
+
+**Trump Isn’t Just Attacking Trans People. He’s Denationalizing Them.**\
+`The message is that we are a threat to the nation. The subtext is that we are not of this nation.`\
+https://nytimes.com/2025/03/17/opinion/trump-trans-denationalizing.html
+
+**‘The Residence,’ Plus 7 Things to Watch on TV this Week**\
+`A new murder-mystery series, starring Uzo Aduba, comes to Netflix, and Oscar-winning films come to streaming platforms.`\
+https://nytimes.com/2025/03/17/arts/television/the-residence-plus-7-things-to-watch-on-tv-this-week.html
+
 **Texas' path to the Final Four: Will Notre Dame, Tennessee or Ohio State stand in the way?**\
 `The Longhorns haven't been to the Final Four since 2003. Is this their year? `\
 https://nytimes.com/athletic/6207826/2025/03/17/texas-path-final-four-region/
@@ -15,28 +39,4 @@ https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-fo
 **U.S. to Withdraw From Group Investigating Responsibility for Ukraine Invasion**\
 `The decision is the latest indication of the Trump administration’s move away from holding President Vladimir V. Putin of Russia accountable for crimes committed against Ukrainians.`\
 https://nytimes.com/2025/03/17/us/politics/trump-ukraine-invasion-accountability.html
-
-**United in Grief, Families of South Korean Plane Crash Victims Press for Answers**\
-`Gathering at the airport, relatives of those who died are turning themselves into aviation experts to explore what caused the country’s worst air disaster.`\
-https://nytimes.com/2025/03/17/world/asia/south-korea-jeju-air-victims.html
-
-**Coffee, gum and pills: Why footballers are increasingly dosing up on caffeine**\
-`Whether with shots, gum or espressos, players are getting their caffeine fix more than ever to boost performance`\
-https://nytimes.com/athletic/6148529/2025/03/17/football-caffeine-jamie-vardy/
-
-**2025 Women's NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
-`Our women's college basketball experts explains her picks and breaks down every region.`\
-https://nytimes.com/athletic/6207143/2025/03/17/2025-womens-march-madness-bracket-picks-chantel-jennings/
-
-**Connections: Sports Edition Coach: Hints for March 17, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6208955/2025/03/17/connections-sports-edition-hints-for-march-17-2025/
-
-**Nary a Critical Word: Bill Gates’s Close Bond With Narendra Modi**\
-`The relationship between the billionaire philanthropist and the Indian leader helps both men meet their mission. But it also papers over the erosion of rights under Mr. Modi.`\
-https://nytimes.com/2025/03/17/world/asia/india-bill-gates-narendra-modi.html
-
-**Bengals agree to long-term deals with both Chase, Higgins: Source**\
-`Chase becomes the highest paid non-quarterback in the NFL.`\
-https://nytimes.com/athletic/6204498/2025/03/16/jamarr-chase-tee-higgins-extensions/
 
