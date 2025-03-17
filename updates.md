@@ -1,3 +1,19 @@
+**Post NFL free agency fantasy football 2025 rankings update**\
+`Now that most of the dust has settled in NFL free agency, Jake Ciely updates his fantasy football player rankings for the 2025 campaign.`\
+https://nytimes.com/athletic/6207688/2025/03/17/post-nfl-free-agency-fantasy-football-rankings-update/
+
+**Money Pours In for Zohran Mamdani’s Mayoral Campaign**\
+`Mr. Mamdani, a relatively unknown state lawmaker from Queens, has proved to be a strong fund-raiser, with 16,000 individual donors.`\
+https://nytimes.com/2025/03/17/nyregion/zohran-mamdani-nyc-mayor-race.html
+
+**Legal Experts Question Trump’s Authority to Cancel Columbia’s Funding**\
+`The government has demanded drastic changes to the university before it will consider reinstating $400 million. Lee C. Bollinger, the school’s former president calls it an “existential threat.”`\
+https://nytimes.com/2025/03/17/nyregion/columbia-trump-administration-funding-fight.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/17/crosswords/spelling-bee-forum.html
+
 **Inside Newcastle United's Carabao Cup glory - Shearer's text, Howe's banner and tactics, and a half-time slideshow**\
 `This is the story of how Eddie Howe and Newcastle finally ended the club's long wait for a major trophy`\
 https://nytimes.com/athletic/6208563/2025/03/17/inside-newcastle-united-carabao-cup/
