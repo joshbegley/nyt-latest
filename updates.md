@@ -1,3 +1,15 @@
+**CJ Moore picks every game of the NCAA Tournament: Why Florida wins it all**\
+`Early chalk might not make for as fun of a first weekend, but the matchups in the second weekend and at the Final Four could be epic.`\
+https://nytimes.com/athletic/6207830/2025/03/16/mens-ncaa-tournament-2025-bracket-picks-all-games/
+
+**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
+`Everything you need to know to fill out your bracket and win your office pool.`\
+https://nytimes.com/athletic/6207081/2025/03/16/womens-march-madness-bracket-prep-68-teams/
+
+**Print your March Madness bracket for the women's NCAA Tournament**\
+`Fill out your tournament bracket.`\
+https://nytimes.com/athletic/6201899/2025/03/16/printable-womens-march-madness-bracket/
+
 **Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
 `Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
 https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/

@@ -1,3 +1,11 @@
+**CJ Moore picks every game of the NCAA Tournament: Why Florida wins it all**\
+`Early chalk might not make for as fun of a first weekend, but the matchups in the second weekend and at the Final Four could be epic.`\
+https://nytimes.com/athletic/6207830/2025/03/16/mens-ncaa-tournament-2025-bracket-picks-all-games/
+
+**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
+`Everything you need to know to fill out your bracket and win your office pool.`\
+https://nytimes.com/athletic/6207081/2025/03/16/womens-march-madness-bracket-prep-68-teams/
+
 **Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
 `Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
 https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6207963/2025/03/16/first-four-out-ncaa-tournament-w
 `Quotation of the Day for Monday, March 17, 2025.`\
 https://nytimes.com/2025/03/16/pageoneplus/quotation-of-the-day-five-years-ago-they-realized-a-dream-covid-19-stopped-anyone-from-seeing-it.html
 
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/16/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Mak Whitham, 14, becomes youngest player in NWSL history**\
-`Whitham was also the youngest women's soccer player to sign an NIL deal with Nike.`\
-https://nytimes.com/athletic/6207874/2025/03/16/gotham-nwsl-mak-whitham-debut/
-
-**Napheesa Collier named MVP of Unrivaled's inaugural season**\
-`Angel Reese was named Unrivaled's defensive player of the year, and DJ Sackmann earned coach of the year.`\
-https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collier-mvp/
+**Print your March Madness bracket for the women's NCAA Tournament**\
+`Fill out your tournament bracket.`\
+https://nytimes.com/athletic/6201899/2025/03/16/printable-womens-march-madness-bracket/
 
