@@ -1,3 +1,11 @@
+**Tennis Briefing: Carlos Alcaraz and Iga Swiatek leave Indian Wells with contrasting challenges**\
+`Both defending champions lost in the semifinals, but their next few months look very different as they defend last year's ranking points.`\
+https://nytimes.com/athletic/6207054/2025/03/17/tennis-carlos-alcaraz-iga-swiatek-season/
+
+**Senators notebook: Drake Batherson's resurgence, Claude Giroux's contract projections, more**\
+`Also, we take a deep look at Dylan Cozens' first five games with the Senators.`\
+https://nytimes.com/athletic/6202062/2025/03/17/ottawa-senators-giroux-batherson-cozens/
+
 **SEC made NCAA Tournament history, but its performance from here will be defining**\
 `The NCAA selection committee echoed what people have been saying since December. Now, it's time for the league to win games when it matters.`\
 https://nytimes.com/athletic/6208794/2025/03/17/sec-ncaa-tournament-14-teams/

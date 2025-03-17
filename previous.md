@@ -1,3 +1,11 @@
+**Tennis Briefing: Carlos Alcaraz and Iga Swiatek leave Indian Wells with contrasting challenges**\
+`Both defending champions lost in the semifinals, but their next few months look very different as they defend last year's ranking points.`\
+https://nytimes.com/athletic/6207054/2025/03/17/tennis-carlos-alcaraz-iga-swiatek-season/
+
+**Senators notebook: Drake Batherson's resurgence, Claude Giroux's contract projections, more**\
+`Also, we take a deep look at Dylan Cozens' first five games with the Senators.`\
+https://nytimes.com/athletic/6202062/2025/03/17/ottawa-senators-giroux-batherson-cozens/
+
 **SEC made NCAA Tournament history, but its performance from here will be defining**\
 `The NCAA selection committee echoed what people have been saying since December. Now, it's time for the league to win games when it matters.`\
 https://nytimes.com/athletic/6208794/2025/03/17/sec-ncaa-tournament-14-teams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6207882/2025/03/17/knicks-offense-jalen-brunson-inj
 **Company led by NBA refs hopes to improve basketball officiating, expand pool of referees**\
 `Two NBA officials created an app to use technology to teach current, upcoming and aspiring referees how to apply the rules in their sports.`\
 https://nytimes.com/athletic/6197306/2025/03/17/nba-refs-referees-officials-officiating-basketball/
-
-**Broncos roster reset: Is UNC's Omarion Hampton the RB solution? Extensions on DL?**\
-`Running back is the most obvious must for Denver on its roster after the first wave of free agency; the Broncos also need a punter.`\
-https://nytimes.com/athletic/6207184/2025/03/17/broncos-roster-reset-free-agency-draft/
-
-**Concacaf Top 20: Ranking the region's best men's players**\
-`With another Nations League wrapping up, who are the best players in the Concacaf region? Our North American panel decides.`\
-https://nytimes.com/athletic/6200674/2025/03/17/concacaf-top-20-players-pulisic-davies-david-usa-mexico-canada/
 

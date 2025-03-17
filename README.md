@@ -1,3 +1,15 @@
+**Rob Manfred not expecting change to Japanese player acquisitions with NPB**\
+`Manfred met with his NPB counterpart Sadayuki Sakakibara on Sunday, the second of two days of games between MLB teams and NPB teams.`\
+https://nytimes.com/athletic/6209367/2025/03/17/dodgers-cubs-tokyo-series-japan-manfred-posting/
+
+**The Athletic FC: Triumph, tears as Newcastle end 70-year wait, Barca take control in La Liga**\
+`Today in TAFC: Newcastle end their 70-year wait for a domestic trophy, Ancelotti makes a stand, Messi's latest bit of brilliance.`\
+https://nytimes.com/athletic/6209292/2025/03/17/newcastle-league-cup-barcelona-liga/
+
+**Kremlin Stays Mum on Agenda for Putin’s Call With Trump**\
+`The call, scheduled for Tuesday, will be the first known conversation between the two leaders since Mr. Putin laid out numerous conditions for a cease-fire with Ukraine.`\
+https://nytimes.com/2025/03/17/world/europe/putin-trump-russia-ukraine.html
+
 **Tennis Briefing: Carlos Alcaraz and Iga Swiatek leave Indian Wells with contrasting challenges**\
 `Both defending champions lost in the semifinals, but their next few months look very different as they defend last year's ranking points.`\
 https://nytimes.com/athletic/6207054/2025/03/17/tennis-carlos-alcaraz-iga-swiatek-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6204570/2025/03/17/los-angeles-dodgers-2025-season-
 **What I'm seeing at Astros camp: Where Chas McCormick stands, Jake Meyers' voice and more**\
 `Cam Smith playing right field throws McCormick's future with the team into question and Isaac Paredes is getting a look as the No. 2 hitter.`\
 https://nytimes.com/athletic/6205879/2025/03/17/astros-cam-smith-chas-mccormick-jose-altuve-jake-meyers-outfield/
-
-**Lindsay Schnell picks every game of the NCAA Tournament: Cooper Flagg cuts down the net**\
-`Having two SEC teams in the Final Four isn't a surprise, but one of the picks to get there might be unexpected.`\
-https://nytimes.com/athletic/6208993/2025/03/17/mens-ncaa-tournament-2025-bracket-duke/
-
-**Knicks offense finding ways to 'steal points' with Jalen Brunson out**\
-`One theme is certain in Brunson's injury absence: rhythm gets choppy without a conductor. New York is clawing for buckets in other ways.`\
-https://nytimes.com/athletic/6207882/2025/03/17/knicks-offense-jalen-brunson-injury-nba/
-
-**Company led by NBA refs hopes to improve basketball officiating, expand pool of referees**\
-`Two NBA officials created an app to use technology to teach current, upcoming and aspiring referees how to apply the rules in their sports.`\
-https://nytimes.com/athletic/6197306/2025/03/17/nba-refs-referees-officials-officiating-basketball/
 
