@@ -1,3 +1,15 @@
+**Can You Uncover These 13 Hidden Book Titles?**\
+`See how many works of prose and poetry by popular Irish authors you can find in this short scene — and build a reading list along the way.`\
+https://nytimes.com/interactive/2025/03/17/books/review/irish-title-search.html
+
+**‘This Is Actually a Perfect Recipe’**\
+`David Tanis’s five-star Irish stew needs only six ingredients, but the result is classic comfort.`\
+https://nytimes.com/2025/03/17/dining/perfect-irish-stew.html
+
+**How Facing Death Prepared Me for Heart Surgery**\
+`A writer explores how a Jewish ritual changed her relationship with mortality.`\
+https://nytimes.com/2025/03/17/well/mind/surviving-heart-surgery.html
+
 **Lowetide: What Oilers can expect from Trent Frederic when he enters lineup**\
 `Frederic will soon start ramping up for his first NHL action with his new team.`\
 https://nytimes.com/athletic/6207255/2025/03/17/edmonton-oilers-trent-frederic-stats/
