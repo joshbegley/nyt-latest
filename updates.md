@@ -1,3 +1,15 @@
+**Ravens LT Ronnie Stanley never envisioned playing anywhere else 'out of respect'**\
+`"They drafted me straight out of college, took a chance on me," Stanley said Monday. "I'm always going to give them first dibs."`\
+https://nytimes.com/athletic/6211194/2025/03/17/ravens-lt-ronnie-stanley-wanted-to-stay/
+
+**El Salvador’s President Sees Opportunity in Trump’s Deportations**\
+`Nayib Bukele’s role in the Trump administration’s deportation strategy signals a new level of power and global visibility for El Salvador’s young leader.`\
+https://nytimes.com/2025/03/17/world/americas/el-salvador-nayib-bukele-deportees.html
+
+**St. Louis Cardinals Opening Day roster and rotation plans: What I'm hearing**\
+`The Cardinals face two big roster decisions before they break camp on Sunday. Neither will be easy.`\
+https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rotation-plans/
+
 **Trump Says He Will Release Thousands of Documents Related to J.F.K. Assassination**\
 `Mr. Trump did not provide additional details on what the trove of files would include, but he has long promised to release them unredacted.`\
 https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
