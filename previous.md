@@ -1,3 +1,7 @@
+**Eagles agree to 1-year deals with Lane Johnson, free agent Azeez Ojulari**\
+`Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
+https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
+
 **Ravens LT Ronnie Stanley never envisioned playing anywhere else 'out of respect'**\
 `"They drafted me straight out of college, took a chance on me," Stanley said Monday. "I'm always going to give them first dibs."`\
 https://nytimes.com/athletic/6211194/2025/03/17/ravens-lt-ronnie-stanley-wanted-to-stay/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/arts/ming-fay-dead.html
 **Citing Trump’s Order, V.A. Halts Most Transgender Care**\
 `Veterans who wish to change their gender “can do so on their own dime,” the V.A. secretary said.`\
 https://nytimes.com/2025/03/17/health/veterans-transgender-health-care.html
-
-**A Court Showdown on Deportations**\
-`Also, wildfire danger looms over the southern Plains. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/03/17/briefing/court-trump-deportations-texas-wildfire-risks.html
 

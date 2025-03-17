@@ -1,3 +1,7 @@
+**Eagles agree to 1-year deals with Lane Johnson, free agent Azeez Ojulari**\
+`Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
+https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
+
 **Ravens LT Ronnie Stanley never envisioned playing anywhere else 'out of respect'**\
 `"They drafted me straight out of college, took a chance on me," Stanley said Monday. "I'm always going to give them first dibs."`\
 https://nytimes.com/athletic/6211194/2025/03/17/ravens-lt-ronnie-stanley-wanted-to-stay/
