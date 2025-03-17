@@ -1,3 +1,15 @@
+**Dodgers' Mookie Betts won’t play in Tokyo Series due to illness**\
+`Dodgers manager Dave Roberts noted that at one point Betts had lost 15 pounds and was severely dehydrated.`\
+https://nytimes.com/athletic/6208764/2025/03/16/dodgers-mookie-betts-illness-tokyo-series/
+
+**Rangers defend well again, but special teams, bad gaps let them down: 4 takeaways**\
+`In a stretch where every point counts, the Rangers played well, but not enough to win against the Oilers.`\
+https://nytimes.com/athletic/6208587/2025/03/16/rangers-defense-special-teams-shesterkin-oilers/
+
+**USC's path to the Final Four: Tall tasks loom before a UConn rematch**\
+`Can JuJu Watkins and Co. make a long run? `\
+https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
+
 **USC's path to the Final Four: Before a UConn rematch, Kansas State's 6-6 center looms**\
 `Can JuJu Watkins and Co. make a long run? `\
 https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
