@@ -1,3 +1,19 @@
+**Sixers' Paul George out for regular season after knee, adductor procedures**\
+`George, 34, hadn't played since March 4 after battling several injuries this season.`\
+https://nytimes.com/athletic/6211308/2025/03/17/sixers-paul-george-injury-knee-season/
+
+**Wilshere interview: 'I'd never seen someone coach the way Arteta does'**\
+`The former Arsenal midfielder tells The Athletic about his ambitions in management and what makes Myles Lewis-Skelly tick`\
+https://nytimes.com/athletic/6183671/2025/03/17/jack-wilshere-interview-arsenal-myles-lewis-skelly/
+
+**Ming Fay, Who Made Magical Sculptures of the Natural World, Dies at 82**\
+`His artwork paid tribute to its surroundings, in New York City and elsewhere, rendering nature at an oversized scale that made it unmissable.`\
+https://nytimes.com/2025/03/17/arts/ming-fay-dead.html
+
+**Citing Trump’s Order, V.A. Halts Most Transgender Care**\
+`Veterans who wish to change their gender “can do so on their own dime,” the V.A. secretary said.`\
+https://nytimes.com/live/2025/03/17/us/trump-news/veterans-transgender-health-care
+
 **A Court Showdown on Deportations**\
 `Also, wildfire danger looms over the southern Plains. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/17/briefing/court-trump-deportations-texas-wildfire-risks.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6180543/2025/03/17/atlanta-falcons-2025-free-agency
 **Maple Leafs season-ticket price hikes anger fans: 'The cost is enormous'**\
 `Prices in some sections saw a hike of over 20 percent for next year's season tickets.`\
 https://nytimes.com/athletic/6210720/2025/03/17/maple-leafs-ticket-price-increases/
-
-**Trump Discussion With Putin to Focus on What Ukraine Will Lose**\
-`In an echo of the Yalta Conference in 1945, the American and Russian leaders will talk on Tuesday about who gets what in the process of ending the war in Ukraine.`\
-https://nytimes.com/2025/03/17/us/politics/trump-putin-ceasefire-negotiation-ukraine-concessions.html
-
-**Padres name Michael King Opening Day starter over Darvish and Cease**\
-`Michael King arrived as a relative unknown in Padres camp last spring. A year later, the former reliever will start for them on Opening Day.`\
-https://nytimes.com/athletic/6210971/2025/03/17/padres-michael-king-opening-day-starter/
-
-**Anti-Abortion Lawyer Pushed Out of F.D.A. After Republican Senator’s Pressure Campaign**\
-`Hilary Perkins, a career lawyer and a conservative, was targeted by Senator Josh Hawley of Missouri for defending the Biden administration’s position on the abortion pill.`\
-https://nytimes.com/2025/03/17/us/politics/lawyer-fda-abortion-josh-hawley.html
-
-**Commanders new LT Laremy Tunsil 'can't wait to block for Jayden Daniels'**\
-`The five-time Pro Bowler is excited to join Washington and is looking forward to playing with the 2024 Offensive Rookie of the Year.`\
-https://nytimes.com/athletic/6211044/2025/03/17/commanders-laremy-tunsil-jayden-daniels/
 
