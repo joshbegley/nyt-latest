@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/16/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Tired Canucks blow opportunity to crush Utah’s playoff chances: 3 takeaways**\
 `A dogged defensive performance kept Vancouver in the game until the third, but the team looked tired on a back-to-back.`\
 https://nytimes.com/athletic/6208308/2025/03/16/canucks-offence-struggles-utah-playoffs/
