@@ -1,3 +1,7 @@
+**Maple Leafs season-ticket price hikes anger fans: 'The cost is enormous'**\
+`Prices in some sections saw a hike of over 20 percent for next year's season tickets.`\
+https://nytimes.com/athletic/6210720/2025/03/17/maple-leafs-ticket-price-increases/
+
 **Trump Discussion With Putin to Focus on What Ukraine Will Lose**\
 `In an echo of the Yalta Conference in 1945, the American and Russian leaders will talk on Tuesday about who gets what in the process of ending the war in Ukraine.`\
 https://nytimes.com/2025/03/17/us/politics/trump-putin-ceasefire-negotiation-ukraine-concessions.html
