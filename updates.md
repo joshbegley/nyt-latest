@@ -1,3 +1,11 @@
+**Why Helsinki Is Worth Visiting for the Architecture Alone**\
+`With its radical buildings by Eliel Saarinen and Alvar Aalto, the Finnish capital is one of Europe’s most fascinating, if lesser-sung, design capitals.`\
+https://nytimes.com/2025/03/17/t-magazine/helsinki-finland-architecture-guide.html
+
+**What’s Next for Mahmoud Khalil? A Fight to Keep His Case in New York.**\
+`The Trump administration’s effort to have his case heard in Louisiana could let some of America’s most conservative judges set a precedent on deportations.`\
+https://nytimes.com/2025/03/17/nyregion/mahmoud-khalil-new-york-louisiana-legal-fight.html
+
 **A Pentagon Nomination Fight Reveals the New Rules of Trump’s Washington**\
 `When Elbridge A. Colby’s nomination for an obscure but important Pentagon job drew resistance, President Trump’s most ardent backers rallied to his defense.`\
 https://nytimes.com/2025/03/17/us/politics/elbridge-colby-pentagon-trump.html

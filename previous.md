@@ -1,3 +1,11 @@
+**Why Helsinki Is Worth Visiting for the Architecture Alone**\
+`With its radical buildings by Eliel Saarinen and Alvar Aalto, the Finnish capital is one of Europe’s most fascinating, if lesser-sung, design capitals.`\
+https://nytimes.com/2025/03/17/t-magazine/helsinki-finland-architecture-guide.html
+
+**What’s Next for Mahmoud Khalil? A Fight to Keep His Case in New York.**\
+`The Trump administration’s effort to have his case heard in Louisiana could let some of America’s most conservative judges set a precedent on deportations.`\
+https://nytimes.com/2025/03/17/nyregion/mahmoud-khalil-new-york-louisiana-legal-fight.html
+
 **A Pentagon Nomination Fight Reveals the New Rules of Trump’s Washington**\
 `When Elbridge A. Colby’s nomination for an obscure but important Pentagon job drew resistance, President Trump’s most ardent backers rallied to his defense.`\
 https://nytimes.com/2025/03/17/us/politics/elbridge-colby-pentagon-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6210178/2025/03/17/lionel-messi-argentina-squad/
 **Man Utd to increase season ticket prices**\
 `This marks the third straight year United have increased season ticket prices.`\
 https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
-
-**Iona fires coach Tobin Anderson after 2 seasons, MAAC championship loss**\
-`Anderson coached Fairleigh Dickinson to a win over Purdue in one of the most iconic upsets in NCAA Tournament history in 2023.`\
-https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basketball/
-
-**This is Rory McIlroy's window. Can he take advantage?**\
-`McIlroy is the only truly elite, top-tier golfer playing at a winning level right now, less than a month from the Masters.`\
-https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
 
