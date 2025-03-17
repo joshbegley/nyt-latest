@@ -1,3 +1,7 @@
+**Extremely Critical Fire Conditions Expected to Return to the Southern Plains**\
+`Forecasters warn that more “very destructive” fires could spread uncontrollably.`\
+https://nytimes.com/2025/03/17/weather/fire-forecast-oklahoma-texas.html
+
 **Rising Democratic Star Enters Race to Fill Houston House Seat**\
 `Christian Menefee, the outspoken Harris County attorney, jumped into the race for a U.S. House seat representing a heavily Democratic district. But Gov. Greg Abbott has yet to set an election date.`\
 https://nytimes.com/2025/03/17/us/houston-house-seat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/world/europe/north-macedonia-nightclub-fire-pulse
 **FPL: What we learned from Gameweek 29 - Palmer woes and how to plan for Gameweek 30**\
 `Abdule Rehman breaks down the main talking points from Gameweek 29 in Fantasy Premier League`\
 https://nytimes.com/athletic/6208091/2025/03/17/fantasy-premier-league-gameweek-29-palmer-elanga/
-
-**Where the NBA playoff (and tanking) races stand with less than a month to go**\
-`There's a scrum for the No. 2 spot in the West and in the middle of the East, while some teams are trying to actively avoid the playoffs.`\
-https://nytimes.com/athletic/6202956/2025/03/17/nba-playoff-races-east-west-tank/
 
