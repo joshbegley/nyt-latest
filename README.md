@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6207191/2025/03/17/green-bay-packers-free-agency-an
 `Carolina made solid moves. But which one gets the highest grade? Adding Tre'von Moehrig or Rico Dowdle or extending Jaycee Horn?`\
 https://nytimes.com/athletic/6207084/2025/03/17/panthers-free-agent-grades-2025/
 
+**Seahawks hope to unlock 'point guard' version of Sam Darnold**\
+`The Seahawks are betting on the philosophy change Darnold adopted the last few years with the 49ers and Vikings will carry over to Seattle.`\
+https://nytimes.com/athletic/6207194/2025/03/17/sam-darnold-seahawks-play-action-passing/
+
 **How South Sudan Returned to the Brink of War**\
 `An attack on a U.N. helicopter has highlighted rising tensions in the world’s youngest country, where a seven-year-old peace deal looks ever more fragile.`\
 https://nytimes.com/2025/03/17/world/africa/south-sudan-war.html
@@ -32,9 +36,5 @@ https://nytimes.com/2025/03/17/opinion/total-eclipse-tennessee-flowers.html
 
 **Syria’s Struggle to Unify Military Was Evident in Outburst of Violence**\
 `Sectarian-driven killings of civilians this month displayed the government’s weak control over both its own forces and affiliated fighters, experts said.`\
-https://nytimes.com/2025/03/17/world/middleeast/syrias-struggle-to-unify-military-was-evident-in-outburst-of-violence.html
-
-**Trump’s Poll Numbers Are Sagging. Here’s the Key Reason.**\
-`A central mystery of Trump’s presidency is whether his actions are in step with what voters want or whether he is going rogue on America.`\
-https://nytimes.com/2025/03/17/opinion/trump-economy-polling.html
+https://nytimes.com/2025/03/17/world/middleeast/syria-military-assad.html
 
