@@ -1,3 +1,7 @@
+**gws-arts-music-nona-hendryx**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/arts-music-nona-hendryx
+
 **gws-westminster-dog-show-best-in-show**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/westminster-dog-show-best-in-show
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6209648/2025/03/17/college-baseball-rankings-alabam
 **Texans extend Derek Stingley Jr. on largest deal for DB in NFL history**\
 `Stingley, 23, was a first-team All-Pro in 2024, his third year in the league.`\
 https://nytimes.com/athletic/6209501/2025/03/17/texans-derek-stingley-jr-contract-extension/
-
-**Extremely Critical Fire Conditions Expected to Return to the Southern Plains**\
-`Forecasters warn that more “very destructive” fires could spread uncontrollably.`\
-https://nytimes.com/2025/03/17/weather/fire-forecast-oklahoma-texas.html
 
