@@ -1,3 +1,11 @@
+**Word of the Day: shenanigan**\
+`This word has appeared in 159 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/17/learning/word-of-the-day-shenanigan.html
+
+**Forever 21 Operator Files for Bankruptcy**\
+`The company, which helped popularize fast fashion in the United States, has struggled to compete with online retailers. It is the company’s second bankruptcy filing in six years.`\
+https://nytimes.com/2025/03/17/business/forever-21-bankruptcy.html
+
 **Leicester look lost - but Van Nistelrooy's reputation is also on the line**\
 `Dire records are being broken with every passing week, raising serious questions over the Leicester manager`\
 https://nytimes.com/athletic/6208096/2025/03/17/leicester-city-ruud-van-nistelrooy-future/
