@@ -1,3 +1,7 @@
+**SEC made NCAA Tournament history, but its performance from here will be defining**\
+`The NCAA selection committee echoed what people have been saying since December. Now, it's time for the league to win games when it matters.`\
+https://nytimes.com/athletic/6208794/2025/03/17/sec-ncaa-tournament-14-teams/
+
 **NCAA Tournament power rankings: The 16 teams most likely to win it all**\
 `The SEC is well-represented among title contenders, but its best squads open behind the No. 1 team in these pre-tournament rankings.`\
 https://nytimes.com/athletic/6208532/2025/03/17/ncaa-tournament-power-rankings-champion-favorites/

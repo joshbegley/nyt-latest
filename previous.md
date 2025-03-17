@@ -1,3 +1,7 @@
+**SEC made NCAA Tournament history, but its performance from here will be defining**\
+`The NCAA selection committee echoed what people have been saying since December. Now, it's time for the league to win games when it matters.`\
+https://nytimes.com/athletic/6208794/2025/03/17/sec-ncaa-tournament-14-teams/
+
 **NCAA Tournament power rankings: The 16 teams most likely to win it all**\
 `The SEC is well-represented among title contenders, but its best squads open behind the No. 1 team in these pre-tournament rankings.`\
 https://nytimes.com/athletic/6208532/2025/03/17/ncaa-tournament-power-rankings-champion-favorites/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207184/2025/03/17/broncos-roster-reset-free-agency
 **Concacaf Top 20: Ranking the region's best men's players**\
 `With another Nations League wrapping up, who are the best players in the Concacaf region? Our North American panel decides.`\
 https://nytimes.com/athletic/6200674/2025/03/17/concacaf-top-20-players-pulisic-davies-david-usa-mexico-canada/
-
-**Tigers prospect Max Clark is a star of the online age. Will his talent merit the attention?**\
-`As Clark's development accelerates, his flash and social media following have already made him a star. Can his talent match the aura?`\
-https://nytimes.com/athletic/6208017/2025/03/17/tigers-prospect-max-clark-social-media/
 
