@@ -1,3 +1,15 @@
+**Women's March Madness upset predictions: Can Harvard pull off a stunner?**\
+`First-round upsets aren't likely, but Sabreena Merchant sees five opportunities for the lower-seeded teams to shock. `\
+https://nytimes.com/athletic/6209073/2025/03/17/womens-march-madness-upset-predictions-can-harvard-pull-off-a-stunner/
+
+**In Kimi Antonelli's F1 debut, Mercedes glimpses a hopeful post-Hamilton future**\
+`While other rookies and teams struggled in rainy Melbourne, Mercedes and their youngster emerged tied atop the standings. `\
+https://nytimes.com/athletic/6208349/2025/03/17/kimi-antonelli-mercedes-f1-australian-gp/
+
+**10 March Madness tips for filling out your women's tournament bracket**\
+`Bet on experience and guard play, and go ahead and fill out a few brackets if you want to win. `\
+https://nytimes.com/athletic/6209126/2025/03/17/march-madness-bracket-tips-womens-tournament/
+
 **NFL free agency winners and losers: Sam Darnold flying high; 49ers roster takes a hit**\
 `Darnold got big bucks to join a Seahawks squad that also added wide receiver Cooper Kupp. He wasn't the only QB in the news last week.`\
 https://nytimes.com/athletic/6204504/2025/03/17/nfl-free-agency-2025-winners-losers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6194240/2025/03/17/mlb-preseason-power-rankings-202
 **Explainer: Why are the Cubs and Dodgers playing in Japan in the middle of March?**\
 `The MLB season opens in Japan on Tuesday with a duel of Japanese stars on the mound. And then there's Shohei Ohtani, too.`\
 https://nytimes.com/athletic/6206684/2025/03/17/cubs-dodgers-mlb-tokyo-series-march/
-
-**What we're hearing about the Padres: Pitching depth, Gavin Sheets' power and more**\
-`The Padres' pitching depth is likely to be tested this season.`\
-https://nytimes.com/athletic/6208498/2025/03/17/san-diego-padres-pitchers-spring-training/
-
-**NHL owner rankings: Grading every team, from Tampa Bay to Buffalo**\
-`Introducing The Athletic's first NHL owner rankings, based 50 percent on a fan survey and 50 percent on expert accounting.`\
-https://nytimes.com/athletic/6195557/2025/03/17/nhl-owner-rankings-2025-mirtle/
-
-**Meet the Japanese company that irked MLB execs during the Roki Sasaki sweepstakes**\
-`One of the largest advertising agencies in the world, Dentsu's influence found its way into team boardrooms as Sasaki weighed his decision.`\
-https://nytimes.com/athletic/6208407/2025/03/17/dodgers-roki-sasaki-signing-dentsu/
 

@@ -1,3 +1,15 @@
+**Women's March Madness upset predictions: Can Harvard pull off a stunner?**\
+`First-round upsets aren't likely, but Sabreena Merchant sees five opportunities for the lower-seeded teams to shock. `\
+https://nytimes.com/athletic/6209073/2025/03/17/womens-march-madness-upset-predictions-can-harvard-pull-off-a-stunner/
+
+**In Kimi Antonelli's F1 debut, Mercedes glimpses a hopeful post-Hamilton future**\
+`While other rookies and teams struggled in rainy Melbourne, Mercedes and their youngster emerged tied atop the standings. `\
+https://nytimes.com/athletic/6208349/2025/03/17/kimi-antonelli-mercedes-f1-australian-gp/
+
+**10 March Madness tips for filling out your women's tournament bracket**\
+`Bet on experience and guard play, and go ahead and fill out a few brackets if you want to win. `\
+https://nytimes.com/athletic/6209126/2025/03/17/march-madness-bracket-tips-womens-tournament/
+
 **NFL free agency winners and losers: Sam Darnold flying high; 49ers roster takes a hit**\
 `Darnold got big bucks to join a Seahawks squad that also added wide receiver Cooper Kupp. He wasn't the only QB in the news last week.`\
 https://nytimes.com/athletic/6204504/2025/03/17/nfl-free-agency-2025-winners-losers/
