@@ -1,3 +1,15 @@
+**Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
+`The pair, tied at 12 under par through four rounds, will face off in a three-hole aggregate playoff Monday morning.`\
+https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
+
+**How North Carolina nabbed final spot in NCAA Tournament**\
+`The Tar Heels, who hold a 1-12 record against Quad 1 teams this season, earned a bid despite a poor showing against the country’s top teams.`\
+https://nytimes.com/athletic/6208212/2025/03/16/north-carolina-ncaa-tournament-2/
+
+**UCLA, South Carolina, Texas, USC land No. 1 seeds in women's NCAA Tournament**\
+`UCLA eclipsed 30 wins for the first time in program history, and the Bruins were rewarded with the No. 1 overall seed.`\
+https://nytimes.com/athletic/6207519/2025/03/16/womens-march-madness-bracket-ncaa-tournament-2025/
+
 **The NCAA Tournament runs through football country (and Cooper Flagg)**\
 `Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
 https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
