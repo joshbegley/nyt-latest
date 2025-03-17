@@ -1,3 +1,11 @@
+**This is Rory McIlroy's window. Can he take advantage?**\
+`PONTE VEDRA BEACH, Fla.`\
+https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
+
+**Lee Shau-Kee, Hong Kong Real Estate Tycoon, Dies at 97**\
+`Sometimes called the Warren Buffett of Hong Kong, he made his billions initially building apartments for middle-class descendants of refugees from mainland China.`\
+https://nytimes.com/2025/03/17/business/lee-shau-kee-dead.html
+
 **Essugo will be Chelsea's new defensive security blanket - with errors to iron out**\
 `Chelsea have an agreement to sign Dario Essugo - this is what he'll bring to Stamford Bridge`\
 https://nytimes.com/athletic/6209977/2025/03/17/dario-essugo-chelsea-analysis/
