@@ -1,5 +1,17 @@
+**How A.I. Is Changing the Way the World Builds Computers**\
+`Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
+https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
+
+**PWHL sets U.S. attendance record in Detroit as part of Takeover Tour**\
+`The city of Detroit recaptured the U.S. attendance record for professional women's hockey as the PWHL celebrated one million fans.`\
+https://nytimes.com/athletic/6208371/2025/03/16/pwhl-us-attendance-record-detroit-takeover-tour/
+
+**‘The White Lotus’ Season 3, Episode 5 Recap: A Poetic Act**\
+`It was a big week for cutting loose and confessions, for sex as a metaphor but also just for sex.`\
+https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html
+
 **Why are the Phoenix Suns so bad? 'It's not one thing'**\
-`In a gotta-have-it game against the Lakers on national TV, the Suns fell down by 20 in Sunday's first quarter and lost 107-96.`\
+`In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
 https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
 
 **No. 1 UCLA's road to the Final Four: Will LSU or Baylor contain Lauren Betts? Not likely**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spa
 **How North Carolina nabbed final spot in NCAA Tournament**\
 `The Tar Heels, who hold a 1-12 record against Quad 1 teams this season, earned a bid despite a poor showing against the country’s top teams.`\
 https://nytimes.com/athletic/6208212/2025/03/16/north-carolina-ncaa-tournament-2/
-
-**UCLA, South Carolina, Texas, USC land No. 1 seeds in women's NCAA Tournament**\
-`UCLA eclipsed 30 wins for the first time in program history, and the Bruins were rewarded with the No. 1 overall seed.`\
-https://nytimes.com/athletic/6207519/2025/03/16/womens-march-madness-bracket-ncaa-tournament-2025/
-
-**Venezuelan Families Fear for Relatives as Trump Celebrates Deportations**\
-`The transfer of 238 migrants accused of being gang members to El Salvador has created panic among Venezuelans who worry about the fate of their loved ones.`\
-https://nytimes.com/2025/03/16/world/americas/el-salvador-venezuela-deportations-families.html
-
-**Who were the first 4 teams left out of men's NCAA Tournament?**\
-`Were Indiana, West Virginia, Ohio State and Boise State snubbed? A look at how teams fared during regular season.`\
-https://nytimes.com/athletic/6207963/2025/03/16/first-four-out-ncaa-tournament-west-virginia/
 

@@ -1,3 +1,19 @@
+**How A.I. Is Changing the Way the World Builds Computers**\
+`Tech companies are revamping computing — from how tiny chips are built to the way they are arranged, cooled and powered — in the race to build artificial intelligence that recreates the human brain.`\
+https://nytimes.com/interactive/2025/03/16/technology/ai-data-centers.html
+
+**PWHL sets U.S. attendance record in Detroit as part of Takeover Tour**\
+`The city of Detroit recaptured the U.S. attendance record for professional women's hockey as the PWHL celebrated one million fans.`\
+https://nytimes.com/athletic/6208371/2025/03/16/pwhl-us-attendance-record-detroit-takeover-tour/
+
+**‘The White Lotus’ Season 3, Episode 5 Recap: A Poetic Act**\
+`It was a big week for cutting loose and confessions, for sex as a metaphor but also just for sex.`\
+https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html
+
+**Why are the Phoenix Suns so bad? 'It's not one thing'**\
+`In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
+https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
+
 **Why are the Phoenix Suns so bad? 'It's not one thing'**\
 `In a gotta-have-it game against the Lakers on national TV, the Suns fell down by 20 in Sunday's first quarter and lost 107-96.`\
 https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
