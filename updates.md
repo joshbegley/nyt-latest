@@ -1,3 +1,15 @@
+**Man Utd to increase season ticket prices**\
+`This marks the third straight year United have increased season ticket prices.`\
+https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
+
+**Iona fires coach Tobin Anderson after 2 seasons, MAAC championship loss**\
+`Anderson coached Fairleigh Dickinson to a win over Purdue in one of the most iconic upsets in NCAA Tournament history in 2023.`\
+https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basketball/
+
+**The Giants' fifth-starter competition is complicated and delicate**\
+`Harrison's spring struggles might impact whether he starts the season in the Giants' rotation as was originally planned, but should they?`\
+https://nytimes.com/athletic/6208998/2025/03/17/sf-giants-fifth-starter-battle-kyle-harrison/
+
 **This is Rory McIlroy's window. Can he take advantage?**\
 `PONTE VEDRA BEACH, Fla.`\
 https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/

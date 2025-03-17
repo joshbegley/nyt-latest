@@ -1,3 +1,11 @@
+**Man Utd to increase season ticket prices**\
+`This marks the third straight year United have increased season ticket prices.`\
+https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
+
+**Iona fires coach Tobin Anderson after 2 seasons, MAAC championship loss**\
+`Anderson coached Fairleigh Dickinson to a win over Purdue in one of the most iconic upsets in NCAA Tournament history in 2023.`\
+https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basketball/
+
 **This is Rory McIlroy's window. Can he take advantage?**\
 `PONTE VEDRA BEACH, Fla.`\
 https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
@@ -11,7 +19,7 @@ https://nytimes.com/2025/03/17/business/lee-shau-kee-dead.html
 https://nytimes.com/athletic/6209977/2025/03/17/dario-essugo-chelsea-analysis/
 
 **The Giants' fifth-starter competition is complicated and delicate**\
-`Kyle Harrison's spring struggles may impact whether he starts the season in the Giants' rotation as was originally planned, but should they?`\
+`Harrison's spring struggles might impact whether he starts the season in the Giants' rotation as was originally planned, but should they?`\
 https://nytimes.com/athletic/6208998/2025/03/17/sf-giants-fifth-starter-battle-kyle-harrison/
 
 **From Welcoming New Life to Mourning Its Loss, in 22 Weeks**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets
 **What to know about Rory McIlroy's Players Championship win**\
 `This now makes 16 PGA Tour victories for McIlroy when trailing after 54 holes, by far the most since his first title back in 2010.`\
 https://nytimes.com/athletic/6210007/2025/03/17/players-championship-analysis-mcilroy-win/
-
-**Scoop City: Risers and fallers after free agency's opening week**\
-`Inside: The biggest beneficiaries from the first week of free agency — a list with Caleb Williams, Sean Payton and two of the Bengals&#8217; stars — and the teams whose stocks took hits.`\
-https://nytimes.com/athletic/6209982/2025/03/17/nfl-risers-fallers-trending-free-agency-2025-bears-raiders-seahawks/
-
-**Yohe: Penguins fans believe in tanking for good reason, but it's a dangerous game**\
-`Tanking for draft picks doesn't usually lead to success, so don't fret about this Penguins' winning streak. `\
-https://nytimes.com/athletic/6209652/2025/03/17/penguins-fans-tanking-draft/
 
