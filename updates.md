@@ -1,3 +1,19 @@
+**Making Sense of DOGE’s Cuts**\
+`Small reductions to the federal work force could have an outsize impact.`\
+https://nytimes.com/2025/03/17/us/politics/making-sense-of-doges-cuts.html
+
+**Fannie Mae and Freddie Mac, mortgage giants, are shaken up by their federal regulator.**\
+`By Matthew Goldstein`\
+https://nytimes.com/live/2025/03/17/us/trump-news/fannie-mae-and-freddie-mac-mortgage-giants-are-shaken-up-by-their-federal-regulator
+
+**ESPN hiring Fox's Artie Kempner as new director of 'Monday Night Football'**\
+`Kempner previously worked with Joe Buck and Troy Aikman, but had been Fox’s No. 2 NFL director, while being their lead on NASCAR.`\
+https://nytimes.com/athletic/6211369/2025/03/17/espn-monday-night-football-fox-director/
+
+**Texas Arrests Midwife and Associate on Charges of Providing Abortions**\
+`The two arrests in greater Houston appear to be the first time health care providers have been charged with violating abortion bans in their state since Roe v. Wade was overturned in 2022.`\
+https://nytimes.com/2025/03/17/us/politics/abortion-arrest.html
+
 **Eagles agree to 1-year deals with Lane Johnson, free agent Azeez Ojulari**\
 `Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
 https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/

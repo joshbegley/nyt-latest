@@ -1,3 +1,15 @@
+**Making Sense of DOGE’s Cuts**\
+`Small reductions to the federal work force could have an outsize impact.`\
+https://nytimes.com/2025/03/17/us/politics/making-sense-of-doges-cuts.html
+
+**Fannie Mae and Freddie Mac, mortgage giants, are shaken up by their federal regulator.**\
+`By Matthew Goldstein`\
+https://nytimes.com/live/2025/03/17/us/trump-news/fannie-mae-and-freddie-mac-mortgage-giants-are-shaken-up-by-their-federal-regulator
+
+**ESPN hiring Fox's Artie Kempner as new director of 'Monday Night Football'**\
+`Kempner previously worked with Joe Buck and Troy Aikman, but had been Fox’s No. 2 NFL director, while being their lead on NASCAR.`\
+https://nytimes.com/athletic/6211369/2025/03/17/espn-monday-night-football-fox-director/
+
 **Eagles agree to 1-year deals with Lane Johnson, free agent Azeez Ojulari**\
 `Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
 https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rot
 https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
 
 **Texas Arrests Midwife and Associate on Charges of Providing Abortions**\
-`The two arrests in greater Houston appear to be the first time abortion providers have been charged with violating abortion bans in their state since Roe v. Wade was overturned in 2022.`\
+`The two arrests in greater Houston appear to be the first time health care providers have been charged with violating abortion bans in their state since Roe v. Wade was overturned in 2022.`\
 https://nytimes.com/2025/03/17/us/politics/abortion-arrest.html
 
 **Sixers' Paul George out for regular season after knee, adductor procedures**\
 `George, 34, hadn't played since March 4 after battling several injuries this season.`\
 https://nytimes.com/athletic/6211308/2025/03/17/sixers-paul-george-injury-knee-season/
-
-**Wilshere interview: 'I'd never seen someone coach the way Arteta does'**\
-`The former Arsenal midfielder speaks about his ambitions in management and what makes Myles Lewis-Skelly tick.`\
-https://nytimes.com/athletic/6183671/2025/03/17/jack-wilshere-interview-arsenal-myles-lewis-skelly/
-
-**Ming Fay, Who Made Magical Sculptures of the Natural World, Dies at 82**\
-`His artwork paid tribute to its surroundings, in New York City and elsewhere, rendering nature at an oversized scale that made it unmissable.`\
-https://nytimes.com/2025/03/17/arts/ming-fay-dead.html
-
-**Citing Trump’s Order, V.A. Halts Most Transgender Care**\
-`Veterans who wish to change their gender “can do so on their own dime,” the V.A. secretary said.`\
-https://nytimes.com/2025/03/17/health/veterans-transgender-health-care.html
 
