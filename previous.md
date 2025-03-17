@@ -1,3 +1,7 @@
+**UConn's path to the Final Four: Will it include a Paige Bueckers vs. JuJu Watkins showdown?**\
+`What hurdles will the Huskies face as they try to win their first championship since 2016?`\
+https://nytimes.com/athletic/6207213/2025/03/16/uconn-bracket-path-final-four/
+
 **The 10 most likely first-round upsets for the 2025 men's NCAA tournament**\
 `Meet the underdogs our predictive model believes have the biggest bite for their first-round foes.`\
 https://nytimes.com/athletic/6207783/2025/03/16/march-madness-2025-upset-picks-first-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6207830/2025/03/16/mens-ncaa-tournament-2025-bracke
 **Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
 `Everything you need to know to fill out your bracket and win your office pool.`\
 https://nytimes.com/athletic/6207081/2025/03/16/womens-march-madness-bracket-prep-68-teams/
-
-**Florida, not Duke, opens as the national championship favorite. Can anyone knock them off?**\
-`Florida, not Duke or Auburn, emerges as post-Selection Sunday national championship favorite. Read here for the title odds.`\
-https://nytimes.com/athletic/6208316/2025/03/16/march-madness-2025-betting-favorites-national-championship/
 
