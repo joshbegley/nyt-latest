@@ -1,3 +1,7 @@
+**Why Brentford are still the smartest team in the room**\
+`Thomas Frank's team have evolved during their Premier League stay. They can now win games in all sorts of ways`\
+https://nytimes.com/athletic/6206105/2025/03/17/brentford-premier-league-tactics/
+
 **Trump Says He Will Talk to Putin on Tuesday to Discuss Ukraine**\
 `President Trump’s special envoy met with President Vladimir V. Putin of Russia last week to discuss a cease-fire proposal.`\
 https://nytimes.com/2025/03/17/us/politics/trump-putin-ukraine-phone-call.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6209001/2025/03/17/submit-a-question-for-stewart-ma
 **Notre Dame's path to the Final Four won't be easy as a No. 3 seed**\
 `Our expert analyzes the Irish's hurdles as they try to make it to Tampa.`\
 https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-four/
-
-**U.S. to Withdraw From Group Investigating Responsibility for Ukraine Invasion**\
-`The decision is the latest indication of the Trump administration’s move away from holding President Vladimir V. Putin of Russia accountable for crimes committed against Ukrainians.`\
-https://nytimes.com/2025/03/17/us/politics/trump-ukraine-invasion-accountability.html
 
