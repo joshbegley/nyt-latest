@@ -1,3 +1,11 @@
+**A Court Showdown on Deportations**\
+`Also, wildfire danger looms over the southern Plains. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/17/briefing/court-trump-deportations-texas-wildfire-risks.html
+
+**New Yorker Cuts Ties With Critic After Complaints About Behavior**\
+`The magazine received concerns about the writer’s conduct at its centennial celebration at a star-studded party in Manhattan.`\
+https://nytimes.com/2025/03/17/business/media/new-yorker-critic-jackson-arn.html
+
 **Explaining Man United's ticket price rise - and how a much bigger increase was avoided**\
 `Changes announced on Monday will add an extra £15m in revenue for the club, but how did they arrive at their decision?`\
 https://nytimes.com/athletic/6211010/2025/03/17/manchester-united-season-ticket-rises-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/lawyer-fda-abortion-josh-hawley.html
 **Commanders new LT Laremy Tunsil 'can't wait to block for Jayden Daniels'**\
 `The five-time Pro Bowler is excited to join Washington and is looking forward to playing with the 2024 Offensive Rookie of the Year.`\
 https://nytimes.com/athletic/6211044/2025/03/17/commanders-laremy-tunsil-jayden-daniels/
-
-**Tuesday Briefing: A Trump-Putin Call**\
-`Plus, a “retirement home” for penguins.`\
-https://nytimes.com/2025/03/17/briefing/trump-putin-ukraine-us-deportations-rwanda-sanctions.html
-
-**Braves' Spencer Strider moves closer to return with dominant first spring outing**\
-`Strider struck out six of eight batters he faced in his first outing since elbow surgery nearly a year ago.`\
-https://nytimes.com/athletic/6210951/2025/03/17/braves-spencer-strider-spring-injury/
 
