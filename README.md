@@ -1,3 +1,7 @@
+**Explaining Man United's ticket price rise - and how a much bigger increase was avoided**\
+`Changes announced on Monday will add an extra £15m in revenue for the club, but how did they arrive at their decision?`\
+https://nytimes.com/athletic/6211010/2025/03/17/manchester-united-season-ticket-rises-explained/
+
 **‘Most European Non-European Country’: Canada Turns to Allies as Trump Threatens**\
 `Days after becoming prime minister, Mark Carney visited Paris and London to highlight deep European friendships as his country fights back against President Trump’s tariffs and annexation talk.`\
 https://nytimes.com/2025/03/17/world/canada/canada-trump-carney-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/briefing/trump-putin-ukraine-us-deportations-rwan
 **Braves' Spencer Strider moves closer to return with dominant first spring outing**\
 `Strider struck out six of eight batters he faced in his first outing since elbow surgery nearly a year ago.`\
 https://nytimes.com/athletic/6210951/2025/03/17/braves-spencer-strider-spring-injury/
-
-**Out at Sea for 95 Days, a Peruvian Fisherman Clung to Hope**\
-`Máximo Napa Castro, 61, was spotted by the crew of an Ecuadorean tuna boat after he set out from the Peruvian port of Marcona in December.`\
-https://nytimes.com/2025/03/17/world/americas/peruvian-fisherman-95-days-lost-at-sea.html
 

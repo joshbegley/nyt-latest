@@ -1,3 +1,11 @@
+**‘Most European Non-European Country’: Canada Turns to Allies as Trump Threatens**\
+`Days after becoming prime minister, Mark Carney visited Paris and London to highlight deep European friendships as his country fights back against President Trump’s tariffs and annexation talk.`\
+https://nytimes.com/2025/03/17/world/canada/canada-trump-carney-europe.html
+
+**Falcons free agency tracker: Morgan Fox signs, Kentavius Street returns**\
+`The Falcons entered free agency needing edge rushers and cornerbacks. We're tracking all their moves here.`\
+https://nytimes.com/athletic/6180543/2025/03/17/atlanta-falcons-2025-free-agency-tracker/
+
 **Maple Leafs season-ticket price hikes anger fans: 'The cost is enormous'**\
 `Prices in some sections saw a hike of over 20 percent for next year's season tickets.`\
 https://nytimes.com/athletic/6210720/2025/03/17/maple-leafs-ticket-price-increases/
