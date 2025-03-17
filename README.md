@@ -1,3 +1,15 @@
+**Telegram Founder Charged With Multiple Crimes Is Allowed to Leave France**\
+`Pavel Durov said that the investigation into illicit activity on the messaging app he runs is ongoing, but that he had returned home to Dubai.`\
+https://nytimes.com/2025/03/17/world/europe/pavel-durov-france-telegram-founder.html
+
+**Netanyahu’s Move to Fire Shin Bet Chief Reflects Wider Push for Control**\
+`The effort is part of a dispute between Benjamin Netanyahu’s right-wing alliance and its opponents about the nature and future of the Israeli state.`\
+https://nytimes.com/2025/03/17/world/middleeast/israel-netanyahu-shin-bet-firing.html
+
+**Is NCAA Tournament expansion a 'slam dunk'?**\
+`College sports leaders have been discussing the possibility of allowing more teams to participate in March Madness for about four years.`\
+https://nytimes.com/athletic/6208926/2025/03/17/ncaa-basketball-tournament-field-expansion-revenue/
+
 **Trump Administration Live Updates: Trump Says He Will Discuss Ukraine With Putin on Tuesday**\
 ``\
 https://nytimes.com/live/2025/03/17/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6207787/2025/03/17/wild-trade-deadline-regret-folig
 **Midwest Region breakdown: Can Houston take down Tennessee and Kentucky for Final Four trip?**\
 `The Midwest Region features an intriguing mix of NCAA Tournament staples and upstarts with the capability to bust brackets.`\
 https://nytimes.com/athletic/6208224/2025/03/17/midwest-region-ncaa-tournament-analysis-houston/
-
-**NCAA Tournament West Region analysis: Get ready for a clash of coaching titans**\
-`The West Region features potential clashes of some of the sport's biggest coaches, from Bill Self to John Calipari and Rick Pitino. `\
-https://nytimes.com/athletic/6208300/2025/03/17/west-region-ncaa-tournament-analysis/
-
-**Unpicking the curious genius of Joelinton - a player like no other**\
-`The Brazilian has become invaluable to Newcastle in a bewildering array of roles and could be just what his national team need`\
-https://nytimes.com/athletic/6207965/2025/03/17/joelinton-newcastle-carabao-cup/
-
-**Could Bryce Underwood be Michigan's Day 1 starter? 5 spring questions**\
-`Michigan opens spring football practice on Tuesday. Here's what we're paying close attention to over the next few weeks.`\
-https://nytimes.com/athletic/6206996/2025/03/17/michigan-football-bryce-underwood-spring-practice/
 
