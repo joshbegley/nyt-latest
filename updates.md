@@ -1,3 +1,15 @@
+**Leicester look lost - but Van Nistelrooy's reputation is also on the line**\
+`Dire records are being broken with every passing week, raising serious questions over the Leicester manager`\
+https://nytimes.com/athletic/6208096/2025/03/17/leicester-city-ruud-van-nistelrooy-future/
+
+**Jorgen Strand Larsen has his critics but goalscoring glimpses show he is learning**\
+`Despite his problems, the striker's output in a first season in a new league is impressive - and there should be more to come`\
+https://nytimes.com/athletic/6206749/2025/03/17/jorgen-strand-larsen-wolves/
+
+**Enzo Barrenechea: The Aston Villa loanee playing a key role in Valencia's survival fight**\
+`Enzo Barrenechea is impressing on loan with Valencia in La Liga - what does the future hold for him at Aston Villa?`\
+https://nytimes.com/athletic/6057535/2025/03/17/enzo-barrenechea-aston-villa-valencia/
+
 **Tomas Soucek, an early Moyes signing, remains integral (and underappreciated)**\
 `He has been a constant throughout a period when the club transitioned from mid-table hopefuls to UEFA Conference League winners`\
 https://nytimes.com/athletic/6205469/2025/03/17/tomas-soucek-west-ham-moyes/
