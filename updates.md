@@ -1,3 +1,15 @@
+**The 10 most likely first-round upsets for the 2025 women's NCAA tournament**\
+`Upsets aren't as frequent in the women's tournament, making it even more valuable when you can predict them for your bracket pool.`\
+https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets-first-round/
+
+**What to know about Rory McIlroy's Players Championship win**\
+`This now makes 16 PGA Tour victories for McIlroy when trailing after 54 holes, by far the most since his first title back in 2010.`\
+https://nytimes.com/athletic/6210007/2025/03/17/players-championship-analysis-mcilroy-win/
+
+**Scoop City: Risers and fallers after free agency's opening week**\
+`Inside: The biggest beneficiaries from the first week of free agency — a list with Caleb Williams, Sean Payton and two of the Bengals&#8217; stars — and the teams whose stocks took hits.`\
+https://nytimes.com/athletic/6209982/2025/03/17/nfl-risers-fallers-trending-free-agency-2025-bears-raiders-seahawks/
+
 **Yohe: Penguins fans believe in tanking for good reason, but it's a dangerous game**\
 `Tanking for draft picks doesn't usually lead to success, so don't fret about this Penguins' winning streak. `\
 https://nytimes.com/athletic/6209652/2025/03/17/penguins-fans-tanking-draft/
