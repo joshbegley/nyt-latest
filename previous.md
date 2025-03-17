@@ -1,3 +1,11 @@
+**Schumer and the Shutdown About-Face**\
+`Responses to Senator Chuck Schumer’s reversal on the stopgap spending bill. Also: A Trump threat to law firms; the risk of TB; theaters in peril.`\
+https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown.html
+
+**Messi left out of Argentina squad for World Cup qualifiers**\
+`The workload of the 37-year-old Argentina captain has been managed since the start of the Major League Soccer season.`\
+https://nytimes.com/athletic/6210178/2025/03/17/lionel-messi-argentina-squad/
+
 **Man Utd to increase season ticket prices**\
 `This marks the third straight year United have increased season ticket prices.`\
 https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices
 https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basketball/
 
 **This is Rory McIlroy's window. Can he take advantage?**\
-`PONTE VEDRA BEACH, Fla.`\
+`McIlroy is the only truly elite, top-tier golfer playing at a winning level right now, less than a month from the Masters.`\
 https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
 
 **Lee Shau-Kee, Hong Kong Real Estate Tycoon, Dies at 97**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/books/review/firstborn-lauren-christensen.html
 **Do You Want to Learn How to Make a Crossword?**\
 `The fourth New York Times Diverse Crossword Constructor Fellowship begins in June.`\
 https://nytimes.com/2025/03/17/crosswords/do-you-want-to-learn-how-to-make-a-crossword.html
-
-**The 10 most likely first-round upsets for the 2025 women's NCAA Tournament**\
-`Upsets aren't as frequent in the women's tournament, making it even more valuable when you can predict them for your bracket pool.`\
-https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets-first-round/
-
-**What to know about Rory McIlroy's Players Championship win**\
-`This now makes 16 PGA Tour victories for McIlroy when trailing after 54 holes, by far the most since his first title back in 2010.`\
-https://nytimes.com/athletic/6210007/2025/03/17/players-championship-analysis-mcilroy-win/
 

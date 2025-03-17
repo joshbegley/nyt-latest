@@ -1,3 +1,15 @@
+**Schumer and the Shutdown About-Face**\
+`Responses to Senator Chuck Schumer’s reversal on the stopgap spending bill. Also: A Trump threat to law firms; the risk of TB; theaters in peril.`\
+https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown.html
+
+**Messi left out of Argentina squad for World Cup qualifiers**\
+`The workload of the 37-year-old Argentina captain has been managed since the start of the Major League Soccer season.`\
+https://nytimes.com/athletic/6210178/2025/03/17/lionel-messi-argentina-squad/
+
+**This is Rory McIlroy's window. Can he take advantage?**\
+`McIlroy is the only truly elite, top-tier golfer playing at a winning level right now, less than a month from the Masters.`\
+https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
+
 **Man Utd to increase season ticket prices**\
 `This marks the third straight year United have increased season ticket prices.`\
 https://nytimes.com/athletic/6174651/2025/03/17/manchester-united-tickets-prices-increase/

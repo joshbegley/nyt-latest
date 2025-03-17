@@ -1,3 +1,23 @@
+**A Pentagon Nomination Fight Reveals the New Rules of Trump’s Washington**\
+`When Elbridge A. Colby’s nomination for an obscure but important Pentagon job drew resistance, President Trump’s most ardent backers rallied to his defense.`\
+https://nytimes.com/2025/03/17/us/politics/elbridge-colby-pentagon-trump.html
+
+**Rwanda Cuts Ties With Belgium Over Congo Conflict and E.U. Sanctions**\
+`Belgium, Rwanda’s former colonial ruler, pushed for the European Union to impose sanction against Rwandan officials over their role in invading eastern Congo and plundering its mineral wealth.`\
+https://nytimes.com/2025/03/17/world/africa/rwanda-belgium-congo-eu-sanctions.html
+
+**Las Vegas takeaways: Wood Brothers' statement, Josh Berry's success, Bubba's new approach**\
+`Thoughts on the Wood Brothers and Josh Berry's big win, Bubba Wallace tweaks his approach, and more from the weekend in Las Vegas.`\
+https://nytimes.com/athletic/6209775/2025/03/17/nascar-las-vegas-takeaways-wood-brothers-josh-berry-bubba-wallace/
+
+**Watching Newcastle win a trophy in the city centre: 'I'm over the moon for Kevin Keegan'**\
+`The streets of Newcastle were deserted while supporters crammed in to pubs and watched, entranced, as their team triumphed 270 miles away`\
+https://nytimes.com/athletic/6209182/2025/03/17/newcastle-carabao-cup-supporters-city-centre-blyth/
+
+**Bucks' offense stalls in loss to Thunder as five-game Western Conference trip looms**\
+`Oklahoma City, with the league's top defense by a wide margin, made it tough on Milwaukee's offense to play with freedom and purpose.`\
+https://nytimes.com/athletic/6209290/2025/03/17/bucks-thunder-giannis-antetokounmpo/
+
 **Schumer and the Shutdown About-Face**\
 `Responses to Senator Chuck Schumer’s reversal on the stopgap spending bill. Also: A Trump threat to law firms; the risk of TB; theaters in peril.`\
 https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6210040/2025/03/17/iona-tobin-anderson-fired-basket
 **This is Rory McIlroy's window. Can he take advantage?**\
 `McIlroy is the only truly elite, top-tier golfer playing at a winning level right now, less than a month from the Masters.`\
 https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
-
-**Lee Shau-Kee, Hong Kong Real Estate Tycoon, Dies at 97**\
-`Sometimes called the Warren Buffett of Hong Kong, he made his billions initially building apartments for middle-class descendants of refugees from mainland China.`\
-https://nytimes.com/2025/03/17/business/lee-shau-kee-dead.html
-
-**Essugo will be Chelsea's new defensive security blanket - with errors to iron out**\
-`Chelsea have an agreement to sign Dario Essugo - this is what he'll bring to Stamford Bridge`\
-https://nytimes.com/athletic/6209977/2025/03/17/dario-essugo-chelsea-analysis/
-
-**The Giants' fifth-starter competition is complicated and delicate**\
-`Harrison's spring struggles might impact whether he starts the season in the Giants' rotation as was originally planned, but should they?`\
-https://nytimes.com/athletic/6208998/2025/03/17/sf-giants-fifth-starter-battle-kyle-harrison/
-
-**From Welcoming New Life to Mourning Its Loss, in 22 Weeks**\
-`In the memoir “Firstborn,” Lauren Christensen writes about losing the daughter she was expecting.`\
-https://nytimes.com/2025/03/17/books/review/firstborn-lauren-christensen.html
-
-**Do You Want to Learn How to Make a Crossword?**\
-`The fourth New York Times Diverse Crossword Constructor Fellowship begins in June.`\
-https://nytimes.com/2025/03/17/crosswords/do-you-want-to-learn-how-to-make-a-crossword.html
 
