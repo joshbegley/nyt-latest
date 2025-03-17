@@ -1,3 +1,15 @@
+**Ravens LT Ronnie Stanley never envisioned playing anywhere else 'out of respect'**\
+`"They drafted me straight out of college, took a chance on me," Stanley said Monday. "I'm always going to give them first dibs."`\
+https://nytimes.com/athletic/6211194/2025/03/17/ravens-lt-ronnie-stanley-wanted-to-stay/
+
+**El Salvador’s President Sees Opportunity in Trump’s Deportations**\
+`Nayib Bukele’s role in the Trump administration’s deportation strategy signals a new level of power and global visibility for El Salvador’s young leader.`\
+https://nytimes.com/2025/03/17/world/americas/el-salvador-nayib-bukele-deportees.html
+
+**St. Louis Cardinals Opening Day roster and rotation plans: What I'm hearing**\
+`The Cardinals face two big roster decisions before they break camp on Sunday. Neither will be easy.`\
+https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rotation-plans/
+
 **Trump Says He Will Release Thousands of Documents Related to J.F.K. Assassination**\
 `Mr. Trump did not provide additional details on what the trove of files would include, but he has long promised to release them unredacted.`\
 https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/17/health/veterans-transgender-health-care.html
 **A Court Showdown on Deportations**\
 `Also, wildfire danger looms over the southern Plains. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/17/briefing/court-trump-deportations-texas-wildfire-risks.html
-
-**New Yorker Cuts Ties With Critic After Complaints About Behavior**\
-`The magazine received concerns about the writer’s conduct at its centennial celebration at a star-studded party in Manhattan.`\
-https://nytimes.com/2025/03/17/business/media/new-yorker-critic-jackson-arn.html
-
-**Explaining Man United's ticket price rise - and how a much bigger increase was avoided**\
-`Changes announced on Monday will add an extra £15m in revenue for the club, but how did they arrive at their decision?`\
-https://nytimes.com/athletic/6211010/2025/03/17/manchester-united-season-ticket-rises-explained/
-
-**‘Most European Non-European Country’: Canada Turns to Allies as Trump Threatens**\
-`Days after becoming prime minister, Mark Carney visited Paris and London to highlight deep European friendships as his country fights back against President Trump’s tariffs and annexation talk.`\
-https://nytimes.com/2025/03/17/world/canada/canada-trump-carney-europe.html
 
