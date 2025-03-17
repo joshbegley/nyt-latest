@@ -14,9 +14,9 @@ https://nytimes.com/2025/03/17/world/asia/south-korea-jeju-air-victims.html
 `Whether with shots, gum or espressos, players are getting their caffeine fix more than ever to boost performance`\
 https://nytimes.com/athletic/6148529/2025/03/17/football-caffeine-jamie-vardy/
 
-**2024 Women’s NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
+**2025 Women's NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
 `Our women's college basketball experts explains her picks and breaks down every region.`\
-https://nytimes.com/athletic/6207143/2025/03/17/2024-womens-march-madness-bracket-picks-chantel-jennings/
+https://nytimes.com/athletic/6207143/2025/03/17/2025-womens-march-madness-bracket-picks-chantel-jennings/
 
 **Connections: Sports Edition Coach: Hints for March 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\

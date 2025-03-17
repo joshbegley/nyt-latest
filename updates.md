@@ -1,3 +1,7 @@
+**Notre Dame's path to the Final Four won't be easy as a No. 3 seed**\
+`Our expert analyzes the Irish's hurdles as they try to make it to Tampa.`\
+https://nytimes.com/athletic/6207186/2025/03/17/notre-dame-bracket-path-final-four/
+
 **U.S. to Withdraw From Group Investigating Responsibility for Ukraine Invasion**\
 `The decision is the latest indication of the Trump administration’s move away from holding President Vladimir V. Putin of Russia accountable for crimes committed against Ukrainians.`\
 https://nytimes.com/2025/03/17/us/politics/trump-ukraine-invasion-accountability.html
