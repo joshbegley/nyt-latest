@@ -1,3 +1,19 @@
+**U.S. to Withdraw From Group Investigating Responsibility for Ukraine Invasion**\
+`The decision is the latest indication of the Trump administration’s move away from holding President Vladimir V. Putin of Russia accountable for crimes committed against Ukrainians.`\
+https://nytimes.com/2025/03/17/us/politics/trump-ukraine-invasion-accountability.html
+
+**United in Grief, Families of South Korean Plane Crash Victims Press for Answers**\
+`Gathering at the airport, relatives of those who died are turning themselves into aviation experts to explore what caused the country’s worst air disaster.`\
+https://nytimes.com/2025/03/17/world/asia/south-korea-jeju-air-victims.html
+
+**Coffee, gum and pills: Why footballers are increasingly dosing up on caffeine**\
+`Whether with shots, gum or espressos, players are getting their caffeine fix more than ever to boost performance`\
+https://nytimes.com/athletic/6148529/2025/03/17/football-caffeine-jamie-vardy/
+
+**2024 Women’s NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
+`Our women's college basketball experts explains her picks and breaks down every region.`\
+https://nytimes.com/athletic/6207143/2025/03/17/2024-womens-march-madness-bracket-picks-chantel-jennings/
+
 **Connections: Sports Edition Coach: Hints for March 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6208955/2025/03/17/connections-sports-edition-hints-for-march-17-2025/
