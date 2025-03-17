@@ -1,3 +1,15 @@
+**Essugo will be Chelsea's new defensive security blanket - with errors to iron out**\
+`Chelsea have an agreement to sign Dario Essugo - this is what he'll bring to Stamford Bridge`\
+https://nytimes.com/athletic/6209977/2025/03/17/dario-essugo-chelsea-analysis/
+
+**The Giants' fifth-starter competition is complicated and delicate**\
+`Kyle Harrison's spring struggles may impact whether he starts the season in the Giants' rotation as was originally planned, but should they?`\
+https://nytimes.com/athletic/6208998/2025/03/17/sf-giants-fifth-starter-battle-kyle-harrison/
+
+**The 10 most likely first-round upsets for the 2025 women's NCAA Tournament**\
+`Upsets aren't as frequent in the women's tournament, making it even more valuable when you can predict them for your bracket pool.`\
+https://nytimes.com/athletic/6208750/2025/03/17/womens-march-madness-2025-upsets-first-round/
+
 **From Welcoming New Life to Mourning Its Loss, in 22 Weeks**\
 `In the memoir “Firstborn,” Lauren Christensen writes about losing the daughter she was expecting.`\
 https://nytimes.com/2025/03/17/books/review/firstborn-lauren-christensen.html

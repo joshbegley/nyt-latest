@@ -1,3 +1,11 @@
+**This is Rory McIlroy's window. Can he take advantage?**\
+`PONTE VEDRA BEACH, Fla.`\
+https://nytimes.com/athletic/6210147/2025/03/17/golf-rory-mcilroy-players-championship-masters/
+
+**Lee Shau-Kee, Hong Kong Real Estate Tycoon, Dies at 97**\
+`Sometimes called the Warren Buffett of Hong Kong, he made his billions initially building apartments for middle-class descendants of refugees from mainland China.`\
+https://nytimes.com/2025/03/17/business/lee-shau-kee-dead.html
+
 **Essugo will be Chelsea's new defensive security blanket - with errors to iron out**\
 `Chelsea have an agreement to sign Dario Essugo - this is what he'll bring to Stamford Bridge`\
 https://nytimes.com/athletic/6209977/2025/03/17/dario-essugo-chelsea-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6209982/2025/03/17/nfl-risers-fallers-trending-free
 **Yohe: Penguins fans believe in tanking for good reason, but it's a dangerous game**\
 `Tanking for draft picks doesn't usually lead to success, so don't fret about this Penguins' winning streak. `\
 https://nytimes.com/athletic/6209652/2025/03/17/penguins-fans-tanking-draft/
-
-**Democracy Is on the Line in Israel and America**\
-`The rule of law is in danger in both America and Israel if some red lines are not drawn and defended.`\
-https://nytimes.com/live/2025/03/10/opinion/thepoint/netanyahu-shin-bet-israel
-
-**Listen: Pod on the Tyne capture the immediate reaction to Newcastle ending their trophy drought**\
-`Pod On The Tyne discuss Newcastle's historic Carabao Cup triumph over Liverpool`\
-https://nytimes.com/athletic/6209661/2025/03/17/pod-on-the-tyne-newcastle-podcast-carabao-cup/
 
