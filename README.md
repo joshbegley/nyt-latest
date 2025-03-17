@@ -1,3 +1,15 @@
+**NFL free agency winners and losers: Sam Darnold flying high; 49ers roster takes a hit**\
+`Darnold got big bucks to join a Seahawks squad that also added wide receiver Cooper Kupp. He wasn't the only QB in the news last week.`\
+https://nytimes.com/athletic/6204504/2025/03/17/nfl-free-agency-2025-winners-losers/
+
+**The Pulse: March Madness superlatives and snubs, Pt. I**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6208454/2025/03/17/mens-ncaa-bracket-the-pulse/
+
+**From Oh to Ohtani and beyond: How Japanese baseball reached new heights**\
+`The Tokyo Series spotlights how Japanese baseball talent has never been better, nor more influential.`\
+https://nytimes.com/athletic/6207350/2025/03/17/dodgers-cubs-tokyo-series-shohei-ohtani-japan/
+
 **When the Chicago Cubs needed a reset, they set their sights on Japan: ‘It’s paid off’**\
 `How the Cubs built a pipeline that infused the franchise with some of Japan’s best players`\
 https://nytimes.com/athletic/6208252/2025/03/17/chicago-cubs-japan-pipeline-tokyo-series/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6195557/2025/03/17/nhl-owner-rankings-2025-mirtle/
 **Meet the Japanese company that irked MLB execs during the Roki Sasaki sweepstakes**\
 `One of the largest advertising agencies in the world, Dentsu's influence found its way into team boardrooms as Sasaki weighed his decision.`\
 https://nytimes.com/athletic/6208407/2025/03/17/dodgers-roki-sasaki-signing-dentsu/
-
-**2020 visions: How MLB pitcher usage has changed in the past 5 years — 'It takes a village'**\
-`They don't build pitching staffs like they used to. Since 2020, teams have dipped into a wider bucket to get through the season.`\
-https://nytimes.com/athletic/6191266/2025/03/17/mlb-pitchers-injuries-usage-baseball/
-
-**The Weekend Democrats Went to War, Against Each Other**\
-`A debate over a government shutdown has exploded into an argument about the Democrats’ leadership in the Trump era.`\
-https://nytimes.com/2025/03/17/podcasts/the-daily/democrats-shutdown-schumer.html
-
-**March Madness 2025 bracket advice: Upsets, predictions and odds for the NCAA tournaments**\
-`Your one-stop shop to all things March Madness 2025, from bracketology and expert picks to big-picture analysis and beginner's guides. `\
-https://nytimes.com/athletic/6194140/2025/03/17/march-madness-2025-advice-betting-odds-favorites-underdogs/
 
