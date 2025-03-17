@@ -1,3 +1,15 @@
+**Rob Manfred not expecting change to Japanese player acquisitions with NPB**\
+`Manfred met with his NPB counterpart Sadayuki Sakakibara on Sunday, the second of two days of games between MLB teams and NPB teams.`\
+https://nytimes.com/athletic/6209367/2025/03/17/dodgers-cubs-tokyo-series-japan-manfred-posting/
+
+**The Athletic FC: Triumph, tears as Newcastle end 70-year wait, Barca take control in La Liga**\
+`Today in TAFC: Newcastle end their 70-year wait for a domestic trophy, Ancelotti makes a stand, Messi's latest bit of brilliance.`\
+https://nytimes.com/athletic/6209292/2025/03/17/newcastle-league-cup-barcelona-liga/
+
+**Kremlin Stays Mum on Agenda for Putin’s Call With Trump**\
+`The call, scheduled for Tuesday, will be the first known conversation between the two leaders since Mr. Putin laid out numerous conditions for a cease-fire with Ukraine.`\
+https://nytimes.com/2025/03/17/world/europe/putin-trump-russia-ukraine.html
+
 **Tennis Briefing: Carlos Alcaraz and Iga Swiatek leave Indian Wells with contrasting challenges**\
 `Both defending champions lost in the semifinals, but their next few months look very different as they defend last year's ranking points.`\
 https://nytimes.com/athletic/6207054/2025/03/17/tennis-carlos-alcaraz-iga-swiatek-season/
