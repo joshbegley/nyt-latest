@@ -1,3 +1,15 @@
+**Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
+`The pair, tied at 12-under-par through four rounds, will faceoff in a three-hole aggregate playoff Monday morning.`\
+https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
+
+**How North Carolina nabbed the final spot in the NCAA Tournament**\
+`The Tar Heels, who hold a 1-12 record against Quad 1 teams this season, earned a bid despite a poor showing against the country’s top teams.`\
+https://nytimes.com/athletic/6208212/2025/03/16/north-carolina-ncaa-tournament-2/
+
+**UCLA, South Carolina land No. 1 seeds in women's NCAA Tournament**\
+`UCLA eclipsed 30 wins for the first time in program history, and the Bruins were rewarded with the No. 1 overall seed.`\
+https://nytimes.com/athletic/6207519/2025/03/16/womens-march-madness-bracket-ncaa-tournament-2025/
+
 **Venezuelan Families Fear for Relatives as Trump Celebrates Deportations**\
 `The transfer of 238 migrants accused of being gang members to El Salvador has created panic among Venezuelans who worry about the fate of their loved ones.`\
 https://nytimes.com/2025/03/16/world/americas/el-salvador-venezuela-deportations-families.html

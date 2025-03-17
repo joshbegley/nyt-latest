@@ -1,15 +1,3 @@
-**Players Championship: Rory McIlroy, J.J. Spaun headed to Monday playoff**\
-`The pair, tied at 12-under-par through four rounds, will faceoff in a three-hole aggregate playoff Monday morning.`\
-https://nytimes.com/athletic/6208064/2025/03/16/players-championship-mcilroy-spaun-playoff/
-
-**How North Carolina nabbed the final spot in the NCAA Tournament**\
-`The Tar Heels, who hold a 1-12 record against Quad 1 teams this season, earned a bid despite a poor showing against the country’s top teams.`\
-https://nytimes.com/athletic/6208212/2025/03/16/north-carolina-ncaa-tournament-2/
-
-**UCLA, South Carolina land No. 1 seeds in women's NCAA Tournament**\
-`UCLA eclipsed 30 wins for the first time in program history, and the Bruins were rewarded with the No. 1 overall seed.`\
-https://nytimes.com/athletic/6207519/2025/03/16/womens-march-madness-bracket-ncaa-tournament-2025/
-
 **Venezuelan Families Fear for Relatives as Trump Celebrates Deportations**\
 `The transfer of 238 migrants accused of being gang members to El Salvador has created panic among Venezuelans who worry about the fate of their loved ones.`\
 https://nytimes.com/2025/03/16/world/americas/el-salvador-venezuela-deportations-families.html
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6207961/2025/03/16/unrivaled-awards-napheesa-collie
 **Cardinals name Sonny Gray Opening Day starter; concern over shaky spring minimal**\
 `Gray's outing was abysmal against a Marlins lineup that didn't exactly pack much star power but still beat the Cardinals 11-5.`\
 https://nytimes.com/athletic/6207035/2025/03/16/cardinals-sonny-gray-opening-day-starter/
+
+**The NCAA Tournament runs through football country (and Cooper Flagg)**\
+`Thirty-one teams from the SEC, Big Ten and Big 12 earned spots, prompting some questions about what the future of this event will look like.`\
+https://nytimes.com/athletic/6206536/2025/03/16/ncaa-tournament-sec-florida-auburn-duke/
+
+**The 2025 men's NCAA tournament team that looks most like a champ is ...**\
+`Four squads sure look a lot like past tourney champions in critical statistical areas, but one stands above the rest.`\
+https://nytimes.com/athletic/6205836/2025/03/16/most-likely-teams-to-win-2025-mens-ncaa-tournament/
+
+**March Madness bracket prep 2025: Strengths, weaknesses, team previews and more**\
+`Get ready for the men's NCAA Tournament with preview capsules on all 68 teams in the field, featuring strengths, weaknesses and more.`\
+https://nytimes.com/athletic/6182297/2025/03/16/march-madness-2025-team-preview-big-board/
 
