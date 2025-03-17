@@ -1,3 +1,13 @@
+**Texas' path to the Final Four: Will Notre Dame, Tennessee or Ohio State stand in the way?**\
+`The Longhorns haven't been to the Final Four since 2003. Is this their year? `\
+https://nytimes.com/athletic/6207826/2025/03/17/texas-path-final-four-region/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>For this week&#8217;s Mailbag, I issue an annual challenge: Come up with a clever question that incorporates both college football and March Madness.</p>
+<p>And please include your city.</p>
+`\
+https://nytimes.com/athletic/6209001/2025/03/17/submit-a-question-for-stewart-mandels-college-football-mailbag-295/
+
 **2025 Women's NCAA Tournament bracket picks: Why Chantel Jennings picked UCLA to win it all**\
 `Our women's college basketball experts explains her picks and breaks down every region.`\
 https://nytimes.com/athletic/6207143/2025/03/17/2025-womens-march-madness-bracket-picks-chantel-jennings/
