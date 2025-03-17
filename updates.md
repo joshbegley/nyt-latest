@@ -1,3 +1,15 @@
+**West Ham's Antonio 'slightly embarrassed' by car crash, '100%' certain he will play again**\
+`"I didn't want to be seen," Antonio told the BBC. "I almost died and it made me embarrassed that it was that bad."`\
+https://nytimes.com/athletic/6209266/2025/03/17/michail-antonio-west-ham-return/
+
+**Barcelona's Casado suffers knee injury, could miss two months**\
+`It is yet to be confirmed if the 21-year-old midfielder will need to undergo surgery on the issue.`\
+https://nytimes.com/athletic/6209283/2025/03/17/barcelona-casado-injury-spain/
+
+**A Measles Resurgence?**\
+`Our colleague traveled to the center of a Texas measles outbreak.`\
+https://nytimes.com/2025/03/17/briefing/measles-outbreak-texas.html
+
 **Women's March Madness upset predictions: Can Harvard pull off a stunner?**\
 `First-round upsets aren't likely, but Sabreena Merchant sees five opportunities for the lower-seeded teams to shock. `\
 https://nytimes.com/athletic/6209073/2025/03/17/womens-march-madness-upset-predictions-can-harvard-pull-off-a-stunner/
