@@ -1,3 +1,15 @@
+**USC's path to the Final Four: Before a UConn rematch, Kansas State's 6-6 center looms**\
+`Can JuJu Watkins and Co. make a long run? `\
+https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
+
+**Canada wins Los Angeles Sail Grand Prix as favored rivals falter**\
+`Light wind conditions prove troublesome, small mistakes costly for Australia, New Zealand.`\
+https://nytimes.com/athletic/6208633/2025/03/16/los-angeles-sail-grand-prix-canada-wins/
+
+**Who is playing in this year's NIT Tournament? Dayton, SMU among top seeds**\
+`Dayton is making its 28th appearance in the tournament, the most of any team in the 2025 field and the second most all time`\
+https://nytimes.com/athletic/6208585/2025/03/16/nit-mens-basketball-tournament-smu-dayton/
+
 **UConn's path to the Final Four: Will it include a Paige Bueckers vs. JuJu Watkins showdown?**\
 `What hurdles will the Huskies face as they try to win their first championship since 2016?`\
 https://nytimes.com/athletic/6207213/2025/03/16/uconn-bracket-path-final-four/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-ep
 **Why are the Phoenix Suns so bad? 'It's not one thing'**\
 `In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
 https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
-
-**No. 1 UCLA's road to the Final Four: Will LSU or Baylor contain Lauren Betts? Not likely**\
-`Can Betts and Co. make a run to a national championship? `\
-https://nytimes.com/athletic/6207406/2025/03/16/ucla-final-four-path-region/
-
-**CJ Moore picks every game of the NCAA Tournament: Why Florida wins it all**\
-`Early chalk might not make for as fun of a first weekend, but the matchups in the second weekend and at the Final Four could be epic.`\
-https://nytimes.com/athletic/6207830/2025/03/16/mens-ncaa-tournament-2025-bracket-picks-all-games/
-
-**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
-`Everything you need to know to fill out your bracket and win your office pool.`\
-https://nytimes.com/athletic/6207081/2025/03/16/womens-march-madness-bracket-prep-68-teams/
 

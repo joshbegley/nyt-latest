@@ -1,3 +1,15 @@
+**USC's path to the Final Four: Before a UConn rematch, Kansas State's 6-6 center looms**\
+`Can JuJu Watkins and Co. make a long run? `\
+https://nytimes.com/athletic/6207231/2025/03/16/uscs-path-bracket-final-four/
+
+**Canada wins Los Angeles Sail Grand Prix as favored rivals falter**\
+`Light wind conditions prove troublesome, small mistakes costly for Australia, New Zealand.`\
+https://nytimes.com/athletic/6208633/2025/03/16/los-angeles-sail-grand-prix-canada-wins/
+
+**Who is playing in this year's NIT Tournament? Dayton, SMU among top seeds**\
+`Dayton is making its 28th appearance in the tournament, the most of any team in the 2025 field and the second most all time`\
+https://nytimes.com/athletic/6208585/2025/03/16/nit-mens-basketball-tournament-smu-dayton/
+
 **UConn's path to the Final Four: Will it include a Paige Bueckers vs. JuJu Watkins showdown?**\
 `What hurdles will the Huskies face as they try to win their first championship since 2016?`\
 https://nytimes.com/athletic/6207213/2025/03/16/uconn-bracket-path-final-four/
