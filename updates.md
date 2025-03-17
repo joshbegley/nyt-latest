@@ -1,3 +1,11 @@
+**Trump Says He Will Release Thousands of Documents Related to J.F.K. Assassination**\
+`Mr. Trump did not provide additional details on what the trove of files would include, but he has long promised to release them unredacted.`\
+https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
+
+**Texas Arrests Midwife and Associate on Charges of Providing Abortions**\
+`The two arrests in greater Houston appear to be the first time abortion providers have been charged with violating abortion bans in their state since Roe v. Wade was overturned in 2022.`\
+https://nytimes.com/2025/03/17/us/politics/abortion-arrest.html
+
 **Wilshere interview: 'I'd never seen someone coach the way Arteta does'**\
 `The former Arsenal midfielder speaks about his ambitions in management and what makes Myles Lewis-Skelly tick.`\
 https://nytimes.com/athletic/6183671/2025/03/17/jack-wilshere-interview-arsenal-myles-lewis-skelly/

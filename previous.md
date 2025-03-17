@@ -1,3 +1,11 @@
+**Trump Says He Will Release Thousands of Documents Related to J.F.K. Assassination**\
+`Mr. Trump did not provide additional details on what the trove of files would include, but he has long promised to release them unredacted.`\
+https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
+
+**Texas Arrests Midwife and Associate on Charges of Providing Abortions**\
+`The two arrests in greater Houston appear to be the first time abortion providers have been charged with violating abortion bans in their state since Roe v. Wade was overturned in 2022.`\
+https://nytimes.com/2025/03/17/us/politics/abortion-arrest.html
+
 **Sixers' Paul George out for regular season after knee, adductor procedures**\
 `George, 34, hadn't played since March 4 after battling several injuries this season.`\
 https://nytimes.com/athletic/6211308/2025/03/17/sixers-paul-george-injury-knee-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6211010/2025/03/17/manchester-united-season-ticket-
 **‘Most European Non-European Country’: Canada Turns to Allies as Trump Threatens**\
 `Days after becoming prime minister, Mark Carney visited Paris and London to highlight deep European friendships as his country fights back against President Trump’s tariffs and annexation talk.`\
 https://nytimes.com/2025/03/17/world/canada/canada-trump-carney-europe.html
-
-**Falcons free agency tracker: Morgan Fox signs, Kentavius Street returns**\
-`The Falcons entered free agency needing edge rushers and cornerbacks. We're tracking all their moves here.`\
-https://nytimes.com/athletic/6180543/2025/03/17/atlanta-falcons-2025-free-agency-tracker/
-
-**Maple Leafs season-ticket price hikes anger fans: 'The cost is enormous'**\
-`Prices in some sections saw a hike of over 20 percent for next year's season tickets.`\
-https://nytimes.com/athletic/6210720/2025/03/17/maple-leafs-ticket-price-increases/
 
