@@ -1,3 +1,11 @@
+**Seahawks hope to unlock 'point guard' version of Sam Darnold**\
+`The Seahawks are betting on the philosophy change Darnold adopted the last few years with the 49ers and Vikings will carry over to Seattle.`\
+https://nytimes.com/athletic/6207194/2025/03/17/sam-darnold-seahawks-play-action-passing/
+
+**Syria’s Struggle to Unify Military Was Evident in Outburst of Violence**\
+`Sectarian-driven killings of civilians this month displayed the government’s weak control over both its own forces and affiliated fighters, experts said.`\
+https://nytimes.com/2025/03/17/world/middleeast/syria-military-assad.html
+
 **There’s a Price for Promising What Isn’t Possible in Congress**\
 `If Democrats don’t get a better grip on what is achievable in Congress, they will fall victim to the infighting that has long plagued Republicans.`\
 https://nytimes.com/2025/03/17/opinion/chuck-schumer-shutdown-tea-party.html
