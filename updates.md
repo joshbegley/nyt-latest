@@ -1,3 +1,11 @@
+**Latest Polls: Do Americans Approve of President Trump?**\
+`Track the latest polls about Americans’ approval of President Trump.`\
+https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
+
+**Greenberg: It's 'Go Cubs Go' in 2025, but where will they be in October?**\
+`The team's performance this season could change lives in Chicago, starting with president of baseball operations Jed Hoyer.`\
+https://nytimes.com/athletic/6210026/2025/03/17/cubs-season-preview-kyle-tucker-column/
+
 **Families Mourn, Demand Answers After North Macedonia Fire**\
 `Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
 https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html

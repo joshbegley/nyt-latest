@@ -1,3 +1,11 @@
+**Latest Polls: Do Americans Approve of President Trump?**\
+`Track the latest polls about Americans’ approval of President Trump.`\
+https://nytimes.com/interactive/polls/donald-trump-approval-rating-polls.html
+
+**Greenberg: It's 'Go Cubs Go' in 2025, but where will they be in October?**\
+`The team's performance this season could change lives in Chicago, starting with president of baseball operations Jed Hoyer.`\
+https://nytimes.com/athletic/6210026/2025/03/17/cubs-season-preview-kyle-tucker-column/
+
 **Families Mourn, Demand Answers After North Macedonia Fire**\
 `Grief-stricken families and friends held vigils to mourn the 59 people killed in the nightclub fire on Sunday in Kocani, a town in eastern North Macedonia. Some parents expressed anger toward local officials, and an investigation was underway into possible falsified licenses.`\
 https://nytimes.com/video/world/europe/100000010056824/families-mourn-demand-answers-after-north-macedonia-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6210647/2025/03/17/mens-ncaa-tournament-best-bets-f
 **Jesse Colin Young, Singer Who Urged Us to ‘Get Together,’ Dies at 83**\
 `As the leader of the Youngbloods, he sang one of the enduring anthems of the peace-and-love era. He went on to have a prolific career as a solo artist.`\
 https://nytimes.com/2025/03/17/arts/music/jesse-colin-young-dead.html
-
-**Universal Music Calls Drake’s ‘Not Like Us’ Lawsuit ‘Misguided’**\
-`The label behind Drake and Kendrick Lamar filed a motion on Monday to dismiss Drake’s lawsuit, which accused it of defamation and harassment over the diss song.`\
-https://nytimes.com/2025/03/17/arts/music/umg-response-drake-lawsuit.html
-
-**D.H.S. Sheds Light on Why it Deported Rhode Island Doctor**\
-`Dr. Rasha Alawieh was detained in Boston and denied entry when returning from a trip to Lebanon. The government says she attended a Hezbollah leader’s funeral.`\
-https://nytimes.com/2025/03/17/us/rasha-alawieh-brown-university-doctor-deported-hezbollah.html
 
