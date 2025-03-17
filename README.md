@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6208371/2025/03/16/pwhl-us-attendance-record-detroi
 https://nytimes.com/2025/03/16/arts/television/the-white-lotus-recap-season-3-episode-5.html
 
 **Why are the Phoenix Suns so bad? 'It's not one thing'**\
-`In a gotta-have-it game against the Lakers on national TV, the Suns fell down by 20 in Sunday's first quarter and lost 107-96.`\
+`In a gotta-have-it game against the Lakers on national TV, the Suns fell by 20 in Sunday's first quarter and lost 107-96.`\
 https://nytimes.com/athletic/6208299/2025/03/16/why-are-the-phoenix-suns-so-bad/
 
 **No. 1 UCLA's road to the Final Four: Will LSU or Baylor contain Lauren Betts? Not likely**\
