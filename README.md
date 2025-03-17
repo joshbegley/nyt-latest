@@ -1,3 +1,7 @@
+**World Cup Cinderellas chasing the magic of first-time qualification**\
+`A handful of underdogs find themselves with a real chance of clinching a historic World Cup place.`\
+https://nytimes.com/athletic/6201777/2025/03/17/2026-world-cup-qualifying-cinderellas/
+
 **Post NFL free agency fantasy football 2025 rankings update**\
 `Now that most of the dust has settled in NFL free agency, Jake Ciely updates his fantasy football player rankings for the 2025 campaign.`\
 https://nytimes.com/athletic/6207688/2025/03/17/post-nfl-free-agency-fantasy-football-rankings-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6208058/2025/03/17/blues-playoff-spot-brayden-schen
 **Newcastle United are losers no longer: At last, they are something else**\
 `On March 16 2025, Newcastle rocked up at Wembley and brought the noise. The foundations shook as they ended 70-year domestic trophy drought`\
 https://nytimes.com/athletic/6208895/2025/03/17/newcastle-united-emotion-cup-win-trophy/
-
-**Word of the Day: shenanigan**\
-`This word has appeared in 159 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/17/learning/word-of-the-day-shenanigan.html
 
