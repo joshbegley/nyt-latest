@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Education Department, March Madness, Deadly Storms**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/03/18/learning/19StudentNewsQuiz.html
+
 **Deni Avdija thriving for Trail Blazers after last summer's 'very hard' trade from Wizards**\
 `In a sign of how thoroughly the Wizards' roster has been transformed, only seven of Avdija’s former teammates remain on the roster.`\
 https://nytimes.com/athletic/6212140/2025/03/18/deni-avdija-wizards-trail-blazers-trade/
