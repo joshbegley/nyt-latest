@@ -1,3 +1,27 @@
+**Dream Car**\
+`Is there a vehicle you’d love to one day drive?`\
+https://nytimes.com/2025/03/18/learning/dream-car.html
+
+**Art Seizures at the Met Caused Concern. His Job Is to Address It.**\
+`After surrendering scores of art works thought looted, the museum is looking to its new head of provenance research to police its acquisitions and review its collection.`\
+https://nytimes.com/2025/03/18/arts/design/met-museum-provenance-research-lucian-simmons.html
+
+**Nadine Menendez, Wife of Ex-Senator, Goes to Trial on Bribery Charges**\
+`Former Senator Robert Menendez was sentenced to 11 years in prison after a trial in which he attempted to shift blame to his wife. Jury selection for her trial begins Tuesday.`\
+https://nytimes.com/2025/03/18/nyregion/nadine-menendez-trial.html
+
+**Trump Cuts Imperil Cancer, Diabetes and Pediatric Research at Columbia**\
+`Dozens of medical and scientific studies are ending or at risk of ending, leaving researchers scrambling to find alternative funding.`\
+https://nytimes.com/2025/03/18/nyregion/columbia-research-grants-trump.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/18/crosswords/spelling-bee-forum.html
+
+**Jon Stewart Isn’t Buying Trump’s Latest Golf ‘Championship’**\
+`After the president claimed victory at his own club, Stewart compared him to “the Make-a-Wish Batman kid: ‘Hey, look at that, Donald. You caught all the criminals.’”`\
+https://nytimes.com/2025/03/18/arts/television/jon-stewart-trump-golf-championship.html
+
 **Word of the Day: desiccated**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/18/learning/word-of-the-day-desiccated.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-
 **Dancing, Ed Sheeran's guitar and fist pumps - Nuno's 'connected' squad has Europe in sight**\
 `Nuno Espirito Santo has built togetherness in his Forest team. It should be celebrated as one of his biggest successes in push for Europe`\
 https://nytimes.com/athletic/6210083/2025/03/18/nottingham-forest-alex-moreno-nuno/
-
-**From De Jong to Rodri: The story of Man City's midfield in the modern era**\
-`Analysing the impact and varied strengths of five key figures who have operated at the heart of City's team during the last 15 years`\
-https://nytimes.com/athletic/6210227/2025/03/18/manchester-city-deep-lying-midfielders-yaya-toure-rodri/
-
-**Reader views: Arteta's style, Berta's impact, Zubimendi's role - our writers discuss your queries**\
-`Our club writers discuss some of the talking points subscribers have raised in the past week`\
-https://nytimes.com/athletic/6190822/2025/03/18/arsenal-questions-berta-zubimendi/
-
-**Analysing Archie Gray's first start in midfield: A glimpse into Tottenham's future?**\
-`There were not many positives to take from Sunday's miserable defeat at Fulham, but Gray finally playing in his favoured role was one`\
-https://nytimes.com/athletic/6210095/2025/03/18/archie-gray-tottenham-midfield/
-
-**The BookKeeper - Exploring Manchester United's finances and how they ended up in this mess**\
-`In-depth analysis, including their perilous position over PSR in Europe and what it means for the future`\
-https://nytimes.com/athletic/6121790/2025/03/18/bookkeeper-manchester-united-finances/
-
-**Why Liverpool are running out of gas: Little rotation, lack of trust, five games in 15 days and a lack of trust**\
-`Arne Slot's side are closing in on the title but have wobbled in recent weeks as fatigue has overcome key players`\
-https://nytimes.com/athletic/6209510/2025/03/18/why-liverpool-are-running-out-of-gas-little-rotation-lack-of-trust-and-five-games-in-15-days/
-
-**Obi Toppin hits late 3 to push short-handed Pacers past Wolves in overtime**\
-`Toppin converted that 3-pointer — a silencer that solidified a 132-130 overtime victory at Target Center in Minneapolis.`\
-https://nytimes.com/athletic/6211964/2025/03/18/pacers-timberwolves-winning-streak-overtime-thriller/
 
