@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000010057420/how-the-white-house-defied-a-judges
 https://nytimes.com/2025/03/18/technology/trump-ftc-fires-democrats.html
 
 **Missouri hires Kellie Harper as women's basketball coach**\
-`New Tigers coach has extensive SEC experience, including leading the Volunteers from 2019-2024.`\
+`The new Tigers coach has extensive SEC experience, including leading the Volunteers from 2019 to 2024.`\
 https://nytimes.com/athletic/6214008/2025/03/18/missouri-hires-kellie-harper-basketball-coach/
 
 **Hollywood Filmmaker Charged With $11 Million Conspiracy to Defraud Netflix**\

@@ -1,3 +1,7 @@
+**Missouri hires Kellie Harper as women's basketball coach**\
+`The new Tigers coach has extensive SEC experience, including leading the Volunteers from 2019 to 2024.`\
+https://nytimes.com/athletic/6214008/2025/03/18/missouri-hires-kellie-harper-basketball-coach/
+
 **Son of Jair Bolsonaro Says He Will Seek Political Asylum in the U.S.**\
 `Eduardo Bolsonaro, a son of Brazil’s former president, said he planned to stay in the United States, claiming persecution back home.`\
 https://nytimes.com/2025/03/18/world/americas/jair-bolsonaro-son-us-asylum.html
