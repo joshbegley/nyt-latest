@@ -1,3 +1,11 @@
+**Chuck Schumer Isn’t Jewish Like the Pope Isn’t Catholic**\
+`Derided by the MAGA right and yelled at by the far left, the Senate Democratic leader is inhabiting a very Jewish place right now.`\
+https://nytimes.com/2025/03/18/opinion/schumer-trump-antisemitism.html
+
+**11 Songs to Keep St. Patrick’s Day Going**\
+`Extend the holiday with tracks from Sinead O’Connor, the Pogues, Kneecap and more.`\
+https://nytimes.com/2025/03/18/arts/music/amplifier-newsletter-st-patricks-day.html
+
 **Putin Agrees to Temporarily Halt Strikes on Ukraine’s Energy Targets, Kremlin Says**\
 `In a call with President Trump, President Vladimir V. Putin agreed to pause strikes on Ukrainian energy infrastructure for 30 days. That falls short of the unconditional cease-fire Ukraine had already agreed to.`\
 https://nytimes.com/2025/03/18/us/politics/trump-putin-call-ukraine-russia-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6213113/2025/03/18/march-madness-round-one-best-bet
 **De Gaulle Rises as France Sours on Trump’s America**\
 `Charles de Gaulle’s insistence on French power and autonomy is being cited widely in France; one politician demanded that an America on “the side of the tyrants” return the Statue of Liberty.`\
 https://nytimes.com/2025/03/18/world/europe/de-gaulle-france-trump.html
-
-**The U.S. Will ‘Absolutely Not’ Return the Statue of Liberty**\
-`The White House balked at a suggestion by a French politician that the U.S. send the Statue of Liberty back to France after he criticized President Trump’s decision “to side with the tyrants” against Ukraine.`\
-https://nytimes.com/video/us/politics/100000010058565/return-the-statue-of-liberty-to-france.html
-
-**Israeli strikes are fueled by Hamas’s use of the hostages as leverage and Netanyahu’s political priorities, analysts say.**\
-`By Eric Schmitt`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israeli-strikes-are-fueled-by-hamass-use-of-the-hostages-as-leverage-and-netanyahus-political-priorities-analysts-say
 
