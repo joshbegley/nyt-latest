@@ -1,3 +1,7 @@
+**Less Than Half of the 59 Hostages in Gaza Are Believed to Be Alive**\
+`Prime Minister Benjamin Netanyahu said Tuesday’s attack on Gaza came after Hamas said no to the latest proposals by mediators, which included releasing the remaining captives.`\
+https://nytimes.com/2025/03/18/world/middleeast/israel-gaza-hostages.html
+
 **Connections: Sports Edition Coach: Hints for March 18, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6212052/2025/03/18/connections-sports-edition-hints-for-march-18-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/business/shohei-ohtani-mania-dodgers-japan.html
 **Drones Will Do Some Schlepping for Sherpas on Mount Everest**\
 `The devices will be used to airlift heavy, dangerous loads normally carried by mountain guides. They might even deliver a hot meal or two.`\
 https://nytimes.com/2025/03/18/world/asia/mount-everest-drones.html
-
-**From Courtrooms to Crisis Lines, Chinese Officials Embrace DeepSeek**\
-`Government bodies nationwide have been eager to show they are using DeepSeek’s A.I. technology since the company’s founder met with Xi Jinping, China’s leader.`\
-https://nytimes.com/2025/03/18/business/china-government-deepseek.html
 

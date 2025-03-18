@@ -1,3 +1,15 @@
+**Connections: Sports Edition Coach: Hints for March 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6212052/2025/03/18/connections-sports-edition-hints-for-march-18-2025/
+
+**How emotional Wild win showed their resilience: 'We're a hell of a hockey team'**\
+`After a five-game stretch of not being able to manage more than two goals a night, the Wild got the job done in a badly-needed win.`\
+https://nytimes.com/athletic/6211977/2025/03/18/wild-resilience-zuccarello-kings/
+
+**What happens when the astronauts leave?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-when-the-astronauts-leave
+
 **Rockets storm back from 25-point deficit to snag OT victory vs. 76ers**\
 `Houston struggled to maintain Sixers guard Quentin Grimes, who scored a career-high 46 points, but still claimed its seventh straight win.`\
 https://nytimes.com/athletic/6211926/2025/03/18/rockets-76ers-overtime-score-result/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/world/asia/mount-everest-drones.html
 **From Courtrooms to Crisis Lines, Chinese Officials Embrace DeepSeek**\
 `Government bodies nationwide have been eager to show they are using DeepSeek’s A.I. technology since the company’s founder met with Xi Jinping, China’s leader.`\
 https://nytimes.com/2025/03/18/business/china-government-deepseek.html
-
-**Quote of the Day: In Tokyo, Cubs and Dodgers Can Showcase Their Japanese Stars**\
-`Quotation of the Day for Tuesday, March 18, 2025.`\
-https://nytimes.com/2025/03/17/pageoneplus/quote-of-the-day-in-tokyo-cubs-and-dodgers-can-showcase-their-japanese-stars.html
-
-**Williams and Wilmore were not initially supposed to be on this flight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/williams-and-wilmore-were-not-initially-supposed-to-be-on-this-flight
-
-**At the U.S. Institute of Peace, It’s War When Musk’s Team Arrives**\
-`A bubbling dispute broke into a dramatic standoff that ended with police involvement and the Department of Government Efficiency taking up residence at the independent agency.`\
-https://nytimes.com/2025/03/17/us/politics/doge-musk-institute-of-peace.html
 

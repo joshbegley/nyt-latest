@@ -1,3 +1,15 @@
+**Connections: Sports Edition Coach: Hints for March 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6212052/2025/03/18/connections-sports-edition-hints-for-march-18-2025/
+
+**How emotional Wild win showed their resilience: 'We're a hell of a hockey team'**\
+`After a five-game stretch of not being able to manage more than two goals a night, the Wild got the job done in a badly-needed win.`\
+https://nytimes.com/athletic/6211977/2025/03/18/wild-resilience-zuccarello-kings/
+
+**What happens when the astronauts leave?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-when-the-astronauts-leave
+
 **Rockets storm back from 25-point deficit to snag OT victory vs. 76ers**\
 `Houston struggled to maintain Sixers guard Quentin Grimes, who scored a career-high 46 points, but still claimed its seventh straight win.`\
 https://nytimes.com/athletic/6211926/2025/03/18/rockets-76ers-overtime-score-result/
