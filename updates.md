@@ -1,3 +1,15 @@
+**Federal Housing Agency Braces for Deep Job Cuts**\
+`William Pulte, the new director of the Federal Housing Finance Agency, is consolidating control over Fannie Mae and Freddie Mac and questioning employees’ productivity.`\
+https://nytimes.com/2025/03/18/business/federal-housing-agency-braces-for-deep-job-cuts.html
+
+**Courtois 'relieved' to explain 2023 Belgium exit with team-mates**\
+`Courtois addressed the “misunderstandings” that followed his exit from the Belgium camp ahead of their Euro 2024 qualifier against Estonia.`\
+https://nytimes.com/athletic/6213557/2025/03/18/courtois-belgium-talk-team-mates/
+
+**Key March Madness injuries to know while filling out your bracket**\
+`The status of some key players is uncertain for the NCAA Tournament due to injuries, while a few prominent names have been ruled out.`\
+https://nytimes.com/athletic/6210934/2025/03/18/march-madness-2025-cooper-flagg-injuries-bracket/
+
 **Prime Tire: When it's OK to cry in F1. Plus, judging early-season overreactions**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6213525/2025/03/18/anthony-hamilton-hadjar-f1-australian-gp-prime-tire/

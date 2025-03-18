@@ -1,3 +1,15 @@
+**Federal Housing Agency Braces for Deep Job Cuts**\
+`William Pulte, the new director of the Federal Housing Finance Agency, is consolidating control over Fannie Mae and Freddie Mac and questioning employees’ productivity.`\
+https://nytimes.com/2025/03/18/business/federal-housing-agency-braces-for-deep-job-cuts.html
+
+**Courtois 'relieved' to explain 2023 Belgium exit with team-mates**\
+`Courtois addressed the “misunderstandings” that followed his exit from the Belgium camp ahead of their Euro 2024 qualifier against Estonia.`\
+https://nytimes.com/athletic/6213557/2025/03/18/courtois-belgium-talk-team-mates/
+
+**Key March Madness injuries to know while filling out your bracket**\
+`The status of some key players is uncertain for the NCAA Tournament due to injuries, while a few prominent names have been ruled out.`\
+https://nytimes.com/athletic/6210934/2025/03/18/march-madness-2025-cooper-flagg-injuries-bracket/
+
 **Prime Tire: When it's OK to cry in F1. Plus, judging early-season overreactions**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6213525/2025/03/18/anthony-hamilton-hadjar-f1-australian-gp-prime-tire/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/books/david-g-hessayon-dead.html
 **Treasury Promotes I.R.S. Agents Who Say Hunter Biden Tax Case Was Stymied**\
 `The two men will help change the culture at the tax collector, the Treasury secretary said.`\
 https://nytimes.com/2025/03/18/us/politics/trump-treasury-irs-agents-hunter-biden-tax-case.html
-
-**Kennedy’s Alarming Prescription for Bird Flu on Poultry Farms**\
-`The health secretary has suggested allowing the virus to spread, so as to identify birds that may be immune. Such an experiment would be disastrous, scientists say.`\
-https://nytimes.com/2025/03/18/health/kennedy-bird-flu.html
-
-**EA Sports raising NIL payments to $1,500 for players appearing in College Football 26**\
-`College football players will be paid a lot more money for appearing in this year's edition of EA Sports' video game.`\
-https://nytimes.com/athletic/6213494/2025/03/18/ea-sports-college-football-26-nil-payments/
-
-**Michigan baseball player apologizes for mimicking cocaine snorting after triple**\
-`After sliding head-first into third base, Mitch Voit imitated snorting the chalk like a line of cocaine in a gesture that went viral.`\
-https://nytimes.com/athletic/6213171/2025/03/18/michigan-baseball-apology-celebration/
 
