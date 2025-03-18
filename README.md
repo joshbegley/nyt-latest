@@ -1,3 +1,11 @@
+**U.K. Aims to Cut Billions in Welfare Amid Budget Crunch**\
+`Changing disability allowances is a particularly contentious move within Prime Minister Keir Starmer’s center-left Labour Party.`\
+https://nytimes.com/2025/03/18/world/europe/uk-welfare-cuts-benefits.html
+
+**The Bounce: Paul George's season-ending news means 76ers are tanking hard for NBA Draft**\
+`Paul George's season-ending procedure has further positioned the 76ers for a timely tank. What's next in Philly?`\
+https://nytimes.com/athletic/6212381/2025/03/18/paul-george-76ers-nba-draft-tank-unrivaled-wnba-nba-the-bounce/
+
 **Inside the Canucks' deadline decisions, and looking ahead to the offseason: Catching up with Patrik Allvin**\
 `The Canucks GM explains to The Athletic why he held onto pending UFA Brock Boeser and gives an early look at the team's summer priorities.`\
 https://nytimes.com/athletic/6212690/2025/03/18/canucks-trade-deadline-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-n
 **E.U. Hatches a Plan to Lure Investors Back to Europe**\
 `Each year, Europeans invest roughly $325 billion in companies and financial assets outside the region. Officials in Brussels say they have a plan to end that “capital flight.”`\
 https://nytimes.com/2025/03/18/business/dealbook/europe-investment-savings.html
-
-**Matas Buzelis turning heads around the league: Bulls rookie 'has a huge upside'**\
-`The Bulls, with the help of their 6-foot-10 rookie, have won five out of their last six games, including Monday's road victory against Utah.`\
-https://nytimes.com/athletic/6212106/2025/03/18/matas-buzelis-bulls-rookie-upside/
-
-**Dodgers' Freddie Freeman day to day for second game of Tokyo Series**\
-`The veteran first baseman gives himself a "75 percent chance" of playing in the second game of the series on Wednesday.`\
-https://nytimes.com/athletic/6212745/2025/03/18/dodgers-freddie-freeman-rib-injury/
 
