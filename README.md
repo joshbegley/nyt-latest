@@ -1,3 +1,27 @@
+**For Tina Louise, Escape, Finally, From ‘Gilligan’s Island’**\
+`Ms. Louise would prefer to not to talk about Ginger, her breathy sitcom character from the 1960s. Luckily, to the children she tutors, she’s just Ms. Tina.`\
+https://nytimes.com/2025/03/18/nyregion/tina-louise-gilligans-island.html
+
+**What to Know About Israel’s Renewed Assault on Gaza**\
+`The deadly airstrikes shattered a period of relative calm and raised the prospect of a return to all-out war.`\
+https://nytimes.com/2025/03/18/world/middleeast/israel-attack-gaza-hamas.html
+
+**MLS to face Liga MX's finest again in 2025 All-Star Game**\
+`MLS's All-Star Game leads into another inter-league competition between North America's top outfits.`\
+https://nytimes.com/athletic/6211775/2025/03/18/mls-all-star-game-2025-liga-mx-austin/
+
+**Yes, Adults Can Develop Seasonal Allergies**\
+`After sidestepping symptoms for years, the sneezing and runny nose can come for you. Here’s why.`\
+https://nytimes.com/2025/03/18/well/spring-allergies-symptoms-adults.html
+
+**Honey Garlic Shrimp, Mine All Mine**\
+`Lidey Heuck’s smart, fast and convenient recipe is exactly what I need to fight these late-winter blahs.`\
+https://nytimes.com/2025/03/18/dining/honey-garlic-shrimp-mine-all-mine.html
+
+**Why Is a Ukrainian Nuclear Plant Suddenly Part of Cease-Fire Talks?**\
+`The U.S. is seeking access to Ukrainian minerals, which require extensive energy to process. The Zaporizhzhia power plant in southern Ukraine, which Russia controls, could help with that, Kyiv says.`\
+https://nytimes.com/2025/03/18/world/europe/ukraine-nuclear-plant-cease-fire-talks.html
+
 **U.K. Aims to Cut Billions in Welfare Amid Budget Crunch**\
 `Changing disability allowances is a particularly contentious move within Prime Minister Keir Starmer’s center-left Labour Party.`\
 https://nytimes.com/2025/03/18/world/europe/uk-welfare-cuts-benefits.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6212690/2025/03/18/canucks-trade-deadline-offseason
 **UK Athletics, former World Championships chief plead not guilty over Paralympian’s death**\
 `UK Athletics and the former head of sport for the World Paralympic Athletics Championships have pleaded not guilty to all charges relating to the death of Paralympian Abdullah Hayayei.`\
 https://nytimes.com/athletic/6212350/2025/03/18/abdullah-hayayei-paralympian-court-case/
-
-**Edison’s Power Lines Were Under Strain 14 Hours Before Eaton Fire**\
-`New data suggests there were faults on Southern California Edison’s transmission lines early on Jan. 7 before the fire started that evening.`\
-https://nytimes.com/2025/03/18/business/energy-environment/socal-edison-eaton-fire.html
-
-**Oxford branded 'slimy' and 'desperate' amid Boat Race eligibility row**\
-`"This is a desperate ploy from Oxford to gain an upper hand in the most slimy way," said former Cambridge rower Imogen Grant.`\
-https://nytimes.com/athletic/6212742/2025/03/18/boat-race-cambridge-oxford-rowing-eligibility/
-
-**NASA’s ex-chief says he never discussed a rescue mission with SpaceX, contradicting Musk.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/nasas-ex-chief-says-he-never-discussed-a-rescue-mission-with-spacex-contradicting-musk
-
-**The Unlikely Friendship That Saved a Dive Bar**\
-`When Lucy’s, a homey New York tavern, closed down and underwent a renovation, some longtime patrons feared the worst.`\
-https://nytimes.com/2025/03/18/style/lucys-ny-bar-renovation.html
-
-**Burn: I'm not coming into England squad to be a 'cheerleader'**\
-`Burn received his first England call-up on Friday as Tuchel leads his new side into World Cup qualifiers against Albania and Latvia.`\
-https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-newcastle/
-
-**E.U. Hatches a Plan to Lure Investors Back to Europe**\
-`Each year, Europeans invest roughly $325 billion in companies and financial assets outside the region. Officials in Brussels say they have a plan to end that “capital flight.”`\
-https://nytimes.com/2025/03/18/business/dealbook/europe-investment-savings.html
 
