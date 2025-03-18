@@ -1,3 +1,7 @@
+**Trump Nominates Longtime Airlines Executive to Lead F.A.A.**\
+`The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
+https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
+
 **Man Charged in Theft of Judy Garland’s Ruby Slippers Dies**\
 `Jerry Hal Saliterman’s case had been pending in federal court. A judge dismissed the charges against him on Monday.`\
 https://nytimes.com/2025/03/17/us/jerry-saliterman-ruby-slippers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/world/americas/el-salvador-nayib-bukele-deportees
 **St. Louis Cardinals Opening Day roster and rotation plans: What I'm hearing**\
 `The Cardinals face two big roster decisions before they break camp Sunday. Neither will be easy.`\
 https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rotation-plans/
-
-**Trump Says He Will Release Thousands of Documents Related to J.F.K. Assassination**\
-`Mr. Trump did not provide additional details on what the trove of files would include, but he has long promised to release them unredacted.`\
-https://nytimes.com/2025/03/17/us/politics/jfk-files-trump.html
 
