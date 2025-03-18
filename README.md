@@ -1,3 +1,11 @@
+**U.S. Foreign Aid Cuts Hit Sudanese Refugees Fleeing Violence and Famine in Darfur**\
+`Just weeks after the U.S. government suspended its work in massive foreign aid cuts announced in January, humanitarians say much of the damage to critical programs has already been done.`\
+https://nytimes.com/2025/03/18/world/africa/trump-foreign-aid-sudan-refugees.html
+
+**These Sudanese Refugees Fled War. Now, Crucial U.S. Aid Is Running Out.**\
+`Sudanese refugees at the Aboutengue Camp in Chad, most of whom are women and children, say they are desperate for help just weeks after the U.S. government announced drastic foreign aid cuts in January.`\
+https://nytimes.com/video/world/africa/100000010056183/trump-foreign-aid-sudan-refugees.html
+
 **Small Plane Crashes Off Caribbean Island in Honduras, Killing 12**\
 `The police said five people had survived the crash off Roatán Island, a tourist destination known for its diving spots.`\
 https://nytimes.com/2025/03/18/world/americas/honduras-plane-crash-roatan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/learning/dream-car.html
 **Art Seizures at the Met Caused Concern. His Job Is to Address It.**\
 `After surrendering scores of art works thought looted, the museum is looking to its new head of provenance research to police its acquisitions and review its collection.`\
 https://nytimes.com/2025/03/18/arts/design/met-museum-provenance-research-lucian-simmons.html
-
-**Nadine Menendez, Wife of Ex-Senator, Goes to Trial on Bribery Charges**\
-`Former Senator Robert Menendez was sentenced to 11 years in prison after a trial in which he attempted to shift blame to his wife. Jury selection for her trial begins Tuesday.`\
-https://nytimes.com/2025/03/18/nyregion/nadine-menendez-trial.html
-
-**Trump Cuts Imperil Cancer, Diabetes and Pediatric Research at Columbia**\
-`Dozens of medical and scientific studies are ending or at risk of ending, leaving researchers scrambling to find alternative funding.`\
-https://nytimes.com/2025/03/18/nyregion/columbia-research-grants-trump.html
 
