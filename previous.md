@@ -1,3 +1,11 @@
+**Eric Adams’s Fund-Raising in Last Two Months Plummets to $19,000**\
+`Mayor Eric Adams’s meager fund-raising total is a strong signal of his campaign’s dormancy.`\
+https://nytimes.com/2025/03/18/nyregion/eric-adams-fundraising-donors.html
+
+**U.N. Security Council convenes an emergency session on the Israeli strikes.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/un-security-council-convenes-an-emergency-session-on-the-israeli-strikes
+
 **Heat Today: Miami can't buy a win but must 'stay the course'**\
 `Miami is on its longest losing streak in nearly 20 years. What are a few things the Heat must do to improve their luck?`\
 https://nytimes.com/athletic/6212679/2025/03/18/erik-spoelstra-heat-losing-streak-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6213594/2025/03/18/donald-trump-vladimir-putin-usa-
 **Judge Orders Education Dept. to Restore Some Grants to Schools**\
 `In an opinion on Tuesday, a federal judge found that suspension of programs aimed at training and supporting educators would have “grave effect on the public.”`\
 https://nytimes.com/2025/03/18/us/politics/trump-education-grants.html
-
-**Israel Resumes Strikes on Gaza, Killing Hundreds, as Cease-Fire Breaks Down**\
-`Prime Minister Benjamin Netanyahu’s office said he had ordered the aerial attacks after Hamas’s “repeated refusal” to release the remaining hostages it holds. “This is just the beginning,” he said.`\
-https://nytimes.com/2025/03/18/world/middleeast/israel-strikes-gaza-cease-fire-hamas.html
-
-**Farmers Have Fair Trade Complaints, but Tariffs Are a Bigger Worry**\
-`When the U.S. trade representative asked for examples of unfair trade, agriculture interests had plenty, but also politely warned about what a trade war could do to them.`\
-https://nytimes.com/2025/03/18/business/trump-tariffs-farmers-agriculture.html
 

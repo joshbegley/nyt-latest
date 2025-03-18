@@ -1,3 +1,11 @@
+**Eric Adams’s Fund-Raising in Last Two Months Plummets to $19,000**\
+`Mayor Eric Adams’s meager fund-raising total is a strong signal of his campaign’s dormancy.`\
+https://nytimes.com/2025/03/18/nyregion/eric-adams-fundraising-donors.html
+
+**U.N. Security Council convenes an emergency session on the Israeli strikes.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/un-security-council-convenes-an-emergency-session-on-the-israeli-strikes
+
 **Heat Today: Miami can't buy a win but must 'stay the course'**\
 `Miami is on its longest losing streak in nearly 20 years. What are a few things the Heat must do to improve their luck?`\
 https://nytimes.com/athletic/6212679/2025/03/18/erik-spoelstra-heat-losing-streak-nba/
