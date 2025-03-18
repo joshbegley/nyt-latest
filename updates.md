@@ -1,3 +1,23 @@
+**UK Athletics, former World Championships chief plead not guilty over Paralympian’s death**\
+`UK Athletics and the former head of sport for the World Paralympic Athletics Championships have pleaded not guilty to all charges relating to the death of Paralympian Abdullah Hayayei.`\
+https://nytimes.com/athletic/6212350/2025/03/18/abdullah-hayayei-paralympian-court-case/
+
+**Edison’s Power Lines Were Under Strain 14 Hours Before Eaton Fire**\
+`New data suggests there were faults on Southern California Edison’s transmission lines early on Jan. 7 before the fire started that evening.`\
+https://nytimes.com/2025/03/18/business/energy-environment/socal-edison-eaton-fire.html
+
+**Oxford branded 'slimy' and 'desperate' amid Boat Race eligibility row**\
+`"This is a desperate ploy from Oxford to gain an upper hand in the most slimy way," said former Cambridge rower Imogen Grant.`\
+https://nytimes.com/athletic/6212742/2025/03/18/boat-race-cambridge-oxford-rowing-eligibility/
+
+**NASA’s ex-chief says he never discussed a rescue mission with SpaceX, contradicting Musk.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/nasas-ex-chief-says-he-never-discussed-a-rescue-mission-with-spacex-contradicting-musk
+
+**Burn: I'm not coming into England squad to be a 'cheerleader'**\
+`Burn received his first England call-up on Friday as Tuchel leads his new side into World Cup qualifiers against Albania and Latvia.`\
+https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-newcastle/
+
 **The Unlikely Friendship That Saved a Dive Bar**\
 `When Lucy’s, a homey New York tavern, closed down and underwent a renovation, some longtime patrons feared the worst.`\
 https://nytimes.com/2025/03/18/style/the-unlikely-friendship-that-saved-a-dive-bar.html

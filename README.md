@@ -31,7 +31,7 @@ https://nytimes.com/2025/03/18/business/dealbook/europe-investment-savings.html
 https://nytimes.com/athletic/6212106/2025/03/18/matas-buzelis-bulls-rookie-upside/
 
 **Dodgers' Freddie Freeman day to day for second game of Tokyo Series**\
-`The veteran first baseman gives himself a '75 percent chance' of playing in the second game of the series on Wednesday.`\
+`The veteran first baseman gives himself a "75 percent chance" of playing in the second game of the series on Wednesday.`\
 https://nytimes.com/athletic/6212745/2025/03/18/dodgers-freddie-freeman-rib-injury/
 
 **The NBA MVP race is going down to the wire. Don't look away**\
