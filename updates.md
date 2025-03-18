@@ -1,3 +1,23 @@
+**Lackluster Assassins Can’t Outshine the Beauty of Feudal Japan**\
+`The stories of vengeance in Assassin’s Creed Shadows, which follows an African-born samurai and a young shinobi, are less compelling than its vibrant world.`\
+https://nytimes.com/2025/03/18/arts/assassins-creed-shadows-review.html
+
+**The 10 most interesting Notre Dame players as spring practice begins**\
+`Spring football is going to look a lot different for Notre Dame this year. These are the most notable players to watch.`\
+https://nytimes.com/athletic/6213020/2025/03/18/notre-dame-spring-football-intriguing-players/
+
+**Bills offseason tracker: Where will Buffalo's cap space be spent in a pivotal offseason?**\
+`The Bills got a number of important contracts done before free agency opens.`\
+https://nytimes.com/athletic/6184048/2025/03/18/bills-free-agency-offseason-tracker/
+
+**Demigods? Soldiers? Big cats? Which March Madness mascot would win a battle royale?**\
+`Here are the answers to your most pressing questions, like, "Which program would win if March Madness were determined by mascot fights?"`\
+https://nytimes.com/athletic/6159940/2025/03/18/march-madness-bracket-mascot-fight/
+
+**Best tips, strategies for winning your 2025 March Madness pool**\
+`Austin Mock looks at how your strategy for filling out your bracket should vary depending on the size of your pool.`\
+https://nytimes.com/athletic/6212874/2025/03/18/march-madness-2025-best-bracket-tips-strategies/
+
 **Rebuking Talk From Trump, Roberts Calls Impeaching Judges Over Rulings Improper**\
 `The chief justice rarely issues public statements. This one was reminiscent of another in 2018 defending judicial independence after the president criticized a different judge’s ruling.`\
 https://nytimes.com/2025/03/18/us/chief-justice-roberts-impeachment-trump.html
