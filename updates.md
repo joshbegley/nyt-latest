@@ -1,3 +1,11 @@
+**Pelicans forward Trey Murphy exits game vs. Pistons due to shoulder injury**\
+`New Orleans announced that X-rays on Murphy's shoulder came back negative.`\
+https://nytimes.com/athletic/6211667/2025/03/17/pelicans-trey-murphy-shoulder-injury/
+
+**Israel Carries Out ‘Extensive Strikes’ in Gaza**\
+`The strikes, announced early Tuesday, appeared to be the first major attack in Gaza by Israel since its cease-fire with Hamas began.`\
+https://nytimes.com/2025/03/17/world/middleeast/israel-gaza-airstrikes.html
+
 **Now boarding: A NASA mission to bring astronauts home.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/now-boarding-a-nasa-mission-to-bring-astronauts-home
