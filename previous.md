@@ -1,3 +1,19 @@
+**Son of Jair Bolsonaro Says He Will Seek Political Asylum in the U.S.**\
+`Eduardo Bolsonaro, a son of Brazil’s former president, said he planned to stay in the United States, claiming persecution back home.`\
+https://nytimes.com/2025/03/18/world/americas/jair-bolsonaro-son-us-asylum.html
+
+**How the White House Defied a Judge’s Order on Deportation Planes**\
+`A New York Times review of flight data shows how the Trump administration deported about 200 migrants to El Salvador — despite a federal judge’s ruling blocking these deportations. Luke Broadwater, who covers the White House for The Times, goes through the timeline of what really happened.`\
+https://nytimes.com/video/us/100000010057420/how-the-white-house-defied-a-judges-order-on-deportation-planes.html
+
+**Trump Fires Democrats on Federal Trade Commission**\
+`The decision to fire the two Democratic members of the traditionally independent regulatory body is likely to face a legal challenge.`\
+https://nytimes.com/2025/03/18/technology/trump-ftc-fires-democrats.html
+
+**Missouri hires Kellie Harper as women's basketball coach**\
+`New Tigers coach has extensive SEC experience, including leading the Volunteers from 2019-2024.`\
+https://nytimes.com/athletic/6214008/2025/03/18/missouri-hires-kellie-harper-basketball-coach/
+
 **Hollywood Filmmaker Charged With $11 Million Conspiracy to Defraud Netflix**\
 `Prosecutors say Carl Erik Rinsch used funds for a science-fiction series for personal investments. An arbitrator last year ruled in Netflix’s favor.`\
 https://nytimes.com/2025/03/18/business/media/netflix-fraud-filmmaker-science-fiction.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6213879/2025/03/18/browns-proposed-stadium-brook-pa
 **Israeli Airstrikes Kill Hundreds of People in Gaza**\
 `More than 400 people were killed in Israeli airstrikes across Gaza on Tuesday, Gaza’s health ministry said. The attacks were the first major strikes on Gaza since Israel and Hamas agreed to a temporary cease-fire in January.`\
 https://nytimes.com/video/world/middleeast/100000010058219/gaza-israeli-strikes.html
-
-**Musk’s Role in Dismantling Aid Agency Likely Violated Constitution, Judge Finds**\
-`It appears to be the first time a federal judge has acted to constrain Elon Musk, a top adviser to President Trump. The judge also ordered agency functions be partially restored, though that relief could be temporary.`\
-https://nytimes.com/2025/03/18/us/politics/elon-musk-usaid-doge-unconstitutional.html
-
-**Woman Charged With Murder in Telemundo Reporter’s Death**\
-`Adan Manzano, 27, was in New Orleans to cover the Super Bowl when his body was found in his hotel room.`\
-https://nytimes.com/2025/03/18/us/adan-manzano-telemundo-super-bowl-reporter-murder.html
-
-**Louisiana Plans to Resume Capital Punishment With First Nitrogen Execution**\
-`Jessie Hoffman, 46, is scheduled to be put to death on Tuesday, the first execution in the state since 2010. “Justice will be dispensed,” the governor said.`\
-https://nytimes.com/2025/03/18/us/louisiana-nitrogen-execution-jessie-hoffman-capital-punishment-landry.html
-
-**Eric Adams’s Fund-Raising in Last Two Months Plummets to $19,000**\
-`Mayor Eric Adams’s meager fund-raising total is a strong signal of his campaign’s dormancy.`\
-https://nytimes.com/2025/03/18/nyregion/eric-adams-fundraising-donors.html
 
