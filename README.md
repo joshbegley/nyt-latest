@@ -1,3 +1,7 @@
+**Trump Pulls Secret Service Protection From Hunter and Ashley Biden**\
+`The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
+https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html
+
 **Trump Nominates Longtime Airlines Executive to Lead F.A.A.**\
 `The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
 https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6211194/2025/03/17/ravens-lt-ronnie-stanley-wanted-
 **El Salvador’s President Sees Opportunity in Trump’s Deportations**\
 `Nayib Bukele’s role in the Trump administration’s deportation strategy signals a new level of power and global visibility for El Salvador’s young leader.`\
 https://nytimes.com/2025/03/17/world/americas/el-salvador-nayib-bukele-deportees.html
-
-**St. Louis Cardinals Opening Day roster and rotation plans: What I'm hearing**\
-`The Cardinals face two big roster decisions before they break camp Sunday. Neither will be easy.`\
-https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rotation-plans/
 
