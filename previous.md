@@ -1,3 +1,7 @@
+**With nowhere else to go, Williams and Wilmore got to work on the space station.**\
+`By John Yoon`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/with-nowhere-else-to-go-williams-and-wilmore-got-to-work-on-the-space-station
+
 **Chuck Schumer Isn’t Jewish Like the Pope Isn’t Catholic**\
 `Derided by the MAGA right and yelled at by the far left, the Senate Democratic leader is inhabiting a very Jewish place right now.`\
 https://nytimes.com/2025/03/18/opinion/schumer-trump-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6213363/2025/03/18/68-team-college-football-bracket
 **Here are the 5 best bets to kick off the first days of March Madness action**\
 `Austin Mock's model finds value in five bets so far over the first few days of action. `\
 https://nytimes.com/athletic/6213113/2025/03/18/march-madness-round-one-best-bets-2025/
-
-**De Gaulle Rises as France Sours on Trump’s America**\
-`Charles de Gaulle’s insistence on French power and autonomy is being cited widely in France; one politician demanded that an America on “the side of the tyrants” return the Statue of Liberty.`\
-https://nytimes.com/2025/03/18/world/europe/de-gaulle-france-trump.html
 

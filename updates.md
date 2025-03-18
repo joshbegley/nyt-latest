@@ -1,3 +1,7 @@
+**With nowhere else to go, Williams and Wilmore got to work on the space station.**\
+`By John Yoon`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/with-nowhere-else-to-go-williams-and-wilmore-got-to-work-on-the-space-station
+
 **Chuck Schumer Isn’t Jewish Like the Pope Isn’t Catholic**\
 `Derided by the MAGA right and yelled at by the far left, the Senate Democratic leader is inhabiting a very Jewish place right now.`\
 https://nytimes.com/2025/03/18/opinion/schumer-trump-antisemitism.html
