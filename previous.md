@@ -1,3 +1,11 @@
+**Intimidation, Fear and Silence in the Age of Trump**\
+`Readers lament the self-censorship of public figures who fear retribution from the administration. Also: Remembering Selma; immigrant women; Social Security.`\
+https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html
+
+**Judge Draws Trump’s Ire Over Ruling to Stop Deportation Flights**\
+`President Trump has called for Judge Boasberg to be impeached after he ruled against the administration over the president’s efforts to use a law from 1798 to speed deportations.`\
+https://nytimes.com/2025/03/18/us/politics/judge-boasberg-trump-deportation-flights.html
+
 **Canada Bolsters Arctic Defenses as Trump Sets His Sights North**\
 `As President Trump talks about U.S. dominance of the Arctic, Canada says it will spend billions to defend the region, including buying new radar technology from Australia.`\
 https://nytimes.com/2025/03/18/world/canada/canada-australia-arctic-radar-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israeli-strikes
 **Court Face-Off on Deportations Tests Trump’s Power to ‘Find and Declare’ Facts**\
 `The litigation unleashed by President Trump’s second term, combined with his distortions and lies, is testing the judicial system’s practice of deferring to the executive branch’s determinations about what is true.`\
 https://nytimes.com/2025/03/18/us/politics/trump-deportation-flights.html
-
-**Cameron Brink 'icked out' by replies on post for male practice players**\
-`Brink said the team needs to "heavily vet these men" that join the practice squad after unsettling social media comments emerged.`\
-https://nytimes.com/athletic/6212696/2025/03/18/cameron-brink-sparks-male-practice-players-comments/
-
-**Lackluster Assassins Can’t Outshine the Beauty of Feudal Japan**\
-`The stories of vengeance in Assassin’s Creed Shadows, which follows an African-born samurai and a young shinobi, are less compelling than its vibrant world.`\
-https://nytimes.com/2025/03/18/arts/assassins-creed-shadows-review.html
 

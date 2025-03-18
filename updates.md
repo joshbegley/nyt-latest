@@ -1,3 +1,11 @@
+**Intimidation, Fear and Silence in the Age of Trump**\
+`Readers lament the self-censorship of public figures who fear retribution from the administration. Also: Remembering Selma; immigrant women; Social Security.`\
+https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html
+
+**Judge Draws Trump’s Ire Over Ruling to Stop Deportation Flights**\
+`President Trump has called for Judge Boasberg to be impeached after he ruled against the administration over the president’s efforts to use a law from 1798 to speed deportations.`\
+https://nytimes.com/2025/03/18/us/politics/judge-boasberg-trump-deportation-flights.html
+
 **Canada Bolsters Arctic Defenses as Trump Sets His Sights North**\
 `As President Trump talks about U.S. dominance of the Arctic, Canada says it will spend billions to defend the region, including buying new radar technology from Australia.`\
 https://nytimes.com/2025/03/18/world/canada/canada-australia-arctic-radar-trump.html
