@@ -1,3 +1,11 @@
+**Israel Launches Deadly Attack on Gaza**\
+`It was the first major strike on Gaza since Israel and Hamas agreed to a cease-fire nearly two months ago.`\
+https://nytimes.com/video/world/middleeast/100000010058008/israel-gaza-airstrike.html
+
+**Chinese Nationalists Praise Trump’s Cuts to Voice of America**\
+`Beijing has long criticized the outlet, as well as Radio Free Asia, for highlighting human rights abuses in China.`\
+https://nytimes.com/2025/03/18/world/asia/china-trump-voice-of-america.html
+
 **With Talks Stalled, Israel Puts War Back on the Table**\
 `While Israel has stopped short of a ground invasion for now, its new strikes in Gaza seem to be an effort to force concessions from Hamas.`\
 https://nytimes.com/2025/03/18/world/middleeast/israel-gaza-hamas-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/crosswords/spelling-bee-forum.html
 **Jon Stewart Isn’t Buying Trump’s Latest Golf ‘Championship’**\
 `After the president claimed victory at his own club, Stewart compared him to “the Make-a-Wish Batman kid: ‘Hey, look at that, Donald. You caught all the criminals.’”`\
 https://nytimes.com/2025/03/18/arts/television/jon-stewart-trump-golf-championship.html
-
-**Word of the Day: desiccated**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/18/learning/word-of-the-day-desiccated.html
-
-**Wilmore and Williams’s stay in space, by the numbers.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/wilmore-and-williamss-stay-in-space-by-the-numbers
 
