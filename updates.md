@@ -1,3 +1,7 @@
+**Steph Curry struggles in Warriors' ugly loss to Nuggets: 'He's exhausted'**\
+`Turnovers and poor shooting doomed Golden State against the short-handed Nuggets. But more concerning is the strain Curry's body is showing`\
+https://nytimes.com/athletic/6212063/2025/03/18/steph-curry-warriors-nuggets-loss-tired/
+
 **A trek to Tropicana Field, baseball's haunted house: Blue skies, but no Rays**\
 `As Opening Day nears, we visited the Trop and talked with people who have a connection to this storied, now desolate ballpark. `\
 https://nytimes.com/athletic/6206866/2025/03/18/tropicana-field-tampa-bay-rays-future-ballpark/
