@@ -1,41 +1,40 @@
-**Australia’s first openly gay male footballer Cavallo receives ‘death threats daily’**\
-`Cavallo came out as gay in October 2021, becoming the only openly gay male top-flight professional player at the time.`\
-https://nytimes.com/athletic/6212262/2025/03/18/josh-cavallo-australia-death-threats/
+**A trek to Tropicana Field, baseball's haunted house: Blue skies, but no Rays**\
+`As Opening Day nears, we visited the Trop and talked with people who have a connection to this storied, now desolate ballpark. `\
+https://nytimes.com/athletic/6206866/2025/03/18/tropicana-field-tampa-bay-rays-future-ballpark/
 
-**The Deportation Rationale**\
-`We cover President Trump’s immigration crackdown.`\
-https://nytimes.com/2025/03/18/briefing/president-trump-immigration-crackdown.html
+**Kepner: As Paul Skenes’ star brightens, his Pirates struggle with their limitations**\
+`The reigning NL Rookie of the Year enters his first full MLB season with a team whose payroll ranks above only four other franchises.`\
+https://nytimes.com/athletic/6211703/2025/03/18/pittsburgh-pirates-paul-skenes-stardom-limitations/
 
-**NCAA president says possible women's tournament expansion would mirror men's**\
-`"If we expand it on one side, we're going to expand it on the other."`\
-https://nytimes.com/athletic/6211749/2025/03/18/ncaa-president-charlie-baker-womens-tournament-expansion/
+**Rosenthal: Once again, the Marlins' lack of spending risks grievance from the players union**\
+`Miami appears to be operating about $20 million below the level the Collective Bargaining Agreement will require by the end of the season.`\
+https://nytimes.com/athletic/6211601/2025/03/18/miami-marlins-spending-payroll-luxury-tax/
 
-**Women's basketball is hot as ever but will March Madness still soar without Caitlin Clark?**\
-`What's ESPN expect for viewership? `\
-https://nytimes.com/athletic/6206920/2025/03/18/womens-college-basketball-viewership-post-caitlin-clark/
+**What's behind the Big Ten's 25-year men's basketball title drought?**\
+`The league's title drought features eight consecutive championship game defeats, several other near-misses and a search for answers.`\
+https://nytimes.com/athletic/6209931/2025/03/18/big-ten-ncaa-tournament-record-title-drought/
 
-**Brendan Marks picks every game of the NCAA Tournament: In a mostly chalk event, Duke reigns**\
-`Duke's path to the second weekend is the easiest of the No. 1 seeds — and it's probably the easiest Final Four path, too.`\
-https://nytimes.com/athletic/6210410/2025/03/18/mens-ncaa-tournament-2025-bracket-duke-florida/
+**PWHL Power Rankings: One big question facing each team in the stretch run**\
+`Can Montreal find middle-six scoring relief? Are the Fleet the scariest team in the PWHL right now?`\
+https://nytimes.com/athletic/6211403/2025/03/18/pwhl-power-rankings-stretch-run/
 
-**The Pulse: Bracket breakdown and picks Pt. II, plus MLG goes live**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/
+**Ohtani tops list of players with the most PSA graded cards during offseason**\
+`As Ohtani nears Griffey, he's still far off from Michael Jordan and multiple Pokemon characters`\
+https://nytimes.com/athletic/6210125/2025/03/18/ohtani-griffey-psa-most-graded/
 
-**Luxury, Reimagined: The Mise-en-Scène of Marina Bay Sands**\
-`A short film by Celine Song, maker of “Past Lives,” evokes the ambitious transformation and new brand vision of Singapore’s prominent integrated resort.
-`\
-https://nytimes.com/paidpost/marina-bay-sands/luxury-reimagined-the-mise-en-scene-of-marina-bay-sands.html
+**Which women's March Madness teams look like Cinderellas?**\
+`South Dakota State and Norfolk State have styles that could disrupt the tournament.`\
+https://nytimes.com/athletic/6211923/2025/03/18/women-march-madness-cinderella-upsets/
 
-**After a period of relative calm, a wave of strikes jolts Gazans.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
+**Anthony Hamilton's hug showed Hadjar’s F1 debut tears weren’t 'embarrassing' - they were real**\
+`There's nothing shameful about a rookie's tears, even if it defies F1's old ways. `\
+https://nytimes.com/athletic/6211693/2025/03/18/anthony-hamilton-hug-isack-hadjar-f1-helmut-marko/
 
-**Ashton Jeanty? Tyler Warren? Five draft thoughts after Bears' moves in free agency**\
-`It's time to look ahead to the NFL Draft after the Bears' moves in free agency. Is the offensive line still a priority?`\
-https://nytimes.com/athletic/6211130/2025/03/18/bears-free-agency-draft-plans/
+**MLB The Show 25 review: Flexible gameplay, 'Road to Show' option among highlights**\
+`There are plenty of features to keep devoted fans of MLB The Show 25 interested. Here are some takeaways as the game was released Tuesday.`\
+https://nytimes.com/athletic/6211055/2025/03/18/mlb-the-show-25-review-video-game/
 
-**Vikings QB conundrum: If not Aaron Rodgers, who will Minnesota pair with J.J. McCarthy?**\
-`We examine several other experienced QB options that would make sense if the Vikings decided not to go down the Rodgers path.`\
-https://nytimes.com/athletic/6210967/2025/03/18/vikings-quarterback-aaron-rodgers-jj-mccarthy/
+**Yankees ‘surprised’ Alex Verdugo remains a free agent**\
+`Verdugo hasn't received a major-league offer since becoming a free agent, according to a league source.`\
+https://nytimes.com/athletic/6211512/2025/03/18/yankees-alex-verdugo-free-agent/
 
