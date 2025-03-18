@@ -10,7 +10,7 @@ https://nytimes.com/2025/03/17/crosswords/daily-puzzle-2025-03-18.html
 `Trump administration officials said the company donated the internet service, saying the gift had been vetted by the lawyer overseeing ethics issues in the White House Counsel’s Office.`\
 https://nytimes.com/2025/03/17/us/politics/elon-musk-starlink-white-house.html
 
-**Marlins minor-league affiliate's ad for practice squad pulled after MLB raise concerns**\
+**Marlins minor-league affiliate's ad for practice squad pulled after MLB raises concerns**\
 `The Marlins have pulled a recent advertisement to join the organization’s “practice squad" after Major League Baseball voiced concerns.`\
 https://nytimes.com/athletic/6211578/2025/03/17/marlins-practice-squad-mlb-minor-leagues/
 
