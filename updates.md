@@ -1,3 +1,7 @@
+**Less Than Half of the 59 Hostages in Gaza Are Believed to Be Alive**\
+`Prime Minister Benjamin Netanyahu said Tuesday’s attack on Gaza came after Hamas said no to the latest proposals by mediators, which included releasing the remaining captives.`\
+https://nytimes.com/2025/03/18/world/middleeast/israel-gaza-hostages.html
+
 **Connections: Sports Edition Coach: Hints for March 18, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6212052/2025/03/18/connections-sports-edition-hints-for-march-18-2025/
