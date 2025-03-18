@@ -1,3 +1,11 @@
+**‘We Finally Got You.’ Immigrant-Rights Advocate Arrested in Colorado.**\
+`Jeanette Vizguerra, who made national news evading deportation in a church basement, is the latest activist to be taken into custody by federal immigration agents.`\
+https://nytimes.com/2025/03/18/us/immigrant-arrest.html
+
+**Two New Mexico Teenagers Are Charged With Murdering a Cyclist**\
+`A 13-year-old intentionally drove a stolen vehicle into a man as he was riding his bike to work last year, killing him, the police said.`\
+https://nytimes.com/2025/03/18/us/albuquerque-police-charge-teenager-murder.html
+
 **What happens to the astronauts right after they return to Earth.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-to-the-astronauts-right-after-they-return-to-earth
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6213847/2025/03/18/usmnt-roster-nations-league-robi
 **Son of Jair Bolsonaro Says He Will Seek Political Asylum in the U.S.**\
 `Eduardo Bolsonaro, a son of Brazil’s former president, said he planned to stay in the United States, claiming persecution back home.`\
 https://nytimes.com/2025/03/18/world/americas/jair-bolsonaro-son-us-asylum.html
-
-**How the White House Defied a Judge’s Order on Deportation Planes**\
-`A New York Times review of flight data shows how the Trump administration deported about 200 migrants to El Salvador — despite a federal judge’s ruling blocking these deportations. Luke Broadwater, who covers the White House for The Times, goes through the timeline of what really happened.`\
-https://nytimes.com/video/us/100000010057420/how-the-white-house-defied-a-judges-order-on-deportation-planes.html
-
-**Trump Fires Democrats on Federal Trade Commission**\
-`The decision to fire the two Democratic members of the traditionally independent regulatory body is likely to face a legal challenge.`\
-https://nytimes.com/2025/03/18/technology/trump-ftc-fires-democrats.html
 

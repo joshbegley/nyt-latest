@@ -1,3 +1,7 @@
+**What happens to the astronauts right after they return to Earth.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-to-the-astronauts-right-after-they-return-to-earth
+
 **The Chief Justice Rebuked Impeachment Threats**\
 `Also, two astronauts returned after nine unexpected months in space. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/03/18/briefing/chief-justice-rebuke-putin-trump-call-cease-fire.html
