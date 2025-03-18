@@ -1,3 +1,7 @@
+**How Luka Dončić has transformed the geometry of the Lakers' offense**\
+`Dončić's gravity has completely changed the Lakers' attack, fulfilling JJ Reddick's vision for a high-volume 3-point shooting team.`\
+https://nytimes.com/athletic/6211802/2025/03/18/luka-doncic-lakers-offense/
+
 **How Jack Draper embraced his tennis gifts to win the Indian Wells title**\
 `In 2024, Draper was molding himself into a first-strike, all-aggression player. Turning away from that path has catapulted him upwards.`\
 https://nytimes.com/athletic/6210155/2025/03/18/tennis-jack-draper-best-shots-game/
