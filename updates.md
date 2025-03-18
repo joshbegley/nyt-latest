@@ -1,3 +1,11 @@
+**E.P.A. Offers No New Evidence in Battle Over $20 Billion in Climate Grants**\
+`Nonprofit groups have sued the agency to get access to grants approved by Congress to fund climate and clean energy projects across the country.`\
+https://nytimes.com/2025/03/17/climate/epa-gold-bars-climate-lawsuit.html
+
+**Governor’s Farmhouse Among Properties Burned in Oklahoma Wildfires**\
+`In a video posted to social media, Gov. Kevin Stitt of Oklahoma said he had experienced the “total loss” of his farmhouse over the weekend.`\
+https://nytimes.com/2025/03/17/us/oklahoma-wildfires-governor-kevin-stitt-ranch.html
+
 **Trump Pulls Secret Service Protection From Hunter and Ashley Biden**\
 `The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
 https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html

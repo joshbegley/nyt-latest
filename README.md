@@ -1,3 +1,7 @@
+**A Judge Ordered Deportation Planes to Turn Around. The White House Didn’t Listen.**\
+`A New York Times review of flight data showed that at the time of a federal judge’s order, two flights were in the air, and one had not yet taken off.`\
+https://nytimes.com/2025/03/17/us/politics/timeline-trump-deportation-flights-el-salvador.html
+
 **E.P.A. Offers No New Evidence in Battle Over $20 Billion in Climate Grants**\
 `Nonprofit groups have sued the agency to get access to grants approved by Congress to fund climate and clean energy projects across the country.`\
 https://nytimes.com/2025/03/17/climate/epa-gold-bars-climate-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/17/us/trump-news/fannie-mae-and-freddie-mac-mor
 **ESPN hiring Fox's Artie Kempner as new director of 'Monday Night Football'**\
 `Kempner previously worked with Joe Buck and Troy Aikman, but had been Fox’s No. 2 NFL director, while being their lead on NASCAR.`\
 https://nytimes.com/athletic/6211369/2025/03/17/espn-monday-night-football-fox-director/
-
-**Eagles agree to extension with Lane Johnson, land free agent Azeez Ojulari**\
-`Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
-https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
 
