@@ -1,40 +1,40 @@
-**U.S. Foreign Aid Cuts Hit Sudanese Refugees Fleeing Violence and Famine in Darfur**\
-`Just weeks after the U.S. government suspended its work in massive foreign aid cuts announced in January, humanitarians say much of the damage to critical programs has already been done.`\
-https://nytimes.com/2025/03/18/world/africa/trump-foreign-aid-sudan-refugees.html
+**Patriots mock draft: How did free agency change New England's plans?**\
+`Left tackle and wide receiver remain huge needs for the Patriots, so how can they address them early in the NFL Draft?`\
+https://nytimes.com/athletic/6210019/2025/03/18/patriots-mock-draft-nfl-free-agency/
 
-**These Sudanese Refugees Fled War. Now, Crucial U.S. Aid Is Running Out.**\
-`Sudanese refugees at the Aboutengue Camp in Chad, most of whom are women and children, say they are desperate for help just weeks after the U.S. government announced drastic foreign aid cuts in January.`\
-https://nytimes.com/video/world/africa/100000010056183/trump-foreign-aid-sudan-refugees.html
+**Hong Kong Piles on to Beijing’s Growing Criticism of Panama Canal Deal**\
+`The city’s chief executive said a deal between the Hong Kong conglomerate CK Hutchison and BlackRock, a major American investment firm, requires “serious attention.”`\
+https://nytimes.com/2025/03/18/business/hong-kong-panama-canal-ck-hutchison.html
 
-**Small Plane Crashes Off Caribbean Island in Honduras, Killing 12**\
-`The police said five people had survived the crash off Roatán Island, a tourist destination known for its diving spots.`\
-https://nytimes.com/2025/03/18/world/americas/honduras-plane-crash-roatan.html
+**It May Not Be Brainwashing, but It’s Not Democracy, Either**\
+`How the federal government became “an outdated software system that must be replaced.”`\
+https://nytimes.com/2025/03/18/opinion/andreessen-musk-trump-silicon-valley.html
 
-**Why the astronauts had to wait an extra month in orbit.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/why-the-astronauts-had-to-wait-an-extra-month-in-orbit
+**Why the Obvious Can Be Game-Changing for Democrats**\
+`Andrew Cuomo’s ideas for fighting subway crime plan aren’t new, but that doesn’t matter.`\
+https://nytimes.com/2025/03/18/opinion/democrats-new-york-subway-crime.html
 
-**Israel Launches Deadly Attack on Gaza**\
-`It was the first major strike on Gaza since Israel and Hamas agreed to a cease-fire nearly two months ago.`\
-https://nytimes.com/video/world/middleeast/100000010058008/israel-gaza-airstrike.html
+**Canadian Who Was in an ‘American Pie’ Video Says ICE Held Her for 12 Days**\
+`Jasmine Mooney, 35, said she was put “in chains” after immigration enforcement officers flagged her visa application paperwork. The former actress was finally allowed to return to Vancouver.`\
+https://nytimes.com/2025/03/18/us/mooney-canadian-american-pie-actress-ice.html
 
-**Chinese Nationalists Praise Trump’s Cuts to Voice of America**\
-`Beijing has long criticized the outlet, as well as Radio Free Asia, for highlighting human rights abuses in China.`\
-https://nytimes.com/2025/03/18/world/asia/china-trump-voice-of-america.html
+**Nvidia Is Hosting the Super Bowl of A.I.**\
+`The giant chipmaker has transformed its annual developer conference from an academic event into a who’s who gathering for the future of artificial intelligence.`\
+https://nytimes.com/2025/03/18/technology/nvidia-gtc-conference-ai.html
 
-**With Talks Stalled, Israel Puts War Back on the Table**\
-`While Israel has stopped short of a ground invasion for now, its new strikes in Gaza seem to be an effort to force concessions from Hamas.`\
-https://nytimes.com/2025/03/18/world/middleeast/israel-gaza-hamas-war.html
+**Russia Escalated Sabotage to Pressure U.S. and Allies on Ukraine, Study Says**\
+`Anger at Russia’s covert efforts, which included targeting undersea cables, warehouses and railways, has the potential to influence European reactions to the U.S.-led push for an end to the war.`\
+https://nytimes.com/2025/03/18/us/politics/russia-sabotage-attacks-europe-ukraine.html
 
-**NASA Astronauts Depart I.S.S.**\
-`Suni Williams and Butch Wilmore are on their way home after an unexpected nine months in space.`\
-https://nytimes.com/video/science/space/100000010057963/nasa-astronauts-return-spacex.html
+**Democrats Need to Face Why Trump Won**\
+`The Democratic pollster David Shor walks through what voter data reveals about the 2024 election — and how the American electorate is shifting.`\
+https://nytimes.com/2025/03/18/opinion/ezra-klein-podcast-david-shor.html
 
-**Dream Car**\
-`Is there a vehicle you’d love to one day drive?`\
-https://nytimes.com/2025/03/18/learning/dream-car.html
+**One Small Way Alan Simpson Helped Change History**\
+`A softball question and he was out.`\
+https://nytimes.com/2025/03/18/opinion/supreme-court-abortion-alan-simpson.html
 
-**Art Seizures at the Met Caused Concern. His Job Is to Address It.**\
-`After surrendering scores of art works thought looted, the museum is looking to its new head of provenance research to police its acquisitions and review its collection.`\
-https://nytimes.com/2025/03/18/arts/design/met-museum-provenance-research-lucian-simmons.html
+**Democrats Need to Face Why Trump Won**\
+`The Democratic pollster David Shor walks through what voter data reveals about the 2024 election — and how the American electorate is shifting.`\
+https://nytimes.com/video/opinion/100000010056110/democrats-need-to-face-why-trump-won.html
 
