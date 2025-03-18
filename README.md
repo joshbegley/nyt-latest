@@ -1,3 +1,15 @@
+**A third deportation plane left the U.S. after a judge’s order. The Trump administration argues there was no violation.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/03/18/us/trump-president-news/a-third-deportation-plane-left-the-us-after-a-judges-order-the-trump-administration-argues-there-was-no-violation
+
+**Masataka Yoshida likely to open on IL as Red Sox near final roster decisions**\
+`Yoshida has had a solid spring but he has yet to play the field as he continues to work back slowly from shoulder surgery.`\
+https://nytimes.com/athletic/6214116/2025/03/18/red-sox-roster-masataka-yoshida-injured-list/
+
+**Indiana hires West Virginia's Darian DeVries as next basketball coach**\
+`DeVries replaces Mike Woodson, who guided the Hoosiers to only one NCAA Tournament appearance in the last four years.`\
+https://nytimes.com/athletic/6212725/2025/03/18/indiana-basketball-darian-devries/
+
 **What Works for Low Back Pain? Not Much, a New Study Says**\
 `Researchers looked at 56 treatments for acute and chronic pain. Few of them were effective.`\
 https://nytimes.com/2025/03/18/well/lower-back-pain-treatments-nsaids.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6213940/2025/03/18/garrett-bradbury-free-agency-sig
 **Tom Fitzgerald makes emotional pitch to NHL GMs about cut-resistant equipment after son's near-miss**\
 `The Devils GM's son Casey got 25 stitches in his throat area after a skate-blade cut in an AHL game in December.`\
 https://nytimes.com/athletic/6213889/2025/03/18/tom-fitzgerald-nhl-neck-guards/
-
-**Pitch used for Real Madrid vs Arsenal labelled a 'disgrace' by Ian Wright**\
-`This is the second time in a matter of days a pitch used in a women's match has come under scrutiny following Saturday's League Cup final.`\
-https://nytimes.com/athletic/6214011/2025/03/18/real-madrid-arsenal-women-champions-league-pitch/
-
-**Minnesota Lawmaker Tried to Meet With Underage Prostitute, Police Say**\
-`The arrest of Justin Eichorn, a Republican senator, leaves both parties in the closely divided State Senate with a lawmaker facing felony charges.`\
-https://nytimes.com/2025/03/18/us/minnesota-lawmakerunderage-prostitute-police.html
-
-**Injured Robinson, Cardoso, Trusty withdraw from USMNT roster**\
-`The USMNT face Panama in the Concacaf Nations League semifinal at SoFi Stadium in Los Angeles on March 20.`\
-https://nytimes.com/athletic/6213847/2025/03/18/usmnt-roster-nations-league-robinson-cardoso-trusty-injuries/
 
