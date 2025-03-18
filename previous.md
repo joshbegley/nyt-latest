@@ -1,3 +1,11 @@
+**Now boarding: A NASA mission to bring astronauts home.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/now-boarding-a-nasa-mission-to-bring-astronauts-home
+
+**Live Updates: NASA Astronauts Set for Overdue Trip Home to Earth**\
+`Suni Williams and Butch Wilmore will board a SpaceX Crew Dragon capsule after problems with a Boeing vehicle set in motion a nine-month stay on the International Space Station.`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex
+
 **Trump Administration Questions Law Firms Over D.E.I. Employment Practices**\
 `The move by the Equal Employment Opportunity Commission comes as the administration is taking aggressive steps to intimidate law firms.`\
 https://nytimes.com/2025/03/17/us/politics/trump-dei-perkins-coie-law-firms.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/us/jerry-saliterman-ruby-slippers.html
 **She Blew the Whistle on Meta’s ‘Lethal Carelessness.’ Now She’s Being Silenced.**\
 `The “free speech” champion Mark Zuckerberg tries to shut up a critic.`\
 https://nytimes.com/2025/03/17/opinion/facebook-meta-careless-people.html
-
-**Making Sense of DOGE’s Cuts**\
-`Small reductions to the federal work force could have an outsize impact.`\
-https://nytimes.com/2025/03/17/us/politics/making-sense-of-doges-cuts.html
-
-**Fannie Mae and Freddie Mac, mortgage giants, are shaken up by their federal regulator.**\
-`By Matthew Goldstein`\
-https://nytimes.com/live/2025/03/17/us/trump-news/fannie-mae-and-freddie-mac-mortgage-giants-are-shaken-up-by-their-federal-regulator
 
