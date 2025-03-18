@@ -1,40 +1,40 @@
-**Israel’s government has ‘abandoned the hostages’ by resuming attacks in Gaza, families say.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israels-government-has-abandoned-the-hostages-by-resuming-attacks-in-gaza-families-say
+**Sabres thoughts: Buffalo showing fight, learning 'what it means to be a teammate'**\
+`The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
+https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
 
-**Kings' road woes continue in 3-1 loss to the Wild**\
-`Simply put, the Wild executed on their scoring chances and the Kings did not in a tight game.`\
-https://nytimes.com/athletic/6212082/2025/03/18/los-angeles-kings-loss-minnesota-wild/
+**Twins notes: Royce Lewis out for Opening Day, rotation set, surgery for Matt Canterino**\
+`Back in the familiar spot of being without Lewis for an extended period, the Twins have the infield depth to replace him at third base.`\
+https://nytimes.com/athletic/6209658/2025/03/18/royce-lewis-twins-opening-day-roster/
 
-**Why Germany Wants to Loosen Its Debt Brake**\
-`An incoming government wants to borrow much more to revamp the economy and rebuild the military. That means a change in the country’s Constitution — and its culture.`\
-https://nytimes.com/2025/03/18/world/europe/germany-debt-brake.html
+**San Francisco Giants Sell Minority Stake to Private Equity**\
+`One of Major League Baseball’s biggest franchises sells 10 percent of the team to Sixth Street Partners.`\
+https://nytimes.com/2025/03/18/business/dealbook/san-francisco-giants-sell-stake-private-equity-sixth-street.html
 
-**How Luka Dončić has transformed the geometry of the Lakers' offense**\
-`Dončić's gravity has completely changed the Lakers' attack, fulfilling JJ Reddick's vision for a high-volume 3-point shooting team.`\
-https://nytimes.com/athletic/6211802/2025/03/18/luka-doncic-lakers-offense/
+**Pick upsets or go with the favorites? Tips for your March Madness 2025 bracket**\
+`If you're looking for advice on how to fill out a bracket, here's a look at the historical trends to keep in mind.`\
+https://nytimes.com/athletic/6192202/2025/03/18/march-madness-2025-bracket-tips-advice-guide/
 
-**How Jack Draper embraced his tennis gifts to win the Indian Wells title**\
-`In 2024, Draper was molding himself into a first-strike, all-aggression player. Turning away from that path has catapulted him upwards.`\
-https://nytimes.com/athletic/6210155/2025/03/18/tennis-jack-draper-best-shots-game/
+**Fun, unserious strategies for filling out your March Madness bracket**\
+`There are many ways to fill out a bracket without knowing a thing about basketball and sometimes they work. Here are some of our favorites.`\
+https://nytimes.com/athletic/6185235/2025/03/18/march-madness-unserious-bracket-strategy-2025/
 
-**Steph Curry struggles in Warriors' ugly loss to Nuggets: 'He's exhausted'**\
-`Turnovers and poor shooting doomed Golden State against the short-handed Nuggets. But more concerning is the strain Curry's body is showing`\
-https://nytimes.com/athletic/6212063/2025/03/18/steph-curry-warriors-nuggets-loss-tired/
+**Our readers' most unforgettable (and scarring) stories from March Madness bracket pools**\
+`Everyone has an unforgettable story around March Madness bracket pools. We polled our readers and staff to collect some of the best.`\
+https://nytimes.com/athletic/6198366/2025/03/18/march-madness-brackets-stories/
 
-**A trek to Tropicana Field, baseball's haunted house: Blue skies, but no Rays**\
-`As Opening Day nears, we visited the Trop and talked with people who have a connection to this storied, now desolate ballpark. `\
-https://nytimes.com/athletic/6206866/2025/03/18/tropicana-field-tampa-bay-rays-future-ballpark/
+**What Marco Kasper's surge means for the Red Wings' present and future at center**\
+`Kasper has been a force since the start of 2025, and could be Detroit's long-term answer at second-line center.`\
+https://nytimes.com/athletic/6210723/2025/03/18/marco-kasper-red-wings-future-center/
 
-**Kepner: As Paul Skenes’ star brightens, his Pirates struggle with their limitations**\
-`The reigning NL Rookie of the Year enters his first full MLB season with a team whose payroll ranks above only four other franchises.`\
-https://nytimes.com/athletic/6211703/2025/03/18/pittsburgh-pirates-paul-skenes-stardom-limitations/
+**Why winning Nations League is the only acceptable result for Canada**\
+`Canada has spent the last few years celebrating growth but doesn't have a trophy to show for it. The time for that to end is now.`\
+https://nytimes.com/athletic/6210458/2025/03/18/canada-concacaf-nations-league-expectations-marsch-trophy/
 
-**Rosenthal: Once again, the Marlins' lack of spending risks grievance from the players union**\
-`Miami appears to be operating about $20 million below the level the Collective Bargaining Agreement will require by the end of the season.`\
-https://nytimes.com/athletic/6211601/2025/03/18/miami-marlins-spending-payroll-luxury-tax/
+**How Rangers' Zac Jones deals with trade noise, plus pickup volleyball stars: Observations**\
+`Jones on being past the deadline: "I’m not stupid. I see my name in mock trades and stuff. I get it. I’ve seen it for the past five years."`\
+https://nytimes.com/athletic/6210819/2025/03/18/zac-jones-trade-noise-rangers-nhl/
 
-**What's behind the Big Ten's 25-year men's basketball title drought?**\
-`The league's title drought features eight consecutive championship game defeats, several other near-misses and a search for answers.`\
-https://nytimes.com/athletic/6209931/2025/03/18/big-ten-ncaa-tournament-record-title-drought/
+**49ers’ pre-draft roster analysis: Which positions need the most work?**\
+`It's not only clear the 49ers must rely heavily on the draft this year, it's clear which positions they must target.`\
+https://nytimes.com/athletic/6210993/2025/03/18/49ers-free-agency-draft-roster-analysis/
 

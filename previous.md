@@ -1,3 +1,15 @@
+**Israel’s government has ‘abandoned the hostages’ by resuming attacks in Gaza, families say.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israels-government-has-abandoned-the-hostages-by-resuming-attacks-in-gaza-families-say
+
+**Kings' road woes continue in 3-1 loss to the Wild**\
+`Simply put, the Wild executed on their scoring chances and the Kings did not in a tight game.`\
+https://nytimes.com/athletic/6212082/2025/03/18/los-angeles-kings-loss-minnesota-wild/
+
+**Why Germany Wants to Loosen Its Debt Brake**\
+`An incoming government wants to borrow much more to revamp the economy and rebuild the military. That means a change in the country’s Constitution — and its culture.`\
+https://nytimes.com/2025/03/18/world/europe/germany-debt-brake.html
+
 **How Luka Dončić has transformed the geometry of the Lakers' offense**\
 `Dončić's gravity has completely changed the Lakers' attack, fulfilling JJ Reddick's vision for a high-volume 3-point shooting team.`\
 https://nytimes.com/athletic/6211802/2025/03/18/luka-doncic-lakers-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6211601/2025/03/18/miami-marlins-spending-payroll-l
 **What's behind the Big Ten's 25-year men's basketball title drought?**\
 `The league's title drought features eight consecutive championship game defeats, several other near-misses and a search for answers.`\
 https://nytimes.com/athletic/6209931/2025/03/18/big-ten-ncaa-tournament-record-title-drought/
-
-**PWHL Power Rankings: One big question facing each team in the stretch run**\
-`Can Montreal find middle-six scoring relief? Are the Fleet the scariest team in the PWHL right now?`\
-https://nytimes.com/athletic/6211403/2025/03/18/pwhl-power-rankings-stretch-run/
-
-**Ohtani tops list of players with the most PSA graded cards during offseason**\
-`As Ohtani nears Griffey, he's still far off from Michael Jordan and multiple Pokemon characters`\
-https://nytimes.com/athletic/6210125/2025/03/18/ohtani-griffey-psa-most-graded/
-
-**Which women's March Madness teams look like Cinderellas?**\
-`South Dakota State and Norfolk State have styles that could disrupt the tournament.`\
-https://nytimes.com/athletic/6211923/2025/03/18/women-march-madness-cinderella-upsets/
 
