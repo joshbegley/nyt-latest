@@ -1,3 +1,7 @@
+**Eagles agree to extension with Lane Johnson, land free agent Azeez Ojulari**\
+`Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
+https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
+
 **Trump Nominates Longtime Airlines Executive to Lead F.A.A.**\
 `The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
 https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
