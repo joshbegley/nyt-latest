@@ -1,3 +1,11 @@
+**Hurzeler: Brighton international involvement a 'positive' before FA Cup quarter-final**\
+`Joao Pedro, Pervis Estupinan and Diego Gomez are set to be involved in World Cup qualifiers before the FA Cup tie against Nottingham Forest.`\
+https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-break-fa-cup/
+
+**Dancing, Ed Sheeran's guitar and fist pumps - Nuno's 'connected' squad has Europe in sight**\
+`Nuno Espirito Santo has built togetherness in his Forest team. It should be celebrated as one of his biggest successes in push for Europe`\
+https://nytimes.com/athletic/6210083/2025/03/18/nottingham-forest-alex-moreno-nuno/
+
 **From De Jong to Rodri: The story of Man City's midfield in the modern era**\
 `Analysing the impact and varied strengths of five key figures who have operated at the heart of City's team during the last 15 years`\
 https://nytimes.com/athletic/6210227/2025/03/18/manchester-city-deep-lying-midfielders-yaya-toure-rodri/
