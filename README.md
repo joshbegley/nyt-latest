@@ -1,3 +1,11 @@
+**Map: 3.9-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/17/us/quake-san-francisco-bay.html
+
+**Maple Leafs report cards: Offence looks potent again as power play ignites**\
+`The Leafs finally put together a convincing win against the Flames with four goals in the second period.`\
+https://nytimes.com/athletic/6211407/2025/03/17/maple-leafs-report-cards-power-play-offence-flames/
+
 **‘Purpose’ Review: Dinner With the Black Political Elite**\
 `A family not unlike Jesse Jackson’s gets barbecued on Broadway by Branden Jacobs-Jenkins.`\
 https://nytimes.com/2025/03/17/theater/purpose-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/crosswords/daily-puzzle-2025-03-18.html
 **Elon Musk’s Starlink Expands Across White House Complex**\
 `Trump administration officials said the company donated the internet service, saying the gift had been vetted by the lawyer overseeing ethics issues in the White House Counsel’s Office.`\
 https://nytimes.com/2025/03/17/us/politics/elon-musk-starlink-white-house.html
-
-**Marlins minor-league affiliate's ad for practice squad pulled after MLB raises concerns**\
-`The Marlins have pulled a recent advertisement to join the organization’s “practice squad" after Major League Baseball voiced concerns.`\
-https://nytimes.com/athletic/6211578/2025/03/17/marlins-practice-squad-mlb-minor-leagues/
-
-**Corrections: March 18, 2025**\
-`Corrections that appeared in print on Tuesday, March 18, 2025.`\
-https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
 
