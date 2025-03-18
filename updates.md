@@ -1,3 +1,11 @@
+**Elvis, ‘Cats’ and Babe Ruth: Chairman Trump Reimagines the Kennedy Center**\
+`A recording of President Trump’s private remarks at a Kennedy Center board meeting shows that he mused about bestowing honors on dead celebrities and people from outside the arts.`\
+https://nytimes.com/2025/03/18/arts/music/trump-kennedy-center.html
+
+**Donald Trump and Vladimir Putin discuss possibility of future U.S.-Russia hockey games**\
+`The NHL said in a release to The Athletic that it was "not party to" talks between the U.S. and Russian presidents regarding possible games.`\
+https://nytimes.com/athletic/6213594/2025/03/18/donald-trump-vladimir-putin-usa-russia-hockey/
+
 **Judge Orders Education Dept. to Restore Some Grants to Schools**\
 `In an opinion on Tuesday, a federal judge found that suspension of programs aimed at training and supporting educators would have “grave effect on the public.”`\
 https://nytimes.com/2025/03/18/us/politics/trump-education-grants.html
