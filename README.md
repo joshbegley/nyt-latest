@@ -1,3 +1,15 @@
+**Butch Wilmore and Suni Williams are veteran NASA astronauts.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/butch-wilmore-suni-williams-nasa-astronauts
+
+**Talking Sheer Nonsense**\
+`Larry Snyder and Jonathan Kaufman make their collaboration debut.`\
+https://nytimes.com/2025/03/17/crosswords/daily-puzzle-2025-03-18.html
+
+**Elon Musk’s Starlink Expands Across White House Complex**\
+`Trump administration officials said the company donated the internet service, saying the gift had been vetted by the lawyer overseeing ethics issues in the White House Counsel’s Office.`\
+https://nytimes.com/2025/03/17/us/politics/elon-musk-starlink-white-house.html
+
 **Marlins minor-league affiliate's ad for practice squad pulled after MLB raise concerns**\
 `The Marlins have pulled a recent advertisement to join the organization’s “practice squad" after Major League Baseball voiced concerns.`\
 https://nytimes.com/athletic/6211578/2025/03/17/marlins-practice-squad-mlb-minor-leagues/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex
 **Trump Administration Questions Law Firms Over D.E.I. Employment Practices**\
 `The move by the Equal Employment Opportunity Commission comes as the administration is taking aggressive steps to intimidate law firms.`\
 https://nytimes.com/2025/03/17/us/politics/trump-dei-perkins-coie-law-firms.html
-
-**A Judge Ordered Deportation Planes to Turn Around. The White House Didn’t Listen.**\
-`A New York Times review of flight data showed that at the time of a federal judge’s order, two flights were in the air, and one had not yet taken off.`\
-https://nytimes.com/2025/03/17/us/politics/timeline-trump-deportation-flights-el-salvador.html
-
-**E.P.A. Offers No New Evidence in Battle Over $20 Billion in Climate Grants**\
-`Nonprofit groups have sued the agency to get access to grants approved by Congress to fund climate and clean energy projects across the country.`\
-https://nytimes.com/2025/03/17/climate/epa-gold-bars-climate-lawsuit.html
-
-**Governor’s Farmhouse Among Properties Burned in Oklahoma Wildfires**\
-`In a video posted to social media, Gov. Kevin Stitt of Oklahoma said he had experienced the “total loss” of his farmhouse over the weekend.`\
-https://nytimes.com/2025/03/17/us/oklahoma-wildfires-governor-kevin-stitt-ranch.html
 

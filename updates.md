@@ -1,3 +1,7 @@
+**Marlins minor-league affiliate's ad for practice squad pulled after MLB raise concerns**\
+`The Marlins have pulled a recent advertisement to join the organization’s “practice squad" after Major League Baseball voiced concerns.`\
+https://nytimes.com/athletic/6211578/2025/03/17/marlins-practice-squad-mlb-minor-leagues/
+
 **Israel Carries Out ‘Extensive Strikes’ in Gaza, Imperiling Cease-Fire Deal**\
 `Prime Minister Benjamin Netanyahu’s office said he had ordered the attack early Tuesday, saying Israel would “act against Hamas with increasing military strength.”`\
 https://nytimes.com/2025/03/17/world/middleeast/israel-gaza-airstrikes.html
