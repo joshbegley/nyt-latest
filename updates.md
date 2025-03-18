@@ -1,3 +1,7 @@
+**A Judge Ordered Deportation Planes to Turn Around. The White House Didn’t Listen.**\
+`A New York Times review of flight data showed that at the time of a federal judge’s order, two flights were in the air, and one had not yet taken off.`\
+https://nytimes.com/2025/03/17/us/politics/timeline-trump-deportation-flights-el-salvador.html
+
 **E.P.A. Offers No New Evidence in Battle Over $20 Billion in Climate Grants**\
 `Nonprofit groups have sued the agency to get access to grants approved by Congress to fund climate and clean energy projects across the country.`\
 https://nytimes.com/2025/03/17/climate/epa-gold-bars-climate-lawsuit.html
