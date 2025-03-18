@@ -1,3 +1,11 @@
+**‘We Finally Got You.’ Immigrant-Rights Advocate Arrested in Colorado.**\
+`Jeanette Vizguerra, who made national news evading deportation in a church basement, is the latest activist to be taken into custody by federal immigration agents.`\
+https://nytimes.com/2025/03/18/us/immigrant-arrest.html
+
+**Two New Mexico Teenagers Are Charged With Murdering a Cyclist**\
+`A 13-year-old intentionally drove a stolen vehicle into a man as he was riding his bike to work last year, killing him, the police said.`\
+https://nytimes.com/2025/03/18/us/albuquerque-police-charge-teenager-murder.html
+
 **What happens to the astronauts right after they return to Earth.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-to-the-astronauts-right-after-they-return-to-earth
