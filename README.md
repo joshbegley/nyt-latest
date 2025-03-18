@@ -1,3 +1,11 @@
+**Sectional Sofas Can Work in Any Space. Here Are Our Favorites.**\
+`A roundup of the best modular couches, starting at $1,650.`\
+https://nytimes.com/2025/03/18/t-magazine/best-sectional-sofas.html
+
+**Here are some tantalizing details revealed in a 2017 document release.**\
+`By Peter Baker and Scott Shane`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/here-are-some-tantalizing-details-revealed-in-a-2017-document-release
+
 **Here’s What to Know About the Kennedy Files, Past and Present**\
 `About 99 percent of the government documents related to President John F. Kennedy’s assassination have long been available to the public under a 1992 law.`\
 https://nytimes.com/2025/03/18/us/kennedy-assassination-files-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/18/us/trump-president-news/mahmoud-khalil-in-fi
 **Judge Blocks Policy That Would Expel Transgender Troops**\
 `The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
 https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html
-
-**Smugglers Found Guilty Three Years After 53 Migrants Died in Texas**\
-`The San Antonio trial brought into focus the deadly perils of human trafficking as President Trump cuts off safer routes into the country and targets the traffickers.`\
-https://nytimes.com/2025/03/18/us/smugglers-guilty-migrants-texas.html
-
-**DOGE Reverses Move That Made Its Claims Nearly Impossible to Check**\
-`After getting called out, Elon Musk’s cost-cutting group reinstated details about the grants that it canceled.`\
-https://nytimes.com/2025/03/18/us/politics/doge-federal-grants-identifying-information.html
 
