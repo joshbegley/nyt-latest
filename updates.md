@@ -1,3 +1,11 @@
+**Map: 3.9-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/03/17/us/quake-san-francisco-bay.html
+
+**Maple Leafs report cards: Offence looks potent again as power play ignites**\
+`The Leafs finally put together a convincing win against the Flames with four goals in the second period.`\
+https://nytimes.com/athletic/6211407/2025/03/17/maple-leafs-report-cards-power-play-offence-flames/
+
 **‘Purpose’ Review: Dinner With the Black Political Elite**\
 `A family not unlike Jesse Jackson’s gets barbecued on Broadway by Branden Jacobs-Jenkins.`\
 https://nytimes.com/2025/03/17/theater/purpose-review.html
