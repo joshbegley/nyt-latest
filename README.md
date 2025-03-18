@@ -1,3 +1,23 @@
+**Pelicot’s Daughter Pursues Conviction That He Raped Her, Too**\
+`Her mother, Gisèle, was at the center of a trial that gripped France and made her a feminist icon. But it left Caroline Darian with her own pains and suspicions unanswered.`\
+https://nytimes.com/2025/03/18/world/europe/gisele-pelicot-daughter-rape-france.html
+
+**It’s Peak Shohei Ohtani on Opening Day in Japan**\
+`The Los Angeles Dodgers star is a marketer’s dream — both a sports icon and national hero in Japan. Ohtani has about 20 active sponsorship deals at any time.`\
+https://nytimes.com/2025/03/18/business/shohei-ohtani-mania-dodgers-japan.html
+
+**Drones Will Do Some Schlepping for Sherpas on Mount Everest**\
+`The devices will be used to airlift heavy, dangerous loads normally carried by mountain guides. They might even deliver a hot meal or two.`\
+https://nytimes.com/2025/03/18/world/asia/mount-everest-drones.html
+
+**From Courtrooms to Crisis Lines, Chinese Officials Embrace DeepSeek**\
+`Government bodies nationwide have been eager to show they are using DeepSeek’s A.I. technology since the company’s founder met with Xi Jinping, China’s leader.`\
+https://nytimes.com/2025/03/18/business/china-government-deepseek.html
+
+**Quote of the Day: In Tokyo, Cubs and Dodgers Can Showcase Their Japanese Stars**\
+`Quotation of the Day for Tuesday, March 18, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/quote-of-the-day-in-tokyo-cubs-and-dodgers-can-showcase-their-japanese-stars.html
+
 **Williams and Wilmore were not initially supposed to be on this flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/williams-and-wilmore-were-not-initially-supposed-to-be-on-this-flight
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes
 **Full Time: The good are still good in NWSL**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6211878/2025/03/17/nwsl-recap-pride-whitham-full-time/
-
-**Map: 3.9-Magnitude Earthquake Strikes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/03/17/us/quake-san-francisco-bay.html
-
-**Maple Leafs report cards: Offence looks potent again as power play ignites**\
-`The Leafs finally put together a convincing win against the Flames with four goals in the second period.`\
-https://nytimes.com/athletic/6211407/2025/03/17/maple-leafs-report-cards-power-play-offence-flames/
-
-**‘Purpose’ Review: Dinner With the Black Political Elite**\
-`A family not unlike Jesse Jackson’s gets barbecued on Broadway by Branden Jacobs-Jenkins.`\
-https://nytimes.com/2025/03/17/theater/purpose-review.html
-
-**Bruins have no help coming. There are good and bad reasons for it**\
-`After selling off five players at the trade deadline, the Bruins have made their bed and must lie in it.`\
-https://nytimes.com/athletic/6211836/2025/03/17/bruins-prospects-minten-poitras-providence-sabres/
-
-**Chelsea Gray, Rose Basketball Club claim first Unrivaled championship**\
-`Guard Brittney Sykes scored a season-high 21 points, including sinking the championship-winning free throw. Forward Azurá Stevens added 19.`\
-https://nytimes.com/athletic/6211724/2025/03/17/unrivaled-rose-basketball-club-championship-takeaways/
 
