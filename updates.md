@@ -1,3 +1,7 @@
+**After a period of relative calm, a wave of strikes jolts Gazans.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
+
 **NCAA president says possible women's tournament expansion would mirror men's**\
 `"If we expand it on one side, we're going to expand it on the other."`\
 https://nytimes.com/athletic/6211749/2025/03/18/ncaa-president-charlie-baker-womens-tournament-expansion/
