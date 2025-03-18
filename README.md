@@ -1,3 +1,15 @@
+**Vance to Lead G.O.P. Fund-Raising, an Apparent First for a Vice President**\
+`Serving as the party’s finance chair heading into the 2026 midterm elections could help him position himself for the 2028 presidential primary race.`\
+https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-2028.html
+
+**Democrats’ Internal Battle Isn’t Over Ideology, but How Hard to Fight Trump**\
+`Leaders in the party appear to have a subtle but fundamental disagreement: Should they oppose President Trump at every turn, or try to find some common ground?`\
+https://nytimes.com/2025/03/18/us/politics/democrats-trump-agenda-policies.html
+
+**D.G. Hessayon, Author of Blockbuster Garden Guides, Dies at 96**\
+`His “Be Your Own House Plant Expert” and other best-selling manuals were a fixture of British life for half a century. Among his many fans was Margaret Thatcher.`\
+https://nytimes.com/2025/03/18/books/david-g-hessayon-dead.html
+
 **Treasury Promotes I.R.S. Agents Who Say Hunter Biden Tax Case Was Stymied**\
 `The two men will help change the culture at the tax collector, the Treasury secretary said.`\
 https://nytimes.com/2025/03/18/us/politics/trump-treasury-irs-agents-hunter-biden-tax-case.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/opinion/schumer-trump-antisemitism.html
 **11 Songs to Keep St. Patrick’s Day Going**\
 `Extend the holiday with tracks from Sinead O’Connor, the Pogues, Kneecap and more.`\
 https://nytimes.com/2025/03/18/arts/music/amplifier-newsletter-st-patricks-day.html
-
-**Putin Agrees to Temporarily Halt Strikes on Ukraine’s Energy Targets, Kremlin Says**\
-`In a call with President Trump, President Vladimir V. Putin agreed to pause strikes on Ukrainian energy infrastructure for 30 days. That falls short of the unconditional cease-fire Ukraine had already agreed to.`\
-https://nytimes.com/2025/03/18/us/politics/trump-putin-call-ukraine-russia-ceasefire.html
-
-**Intimidation, Fear and Silence in the Age of Trump**\
-`Readers lament the self-censorship of public figures who fear retribution from the administration. Also: Remembering Selma; immigrant women; Social Security.`\
-https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html
-
-**Judge Draws Trump’s Ire Over Ruling to Stop Deportation Flights**\
-`President Trump has called for Judge Boasberg to be impeached after he ruled against the administration over the president’s efforts to use a law from 1798 to speed deportations.`\
-https://nytimes.com/2025/03/18/us/politics/judge-boasberg-trump-deportation-flights.html
 
