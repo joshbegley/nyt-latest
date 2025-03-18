@@ -1,3 +1,19 @@
+**Israeli Airstrikes Kill Hundreds of People in Gaza**\
+`More than 400 people were killed in Israeli airstrikes across Gaza on Tuesday, Gaza’s health ministry said. The attacks were the first major strikes on Gaza since Israel and Hamas agreed to a temporary cease-fire in January.`\
+https://nytimes.com/video/world/middleeast/100000010058219/gaza-israeli-strikes.html
+
+**Judge Finds Musk’s Role in Dismantling Aid Agency Likely Violated Constitution**\
+`It appears to be the first time a federal judge has acted to constrain Elon Musk, a top adviser to President Trump. The judge also ordered agency functions be partially restored, though that relief could be temporary.`\
+https://nytimes.com/2025/03/18/us/politics/elon-musk-usaid-doge-unconstitutional.html
+
+**Woman Charged With Murder in Telemundo Reporter’s Death**\
+`Adan Manzano, 27, was in New Orleans to cover the Super Bowl when his body was found in his hotel room.`\
+https://nytimes.com/2025/03/18/us/adan-manzano-telemundo-super-bowl-reporter-murder.html
+
+**Louisiana Plans to Resume Capital Punishment With First Nitrogen Execution**\
+`Jessie Hoffman, 46, is scheduled to be put to death on Tuesday, the first execution in the state since 2010. “Justice will be dispensed,” the governor said.`\
+https://nytimes.com/2025/03/18/us/louisiana-nitrogen-execution-jessie-hoffman-capital-punishment-landry.html
+
 **Eric Adams’s Fund-Raising in Last Two Months Plummets to $19,000**\
 `Mayor Eric Adams’s meager fund-raising total is a strong signal of his campaign’s dormancy.`\
 https://nytimes.com/2025/03/18/nyregion/eric-adams-fundraising-donors.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/18/world/africa/south-africa-antarctica-assault-hara
 **Damian Lillard's Oakland homecoming is a reminder of his final mountain to scale**\
 `Dame's return to the Bay on Tuesday is a token of his familiarity with uphill climbs. With adverse odds. With the allegedly insurmountable.`\
 https://nytimes.com/athletic/6212581/2025/03/18/damian-lillards-oakland-homecoming-is-a-reminder-of-his-final-mountain-to-scale/
-
-**NBA team motivations, player replacements for the fantasy basketball stretch run**\
-`Stan Son looks at each NBA team's current standing and how that might impact playing time for certain players down the stretch.`\
-https://nytimes.com/athletic/6212896/2025/03/18/nba-team-motivations-player-replacements-for-the-fantasy-basketball-stretch-run/
-
-**Elvis, ‘Cats’ and Babe Ruth: Chairman Trump Reimagines the Kennedy Center**\
-`A recording of President Trump’s private remarks at a Kennedy Center board meeting shows that he mused about bestowing honors on dead celebrities and people from outside the arts.`\
-https://nytimes.com/2025/03/18/arts/music/trump-kennedy-center.html
-
-**Donald Trump and Vladimir Putin discuss possibility of future U.S.-Russia hockey games: Report**\
-`The NHL said in a release to The Athletic that it was "not party to" talks between the U.S. and Russian presidents regarding possible games.`\
-https://nytimes.com/athletic/6213594/2025/03/18/donald-trump-vladimir-putin-usa-russia-hockey/
-
-**Judge Orders Education Dept. to Restore Some Grants to Schools**\
-`In an opinion on Tuesday, a federal judge found that suspension of programs aimed at training and supporting educators would have “grave effect on the public.”`\
-https://nytimes.com/2025/03/18/us/politics/trump-education-grants.html
 
