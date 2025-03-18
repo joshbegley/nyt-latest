@@ -1,3 +1,15 @@
+**NCAA president says possible women's tournament expansion would mirror men's**\
+`"If we expand it on one side, we're going to expand it on the other."`\
+https://nytimes.com/athletic/6211749/2025/03/18/ncaa-president-charlie-baker-womens-tournament-expansion/
+
+**Women's basketball is hot as ever but will March Madness still soar without Caitlin Clark?**\
+`What's ESPN expect for viewership? `\
+https://nytimes.com/athletic/6206920/2025/03/18/womens-college-basketball-viewership-post-caitlin-clark/
+
+**Brendan Marks picks every game of the NCAA Tournament: In a mostly chalk event, Duke reigns**\
+`Duke's path to the second weekend is the easiest of the No. 1 seeds — and it's probably the easiest Final Four path, too.`\
+https://nytimes.com/athletic/6210410/2025/03/18/mens-ncaa-tournament-2025-bracket-duke-florida/
+
 **The Pulse: Bracket breakdown and picks Pt. II, plus MLG goes live**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/

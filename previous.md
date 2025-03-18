@@ -1,3 +1,15 @@
+**NCAA president says possible women's tournament expansion would mirror men's**\
+`"If we expand it on one side, we're going to expand it on the other."`\
+https://nytimes.com/athletic/6211749/2025/03/18/ncaa-president-charlie-baker-womens-tournament-expansion/
+
+**Women's basketball is hot as ever but will March Madness still soar without Caitlin Clark?**\
+`What's ESPN expect for viewership? `\
+https://nytimes.com/athletic/6206920/2025/03/18/womens-college-basketball-viewership-post-caitlin-clark/
+
+**Brendan Marks picks every game of the NCAA Tournament: In a mostly chalk event, Duke reigns**\
+`Duke's path to the second weekend is the easiest of the No. 1 seeds — and it's probably the easiest Final Four path, too.`\
+https://nytimes.com/athletic/6210410/2025/03/18/mens-ncaa-tournament-2025-bracket-duke-florida/
+
 **The Pulse: Bracket breakdown and picks Pt. II, plus MLG goes live**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6211832/2025/03/18/japan-baseball-mlb-expansion-bil
 **Can a $340 million stadium buy a seat in college football's future?**\
 `USF is spending more than $340 million on a college football stadium. Is it the Bulls' ticket to the big time in a rapidly shifting sport?`\
 https://nytimes.com/athletic/6204069/2025/03/18/south-florida-football-usf-new-stadium/
-
-**Jordan Palmer wants to change how we evaluate QBs. Kyle McCord is his 2025 NFL Draft test case.**\
-`Palmer is arguably the most respected voice on QBs in the game today, and he believes McCord is going to prove a lot of people wrong.`\
-https://nytimes.com/athletic/6203742/2025/03/18/kyle-mccord-nfl-draft-2025-quarterbacks-sleeper/
-
-**Why isn't the gambling industry betting on women's college basketball?**\
-`Betting on women's basketball saw a Caitlin Clark bump last year, but will more online gambling platforms invest heavily?`\
-https://nytimes.com/athletic/6211017/2025/03/18/womens-college-basketball-gambling-betting/
-
-**Sam Darnold is the NFL's latest rags-to-riches QB. Can he sustain it? Who could be next?**\
-`Reclamation quarterbacks are popular right now, as free agency showed, but it's very rare for QBs to revive their careers and make it last.`\
-https://nytimes.com/athletic/6206047/2025/03/18/sam-darnold-justin-fields-daniel-jones-free-agency/
 
