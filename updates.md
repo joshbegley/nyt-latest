@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman scratched from Opening Day lineup**\
+`Originally, Freeman was slated to play first and hit third in the Dodgers' Opening Day game against the Cubs in Tokyo. `\
+https://nytimes.com/athletic/6212218/2025/03/18/tokyo-series-dodgers-freddie-freeman-scratched-from-lineup/
+
 **Commanders proving they won't get complacent coming off surprising season**\
 `Washington's traded for Deebo Samuel and Laremy Tunsil to bolster the roster and maximize this window with Jayden Daniels on a rookie deal. `\
 https://nytimes.com/athletic/6208884/2025/03/18/commanders-free-agency-super-bowl-window/

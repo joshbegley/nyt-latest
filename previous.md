@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman scratched from Opening Day lineup**\
+`Originally, Freeman was slated to play first and hit third in the Dodgers' Opening Day game against the Cubs in Tokyo. `\
+https://nytimes.com/athletic/6212218/2025/03/18/tokyo-series-dodgers-freddie-freeman-scratched-from-lineup/
+
 **Commanders proving they won't get complacent coming off surprising season**\
 `Washington's traded for Deebo Samuel and Laremy Tunsil to bolster the roster and maximize this window with Jayden Daniels on a rookie deal. `\
 https://nytimes.com/athletic/6208884/2025/03/18/commanders-free-agency-super-bowl-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/opinion/democrats-new-york-subway-crime.html
 **Canadian Who Was in an ‘American Pie’ Video Says ICE Held Her for 12 Days**\
 `Jasmine Mooney, 35, said she was put “in chains” after immigration enforcement officers flagged her visa application paperwork. The former actress was finally allowed to return to Vancouver.`\
 https://nytimes.com/2025/03/18/us/mooney-canadian-american-pie-actress-ice.html
-
-**Nvidia Is Hosting the Super Bowl of A.I.**\
-`The giant chipmaker has transformed its annual developer conference from an academic event into a who’s who gathering for the future of artificial intelligence.`\
-https://nytimes.com/2025/03/18/technology/nvidia-gtc-conference-ai.html
 
