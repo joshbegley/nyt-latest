@@ -1,3 +1,7 @@
+**With Talks Stalled, Israel Puts War Back on the Table**\
+`While Israel has stopped short of a ground invasion for now, its new strikes in Gaza seem to be an effort to force concessions from Hamas.`\
+https://nytimes.com/2025/03/18/world/middleeast/israel-gaza-hamas-war.html
+
 **NASA Astronauts Depart I.S.S.**\
 `Suni Williams and Butch Wilmore are on their way home after an unexpected nine months in space.`\
 https://nytimes.com/video/science/space/100000010057963/nasa-astronauts-return-spacex.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/learning/word-of-the-day-desiccated.html
 **Wilmore and Williams’s stay in space, by the numbers.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/wilmore-and-williamss-stay-in-space-by-the-numbers
-
-**Hurzeler: Brighton international involvement a 'positive' before FA Cup quarter-final**\
-`Joao Pedro, Pervis Estupinan and Diego Gomez are set to be involved in World Cup qualifiers before the FA Cup tie against Nottingham Forest.`\
-https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-break-fa-cup/
 
