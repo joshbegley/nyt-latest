@@ -1,3 +1,11 @@
+**The Chief Justice Rebuked Impeachment Threats**\
+`Also, two astronauts returned after nine unexpected months in space. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/18/briefing/chief-justice-rebuke-putin-trump-call-cease-fire.html
+
+**Patriots sign ex-Vikings center Garrett Bradbury to bolster offensive line**\
+`With Bradbury, the Patriots can keep Cole Strange at guard even if he’s not guaranteed to start. It's a small step in the right direction.`\
+https://nytimes.com/athletic/6213940/2025/03/18/garrett-bradbury-free-agency-signing-2025-patriots/
+
 **Tom Fitzgerald makes emotional pitch to NHL GMs about cut-resistant equipment after son's near-miss**\
 `The Devils GM's son Casey got 25 stitches in his throat area after a skate-blade cut in an AHL game in December.`\
 https://nytimes.com/athletic/6213889/2025/03/18/tom-fitzgerald-nhl-neck-guards/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/technology/trump-ftc-fires-democrats.html
 **Missouri hires Kellie Harper as women's basketball coach**\
 `The new Tigers coach has extensive SEC experience, including leading the Volunteers from 2019 to 2024.`\
 https://nytimes.com/athletic/6214008/2025/03/18/missouri-hires-kellie-harper-basketball-coach/
-
-**Hollywood Filmmaker Charged With $11 Million Conspiracy to Defraud Netflix**\
-`Prosecutors say Carl Erik Rinsch used funds for a science-fiction series for personal investments. An arbitrator last year ruled in Netflix’s favor.`\
-https://nytimes.com/2025/03/18/business/media/netflix-fraud-filmmaker-science-fiction.html
-
-**Anthony Dolan, Speechwriter Who Gave Reagan ‘Evil Empire,’ Dies at 76**\
-`As a conservative presidential speechwriter, he also relegated communism to “the ash heap of history.” Earlier, he won a Pulitzer Prize as a young reporter.`\
-https://nytimes.com/2025/03/18/us/politics/anthony-dolan-dead.html
 
