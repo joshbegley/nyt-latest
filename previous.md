@@ -1,3 +1,11 @@
+**Reds' Andrew Abbott makes spring debut, could be ready to start season on time**\
+`Abbott said he felt like he was locating the ball pretty much where he wanted, even if Carlos Santana tagged him for a two-run double.`\
+https://nytimes.com/athletic/6211952/2025/03/18/reds-andrew-abbott-spring-debut/
+
+**Tuchel's first three months: FaceTime, texts and a visit to the prince**\
+`Twenty-five matches live and many more on television — how the new manager selected his first squad`\
+https://nytimes.com/athletic/6203902/2025/03/18/tuchels-first-three-months-england/
+
 **Pelicot’s Daughter Pursues Conviction That He Raped Her, Too**\
 `Her mother, Gisèle, was at the center of a trial that gripped France and made her a feminist icon. But it left Caroline Darian with her own pains and suspicions unanswered.`\
 https://nytimes.com/2025/03/18/world/europe/gisele-pelicot-daughter-rape-france.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/doge-musk-institute-of-peace.html
 **Blue Jackets end long goal drought, search for silver lining in loss to Devils**\
 `Despite not picking up any points, the Blue Jackets looked much better against the Devils in a 2-1 loss.`\
 https://nytimes.com/athletic/6211805/2025/03/17/blue-jackets-offense-drought-devils/
-
-**Israel Carries Out Deadly Strikes in Gaza**\
-`Prime Minister Benjamin Netanyahu’s office said he had ordered the attack, the first major strikes since the cease-fire with Hamas began roughly two months ago.`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes
-
-**Full Time: The good are still good in NWSL**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6211878/2025/03/17/nwsl-recap-pride-whitham-full-time/
 

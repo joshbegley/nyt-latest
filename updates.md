@@ -1,3 +1,11 @@
+**Reds' Andrew Abbott makes spring debut, could be ready to start season on time**\
+`Abbott said he felt like he was locating the ball pretty much where he wanted, even if Carlos Santana tagged him for a two-run double.`\
+https://nytimes.com/athletic/6211952/2025/03/18/reds-andrew-abbott-spring-debut/
+
+**Tuchel's first three months: FaceTime, texts and a visit to the prince**\
+`Twenty-five matches live and many more on television — how the new manager selected his first squad`\
+https://nytimes.com/athletic/6203902/2025/03/18/tuchels-first-three-months-england/
+
 **Pelicot’s Daughter Pursues Conviction That He Raped Her, Too**\
 `Her mother, Gisèle, was at the center of a trial that gripped France and made her a feminist icon. But it left Caroline Darian with her own pains and suspicions unanswered.`\
 https://nytimes.com/2025/03/18/world/europe/gisele-pelicot-daughter-rape-france.html
