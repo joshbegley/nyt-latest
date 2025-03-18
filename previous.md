@@ -1,3 +1,31 @@
+**Canada Bolsters Arctic Defenses as Trump Sets His Sights North**\
+`As President Trump talks about U.S. dominance of the Arctic, Canada says it will spend billions to defend the region, including buying new radar technology from Australia.`\
+https://nytimes.com/2025/03/18/world/canada/canada-australia-arctic-radar-trump.html
+
+**Trump Administration to Confront Countries With New Tariff ‘Number’**\
+`Treasury Secretary Scott Bessent provided new details into how President Trump will roll out a sweeping and elusive tariff measure planned for April 2.`\
+https://nytimes.com/2025/03/18/us/politics/trump-tariffs.html
+
+**Until Saturday: 68-team college football bracket**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6213363/2025/03/18/68-team-college-football-bracket-until-saturday/
+
+**Here are the 5 best bets to kick off the first days of March Madness action**\
+`Austin Mock's model finds value in five bets so far over the first few days of action. `\
+https://nytimes.com/athletic/6213113/2025/03/18/march-madness-round-one-best-bets-2025/
+
+**De Gaulle Rises as France Sours on Trump’s America**\
+`Charles de Gaulle’s insistence on French power and autonomy is being cited widely in France; one politician demanded that an America on “the side of the tyrants” return the Statue of Liberty.`\
+https://nytimes.com/2025/03/18/world/europe/de-gaulle-france-trump.html
+
+**The U.S. Will ‘Absolutely Not’ Return the Statue of Liberty**\
+`The White House balked at a suggestion by a French politician that the U.S. send the Statue of Liberty back to France after he criticized President Trump’s decision “to side with the tyrants” against Ukraine.`\
+https://nytimes.com/video/us/politics/100000010058565/return-the-statue-of-liberty-to-france.html
+
+**Israeli strikes are fueled by Hamas’s use of the hostages as leverage and Netanyahu’s political priorities, analysts say.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israeli-strikes-are-fueled-by-hamass-use-of-the-hostages-as-leverage-and-netanyahus-political-priorities-analysts-say
+
 **Court Face-Off on Deportations Tests Trump’s Power to ‘Find and Declare’ Facts**\
 `The litigation unleashed by President Trump’s second term, combined with his distortions and lies, is testing the judicial system’s practice of deferring to the executive branch’s determinations about what is true.`\
 https://nytimes.com/2025/03/18/us/politics/trump-deportation-flights.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6212696/2025/03/18/cameron-brink-sparks-male-practi
 **Lackluster Assassins Can’t Outshine the Beauty of Feudal Japan**\
 `The stories of vengeance in Assassin’s Creed Shadows, which follows an African-born samurai and a young shinobi, are less compelling than its vibrant world.`\
 https://nytimes.com/2025/03/18/arts/assassins-creed-shadows-review.html
-
-**The 10 most interesting Notre Dame players as spring practice begins**\
-`Spring football is going to look a lot different for Notre Dame this year. These are the most notable players to watch.`\
-https://nytimes.com/athletic/6213020/2025/03/18/notre-dame-spring-football-intriguing-players/
-
-**Bills offseason tracker: Where will Buffalo's cap space be spent in a pivotal offseason?**\
-`The Bills got a number of important contracts done before free agency opens.`\
-https://nytimes.com/athletic/6184048/2025/03/18/bills-free-agency-offseason-tracker/
-
-**Demigods? Soldiers? Big cats? Which March Madness mascot would win a battle royale?**\
-`Here are the answers to your most pressing questions, like, "Which program would win if March Madness were determined by mascot fights?"`\
-https://nytimes.com/athletic/6159940/2025/03/18/march-madness-bracket-mascot-fight/
-
-**Best tips, strategies for winning your 2025 March Madness pool**\
-`Austin Mock looks at how your strategy for filling out your bracket should vary depending on the size of your pool.`\
-https://nytimes.com/athletic/6212874/2025/03/18/march-madness-2025-best-bracket-tips-strategies/
-
-**Giants sell stake in franchise to private equity firm Sixth Street**\
-`The group has invested in other major sports franchises including Bay FC, the San Antonio Spurs, Real Madrid and FC Barcelona.`\
-https://nytimes.com/athletic/6213181/2025/03/18/giants-partnership-private-equity/
-
-**John A. Hemingway, Last Survivor of the Battle of Britain, Dies at 105**\
-`A fighter pilot in a vastly outnumbered Royal Air Force — one of the “few” hailed by Churchill — he took to the skies to help stave off a Nazi land invasion of Britain.`\
-https://nytimes.com/2025/03/18/world/europe/john-a-hemingway-dead.html
-
-**Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
-`The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
-https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html
 
