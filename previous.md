@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6213513/2025/03/18/wisconsin-badgers-football-sprin
 
 **The Man Behind the Republican Case for Clean Energy**\
 `Representative Andrew Garbarino of New York is at the center of a Republican push to save a key part of former President Joseph R. Biden Jr.’s climate agenda.`\
-https://nytimes.com/2025/03/18/climate/the-republican-case-for-clean-energy.html
+https://nytimes.com/2025/03/18/climate/republicans-clean-energy-andrew-garbarino.html
 
 **Vance to Lead G.O.P. Fund-Raising, an Apparent First for a Vice President**\
 `Serving as the party’s finance chair heading into the 2026 midterm elections could help him position himself for the 2028 presidential primary race.`\

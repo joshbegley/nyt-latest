@@ -1,6 +1,6 @@
 **Federal Housing Agency Braces for Deep Job Cuts**\
 `William Pulte, the new director of the Federal Housing Finance Agency, is consolidating control over Fannie Mae and Freddie Mac and questioning employees’ productivity.`\
-https://nytimes.com/2025/03/18/business/federal-housing-agency-braces-for-deep-job-cuts.html
+https://nytimes.com/2025/03/18/business/trump-doge-federal-housing-agency-cuts.html
 
 **Courtois 'relieved' to explain 2023 Belgium exit with team-mates**\
 `Courtois addressed the “misunderstandings” that followed his exit from the Belgium camp ahead of their Euro 2024 qualifier against Estonia.`\
