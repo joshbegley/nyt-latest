@@ -1,3 +1,7 @@
+**Putin Agrees to Temporarily Halt Strikes on Ukraine’s Energy Targets, Kremlin Says**\
+`In a call with President Trump, President Vladimir V. Putin agreed to pause strikes on Ukrainian energy infrastructure for 30 days. That falls short of the unconditional cease-fire Ukraine had already agreed to.`\
+https://nytimes.com/2025/03/18/us/politics/trump-putin-call-ukraine-russia-ceasefire.html
+
 **Intimidation, Fear and Silence in the Age of Trump**\
 `Readers lament the self-censorship of public figures who fear retribution from the administration. Also: Remembering Selma; immigrant women; Social Security.`\
 https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html

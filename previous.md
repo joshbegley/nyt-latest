@@ -1,3 +1,7 @@
+**Putin Agrees to Temporarily Halt Strikes on Ukraine’s Energy Targets, Kremlin Says**\
+`In a call with President Trump, President Vladimir V. Putin agreed to pause strikes on Ukrainian energy infrastructure for 30 days. That falls short of the unconditional cease-fire Ukraine had already agreed to.`\
+https://nytimes.com/2025/03/18/us/politics/trump-putin-call-ukraine-russia-ceasefire.html
+
 **Intimidation, Fear and Silence in the Age of Trump**\
 `Readers lament the self-censorship of public figures who fear retribution from the administration. Also: Remembering Selma; immigrant women; Social Security.`\
 https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010058565/return-the-statue-of-liber
 **Israeli strikes are fueled by Hamas’s use of the hostages as leverage and Netanyahu’s political priorities, analysts say.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israeli-strikes-are-fueled-by-hamass-use-of-the-hostages-as-leverage-and-netanyahus-political-priorities-analysts-say
-
-**Court Face-Off on Deportations Tests Trump’s Power to ‘Find and Declare’ Facts**\
-`The litigation unleashed by President Trump’s second term, combined with his distortions and lies, is testing the judicial system’s practice of deferring to the executive branch’s determinations about what is true.`\
-https://nytimes.com/2025/03/18/us/politics/trump-deportation-flights.html
 
