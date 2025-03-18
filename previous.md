@@ -6,13 +6,13 @@ https://nytimes.com/athletic/6212227/2025/03/18/mauricio-pochettino-tottenham-re
 `From a spacecraft’s coolant leak to the disintegration of the Soviet Union, astronauts have gotten stuck in space for a variety of reasons over the decades of human spaceflight.`\
 https://nytimes.com/2025/03/18/science/astronauts-stuck-space.html
 
-**A Puffer Jacket as Brilliant as the Sky**\
-`It was both vibrant and vast.`\
-https://nytimes.com/2025/03/18/style/street-style-look-blue-puffer-coat.html
-
 **Pochettino on USMNT: 'In five or 10 years, we can be No 1 in the world'**\
 `The former Spurs, PSG and Chelsea boss spoke about taking charge of the USMNT and their ambitions for the 2026 World Cup`\
 https://nytimes.com/athletic/6203847/2025/03/18/mauricio-pochettino-usmnt-interview/
+
+**A Puffer Jacket as Brilliant as the Sky**\
+`It was both vibrant and vast.`\
+https://nytimes.com/2025/03/18/style/street-style-look-blue-puffer-coat.html
 
 **The NHL's 10 biggest disappointments of 2024-25, from contract mismatches to offensive declines**\
 `The NHL is a harsh, results-focused business, and these players haven't lived up to expectations this season.`\
