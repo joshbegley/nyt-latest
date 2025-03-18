@@ -1,3 +1,7 @@
+**Chelsea Gray, Rose Basketball Club claim first Unrivaled championship**\
+`Guard Brittney Sykes scored a season-high 21 points, including sinking the championship-winning free throw. Forward Azurá Stevens added 19.`\
+https://nytimes.com/athletic/6211724/2025/03/17/unrivaled-rose-basketball-club-championship-takeaways/
+
 **Trump Appoints Michael Flynn, Walt Nauta and Other Allies to Oversee Military Academies**\
 `Among other appointees were Charlie Kirk, Sean Spicer and the daughter of Steve Bannon. President Trump purged several of the military oversight boards last month.`\
 https://nytimes.com/2025/03/17/us/politics/trump-military-academies-flynn-nauta.html
