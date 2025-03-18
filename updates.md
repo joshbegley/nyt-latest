@@ -1,3 +1,16 @@
+**The Pulse: Bracket breakdown and picks Pt. II, plus MLG goes live**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/
+
+**Luxury, Reimagined: The Mise-en-Scène of Marina Bay Sands**\
+`A short film by Celine Song, maker of “Past Lives,” evokes the ambitious transformation and new brand vision of Singapore’s prominent integrated resort.
+`\
+https://nytimes.com/paidpost/marina-bay-sands/luxury-reimagined-the-mise-en-scene-of-marina-bay-sands.html
+
+**After a stretch of relative quiet, Gazans are jolted by a wave of strikes.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
+
 **Ashton Jeanty? Tyler Warren? Five draft thoughts after Bears' moves in free agency**\
 `It's time to look ahead to the NFL Draft after the Bears' moves in free agency. Is the offensive line still a priority?`\
 https://nytimes.com/athletic/6211130/2025/03/18/bears-free-agency-draft-plans/

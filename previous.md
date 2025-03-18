@@ -1,3 +1,16 @@
+**The Pulse: Bracket breakdown and picks Pt. II, plus MLG goes live**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/
+
+**Luxury, Reimagined: The Mise-en-Scène of Marina Bay Sands**\
+`A short film by Celine Song, maker of “Past Lives,” evokes the ambitious transformation and new brand vision of Singapore’s prominent integrated resort.
+`\
+https://nytimes.com/paidpost/marina-bay-sands/luxury-reimagined-the-mise-en-scene-of-marina-bay-sands.html
+
+**After a stretch of relative quiet, Gazans are jolted by a wave of strikes.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
+
 **Ashton Jeanty? Tyler Warren? Five draft thoughts after Bears' moves in free agency**\
 `It's time to look ahead to the NFL Draft after the Bears' moves in free agency. Is the offensive line still a priority?`\
 https://nytimes.com/athletic/6211130/2025/03/18/bears-free-agency-draft-plans/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6211017/2025/03/18/womens-college-basketball-gambli
 **Sam Darnold is the NFL's latest rags-to-riches QB. Can he sustain it? Who could be next?**\
 `Reclamation quarterbacks are popular right now, as free agency showed, but it's very rare for QBs to revive their careers and make it last.`\
 https://nytimes.com/athletic/6206047/2025/03/18/sam-darnold-justin-fields-daniel-jones-free-agency/
-
-**11 coaches who could be stars of this March Madness — and the carousel**\
-`The NCAA Tournament often doubles as a scouting ground for athletic directors trying their luck in college basketball's coaching carousel.`\
-https://nytimes.com/athletic/6210943/2025/03/18/mens-ncaa-tournament-coaches-ryan-odom-ben-mccollum/
-
-**New Michigan OC Chip Lindsey talks position battles as spring practice begins: Takeaways**\
-`Lindsey's plan is to give quarterbacks Bryce Underwood, Mikey Keene and Jadyn Davis equal reps and see which one emerges.`\
-https://nytimes.com/athletic/6211094/2025/03/18/chip-lindsey-michigan-football/
-
-**Bills roster reset: What does a busy free agency period mean for the team moving forward?**\
-`What the Bills' moves say about their plans for 2025 and 2026.`\
-https://nytimes.com/athletic/6210915/2025/03/18/bills-free-agency-roster-nfl-draft/
 
