@@ -1,3 +1,7 @@
+**Parents of Student Missing in the Dominican Republic Believe She Drowned**\
+`The student, Sudiksha Konanki, 20, was on a spring break trip to Punta Cana when she disappeared earlier this month, leading to a massive search effort and an investigation.`\
+https://nytimes.com/2025/03/18/us/sudiksha-konanki-drowned-dominican-republic.html
+
 **R.F.K. Jr. celebrated Trump’s order to declassify the documents.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-kennedy-documents
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/opinion/trump-putin-ukraine.html
 **A third deportation plane left the U.S. after a judge’s order. The Trump administration argues there was no violation.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/03/18/us/trump-president-news/a-third-deportation-plane-left-the-us-after-a-judges-order-the-trump-administration-argues-there-was-no-violation
-
-**Masataka Yoshida likely to open on IL as Red Sox near final roster decisions**\
-`Yoshida has had a solid spring but he has yet to play the field as he continues to work back slowly from shoulder surgery.`\
-https://nytimes.com/athletic/6214116/2025/03/18/red-sox-roster-masataka-yoshida-injured-list/
 

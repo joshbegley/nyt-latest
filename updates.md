@@ -1,3 +1,19 @@
+**R.F.K. Jr. celebrated Trump’s order to declassify the documents.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-kennedy-documents
+
+**Read The Times’s 1963 coverage of the Kennedy assassination.**\
+`By Tom Wicker`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/read-the-timess-1963-coverage-of-the-kennedy-assassination
+
+**Live Updates: New Kennedy Files Are Out, but What’s in Them?**\
+`Expectations are low for major revelations about the killing of John F. Kennedy, but experts are sifting through thousands of pages in search of new details.`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files
+
+**Mahmoud Khalil, in first public remarks, says he is ‘a political prisoner.’**\
+`By Troy Closson`\
+https://nytimes.com/live/2025/03/18/us/trump-president-news/mahmoud-khalil-in-first-public-remarks-says-he-is-a-political-prisoner
+
 **Judge Blocks Policy That Would Expel Transgender Troops**\
 `The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
 https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html

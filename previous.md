@@ -1,3 +1,19 @@
+**R.F.K. Jr. celebrated Trump’s order to declassify the documents.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-kennedy-documents
+
+**Read The Times’s 1963 coverage of the Kennedy assassination.**\
+`By Tom Wicker`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/read-the-timess-1963-coverage-of-the-kennedy-assassination
+
+**Live Updates: New Kennedy Files Are Out, but What’s in Them?**\
+`Expectations are low for major revelations about the killing of John F. Kennedy, but experts are sifting through thousands of pages in search of new details.`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files
+
+**Mahmoud Khalil, in first public remarks, says he is ‘a political prisoner.’**\
+`By Troy Closson`\
+https://nytimes.com/live/2025/03/18/us/trump-president-news/mahmoud-khalil-in-first-public-remarks-says-he-is-a-political-prisoner
+
 **Judge Blocks Policy That Would Expel Transgender Troops**\
 `The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
 https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/03/18/us/trump-president-news/a-third-deportation-
 **Masataka Yoshida likely to open on IL as Red Sox near final roster decisions**\
 `Yoshida has had a solid spring but he has yet to play the field as he continues to work back slowly from shoulder surgery.`\
 https://nytimes.com/athletic/6214116/2025/03/18/red-sox-roster-masataka-yoshida-injured-list/
-
-**Indiana hires West Virginia's Darian DeVries as next basketball coach**\
-`DeVries replaces Mike Woodson, who guided the Hoosiers to only one NCAA Tournament appearance in the last four years.`\
-https://nytimes.com/athletic/6212725/2025/03/18/indiana-basketball-darian-devries/
-
-**What Works for Low Back Pain? Not Much, a New Study Says**\
-`Researchers looked at 56 treatments for acute and chronic pain. Few of them were effective.`\
-https://nytimes.com/2025/03/18/well/lower-back-pain-treatments-nsaids.html
-
-**‘We Finally Got You.’ Immigrant-Rights Advocate Arrested in Colorado.**\
-`Jeanette Vizguerra, who made national news evading deportation in a church basement, is the latest activist to be taken into custody by federal immigration agents.`\
-https://nytimes.com/2025/03/18/us/immigrant-arrest.html
-
-**Two New Mexico Teenagers Are Charged With Murdering a Cyclist**\
-`A 13-year-old intentionally drove a stolen vehicle into a man as he was riding his bike to work last year, killing him, the police said.`\
-https://nytimes.com/2025/03/18/us/albuquerque-police-charge-teenager-murder.html
 
