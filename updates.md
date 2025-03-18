@@ -1,3 +1,15 @@
+**Listen: Have Man City lost their fear factor?**\
+`The Totally Football Show discuss Manchester City's struggles and whether they could miss out on Champions League qualification. `\
+https://nytimes.com/athletic/6210639/2025/03/18/totally-football-show-manchester-city-brighton/
+
+**Timberwolves' clutch time issues resurface dispiriting loss to short-handed Pacers**\
+`Indiana was missing its top six scorers in overtime, but Minnesota once again took a short-handed opponent too lightly.`\
+https://nytimes.com/athletic/6211592/2025/03/18/timberwolves-loss-pacers-clutch/
+
+**Sabres thoughts: Buffalo is showing fight, learning 'what it means to be a teammate'**\
+`The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
+https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
+
 **Weekly Student News Quiz: Education Department, March Madness, Deadly Storms**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/03/18/learning/19StudentNewsQuiz.html
