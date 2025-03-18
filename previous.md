@@ -1,3 +1,7 @@
+**Trump Administration Questions Law Firms Over D.E.I. Employment Practices**\
+`The move by the Equal Employment Opportunity Commission comes as the administration is taking aggressive steps to intimidate law firms.`\
+https://nytimes.com/2025/03/17/us/politics/trump-dei-perkins-coie-law-firms.html
+
 **A Judge Ordered Deportation Planes to Turn Around. The White House Didn’t Listen.**\
 `A New York Times review of flight data showed that at the time of a federal judge’s order, two flights were in the air, and one had not yet taken off.`\
 https://nytimes.com/2025/03/17/us/politics/timeline-trump-deportation-flights-el-salvador.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/03/17/us/oklahoma-wildfires-governor-kevin-stitt-ranch.
 `The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
 https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html
 
-**Trump Nominates Longtime Airlines Executive to Lead F.A.A.**\
+**Trump Nominates Longtime Airline Executive to Lead F.A.A.**\
 `The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
 https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/making-sense-of-doges-cuts.html
 **Fannie Mae and Freddie Mac, mortgage giants, are shaken up by their federal regulator.**\
 `By Matthew Goldstein`\
 https://nytimes.com/live/2025/03/17/us/trump-news/fannie-mae-and-freddie-mac-mortgage-giants-are-shaken-up-by-their-federal-regulator
-
-**ESPN hiring Fox's Artie Kempner as new director of 'Monday Night Football'**\
-`Kempner previously worked with Joe Buck and Troy Aikman, but had been Fox’s No. 2 NFL director, while being their lead on NASCAR.`\
-https://nytimes.com/athletic/6211369/2025/03/17/espn-monday-night-football-fox-director/
 

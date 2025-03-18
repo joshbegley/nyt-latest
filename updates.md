@@ -1,3 +1,11 @@
+**Trump Administration Questions Law Firms Over D.E.I. Employment Practices**\
+`The move by the Equal Employment Opportunity Commission comes as the administration is taking aggressive steps to intimidate law firms.`\
+https://nytimes.com/2025/03/17/us/politics/trump-dei-perkins-coie-law-firms.html
+
+**Trump Nominates Longtime Airline Executive to Lead F.A.A.**\
+`The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
+https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
+
 **A Judge Ordered Deportation Planes to Turn Around. The White House Didn’t Listen.**\
 `A New York Times review of flight data showed that at the time of a federal judge’s order, two flights were in the air, and one had not yet taken off.`\
 https://nytimes.com/2025/03/17/us/politics/timeline-trump-deportation-flights-el-salvador.html
