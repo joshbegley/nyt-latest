@@ -1,3 +1,43 @@
+**Sabres thoughts: Buffalo showing fight, learning 'what it means to be a teammate'**\
+`The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
+https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
+
+**Twins notes: Royce Lewis out for Opening Day, rotation set, surgery for Matt Canterino**\
+`Back in the familiar spot of being without Lewis for an extended period, the Twins have the infield depth to replace him at third base.`\
+https://nytimes.com/athletic/6209658/2025/03/18/royce-lewis-twins-opening-day-roster/
+
+**San Francisco Giants Sell Stake to Private Equity**\
+`One of Major League Baseball’s biggest franchises sells 10 percent of the team to Sixth Street Partners.`\
+https://nytimes.com/2025/03/18/business/dealbook/san-francisco-giants-sell-stake-private-equity-sixth-street.html
+
+**Pick upsets or go with the favorites? Tips for your March Madness 2025 bracket**\
+`If you're looking for advice on how to fill out a bracket, here's a look at the historical trends to keep in mind.`\
+https://nytimes.com/athletic/6192202/2025/03/18/march-madness-2025-bracket-tips-advice-guide/
+
+**Fun, unserious strategies for filling out your March Madness bracket**\
+`There are many ways to fill out a bracket without knowing a thing about basketball and sometimes they work. Here are some of our favorites.`\
+https://nytimes.com/athletic/6185235/2025/03/18/march-madness-unserious-bracket-strategy-2025/
+
+**Our readers' most unforgettable (and scarring) stories from March Madness bracket pools**\
+`Everyone has an unforgettable story around March Madness bracket pools. We polled our readers and staff to collect some of the best.`\
+https://nytimes.com/athletic/6198366/2025/03/18/march-madness-brackets-stories/
+
+**What Marco Kasper's surge means for the Red Wings' present and future at center**\
+`Kasper has been a force since the start of 2025, and could be Detroit's long-term answer at second-line center.`\
+https://nytimes.com/athletic/6210723/2025/03/18/marco-kasper-red-wings-future-center/
+
+**Why winning Nations League is the only acceptable result for Canada**\
+`Canada has spent the last few years celebrating growth but doesn't have a trophy to show for it. The time for that to end is now.`\
+https://nytimes.com/athletic/6210458/2025/03/18/canada-concacaf-nations-league-expectations-marsch-trophy/
+
+**How Rangers' Zac Jones deals with trade noise, plus pickup volleyball stars: Observations**\
+`Jones on being past the deadline: "I’m not stupid. I see my name in mock trades and stuff. I get it. I’ve seen it for the past five years."`\
+https://nytimes.com/athletic/6210819/2025/03/18/zac-jones-trade-noise-rangers-nhl/
+
+**49ers’ pre-draft roster analysis: Which positions need the most work?**\
+`It's not only clear the 49ers must rely heavily on the draft this year, it's clear which positions they must target.`\
+https://nytimes.com/athletic/6210993/2025/03/18/49ers-free-agency-draft-roster-analysis/
+
 **Israel’s government has ‘abandoned the hostages’ by resuming attacks in Gaza, families say.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/israels-government-has-abandoned-the-hostages-by-resuming-attacks-in-gaza-families-say
