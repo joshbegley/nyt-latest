@@ -1,3 +1,15 @@
+**Vance Tries to Bridge a Republican Divide Between Populists and Tech Leaders**\
+`The rift appeared as President Trump won support from high-profile tech industry figures, particularly Elon Musk.`\
+https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-tech.html
+
+**What Is This Continued Carnage in Gaza Achieving?**\
+`With Netanyahu concerned with his own career and the U.S. adding fuel to the fire, we should brace for continued bloodshed that serves no strategic purpose.`\
+https://nytimes.com/2025/03/18/opinion/israel-gaza-airstrikes-ceasefire.html
+
+**Shaw and Fujino to miss Man City's CL clash with Chelsea**\
+`Interim head coach Nick Cushing said the pair both suffered "significant" injuries, with a diagnosis not yet confirmed.`\
+https://nytimes.com/athletic/6212931/2025/03/18/khadija-shaw-aoba-fujino-man-city-injury/
+
 **NIL compensation in recruiting to be permanently allowed by NCAA**\
 `If approved by a judge, the NCAA will stop enforcing rules prohibiting NIL from being used as a recruiting inducement.`\
 https://nytimes.com/athletic/6212822/2025/03/18/name-image-likeness-recruiting-ncaa-compensation/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/well/spring-allergies-symptoms-adults.html
 **Honey Garlic Shrimp, Mine All Mine**\
 `Lidey Heuck’s smart, fast and convenient recipe is exactly what I need to fight these late-winter blahs.`\
 https://nytimes.com/2025/03/18/dining/honey-garlic-shrimp-mine-all-mine.html
-
-**Why Is a Ukrainian Nuclear Plant Suddenly Part of Cease-Fire Talks?**\
-`The U.S. is seeking access to Ukrainian minerals, which require extensive energy to process. The Zaporizhzhia power plant in southern Ukraine, which Russia controls, could help with that, Kyiv says.`\
-https://nytimes.com/2025/03/18/world/europe/ukraine-nuclear-plant-cease-fire-talks.html
-
-**U.K. Aims to Cut Billions in Welfare Amid Budget Crunch**\
-`Changing disability allowances is a particularly contentious move within Prime Minister Keir Starmer’s center-left Labour Party.`\
-https://nytimes.com/2025/03/18/world/europe/uk-welfare-cuts-benefits.html
-
-**The Bounce: Paul George's season-ending news means 76ers are tanking hard for NBA Draft**\
-`Paul George's season-ending procedure has further positioned the 76ers for a timely tank. What's next in Philly?`\
-https://nytimes.com/athletic/6212381/2025/03/18/paul-george-76ers-nba-draft-tank-unrivaled-wnba-nba-the-bounce/
 

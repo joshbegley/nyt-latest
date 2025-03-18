@@ -1,3 +1,15 @@
+**Vance Tries to Bridge a Republican Divide Between Populists and Tech Leaders**\
+`The rift appeared as President Trump won support from high-profile tech industry figures, particularly Elon Musk.`\
+https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-tech.html
+
+**What Is This Continued Carnage in Gaza Achieving?**\
+`With Netanyahu concerned with his own career and the U.S. adding fuel to the fire, we should brace for continued bloodshed that serves no strategic purpose.`\
+https://nytimes.com/2025/03/18/opinion/israel-gaza-airstrikes-ceasefire.html
+
+**Shaw and Fujino to miss Man City's CL clash with Chelsea**\
+`Interim head coach Nick Cushing said the pair both suffered "significant" injuries, with a diagnosis not yet confirmed.`\
+https://nytimes.com/athletic/6212931/2025/03/18/khadija-shaw-aoba-fujino-man-city-injury/
+
 **NIL compensation in recruiting to be permanently allowed by NCAA**\
 `If approved by a judge, the NCAA will stop enforcing rules prohibiting NIL from being used as a recruiting inducement.`\
 https://nytimes.com/athletic/6212822/2025/03/18/name-image-likeness-recruiting-ncaa-compensation/
