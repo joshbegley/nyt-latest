@@ -1,3 +1,11 @@
+**Word of the Day: desiccated**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/18/learning/word-of-the-day-desiccated.html
+
+**Wilmore and Williams’s stay in space, by the numbers.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/wilmore-and-williamss-stay-in-space-by-the-numbers
+
 **Hurzeler: Brighton international involvement a 'positive' before FA Cup quarter-final**\
 `Joao Pedro, Pervis Estupinan and Diego Gomez are set to be involved in World Cup qualifiers before the FA Cup tie against Nottingham Forest.`\
 https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-break-fa-cup/
