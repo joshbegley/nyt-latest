@@ -1,3 +1,7 @@
+**Steph Curry struggles in Warriors' ugly loss to Nuggets: 'He's exhausted'**\
+`Turnovers and poor shooting doomed Golden State against the short-handed Nuggets. But more concerning is the strain Curry's body is showing`\
+https://nytimes.com/athletic/6212063/2025/03/18/steph-curry-warriors-nuggets-loss-tired/
+
 **A trek to Tropicana Field, baseball's haunted house: Blue skies, but no Rays**\
 `As Opening Day nears, we visited the Trop and talked with people who have a connection to this storied, now desolate ballpark. `\
 https://nytimes.com/athletic/6206866/2025/03/18/tropicana-field-tampa-bay-rays-future-ballpark/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6211693/2025/03/18/anthony-hamilton-hug-isack-hadja
 **MLB The Show 25 review: Flexible gameplay, 'Road to Show' option among highlights**\
 `There are plenty of features to keep devoted fans of MLB The Show 25 interested. Here are some takeaways as the game was released Tuesday.`\
 https://nytimes.com/athletic/6211055/2025/03/18/mlb-the-show-25-review-video-game/
-
-**Yankees ‘surprised’ Alex Verdugo remains a free agent**\
-`Verdugo hasn't received a major-league offer since becoming a free agent, according to a league source.`\
-https://nytimes.com/athletic/6211512/2025/03/18/yankees-alex-verdugo-free-agent/
 
