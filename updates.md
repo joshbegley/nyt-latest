@@ -1,3 +1,11 @@
+**Giants sell stake in franchise to private equity firm Sixth Street**\
+`The group has invested in other major sports franchises including Bay FC, the San Antonio Spurs, Real Madrid and FC Barcelona.`\
+https://nytimes.com/athletic/6213181/2025/03/18/giants-partnership-private-equity/
+
+**John A. Hemingway, Last Survivor of the Battle of Britain, Dies at 105**\
+`A fighter pilot in a vastly outnumbered Royal Air Force — one of the “few” hailed by Churchill — he took to the skies to help stave off a Nazi land invasion of Britain.`\
+https://nytimes.com/2025/03/18/world/europe/john-a-hemingway-dead.html
+
 **Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
 `The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
 https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html

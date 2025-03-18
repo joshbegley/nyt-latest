@@ -1,3 +1,11 @@
+**Giants sell stake in franchise to private equity firm Sixth Street**\
+`The group has invested in other major sports franchises including Bay FC, the San Antonio Spurs, Real Madrid and FC Barcelona.`\
+https://nytimes.com/athletic/6213181/2025/03/18/giants-partnership-private-equity/
+
+**John A. Hemingway, Last Survivor of the Battle of Britain, Dies at 105**\
+`A fighter pilot in a vastly outnumbered Royal Air Force — one of the “few” hailed by Churchill — he took to the skies to help stave off a Nazi land invasion of Britain.`\
+https://nytimes.com/2025/03/18/world/europe/john-a-hemingway-dead.html
+
 **Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
 `The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
 https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6211474/2025/03/18/eagles-brandon-graham-retirement
 **Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
 `What is on your mind as the Broncos look toward the NFL Draft?`\
 https://nytimes.com/athletic/6213186/2025/03/18/broncos-mailbag-submissions-kosmider/
-
-**The Windup: One 2025 game in the books**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/6212068/2025/03/18/tokyo-series-game-1-the-windup/
-
-**Tuesday was one of the war’s deadlier days, Gaza officials say.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/tuesday-was-one-of-the-wars-deadlier-days-gaza-officials-say
 
