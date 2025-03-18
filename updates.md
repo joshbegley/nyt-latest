@@ -1,3 +1,15 @@
+**U.S. Foreign Aid Cuts Hit Sudanese Refugees Fleeing Violence and Famine in Darfur**\
+`Just weeks after the U.S. government suspended its work in massive foreign aid cuts announced in January, humanitarians say much of the damage to critical programs has already been done.`\
+https://nytimes.com/2025/03/18/world/africa/trump-foreign-aid-sudan-refugees.html
+
+**These Sudanese Refugees Fled War. Now, Crucial U.S. Aid Is Running Out.**\
+`Sudanese refugees at the Aboutengue Camp in Chad, most of whom are women and children, say they are desperate for help just weeks after the U.S. government announced drastic foreign aid cuts in January.`\
+https://nytimes.com/video/world/africa/100000010056183/trump-foreign-aid-sudan-refugees.html
+
+**Small Plane Crashes Off Caribbean Island in Honduras, Killing 12**\
+`The police said five people had survived the crash off Roatán Island, a tourist destination known for its diving spots.`\
+https://nytimes.com/2025/03/18/world/americas/honduras-plane-crash-roatan.html
+
 **Why the astronauts had to wait an extra month in orbit.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/why-the-astronauts-had-to-wait-an-extra-month-in-orbit
