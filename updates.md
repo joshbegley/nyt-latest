@@ -1,3 +1,11 @@
+**Eriksen expects to leave Man Utd in the summer**\
+`The 33-year-old says he has not received an update about his contract situation. His deal is set to end in June.`\
+https://nytimes.com/athletic/6212649/2025/03/18/christian-eriksen-manchester-united-future/
+
+**Trump Administration Pushes Back Against Judge’s Orders on Deportations**\
+`In asking the judge to dissolve a temporary restraining order on deportation flights, the Justice Department opened another front in its aggressive pushback to his decisions.`\
+https://nytimes.com/2025/03/18/us/politics/trump-venezuela-deportations-doj-court-order.html
+
 **NBA Power Rankings: Rockets rise, and we review the rookies**\
 `With March Madness in full swing, it's time to look at how last year's draft class is impacting (or not) each team in the NBA.`\
 https://nytimes.com/athletic/6212296/2025/03/18/nba-power-rankings-rockets-cavaliers-thunder-lakers/
