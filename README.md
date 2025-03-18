@@ -1,3 +1,11 @@
+**Eriksen expects to leave Man Utd in the summer**\
+`The 33-year-old says he has not received an update about his contract situation. His deal is set to end in June.`\
+https://nytimes.com/athletic/6212649/2025/03/18/christian-eriksen-manchester-united-future/
+
+**Trump Administration Pushes Back Against Judge’s Orders on Deportations**\
+`In asking the judge to dissolve a temporary restraining order on deportation flights, the Justice Department opened another front in its aggressive pushback to his decisions.`\
+https://nytimes.com/2025/03/18/us/politics/trump-venezuela-deportations-doj-court-order.html
+
 **NBA Power Rankings: Rockets rise, and we review the rookies**\
 `With March Madness in full swing, it's time to look at how last year's draft class is impacting (or not) each team in the NBA.`\
 https://nytimes.com/athletic/6212296/2025/03/18/nba-power-rankings-rockets-cavaliers-thunder-lakers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/science/astronauts-stuck-space.html
 **Pochettino on USMNT: 'In five or 10 years, we can be No 1 in the world'**\
 `The former Spurs, PSG and Chelsea boss spoke about taking charge of the USMNT and their ambitions for the 2026 World Cup`\
 https://nytimes.com/athletic/6203847/2025/03/18/mauricio-pochettino-usmnt-interview/
-
-**A Puffer Jacket as Brilliant as the Sky**\
-`It was both vibrant and vast.`\
-https://nytimes.com/2025/03/18/style/street-style-look-blue-puffer-coat.html
-
-**The NHL's 10 biggest disappointments of 2024-25, from contract mismatches to offensive declines**\
-`The NHL is a harsh, results-focused business, and these players haven't lived up to expectations this season.`\
-https://nytimes.com/athletic/6206292/2025/03/18/nhl-players-disappointments-2025-contract-offense/
 
