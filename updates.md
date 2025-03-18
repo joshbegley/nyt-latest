@@ -1,3 +1,15 @@
+**Quote of the Day: In Tokyo, Cubs and Dodgers Can Showcase Their Japanese Stars**\
+`Quotation of the Day for Tuesday, March 18, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/quote-of-the-day-in-tokyo-cubs-and-dodgers-can-showcase-their-japanese-stars.html
+
+**Williams and Wilmore were not initially supposed to be on this flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/williams-and-wilmore-were-not-initially-supposed-to-be-on-this-flight
+
+**At the U.S. Institute of Peace, It’s War When Musk’s Team Arrives**\
+`A bubbling dispute broke into a dramatic standoff that ended with police involvement and the Department of Government Efficiency taking up residence at the independent agency.`\
+https://nytimes.com/2025/03/17/us/politics/doge-musk-institute-of-peace.html
+
 **Blue Jackets end long goal drought, search for silver lining in loss to New Jersey**\
 `Despite not picking up any points, the Blue Jackets looked much better against the Devils in a 2-1 loss.`\
 https://nytimes.com/athletic/6211805/2025/03/17/blue-jackets-offense-drought-devils/

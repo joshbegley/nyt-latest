@@ -1,7 +1,3 @@
-**Quote of the Day: In Tokyo, Cubs and Dodgers Can Showcase Their Japanese Stars**\
-`Quotation of the Day for Tuesday, March 18, 2025.`\
-https://nytimes.com/2025/03/17/pageoneplus/quote-of-the-day-in-tokyo-cubs-and-dodgers-can-showcase-their-japanese-stars.html
-
 **Williams and Wilmore were not initially supposed to be on this flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/williams-and-wilmore-were-not-initially-supposed-to-be-on-this-flight
@@ -10,7 +6,7 @@ https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/willia
 `A bubbling dispute broke into a dramatic standoff that ended with police involvement and the Department of Government Efficiency taking up residence at the independent agency.`\
 https://nytimes.com/2025/03/17/us/politics/doge-musk-institute-of-peace.html
 
-**Blue Jackets end long goal drought, search for silver lining in loss to New Jersey**\
+**Blue Jackets end long goal drought, search for silver lining in loss to Devils**\
 `Despite not picking up any points, the Blue Jackets looked much better against the Devils in a 2-1 loss.`\
 https://nytimes.com/athletic/6211805/2025/03/17/blue-jackets-offense-drought-devils/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2025/03/17/theater/purpose-review.html
 **Bruins have no help coming. There are good and bad reasons for it**\
 `After selling off five players at the trade deadline, the Bruins have made their bed and must lie in it.`\
 https://nytimes.com/athletic/6211836/2025/03/17/bruins-prospects-minten-poitras-providence-sabres/
+
+**Chelsea Gray, Rose Basketball Club claim first Unrivaled championship**\
+`Guard Brittney Sykes scored a season-high 21 points, including sinking the championship-winning free throw. Forward Azurá Stevens added 19.`\
+https://nytimes.com/athletic/6211724/2025/03/17/unrivaled-rose-basketball-club-championship-takeaways/
 
