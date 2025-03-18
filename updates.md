@@ -1,3 +1,11 @@
+**Historians Take Wait-and-See Approach to Latest Kennedy Assassination Documents**\
+`Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
+https://nytimes.com/2025/03/18/us/kennedy-assassination-historians-documents.html
+
+**Parents of Student Missing in the Dominican Republic Believe She Drowned**\
+`The student, Sudiksha Konanki, 20, was on a spring break trip to Punta Cana when she disappeared earlier this month, leading to a massive search effort and an investigation.`\
+https://nytimes.com/2025/03/18/us/sudiksha-konanki-drowned-dominican-republic.html
+
 **R.F.K. Jr. celebrated Trump’s order to declassify the documents.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-kennedy-documents
