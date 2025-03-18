@@ -1,40 +1,40 @@
+**‘Ludwig’ Is Like a Fun British Version of ‘Monk’**\
+`The twisty, serialized mystery stars David Mitchell of “Peep Show,” who plays identical twins, one of whom goes missing.`\
+https://nytimes.com/2025/03/18/arts/television/ludwig-britbox-david-mitchell.html
+
+**What does 9 months in space do to an astronaut’s health?**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-does-9-months-in-space-do-to-an-astronauts-health
+
+**Is the Doggy Bag Dead?**\
+`Restaurateurs in big cities have noticed a somewhat surprising shift in diner behavior.`\
+https://nytimes.com/2025/03/18/dining/restaurant-leftovers.html
+
+**Rebuking Trump, Roberts Calls Impeaching Judges Over Rulings Improper**\
+`The chief justice rarely issues public statements. This one was reminiscent of another in 2018 defending judicial independence after the president criticized a different judge’s ruling.`\
+https://nytimes.com/2025/03/18/us/chief-justice-roberts-impeachment-trump.html
+
+**Egg Prices Have Dropped, Though You May Not Have Noticed**\
+`Wholesale egg prices are about half what they were last month. Fewer bird flu outbreaks and weakened consumer demand are contributing to the decline, economists say.`\
+https://nytimes.com/2025/03/18/business/egg-prices-wholesale.html
+
+**Eagles' Brandon Graham announces retirement after 15 seasons**\
+`Graham finishes his career as the Eagles franchise leader in games played and with the third-most sacks in team history. `\
+https://nytimes.com/athletic/6211474/2025/03/18/eagles-brandon-graham-retirement/
+
+**Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
+`What is on your mind as the Broncos look toward the NFL Draft?`\
+https://nytimes.com/athletic/6213186/2025/03/18/broncos-mailbag-submissions-kosmider/
+
+**The Windup: One 2025 game in the books**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6212068/2025/03/18/tokyo-series-game-1-the-windup/
+
+**Tuesday was one of the war’s deadlier days, Gaza officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/tuesday-was-one-of-the-wars-deadlier-days-gaza-officials-say
+
 **Confidant Brings Fine Dining to Industry City**\
 `The restaurant, from alums of Roberta’s, focuses on aged seafood and meat, Howoo brings another barbecue take to Midtown and more restaurant news.`\
 https://nytimes.com/2025/03/18/dining/nyc-restaurant-news.html
-
-**18cards**\
-`Text by Ayesha Siddiqa and Jessica Testa`\
-https://nytimes.com/card/2025/03/18/climate/httpswwwgooglecoin
-
-**Jericho Sims has surgery to repair torn ligament. How will the Bucks fill his minutes?**\
-`With Bobby Portis suspended, Sims has been the Bucks' third big man for 15 minutes per game. Now they need to replace him.`\
-https://nytimes.com/athletic/6211674/2025/03/18/bucks-jericho-sims-surgery/
-
-**Hamas Does Not Respond to Renewed Israeli Attack**\
-`“Hamas doesn’t want an escalation, but it will not surrender,” said one Palestinian analyst close to the militant group, which has been weakened by a 15-month war with Israel.`\
-https://nytimes.com/2025/03/18/world/middleeast/hamas-israel-gaza-attack.html
-
-**Vance Tries to Bridge a Republican Divide Between Populists and Tech Leaders**\
-`The rift appeared as President Trump won support from high-profile tech industry figures, particularly Elon Musk.`\
-https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-tech.html
-
-**What Is This Continued Carnage in Gaza Achieving?**\
-`With Netanyahu concerned with his own career and the U.S. adding fuel to the fire, we should brace for continued bloodshed that serves no strategic purpose.`\
-https://nytimes.com/2025/03/18/opinion/israel-gaza-airstrikes-ceasefire.html
-
-**Shaw and Fujino to miss Man City's CL clash with Chelsea**\
-`Interim head coach Nick Cushing said the pair both suffered "significant" injuries, with a diagnosis not yet confirmed.`\
-https://nytimes.com/athletic/6212931/2025/03/18/khadija-shaw-aoba-fujino-man-city-injury/
-
-**NIL compensation in recruiting to be permanently allowed by NCAA**\
-`If approved by a judge, the NCAA will stop enforcing rules prohibiting NIL from being used as a recruiting inducement.`\
-https://nytimes.com/athletic/6212822/2025/03/18/name-image-likeness-recruiting-ncaa-compensation/
-
-**With errors and walks, Cubs uncharacteristically sloppy in Tokyo Series season-opening loss**\
-`The Cubs are supposed to field the ball well and avoid issuing walks. You wouldn't know it by the way they played in their season opener.`\
-https://nytimes.com/athletic/6212754/2025/03/18/cubs-sloppy-season-opening-loss-tokyo/
-
-**For Tina Louise, Escape, Finally, From ‘Gilligan’s Island’**\
-`Ms. Louise would prefer to not to talk about Ginger, her breathy sitcom character from the 1960s. Luckily, to the children she tutors, she’s just Ms. Tina.`\
-https://nytimes.com/2025/03/18/nyregion/tina-louise-gilligans-island.html
 
