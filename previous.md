@@ -1,3 +1,7 @@
+**What Works for Low Back Pain? Not Much, a New Study Says**\
+`Researchers looked at 56 treatments for acute and chronic pain. Few of them were effective.`\
+https://nytimes.com/2025/03/18/well/lower-back-pain-treatments-nsaids.html
+
 **‘We Finally Got You.’ Immigrant-Rights Advocate Arrested in Colorado.**\
 `Jeanette Vizguerra, who made national news evading deportation in a church basement, is the latest activist to be taken into custody by federal immigration agents.`\
 https://nytimes.com/2025/03/18/us/immigrant-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/us/minnesota-lawmakerunderage-prostitute-police.h
 **Injured Robinson, Cardoso, Trusty withdraw from USMNT roster**\
 `The USMNT face Panama in the Concacaf Nations League semifinal at SoFi Stadium in Los Angeles on March 20.`\
 https://nytimes.com/athletic/6213847/2025/03/18/usmnt-roster-nations-league-robinson-cardoso-trusty-injuries/
-
-**Son of Jair Bolsonaro Says He Will Seek Political Asylum in the U.S.**\
-`Eduardo Bolsonaro, a son of Brazil’s former president, said he planned to stay in the United States, claiming persecution back home.`\
-https://nytimes.com/2025/03/18/world/americas/jair-bolsonaro-son-us-asylum.html
 

@@ -1,3 +1,7 @@
+**What Works for Low Back Pain? Not Much, a New Study Says**\
+`Researchers looked at 56 treatments for acute and chronic pain. Few of them were effective.`\
+https://nytimes.com/2025/03/18/well/lower-back-pain-treatments-nsaids.html
+
 **‘We Finally Got You.’ Immigrant-Rights Advocate Arrested in Colorado.**\
 `Jeanette Vizguerra, who made national news evading deportation in a church basement, is the latest activist to be taken into custody by federal immigration agents.`\
 https://nytimes.com/2025/03/18/us/immigrant-arrest.html
