@@ -1,3 +1,15 @@
+**Blue Jackets end long goal drought, search for silver lining in loss to New Jersey**\
+`Despite not picking up any points, the Blue Jackets looked much better against the Devils in a 2-1 loss.`\
+https://nytimes.com/athletic/6211805/2025/03/17/blue-jackets-offense-drought-devils/
+
+**Israel Carries Out Deadly Strikes in Gaza**\
+`Prime Minister Benjamin Netanyahu’s office said he had ordered the attack, the first major strikes since the cease-fire with Hamas began roughly two months ago.`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes
+
+**Full Time: The good are still good in NWSL**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6211878/2025/03/17/nwsl-recap-pride-whitham-full-time/
+
 **Map: 3.9-Magnitude Earthquake Strikes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/03/17/us/quake-san-francisco-bay.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/17/us/politics/trump-military-academies-flynn-nauta.
 **Trump Administration Aims to Eliminate E.P.A.’s Scientific Research Arm**\
 `More than 1,000 chemists, biologists and other scientists could be laid off under a plan to dismantle the Office of Research and Development.`\
 https://nytimes.com/2025/03/17/climate/trump-eliminates-epa-science.html
-
-**Butch Wilmore and Suni Williams are veteran NASA astronauts.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/butch-wilmore-suni-williams-nasa-astronauts
-
-**Talking Sheer Nonsense**\
-`Larry Snyder and Jonathan Kaufman make their collaboration debut.`\
-https://nytimes.com/2025/03/17/crosswords/daily-puzzle-2025-03-18.html
-
-**Elon Musk’s Starlink Expands Across White House Complex**\
-`Trump administration officials said the company donated the internet service, saying the gift had been vetted by the lawyer overseeing ethics issues in the White House Counsel’s Office.`\
-https://nytimes.com/2025/03/17/us/politics/elon-musk-starlink-white-house.html
 
