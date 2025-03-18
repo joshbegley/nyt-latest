@@ -1,3 +1,7 @@
+**Trump Nominates Longtime Airlines Executive to Lead F.A.A.**\
+`The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
+https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
+
 **Man Charged in Theft of Judy Garland’s Ruby Slippers Dies**\
 `Jerry Hal Saliterman’s case had been pending in federal court. A judge dismissed the charges against him on Monday.`\
 https://nytimes.com/2025/03/17/us/jerry-saliterman-ruby-slippers.html
