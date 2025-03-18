@@ -1,3 +1,11 @@
+**The Chief Justice Rebuked Impeachment Threats**\
+`Also, two astronauts returned after nine unexpected months in space. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/18/briefing/chief-justice-rebuke-putin-trump-call-cease-fire.html
+
+**Patriots sign ex-Vikings center Garrett Bradbury to bolster offensive line**\
+`With Bradbury, the Patriots can keep Cole Strange at guard even if he’s not guaranteed to start. It's a small step in the right direction.`\
+https://nytimes.com/athletic/6213940/2025/03/18/garrett-bradbury-free-agency-signing-2025-patriots/
+
 **Tom Fitzgerald makes emotional pitch to NHL GMs about cut-resistant equipment after son's near-miss**\
 `The Devils GM's son Casey got 25 stitches in his throat area after a skate-blade cut in an AHL game in December.`\
 https://nytimes.com/athletic/6213889/2025/03/18/tom-fitzgerald-nhl-neck-guards/
