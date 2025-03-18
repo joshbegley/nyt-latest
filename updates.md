@@ -1,3 +1,7 @@
+**Trump Pulls Secret Service Protection From Hunter and Ashley Biden**\
+`The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
+https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html
+
 **Eagles agree to extension with Lane Johnson, land free agent Azeez Ojulari**\
 `Johnson, who is a six-time Pro Bowl and five-time All-Pro selection, is now under contract through the 2027 season. `\
 https://nytimes.com/athletic/6211302/2025/03/17/eagles-lane-johnson-azeez-ojulari/
