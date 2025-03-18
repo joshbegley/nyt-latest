@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6211815/2025/03/18/shedeur-sanders-big-12-pro-day/
 `Peter Keating and Jordan Brenner look to the East Region for upset potential. BYU vs. VCU is the one to watch.`\
 https://nytimes.com/athletic/6211426/2025/03/18/march-madness-upsets-east-region-2025/
 
-**The strikes came as talks to end the war in Gaza had run into a major obstacle.**\
+**The strikes came as talks to end the war in Gaza had run into trouble.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/the-strikes-came-as-talks-to-end-the-war-in-gaza-had-run-into-a-major-obstacle
 

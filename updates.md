@@ -1,3 +1,11 @@
+**Canucks roadmap to the 2025 playoffs: What does Vancouver need to be a postseason team?**\
+`What does the Canucks outlasting their competition and qualifying for the playoffs a second straight time look like?`\
+https://nytimes.com/athletic/6199688/2025/03/18/canucks-stanley-cup-playoffs-2025/
+
+**Pistons regroup to rout Pelicans on road: 'This group has a grit to it'**\
+`The Pistons improved to 38-31 after beating the Pelicans by a huge 46-point margin in New Orleans.`\
+https://nytimes.com/athletic/6212521/2025/03/18/pistons-beat-pelicans-road-simone-fontecchio/
+
 **Eriksen expects to leave Man Utd in the summer**\
 `The 33-year-old says he has not received an update about his contract situation. His deal is set to end in June.`\
 https://nytimes.com/athletic/6212649/2025/03/18/christian-eriksen-manchester-united-future/
