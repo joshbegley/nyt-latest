@@ -1,3 +1,15 @@
+**Hollywood Filmmaker Charged With $11 Million Conspiracy to Defraud Netflix**\
+`Prosecutors say Carl Erik Rinsch used funds for a science-fiction series for personal investments. An arbitrator last year ruled in Netflix’s favor.`\
+https://nytimes.com/2025/03/18/business/media/netflix-fraud-filmmaker-science-fiction.html
+
+**Anthony Dolan, Speechwriter Who Gave Reagan ‘Evil Empire,’ Dies at 76**\
+`As a conservative presidential speechwriter, he also relegated communism to “the ash heap of history.” Earlier, he won a Pulitzer Prize as a young reporter.`\
+https://nytimes.com/2025/03/18/us/politics/anthony-dolan-dead.html
+
+**Wednesday Briefing: Russia Agreed to Halt Some Strikes**\
+`Plus, Ohtani’s star power in Japan.`\
+https://nytimes.com/2025/03/18/briefing/putin-cease-fire-israel-strikes-trump-supreme-court.html
+
 **The astronauts will return to Earth enveloped in hot plasma.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/the-astronauts-will-return-to-earth-enveloped-in-hot-plasma
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/us/louisiana-nitrogen-execution-jessie-hoffman-ca
 **Eric Adams’s Fund-Raising in Last Two Months Plummets to $19,000**\
 `Mayor Eric Adams’s meager fund-raising total is a strong signal of his campaign’s dormancy.`\
 https://nytimes.com/2025/03/18/nyregion/eric-adams-fundraising-donors.html
-
-**U.N. Security Council convenes an emergency session on the Israeli strikes.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/un-security-council-convenes-an-emergency-session-on-the-israeli-strikes
-
-**Heat Today: Miami can't buy a win but must 'stay the course'**\
-`Miami is on its longest losing streak in nearly 20 years. What are a few things the Heat must do to improve their luck?`\
-https://nytimes.com/athletic/6212679/2025/03/18/erik-spoelstra-heat-losing-streak-nba/
-
-**What bringing the astronauts home will cost NASA.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-bringing-the-astronauts-home-will-cost-nasa
 
