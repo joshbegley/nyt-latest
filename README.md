@@ -1,3 +1,7 @@
+**Here’s What to Know About the Kennedy Files, Past and Present**\
+`About 99 percent of the government documents related to President John F. Kennedy’s assassination have long been available to the public under a 1992 law.`\
+https://nytimes.com/2025/03/18/us/kennedy-assassination-files-history.html
+
 **Historians Take Wait-and-See Approach to Latest Kennedy Assassination Documents**\
 `Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
 https://nytimes.com/2025/03/18/us/kennedy-assassination-historians-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/us/smugglers-guilty-migrants-texas.html
 **DOGE Reverses Move That Made Its Claims Nearly Impossible to Check**\
 `After getting called out, Elon Musk’s cost-cutting group reinstated details about the grants that it canceled.`\
 https://nytimes.com/2025/03/18/us/politics/doge-federal-grants-identifying-information.html
-
-**I Don’t Believe a Single Word Trump and Putin Say About Ukraine**\
-`There are too many unanswered questions that raise suspicions.`\
-https://nytimes.com/2025/03/18/opinion/trump-putin-ukraine.html
 
