@@ -1,8 +1,12 @@
+**NBA team motivations, player replacements for the fantasy basketball stretch run**\
+`Stan Son looks at each NBA team's current standing and how that might impact playing time for certain players down the stretch.`\
+https://nytimes.com/athletic/6212896/2025/03/18/nba-team-motivations-player-replacements-for-the-fantasy-basketball-stretch-run/
+
 **Elvis, ‘Cats’ and Babe Ruth: Chairman Trump Reimagines the Kennedy Center**\
 `A recording of President Trump’s private remarks at a Kennedy Center board meeting shows that he mused about bestowing honors on dead celebrities and people from outside the arts.`\
 https://nytimes.com/2025/03/18/arts/music/trump-kennedy-center.html
 
-**Donald Trump and Vladimir Putin discuss possibility of future U.S.-Russia hockey games**\
+**Donald Trump and Vladimir Putin discuss possibility of future U.S.-Russia hockey games: Report**\
 `The NHL said in a release to The Athletic that it was "not party to" talks between the U.S. and Russian presidents regarding possible games.`\
 https://nytimes.com/athletic/6213594/2025/03/18/donald-trump-vladimir-putin-usa-russia-hockey/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212621/2025/03/18/brandon-graham-eagles-retirement
 **12 Killed in Plane Crash Near Mainland Honduras**\
 `A small passenger plane carrying 15 passengers and two crew members crashed seconds after taking off from the Caribbean island of Roatán on Monday, killing 12 people.`\
 https://nytimes.com/video/world/americas/100000010059112/honduras-plane-crash.html
-
-**Federal Housing Agency Braces for Deep Job Cuts**\
-`William Pulte, the new director of the Federal Housing Finance Agency, is consolidating control over Fannie Mae and Freddie Mac and questioning employees’ productivity.`\
-https://nytimes.com/2025/03/18/business/trump-doge-federal-housing-agency-cuts.html
 
