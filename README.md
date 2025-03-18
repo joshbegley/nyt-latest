@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
 `Back in the familiar spot of being without Lewis for an extended period, the Twins have the infield depth to replace him at third base.`\
 https://nytimes.com/athletic/6209658/2025/03/18/royce-lewis-twins-opening-day-roster/
 
-**San Francisco Giants Sell Minority Stake to Private Equity**\
+**San Francisco Giants Sell Stake to Private Equity**\
 `One of Major League Baseball’s biggest franchises sells 10 percent of the team to Sixth Street Partners.`\
 https://nytimes.com/2025/03/18/business/dealbook/san-francisco-giants-sell-stake-private-equity-sixth-street.html
 
