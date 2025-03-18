@@ -1,3 +1,15 @@
+**Commanders proving they won't get complacent coming off surprising season**\
+`Washington's traded for Deebo Samuel and Laremy Tunsil to bolster the roster and maximize this window with Jayden Daniels on a rookie deal. `\
+https://nytimes.com/athletic/6208884/2025/03/18/commanders-free-agency-super-bowl-window/
+
+**Joe Burrow, Bengals delete Carson Palmer timeline, set new standard for franchise QB power**\
+`Big new deals for Ja'Marr Chase and Tee Higgins show Cincinnati's new QB1 has far more influence than the No. 1 pick of the past.`\
+https://nytimes.com/athletic/6211682/2025/03/18/joe-burrow-bengals-franchise-qb-power/
+
+**The New York Times International Edition in Print for Wednesday, March 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/18/todays-new-york-times-international-edition
+
 **Trump and Putin to Hold Call About Ukraine: What to Know**\
 `The call will be the first known conversation between the two leaders since Ukraine agreed to support a U.S.-backed monthlong cease-fire, as long as Russia does the same`\
 https://nytimes.com/2025/03/18/world/europe/trump-putin-call-ukraine-russia-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/us/mooney-canadian-american-pie-actress-ice.html
 **Nvidia Is Hosting the Super Bowl of A.I.**\
 `The giant chipmaker has transformed its annual developer conference from an academic event into a who’s who gathering for the future of artificial intelligence.`\
 https://nytimes.com/2025/03/18/technology/nvidia-gtc-conference-ai.html
-
-**Russia Escalated Sabotage to Pressure U.S. and Allies on Ukraine, Study Says**\
-`Anger at Russia’s covert efforts, which included targeting undersea cables, warehouses and railways, has the potential to influence European reactions to the U.S.-led push for an end to the war.`\
-https://nytimes.com/2025/03/18/us/politics/russia-sabotage-attacks-europe-ukraine.html
-
-**Democrats Need to Face Why Trump Won**\
-`The Democratic pollster David Shor walks through what voter data reveals about the 2024 election — and how the American electorate is shifting.`\
-https://nytimes.com/2025/03/18/opinion/ezra-klein-podcast-david-shor.html
-
-**One Small Way Alan Simpson Helped Change History**\
-`A softball question and he was out.`\
-https://nytimes.com/2025/03/18/opinion/supreme-court-abortion-alan-simpson.html
 
