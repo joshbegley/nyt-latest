@@ -1,3 +1,15 @@
+**The Unlikely Friendship That Saved a Dive Bar**\
+`When Lucy’s, a homey New York tavern, closed down and underwent a renovation, some longtime patrons feared the worst.`\
+https://nytimes.com/2025/03/18/style/the-unlikely-friendship-that-saved-a-dive-bar.html
+
+**Burn: I'm not coming in to England squad to be a 'cheerleader'**\
+`Burn received his first England call-up on Friday as Tuchel leads his new side into World Cup qualifiers against Albania and Latvia.`\
+https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-newcastle/
+
+**E.U. Hatches a Plan to Lure Investors Back to Europe**\
+`Each year, Europeans invest roughly $325 billion in companies and financial assets outside the region. Officials in Brussels say they have a plan to end that “capital flight.”`\
+https://nytimes.com/2025/03/18/business/dealbook/europe-investment-savings.html
+
 **Matas Buzelis turning heads around the league: Bulls rookie 'has a huge upside'**\
 `The Bulls, with the help of their 6-foot-10 rookie, have won five out of their last six games, including Monday's road victory against Utah.`\
 https://nytimes.com/athletic/6212106/2025/03/18/matas-buzelis-bulls-rookie-upside/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/18/nyregion/adams-china-campaign-corruption.html
 **NWSL's Denver expansion team announces stadium plans to open in 2028**\
 `The proposal is being hailed as one of the first purpose-built sports and entertainment districts for a professional women's sports team.`\
 https://nytimes.com/athletic/6211498/2025/03/18/nwsls-denver-expansion-team-stadium-plans-2028/
-
-**Penguins, Sidney Crosby return to Stockholm for Global Series: 'It's hardcore'**\
-`The Penguins return to Europe for the first time since 2008 with a pair of games against the Nashville Predators.`\
-https://nytimes.com/athletic/6210796/2025/03/18/nhl-global-series-penguins-stockholm-crosby/
-
-**Hamilton's Ferrari honeymoon isn't over yet, but the growing pains have started**\
-`The Australian Grand Prix wasn't what Hamilton and his new team had hoped for. This will take a bit of time to get right.`\
-https://nytimes.com/athletic/6211374/2025/03/18/lewis-hamilton-ferrari-f1-growing-pains/
-
-**'A broken system': Tennis players' association calls governing bodies a 'cartel' in lawsuit**\
-`Djokovic declined to be named in the suit, which accuses tennis' governing bodies and the Grand Slams of ‘abusing their power.’`\
-https://nytimes.com/athletic/6210341/2025/03/18/tennis-lawsuit-antitrust-atp-wta-novak-djokovic/
 
