@@ -1,3 +1,7 @@
+**Small Plane Crashes Off Caribbean Island in Honduras, Killing 12**\
+`The police said five people had survived the crash off Roatán Island, a tourist destination known for its diving spots.`\
+https://nytimes.com/2025/03/18/world/americas/honduras-plane-crash-roatan.html
+
 **Why the astronauts had to wait an extra month in orbit.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/why-the-astronauts-had-to-wait-an-extra-month-in-orbit
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/nyregion/nadine-menendez-trial.html
 **Trump Cuts Imperil Cancer, Diabetes and Pediatric Research at Columbia**\
 `Dozens of medical and scientific studies are ending or at risk of ending, leaving researchers scrambling to find alternative funding.`\
 https://nytimes.com/2025/03/18/nyregion/columbia-research-grants-trump.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/18/crosswords/spelling-bee-forum.html
 
