@@ -1,3 +1,7 @@
+**Federal Housing Agency Braces for Deep Job Cuts**\
+`William Pulte, the new director of the Federal Housing Finance Agency, is consolidating control over Fannie Mae and Freddie Mac and questioning employees’ productivity.`\
+https://nytimes.com/2025/03/18/business/trump-doge-federal-housing-agency-cuts.html
+
 **The Man Behind the Republican Case for Clean Energy**\
 `Representative Andrew Garbarino of New York is at the center of a Republican push to save a key part of former President Joseph R. Biden Jr.’s climate agenda.`\
 https://nytimes.com/2025/03/18/climate/republicans-clean-energy-andrew-garbarino.html
