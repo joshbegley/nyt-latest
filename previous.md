@@ -1,3 +1,11 @@
+**NIL compensation in recruiting to be permanently allowed by NCAA**\
+`If approved by a judge, the NCAA will stop enforcing rules prohibiting NIL from being used as a recruiting inducement.`\
+https://nytimes.com/athletic/6212822/2025/03/18/name-image-likeness-recruiting-ncaa-compensation/
+
+**With errors and walks, Cubs uncharacteristically sloppy in Tokyo Series season-opening loss**\
+`The Cubs are supposed to field the ball well and avoid issuing walks. You wouldn't know it by the way they played in their season opener.`\
+https://nytimes.com/athletic/6212754/2025/03/18/cubs-sloppy-season-opening-loss-tokyo/
+
 **For Tina Louise, Escape, Finally, From ‘Gilligan’s Island’**\
 `Ms. Louise would prefer to not to talk about Ginger, her breathy sitcom character from the 1960s. Luckily, to the children she tutors, she’s just Ms. Tina.`\
 https://nytimes.com/2025/03/18/nyregion/tina-louise-gilligans-island.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/world/europe/uk-welfare-cuts-benefits.html
 **The Bounce: Paul George's season-ending news means 76ers are tanking hard for NBA Draft**\
 `Paul George's season-ending procedure has further positioned the 76ers for a timely tank. What's next in Philly?`\
 https://nytimes.com/athletic/6212381/2025/03/18/paul-george-76ers-nba-draft-tank-unrivaled-wnba-nba-the-bounce/
-
-**Inside the Canucks' deadline decisions, and looking ahead to the offseason: Catching up with Patrik Allvin**\
-`The Canucks GM explains to The Athletic why he held onto pending UFA Brock Boeser and gives an early look at the team's summer priorities.`\
-https://nytimes.com/athletic/6212690/2025/03/18/canucks-trade-deadline-offseason/
-
-**UK Athletics, former World Championships chief plead not guilty over Paralympian’s death**\
-`UK Athletics and the former head of sport for the World Paralympic Athletics Championships have pleaded not guilty to all charges relating to the death of Paralympian Abdullah Hayayei.`\
-https://nytimes.com/athletic/6212350/2025/03/18/abdullah-hayayei-paralympian-court-case/
 

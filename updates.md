@@ -1,3 +1,11 @@
+**NIL compensation in recruiting to be permanently allowed by NCAA**\
+`If approved by a judge, the NCAA will stop enforcing rules prohibiting NIL from being used as a recruiting inducement.`\
+https://nytimes.com/athletic/6212822/2025/03/18/name-image-likeness-recruiting-ncaa-compensation/
+
+**With errors and walks, Cubs uncharacteristically sloppy in Tokyo Series season-opening loss**\
+`The Cubs are supposed to field the ball well and avoid issuing walks. You wouldn't know it by the way they played in their season opener.`\
+https://nytimes.com/athletic/6212754/2025/03/18/cubs-sloppy-season-opening-loss-tokyo/
+
 **For Tina Louise, Escape, Finally, From ‘Gilligan’s Island’**\
 `Ms. Louise would prefer to not to talk about Ginger, her breathy sitcom character from the 1960s. Luckily, to the children she tutors, she’s just Ms. Tina.`\
 https://nytimes.com/2025/03/18/nyregion/tina-louise-gilligans-island.html
