@@ -1,3 +1,7 @@
+**2025 Men's NCAA Tournament: Breaking down upset picks in the Midwest**\
+`The Midwest features one of the biggest potential upsets for the 2025 bracket, though not necessarily the most likely.`\
+https://nytimes.com/athletic/6212636/2025/03/18/march-madness-upsets-midwest-region-2025/
+
 **Tracy Morgan sickness courtside delays Heat-Knicks game for over 10 minutes**\
 `Morgan covered his face with a towel as he was wheeled off, covering what appeared to be a nosebleed.`\
 https://nytimes.com/athletic/6212647/2025/03/18/tracy-morgan-knicks-heat-delay/

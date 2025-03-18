@@ -1,3 +1,7 @@
+**2025 Men's NCAA Tournament: Breaking down upset picks in the Midwest**\
+`The Midwest features one of the biggest potential upsets for the 2025 bracket, though not necessarily the most likely.`\
+https://nytimes.com/athletic/6212636/2025/03/18/march-madness-upsets-midwest-region-2025/
+
 **Tracy Morgan sickness courtside delays Heat-Knicks game for over 10 minutes**\
 `Morgan covered his face with a towel as he was wheeled off, covering what appeared to be a nosebleed.`\
 https://nytimes.com/athletic/6212647/2025/03/18/tracy-morgan-knicks-heat-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212521/2025/03/18/pistons-beat-pelicans-road-simon
 **Eriksen expects to leave Man Utd in the summer**\
 `The 33-year-old says he has not received an update about his contract situation. His deal is set to end in June.`\
 https://nytimes.com/athletic/6212649/2025/03/18/christian-eriksen-manchester-united-future/
-
-**Trump Administration Pushes Back Against Judge’s Orders on Deportations**\
-`In asking the judge to dissolve a temporary restraining order on deportation flights, the Justice Department opened another front in its aggressive pushback to his decisions.`\
-https://nytimes.com/2025/03/18/us/politics/trump-venezuela-deportations-doj-court-order.html
 
