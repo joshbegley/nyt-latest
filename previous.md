@@ -1,3 +1,7 @@
+**Hamas Does Not Respond to Renewed Israeli Attack**\
+`“Hamas doesn’t want an escalation, but it will not surrender,” said one Palestinian analyst close to the militant group, which has been weakened by a 15-month war with Israel.`\
+https://nytimes.com/2025/03/18/world/middleeast/hamas-israel-gaza-attack.html
+
 **Vance Tries to Bridge a Republican Divide Between Populists and Tech Leaders**\
 `The rift appeared as President Trump won support from high-profile tech industry figures, particularly Elon Musk.`\
 https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-tech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6211775/2025/03/18/mls-all-star-game-2025-liga-mx-a
 **Yes, Adults Can Develop Seasonal Allergies**\
 `After sidestepping symptoms for years, the sneezing and runny nose can come for you. Here’s why.`\
 https://nytimes.com/2025/03/18/well/spring-allergies-symptoms-adults.html
-
-**Honey Garlic Shrimp, Mine All Mine**\
-`Lidey Heuck’s smart, fast and convenient recipe is exactly what I need to fight these late-winter blahs.`\
-https://nytimes.com/2025/03/18/dining/honey-garlic-shrimp-mine-all-mine.html
 

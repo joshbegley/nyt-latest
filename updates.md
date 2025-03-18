@@ -1,3 +1,7 @@
+**Hamas Does Not Respond to Renewed Israeli Attack**\
+`“Hamas doesn’t want an escalation, but it will not surrender,” said one Palestinian analyst close to the militant group, which has been weakened by a 15-month war with Israel.`\
+https://nytimes.com/2025/03/18/world/middleeast/hamas-israel-gaza-attack.html
+
 **Vance Tries to Bridge a Republican Divide Between Populists and Tech Leaders**\
 `The rift appeared as President Trump won support from high-profile tech industry figures, particularly Elon Musk.`\
 https://nytimes.com/2025/03/18/us/politics/jd-vance-republicans-tech.html
