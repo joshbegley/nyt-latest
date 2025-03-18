@@ -1,3 +1,11 @@
+**Judge Blocks Policy That Would Expel Transgender Troops**\
+`The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
+https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html
+
+**Smugglers Found Guilty Three Years After 53 Migrants Died in Texas**\
+`The San Antonio trial brought into focus the deadly perils of human trafficking as President Trump cuts off safer routes into the country and targets the traffickers.`\
+https://nytimes.com/2025/03/18/us/smugglers-guilty-migrants-texas.html
+
 **DOGE Reverses Move That Made Its Claims Nearly Impossible to Check**\
 `After getting called out, Elon Musk’s cost-cutting group reinstated details about the grants that it canceled.`\
 https://nytimes.com/2025/03/18/us/politics/doge-federal-grants-identifying-information.html
