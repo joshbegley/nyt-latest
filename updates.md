@@ -1,3 +1,11 @@
+**Australia’s first openly gay male footballer Cavallo receives ‘death threats daily’**\
+`Cavallo came out as gay in October 2021, becoming the only openly gay male top-flight professional player at the time.`\
+https://nytimes.com/athletic/6212262/2025/03/18/josh-cavallo-australia-death-threats/
+
+**The Deportation Rationale**\
+`We cover President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/03/18/briefing/president-trump-immigration-crackdown.html
+
 **After a period of relative calm, a wave of strikes jolts Gazans.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
