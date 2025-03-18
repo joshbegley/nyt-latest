@@ -1,3 +1,15 @@
+**The astronauts will return to Earth enveloped in hot plasma.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/the-astronauts-will-return-to-earth-enveloped-in-hot-plasma
+
+**Browns release new details for proposed stadium in Brook Park**\
+`The team is planning to build a domed stadium in Brook Park as its lease with the city of Cleveland expires at the end of the 2028 season. `\
+https://nytimes.com/athletic/6213879/2025/03/18/browns-proposed-stadium-brook-park/
+
+**Musk’s Role in Dismantling Aid Agency Likely Violated Constitution, Judge Finds**\
+`It appears to be the first time a federal judge has acted to constrain Elon Musk, a top adviser to President Trump. The judge also ordered agency functions be partially restored, though that relief could be temporary.`\
+https://nytimes.com/2025/03/18/us/politics/elon-musk-usaid-doge-unconstitutional.html
+
 **Israeli Airstrikes Kill Hundreds of People in Gaza**\
 `More than 400 people were killed in Israeli airstrikes across Gaza on Tuesday, Gaza’s health ministry said. The attacks were the first major strikes on Gaza since Israel and Hamas agreed to a temporary cease-fire in January.`\
 https://nytimes.com/video/world/middleeast/100000010058219/gaza-israeli-strikes.html
