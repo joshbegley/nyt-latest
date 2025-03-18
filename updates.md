@@ -1,3 +1,7 @@
+**Trump and Putin to Hold Call About Ukraine: What to Know**\
+`The call will be the first known conversation between the two leaders since Ukraine agreed to support a U.S.-backed monthlong cease-fire, as long as Russia does the same`\
+https://nytimes.com/2025/03/18/world/europe/trump-putin-call-ukraine-russia-war.html
+
 **Patriots mock draft: How did free agency change New England's plans?**\
 `Left tackle and wide receiver remain huge needs for the Patriots, so how can they address them early in the NFL Draft?`\
 https://nytimes.com/athletic/6210019/2025/03/18/patriots-mock-draft-nfl-free-agency/
