@@ -1,3 +1,19 @@
+**Heat Today: Miami can't buy a win but must 'stay the course'**\
+`Miami is on its longest losing streak in nearly 20 years. What are a few things the Heat must do to improve their luck?`\
+https://nytimes.com/athletic/6212679/2025/03/18/erik-spoelstra-heat-losing-streak-nba/
+
+**What bringing the astronauts home will cost NASA.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-bringing-the-astronauts-home-will-cost-nasa
+
+**South Africa Will Not Remove Antarctic Team After a Reported Assault**\
+`A researcher at a South African base in Antarctica has been accused of physical assault and sexual harassment. South Africa said it had no immediate plans to remove the accused or any colleagues.`\
+https://nytimes.com/2025/03/18/world/africa/south-africa-antarctica-assault-harassment.html
+
+**Damian Lillard's Oakland homecoming is a reminder of his final mountain to scale**\
+`Dame's return to the Bay on Tuesday is a token of his familiarity with uphill climbs. With adverse odds. With the allegedly insurmountable.`\
+https://nytimes.com/athletic/6212581/2025/03/18/damian-lillards-oakland-homecoming-is-a-reminder-of-his-final-mountain-to-scale/
+
 **NBA team motivations, player replacements for the fantasy basketball stretch run**\
 `Stan Son looks at each NBA team's current standing and how that might impact playing time for certain players down the stretch.`\
 https://nytimes.com/athletic/6212896/2025/03/18/nba-team-motivations-player-replacements-for-the-fantasy-basketball-stretch-run/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/18/world/middleeast/israel-strikes-gaza-cease-fire-h
 **Farmers Have Fair Trade Complaints, but Tariffs Are a Bigger Worry**\
 `When the U.S. trade representative asked for examples of unfair trade, agriculture interests had plenty, but also politely warned about what a trade war could do to them.`\
 https://nytimes.com/2025/03/18/business/trump-tariffs-farmers-agriculture.html
-
-**Vikings sign former Lions CB, 2020 No. 3 draft pick Jeff Okudah**\
-`The Vikings agreed to terms with Okudah, 26, a 6-1, 205-pound cornerback known for his physicality. He'll provide depth in the secondary.`\
-https://nytimes.com/athletic/6213603/2025/03/18/jeff-okudah-free-agency-signing-2025-vikings/
-
-**At Forever 21, the Adrenaline Rush Was the Point**\
-`Anything the fast-fashion retailer lacked in cool or quality it made up for with the thrill of the hunt for the right thing — or something close enough.`\
-https://nytimes.com/2025/03/18/style/forever-21-files-for-bankruptcy.html
-
-**From 'bust' to boom, Brandon Graham leaves a lasting legacy in retirement**\
-`Once called a bust, Graham calls it a career after 15 years and two Super Bowl rings.`\
-https://nytimes.com/athletic/6212621/2025/03/18/brandon-graham-eagles-retirement-bust-boom/
-
-**12 Killed in Plane Crash Near Mainland Honduras**\
-`A small passenger plane carrying 15 passengers and two crew members crashed seconds after taking off from the Caribbean island of Roatán on Monday, killing 12 people.`\
-https://nytimes.com/video/world/americas/100000010059112/honduras-plane-crash.html
 
