@@ -1,3 +1,7 @@
+**Bruins have no help coming. There are good and bad reasons for it**\
+`After selling off five players at the trade deadline, the Bruins have made their bed and must lay in it.`\
+https://nytimes.com/athletic/6211836/2025/03/17/bruins-prospects-minten-poitras-providence-sabres/
+
 **Chelsea Gray, Rose Basketball Club claim first Unrivaled championship**\
 `Guard Brittney Sykes scored a season-high 21 points, including sinking the championship-winning free throw. Forward Azurá Stevens added 19.`\
 https://nytimes.com/athletic/6211724/2025/03/17/unrivaled-rose-basketball-club-championship-takeaways/
