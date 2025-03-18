@@ -1,3 +1,7 @@
+**Rockets storm back from 25-point deficit to snag OT victory vs. 76ers**\
+`Houston struggled to maintain Sixers guard Quentin Grimes, who scored a career-high 46 points, but still claimed its seventh straight win.`\
+https://nytimes.com/athletic/6211926/2025/03/18/rockets-76ers-overtime-score-result/
+
 **Reds' Andrew Abbott makes spring debut, could be ready to start season on time**\
 `Abbott said he felt like he was locating the ball pretty much where he wanted, even if Carlos Santana tagged him for a two-run double.`\
 https://nytimes.com/athletic/6211952/2025/03/18/reds-andrew-abbott-spring-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/willia
 **At the U.S. Institute of Peace, It’s War When Musk’s Team Arrives**\
 `A bubbling dispute broke into a dramatic standoff that ended with police involvement and the Department of Government Efficiency taking up residence at the independent agency.`\
 https://nytimes.com/2025/03/17/us/politics/doge-musk-institute-of-peace.html
-
-**Blue Jackets end long goal drought, search for silver lining in loss to Devils**\
-`Despite not picking up any points, the Blue Jackets looked much better against the Devils in a 2-1 loss.`\
-https://nytimes.com/athletic/6211805/2025/03/17/blue-jackets-offense-drought-devils/
 
