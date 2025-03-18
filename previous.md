@@ -22,7 +22,7 @@ https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-d
 `Restaurateurs in big cities have noticed a somewhat surprising shift in diner behavior.`\
 https://nytimes.com/2025/03/18/dining/restaurant-leftovers.html
 
-**Rebuking Trump, Roberts Calls Impeaching Judges Over Rulings Improper**\
+**Rebuking Talk From Trump, Roberts Calls Impeaching Judges Over Rulings Improper**\
 `The chief justice rarely issues public statements. This one was reminiscent of another in 2018 defending judicial independence after the president criticized a different judge’s ruling.`\
 https://nytimes.com/2025/03/18/us/chief-justice-roberts-impeachment-trump.html
 

@@ -1,3 +1,7 @@
+**Rebuking Talk From Trump, Roberts Calls Impeaching Judges Over Rulings Improper**\
+`The chief justice rarely issues public statements. This one was reminiscent of another in 2018 defending judicial independence after the president criticized a different judge’s ruling.`\
+https://nytimes.com/2025/03/18/us/chief-justice-roberts-impeachment-trump.html
+
 **Giants sell stake in franchise to private equity firm Sixth Street**\
 `The group has invested in other major sports franchises including Bay FC, the San Antonio Spurs, Real Madrid and FC Barcelona.`\
 https://nytimes.com/athletic/6213181/2025/03/18/giants-partnership-private-equity/
