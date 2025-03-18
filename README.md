@@ -1,3 +1,11 @@
+**Judge Blocks Policy That Would Expel Transgender Troops**\
+`The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
+https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html
+
+**Smugglers Found Guilty Three Years After 53 Migrants Died in Texas**\
+`The San Antonio trial brought into focus the deadly perils of human trafficking as President Trump cuts off safer routes into the country and targets the traffickers.`\
+https://nytimes.com/2025/03/18/us/smugglers-guilty-migrants-texas.html
+
 **DOGE Reverses Move That Made Its Claims Nearly Impossible to Check**\
 `After getting called out, Elon Musk’s cost-cutting group reinstated details about the grants that it canceled.`\
 https://nytimes.com/2025/03/18/us/politics/doge-federal-grants-identifying-information.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/us/immigrant-arrest.html
 **Two New Mexico Teenagers Are Charged With Murdering a Cyclist**\
 `A 13-year-old intentionally drove a stolen vehicle into a man as he was riding his bike to work last year, killing him, the police said.`\
 https://nytimes.com/2025/03/18/us/albuquerque-police-charge-teenager-murder.html
-
-**What happens to the astronauts right after they return to Earth.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-to-the-astronauts-right-after-they-return-to-earth
-
-**The Chief Justice Rebuked Impeachment Threats**\
-`Also, two astronauts returned after nine unexpected months in space. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/03/18/briefing/chief-justice-rebuke-putin-trump-call-cease-fire.html
 
