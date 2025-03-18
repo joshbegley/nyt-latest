@@ -1,3 +1,7 @@
+**Corrections: March 18, 2025**\
+`Corrections that appeared in print on Tuesday, March 18, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
+
 **Pelicans forward Trey Murphy exits game vs. Pistons due to shoulder injury**\
 `New Orleans announced that X-rays on Murphy's shoulder came back negative.`\
 https://nytimes.com/athletic/6211667/2025/03/17/pelicans-trey-murphy-shoulder-injury/

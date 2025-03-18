@@ -1,3 +1,7 @@
+**Corrections: March 18, 2025**\
+`Corrections that appeared in print on Tuesday, March 18, 2025.`\
+https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
+
 **Pelicans forward Trey Murphy exits game vs. Pistons due to shoulder injury**\
 `New Orleans announced that X-rays on Murphy's shoulder came back negative.`\
 https://nytimes.com/athletic/6211667/2025/03/17/pelicans-trey-murphy-shoulder-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/us/oklahoma-wildfires-governor-kevin-stitt-ranch.
 **Trump Pulls Secret Service Protection From Hunter and Ashley Biden**\
 `The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
 https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html
-
-**Trump Nominates Longtime Airline Executive to Lead F.A.A.**\
-`The agency faces an air traffic controller shortage and the need to upgrade outdated systems that are critical to its operations.`\
-https://nytimes.com/2025/03/17/us/politics/bryan-bedford-faa-trump.html
 
