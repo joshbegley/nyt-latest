@@ -1,3 +1,7 @@
+**Chelsea Gray, Rose Basketball Club claim first Unrivaled championship**\
+`Guard Brittney Sykes scored a season-high 21 points, including sinking the championship-winning free throw. Forward Azurá Stevens added 19.`\
+https://nytimes.com/athletic/6211724/2025/03/17/unrivaled-rose-basketball-club-championship-takeaways/
+
 **Trump Appoints Michael Flynn, Walt Nauta and Other Allies to Oversee Military Academies**\
 `Among other appointees were Charlie Kirk, Sean Spicer and the daughter of Steve Bannon. President Trump purged several of the military oversight boards last month.`\
 https://nytimes.com/2025/03/17/us/politics/trump-military-academies-flynn-nauta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6211667/2025/03/17/pelicans-trey-murphy-shoulder-in
 **Israel Carries Out ‘Extensive Strikes’ in Gaza, Imperiling Cease-Fire Deal**\
 `Prime Minister Benjamin Netanyahu’s office said he had ordered the attack early Tuesday, saying Israel would “act against Hamas with increasing military strength.”`\
 https://nytimes.com/2025/03/17/world/middleeast/israel-gaza-airstrikes.html
-
-**Now boarding: A NASA mission to bring astronauts home.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/now-boarding-a-nasa-mission-to-bring-astronauts-home
 
