@@ -1,3 +1,7 @@
+**Deni Avdija thriving for Trail Blazers after last summer's 'very hard' trade from Wizards**\
+`In a sign of how thoroughly the Wizards' roster has been transformed, only seven of Avdija’s former teammates remain on the roster.`\
+https://nytimes.com/athletic/6212140/2025/03/18/deni-avdija-wizards-trail-blazers-trade/
+
 **Sabres thoughts: Buffalo showing fight, learning 'what it means to be a teammate'**\
 `The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
 https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/

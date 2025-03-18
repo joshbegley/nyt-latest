@@ -1,3 +1,7 @@
+**Deni Avdija thriving for Trail Blazers after last summer's 'very hard' trade from Wizards**\
+`In a sign of how thoroughly the Wizards' roster has been transformed, only seven of Avdija’s former teammates remain on the roster.`\
+https://nytimes.com/athletic/6212140/2025/03/18/deni-avdija-wizards-trail-blazers-trade/
+
 **Sabres thoughts: Buffalo showing fight, learning 'what it means to be a teammate'**\
 `The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
 https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210458/2025/03/18/canada-concacaf-nations-league-e
 **How Rangers' Zac Jones deals with trade noise, plus pickup volleyball stars: Observations**\
 `Jones on being past the deadline: "I’m not stupid. I see my name in mock trades and stuff. I get it. I’ve seen it for the past five years."`\
 https://nytimes.com/athletic/6210819/2025/03/18/zac-jones-trade-noise-rangers-nhl/
-
-**49ers’ pre-draft roster analysis: Which positions need the most work?**\
-`It's not only clear the 49ers must rely heavily on the draft this year, it's clear which positions they must target.`\
-https://nytimes.com/athletic/6210993/2025/03/18/49ers-free-agency-draft-roster-analysis/
 
