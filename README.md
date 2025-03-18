@@ -1,3 +1,11 @@
+**Word of the Day: desiccated**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/18/learning/word-of-the-day-desiccated.html
+
+**Wilmore and Williams’s stay in space, by the numbers.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/wilmore-and-williamss-stay-in-space-by-the-numbers
+
 **Hurzeler: Brighton international involvement a 'positive' before FA Cup quarter-final**\
 `Joao Pedro, Pervis Estupinan and Diego Gomez are set to be involved in World Cup qualifiers before the FA Cup tie against Nottingham Forest.`\
 https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-break-fa-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6209510/2025/03/18/why-liverpool-are-running-out-of
 **Obi Toppin hits late 3 to push short-handed Pacers past Wolves in overtime**\
 `Toppin converted that 3-pointer — a silencer that solidified a 132-130 overtime victory at Target Center in Minneapolis.`\
 https://nytimes.com/athletic/6211964/2025/03/18/pacers-timberwolves-winning-streak-overtime-thriller/
-
-**Howe's influence, PIF ambitions and summer spending: What next for Newcastle after Wembley win?**\
-`Will Eddie Howe's influence grow after Newcastle's Carabao Cup win? Will PIF change strategy? What does it mean for summer transfer plans?`\
-https://nytimes.com/athletic/6209220/2025/03/18/newcastle-trophy-what-comes-next/
-
-**Why Hidetoshi Nakata, face of the 2002 World Cup, retired at 29: 'I’m not a fan of football'**\
-`The midfielder became a global star and earned moves to Italy and England but has never regretted his decision to stop playing`\
-https://nytimes.com/athletic/6171097/2025/03/18/hidetoshi-nakata-interview/
 
