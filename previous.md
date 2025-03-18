@@ -1,40 +1,40 @@
-**Dodgers' Freddie Freeman scratched from Opening Day lineup**\
-`Originally, Freeman was slated to play first and hit third in the Dodgers' Opening Day game against the Cubs in Tokyo. `\
-https://nytimes.com/athletic/6212218/2025/03/18/tokyo-series-dodgers-freddie-freeman-scratched-from-lineup/
+**Ashton Jeanty? Tyler Warren? Five draft thoughts after Bears' moves in free agency**\
+`It's time to look ahead to the NFL Draft after the Bears' moves in free agency. Is the offensive line still a priority?`\
+https://nytimes.com/athletic/6211130/2025/03/18/bears-free-agency-draft-plans/
 
-**Commanders proving they won't get complacent coming off surprising season**\
-`Washington's traded for Deebo Samuel and Laremy Tunsil to bolster the roster and maximize this window with Jayden Daniels on a rookie deal. `\
-https://nytimes.com/athletic/6208884/2025/03/18/commanders-free-agency-super-bowl-window/
+**Vikings QB conundrum: If not Aaron Rodgers, who will Minnesota pair with J.J. McCarthy?**\
+`We examine several other experienced QB options that would make sense if the Vikings decided not to go down the Rodgers path.`\
+https://nytimes.com/athletic/6210967/2025/03/18/vikings-quarterback-aaron-rodgers-jj-mccarthy/
 
-**Joe Burrow, Bengals delete Carson Palmer timeline, set new standard for franchise QB power**\
-`Big new deals for Ja'Marr Chase and Tee Higgins show Cincinnati's new QB1 has far more influence than the No. 1 pick of the past.`\
-https://nytimes.com/athletic/6211682/2025/03/18/joe-burrow-bengals-franchise-qb-power/
+**MLB wants Japan to cheer for more than the Dodgers and Ohtani. The prize could be billions**\
+`If MLB can get Japan to follow all its teams, “We do believe there are payoffs in the B’s: billions,” commissioner Rob Manfred said.`\
+https://nytimes.com/athletic/6211832/2025/03/18/japan-baseball-mlb-expansion-billions/
 
-**The New York Times International Edition in Print for Wednesday, March 19, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/18/todays-new-york-times-international-edition
+**Can a $340 million stadium buy a seat in college football's future?**\
+`USF is spending more than $340 million on a college football stadium. Is it the Bulls' ticket to the big time in a rapidly shifting sport?`\
+https://nytimes.com/athletic/6204069/2025/03/18/south-florida-football-usf-new-stadium/
 
-**Trump and Putin to Hold Call About Ukraine: What to Know**\
-`The call will be the first known conversation between the two leaders since Ukraine agreed to support a U.S.-backed monthlong cease-fire, as long as Russia does the same`\
-https://nytimes.com/2025/03/18/world/europe/trump-putin-call-ukraine-russia-war.html
+**Jordan Palmer wants to change how we evaluate QBs. Kyle McCord is his 2025 NFL Draft test case.**\
+`Palmer is arguably the most respected voice on QBs in the game today, and he believes McCord is going to prove a lot of people wrong.`\
+https://nytimes.com/athletic/6203742/2025/03/18/kyle-mccord-nfl-draft-2025-quarterbacks-sleeper/
 
-**Patriots mock draft: How did free agency change New England's plans?**\
-`Left tackle and wide receiver remain huge needs for the Patriots, so how can they address them early in the NFL Draft?`\
-https://nytimes.com/athletic/6210019/2025/03/18/patriots-mock-draft-nfl-free-agency/
+**Why isn't the gambling industry betting on women's college basketball?**\
+`Betting on women's basketball saw a Caitlin Clark bump last year, but will more online gambling platforms invest heavily?`\
+https://nytimes.com/athletic/6211017/2025/03/18/womens-college-basketball-gambling-betting/
 
-**Hong Kong Piles on to Beijing’s Growing Criticism of Panama Canal Deal**\
-`The city’s chief executive said a deal between the Hong Kong conglomerate CK Hutchison and BlackRock, a major American investment firm, requires “serious attention.”`\
-https://nytimes.com/2025/03/18/business/hong-kong-panama-canal-ck-hutchison.html
+**Sam Darnold is the NFL's latest rags-to-riches QB. Can he sustain it? Who could be next?**\
+`Reclamation quarterbacks are popular right now, as free agency showed, but it's very rare for QBs to revive their careers and make it last.`\
+https://nytimes.com/athletic/6206047/2025/03/18/sam-darnold-justin-fields-daniel-jones-free-agency/
 
-**It May Not Be Brainwashing, but It’s Not Democracy, Either**\
-`How the federal government became “an outdated software system that must be replaced.”`\
-https://nytimes.com/2025/03/18/opinion/andreessen-musk-trump-silicon-valley.html
+**11 coaches who could be stars of this March Madness — and the carousel**\
+`The NCAA Tournament often doubles as a scouting ground for athletic directors trying their luck in college basketball's coaching carousel.`\
+https://nytimes.com/athletic/6210943/2025/03/18/mens-ncaa-tournament-coaches-ryan-odom-ben-mccollum/
 
-**Why the Obvious Can Be Game-Changing for Democrats**\
-`Andrew Cuomo’s ideas for fighting subway crime plan aren’t new, but that doesn’t matter.`\
-https://nytimes.com/2025/03/18/opinion/democrats-new-york-subway-crime.html
+**New Michigan OC Chip Lindsey talks position battles as spring practice begins: Takeaways**\
+`Lindsey's plan is to give quarterbacks Bryce Underwood, Mikey Keene and Jadyn Davis equal reps and see which one emerges.`\
+https://nytimes.com/athletic/6211094/2025/03/18/chip-lindsey-michigan-football/
 
-**Canadian Who Was in an ‘American Pie’ Video Says ICE Held Her for 12 Days**\
-`Jasmine Mooney, 35, said she was put “in chains” after immigration enforcement officers flagged her visa application paperwork. The former actress was finally allowed to return to Vancouver.`\
-https://nytimes.com/2025/03/18/us/mooney-canadian-american-pie-actress-ice.html
+**Bills roster reset: What does a busy free agency period mean for the team moving forward?**\
+`What the Bills' moves say about their plans for 2025 and 2026.`\
+https://nytimes.com/athletic/6210915/2025/03/18/bills-free-agency-roster-nfl-draft/
 
