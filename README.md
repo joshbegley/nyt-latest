@@ -1,8 +1,24 @@
+**UK Athletics, former World Championships chief plead not guilty over Paralympian’s death**\
+`UK Athletics and the former head of sport for the World Paralympic Athletics Championships have pleaded not guilty to all charges relating to the death of Paralympian Abdullah Hayayei.`\
+https://nytimes.com/athletic/6212350/2025/03/18/abdullah-hayayei-paralympian-court-case/
+
+**Edison’s Power Lines Were Under Strain 14 Hours Before Eaton Fire**\
+`New data suggests there were faults on Southern California Edison’s transmission lines early on Jan. 7 before the fire started that evening.`\
+https://nytimes.com/2025/03/18/business/energy-environment/socal-edison-eaton-fire.html
+
+**Oxford branded 'slimy' and 'desperate' amid Boat Race eligibility row**\
+`"This is a desperate ploy from Oxford to gain an upper hand in the most slimy way," said former Cambridge rower Imogen Grant.`\
+https://nytimes.com/athletic/6212742/2025/03/18/boat-race-cambridge-oxford-rowing-eligibility/
+
+**NASA’s ex-chief says he never discussed a rescue mission with SpaceX, contradicting Musk.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/nasas-ex-chief-says-he-never-discussed-a-rescue-mission-with-spacex-contradicting-musk
+
 **The Unlikely Friendship That Saved a Dive Bar**\
 `When Lucy’s, a homey New York tavern, closed down and underwent a renovation, some longtime patrons feared the worst.`\
 https://nytimes.com/2025/03/18/style/the-unlikely-friendship-that-saved-a-dive-bar.html
 
-**Burn: I'm not coming in to England squad to be a 'cheerleader'**\
+**Burn: I'm not coming into England squad to be a 'cheerleader'**\
 `Burn received his first England call-up on Friday as Tuchel leads his new side into World Cup qualifiers against Albania and Latvia.`\
 https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-newcastle/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6212745/2025/03/18/dodgers-freddie-freeman-rib-inju
 **The NBA MVP race is going down to the wire. Don't look away**\
 `Before you lock into an MVP choice, watch every game Joker and SGA play. You won't want to miss it.`\
 https://nytimes.com/athletic/6212179/2025/03/18/nba-mvp-odds-nikola-jokic-shai-gilgeous-alexander/
-
-**2025 Men's NCAA Tournament: Breaking down upset picks in the Midwest**\
-`The Midwest features one of the biggest potential upsets for the 2025 bracket, though not necessarily the most likely.`\
-https://nytimes.com/athletic/6212636/2025/03/18/march-madness-upsets-midwest-region-2025/
-
-**Tracy Morgan sickness courtside delays Heat-Knicks game for over 10 minutes**\
-`Morgan covered his face with a towel as he was wheeled off, covering what appeared to be a nosebleed.`\
-https://nytimes.com/athletic/6212647/2025/03/18/tracy-morgan-knicks-heat-delay/
-
-**Adams’s Associates Under Federal Investigation Over Ties to China**\
-`The Justice Department is pushing to drop corruption charges against Eric Adams in Manhattan while federal authorities in Brooklyn have been investigating his top fund-raisers.`\
-https://nytimes.com/2025/03/18/nyregion/adams-china-campaign-corruption.html
-
-**NWSL's Denver expansion team announces stadium plans to open in 2028**\
-`The proposal is being hailed as one of the first purpose-built sports and entertainment districts for a professional women's sports team.`\
-https://nytimes.com/athletic/6211498/2025/03/18/nwsls-denver-expansion-team-stadium-plans-2028/
 

@@ -1,3 +1,27 @@
+**The Unlikely Friendship That Saved a Dive Bar**\
+`When Lucy’s, a homey New York tavern, closed down and underwent a renovation, some longtime patrons feared the worst.`\
+https://nytimes.com/2025/03/18/style/the-unlikely-friendship-that-saved-a-dive-bar.html
+
+**Burn: I'm not coming in to England squad to be a 'cheerleader'**\
+`Burn received his first England call-up on Friday as Tuchel leads his new side into World Cup qualifiers against Albania and Latvia.`\
+https://nytimes.com/athletic/6212686/2025/03/18/dan-burn-thomas-tuchel-england-newcastle/
+
+**E.U. Hatches a Plan to Lure Investors Back to Europe**\
+`Each year, Europeans invest roughly $325 billion in companies and financial assets outside the region. Officials in Brussels say they have a plan to end that “capital flight.”`\
+https://nytimes.com/2025/03/18/business/dealbook/europe-investment-savings.html
+
+**Matas Buzelis turning heads around the league: Bulls rookie 'has a huge upside'**\
+`The Bulls, with the help of their 6-foot-10 rookie, have won five out of their last six games, including Monday's road victory against Utah.`\
+https://nytimes.com/athletic/6212106/2025/03/18/matas-buzelis-bulls-rookie-upside/
+
+**Dodgers' Freddie Freeman day to day for second game of Tokyo Series**\
+`The veteran first baseman gives himself a '75 percent chance' of playing in the second game of the series on Wednesday.`\
+https://nytimes.com/athletic/6212745/2025/03/18/dodgers-freddie-freeman-rib-injury/
+
+**The NBA MVP race is going down to the wire. Don't look away**\
+`Before you lock into an MVP choice, watch every game Joker and SGA play. You won't want to miss it.`\
+https://nytimes.com/athletic/6212179/2025/03/18/nba-mvp-odds-nikola-jokic-shai-gilgeous-alexander/
+
 **2025 Men's NCAA Tournament: Breaking down upset picks in the Midwest**\
 `The Midwest features one of the biggest potential upsets for the 2025 bracket, though not necessarily the most likely.`\
 https://nytimes.com/athletic/6212636/2025/03/18/march-madness-upsets-midwest-region-2025/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/18/nyregion/adams-china-campaign-corruption.html
 **NWSL's Denver expansion team announces stadium plans to open in 2028**\
 `The proposal is being hailed as one of the first purpose-built sports and entertainment districts for a professional women's sports team.`\
 https://nytimes.com/athletic/6211498/2025/03/18/nwsls-denver-expansion-team-stadium-plans-2028/
-
-**Penguins, Sidney Crosby return to Stockholm for Global Series: 'It's hardcore'**\
-`The Penguins return to Europe for the first time since 2008 with a pair of games against the Nashville Predators.`\
-https://nytimes.com/athletic/6210796/2025/03/18/nhl-global-series-penguins-stockholm-crosby/
-
-**Hamilton's Ferrari honeymoon isn't over yet, but the growing pains have started**\
-`The Australian Grand Prix wasn't what Hamilton and his new team had hoped for. This will take a bit of time to get right.`\
-https://nytimes.com/athletic/6211374/2025/03/18/lewis-hamilton-ferrari-f1-growing-pains/
-
-**'A broken system': Tennis players' association calls governing bodies a 'cartel' in lawsuit**\
-`Djokovic declined to be named in the suit, which accuses tennis' governing bodies and the Grand Slams of ‘abusing their power.’`\
-https://nytimes.com/athletic/6210341/2025/03/18/tennis-lawsuit-antitrust-atp-wta-novak-djokovic/
-
-**Canucks roadmap to the 2025 playoffs: What does Vancouver need to be a postseason team?**\
-`What does the Canucks outlasting their competition and qualifying for the playoffs a second straight time look like?`\
-https://nytimes.com/athletic/6199688/2025/03/18/canucks-stanley-cup-playoffs-2025/
-
-**Pistons bounce back to rout Pelicans on road: 'This group has a grit to it'**\
-`The Pistons improved to 38-31 after beating the Pelicans by a huge 46-point margin in New Orleans.`\
-https://nytimes.com/athletic/6212521/2025/03/18/pistons-beat-pelicans-road-simone-fontecchio/
-
-**Eriksen expects to leave Man Utd in the summer**\
-`The 33-year-old says he has not received an update about his contract situation. His deal is set to end in June.`\
-https://nytimes.com/athletic/6212649/2025/03/18/christian-eriksen-manchester-united-future/
 
