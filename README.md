@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6209726/2025/03/18/womens-ncaa-bracket-the-pulse/
 `\
 https://nytimes.com/paidpost/marina-bay-sands/luxury-reimagined-the-mise-en-scene-of-marina-bay-sands.html
 
-**After a stretch of relative quiet, Gazans are jolted by a wave of strikes.**\
+**After a period of relative calm, a wave of strikes jolts Gazans.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/after-a-stretch-of-relative-quiet-gazans-are-jolted-by-a-wave-of-strikes
 
