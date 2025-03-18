@@ -1,3 +1,23 @@
+**DOGE Reverses Move That Made Its Claims Nearly Impossible to Check**\
+`After getting called out, Elon Musk’s cost-cutting group reinstated details about the grants that it canceled.`\
+https://nytimes.com/2025/03/18/us/politics/doge-federal-grants-identifying-information.html
+
+**I Don’t Believe a Single Word Trump and Putin Say About Ukraine**\
+`There are too many unanswered questions that raise suspicions.`\
+https://nytimes.com/2025/03/18/opinion/trump-putin-ukraine.html
+
+**A third deportation plane left the U.S. after a judge’s order. The Trump administration argues there was no violation.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/03/18/us/trump-president-news/a-third-deportation-plane-left-the-us-after-a-judges-order-the-trump-administration-argues-there-was-no-violation
+
+**Masataka Yoshida likely to open on IL as Red Sox near final roster decisions**\
+`Yoshida has had a solid spring but he has yet to play the field as he continues to work back slowly from shoulder surgery.`\
+https://nytimes.com/athletic/6214116/2025/03/18/red-sox-roster-masataka-yoshida-injured-list/
+
+**Indiana hires West Virginia's Darian DeVries as next basketball coach**\
+`DeVries replaces Mike Woodson, who guided the Hoosiers to only one NCAA Tournament appearance in the last four years.`\
+https://nytimes.com/athletic/6212725/2025/03/18/indiana-basketball-darian-devries/
+
 **What Works for Low Back Pain? Not Much, a New Study Says**\
 `Researchers looked at 56 treatments for acute and chronic pain. Few of them were effective.`\
 https://nytimes.com/2025/03/18/well/lower-back-pain-treatments-nsaids.html
