@@ -1,3 +1,7 @@
+**Marlins minor-league affiliate's ad for practice squad pulled after MLB raise concerns**\
+`The Marlins have pulled a recent advertisement to join the organization’s “practice squad" after Major League Baseball voiced concerns.`\
+https://nytimes.com/athletic/6211578/2025/03/17/marlins-practice-squad-mlb-minor-leagues/
+
 **Corrections: March 18, 2025**\
 `Corrections that appeared in print on Tuesday, March 18, 2025.`\
 https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/17/climate/epa-gold-bars-climate-lawsuit.html
 **Governor’s Farmhouse Among Properties Burned in Oklahoma Wildfires**\
 `In a video posted to social media, Gov. Kevin Stitt of Oklahoma said he had experienced the “total loss” of his farmhouse over the weekend.`\
 https://nytimes.com/2025/03/17/us/oklahoma-wildfires-governor-kevin-stitt-ranch.html
-
-**Trump Pulls Secret Service Protection From Hunter and Ashley Biden**\
-`The president posted on social media that Hunter Biden would lose his security detail “effective immediately” and also identified the country he was vacationing in.`\
-https://nytimes.com/2025/03/17/us/politics/trump-biden-hunter-ashley-secret-service.html
 

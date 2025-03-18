@@ -1,3 +1,7 @@
+**Israel Carries Out ‘Extensive Strikes’ in Gaza, Imperiling Cease-Fire Deal**\
+`Prime Minister Benjamin Netanyahu’s office said he had ordered the attack early Tuesday, saying Israel would “act against Hamas with increasing military strength.”`\
+https://nytimes.com/2025/03/17/world/middleeast/israel-gaza-airstrikes.html
+
 **Corrections: March 18, 2025**\
 `Corrections that appeared in print on Tuesday, March 18, 2025.`\
 https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
