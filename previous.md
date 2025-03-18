@@ -1,3 +1,11 @@
+**Court Face-Off on Deportations Tests Trump’s Power to ‘Find and Declare’ Facts**\
+`The litigation unleashed by President Trump’s second term, combined with his distortions and lies, is testing the judicial system’s practice of deferring to the executive branch’s determinations about what is true.`\
+https://nytimes.com/2025/03/18/us/politics/trump-deportation-flights.html
+
+**Cameron Brink 'icked out' by replies on post for male practice players**\
+`Brink said the team needs to "heavily vet these men" that join the practice squad after unsettling social media comments emerged.`\
+https://nytimes.com/athletic/6212696/2025/03/18/cameron-brink-sparks-male-practice-players-comments/
+
 **Lackluster Assassins Can’t Outshine the Beauty of Feudal Japan**\
 `The stories of vengeance in Assassin’s Creed Shadows, which follows an African-born samurai and a young shinobi, are less compelling than its vibrant world.`\
 https://nytimes.com/2025/03/18/arts/assassins-creed-shadows-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/world/europe/john-a-hemingway-dead.html
 **Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
 `The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
 https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html
-
-**‘Ludwig’ Is Like a Fun British Version of ‘Monk’**\
-`The twisty, serialized mystery stars David Mitchell of “Peep Show,” who plays identical twins, one of whom goes missing.`\
-https://nytimes.com/2025/03/18/arts/television/ludwig-britbox-david-mitchell.html
-
-**What does 9 months in space do to an astronaut’s health?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-does-9-months-in-space-do-to-an-astronauts-health
 

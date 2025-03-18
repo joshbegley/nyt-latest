@@ -1,3 +1,11 @@
+**Court Face-Off on Deportations Tests Trump’s Power to ‘Find and Declare’ Facts**\
+`The litigation unleashed by President Trump’s second term, combined with his distortions and lies, is testing the judicial system’s practice of deferring to the executive branch’s determinations about what is true.`\
+https://nytimes.com/2025/03/18/us/politics/trump-deportation-flights.html
+
+**Cameron Brink 'icked out' by replies on post for male practice players**\
+`Brink said the team needs to "heavily vet these men" that join the practice squad after unsettling social media comments emerged.`\
+https://nytimes.com/athletic/6212696/2025/03/18/cameron-brink-sparks-male-practice-players-comments/
+
 **Lackluster Assassins Can’t Outshine the Beauty of Feudal Japan**\
 `The stories of vengeance in Assassin’s Creed Shadows, which follows an African-born samurai and a young shinobi, are less compelling than its vibrant world.`\
 https://nytimes.com/2025/03/18/arts/assassins-creed-shadows-review.html
