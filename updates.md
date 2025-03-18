@@ -1,3 +1,19 @@
+**Treasury Promotes I.R.S. Agents Who Say Hunter Biden Tax Case Was Stymied**\
+`The two men will help change the culture at the tax collector, the Treasury secretary said.`\
+https://nytimes.com/2025/03/18/us/politics/trump-treasury-irs-agents-hunter-biden-tax-case.html
+
+**Kennedy’s Alarming Prescription for Bird Flu on Poultry Farms**\
+`The health secretary has suggested allowing the virus to spread, so as to identify birds that may be immune. Such an experiment would be disastrous, scientists say.`\
+https://nytimes.com/2025/03/18/health/kennedy-bird-flu.html
+
+**EA Sports raising NIL payments to $1,500 for players appearing in College Football 26**\
+`College football players will be paid a lot more money for appearing in this year's edition of EA Sports' video game.`\
+https://nytimes.com/athletic/6213494/2025/03/18/ea-sports-college-football-26-nil-payments/
+
+**Michigan baseball player apologizes for mimicking cocaine snorting after triple**\
+`After sliding head-first into third base, Mitch Voit imitated snorting the chalk like a line of cocaine in a gesture that went viral.`\
+https://nytimes.com/athletic/6213171/2025/03/18/michigan-baseball-apology-celebration/
+
 **With nowhere else to go, Williams and Wilmore got to work on the space station.**\
 `By John Yoon`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/with-nowhere-else-to-go-williams-and-wilmore-got-to-work-on-the-space-station

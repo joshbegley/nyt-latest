@@ -1,3 +1,19 @@
+**Treasury Promotes I.R.S. Agents Who Say Hunter Biden Tax Case Was Stymied**\
+`The two men will help change the culture at the tax collector, the Treasury secretary said.`\
+https://nytimes.com/2025/03/18/us/politics/trump-treasury-irs-agents-hunter-biden-tax-case.html
+
+**Kennedy’s Alarming Prescription for Bird Flu on Poultry Farms**\
+`The health secretary has suggested allowing the virus to spread, so as to identify birds that may be immune. Such an experiment would be disastrous, scientists say.`\
+https://nytimes.com/2025/03/18/health/kennedy-bird-flu.html
+
+**EA Sports raising NIL payments to $1,500 for players appearing in College Football 26**\
+`College football players will be paid a lot more money for appearing in this year's edition of EA Sports' video game.`\
+https://nytimes.com/athletic/6213494/2025/03/18/ea-sports-college-football-26-nil-payments/
+
+**Michigan baseball player apologizes for mimicking cocaine snorting after triple**\
+`After sliding head-first into third base, Mitch Voit imitated snorting the chalk like a line of cocaine in a gesture that went viral.`\
+https://nytimes.com/athletic/6213171/2025/03/18/michigan-baseball-apology-celebration/
+
 **With nowhere else to go, Williams and Wilmore got to work on the space station.**\
 `By John Yoon`\
 https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/with-nowhere-else-to-go-williams-and-wilmore-got-to-work-on-the-space-station
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/18/opinion/trump-intimidation-silencing.html
 **Judge Draws Trump’s Ire Over Ruling to Stop Deportation Flights**\
 `President Trump has called for Judge Boasberg to be impeached after he ruled against the administration over the president’s efforts to use a law from 1798 to speed deportations.`\
 https://nytimes.com/2025/03/18/us/politics/judge-boasberg-trump-deportation-flights.html
-
-**Canada Bolsters Arctic Defenses as Trump Sets His Sights North**\
-`As President Trump talks about U.S. dominance of the Arctic, Canada says it will spend billions to defend the region, including buying new radar technology from Australia.`\
-https://nytimes.com/2025/03/18/world/canada/canada-australia-arctic-radar-trump.html
-
-**Trump Administration to Confront Countries With New Tariff ‘Number’**\
-`Treasury Secretary Scott Bessent provided new details into how President Trump will roll out a sweeping and elusive tariff measure planned for April 2.`\
-https://nytimes.com/2025/03/18/us/politics/trump-tariffs.html
-
-**Until Saturday: 68-team college football bracket**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6213363/2025/03/18/68-team-college-football-bracket-until-saturday/
-
-**Here are the 5 best bets to kick off the first days of March Madness action**\
-`Austin Mock's model finds value in five bets so far over the first few days of action. `\
-https://nytimes.com/athletic/6213113/2025/03/18/march-madness-round-one-best-bets-2025/
 
