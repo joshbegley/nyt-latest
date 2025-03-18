@@ -1,3 +1,7 @@
+**Why the astronauts had to wait an extra month in orbit.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/why-the-astronauts-had-to-wait-an-extra-month-in-orbit
+
 **Israel Launches Deadly Attack on Gaza**\
 `It was the first major strike on Gaza since Israel and Hamas agreed to a cease-fire nearly two months ago.`\
 https://nytimes.com/video/world/middleeast/100000010058008/israel-gaza-airstrike.html
