@@ -1,3 +1,15 @@
+**Former Hospital Managers Call for Halt to Inquiry Into Lucy Letby Murders**\
+`Former executives at the British hospital where Ms. Letby was a nurse requested that a judge’s inquiry into the killings there be suspended amid new evidence.`\
+https://nytimes.com/2025/03/18/world/europe/lucy-letby-inquiry-thirlwall.html
+
+**Google Seals $32 Billion Deal for Cyber Start-Up Wiz**\
+`The acquisition could make the Silicon Valley giant a bigger force in cybersecurity, and arrives months after an earlier round of talks collapsed.`\
+https://nytimes.com/2025/03/18/technology/google-alphabet-wiz-deal.html
+
+**Sabres thoughts: Buffalo is showing fight, learning 'what it means to be a teammate'**\
+`The Sabres might not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
+https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
+
 **Listen: Have Man City lost their fear factor?**\
 `The Totally Football Show discuss Manchester City's struggles and whether they could miss out on Champions League qualification. `\
 https://nytimes.com/athletic/6210639/2025/03/18/totally-football-show-manchester-city-brighton/

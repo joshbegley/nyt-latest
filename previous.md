@@ -1,3 +1,11 @@
+**Former Hospital Managers Call for Halt to Inquiry Into Lucy Letby Murders**\
+`Former executives at the British hospital where Ms. Letby was a nurse requested that a judge’s inquiry into the killings there be suspended amid new evidence.`\
+https://nytimes.com/2025/03/18/world/europe/lucy-letby-inquiry-thirlwall.html
+
+**Google Seals $32 Billion Deal for Cyber Start-Up Wiz**\
+`The acquisition could make the Silicon Valley giant a bigger force in cybersecurity, and arrives months after an earlier round of talks collapsed.`\
+https://nytimes.com/2025/03/18/technology/google-alphabet-wiz-deal.html
+
 **Listen: Have Man City lost their fear factor?**\
 `The Totally Football Show discuss Manchester City's struggles and whether they could miss out on Champions League qualification. `\
 https://nytimes.com/athletic/6210639/2025/03/18/totally-football-show-manchester-city-brighton/
@@ -15,7 +23,7 @@ https://nytimes.com/interactive/2025/03/18/learning/19StudentNewsQuiz.html
 https://nytimes.com/athletic/6212140/2025/03/18/deni-avdija-wizards-trail-blazers-trade/
 
 **Sabres thoughts: Buffalo is showing fight, learning 'what it means to be a teammate'**\
-`The Sabres may not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
+`The Sabres might not have much to play for, but Lindy Ruff still has a clear objective for the final stretch: 'Create an identity.'`\
 https://nytimes.com/athletic/6212089/2025/03/18/sabres-bruins-win-identity-nhl/
 
 **Twins notes: Royce Lewis out for Opening Day, rotation set, surgery for Matt Canterino**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/business/dealbook/san-francisco-giants-sell-stake
 **Pick upsets or go with the favorites? Tips for your March Madness 2025 bracket**\
 `If you're looking for advice on how to fill out a bracket, here's a look at the historical trends to keep in mind.`\
 https://nytimes.com/athletic/6192202/2025/03/18/march-madness-2025-bracket-tips-advice-guide/
-
-**Fun, unserious strategies for filling out your March Madness bracket**\
-`There are many ways to fill out a bracket without knowing a thing about basketball and sometimes they work. Here are some of our favorites.`\
-https://nytimes.com/athletic/6185235/2025/03/18/march-madness-unserious-bracket-strategy-2025/
-
-**Our readers' most unforgettable (and scarring) stories from March Madness bracket pools**\
-`Everyone has an unforgettable story around March Madness bracket pools. We polled our readers and staff to collect some of the best.`\
-https://nytimes.com/athletic/6198366/2025/03/18/march-madness-brackets-stories/
 
