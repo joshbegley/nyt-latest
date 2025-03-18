@@ -1,3 +1,7 @@
+**Tom Fitzgerald makes emotional pitch to NHL GMs about cut-resistant equipment after son's near-miss**\
+`The Devils GM's son Casey got 25 stitches in his throat area after a skate-blade cut in an AHL game in December.`\
+https://nytimes.com/athletic/6213889/2025/03/18/tom-fitzgerald-nhl-neck-guards/
+
 **Pitch used for Real Madrid vs Arsenal labelled a 'disgrace' by Ian Wright**\
 `This is the second time in a matter of days a pitch used in a women's match has come under scrutiny following Saturday's League Cup final.`\
 https://nytimes.com/athletic/6214011/2025/03/18/real-madrid-arsenal-women-champions-league-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/business/media/netflix-fraud-filmmaker-science-fi
 **Anthony Dolan, Speechwriter Who Gave Reagan ‘Evil Empire,’ Dies at 76**\
 `As a conservative presidential speechwriter, he also relegated communism to “the ash heap of history.” Earlier, he won a Pulitzer Prize as a young reporter.`\
 https://nytimes.com/2025/03/18/us/politics/anthony-dolan-dead.html
-
-**Wednesday Briefing: Russia Agreed to Halt Some Strikes**\
-`Plus, Ohtani’s star power in Japan.`\
-https://nytimes.com/2025/03/18/briefing/putin-cease-fire-israel-strikes-trump-supreme-court.html
 
