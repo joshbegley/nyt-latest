@@ -1,3 +1,7 @@
+**Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
+`The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
+https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html
+
 **‘Ludwig’ Is Like a Fun British Version of ‘Monk’**\
 `The twisty, serialized mystery stars David Mitchell of “Peep Show,” who plays identical twins, one of whom goes missing.`\
 https://nytimes.com/2025/03/18/arts/television/ludwig-britbox-david-mitchell.html

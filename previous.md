@@ -1,3 +1,7 @@
+**Two Men Found Guilty in Theft of $6 Million Gold Toilet**\
+`The glimmering commode, an artwork by Maurizio Cattelan, was stolen during a break-in at Winston Churchill’s ancestral home in 2019.`\
+https://nytimes.com/2025/03/18/arts/design/gold-toilet-theft-verdict-maurizio-cattelan.html
+
 **‘Ludwig’ Is Like a Fun British Version of ‘Monk’**\
 `The twisty, serialized mystery stars David Mitchell of “Peep Show,” who plays identical twins, one of whom goes missing.`\
 https://nytimes.com/2025/03/18/arts/television/ludwig-britbox-david-mitchell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212068/2025/03/18/tokyo-series-game-1-the-windup/
 **Tuesday was one of the war’s deadlier days, Gaza officials say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/tuesday-was-one-of-the-wars-deadlier-days-gaza-officials-say
-
-**Confidant Brings Fine Dining to Industry City**\
-`The restaurant, from alums of Roberta’s, focuses on aged seafood and meat, Howoo brings another barbecue take to Midtown and more restaurant news.`\
-https://nytimes.com/2025/03/18/dining/nyc-restaurant-news.html
 
