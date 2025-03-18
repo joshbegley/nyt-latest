@@ -1,3 +1,7 @@
+**How Jack Draper embraced his tennis gifts to win the Indian Wells title**\
+`In 2024, Draper was molding himself into a first-strike, all-aggression player. Turning away from that path has catapulted him upwards.`\
+https://nytimes.com/athletic/6210155/2025/03/18/tennis-jack-draper-best-shots-game/
+
 **Steph Curry struggles in Warriors' ugly loss to Nuggets: 'He's exhausted'**\
 `Turnovers and poor shooting doomed Golden State against the short-handed Nuggets. But more concerning is the strain Curry's body is showing`\
 https://nytimes.com/athletic/6212063/2025/03/18/steph-curry-warriors-nuggets-loss-tired/

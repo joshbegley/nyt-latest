@@ -1,3 +1,7 @@
+**How Jack Draper embraced his tennis gifts to win the Indian Wells title**\
+`In 2024, Draper was molding himself into a first-strike, all-aggression player. Turning away from that path has catapulted him upwards.`\
+https://nytimes.com/athletic/6210155/2025/03/18/tennis-jack-draper-best-shots-game/
+
 **Steph Curry struggles in Warriors' ugly loss to Nuggets: 'He's exhausted'**\
 `Turnovers and poor shooting doomed Golden State against the short-handed Nuggets. But more concerning is the strain Curry's body is showing`\
 https://nytimes.com/athletic/6212063/2025/03/18/steph-curry-warriors-nuggets-loss-tired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6211923/2025/03/18/women-march-madness-cinderella-u
 **Anthony Hamilton's hug showed Hadjar’s F1 debut tears weren’t 'embarrassing' - they were real**\
 `There's nothing shameful about a rookie's tears, even if it defies F1's old ways. `\
 https://nytimes.com/athletic/6211693/2025/03/18/anthony-hamilton-hug-isack-hadjar-f1-helmut-marko/
-
-**MLB The Show 25 review: Flexible gameplay, 'Road to Show' option among highlights**\
-`There are plenty of features to keep devoted fans of MLB The Show 25 interested. Here are some takeaways as the game was released Tuesday.`\
-https://nytimes.com/athletic/6211055/2025/03/18/mlb-the-show-25-review-video-game/
 
