@@ -1,3 +1,7 @@
+**The strikes came as talks to end the war in Gaza had run into trouble.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/03/17/world/israel-gaza-airstrikes/the-strikes-came-as-talks-to-end-the-war-in-gaza-had-run-into-a-major-obstacle
+
 **Canucks roadmap to the 2025 playoffs: What does Vancouver need to be a postseason team?**\
 `What does the Canucks outlasting their competition and qualifying for the playoffs a second straight time look like?`\
 https://nytimes.com/athletic/6199688/2025/03/18/canucks-stanley-cup-playoffs-2025/
