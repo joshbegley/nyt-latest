@@ -1,3 +1,15 @@
+**Confidant Brings Fine Dining to Industry City**\
+`The restaurant, from alums of Roberta’s, focuses on aged seafood and meat, Howoo brings another barbecue take to Midtown and more restaurant news.`\
+https://nytimes.com/2025/03/18/dining/nyc-restaurant-news.html
+
+**18cards**\
+`Text by Ayesha Siddiqa and Jessica Testa`\
+https://nytimes.com/card/2025/03/18/climate/httpswwwgooglecoin
+
+**Jericho Sims has surgery to repair torn ligament. How will the Bucks fill his minutes?**\
+`With Bobby Portis suspended, Sims has been the Bucks' third big man for 15 minutes per game. Now they need to replace him.`\
+https://nytimes.com/athletic/6211674/2025/03/18/bucks-jericho-sims-surgery/
+
 **Hamas Does Not Respond to Renewed Israeli Attack**\
 `“Hamas doesn’t want an escalation, but it will not surrender,” said one Palestinian analyst close to the militant group, which has been weakened by a 15-month war with Israel.`\
 https://nytimes.com/2025/03/18/world/middleeast/hamas-israel-gaza-attack.html
