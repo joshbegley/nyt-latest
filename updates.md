@@ -1,3 +1,15 @@
+**Commanders proving they won't get complacent coming off surprising season**\
+`Washington's traded for Deebo Samuel and Laremy Tunsil to bolster the roster and maximize this window with Jayden Daniels on a rookie deal. `\
+https://nytimes.com/athletic/6208884/2025/03/18/commanders-free-agency-super-bowl-window/
+
+**Joe Burrow, Bengals delete Carson Palmer timeline, set new standard for franchise QB power**\
+`Big new deals for Ja'Marr Chase and Tee Higgins show Cincinnati's new QB1 has far more influence than the No. 1 pick of the past.`\
+https://nytimes.com/athletic/6211682/2025/03/18/joe-burrow-bengals-franchise-qb-power/
+
+**The New York Times International Edition in Print for Wednesday, March 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/18/todays-new-york-times-international-edition
+
 **Trump and Putin to Hold Call About Ukraine: What to Know**\
 `The call will be the first known conversation between the two leaders since Ukraine agreed to support a U.S.-backed monthlong cease-fire, as long as Russia does the same`\
 https://nytimes.com/2025/03/18/world/europe/trump-putin-call-ukraine-russia-war.html
