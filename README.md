@@ -1,3 +1,7 @@
+**What happens to the astronauts right after they return to Earth.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/what-happens-to-the-astronauts-right-after-they-return-to-earth
+
 **The Chief Justice Rebuked Impeachment Threats**\
 `Also, two astronauts returned after nine unexpected months in space. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/03/18/briefing/chief-justice-rebuke-putin-trump-call-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010057420/how-the-white-house-defied-a-judges
 **Trump Fires Democrats on Federal Trade Commission**\
 `The decision to fire the two Democratic members of the traditionally independent regulatory body is likely to face a legal challenge.`\
 https://nytimes.com/2025/03/18/technology/trump-ftc-fires-democrats.html
-
-**Missouri hires Kellie Harper as women's basketball coach**\
-`The new Tigers coach has extensive SEC experience, including leading the Volunteers from 2019 to 2024.`\
-https://nytimes.com/athletic/6214008/2025/03/18/missouri-hires-kellie-harper-basketball-coach/
 
