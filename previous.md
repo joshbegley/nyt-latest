@@ -1,3 +1,19 @@
+**Tom Fitzgerald makes emotional pitch to NHL GMs about cut-resistant equipment after son's near-miss**\
+`The Devils GM's son Casey got 25 stitches in his throat area after a skate-blade cut in an AHL game in December.`\
+https://nytimes.com/athletic/6213889/2025/03/18/tom-fitzgerald-nhl-neck-guards/
+
+**Pitch used for Real Madrid vs Arsenal labelled a 'disgrace' by Ian Wright**\
+`This is the second time in a matter of days a pitch used in a women's match has come under scrutiny following Saturday's League Cup final.`\
+https://nytimes.com/athletic/6214011/2025/03/18/real-madrid-arsenal-women-champions-league-pitch/
+
+**Minnesota Lawmaker Tried to Meet With Underage Prostitute, Police Say**\
+`The arrest of Justin Eichorn, a Republican senator, leaves both parties in the closely divided State Senate with a lawmaker facing felony charges.`\
+https://nytimes.com/2025/03/18/us/minnesota-lawmakerunderage-prostitute-police.html
+
+**Injured Robinson, Cardoso, Trusty withdraw from USMNT roster**\
+`The USMNT face Panama in the Concacaf Nations League semifinal at SoFi Stadium in Los Angeles on March 20.`\
+https://nytimes.com/athletic/6213847/2025/03/18/usmnt-roster-nations-league-robinson-cardoso-trusty-injuries/
+
 **Son of Jair Bolsonaro Says He Will Seek Political Asylum in the U.S.**\
 `Eduardo Bolsonaro, a son of Brazil’s former president, said he planned to stay in the United States, claiming persecution back home.`\
 https://nytimes.com/2025/03/18/world/americas/jair-bolsonaro-son-us-asylum.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/18/business/media/netflix-fraud-filmmaker-science-fi
 **Anthony Dolan, Speechwriter Who Gave Reagan ‘Evil Empire,’ Dies at 76**\
 `As a conservative presidential speechwriter, he also relegated communism to “the ash heap of history.” Earlier, he won a Pulitzer Prize as a young reporter.`\
 https://nytimes.com/2025/03/18/us/politics/anthony-dolan-dead.html
-
-**Wednesday Briefing: Russia Agreed to Halt Some Strikes**\
-`Plus, Ohtani’s star power in Japan.`\
-https://nytimes.com/2025/03/18/briefing/putin-cease-fire-israel-strikes-trump-supreme-court.html
-
-**The astronauts will return to Earth enveloped in hot plasma.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2025/03/17/science/nasa-astronauts-return-spacex/the-astronauts-will-return-to-earth-enveloped-in-hot-plasma
-
-**Browns release new details for proposed stadium in Brook Park**\
-`The team is planning to build a domed stadium in Brook Park as its lease with the city of Cleveland expires at the end of the 2028 season. `\
-https://nytimes.com/athletic/6213879/2025/03/18/browns-proposed-stadium-brook-park/
-
-**Israeli Airstrikes Kill Hundreds of People in Gaza**\
-`More than 400 people were killed in Israeli airstrikes across Gaza on Tuesday, Gaza’s health ministry said. The attacks were the first major strikes on Gaza since Israel and Hamas agreed to a temporary cease-fire in January.`\
-https://nytimes.com/video/world/middleeast/100000010058219/gaza-israeli-strikes.html
 
