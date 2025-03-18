@@ -1,3 +1,11 @@
+**Hurzeler: Brighton international involvement a 'positive' before FA Cup quarter-final**\
+`Joao Pedro, Pervis Estupinan and Diego Gomez are set to be involved in World Cup qualifiers before the FA Cup tie against Nottingham Forest.`\
+https://nytimes.com/athletic/6209662/2025/03/18/hurzeler-brighton-international-break-fa-cup/
+
+**Dancing, Ed Sheeran's guitar and fist pumps - Nuno's 'connected' squad has Europe in sight**\
+`Nuno Espirito Santo has built togetherness in his Forest team. It should be celebrated as one of his biggest successes in push for Europe`\
+https://nytimes.com/athletic/6210083/2025/03/18/nottingham-forest-alex-moreno-nuno/
+
 **From De Jong to Rodri: The story of Man City's midfield in the modern era**\
 `Analysing the impact and varied strengths of five key figures who have operated at the heart of City's team during the last 15 years`\
 https://nytimes.com/athletic/6210227/2025/03/18/manchester-city-deep-lying-midfielders-yaya-toure-rodri/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6209220/2025/03/18/newcastle-trophy-what-comes-next
 **Why Hidetoshi Nakata, face of the 2002 World Cup, retired at 29: 'I’m not a fan of football'**\
 `The midfielder became a global star and earned moves to Italy and England but has never regretted his decision to stop playing`\
 https://nytimes.com/athletic/6171097/2025/03/18/hidetoshi-nakata-interview/
-
-**Why I Joined The Athletic: From falling in love with Sunderland to the fascinatingly messy world of football finance**\
-`I'll be reaching into the often murky depths of the game and pulling out the stories that matter`\
-https://nytimes.com/athletic/6131054/2025/03/18/why-i-joined-chris-weatherspoon-football-finance-writer/
-
-**Who replaces Newcastle as the trophyless kings: Spurs? Aston Villa? Oxford University?**\
-`With the north-east club ending a 56-year wait for silverware we ask who the unwanted baton will pass to now`\
-https://nytimes.com/athletic/6209242/2025/03/18/who-replaces-newcastle-as-the-trophyless-kings/
 
