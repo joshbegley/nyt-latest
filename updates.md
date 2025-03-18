@@ -1,3 +1,15 @@
+**Man Charged in Theft of Judy Garland’s Ruby Slippers Dies**\
+`Jerry Hal Saliterman’s case had been pending in federal court. A judge dismissed the charges against him on Monday.`\
+https://nytimes.com/2025/03/17/us/jerry-saliterman-ruby-slippers.html
+
+**She Blew the Whistle on Meta’s ‘Lethal Carelessness.’ Now She’s Being Silenced.**\
+`The “free speech” champion Mark Zuckerberg tries to shut up a critic.`\
+https://nytimes.com/2025/03/17/opinion/facebook-meta-careless-people.html
+
+**St. Louis Cardinals Opening Day roster and rotation plans: What I'm hearing**\
+`The Cardinals face two big roster decisions before they break camp Sunday. Neither will be easy.`\
+https://nytimes.com/athletic/6211112/2025/03/17/cardinals-opening-day-roster-rotation-plans/
+
 **Making Sense of DOGE’s Cuts**\
 `Small reductions to the federal work force could have an outsize impact.`\
 https://nytimes.com/2025/03/17/us/politics/making-sense-of-doges-cuts.html
