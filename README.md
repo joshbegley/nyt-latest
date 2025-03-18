@@ -6,8 +6,8 @@ https://nytimes.com/2025/03/17/pageoneplus/corrections-march-18-2025.html
 `New Orleans announced that X-rays on Murphy's shoulder came back negative.`\
 https://nytimes.com/athletic/6211667/2025/03/17/pelicans-trey-murphy-shoulder-injury/
 
-**Israel Carries Out ‘Extensive Strikes’ in Gaza**\
-`The strikes, announced early Tuesday, appeared to be the first major attack in Gaza by Israel since its cease-fire with Hamas began.`\
+**Israel Carries Out ‘Extensive Strikes’ in Gaza, Imperiling Cease-Fire Deal**\
+`Prime Minister Benjamin Netanyahu’s office said he had ordered the attack early Tuesday, saying Israel would “act against Hamas with increasing military strength.”`\
 https://nytimes.com/2025/03/17/world/middleeast/israel-gaza-airstrikes.html
 
 **Now boarding: A NASA mission to bring astronauts home.**\
