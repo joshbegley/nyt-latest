@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman day to day for second game of Tokyo Series**\
+`The veteran first baseman gives himself a "75 percent chance" of playing in the second game of the series on Wednesday.`\
+https://nytimes.com/athletic/6212745/2025/03/18/dodgers-freddie-freeman-rib-injury/
+
 **UK Athletics, former World Championships chief plead not guilty over Paralympian’s death**\
 `UK Athletics and the former head of sport for the World Paralympic Athletics Championships have pleaded not guilty to all charges relating to the death of Paralympian Abdullah Hayayei.`\
 https://nytimes.com/athletic/6212350/2025/03/18/abdullah-hayayei-paralympian-court-case/
