@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/
 
 **Couple Who Abused Adopted Children Are Sentenced to Decades in Prison**\
-`The couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
+`The West Virginia couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
 https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.html
 
 **Federal Reserve Extends Pause on Rate Cuts**\
