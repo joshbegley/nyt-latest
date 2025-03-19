@@ -1,3 +1,7 @@
+**Bondi Calls Tesla Vandalism ‘Domestic Terrorism,’ Promising Steep Consequences**\
+`The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
+https://nytimes.com/2025/03/18/us/politics/tesla-vandalism-domestic-terrorism.html
+
 **Bondi calls Tesla vandalism ‘domestic terrorism,’ promising steep consequences.**\
 `The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
 https://nytimes.com/2025/03/18/us/politics/bondi-calls-tesla-vandalism-domestic-terrorism-promising-steep-consequences.html
