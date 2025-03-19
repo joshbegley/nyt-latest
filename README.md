@@ -1,3 +1,7 @@
+**Armed Rohingya Group’s Leader Is Arrested in Bangladesh**\
+`Attacks by the group, the Arakan Rohingya Salvation Army, were used as a pretext by the Myanmar military to launch a campaign of ethnic cleansing that set off a massive refugee crisis.`\
+https://nytimes.com/2025/03/19/world/asia/rohingya-arsa-ataullah-arrest.html
+
 **Marshall Islands to play their first 11-a-side international match in Arkansas**\
 `The Pacific Island nation, with fewer than 40,000 inhabitants, will take on the U.S. Virgin Islands, the Turks and Caicos and Guam.`\
 https://nytimes.com/athletic/6213903/2025/03/19/marshall-islands-arkansas-first-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/crosswords/spelling-bee-forum.html
 **Baylor Scheierman thinking about new celebrations, but tough mentality is working**\
 `Scheierman scored a career-high 20 points on 7-for-8 shooting from the field, including 6-for-7 on 3-point attempts.`\
 https://nytimes.com/athletic/6214869/2025/03/19/celtics-baylor-scheierman-celebrations-nets/
-
-**Word of the Day: presage**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/19/learning/word-of-the-day-presage.html
 
