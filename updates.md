@@ -1,3 +1,7 @@
+**Inside the 24-Hour Scramble Among Top National Security Officials Over the J.F.K. Documents**\
+`The director of the Central Intelligence Agency emphasized that some documents had nothing to do with the assassinated president, according to people familiar with the discussions.`\
+https://nytimes.com/2025/03/18/us/politics/national-security-officials-jfk-documents.html
+
 **Corrections: March 19, 2025**\
 `Corrections that appeared in print on Wednesday, March 19, 2025.`\
 https://nytimes.com/2025/03/18/pageoneplus/corrections-march-19-2025.html
