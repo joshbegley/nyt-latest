@@ -1,3 +1,11 @@
+**Tesla Wins California Permit to Begin Offering Rides**\
+`The limited regulatory approval is an early step toward Elon Musk’s goal of offering a Tesla self-driving taxi service.`\
+https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.html
+
+**Georgia might hold a spring game, but like the rest of the SEC, it won't be televised**\
+`In years past, spring games were considered free publicity. Now they're considered a hazard.`\
+https://nytimes.com/athletic/6214292/2025/03/18/georgia-spring-game-not-televised-sec/
+
 **What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
 `Since the president’s murder in 1963,`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination

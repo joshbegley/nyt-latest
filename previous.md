@@ -1,3 +1,7 @@
+**Tesla Wins California Permit to Begin Offering Rides**\
+`The limited regulatory approval is an early step toward Elon Musk’s goal of offering a Tesla self-driving taxi service.`\
+https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.html
+
 **What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
 `Since the president’s murder in 1963,`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6214341/2025/03/18/braves-sign-craig-kimbrel-reunio
 https://nytimes.com/2025/03/18/climate/global-temperatures-wmo-report.html
 
 **Georgia might hold a spring game, but like the rest of the SEC, it won't be televised**\
-`In years past spring games were considered free publicity. Now they're considered a hazard.`\
+`In years past, spring games were considered free publicity. Now they're considered a hazard.`\
 https://nytimes.com/athletic/6214292/2025/03/18/georgia-spring-game-not-televised-sec/
 
 **Sources: Promotion, relegation in USA to become reality after historic USL vote**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/us/kennedy-assassination-files-history.html
 **Historians Take Wait-and-See Approach to Latest Kennedy Assassination Documents**\
 `Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
 https://nytimes.com/2025/03/18/us/kennedy-assassination-historians-documents.html
-
-**Parents of Student Missing in the Dominican Republic Believe She Drowned**\
-`The student, Sudiksha Konanki, 20, was on a spring break trip to Punta Cana when she disappeared earlier this month, leading to a massive search effort and an investigation.`\
-https://nytimes.com/2025/03/18/us/sudiksha-konanki-drowned-dominican-republic.html
 
