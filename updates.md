@@ -1,3 +1,7 @@
+**Listen: Was that Liverpool's worst-ever performance in a final?**\
+`Walk On discuss whether Liverpool's display in Sunday's Carabao Cup showpiece at Wembley was their poorest ever with a trophy at stake`\
+https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/
+
 **Scouting Dodgers and Guardians prospects — and Jesus Made — on the back fields**\
 `Notes from the back fields on Jaison Chourio, Jackson Ferris, Emil Morales, Made and more.`\
 https://nytimes.com/athletic/6214914/2025/03/19/scouting-dodgers-guardians-prospects-jesus-made-jaison-chourio-jackson-ferris/
