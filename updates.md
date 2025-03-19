@@ -1,3 +1,11 @@
+**Scoop City: Nine ways free agency changed this draft**\
+`Inside: How free agency changed this year&#8217;s draft, whether Brock Purdy should get $60 million and which sleeper QB you should know.`\
+https://nytimes.com/athletic/6215696/2025/03/19/free-agency-nfl-draft-impact-2025-cam-ward-titans-scoop-city/
+
+**How will West Virginia replace Darian DeVries? Candidates to watch**\
+`West Virginia has its second coaching search in 12 months, and that’s on top of a tumultuous transition with the departure of Bob Huggins.`\
+https://nytimes.com/athletic/6215643/2025/03/19/west-virginia-basketball-coaching-search-candidates/
+
 **The Windup: How Sasaki's debut went**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6214944/2025/03/19/dodgers-tokyo-roki-sasaki-the-windup/
