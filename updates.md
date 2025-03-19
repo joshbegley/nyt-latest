@@ -1,3 +1,7 @@
+**Amid Kennedy Center Upheaval, a Maestro Decides to Stay On**\
+`As the center goes through changes after President Trump’s takeover, Gianandrea Noseda is extending his tenure at the National Symphony Orchestra, one of the center’s main groups.`\
+https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html
+
 **Bywater, New Orleans, a Once-Industrial Neighborhood With a Funky Vibe**\
 `A calm retreat that’s just a short walk from the bacchanalia of Bourbon Street.`\
 https://nytimes.com/2025/03/19/realestate/bywater-new-orleans-a-once-industrial-neighborhood-with-a-funky-vibe.html
