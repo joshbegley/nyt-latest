@@ -1,3 +1,7 @@
+**Bywater, New Orleans, a Once-Industrial Neighborhood With a Funky Vibe**\
+`A calm retreat that’s just a short walk from the bacchanalia of Bourbon Street.`\
+https://nytimes.com/2025/03/19/realestate/bywater-new-orleans-a-once-industrial-neighborhood-with-a-funky-vibe.html
+
 **Phil Jones: 'Tough' moment he left the Man Utd WhatsApp and why he's training to be a coach**\
 `After the end of his playing career, Phil Jones felt lost. He discusses finding his place again as a coach at Manchester United`\
 https://nytimes.com/athletic/6215609/2025/03/19/phil-jones-the-coach-aggressive-intense-and-ready-to-win-at-all-costs-at-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214859/2025/03/19/jung-hoo-lee-mri-results-sf-gian
 **Cleveland mayor accuses Haslams of 'misleading statements' around Browns' new stadium**\
 `The Haslam Sports Group wants to move the team to a stadium in Brook Park, while the City of Cleveland wants the team to play in downtown. `\
 https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-proposed-new-stadium/
-
-**Hold My Snacks: Pirate’s Booty Founder Attempts a Seaside Coup**\
-`A snack food magnate declared himself mayor of the Village of Sea Cliff, on Long Island. The voters said otherwise.`\
-https://nytimes.com/2025/03/19/nyregion/sea-cliff-mayor-pirates-booty-election.html
 
