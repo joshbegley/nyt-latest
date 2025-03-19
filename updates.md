@@ -1,3 +1,7 @@
+**England managers' first games: Fresh faces and false dawns but no defeats in 62 years**\
+`Thomas Tuchel beware: no England manager has endured defeat in his first match in charge since Sir Alf Ramsey's team lost to France in 1963`\
+https://nytimes.com/athletic/6215173/2025/03/19/england-manager-tuchel-southgate-venables-debuts/
+
 **Listen: Was that Liverpool's worst-ever performance in a final?**\
 `Walk On discuss whether Liverpool's display in Sunday's Carabao Cup showpiece at Wembley was their poorest ever with a trophy at stake`\
 https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/

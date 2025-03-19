@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-ca
 `The Oilers' philosophy has been to let the opposition worry about line matching against Connor McDavid and Leon Draisaitl.`\
 https://nytimes.com/athletic/6212371/2025/03/19/edmonton-oilers-elites-stats-2025/
 
+**England managers' first games: Fresh faces and false dawns but no defeats in 62 years**\
+`Thomas Tuchel beware: no England manager has endured defeat in his first match in charge since Sir Alf Ramsey's team lost to France in 1963`\
+https://nytimes.com/athletic/6215173/2025/03/19/england-manager-tuchel-southgate-venables-debuts/
+
 **A Dyslexic Comedian Walks Into a Recording Booth …**\
 `Writing a memoir was no laughing matter for Phil Hanley. Narrating the audiobook took 16 sessions, 64 hours and a supportive audience.`\
 https://nytimes.com/2025/03/19/books/spellbound-phil-hanley.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215427/2025/03/19/espn-jimmy-pitaro-shrinking-plat
 **The 11 teams that can win the NCAA Tournament**\
 `If history is any indication, one of these 11 teams will be your 2025 national champions.`\
 https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-duke-florida/
-
-**Imane Khelif eying another Olympic gold, not intimidated by Trump’s policies**\
-`"I am not transgender,” Khelif said. “This does not concern me, and it does not intimidate me. That is my response.”`\
-https://nytimes.com/athletic/6215337/2025/03/19/imane-khelif-olympics-donald-trump/
 
