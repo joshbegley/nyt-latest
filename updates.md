@@ -1,3 +1,7 @@
+**Trump Administration Ends Tracking of Kidnapped Ukrainian Children in Russia**\
+`A Democratic lawmaker is drafting a letter to Secretary of State Marco Rubio asking whether a database on thousands of children has been deleted.`\
+https://nytimes.com/2025/03/18/us/politics/trump-ukraine-abducted-children.html
+
 **How Rangers face-planted in all areas against Flames: 3 takeaways**\
 `Poor team defense returned as New York fell 2-1 in a matchup it hardly could afford to lose against Calgary.`\
 https://nytimes.com/athletic/6214649/2025/03/18/rangers-flames-nhl-playoffs-standings/

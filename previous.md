@@ -1,3 +1,7 @@
+**Trump Administration Ends Tracking of Kidnapped Ukrainian Children in Russia**\
+`A Democratic lawmaker is drafting a letter to Secretary of State Marco Rubio asking whether a database on thousands of children has been deleted.`\
+https://nytimes.com/2025/03/18/us/politics/trump-ukraine-abducted-children.html
+
 **How Rangers face-planted in all areas against Flames: 3 takeaways**\
 `Poor team defense returned as New York fell 2-1 in a matchup it hardly could afford to lose against Calgary.`\
 https://nytimes.com/athletic/6214649/2025/03/18/rangers-flames-nhl-playoffs-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-
 **Trump Officials Say Deportees Were Gang Members. So Far, Few Details.**\
 `Families and immigration lawyers argue not all of the deportees sent to a prison in El Salvador over the weekend had ties to gangs.`\
 https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
-
-**Mexico City Bans Traditional Bullfights for Violence-Free Option**\
-`Showdowns between people and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
-https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
 
