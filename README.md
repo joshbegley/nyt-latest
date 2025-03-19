@@ -1,3 +1,11 @@
+**Earth’s 10 Hottest Years Have Been the Last 10**\
+`A report from the World Meteorological Organization confirms that 2024 was the hottest year on record and the first year to be more than 1.5 degrees Celsius above the preindustrial era.`\
+https://nytimes.com/2025/03/18/climate/global-temperatures-wmo-report.html
+
+**Georgia may hold a spring game, but like the rest of the SEC, it won't be televised**\
+`In years past spring games were considered free publicity. Now they're considered a hazard.`\
+https://nytimes.com/athletic/6214292/2025/03/18/georgia-spring-game-not-televised-sec/
+
 **Sources: Promotion, relegation in USA to become reality after historic USL vote**\
 `The league's owners have agreed to incorporate pro-rel upon the creation of a new first-division league.`\
 https://nytimes.com/athletic/6213452/2025/03/18/usl-promotion-relegation-us-soccer-vote/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-ke
 **Read The Times’s 1963 coverage of the Kennedy assassination.**\
 `By Tom Wicker`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/read-the-timess-1963-coverage-of-the-kennedy-assassination
-
-**Live Updates: New Kennedy Files Are Out, but What’s in Them?**\
-`Expectations are low for major revelations about the killing of John F. Kennedy, but experts are sifting through thousands of pages in search of new details.`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files
-
-**Mahmoud Khalil, in first public remarks, says he is ‘a political prisoner.’**\
-`By Troy Closson`\
-https://nytimes.com/live/2025/03/18/us/trump-president-news/mahmoud-khalil-in-first-public-remarks-says-he-is-a-political-prisoner
 

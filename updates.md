@@ -1,3 +1,7 @@
+**Sources: Promotion, relegation in USA to become reality after historic USL vote**\
+`The league's owners have agreed to incorporate pro-rel upon the creation of a new first-division league.`\
+https://nytimes.com/athletic/6213452/2025/03/18/usl-promotion-relegation-us-soccer-vote/
+
 **Sectional Sofas Can Work in Any Space. Here Are Our Favorites.**\
 `A roundup of the best modular couches, starting at $1,650.`\
 https://nytimes.com/2025/03/18/t-magazine/best-sectional-sofas.html

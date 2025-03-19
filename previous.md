@@ -1,3 +1,7 @@
+**Sources: Promotion, relegation in USA to become reality after historic USL vote**\
+`The league's owners have agreed to incorporate pro-rel upon the creation of a new first-division league.`\
+https://nytimes.com/athletic/6213452/2025/03/18/usl-promotion-relegation-us-soccer-vote/
+
 **Sectional Sofas Can Work in Any Space. Here Are Our Favorites.**\
 `A roundup of the best modular couches, starting at $1,650.`\
 https://nytimes.com/2025/03/18/t-magazine/best-sectional-sofas.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files
 **Mahmoud Khalil, in first public remarks, says he is ‘a political prisoner.’**\
 `By Troy Closson`\
 https://nytimes.com/live/2025/03/18/us/trump-president-news/mahmoud-khalil-in-first-public-remarks-says-he-is-a-political-prisoner
-
-**Judge Blocks Policy That Would Expel Transgender Troops**\
-`The order allows soldiers to keep serving in the military under rules established by the Biden administration.`\
-https://nytimes.com/2025/03/18/us/transgender-troops-military-injunction.html
 
