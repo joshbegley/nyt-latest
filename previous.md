@@ -1,9 +1,9 @@
-**J.F.K.’s Grandson Slams File Release — and the News Media’s Reaction**\
-`In a series of social media posts, Jack Schlossberg, a frequent critic of the Trump administration, said his family was not given a “head’s up” about the release.`\
+**J.F.K.’s Grandson Slams File Release, and the News Media’s Reaction**\
+`In a series of social media posts, Jack Schlossberg, a frequent critic of the Trump administration, said his family was not given a “heads up” about the release.`\
 https://nytimes.com/2025/03/19/us/jack-schlossberg-jfk-files.html
 
 **Matt Shaw makes an uneven debut as Cubs get swept in Japan**\
-`It may have been a trip to forget as far as what happened on the field, but the ambiance was as special as it gets.`\
+`It might have been a trip to forget as far as what happened on the field, but the ambiance was as special as it gets.`\
 https://nytimes.com/athletic/6215709/2025/03/19/matt-shaw-cubs-tokyo-series/
 
 **What the Fed’s Rate Policy Means for Your Finances**\
