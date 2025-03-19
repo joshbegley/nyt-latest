@@ -1,3 +1,15 @@
+**The Entire Future of American Public Health Is at Risk**\
+`Trump’s appointees don’t believe in the concept of a public in the first place.`\
+https://nytimes.com/2025/03/19/opinion/public-health-trump.html
+
+**Israelis Protest Against Netanyahu as Strikes on Gaza Continue**\
+`While strikes on Gaza continued for a second day after the cease-fire between Israel and Hamas collapsed, critics of Prime Minister Benjamin Netanyahu marched toward his office, demanding the release of hostages held in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010060730/jerusalem-netanyahu-protest-gaza-strikes.html
+
+**Rico Dowdle sidesteps Cowboys controversy, calls Chuba Hubbard a 'baller'**\
+`Dowdle hoped to find a multiyear deal in free agency but that did not work out for the former South Carolina back who is closer to home.`\
+https://nytimes.com/athletic/6216298/2025/03/19/panthers-rico-dowdle-cowboys-running-back/
+
 **Art Adviser Sentenced to 2.5 Years in Prison for Defrauding Clients**\
 `Lisa Schiff diverted millions of dollars from art collectors to fund her own luxe lifestyle.`\
 https://nytimes.com/2025/03/19/arts/design/lisa-schiff-art-adviser-sentenced.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6215999/2025/03/19/flyers-noah-cates-scratched/
 **Meet Houston's lead ball boy: How a 12-year-old became part of the Cougar family**\
 `The Cougars have enjoyed much sucess over the past three seasons — and 12-year-old Jace Abarca basked in much of it.`\
 https://nytimes.com/athletic/6215775/2025/03/19/houston-basketball-ball-boy-kelvin-sampson/
-
-**NFL rule change proposals: Playoff seeding changes, OT rules, 'tush push' ban**\
-`Any proposal needs approval from 24 of the 32 NFL voters to pass and become official.`\
-https://nytimes.com/athletic/6215801/2025/03/19/nfl-2025-rule-changes-playoff-seeds-tush-push/
-
-**U.S. Institute of Peace Accuses Trump and DOGE of ‘Takeover by Force’**\
-`The institute, a nonprofit dedicated to promoting peace, sued President Trump and Elon Musk’s government cost-cutting team over the administration’s attempts to dismantle it.`\
-https://nytimes.com/2025/03/19/us/politics/peace-institute-lawsuit-doge-trump.html
-
-**Lloyd: March Madness bracketology for my own amusement. You're not only one flipping out**\
-`There has never been a perfect bracket, according to the NCAA. Just like Matthew McConaughey, I decided to leave it to chance. `\
-https://nytimes.com/athletic/6215581/2025/03/19/march-madness-2025-ncaa-tournament-bracketology/
 
