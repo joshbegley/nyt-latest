@@ -1,3 +1,11 @@
+**Bondi calls Tesla vandalism ‘domestic terrorism,’ promising steep consequences.**\
+`The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
+https://nytimes.com/2025/03/18/us/politics/bondi-calls-tesla-vandalism-domestic-terrorism-promising-steep-consequences.html
+
+**Dough Dispensers**\
+`Evan Park and Jeffrey Martinovic connect with us on the astral plane.`\
+https://nytimes.com/2025/03/18/crosswords/daily-puzzle-2025-03-19.html
+
 **Historians adopt a wait-and-see stance toward latest trove of Kennedy documents.**\
 `Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/historians-adopt-a-wait-and-see-stance-toward-latest-trove-of-kennedy-documents
