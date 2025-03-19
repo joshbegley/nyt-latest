@@ -1,3 +1,7 @@
+**Jung Hoo Lee's MRI results were encouraging, but highlight Giants' precarious postseason hopes**\
+`The news that Lee needed an MRI was ominous because there are only so many blows the Giants can absorb. They don't need to start now.`\
+https://nytimes.com/athletic/6214859/2025/03/19/jung-hoo-lee-mri-results-sf-giants-impact/
+
 **Cleveland mayor accuses Haslams of 'misleading statements' around Browns' new stadium**\
 `The Haslam Sports Group wants to move the team to a stadium in Brook Park, while the City of Cleveland wants the team to play in downtown. `\
 https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-proposed-new-stadium/
