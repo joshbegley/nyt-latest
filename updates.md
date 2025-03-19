@@ -1,3 +1,11 @@
+**Takeaways from today’s Fed meeting and fresh set of forecasts.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/03/19/business/fed-interest-rates/takeaways-from-todays-fed-meeting-and-fresh-set-of-forecasts
+
+**Donald Trump Jr. Mixes Business and Politics in Serbia, as Protests There Rage**\
+`President Trump’s oldest son visited Belgrade, the site of a Trump International Hotel project, and pushed back on calls for the country’s president to resign.`\
+https://nytimes.com/2025/03/19/us/politics/donald-trump-jr-serbia.html
+
 **A.D.H.D. Videos on TikTok Are Often Misleading, New Study Finds**\
 `Even people who have been diagnosed don’t always spot inaccuracies or generalizations about the condition in the social media posts, research suggests.`\
 https://nytimes.com/2025/03/19/well/mind/adhd-videos-tiktok-misinfo.html
