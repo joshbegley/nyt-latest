@@ -1,3 +1,23 @@
+**Trump’s Tariffs Could Deal a Blow to Boeing and the Aerospace Industry**\
+`Aerospace companies are big exporters but also very reliant on a global supply chain, making them vulnerable.`\
+https://nytimes.com/2025/03/19/business/boeing-trump-tariffs.html
+
+**Schools Are Required to Offer Free Period Products. Where Are They?**\
+`A lawsuit against the New York City Department of Education alleges that not providing free products amounts to discrimination.`\
+https://nytimes.com/2025/03/19/well/live/pads-tampons-free-schools.html
+
+**Pasta? For Spring? Delicious.**\
+`Ali Slagle’s one-pot tortellini with prosciutto and peas is a cheerful nod to the new season (and perfect for these still-chilly nights).`\
+https://nytimes.com/2025/03/19/dining/delicious-spring-pasta-recipes.html
+
+**Tyler Reddick on his clutch Homestead pass and much more: 12 Questions**\
+`Tyler Reddick talks about last year's thrilling playoff win, why he doesn't feel more for other drivers and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6204946/2025/03/19/tyler-reddick-nascar-homestead-pass-12-questions/
+
+**Bucks stuck 'in an offensive funk,' lose to Warriors to start five-game road trip**\
+`"We gotta do things with more force, more pace," Damian Lillard said after the Bucks scored a season-low 93 points against Golden State.`\
+https://nytimes.com/athletic/6215086/2025/03/19/bucks-warriors-giannis-antetokounmpo-damian-lillard/
+
 **England managers' first games: Fresh faces and false dawns but no defeats in 62 years**\
 `Thomas Tuchel beware: no England manager has endured defeat in his first match in charge since Sir Alf Ramsey's team lost to France in 1963`\
 https://nytimes.com/athletic/6215173/2025/03/19/england-manager-tuchel-southgate-venables-debuts/
