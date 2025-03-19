@@ -1,3 +1,11 @@
+**In Tokyo debut, Roki Sasaki flashes long-term potential, early growing pains**\
+`It was electric. It was maddening. It was fascinating. Such was the debut of Sasaki, whose Dodgers swept the two-game Tokyo Series.`\
+https://nytimes.com/athletic/6215095/2025/03/19/dodgers-cubs-tokyo-series-game-2/
+
+**'Sub-standard' pitches in women's football put 'player safety at risk', says PFA**\
+`The playing surface for top-level matches has been the source of criticism twice in the last week.`\
+https://nytimes.com/athletic/6215304/2025/03/19/pfa-womens-football-pitches-risk/
+
 **Why USL owners took the leap to vote for promotion and relegation**\
 `It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
 https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6213043/2025/03/19/big-ten-foootball-recruiting-usc
 **49ers mailbag: How heavily will team lean on rookies? Mason Graham in Round 1?**\
 `Among this week's questions: What's the plan at swing tackle and just how hard did the 49ers try to retain linebacker Dre Greenlaw?`\
 https://nytimes.com/athletic/6214104/2025/03/19/49ers-mailbag-rookies-draft-mason-graham/
-
-**How South Alabama got uninvited from the NIT in 'unacceptable' process**\
-`When UC Riverside was accidentally invited to both the NIT and CBI, its decision left a team across the country without postseason plans.`\
-https://nytimes.com/athletic/6214311/2025/03/19/nit-south-alabama-uc-riverside/
-
-**Bruins’ Fabian Lysell is back, and the prospect's clock is ticking**\
-`Interim coach Joe Sacco on Lysell's return: "He’s getting an opportunity. At some point, we’ll see him in the lineup here."`\
-https://nytimes.com/athletic/6214021/2025/03/19/bruins-fabian-lysell-prospect-clock/
 
