@@ -1,3 +1,19 @@
+**Takeaways From the Kennedy Files: Spycraft, Collateral Damage and Granular Detail**\
+`The big reveal from almost 64,000 documents was that there wasn’t much of a reveal at all.`\
+https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.html
+
+**Trump Administration Prepares to Give Gun Rights Back to Some Convicts**\
+`After Justice Department officials sought to allow Mel Gibson to own a gun again, the administration is proposing a path for some people to have their firearms access restored.`\
+https://nytimes.com/2025/03/19/us/politics/trump-gun-rights-convicts.html
+
+**Marcelo Mayer gets second base start as Red Sox send Vaughn Grissom to minor leagues**\
+`“The baseball player is real,” manager Alex Cora said of Mayer. “He’s not just a prospect. He’s a baseball player.”`\
+https://nytimes.com/athletic/6216964/2025/03/19/marcelo-mayer-red-sox-second-base/
+
+**Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
+`City face Chelsea in the WSL on Sunday before the second leg of their Champions League quarter-final at on March 27.`\
+https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastor/
+
 **Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
 `City face Chelsea in the WSL on Sunday before the second leg of their Champions League quarter-final at on March 27.`\
 https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastory/

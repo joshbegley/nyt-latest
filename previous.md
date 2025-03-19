@@ -1,6 +1,18 @@
+**Takeaways From the Kennedy Files: Spycraft, Collateral Damage and Granular Detail**\
+`The big reveal from almost 64,000 documents was that there wasn’t much of a reveal at all.`\
+https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.html
+
+**Trump Administration Prepares to Give Gun Rights Back to Some Convicts**\
+`After Justice Department officials sought to allow Mel Gibson to own a gun again, the administration is proposing a path for some people to have their firearms access restored.`\
+https://nytimes.com/2025/03/19/us/politics/trump-gun-rights-convicts.html
+
+**Marcelo Mayer gets second base start as Red Sox send Vaughn Grissom to minor leagues**\
+`“The baseball player is real,” manager Alex Cora said of Mayer. “He’s not just a prospect. He’s a baseball player.”`\
+https://nytimes.com/athletic/6216964/2025/03/19/marcelo-mayer-red-sox-second-base/
+
 **Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
 `City face Chelsea in the WSL on Sunday before the second leg of their Champions League quarter-final at on March 27.`\
-https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastory/
+https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastor/
 
 **Tigers confront third-base woes as ghosts of Alex Bregman pursuit linger**\
 `As positive as the team’s messaging has been, some facts are hard to deny. Last season’s Tigers combined for only 0.6 bWAR at third base.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severanc
 **Jackie Robinson article restored after removal from Defense Department site**\
 `Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
 https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
-
-**The Amtrak chief executive abruptly resigned from the rail service.**\
-`Stephen J. Gardner stepped down on Wednesday after leading Amtrak for three years.`\
-https://nytimes.com/2025/03/19/us/politics/the-amtrak-chief-executive-abruptly-resigned-from-the-rail-service.html
-
-**‘More Than a Hint’ That Dark Energy Isn’t What Astronomers Thought**\
-`New data further challenge the best scientific theory of the history and the structure of the universe. But a separate recent result reinforces it.`\
-https://nytimes.com/2025/03/19/science/space/astronomer-desi-dark-energy.html
-
-**A Kennedy aide worried that the C.I.A. threatened the State Department’s power.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/a-kennedy-aide-worried-that-the-cia-threatened-the-state-departments-power
 
