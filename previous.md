@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6216450/2025/03/19/2025-womens-march-madness-first-
 https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
 
 **Musk Donates to G.O.P. Members of Congress Who Support Impeaching Judges**\
-`Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republican incumbents who back ousting judges who impede the administration.`\
+`Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republicans who back ousting judges who impede the administration.`\
 https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
 
 **Jackie Robinson’s Legacy Vanishes, Then Reappears on Pentagon Site**\

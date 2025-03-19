@@ -1,3 +1,15 @@
+**Federal Reserve Extends Pause on Rate Cuts**\
+`The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
+https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
+
+**Liverpool's Alexander-Arnold targeting April return from ankle sprain**\
+`The 26-year-old is hopeful of being given the green light to resume training at some point in April.`\
+https://nytimes.com/athletic/6216928/2025/03/19/liverpool-alexander-arnold-ankle-injury-return-date/
+
+**Los Angeles Faces Nearly $1 Billion Deficit as It Rebuilds From Fires**\
+`Shifting federal policies, combined with the cost of January’s wildfires, have created “serious financial headwinds” for the city, officials said.`\
+https://nytimes.com/2025/03/19/us/los-angeles-budget-deficit.html
+
 **Small Plane That Crashed in Alaska Was a Half-Ton Overweight, U.S. Says**\
 `All 10 people on board were killed when the plane, flying in poor visibility, plunged into sea ice near Nome in February.`\
 https://nytimes.com/2025/03/19/us/alaska-plane-crash-overweight.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
 **Jackie Robinson’s Legacy Vanishes, Then Reappears on Pentagon Site**\
 `A number of military pages focused on African American achievements have been lost amid the Trump administration’s effort to scrub references to diversity and inclusion. Some return. Others don’t.`\
 https://nytimes.com/2025/03/19/us/politics/jackie-robinson-defense-department.html
-
-**Love or hate the Astros' newest City Connect uniforms? Our panel weighs in**\
-`It can be hard to get baseball writers to agree on much, but that was not the case for these uniforms. `\
-https://nytimes.com/athletic/6216485/2025/03/19/mlb-city-connect-astros-nike/
-
-**Thursday Briefing: Ukraine Agrees to a Strike Pause**\
-`Plus, a push against India’s “boss husbands.”`\
-https://nytimes.com/2025/03/19/briefing/ukraine-cease-fire-canada-defense-israel-gaza.html
-
-**America Is Aggravating the World’s Worst Humanitarian Crisis**\
-`Our silence about Sudan and the cancellation of U.S. aid comes painfully close to complicity.`\
-https://nytimes.com/2025/03/19/opinion/america-sudan-genocide.html
 

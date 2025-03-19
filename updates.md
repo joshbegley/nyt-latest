@@ -1,3 +1,7 @@
+**Musk Donates to G.O.P. Members of Congress Who Support Impeaching Judges**\
+`Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republicans who back ousting judges who impede the administration.`\
+https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
+
 **Small Plane That Crashed in Alaska Was a Half-Ton Overweight, U.S. Says**\
 `All 10 people on board were killed when the plane, flying in poor visibility, plunged into sea ice near Nome in February.`\
 https://nytimes.com/2025/03/19/us/alaska-plane-crash-overweight.html
