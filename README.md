@@ -1,3 +1,11 @@
+**A Dyslexic Comedian Walks Into a Recording Booth …**\
+`Writing a memoir was no laughing matter for Phil Hanley. Narrating the audiobook took 16 sessions, 64 hours and a supportive audience.`\
+https://nytimes.com/2025/03/19/books/spellbound-phil-hanley.html
+
+**The Bounce: Has LeBron James' absence helped Luka Dončić adjust to the Lakers?**\
+`It's been over a month since Luka Dončić joined the Lakers. Is he resembling peak form? Jovan Buha helps answer.`\
+https://nytimes.com/athletic/6215253/2025/03/19/lebron-james-luka-doncic-lakers-ncaa-tournament-the-bounce-nba/
+
 **ESPN chairman 'caught by surprise' by Rob Manfred's comments**\
 `The ESPN chairman is still interested in returning to the negotiating table to hammer out a new deal with Major League Baseball.`\
 https://nytimes.com/athletic/6215427/2025/03/19/espn-jimmy-pitaro-shrinking-platform-comments-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/19/nyregion/mahmoud-khalil-nj-transfer-o
 **Judge Says Khalil’s Deportation Case Can Be Heard in New Jersey**\
 `The Trump administration has sought to deport Mahmoud Khalil, a Columbia University graduate, though he is a legal permanent resident and has not been charged with a crime.`\
 https://nytimes.com/2025/03/19/nyregion/mahmoud-khalil-deportation-case-new-jersey.html
-
-**She May Be the Most Powerful Producer Working in Theater**\
-`Sonia Friedman has “created her own theater studio system,” balancing big properties like “Harry Potter” and “Stranger Things” with more prestige work by Stoppard and Sondheim.`\
-https://nytimes.com/2025/03/19/theater/sonia-friedman-broadway-stranger-things.html
-
-**My Friend Is Refusing to Talk Politics With Me. Can She Do That?**\
-`A reader feels spurned by a friend’s “self-righteous” declaration that she would no longer engage with him about politics after he revealed he didn’t plan to vote.`\
-https://nytimes.com/2025/03/19/style/political-talk-with-friends.html
 

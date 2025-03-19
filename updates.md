@@ -1,3 +1,7 @@
+**ESPN chairman 'caught by surprise' by Rob Manfred's comments**\
+`The ESPN chairman is still interested in returning to the negotiating table to hammer out a new deal with Major League Baseball.`\
+https://nytimes.com/athletic/6215427/2025/03/19/espn-jimmy-pitaro-shrinking-platform-comments-mlb/
+
 **The 11 teams that can win the NCAA Tournament**\
 `If history is any indication, one of these 11 teams will be your 2025 national champions.`\
 https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-duke-florida/
