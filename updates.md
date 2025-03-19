@@ -1,3 +1,7 @@
+**Southgate: Young men are being led by 'toxic influencers'**\
+`Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
+https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
+
 **Key Saudi Pro League executive leaves role to take up new job**\
 `Al Lazeez joined the Saudi Pro League as a senior advisor in late 2021 and by early 2023 he had become vice-chairman.`\
 https://nytimes.com/athletic/6215333/2025/03/19/saad-al-lazeez-saudi-pro-league/
