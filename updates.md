@@ -1,3 +1,11 @@
+**A Dyslexic Comedian Walks Into a Recording Booth …**\
+`Writing a memoir was no laughing matter for Phil Hanley. Narrating the audiobook took 16 sessions, 64 hours and a supportive audience.`\
+https://nytimes.com/2025/03/19/books/spellbound-phil-hanley.html
+
+**The Bounce: Has LeBron James' absence helped Luka Dončić adjust to the Lakers?**\
+`It's been over a month since Luka Dončić joined the Lakers. Is he resembling peak form? Jovan Buha helps answer.`\
+https://nytimes.com/athletic/6215253/2025/03/19/lebron-james-luka-doncic-lakers-ncaa-tournament-the-bounce-nba/
+
 **ESPN chairman 'caught by surprise' by Rob Manfred's comments**\
 `The ESPN chairman is still interested in returning to the negotiating table to hammer out a new deal with Major League Baseball.`\
 https://nytimes.com/athletic/6215427/2025/03/19/espn-jimmy-pitaro-shrinking-platform-comments-mlb/
