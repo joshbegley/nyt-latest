@@ -1,3 +1,11 @@
+**One and One-A: Why Ja’Marr Chase and Tee Higgins want to share the spotlight**\
+`The WRs are the ultimate package deal and their greatness grows exponentially because of each other. Now their bank accounts do, as well.`\
+https://nytimes.com/athletic/6214536/2025/03/19/jamarr-chase-tee-higgins-extensions-bengals/
+
+**The New York Times International Edition in Print for Thursday, March 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/19/todays-new-york-times-international-edition
+
 **What I’m hearing at Yankees camp: Considering upgrade at third base, deciding on starters**\
 `With Giancarlo Stanton out, Ben Rice looks like the designated hitter against lefty pitching with Aaron Judge taking turns vs. righties.`\
 https://nytimes.com/athletic/6214355/2025/03/19/kuty-what-im-hearing-yankees-camp/
