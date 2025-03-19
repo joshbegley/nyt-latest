@@ -1,3 +1,11 @@
+**Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
+`By Tyler Pager and Maggie Haberman`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files
+
+**J.F.K., Blown Away, What Else Do I Have to Say?**\
+`Why the newly released documents won’t put out the fire.`\
+https://nytimes.com/2025/03/18/books/review/john-f-kennedy-assassination-conspiracy-theory.html
+
 **Oracle’s Role in TikTok’s Future Gets Capitol Hill Scrutiny**\
 `Top congressional staffers met with Oracle on Tuesday to talk about TikTok, which faces a ban in the United States unless it is sold to a non-Chinese owner by early April.`\
 https://nytimes.com/2025/03/18/technology/oracle-tiktok.html
