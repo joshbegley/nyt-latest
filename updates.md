@@ -1,3 +1,19 @@
+**Judge Grants the Government Another Day to Share Details on Deportation Flights**\
+`Judge James Boasberg has asked the government to tell him what time two planes took off from U.S. soil and from where, what time they left U.S. airspace and what time they landed in El Salvador.`\
+https://nytimes.com/2025/03/19/us/politics/deportation-flights-doj-fight.html
+
+**Dear American and Canadian Friends and Neighbors:**\
+`Three Canadians and an American engage in a colloquy about relations between the countries. Also: Nuclear agency cutbacks; silencing Voice of America.`\
+https://nytimes.com/2025/03/19/opinion/us-canada-relations.html
+
+**White House Expected to Pause $175 Million for Penn Over Transgender Policy**\
+`The decision is the latest clash between a university and the administration as it pushes schools to end diversity programming and adopt stricter discipline, among other things.`\
+https://nytimes.com/2025/03/19/us/politics/trump-to-pause-175-million-for-university-of-pennsylvania-over-transgender-policy.html
+
+**Tim Walz Attacks Musk With Language From the Trump Playbook**\
+`The Minnesota governor derided Elon Musk, a naturalized United States citizen, as a “South African nepo baby.”`\
+https://nytimes.com/2025/03/19/us/politics/democrats-elon-musk-tim-walz-trump-administration.html
+
 **Trump’s Ending of Hunter Biden’s Security Detail Raises Questions About Who Gets Protection**\
 `The sudden ending of Secret Service protection for former President Joseph R. Biden Jr.’s son thrust the issue of security details into the headlines but raised concerns about political payback.`\
 https://nytimes.com/2025/03/19/us/politics/trump-hunter-biden-secret-service.html
