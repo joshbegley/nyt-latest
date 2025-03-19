@@ -1,3 +1,7 @@
+**Love or hate the Astros' newest City Connect uniforms? Our panel weighs in**\
+`It can be hard to get baseball writers to agree on much, but that was not the case for these uniforms. `\
+https://nytimes.com/athletic/6216485/2025/03/19/mlb-city-connect-astros-nike/
+
 **Thursday Briefing: Ukraine Agrees to a Strike Pause**\
 `Plus, a push against India’s “boss husbands.”`\
 https://nytimes.com/2025/03/19/briefing/ukraine-cease-fire-canada-defense-israel-gaza.html
