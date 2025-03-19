@@ -1,3 +1,11 @@
+**Canucks win with a commanding, up-tempo game against Jets: 3 takeaways**\
+`Despite not having Conor Garland, the Canucks turned in their best offensive performance in weeks against the NHL's best team.`\
+https://nytimes.com/athletic/6214805/2025/03/19/canucks-defeat-jets-three-takeaways/
+
+**The BookKeeper - Exploring Manchester City's finances during a season of change**\
+`In-depth analysis of Manchester City's financial situation from The Athletic's new football finance writer`\
+https://nytimes.com/athletic/6115037/2025/03/19/the-bookkeeper-manchester-city-financial-analysis/
+
 **Thomas Tuchel and 'earning the right' to sing the English national anthem. Discuss.**\
 `Tuchel came up with what he presumably thought was quite a smart answer to an absurd riddle — but quite where this logic leads us is unclear`\
 https://nytimes.com/athletic/6209327/2025/03/19/thomas-tuchel-england-national-anthem/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/opinion/us-foreign-aid.html
 **Dust Storms Cloud New Mexico**\
 `The haze lowered visibility for drivers and put southern New Mexico at risk of fires.`\
 https://nytimes.com/video/us/100000010060361/dust-storms-cloud-new-mexico.html
-
-**Dust Storms in Texas and New Mexico Raise Fire Risks**\
-`Blowing dust reduced visibility to near zero in some parts of New Mexico, prompting road closures. Forecasters say dangerous fire conditions will persist until Thursday.`\
-https://nytimes.com/2025/03/19/us/wildfires-dust-new-mexico-texas.html
-
-**Morale continues to decline as Blackhawks fall apart against Kraken**\
-`The Blackhawks allowed six unanswered goals at home in a brutal loss to Seattle.`\
-https://nytimes.com/athletic/6214750/2025/03/19/blackhawks-collapse-morale-kraken/
 
