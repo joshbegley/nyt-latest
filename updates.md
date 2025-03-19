@@ -1,3 +1,7 @@
+**The Pulse: We already have a buzzer-beater**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6213673/2025/03/19/north-carolina-ncaa-tournament-the-pulse/
+
 **Pre-March Madness WNBA mock draft: Paige Bueckers remains on top, Azzi Fudd rises**\
 `As the college basketball world gears up for March Madness, this is the last chance for seniors to make an impression on WNBA talent evaluators ahead of the 2025 WNBA Draft, which will be held eight days after the national championship.`\
 https://nytimes.com/athletic/6214360/2025/03/19/wnba-mock-draft-march-madness-paige-bueckers/

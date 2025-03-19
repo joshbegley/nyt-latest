@@ -1,3 +1,7 @@
+**Far From Giving Ground, Putin Digs In With His Demands on Ukraine**\
+`Although much of what Vladimir V. Putin agreed to during his call with President Trump was spun as a concession, the Russian leader stuck to the positions he has long held.`\
+https://nytimes.com/2025/03/19/world/europe/trump-putin-call-russia-ukraine-war.html
+
 **The Pulse: We already have a buzzer-beater**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6213673/2025/03/19/north-carolina-ncaa-tournament-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214572/2025/03/19/islanders-playoffs-stretch-run-p
 **Who will rule March Madness? The Athletic's consensus men's NCAA Tournament bracket**\
 `We asked 24 of our college sports experts for their men's NCAA Tournament brackets. Here are our favorite title contenders and upset picks.`\
 https://nytimes.com/athletic/6214175/2025/03/19/ncaa-tournament-march-madness-consensus-staff-predictions/
-
-**‘Can’t-miss’ Men’s NCAA Tournament games on Thursday and Friday: truTV FTW?**\
-`What NCAA Tournament games are 'cant-miss' on Thursday and Friday? The Athletic's experts help you map out the two frenzied days of TV.`\
-https://nytimes.com/athletic/6210246/2025/03/19/mens-march-madness-2025-must-watch-games/
 
