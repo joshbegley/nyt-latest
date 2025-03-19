@@ -1,3 +1,7 @@
+**Listen: Should the Tennessee Titans draft Cam Ward with the No. 1 overall pick?**\
+`"The Athletic Football Show" discusses whether the Tennessee Titans should select Cam Ward with the No. 1 overall pick.`\
+https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-cam-ward-draft/
+
 **Lowetide: How the Oilers' deployment versus elites offers some surprises**\
 `The Oilers' philosophy has been to let the opposition worry about line matching against Connor McDavid and Leon Draisaitl.`\
 https://nytimes.com/athletic/6212371/2025/03/19/edmonton-oilers-elites-stats-2025/
