@@ -1,3 +1,15 @@
+**Padres' Yu Darvish questionable for Opening Day because of elbow inflammation**\
+`Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
+https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/
+
+**Trump Official Threatens to Withhold M.T.A. Funding Over Safety Data**\
+`Sean Duffy, the U.S. transportation secretary, demanded a long list of details about crime in the subway and on buses in New York.`\
+https://nytimes.com/2025/03/18/nyregion/trump-mta-funding.html
+
+**What are the National Archives, where the Kennedy files are stored?**\
+`By Jennifer Schuessler`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-national-archives-where-the-kennedy-files-are-stored
+
 **Tesla Wins California Permit to Begin Offering Rides**\
 `The limited regulatory approval is an early step toward Elon Musk’s goal of offering a Tesla self-driving taxi service.`\
 https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6213452/2025/03/18/usl-promotion-relegation-us-socc
 **Sectional Sofas Can Work in Any Space. Here Are Our Favorites.**\
 `A roundup of the best modular couches, starting at $1,650.`\
 https://nytimes.com/2025/03/18/t-magazine/best-sectional-sofas.html
-
-**Here are some tantalizing details revealed in a 2017 document release.**\
-`By Peter Baker and Scott Shane`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/here-are-some-tantalizing-details-revealed-in-a-2017-document-release
-
-**Here’s What to Know About the Kennedy Files, Past and Present**\
-`About 99 percent of the government documents related to President John F. Kennedy’s assassination have long been available to the public under a 1992 law.`\
-https://nytimes.com/2025/03/18/us/kennedy-assassination-files-history.html
-
-**Historians Take Wait-and-See Approach to Latest Kennedy Assassination Documents**\
-`Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
-https://nytimes.com/2025/03/18/us/kennedy-assassination-historians-documents.html
 

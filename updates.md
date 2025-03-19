@@ -1,3 +1,15 @@
+**Padres' Yu Darvish questionable for Opening Day because of elbow inflammation**\
+`Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
+https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/
+
+**Trump Official Threatens to Withhold M.T.A. Funding Over Safety Data**\
+`Sean Duffy, the U.S. transportation secretary, demanded a long list of details about crime in the subway and on buses in New York.`\
+https://nytimes.com/2025/03/18/nyregion/trump-mta-funding.html
+
+**What are the National Archives, where the Kennedy files are stored?**\
+`By Jennifer Schuessler`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-national-archives-where-the-kennedy-files-are-stored
+
 **Tesla Wins California Permit to Begin Offering Rides**\
 `The limited regulatory approval is an early step toward Elon Musk’s goal of offering a Tesla self-driving taxi service.`\
 https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.html
