@@ -1,3 +1,11 @@
+**Scoop City: Nine ways free agency changed this draft**\
+`Inside: How free agency changed this year&#8217;s draft, whether Brock Purdy should get $60 million and which sleeper QB you should know.`\
+https://nytimes.com/athletic/6215696/2025/03/19/free-agency-nfl-draft-impact-2025-cam-ward-titans-scoop-city/
+
+**How will West Virginia replace Darian DeVries? Candidates to watch**\
+`West Virginia has its second coaching search in 12 months, and that’s on top of a tumultuous transition with the departure of Bob Huggins.`\
+https://nytimes.com/athletic/6215643/2025/03/19/west-virginia-basketball-coaching-search-candidates/
+
 **The Windup: How Sasaki's debut went**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6214944/2025/03/19/dodgers-tokyo-roki-sasaki-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214795/2025/03/19/ncaa-tournament-expansion-abunda
 **The tennis antitrust plaintiffs say they do not want to destroy the sport. They never could.**\
 `The PTPA and players' lawsuit is wide-ranging, but its core aims and likely consequences are directed at revenue and the calendar.`\
 https://nytimes.com/athletic/6215214/2025/03/19/tennis-lawsuit-ptpa-prize-money-schedule-why/
-
-**Trump’s Tariffs Have Sown Uncertainty. That Might Be the Point.**\
-`President Trump’s economic advisers have used a hodgepodge of messages to justify starting trade wars that are spooking markets.`\
-https://nytimes.com/2025/03/19/business/trump-tariffs-economy.html
-
-**Stefanik’s Nomination for U.N. Ambassador Will Begin Moving Ahead**\
-`The confirmation process of Representative Elise Stefanik, a New York Republican, has been delayed while House Republicans relied on her vote to maintain the slimmest of majorities.`\
-https://nytimes.com/2025/03/19/us/politics/elise-stefanik-united-nations-ambassador-house-trump.html
 
