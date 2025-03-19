@@ -2,9 +2,9 @@
 `Ben & Jerry’s said in a court filing that its parent company had ousted its chief executive, David Stever, without approval from the ice cream maker’s board.`\
 https://nytimes.com/2025/03/19/business/ben-and-jerrys-unilever-lawsuit-ceo.html
 
-**Israeli Forces Begin ‘Targeted Ground Activities’ in Gaza Strip**\
+**Israeli Forces Expand ‘Targeted Ground Activities’ in Gaza Strip**\
 `The military said it had seized part of a major corridor that separates the enclave’s northern half from the south.`\
-https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip.html
+https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip-netzarim.html
 
 **Looking to add spice to March Madness? Consider the fantasy-inspired Top Gun tourney challenge**\
 `Brandon Funston offers a different take on your typical March Madness bracket games — the Top Gun tourney challenge.`\
