@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Like an Old Song We Can’t Stop Singing’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/19/style/tiny-modern-love-stories-like-an-old-song-we-cant-stop-singing.html
+
 **Ben & Jerry’s Accuses Unilever of Firing Its C.E.O. for Political Reasons**\
 `Ben & Jerry’s said in a court filing that its parent company had ousted its chief executive, David Stever, without approval from the ice cream maker’s board.`\
 https://nytimes.com/2025/03/19/business/ben-and-jerrys-unilever-lawsuit-ceo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/business/economy/trump-federal-reserve-rates-tari
 **How to Read the Fed’s Projections Like a Pro**\
 `The Federal Reserve will release fresh economic estimates on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
 https://nytimes.com/2025/03/19/business/economy/federal-reserve-projections-outlook-reading.html
-
-**Live Updates: Fed Expected to Extend Pause on Rate Cuts**\
-`A new set of economic projections will give the clearest sense to date of how officials think President Trump’s agenda will impact the economy.`\
-https://nytimes.com/live/2025/03/19/business/fed-interest-rates
 
