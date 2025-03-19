@@ -1,3 +1,7 @@
+**NHL 'reevaluating' All-Star Game, what tariffs could mean for HRR and cap, more: GM meetings wrap**\
+`Also, why the NHL's decentralized draft could be a one-and-done, and Gary Bettman discusses playoff format, rule changes and CBA talks.`\
+https://nytimes.com/athletic/6215837/2025/03/19/nhl-gm-meetings-all-star-tariffs/
+
 **The Entire Future of American Public Health Is at Risk**\
 `Trump’s appointees don’t believe in the concept of a public in the first place.`\
 https://nytimes.com/2025/03/19/opinion/public-health-trump.html
@@ -26,15 +30,11 @@ https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html
 `A calm retreat that’s just a short walk from the bacchanalia of Bourbon Street.`\
 https://nytimes.com/2025/03/19/realestate/bywater-new-orleans-a-once-industrial-neighborhood-with-a-funky-vibe.html
 
+**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
+`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
+https://nytimes.com/athletic/6129807/2025/03/19/2025-fantasy-baseball-draft-kit-mlb/
+
 **Phil Jones: 'Tough' moment he left the Man Utd WhatsApp and why he's training to be a coach**\
 `After the end of his playing career, Phil Jones felt lost. He discusses finding his place again as a coach at Manchester United`\
 https://nytimes.com/athletic/6215609/2025/03/19/phil-jones-the-coach-aggressive-intense-and-ready-to-win-at-all-costs-at-manchester-united/
-
-**Flyers' Noah Cates now 'a tremendous leader' after getting pushed out of lineup earlier**\
-`Cates, a pending restricted free agent, is proving to be increasingly valuable to the Flyers.`\
-https://nytimes.com/athletic/6215999/2025/03/19/flyers-noah-cates-scratched/
-
-**Meet Houston's lead ball boy: How a 12-year-old became part of the Cougar family**\
-`The Cougars have enjoyed much sucess over the past three seasons — and 12-year-old Jace Abarca basked in much of it.`\
-https://nytimes.com/athletic/6215775/2025/03/19/houston-basketball-ball-boy-kelvin-sampson/
 

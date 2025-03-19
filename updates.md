@@ -1,3 +1,11 @@
+**NHL 'reevaluating' All-Star Game, what tariffs could mean for HRR and cap, more: GM meetings wrap**\
+`Also, why the NHL's decentralized draft could be a one-and-done, and Gary Bettman discusses playoff format, rule changes and CBA talks.`\
+https://nytimes.com/athletic/6215837/2025/03/19/nhl-gm-meetings-all-star-tariffs/
+
+**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
+`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
+https://nytimes.com/athletic/6129807/2025/03/19/2025-fantasy-baseball-draft-kit-mlb/
+
 **The Entire Future of American Public Health Is at Risk**\
 `Trump’s appointees don’t believe in the concept of a public in the first place.`\
 https://nytimes.com/2025/03/19/opinion/public-health-trump.html
