@@ -1,3 +1,27 @@
+**Read the Order Transferring Mahmoud Khalil’s Case to New Jersey**\
+`Read Judge Jesse Furman’s order transferring Mahmoud Khalil’s habeas corpus case from the Southern District of New York to the District of New Jersey.`\
+https://nytimes.com/interactive/2025/03/19/nyregion/mahmoud-khalil-nj-transfer-order.html
+
+**Judge Says Khalil’s Deportation Case Can Be Heard in New Jersey**\
+`The Trump administration has sought to deport Mahmoud Khalil, a Columbia University graduate, though he is a legal permanent resident and has not been charged with a crime.`\
+https://nytimes.com/2025/03/19/nyregion/mahmoud-khalil-deportation-case-new-jersey.html
+
+**She May Be the Most Powerful Producer Working in Theater**\
+`Sonia Friedman has “created her own theater studio system,” balancing big properties like “Harry Potter” and “Stranger Things” with more prestige work by Stoppard and Sondheim.`\
+https://nytimes.com/2025/03/19/theater/sonia-friedman-broadway-stranger-things.html
+
+**My Friend Is Refusing to Talk Politics With Me. Can She Do That?**\
+`A reader feels spurned by a friend’s “self-righteous” declaration that she would no longer engage with him about politics after he revealed he didn’t plan to vote.`\
+https://nytimes.com/2025/03/19/style/political-talk-with-friends.html
+
+**In Tokyo debut, Roki Sasaki flashes long-term potential, early growing pains**\
+`It was electric. It was maddening. It was fascinating. Such was the debut of Sasaki, whose Dodgers swept the two-game Tokyo Series.`\
+https://nytimes.com/athletic/6215095/2025/03/19/dodgers-cubs-tokyo-series-game-2/
+
+**'Sub-standard' pitches in women's football put 'player safety at risk', says PFA**\
+`The playing surface for top-level matches has been the source of criticism twice in the last week.`\
+https://nytimes.com/athletic/6215304/2025/03/19/pfa-womens-football-pitches-risk/
+
 **Why USL owners took the leap to vote for promotion and relegation**\
 `It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
 https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6214712/2025/03/19/cam-johnson-brooklyn-nets-trade-
 **What’s at Stake in Trump’s F.T.C. Purge**\
 `The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
 https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
-
-**Here’s what to know.**\
-`By Adam Nagourney`\
-https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/heres-what-to-know
-
-**Live Updates: 64,000 Pages of Kennedy Files Could Take Weeks to Study**\
-`The papers related, sometimes very tangentially, to the assassination of John F. Kennedy were made public by President Trump, but it’s unclear how many are new. Though scholars don’t expect major revelations, they are still eager to look.`\
-https://nytimes.com/live/2025/03/19/us/jfk-assassination-files
-
-**Big Ten recruiting thoughts: USC's impressive start, Maryland's big get, Indiana's opportunity**\
-`It's very early in the cycle, but four of the top seven teams in the Class of 2026 rankings are from the Big Ten.`\
-https://nytimes.com/athletic/6213043/2025/03/19/big-ten-foootball-recruiting-usc-maryland-indiana/
-
-**49ers mailbag: How heavily will team lean on rookies? Mason Graham in Round 1?**\
-`Among this week's questions: What's the plan at swing tackle and just how hard did the 49ers try to retain linebacker Dre Greenlaw?`\
-https://nytimes.com/athletic/6214104/2025/03/19/49ers-mailbag-rookies-draft-mason-graham/
-
-**How South Alabama got uninvited from the NIT in 'unacceptable' process**\
-`When UC Riverside was accidentally invited to both the NIT and CBI, its decision left a team across the country without postseason plans.`\
-https://nytimes.com/athletic/6214311/2025/03/19/nit-south-alabama-uc-riverside/
-
-**Bruins’ Fabian Lysell is back, and the prospect's clock is ticking**\
-`Interim coach Joe Sacco on Lysell's return: "He’s getting an opportunity. At some point, we’ll see him in the lineup here."`\
-https://nytimes.com/athletic/6214021/2025/03/19/bruins-fabian-lysell-prospect-clock/
 
