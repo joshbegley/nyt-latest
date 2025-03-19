@@ -1,3 +1,11 @@
+**7 best bets to kick off the early days of the women's NCAA Tournament**\
+`Austin Mock has seven best bets across the First Four and first round of the women's NCAA Tournament.`\
+https://nytimes.com/athletic/6216147/2025/03/19/womens-ncaa-tournament-first-round-best-bets/
+
+**Strange Race to Lead Olympic Sports Gets Stranger**\
+`With the winner instantly becoming the most prominent sports official in the world, the high-stakes campaign for president of the International Olympic Committee has turned increasingly harsh.`\
+https://nytimes.com/2025/03/19/world/europe/ioc-president-race-olympics.html
+
 **NHL 'reevaluating' All-Star Game, what tariffs could mean for HRR and cap, more: GM meetings wrap**\
 `Also, why the NHL's decentralized draft could be a one-and-done, and Gary Bettman discusses playoff format, rule changes and CBA talks.`\
 https://nytimes.com/athletic/6215837/2025/03/19/nhl-gm-meetings-all-star-tariffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html
 **Bywater, New Orleans, a Once-Industrial Neighborhood With a Funky Vibe**\
 `A calm retreat that’s just a short walk from the bacchanalia of Bourbon Street.`\
 https://nytimes.com/2025/03/19/realestate/bywater-new-orleans-a-once-industrial-neighborhood-with-a-funky-vibe.html
-
-**2025 fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
-`Welcome to our 2025 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
-https://nytimes.com/athletic/6129807/2025/03/19/2025-fantasy-baseball-draft-kit-mlb/
-
-**Phil Jones: 'Tough' moment he left the Man Utd WhatsApp and why he's training to be a coach**\
-`After the end of his playing career, Phil Jones felt lost. He discusses finding his place again as a coach at Manchester United`\
-https://nytimes.com/athletic/6215609/2025/03/19/phil-jones-the-coach-aggressive-intense-and-ready-to-win-at-all-costs-at-manchester-united/
 

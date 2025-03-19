@@ -1,3 +1,11 @@
+**7 best bets to kick off the early days of the women's NCAA Tournament**\
+`Austin Mock has seven best bets across the First Four and first round of the women's NCAA Tournament.`\
+https://nytimes.com/athletic/6216147/2025/03/19/womens-ncaa-tournament-first-round-best-bets/
+
+**Strange Race to Lead Olympic Sports Gets Stranger**\
+`With the winner instantly becoming the most prominent sports official in the world, the high-stakes campaign for president of the International Olympic Committee has turned increasingly harsh.`\
+https://nytimes.com/2025/03/19/world/europe/ioc-president-race-olympics.html
+
 **NHL 'reevaluating' All-Star Game, what tariffs could mean for HRR and cap, more: GM meetings wrap**\
 `Also, why the NHL's decentralized draft could be a one-and-done, and Gary Bettman discusses playoff format, rule changes and CBA talks.`\
 https://nytimes.com/athletic/6215837/2025/03/19/nhl-gm-meetings-all-star-tariffs/
