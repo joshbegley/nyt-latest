@@ -1,3 +1,15 @@
+**What to Know About the Backlash Against Tesla**\
+`Elon Musk’s electric carmaker faces serious headwinds amid his involvement with right-wing politics and the Trump administration.`\
+https://nytimes.com/2025/03/19/business/tesla-musk-trump-backlash.html
+
+**Josh Anderson’s long journey back to his identity is driving Canadiens’ culture at perfect time**\
+`Anderson's been longing to apply his playoff-style game to an actual playoff team, and the Canadiens are verging on him getting that chance.`\
+https://nytimes.com/athletic/6214937/2025/03/19/canadiens-josh-anderson-senators-nhl-playoffs/
+
+**Most Oilers stars shine in Ekholm's return, but Draisaitl's streak ends: 5 takeaways**\
+`The Oilers got the offensive breakthrough they’ve been searching for against Utah, despite the end of Draisaitl's 18-game point streak.`\
+https://nytimes.com/athletic/6214924/2025/03/19/oilers-ekholm-returns-draisaitl-streak-ends/
+
 **Christian Arroyo in mix for final Phillies roster spot after late tryout tested his faith**\
 `When January became February and there were still no offers, Arroyo had to confront his baseball mortality. But a workout got him a deal.`\
 https://nytimes.com/athletic/6214000/2025/03/19/christian-arroyo-phillies-roster-spring-workout/

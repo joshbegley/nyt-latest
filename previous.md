@@ -1,3 +1,15 @@
+**What to Know About the Backlash Against Tesla**\
+`Elon Musk’s electric carmaker faces serious headwinds amid his involvement with right-wing politics and the Trump administration.`\
+https://nytimes.com/2025/03/19/business/tesla-musk-trump-backlash.html
+
+**Josh Anderson’s long journey back to his identity is driving Canadiens’ culture at perfect time**\
+`Anderson's been longing to apply his playoff-style game to an actual playoff team, and the Canadiens are verging on him getting that chance.`\
+https://nytimes.com/athletic/6214937/2025/03/19/canadiens-josh-anderson-senators-nhl-playoffs/
+
+**Most Oilers stars shine in Ekholm's return, but Draisaitl's streak ends: 5 takeaways**\
+`The Oilers got the offensive breakthrough they’ve been searching for against Utah, despite the end of Draisaitl's 18-game point streak.`\
+https://nytimes.com/athletic/6214924/2025/03/19/oilers-ekholm-returns-draisaitl-streak-ends/
+
 **Christian Arroyo in mix for final Phillies roster spot after late tryout tested his faith**\
 `When January became February and there were still no offers, Arroyo had to confront his baseball mortality. But a workout got him a deal.`\
 https://nytimes.com/athletic/6214000/2025/03/19/christian-arroyo-phillies-roster-spring-workout/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6214256/2025/03/19/chris-patrick-capitals-contender
 **Ringers or old-timers? MLS greats join Des Moines for fun run at Open Cup**\
 `A slew of former MLS players, including multiple U.S. men's national team veterans, are embracing the amateur side of the U.S. Open Cup.`\
 https://nytimes.com/athletic/6214657/2025/03/19/des-moines-menace-us-open-cup-mccarty-kljestan-feilhaber-wright-phillips/
-
-**What if Alex Ovechkin's record-setter gets challenged? NHL situation room is ready, with fingers crossed**\
-`NHL exec Colin Campbell says the league is prepared for anything as far as validating goal No. 895, but, "Just please, please, no reviews."`\
-https://nytimes.com/athletic/6213859/2025/03/19/alex-ovechkin-nhl-situation-room-record/
-
-**After quiet offseason, Orioles march forward at their own cautious pace**\
-`In nearly a year under new owner David Rubenstein, the Orioles still have not signed any of their prized young talent to long-term deals.`\
-https://nytimes.com/athletic/6214595/2025/03/19/baltimore-orioles-offseason-contracts/
-
-**2020 visions: Five years later, which teams and players lost the most with the shorter season?**\
-`The 60-game season in 2020 played in front of empty stadiums hurt the entire league, but some lost more than others.`\
-https://nytimes.com/athletic/6212956/2025/03/19/2020-season-biggest-losers-athletics-reds-giancarlo-stanton/
 
