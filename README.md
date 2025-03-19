@@ -1,3 +1,7 @@
+**How Rangers face-planted in all areas against Flames: 3 takeaways**\
+`Poor team defense returned as New York fell 2-1 in a matchup it hardly could afford to lose against Calgary.`\
+https://nytimes.com/athletic/6214649/2025/03/18/rangers-flames-nhl-playoffs-standings/
+
 **Clippers playing without coach Tyronn Lue, assistant Jeff Van Gundy**\
 `LA will be without Lue for the fourth time in six games due to back pain.`\
 https://nytimes.com/athletic/6214590/2025/03/18/tyronn-lue-jeff-van-gundy-out-clippers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
 **Mexico City Bans Traditional Bullfights for Violence-Free Option**\
 `Showdowns between people and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
 https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
-
-**First Four: Alabama St. tops Saint Francis in thriller; UNC takes on SD State**\
-`Alabama State and Saint Francis were two of the lowest-rated teams in the NCAA Tournament, but they staged a classic on Tuesday.`\
-https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
 
