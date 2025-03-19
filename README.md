@@ -1,3 +1,19 @@
+**Thomas Tuchel and 'earning the right' to sing the English national anthem. Discuss.**\
+`Tuchel came up with what he presumably thought was quite a smart answer to an absurd riddle — but quite where this logic leads us is unclear`\
+https://nytimes.com/athletic/6209327/2025/03/19/thomas-tuchel-england-national-anthem/
+
+**Newcastle’s moment of triumph felt so wholesome. But we still need to talk about why it wasn't perfect**\
+`Football has become compromised and conflicted. The more we ignore that conflict, the more entangled it threatens to become`\
+https://nytimes.com/athletic/6213460/2025/03/19/newcastle-league-cup-victory-saudi-ownership/
+
+**Do Real Madrid have a point in 72-hour rest row?**\
+`Carlo Ancelotti made a bold claim after his side's win against Villarreal, but what do the numbers say about Madrid's lack of rest?`\
+https://nytimes.com/athletic/6213404/2025/03/19/real-madrid-carlo-ancelotti-rest-periods/
+
+**How the Premier League has been democratised by the growing spread of academy talent**\
+`The productivity of English football's academy system is making the country's top-flight increasingly competitive - and that's a good thing`\
+https://nytimes.com/athletic/6212297/2025/03/19/premier-league-academy-talent-spread/
+
 **Wednesday Briefing**\
 `A Putin-Trump call about Ukraine.`\
 https://nytimes.com/2025/03/19/briefing/trump-ukraine-gaza.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/19/us/wildfires-dust-new-mexico-texas.html
 **Morale continues to decline as Blackhawks fall apart against Kraken**\
 `The Blackhawks allowed six unanswered goals at home in a brutal loss to Seattle.`\
 https://nytimes.com/athletic/6214750/2025/03/19/blackhawks-collapse-morale-kraken/
-
-**Chelsea and Man City face each other four times in a row this month - how will it affect their gameplans?**\
-`How does facing the same team repeatedly alter a manager's thinking?`\
-https://nytimes.com/athletic/6212644/2025/03/19/chelsea-vs-man-city-gameplan-row/
-
-**In This French Director’s Work, Sex Leads to Unexpected Destinations**\
-`Alain Guiraudie broke through with “Stranger by the Lake.” In his new movie, “Misericordia,” eroticism and death are also intimately entangled.`\
-https://nytimes.com/2025/03/19/movies/alain-guiraudie-misericordia-stranger-by-the-lake.html
-
-**Six Women Were Elected. So Why Were Their Husbands Sworn In?**\
-`In rural India, guarantees of equal representation on village councils are easily thwarted. But some women are pushing back against “boss husbands.”`\
-https://nytimes.com/2025/03/19/world/asia/india-panchayat.html
-
-**Connections: Sports Edition Coach: Hints for March 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6214764/2025/03/19/connections-sports-edition-hints-for-march-19-2025/
 

@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`A Putin-Trump call about Ukraine.`\
+https://nytimes.com/2025/03/19/briefing/trump-ukraine-gaza.html
+
+**The New York Times in Print for Wednesday, March 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/19/todays-new-york-times
+
+**Foreign Aid Wasn’t Perfect. Here’s How to Fix It.**\
+`Those who care about the world and America’s role in it need to create a new vision for how to help vulnerable people in other countries.`\
+https://nytimes.com/2025/03/19/opinion/us-foreign-aid.html
+
 **Dust Storms Cloud New Mexico**\
 `The haze lowered visibility for drivers and put southern New Mexico at risk of fires.`\
 https://nytimes.com/video/us/100000010060361/dust-storms-cloud-new-mexico.html

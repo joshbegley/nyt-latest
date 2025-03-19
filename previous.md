@@ -1,3 +1,15 @@
+**Wednesday Briefing**\
+`A Putin-Trump call about Ukraine.`\
+https://nytimes.com/2025/03/19/briefing/trump-ukraine-gaza.html
+
+**The New York Times in Print for Wednesday, March 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/19/todays-new-york-times
+
+**Foreign Aid Wasn’t Perfect. Here’s How to Fix It.**\
+`Those who care about the world and America’s role in it need to create a new vision for how to help vulnerable people in other countries.`\
+https://nytimes.com/2025/03/19/opinion/us-foreign-aid.html
+
 **Dust Storms Cloud New Mexico**\
 `The haze lowered visibility for drivers and put southern New Mexico at risk of fires.`\
 https://nytimes.com/video/us/100000010060361/dust-storms-cloud-new-mexico.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/world/asia/india-panchayat.html
 **Connections: Sports Edition Coach: Hints for March 19, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6214764/2025/03/19/connections-sports-edition-hints-for-march-19-2025/
-
-**Quote of the Day: 5 Years After Covid, A High School Class Learns to Live Again**\
-`Quotation of the Day for Wednesday, March 19, 2025.`\
-https://nytimes.com/2025/03/18/pageoneplus/quote-of-the-day-5-years-after-covid-a-high-school-class-learns-to-live-again.html
-
-**Why do the Senators keep struggling against the Canadiens?**\
-`Ottawa fell to a 0-3 record against Montreal this season, with each loss having its own reason.`\
-https://nytimes.com/athletic/6214224/2025/03/18/senators-canadiens-nhl-playoffs/
-
-**Yohe's 10 observations: The real Penguins showed up at the worst possible moment**\
-`The Penguins blew a third-period lead in brutal fashion, wasting an excellent night from Sidney Crosby and Tristan Jarry.`\
-https://nytimes.com/athletic/6214472/2025/03/18/penguins-blown-lead-letang-karlsson-islanders/
 
