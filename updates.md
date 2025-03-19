@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Like an Old Song We Can’t Stop Singing’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/19/style/tiny-modern-love-stories-like-an-old-song-we-cant-stop-singing.html
+
 **Israeli Forces Expand ‘Targeted Ground Activities’ in Gaza Strip**\
 `The military said it had seized part of a major corridor that separates the enclave’s northern half from the south.`\
 https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip-netzarim.html
