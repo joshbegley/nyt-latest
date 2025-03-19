@@ -1,3 +1,7 @@
+**Here’s what to know.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/heres-what-to-know
+
 **Live Updates: 64,000 Pages of Kennedy Files Could Take Weeks to Study**\
 `The papers related, sometimes very tangentially, to the assassination of John F. Kennedy were made public by President Trump, but it’s unclear how many are new. Though scholars don’t expect major revelations, they are still eager to look.`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files
@@ -30,12 +34,7 @@ https://nytimes.com/athletic/6214666/2025/03/19/mexico-aguirre-usmnt-concacaf-na
 `Tariffs, tax credits and deregulation are among the industry’s top priorities.`\
 https://nytimes.com/2025/03/19/business/energy-environment/oil-executives-trump-tariffs.html
 
-**Trump Administration Live Updates: Oil Chiefs to Visit White House to Talk Tariffs and Regulation**\
+**Trump Administration Live Updates: Oil Chiefs to Visit White House to Discuss Tariffs and Regulation**\
 ``\
 https://nytimes.com/live/2025/03/19/us/trump-news
-
-**Has Morgan Rielly found his defence partner for the long haul?**\
-`The earliest returns of Brandon Carlo's partnership with Rielly on the blue line have been mighty encouraging for Toronto.
-`\
-https://nytimes.com/athletic/6213723/2025/03/19/maple-leafs-morgan-rielly-brandon-carlo/
 

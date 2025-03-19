@@ -1,3 +1,7 @@
+**What’s at Stake in Trump’s F.T.C. Purge**\
+`The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
+https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
+
 **Here’s what to know.**\
 `By Adam Nagourney`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/heres-what-to-know
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214666/2025/03/19/mexico-aguirre-usmnt-concacaf-na
 **What Oil Executives Want From President Trump**\
 `Tariffs, tax credits and deregulation are among the industry’s top priorities.`\
 https://nytimes.com/2025/03/19/business/energy-environment/oil-executives-trump-tariffs.html
-
-**Trump Administration Live Updates: Oil Chiefs to Visit White House to Discuss Tariffs and Regulation**\
-``\
-https://nytimes.com/live/2025/03/19/us/trump-news
 

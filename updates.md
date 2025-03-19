@@ -1,3 +1,11 @@
+**Here’s what to know.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/heres-what-to-know
+
+**Trump Administration Live Updates: Oil Chiefs to Visit White House to Discuss Tariffs and Regulation**\
+``\
+https://nytimes.com/live/2025/03/19/us/trump-news
+
 **Has Morgan Rielly found his defence partner for the long haul?**\
 `The earliest returns of Brandon Carlo's partnership with Rielly on the blue line have been mighty encouraging for Toronto.
 `\
