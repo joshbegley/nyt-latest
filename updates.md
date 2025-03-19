@@ -1,3 +1,11 @@
+**Yohe's 10 observations: The real Penguins showed up at the worst possible moment**\
+`The Penguins blew a third-period lead in brutal fashion, wasting an excellent night from Sidney Crosby and Tristan Jarry.`\
+https://nytimes.com/athletic/6214472/2025/03/18/penguins-blown-lead-letang-karlsson-islanders/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/18/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Trump Administration Ends Tracking of Kidnapped Ukrainian Children in Russia**\
 `A Democratic lawmaker is drafting a letter to Secretary of State Marco Rubio asking whether a database on thousands of children has been deleted.`\
 https://nytimes.com/2025/03/18/us/politics/trump-ukraine-abducted-children.html
