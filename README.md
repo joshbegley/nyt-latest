@@ -1,3 +1,7 @@
+**Jung Hoo Lee's MRI results were encouraging, but highlight Giants' precarious postseason hopes**\
+`The news that Lee needed an MRI was ominous because there are only so many blows the Giants can absorb. They don't need to start now.`\
+https://nytimes.com/athletic/6214859/2025/03/19/jung-hoo-lee-mri-results-sf-giants-impact/
+
 **Cleveland mayor accuses Haslams of 'misleading statements' around Browns' new stadium**\
 `The Haslam Sports Group wants to move the team to a stadium in Brook Park, while the City of Cleveland wants the team to play in downtown. `\
 https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-proposed-new-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215984/2025/03/19/mcneese-will-wade-north-carolina
 **Trump Administration Considers Scaling Back H.I.V. Efforts at C.D.C.**\
 `The move comes after a series of cuts to prevention and treatment efforts worldwide. Some functions might be moved to another agency, officials said.`\
 https://nytimes.com/2025/03/19/health/cdc-hiv-prevention-treatment.html
-
-**Judge Grants the Government Another Day to Share Details on Deportation Flights**\
-`Judge James Boasberg has asked the government to tell him what time two planes took off from U.S. soil and from where, what time they left U.S. airspace and what time they landed in El Salvador.`\
-https://nytimes.com/2025/03/19/us/politics/deportation-flights-doj-fight.html
 
