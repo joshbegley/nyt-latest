@@ -1,3 +1,7 @@
+**ESPN chairman 'caught by surprise' by Rob Manfred's comments**\
+`The ESPN chairman is still interested in returning to the negotiating table to hammer out a new deal with Major League Baseball.`\
+https://nytimes.com/athletic/6215427/2025/03/19/espn-jimmy-pitaro-shrinking-platform-comments-mlb/
+
 **The 11 teams that can win the NCAA Tournament**\
 `If history is any indication, one of these 11 teams will be your 2025 national champions.`\
 https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-duke-florida/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/theater/sonia-friedman-broadway-stranger-things.h
 **My Friend Is Refusing to Talk Politics With Me. Can She Do That?**\
 `A reader feels spurned by a friend’s “self-righteous” declaration that she would no longer engage with him about politics after he revealed he didn’t plan to vote.`\
 https://nytimes.com/2025/03/19/style/political-talk-with-friends.html
-
-**In Tokyo debut, Roki Sasaki flashes long-term potential, early growing pains**\
-`It was electric. It was maddening. It was fascinating. Such was the debut of Sasaki, whose Dodgers swept the two-game Tokyo Series.`\
-https://nytimes.com/athletic/6215095/2025/03/19/dodgers-cubs-tokyo-series-game-2/
 
