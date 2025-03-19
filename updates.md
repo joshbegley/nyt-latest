@@ -1,3 +1,7 @@
+**Shohei Ohtani slugs solo home run in Tokyo Series homecoming**\
+`Ohtani joined Hideki Matsui as the lone Japanese-born players ever to hit a home run in a major league game at the Tokyo Dome. `\
+https://nytimes.com/athletic/6215208/2025/03/19/dodgers-tokyo-series-shohei-ohtani-home-run/
+
 **No, North Carolina shouldn't have been in the NCAA Tournament — but this wasn't a felony**\
 `UNC was a mistake. Not an egregious one, as the action on the court Tuesday conveyed. But that doesn't do much for West Virginia.`\
 https://nytimes.com/athletic/6214744/2025/03/19/north-carolina-ncaa-tournament-west-virginia/
