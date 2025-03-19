@@ -1,3 +1,7 @@
+**Marshall Islands to play their first 11-a-side international match in Arkansas**\
+`The Pacific Island nation, with fewer than 40,000 inhabitants, will take on the U.S. Virgin Islands, the Turks and Caicos and Guam.`\
+https://nytimes.com/athletic/6213903/2025/03/19/marshall-islands-arkansas-first-game/
+
 **Jimmy Fallon Parodies Trump’s Podcast-Length Phone Call With Putin**\
 `The “Tonight Show” host said President Trump had spent most of the call “trying to sell Putin a Cybertruck.”`\
 https://nytimes.com/2025/03/19/arts/television/jimmy-fallon-trump-phone-call-putin.html
