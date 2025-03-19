@@ -1,3 +1,7 @@
+**The Fed Sees Higher Inflation and Lower Growth**\
+`Also, Zelensky agreed to a limited cease-fire in a call with Trump. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severance-food.html
+
 **Jackie Robinson article restored after removal from Defense Department site**\
 `Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
 https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
