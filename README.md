@@ -1,17 +1,9 @@
-**The Word Executives Are Using to Describe Trump’s Tariff Policy**\
-`Trade policy is “fluid” right now, and corporate America is trying to keep up with it.`\
-https://nytimes.com/2025/03/19/business/tariffs-business-uncertainty-fluid.html
-
-**E.U. Accuses Apple and Google of Unfair Practices, Risking Trump’s Ire**\
-`European Union regulators said the tech giants likely violated the law by unfairly boxing out smaller competitors, adding to tensions between Europe and the United States`\
-https://nytimes.com/2025/03/19/business/europe-apple-google-competition-trump.html
-
-**J.F.K.’s Grandson Slams File Release — and the News Media’s Reaction**\
-`In a series of social media posts, Jack Schlossberg, a frequent critic of the Trump administration, said his family was not given a “head’s up” about the release.`\
+**J.F.K.’s Grandson Slams File Release, and the News Media’s Reaction**\
+`In a series of social media posts, Jack Schlossberg, a frequent critic of the Trump administration, said his family was not given a “heads up” about the release.`\
 https://nytimes.com/2025/03/19/us/jack-schlossberg-jfk-files.html
 
 **Matt Shaw makes an uneven debut as Cubs get swept in Japan**\
-`It may have been a trip to forget as far as what happened on the field, but the ambiance was as special as it gets.`\
+`It might have been a trip to forget as far as what happened on the field, but the ambiance was as special as it gets.`\
 https://nytimes.com/athletic/6215709/2025/03/19/matt-shaw-cubs-tokyo-series/
 
 **What the Fed’s Rate Policy Means for Your Finances**\
@@ -37,4 +29,12 @@ https://nytimes.com/2025/03/19/business/ben-and-jerrys-unilever-lawsuit-ceo.html
 **Israeli Forces Expand ‘Targeted Ground Activities’ in Gaza Strip**\
 `The military said it had seized part of a major corridor that separates the enclave’s northern half from the south.`\
 https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip-netzarim.html
+
+**Looking to add spice to March Madness? Consider the fantasy-inspired Top Gun tourney challenge**\
+`Brandon Funston offers a different take on your typical March Madness bracket games — the Top Gun tourney challenge.`\
+https://nytimes.com/athletic/6198279/2025/03/19/march-madness-bracket-game-variations-top-gun-tourney/
+
+**Florida Mayor Drops Threat to Evict Cinema Over Israeli-Palestinian Film**\
+`After an emotional city meeting, the mayor of Miami Beach dropped his effort to end a theater’s lease over its showing of “No Other Land.”`\
+https://nytimes.com/2025/03/19/us/politics/florida-mayor-eviction-o-cinema-no-other-land.html
 
