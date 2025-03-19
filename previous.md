@@ -1,3 +1,7 @@
+**Lowetide: How the Oilers' deployment versus elites offers some surprises**\
+`The Oilers' philosophy has been to let the opposition worry about line matching against Connor McDavid and Leon Draisaitl.`\
+https://nytimes.com/athletic/6212371/2025/03/19/edmonton-oilers-elites-stats-2025/
+
 **A Dyslexic Comedian Walks Into a Recording Booth …**\
 `Writing a memoir was no laughing matter for Phil Hanley. Narrating the audiobook took 16 sessions, 64 hours and a supportive audience.`\
 https://nytimes.com/2025/03/19/books/spellbound-phil-hanley.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210870/2025/03/19/winnipeg-jets-trends-perfetti-nh
 **Read the Order Transferring Mahmoud Khalil’s Case to New Jersey**\
 `Read Judge Jesse Furman’s order transferring Mahmoud Khalil’s habeas corpus case from the Southern District of New York to the District of New Jersey.`\
 https://nytimes.com/interactive/2025/03/19/nyregion/mahmoud-khalil-nj-transfer-order.html
-
-**Judge Says Khalil’s Deportation Case Can Be Heard in New Jersey**\
-`The Trump administration has sought to deport Mahmoud Khalil, a Columbia University graduate, though he is a legal permanent resident and has not been charged with a crime.`\
-https://nytimes.com/2025/03/19/nyregion/mahmoud-khalil-deportation-case-new-jersey.html
 

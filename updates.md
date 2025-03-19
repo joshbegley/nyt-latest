@@ -1,3 +1,7 @@
+**Lowetide: How the Oilers' deployment versus elites offers some surprises**\
+`The Oilers' philosophy has been to let the opposition worry about line matching against Connor McDavid and Leon Draisaitl.`\
+https://nytimes.com/athletic/6212371/2025/03/19/edmonton-oilers-elites-stats-2025/
+
 **A Dyslexic Comedian Walks Into a Recording Booth …**\
 `Writing a memoir was no laughing matter for Phil Hanley. Narrating the audiobook took 16 sessions, 64 hours and a supportive audience.`\
 https://nytimes.com/2025/03/19/books/spellbound-phil-hanley.html
