@@ -1,3 +1,19 @@
+**The 2017 files included a memo by J. Edgar Hoover after Oswald was shot.**\
+`By Scott Shane`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-files-included-a-memo-by-j-edgar-hoover-after-oswald-was-shot
+
+**Trump Officials Say Deportees Were Gang Members. So Far, Few Details.**\
+`Families and immigration lawyers argue not all of the deportees sent to a prison in El Salvador over the weekend had ties to gangs.`\
+https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
+
+**Mexico City Bans Traditional Bullfights for Violence-Free Option**\
+`Showdowns between men and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
+https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
+
+**First Four: Alabama St. tops Saint Francis in thriller; UNC-SD State up next**\
+`Alabama State and Saint Francis were two of the lowest-rated teams in the NCAA Tournament, but they staged a classic on Tuesday.`\
+https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
+
 **How to Shop for a Home That Won’t Be Upended by Climate Change**\
 `Deciding where to live has always been a high-stakes financial decision, but a changing climate makes it even more critical. This guide will get you started.`\
 https://nytimes.com/interactive/2025/your-money/home-buying-climate-change.html
