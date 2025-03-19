@@ -1,3 +1,28 @@
+**Humiliation as Propaganda: Videos of Shackled Detainees Have History in El Salvador**\
+`A video showing rough treatment of deportees over the weekend was an extraordinary depiction by U.S. standards, but not by El Salvador’s.`\
+https://nytimes.com/2025/03/19/world/americas/deportation-videos-el-salvador.html
+
+**Stocks jump as Fed stays on a predicted path.**\
+`By Danielle Kaye and Joe Rennison`\
+https://nytimes.com/live/2025/03/19/business/fed-interest-rates/stocks-jump-as-fed-stays-on-a-predicted-path
+
+**Watch: Are NBA referees given enough credit?**\
+`The Athletic NBA Daily discuss the league’s referee crisis and what's being done to rectify it.
+`\
+https://nytimes.com/athletic/6216145/2025/03/19/nba-referees-warriors-steph-curry-jimmy-butler/
+
+**Judges Fear for Their Safety Amid a Wave of Threats**\
+`Federal judges are worried that online threats against judges who oversee high-profile cases challenging Trump administration policies may lead to real-world violence.`\
+https://nytimes.com/2025/03/19/us/trump-judges-threats.html
+
+**Two Officials Who Helped Dismantle U.S. Aid Agency Named as Its New Leaders**\
+`Secretary of State Marco Rubio said he had canceled 83 percent of U.S.A.I.D.’s programs. A federal judge found that efforts to shutter the agency were likely unconstitutional.`\
+https://nytimes.com/2025/03/19/us/politics/usaid-doge-leadership.html
+
+**What to know about the Fed’s moves.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/03/19/business/fed-interest-rates/what-to-know-about-the-feds-moves
+
 **Raducanu and coach Platenik part ways after just one match**\
 `The pair part ways after just 14 days and one match together but Raducanu's team say she will "continue looking for the right coach."`\
 https://nytimes.com/athletic/6216317/2025/03/19/raducanu-coach-platenik-vlado-split/
@@ -13,28 +38,4 @@ https://nytimes.com/2025/03/19/world/middleeast/gaza-israel-strikes.html
 **Jury Finds Greenpeace Liable for Hundreds of Millions in Damages**\
 `A lawsuit by pipeline giant Energy Transfer claimed Greenpeace had played a major, costly role in protests nearly a decade ago. Greenpeace has said a loss could put it out of business.`\
 https://nytimes.com/2025/03/19/climate/greenpeace-energy-transfer-dakota-access-verdict.html
-
-**Politics, talent and ... hockey? The shifting nature of USMNT's top rivalries**\
-`The Concacaf Nations League finals cast a spotlight on the escalating tensions – on and off the field – between the 2026 World Cup co-hosts`\
-https://nytimes.com/athletic/6216009/2025/03/19/usmnt-rivalry-canada-mexico-concacaf-nations-league/
-
-**Angels ban cellphones in clubhouse: 'It is not punishment; I just want some focus'**\
-`“I fit in it, too,” Ron Washington said. “If I'm outside (my office) in the clubhouse on the phone, I want them to ring my butt up, too.” `\
-https://nytimes.com/athletic/6216373/2025/03/19/angels-ban-cellphones-clubhouse/
-
-**Takeaways from today’s Fed meeting and fresh set of forecasts.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/03/19/business/fed-interest-rates/takeaways-from-todays-fed-meeting-and-fresh-set-of-forecasts
-
-**Donald Trump Jr. Mixes Business and Politics in Serbia, as Protests There Rage**\
-`President Trump’s oldest son visited Belgrade, the site of a Trump International Hotel project, and pushed back on calls for the country’s president to resign.`\
-https://nytimes.com/2025/03/19/us/politics/donald-trump-jr-serbia.html
-
-**A.D.H.D. Videos on TikTok Are Often Misleading, New Study Finds**\
-`Even people who have been diagnosed don’t always spot inaccuracies or generalizations about the condition in the social media posts, research suggests.`\
-https://nytimes.com/2025/03/19/well/mind/adhd-videos-tiktok-misinfo.html
-
-**Menaced by Trump, Canada Prepares to Join E.U. Military Industry Buildup**\
-`Canada’s draft deal to participate in Europe’s defense industry will bring contracts to Canadian manufacturers and help lessen dependence on the United States.`\
-https://nytimes.com/2025/03/19/world/canada/canada-eu-military-industry-trump.html
 
