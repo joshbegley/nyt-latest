@@ -1,3 +1,19 @@
+**The 2017 files included a memo by J. Edgar Hoover after Oswald was shot.**\
+`By Scott Shane`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-files-included-a-memo-by-j-edgar-hoover-after-oswald-was-shot
+
+**Trump Officials Say Deportees Were Gang Members. So Far, Few Details.**\
+`Families and immigration lawyers argue not all of the deportees sent to a prison in El Salvador over the weekend had ties to gangs.`\
+https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
+
+**Mexico City Bans Traditional Bullfights for Violence-Free Option**\
+`Showdowns between men and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
+https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
+
+**First Four: Alabama St. tops Saint Francis in thriller; UNC-SD State up next**\
+`Alabama State and Saint Francis were two of the lowest-rated teams in the NCAA Tournament, but they staged a classic on Tuesday.`\
+https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
+
 **How to Shop for a Home That Won’t Be Upended by Climate Change**\
 `Deciding where to live has always been a high-stakes financial decision, but a changing climate makes it even more critical. This guide will get you started.`\
 https://nytimes.com/interactive/2025/your-money/home-buying-climate-change.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/18/theater/amerikin-review-chisa-hutchinson.html
 **Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
 `By Tyler Pager and Maggie Haberman`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files
-
-**J.F.K., Blown Away, What Else Do I Have to Say?**\
-`Why the newly released documents won’t put out the fire.`\
-https://nytimes.com/2025/03/18/books/review/john-f-kennedy-assassination-conspiracy-theory.html
-
-**Oracle’s Role in TikTok’s Future Gets Capitol Hill Scrutiny**\
-`Top congressional aides met with Oracle on Tuesday to talk about TikTok, which faces a ban in the United States unless it is sold to a non-Chinese owner by early April.`\
-https://nytimes.com/2025/03/18/technology/oracle-tiktok.html
-
-**Judge in U.S.A.I.D. Case Intervened in Trump’s Travel Ban and Abortion Pill Restriction**\
-`Judge Theodore D. Chuang also blocked high-profile measures during President Trump’s first term.`\
-https://nytimes.com/2025/03/18/us/politics/usaid-musk-judge-theodore-chuang.html
-
-**Socks, suits and slippers: The Kennedy archive holds more than just documents.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/kennedy-archive-clothes
 
