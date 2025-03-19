@@ -1,3 +1,11 @@
+**No, North Carolina shouldn't have been in the NCAA Tournament — but this wasn't a felony**\
+`UNC was a mistake. Not an egregious one, as the action on the court Tuesday conveyed. But that doesn't do much for West Virginia.`\
+https://nytimes.com/athletic/6214744/2025/03/19/north-carolina-ncaa-tournament-west-virginia/
+
+**The Athletic FC: Pochettino on USMNT pressure, USL vote to bring in promotion/relegation**\
+`Today in TAFC: Pochettino on the pressure of the USMNT job and becoming No 1 in the world. Plus: USL votes to bring in promotion/relegation.`\
+https://nytimes.com/athletic/6215087/2025/03/19/the-athletic-fc-pochettino-on-usmnt-pressure-usl-vote-to-bring-in-promotion-relegation/
+
 **No Steph, no problem for Warriors as Jimmy Butler and Draymond Green lead way vs. Bucks**\
 `Butler promised to crank up his offense when needed. That time came Tuesday against the Bucks.`\
 https://nytimes.com/athletic/6214866/2025/03/19/jimmy-butlers-draymond-green-warriors-bucks/
