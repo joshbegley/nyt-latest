@@ -1,3 +1,11 @@
+**Review: Eight Andrew Scotts in a Heartbreaking Solo ‘Vanya’**\
+`Playing all the characters in an update of Chekhov, the Irish actor turns what could be merely a stunt into a tour de force.`\
+https://nytimes.com/2025/03/18/theater/andrew-scott-vanya-review.html
+
+**‘Amerikin’ Review: A White Supremacist’s Undoing: DNA**\
+`The protagonist of Chisa Hutchinson’s new play is proud of his racial heritage, until he gets some unexpected test results.`\
+https://nytimes.com/2025/03/18/theater/amerikin-review-chisa-hutchinson.html
+
 **Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
 `By Tyler Pager and Maggie Haberman`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files

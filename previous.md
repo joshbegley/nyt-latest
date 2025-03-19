@@ -1,3 +1,11 @@
+**Review: Eight Andrew Scotts in a Heartbreaking Solo ‘Vanya’**\
+`Playing all the characters in an update of Chekhov, the Irish actor turns what could be merely a stunt into a tour de force.`\
+https://nytimes.com/2025/03/18/theater/andrew-scott-vanya-review.html
+
+**‘Amerikin’ Review: A White Supremacist’s Undoing: DNA**\
+`The protagonist of Chisa Hutchinson’s new play is proud of his racial heritage, until he gets some unexpected test results.`\
+https://nytimes.com/2025/03/18/theater/amerikin-review-chisa-hutchinson.html
+
 **Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
 `By Tyler Pager and Maggie Haberman`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/18/us/trump-president-news/the-social-security-
 **NASA Astronauts Finally Return to Earth, Almost 9 Months Delayed**\
 `A SpaceX capsule carrying two NASA astronauts, Butch Wilmore and Suni Williams, splashed down off Florida’s Gulf Coast on Tuesday, concluding their unexpectedly long stay in space.`\
 https://nytimes.com/video/science/space/100000010059269/nasa-splash-down-williams-wilmore.html
-
-**Cooper Kupp finally comes home to Seahawks, will wear No. 10**\
-`"The messaging was right on par with what I thought (about) how you build a championship team," Kupp said about joining the Seahawks.`\
-https://nytimes.com/athletic/6214358/2025/03/18/cooper-kupp-seahawks-jersey-number/
-
-**Padres' Yu Darvish questionable for Opening Day due to elbow inflammation**\
-`Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
-https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/
 
