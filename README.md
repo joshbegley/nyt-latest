@@ -1,6 +1,6 @@
 **Takeaways From the Kennedy Files: Spycraft, Collateral Damage and Granular Detail**\
 `The big reveal from almost 64,000 documents was that there wasn’t much of a reveal at all.`\
-https://nytimes.com/2025/03/19/us/politics/takeaways-kennedy-files.html
+https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.html
 
 **Trump Administration Prepares to Give Gun Rights Back to Some Convicts**\
 `After Justice Department officials sought to allow Mel Gibson to own a gun again, the administration is proposing a path for some people to have their firearms access restored.`\
