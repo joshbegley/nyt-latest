@@ -1,3 +1,11 @@
+**Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
+`City face Chelsea in the WSL on Sunday before the second leg of their Champions League quarter-final at on March 27.`\
+https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastory/
+
+**Tigers confront third-base woes as ghosts of Alex Bregman pursuit linger**\
+`As positive as the team’s messaging has been, some facts are hard to deny. Last season’s Tigers combined for only 0.6 bWAR at third base.`\
+https://nytimes.com/athletic/6216777/2025/03/19/tigers-third-base-woes/
+
 **Winning World Cup England's 'only goal', Tuchel tells squad**\
 `Tuchel is currently leading his first England camp and will manage his first game against Albania at Wembley on Friday night.`\
 https://nytimes.com/athletic/6216040/2025/03/19/england-thomas-tuchel-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/science/space/astronomer-desi-dark-energy.html
 **A Kennedy aide worried that the C.I.A. threatened the State Department’s power.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/a-kennedy-aide-worried-that-the-cia-threatened-the-state-departments-power
-
-**March Madness Quiz: Can you name these NCAA Tournament coaches?**\
-`These 16 coaches will be participating in March Madness. How many do you recognize?`\
-https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/
-
-**Couple Who Abused Adopted Children Are Sentenced to Decades in Prison**\
-`The West Virginia couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
-https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.html
 
