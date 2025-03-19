@@ -1,3 +1,19 @@
+**Trump’s Ending of Hunter Biden’s Security Detail Raises Questions About Who Gets Protection**\
+`The sudden ending of Secret Service protection for former President Joseph R. Biden Jr.’s son thrust the issue of security details into the headlines but raised concerns about political payback.`\
+https://nytimes.com/2025/03/19/us/politics/trump-hunter-biden-secret-service.html
+
+**Vikings going with J.J. McCarthy for now, will keep Aaron Rodgers on radar**\
+`McCarthy, who Minnesota selected with the No. 10 pick in the 2024 NFL Draft, missed his entire rookie season with a knee injury.`\
+https://nytimes.com/athletic/6215920/2025/03/19/minnesota-vikings-quarterbacks-jj-mccarthy-aaron-rodgers/
+
+**The Word Executives Are Using to Describe Trump’s Tariff Policy**\
+`Trade policy is “fluid” right now, and corporate America is trying to keep up with it.`\
+https://nytimes.com/2025/03/19/business/tariffs-business-uncertainty-fluid.html
+
+**E.U. Accuses Apple and Google of Unfair Practices, Risking Trump’s Ire**\
+`European Union regulators said the tech giants likely violated the law by unfairly boxing out smaller competitors, adding to tensions between Europe and the United States`\
+https://nytimes.com/2025/03/19/business/europe-apple-google-competition-trump.html
+
 **J.F.K.’s Grandson Slams File Release, and the News Media’s Reaction**\
 `In a series of social media posts, Jack Schlossberg, a frequent critic of the Trump administration, said his family was not given a “heads up” about the release.`\
 https://nytimes.com/2025/03/19/us/jack-schlossberg-jfk-files.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6215699/2025/03/19/netflix-quarterback-season-two-b
 **Tiny Love Stories: ‘Like an Old Song We Can’t Stop Singing’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/03/19/style/tiny-modern-love-stories-like-an-old-song-we-cant-stop-singing.html
-
-**Ben & Jerry’s Accuses Unilever of Firing Its C.E.O. for Political Reasons**\
-`Ben & Jerry’s said in a court filing that its parent company had ousted its chief executive, David Stever, without approval from the ice cream maker’s board.`\
-https://nytimes.com/2025/03/19/business/ben-and-jerrys-unilever-lawsuit-ceo.html
-
-**Israeli Forces Expand ‘Targeted Ground Activities’ in Gaza Strip**\
-`The military said it had seized part of a major corridor that separates the enclave’s northern half from the south.`\
-https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip-netzarim.html
-
-**Looking to add spice to March Madness? Consider the fantasy-inspired Top Gun tourney challenge**\
-`Brandon Funston offers a different take on your typical March Madness bracket games — the Top Gun tourney challenge.`\
-https://nytimes.com/athletic/6198279/2025/03/19/march-madness-bracket-game-variations-top-gun-tourney/
-
-**Florida Mayor Drops Threat to Evict Cinema Over Israeli-Palestinian Film**\
-`After an emotional city meeting, the mayor of Miami Beach dropped his effort to end a theater’s lease over its showing of “No Other Land.”`\
-https://nytimes.com/2025/03/19/us/politics/florida-mayor-eviction-o-cinema-no-other-land.html
 
