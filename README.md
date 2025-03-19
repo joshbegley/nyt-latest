@@ -1,3 +1,15 @@
+**The Windup: How Sasaki's debut went**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6214944/2025/03/19/dodgers-tokyo-roki-sasaki-the-windup/
+
+**F1 mailbag: Hadjar’s tears, Hamilton’s adjustment and a 'Racing Dad' award**\
+`The Athletic's F1 experts, Luke Smith and Madeline Coleman, answer your questions`\
+https://nytimes.com/athletic/6213658/2025/03/19/f1-hadjar-lewis-hamilton-anthony-hamilton/
+
+**How WR Mecole Hardman fits Packers on offense and special teams**\
+`The three-time Super Bowl champion was an All-Pro return man in 2019 and might return kicks and punts for the Packers.`\
+https://nytimes.com/athletic/6215679/2025/03/19/mecole-hardman-packers-free-agent/
+
 **This Japanese Sax Polymath Might Be a Postmodern Bach**\
 `The composer and saxophonist Yasuaki Shimizu is at home in free jazz, classical and art pop. Finally touring North America, he’s going big by staying small.`\
 https://nytimes.com/2025/03/19/arts/music/yasuaki-shimizu-new-york-north-america.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/business/trump-tariffs-economy.html
 **Stefanik’s Nomination for U.N. Ambassador Will Begin Moving Ahead**\
 `The confirmation process of Representative Elise Stefanik, a New York Republican, has been delayed while House Republicans relied on her vote to maintain the slimmest of majorities.`\
 https://nytimes.com/2025/03/19/us/politics/elise-stefanik-united-nations-ambassador-house-trump.html
-
-**Trump’s Tariffs Could Deal a Blow to Boeing and the Aerospace Industry**\
-`Aerospace companies are big exporters but also very reliant on a global supply chain, making them vulnerable.`\
-https://nytimes.com/2025/03/19/business/boeing-trump-tariffs.html
-
-**Schools Are Required to Offer Free Period Products. Where Are They?**\
-`A lawsuit against the New York City Department of Education alleges that not providing free products amounts to discrimination.`\
-https://nytimes.com/2025/03/19/well/live/pads-tampons-free-schools.html
-
-**Pasta? For Spring? Delicious.**\
-`Ali Slagle’s one-pot tortellini with prosciutto and peas is a cheerful nod to the new season (and perfect for these still-chilly nights).`\
-https://nytimes.com/2025/03/19/dining/delicious-spring-pasta-recipes.html
 
