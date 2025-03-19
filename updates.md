@@ -1,3 +1,7 @@
+**Dust Storms Cloud New Mexico**\
+`The haze lowered visibility for drivers and put southern New Mexico at risk of fires.`\
+https://nytimes.com/video/us/100000010060361/dust-storms-cloud-new-mexico.html
+
 **Dust Storms in Texas and New Mexico Raise Fire Risks**\
 `Blowing dust reduced visibility to near zero in some parts of New Mexico, prompting road closures. Forecasters say dangerous fire conditions will persist until Thursday.`\
 https://nytimes.com/2025/03/19/us/wildfires-dust-new-mexico-texas.html
