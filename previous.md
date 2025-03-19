@@ -1,3 +1,11 @@
+**Israelis Take to Streets Day After Strikes on Gaza**\
+`Israeli protests are converging over national security and domestic politics amid concerns about the government’s renewed push to reduce the power of state watchdogs.`\
+https://nytimes.com/2025/03/19/world/middleeast/israel-protests-hamas-gaza-strikes.html
+
+**Far From Giving Ground, Putin Digs In With His Demands on Ukraine**\
+`Although much of what Vladimir V. Putin agreed to during his call with President Trump was spun as a concession, the Russian leader stuck to the positions he has long held.`\
+https://nytimes.com/2025/03/19/world/europe/trump-putin-call-russia-ukraine-war.html
+
 **The Pulse: We already have a buzzer-beater**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6213673/2025/03/19/north-carolina-ncaa-tournament-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214383/2025/03/19/blues-joel-hofer-binnington-goal
 **New York Islanders, left for dead, are still hanging around the Eastern playoff race**\
 `Just under a month ago, the Islanders were 14th in the East. Despite everything, they're knocking on the door of a playoff spot.`\
 https://nytimes.com/athletic/6214572/2025/03/19/islanders-playoffs-stretch-run-penguins/
-
-**Who will rule March Madness? The Athletic's consensus men's NCAA Tournament bracket**\
-`We asked 24 of our college sports experts for their men's NCAA Tournament brackets. Here are our favorite title contenders and upset picks.`\
-https://nytimes.com/athletic/6214175/2025/03/19/ncaa-tournament-march-madness-consensus-staff-predictions/
-
-**‘Can’t-miss’ Men’s NCAA Tournament games on Thursday and Friday: truTV FTW?**\
-`What NCAA Tournament games are 'cant-miss' on Thursday and Friday? The Athletic's experts help you map out the two frenzied days of TV.`\
-https://nytimes.com/athletic/6210246/2025/03/19/mens-march-madness-2025-must-watch-games/
 

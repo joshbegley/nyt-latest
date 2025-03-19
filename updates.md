@@ -1,3 +1,11 @@
+**Israelis Take to Streets Day After Strikes on Gaza**\
+`Israeli protests are converging over national security and domestic politics amid concerns about the government’s renewed push to reduce the power of state watchdogs.`\
+https://nytimes.com/2025/03/19/world/middleeast/israel-protests-hamas-gaza-strikes.html
+
+**Far From Giving Ground, Putin Digs In With His Demands on Ukraine**\
+`Although much of what Vladimir V. Putin agreed to during his call with President Trump was spun as a concession, the Russian leader stuck to the positions he has long held.`\
+https://nytimes.com/2025/03/19/world/europe/trump-putin-call-russia-ukraine-war.html
+
 **The Pulse: We already have a buzzer-beater**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6213673/2025/03/19/north-carolina-ncaa-tournament-the-pulse/
