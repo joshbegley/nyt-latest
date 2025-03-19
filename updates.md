@@ -1,3 +1,15 @@
+**Scouting Dodgers and Guardians prospects — and Jesus Made — on the back fields**\
+`Notes from the back fields on Jaison Chourio, Jackson Ferris, Emil Morales, Made and more.`\
+https://nytimes.com/athletic/6214914/2025/03/19/scouting-dodgers-guardians-prospects-jesus-made-jaison-chourio-jackson-ferris/
+
+**Listen: Was that Liverpool's worst-ever performance in a final?**\
+`Walk On discuss whether Liverpool's performance in last Sunday's Carabao Cup final was their worst finals performance ever.`\
+https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/
+
+**Food Safety Jeopardized by Onslaught of Funding and Staff Cuts**\
+`The Trump administration halted some food testing and shut down a committee studying bacteria in infant formula. Earlier funding cutbacks under the Biden administration now threaten state labs and inspectors.`\
+https://nytimes.com/2025/03/19/health/food-safety-trump-fda-cutbacks-deadly-outbreaks.html
+
 **Listen: Should the Tennessee Titans draft Cam Ward with the No. 1 overall pick?**\
 `"The Athletic Football Show" discusses whether the Tennessee Titans should select Cam Ward with the No. 1 overall pick.`\
 https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-cam-ward-draft/
