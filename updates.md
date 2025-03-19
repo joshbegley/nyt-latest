@@ -1,3 +1,7 @@
+**Marcelo Mayer gets second-base start as Red Sox send Vaughn Grissom to minor leagues**\
+`"The baseball player is real," manager Alex Cora said of Mayer. "He's not just a prospect. He's a baseball player."`\
+https://nytimes.com/athletic/6216964/2025/03/19/marcelo-mayer-red-sox-second-base/
+
 **Takeaways From the Kennedy Files: Spycraft, Collateral Damage and Granular Detail**\
 `The big reveal from almost 64,000 documents was that there wasn’t much of a reveal at all.`\
 https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.html

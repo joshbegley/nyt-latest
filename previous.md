@@ -6,8 +6,8 @@ https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.htm
 `After Justice Department officials sought to allow Mel Gibson to own a gun again, the administration is proposing a path for some people to have their firearms access restored.`\
 https://nytimes.com/2025/03/19/us/politics/trump-gun-rights-convicts.html
 
-**Marcelo Mayer gets second base start as Red Sox send Vaughn Grissom to minor leagues**\
-`“The baseball player is real,” manager Alex Cora said of Mayer. “He’s not just a prospect. He’s a baseball player.”`\
+**Marcelo Mayer gets second-base start as Red Sox send Vaughn Grissom to minor leagues**\
+`"The baseball player is real," manager Alex Cora said of Mayer. "He's not just a prospect. He's a baseball player."`\
 https://nytimes.com/athletic/6216964/2025/03/19/marcelo-mayer-red-sox-second-base/
 
 **Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
