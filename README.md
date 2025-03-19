@@ -1,3 +1,27 @@
+**Ben & Jerry’s Accuses Unilever of Firing Its C.E.O. for Political Reasons**\
+`Ben & Jerry’s said in a court filing that its parent company had ousted its chief executive, David Stever, without approval from the ice cream maker’s board.`\
+https://nytimes.com/2025/03/19/business/ben-and-jerrys-unilever-lawsuit-ceo.html
+
+**Israeli Forces Begin ‘Targeted Ground Activities’ in Gaza Strip**\
+`The military said it had seized part of a major corridor that separates the enclave’s northern half from the south.`\
+https://nytimes.com/2025/03/19/world/middleeast/israel-gaza-strip.html
+
+**Looking to add spice to March Madness? Consider the fantasy-inspired Top Gun tourney challenge**\
+`Brandon Funston offers a different take on your typical March Madness bracket games — the Top Gun tourney challenge.`\
+https://nytimes.com/athletic/6198279/2025/03/19/march-madness-bracket-game-variations-top-gun-tourney/
+
+**Florida Mayor Drops Threat to Evict Cinema Over Israeli-Palestinian Film**\
+`After an emotional city meeting, the mayor of Miami Beach dropped his effort to end a theater’s lease over its showing of “No Other Land.”`\
+https://nytimes.com/2025/03/19/us/politics/florida-mayor-eviction-o-cinema-no-other-land.html
+
+**Yohe: Presenting a list of 10 suggestions to enhance the NHL product**\
+`Some friendly advice to the NHL that will help its product improve mightily. `\
+https://nytimes.com/athletic/6214868/2025/03/19/nhl-season-playoffs-format/
+
+**Trump Administration Quietly Lifted Ban on Dominican Sugar Company Over Forced Labor**\
+`Labor groups said working conditions had not changed enough to warrant the removal. The company is partly owned by donors to President Trump.`\
+https://nytimes.com/2025/03/19/business/economy/trump-sugar-forced-labor-ban-lifted.html
+
 **Only a few documents mention King’s murder, and they offer little insight.**\
 `By Robert Draper and Rick Rojas`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/only-a-few-documents-mention-kings-murder-and-they-offer-little-insight
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/19/business/economy/federal-reserve-projections-outl
 **Live Updates: Fed Expected to Extend Pause on Rate Cuts**\
 `A new set of economic projections will give the clearest sense to date of how officials think President Trump’s agenda will impact the economy.`\
 https://nytimes.com/live/2025/03/19/business/fed-interest-rates
-
-**Women's March Madness best futures bets: 3 teams that have value**\
-`Austin Mock highlights three teams with value to win the women's basketball national title in the betting market.`\
-https://nytimes.com/athletic/6215630/2025/03/19/womens-march-madness-futures-best-bets/
-
-**MLB expands direct-to-consumer streaming options, now has 26 teams**\
-`The four newest additions are the Phillies, Athletics, Dodgers and Giants.`\
-https://nytimes.com/athletic/6215607/2025/03/19/mlb-streaming-availability-26-teams/
-
-**Dismayed by Trump, the Star Pianist András Schiff Boycotts the U.S.**\
-`Mr. Schiff, who has refused to play in Russia and his native Hungary because of strongman rule, said he was alarmed by President Trump’s “unbelievable bullying.”`\
-https://nytimes.com/2025/03/19/arts/music/andras-schiff-trump-boycott.html
-
-**VCU leads top second-round NCAA Tournament upset candidates**\
-`The Rams could be primed for a Sweet 16 run.`\
-https://nytimes.com/athletic/6215469/2025/03/19/2025-ncaa-tournament-second-round-upset-predictions/
-
-**My Husband Has Dementia. Can I Put Him in a Home and Move to Europe?**\
-`The magazine’s Ethicist columnist on the obligations we have to a spouse with a degenerative illness.`\
-https://nytimes.com/2025/03/19/magazine/husband-dementia-europe-ethics.html
-
-**Scoop City: Nine ways free agency changed this draft**\
-`Inside: How free agency changed this year&#8217;s draft, whether Brock Purdy should get $60 million and which sleeper QB you should know.`\
-https://nytimes.com/athletic/6215696/2025/03/19/free-agency-nfl-draft-impact-2025-cam-ward-titans-scoop-city/
 
