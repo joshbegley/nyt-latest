@@ -1,3 +1,8 @@
+**Watch: Are NBA referees given enough credit?**\
+`The Athletic NBA Daily discuss the league’s referee crisis and what's being done to rectify it.
+`\
+https://nytimes.com/athletic/6216145/2025/03/19/nba-referees-warriors-steph-curry-jimmy-butler/
+
 **Humiliation as Propaganda: Videos of Shackled Detainees Have History in El Salvador**\
 `A video showing rough treatment of deportees over the weekend was an extraordinary depiction by U.S. standards, but not by El Salvador’s.`\
 https://nytimes.com/2025/03/19/world/americas/deportation-videos-el-salvador.html
