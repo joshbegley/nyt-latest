@@ -1,3 +1,7 @@
+**Art Adviser Sentenced to 2.5 Years in Prison for Defrauding Clients**\
+`Lisa Schiff diverted millions of dollars from art collectors to fund her own luxe lifestyle.`\
+https://nytimes.com/2025/03/19/arts/design/lisa-schiff-art-adviser-sentenced.html
+
 **Swipe No More: M.T.A. to Stop Selling MetroCards**\
 `The transition to the new tap-and-go system for New York City subway and bus riders is expected to save the agency at least $20 million annually, it said.`\
 https://nytimes.com/2025/03/19/nyregion/nyc-subway-metro-card.html

@@ -1,3 +1,7 @@
+**Art Adviser Sentenced to 2.5 Years in Prison for Defrauding Clients**\
+`Lisa Schiff diverted millions of dollars from art collectors to fund her own luxe lifestyle.`\
+https://nytimes.com/2025/03/19/arts/design/lisa-schiff-art-adviser-sentenced.html
+
 **Swipe No More: M.T.A. to Stop Selling MetroCards**\
 `The transition to the new tap-and-go system for New York City subway and bus riders is expected to save the agency at least $20 million annually, it said.`\
 https://nytimes.com/2025/03/19/nyregion/nyc-subway-metro-card.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/us/politics/peace-institute-lawsuit-doge-trump.ht
 **Lloyd: March Madness bracketology for my own amusement. You're not only one flipping out**\
 `There has never been a perfect bracket, according to the NCAA. Just like Matthew McConaughey, I decided to leave it to chance. `\
 https://nytimes.com/athletic/6215581/2025/03/19/march-madness-2025-ncaa-tournament-bracketology/
-
-**Iranian Dissident Tells of Activism That Led to Murder Plots in New York**\
-`Masih Alinejad started rattling Iran’s rulers as a teenager. Now, men whom prosecutors say arranged for an assassin to kill her in New York are on trial in Manhattan.`\
-https://nytimes.com/2025/03/19/nyregion/iran-murder-plot-masih-alinejad-testifies.html
 
