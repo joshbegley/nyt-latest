@@ -1,3 +1,11 @@
+**The 11 teams that can win the NCAA Tournament**\
+`If history is any indication, one of these 11 teams will be your 2025 national champions.`\
+https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-duke-florida/
+
+**Imane Khelif eying another Olympic gold, not intimidated by Trump’s policies**\
+`"I am not transgender,” Khelif said. “This does not concern me, and it does not intimidate me. That is my response.”`\
+https://nytimes.com/athletic/6215337/2025/03/19/imane-khelif-olympics-donald-trump/
+
 **Southgate: Young men are being led by 'toxic influencers'**\
 `Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
 https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/style/political-talk-with-friends.html
 **In Tokyo debut, Roki Sasaki flashes long-term potential, early growing pains**\
 `It was electric. It was maddening. It was fascinating. Such was the debut of Sasaki, whose Dodgers swept the two-game Tokyo Series.`\
 https://nytimes.com/athletic/6215095/2025/03/19/dodgers-cubs-tokyo-series-game-2/
-
-**'Sub-standard' pitches in women's football put 'player safety at risk', says PFA**\
-`The playing surface for top-level matches has been the source of criticism twice in the last week.`\
-https://nytimes.com/athletic/6215304/2025/03/19/pfa-womens-football-pitches-risk/
-
-**Why USL owners took the leap to vote for promotion and relegation**\
-`It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
-https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
 

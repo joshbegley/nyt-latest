@@ -1,3 +1,11 @@
+**The 11 teams that can win the NCAA Tournament**\
+`If history is any indication, one of these 11 teams will be your 2025 national champions.`\
+https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-duke-florida/
+
+**Imane Khelif eying another Olympic gold, not intimidated by Trump’s policies**\
+`"I am not transgender,” Khelif said. “This does not concern me, and it does not intimidate me. That is my response.”`\
+https://nytimes.com/athletic/6215337/2025/03/19/imane-khelif-olympics-donald-trump/
+
 **Southgate: Young men are being led by 'toxic influencers'**\
 `Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
 https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
