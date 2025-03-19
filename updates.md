@@ -1,3 +1,8 @@
+**Has Morgan Rielly found his defence partner for the long haul?**\
+`The earliest returns of Brandon Carlo's partnership with Rielly on the blue line have been mighty encouraging for Toronto.
+`\
+https://nytimes.com/athletic/6213723/2025/03/19/maple-leafs-morgan-rielly-brandon-carlo/
+
 **Live Updates: 64,000 Pages of Kennedy Files Could Take Weeks to Study**\
 `The papers related, sometimes very tangentially, to the assassination of John F. Kennedy were made public by President Trump, but it’s unclear how many are new. Though scholars don’t expect major revelations, they are still eager to look.`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files
