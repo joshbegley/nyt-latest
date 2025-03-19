@@ -1,3 +1,12 @@
+**Texans, OT Cam Robinson agree to 1-year deal: Source**\
+`Splitting 2024 with the Jaguars and Vikings, Robinson started a full season of games for the first time since 2020. `\
+https://nytimes.com/athletic/6216523/2025/03/19/cam-robinson-free-agency-signing-2025-texans/
+
+**Watch: Are NBA referees given enough credit?**\
+`The Athletic NBA Daily discuss the league’s referee crisis and what's being done to rectify it.
+`\
+https://nytimes.com/athletic/6216145/2025/03/19/nba-referees-warriors-steph-curry-jimmy-butler/
+
 **Watch: Are NBA referees given enough credit?**\
 `The Athletic NBA Daily discuss the league’s referee crisis and what's being done to rectify it.
 `\

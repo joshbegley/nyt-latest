@@ -1,3 +1,7 @@
+**Texans, OT Cam Robinson agree to 1-year deal: Source**\
+`Splitting 2024 with the Jaguars and Vikings, Robinson started a full season of games for the first time since 2020. `\
+https://nytimes.com/athletic/6216523/2025/03/19/cam-robinson-free-agency-signing-2025-texans/
+
 **Humiliation as Propaganda: Videos of Shackled Detainees Have History in El Salvador**\
 `A video showing rough treatment of deportees over the weekend was an extraordinary depiction by U.S. standards, but not by El Salvador’s.`\
 https://nytimes.com/2025/03/19/world/americas/deportation-videos-el-salvador.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/19/us/politics/mlk-jr-fbi-surveillance-records-unsea
 **Tallying the Dead Once Again: Photos From the Gaza Strikes**\
 `For two months, a cease-fire spared Palestinians the grim task of identifying bodies. With Israel resuming its assault, they are back at it.`\
 https://nytimes.com/2025/03/19/world/middleeast/gaza-israel-strikes.html
-
-**Jury Finds Greenpeace Liable for Hundreds of Millions in Damages**\
-`A lawsuit by pipeline giant Energy Transfer claimed Greenpeace had played a major, costly role in protests nearly a decade ago. Greenpeace has said a loss could put it out of business.`\
-https://nytimes.com/2025/03/19/climate/greenpeace-energy-transfer-dakota-access-verdict.html
 
