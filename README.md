@@ -1,3 +1,7 @@
+**Southgate: Young men are being led by 'toxic influencers'**\
+`Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
+https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
+
 **Key Saudi Pro League executive leaves role to take up new job**\
 `Al Lazeez joined the Saudi Pro League as a senior advisor in late 2021 and by early 2023 he had become vice-chairman.`\
 https://nytimes.com/athletic/6215333/2025/03/19/saad-al-lazeez-saudi-pro-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215304/2025/03/19/pfa-womens-football-pitches-risk
 **Why USL owners took the leap to vote for promotion and relegation**\
 `It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
 https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
-
-**Zelensky Says He’ll Speak to Trump About ‘Next Steps’**\
-`The Ukrainian president appeared open to Russia’s offer of a partial cease-fire, but deeply skeptical, after President Trump spoke with President Vladimir V. Putin.`\
-https://nytimes.com/2025/03/19/world/europe/zelensky-trump-ukraine-russia-putin.html
 
