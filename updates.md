@@ -1,3 +1,11 @@
+**VCU leads top second-round NCAA Tournament upset candidates**\
+`The Rams could be primed for a Sweet 16 run.`\
+https://nytimes.com/athletic/6215469/2025/03/19/2025-ncaa-tournament-second-round-upset-predictions/
+
+**My Husband Has Dementia. Can I Put Him in a Home and Move to Europe?**\
+`The magazine’s Ethicist columnist on the obligations we have to a spouse with a degenerative illness.`\
+https://nytimes.com/2025/03/19/magazine/husband-dementia-europe-ethics.html
+
 **Scoop City: Nine ways free agency changed this draft**\
 `Inside: How free agency changed this year&#8217;s draft, whether Brock Purdy should get $60 million and which sleeper QB you should know.`\
 https://nytimes.com/athletic/6215696/2025/03/19/free-agency-nfl-draft-impact-2025-cam-ward-titans-scoop-city/
