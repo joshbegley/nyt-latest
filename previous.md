@@ -1,3 +1,7 @@
+**Corrections: March 19, 2025**\
+`Corrections that appeared in print on Wednesday, March 19, 2025.`\
+https://nytimes.com/2025/03/18/pageoneplus/corrections-march-19-2025.html
+
 **The 2017 files included a memo by J. Edgar Hoover after Oswald was shot.**\
 `By Scott Shane`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-files-included-a-memo-by-j-edgar-hoover-after-oswald-was-shot
@@ -10,7 +14,7 @@ https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
 `Showdowns between men and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
 https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
 
-**First Four: Alabama St. tops Saint Francis in thriller; UNC-SD State up next**\
+**First Four: Alabama St. tops Saint Francis in thriller; UNC takes on SD State**\
 `Alabama State and Saint Francis were two of the lowest-rated teams in the NCAA Tournament, but they staged a classic on Tuesday.`\
 https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/theater/andrew-scott-vanya-review.html
 **‘Amerikin’ Review: A White Supremacist’s Undoing: DNA**\
 `The protagonist of Chisa Hutchinson’s new play is proud of his racial heritage, until he gets some unexpected test results.`\
 https://nytimes.com/2025/03/18/theater/amerikin-review-chisa-hutchinson.html
-
-**Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
-`By Tyler Pager and Maggie Haberman`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files
 

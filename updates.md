@@ -1,3 +1,11 @@
+**Corrections: March 19, 2025**\
+`Corrections that appeared in print on Wednesday, March 19, 2025.`\
+https://nytimes.com/2025/03/18/pageoneplus/corrections-march-19-2025.html
+
+**First Four: Alabama St. tops Saint Francis in thriller; UNC takes on SD State**\
+`Alabama State and Saint Francis were two of the lowest-rated teams in the NCAA Tournament, but they staged a classic on Tuesday.`\
+https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
+
 **The 2017 files included a memo by J. Edgar Hoover after Oswald was shot.**\
 `By Scott Shane`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-files-included-a-memo-by-j-edgar-hoover-after-oswald-was-shot
