@@ -1,3 +1,15 @@
+**Phil Jones: 'Tough' moment he left the Man Utd WhatsApp and why he's training to be a coach**\
+`After the end of his playing career, Phil Jones felt lost. He discusses finding his place again as a coach at Manchester United`\
+https://nytimes.com/athletic/6215609/2025/03/19/phil-jones-the-coach-aggressive-intense-and-ready-to-win-at-all-costs-at-manchester-united/
+
+**Flyers' Noah Cates now 'a tremendous leader' after getting pushed out of lineup earlier**\
+`Cates, a pending restricted free agent, is proving to be increasingly valuable to the Flyers.`\
+https://nytimes.com/athletic/6215999/2025/03/19/flyers-noah-cates-scratched/
+
+**Meet Houston's lead ball boy: How a 12-year-old became part of the Cougar family**\
+`The Cougars have enjoyed much sucess over the past three seasons — and 12-year-old Jace Abarca basked in much of it.`\
+https://nytimes.com/athletic/6215775/2025/03/19/houston-basketball-ball-boy-kelvin-sampson/
+
 **NFL rule change proposals: Playoff seeding changes, OT rules, 'tush push' ban**\
 `Any proposal needs approval from 24 of the 32 NFL voters to pass and become official.`\
 https://nytimes.com/athletic/6215801/2025/03/19/nfl-2025-rule-changes-playoff-seeds-tush-push/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-p
 **Hold My Snacks: Pirate’s Booty Founder Attempts a Seaside Coup**\
 `A snack food magnate declared himself mayor of the Village of Sea Cliff, on Long Island. The voters said otherwise.`\
 https://nytimes.com/2025/03/19/nyregion/sea-cliff-mayor-pirates-booty-election.html
-
-**Guardians tab Tanner Bibee for first career Opening Day start**\
-`Bibee will start the Guardians’ first game of 2025, the first Opening Day assignment of his career.`\
-https://nytimes.com/athletic/6212898/2025/03/19/guardians-tanner-bibee-opening-day-starter/
-
-**Huijsen: 'If Spain don't call me up again in the next 20 years, I will still feel Spanish'**\
-`Huijsen was born in Amsterdam and moved to Malaga at the age of five. On Thursday, he could make his Spain debut against the Netherlands.`\
-https://nytimes.com/athletic/6216068/2025/03/19/dean-huijsen-spain-netherlands/
-
-**LaVar Ball says sons 'kept me rolling' amid health issues, leg amputations**\
-`Complications from diabetes led to him being hospitalized for over a month, needing three amputations and four blood transfusions.`\
-https://nytimes.com/athletic/6215838/2025/03/19/nba-lavar-ball-surgery-amputation-infection/
 
