@@ -1,3 +1,7 @@
+**The Fed Sees Higher Inflation and Lower Growth**\
+`Also, Zelensky agreed to a limited cease-fire in a call with Trump. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severance-food.html
+
 **Jackie Robinson article restored after removal from Defense Department site**\
 `Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
 https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6216928/2025/03/19/liverpool-alexander-arnold-ankle
 **Los Angeles Faces Nearly $1 Billion Deficit as It Rebuilds From Fires**\
 `Shifting federal policies, combined with the cost of January’s wildfires, have created “serious financial headwinds” for the city, officials said.`\
 https://nytimes.com/2025/03/19/us/los-angeles-budget-deficit.html
-
-**Small Plane That Crashed in Alaska Was a Half-Ton Overweight, U.S. Says**\
-`All 10 people on board were killed when the plane, flying in poor visibility, plunged into sea ice near Nome in February.`\
-https://nytimes.com/2025/03/19/us/alaska-plane-crash-overweight.html
 
