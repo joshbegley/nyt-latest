@@ -1,3 +1,7 @@
+**White House Plans to Pause $175 Million for Penn Over Transgender Policy**\
+`The decision is the latest clash between a university and the administration as it pushes schools to end diversity programming and adopt stricter discipline, among other things.`\
+https://nytimes.com/2025/03/19/us/politics/trump-to-pause-175-million-for-university-of-pennsylvania-over-transgender-policy.html
+
 **Judge Grants the Government Another Day to Share Details on Deportation Flights**\
 `Judge James Boasberg has asked the government to tell him what time two planes took off from U.S. soil and from where, what time they left U.S. airspace and what time they landed in El Salvador.`\
 https://nytimes.com/2025/03/19/us/politics/deportation-flights-doj-fight.html
