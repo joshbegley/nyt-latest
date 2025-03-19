@@ -1,6 +1,14 @@
+**Trump Is Said to Sign Order Aimed at Dismantling Education Department**\
+`The order will lay the groundwork for eventually shuttering the agency, reassigning some of its primary duties.`\
+https://nytimes.com/2025/03/19/us/politics/trump-education-department.html
+
+**SoftBank to Buy Ampere, a Silicon Valley Chip Start-Up, for $6.5 Billion**\
+`The move is a bet that Ampere’s chips can begin playing a significant role in data centers for creating artificial intelligence.`\
+https://nytimes.com/2025/03/19/technology/softbank-ampere-chips.html
+
 **Trump Had ‘Aptitude for Music’ as a Child, He Told Kennedy Center Board**\
 `The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
-https://nytimes.com/2025/03/19/arts/music/trump-aptitude-for-music-kennedy-center.html
+https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
 
 **Queens Businessman Sentenced to Prison for Acting as Agent of China**\
 `An Quanzhong, who will spend 13 months behind bars, harassed a resident whom China’s government wanted back home. His conviction was one of several that prosecutors have won against operatives in New York.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/us/politics/trump-gun-rights-convicts.html
 **Marcelo Mayer gets second-base start as Red Sox send Vaughn Grissom to minor leagues**\
 `"The baseball player is real," manager Alex Cora said of Mayer. "He's not just a prospect. He's a baseball player."`\
 https://nytimes.com/athletic/6216964/2025/03/19/marcelo-mayer-red-sox-second-base/
-
-**Chelsea need to 'focus on the future' after 28-game unbeaten run ends - Bompastor**\
-`City face Chelsea in the WSL on Sunday before the second leg of their Champions League quarter-final at on March 27.`\
-https://nytimes.com/athletic/6217039/2025/03/19/chelsea-manchester-city-women-champions-league-bompastor/
-
-**Tigers confront third-base woes as ghosts of Alex Bregman pursuit linger**\
-`As positive as the team’s messaging has been, some facts are hard to deny. Last season’s Tigers combined for only 0.6 bWAR at third base.`\
-https://nytimes.com/athletic/6216777/2025/03/19/tigers-third-base-woes/
 
