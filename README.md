@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6214666/2025/03/19/mexico-aguirre-usmnt-concacaf-na
 `Tariffs, tax credits and deregulation are among the industry’s top priorities.`\
 https://nytimes.com/2025/03/19/business/energy-environment/oil-executives-trump-tariffs.html
 
-**Trump Administration Live Updates: Oil Chiefs to Visit White House to Talk Tariffs and Regulation**\
+**Trump Administration Live Updates: Oil Chiefs to Visit White House to Discuss Tariffs and Regulation**\
 ``\
 https://nytimes.com/live/2025/03/19/us/trump-news
 

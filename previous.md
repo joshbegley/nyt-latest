@@ -1,40 +1,41 @@
-**Shohei Ohtani slugs solo home run in Tokyo Series homecoming**\
-`Ohtani joined Hideki Matsui as the lone Japanese-born players ever to hit a home run in a major league game at the Tokyo Dome. `\
-https://nytimes.com/athletic/6215208/2025/03/19/dodgers-tokyo-series-shohei-ohtani-home-run/
+**Live Updates: 64,000 Pages of Kennedy Files Could Take Weeks to Study**\
+`The papers related, sometimes very tangentially, to the assassination of John F. Kennedy were made public by President Trump, but it’s unclear how many are new. Though scholars don’t expect major revelations, they are still eager to look.`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files
 
-**No, North Carolina shouldn't have been in the NCAA Tournament — but this wasn't a felony**\
-`UNC was a mistake. Not an egregious one, as the action on the court Tuesday conveyed. But that doesn't do much for West Virginia.`\
-https://nytimes.com/athletic/6214744/2025/03/19/north-carolina-ncaa-tournament-west-virginia/
+**Big Ten recruiting thoughts: USC's impressive start, Maryland's big get, Indiana's opportunity**\
+`It's very early in the cycle, but four of the top seven teams in the Class of 2026 rankings are from the Big Ten.`\
+https://nytimes.com/athletic/6213043/2025/03/19/big-ten-foootball-recruiting-usc-maryland-indiana/
 
-**The Athletic FC: Pochettino on USMNT pressure, USL vote to bring in promotion/relegation**\
-`Today in TAFC: Pochettino on the pressure of the USMNT job and becoming No 1 in the world. Plus: USL votes to bring in promotion/relegation.`\
-https://nytimes.com/athletic/6215087/2025/03/19/the-athletic-fc-pochettino-on-usmnt-pressure-usl-vote-to-bring-in-promotion-relegation/
+**49ers mailbag: How heavily will team lean on rookies? Mason Graham in Round 1?**\
+`Among this week's questions: What's the plan at swing tackle and just how hard did the 49ers try to retain linebacker Dre Greenlaw?`\
+https://nytimes.com/athletic/6214104/2025/03/19/49ers-mailbag-rookies-draft-mason-graham/
 
-**No Steph, no problem for Warriors as Jimmy Butler and Draymond Green lead way vs. Bucks**\
-`Butler promised to crank up his offense when needed. That time came Tuesday against the Bucks.`\
-https://nytimes.com/athletic/6214866/2025/03/19/jimmy-butlers-draymond-green-warriors-bucks/
+**How South Alabama got uninvited from the NIT in 'unacceptable' process**\
+`When UC Riverside was accidentally invited to both the NIT and CBI, its decision left a team across the country without postseason plans.`\
+https://nytimes.com/athletic/6214311/2025/03/19/nit-south-alabama-uc-riverside/
 
-**Congo and Rwanda Call for Cease-Fire in Their Deadly Conflict**\
-`After talks in Qatar, the two countries’ presidents said they were committed to an unconditional truce between Congo’s army and a rebel group that Rwanda denies backing.`\
-https://nytimes.com/2025/03/19/world/africa/congo-rwanda-conflict-ceasefire.html
+**Bruins’ Fabian Lysell is back, and the prospect's clock is ticking**\
+`Interim coach Joe Sacco on Lysell's return: "He’s getting an opportunity. At some point, we’ll see him in the lineup here."`\
+https://nytimes.com/athletic/6214021/2025/03/19/bruins-fabian-lysell-prospect-clock/
 
-**What to Know About the Backlash Against Tesla**\
-`Elon Musk’s electric carmaker faces serious headwinds amid his involvement with right-wing politics and the Trump administration.`\
-https://nytimes.com/2025/03/19/business/tesla-musk-trump-backlash.html
+**'TRAE BENHAM, YOU ANIMAL': How High Point's student broadcasters went viral in March Madness**\
+`The call from Jimmy Roselli and Griffin Wright was — to quote the folks at Mid-Major Madness — "absolute electric factory."`\
+https://nytimes.com/athletic/6204555/2025/03/19/march-madness-2025-high-point-basketball-broadcasters/
 
-**Josh Anderson’s long journey back to his identity is driving Canadiens’ culture at perfect time**\
-`Anderson's been longing to apply his playoff-style game to an actual playoff team, and the Canadiens are verging on him getting that chance.`\
-https://nytimes.com/athletic/6214937/2025/03/19/canadiens-josh-anderson-senators-nhl-playoffs/
+**Aguirre wants Mexico to laugh, and fight, toward Nations League glory**\
+`The head coach finds himself in a familiar spot, with Mexico at a pre-World Cup crossroads.`\
+https://nytimes.com/athletic/6214666/2025/03/19/mexico-aguirre-usmnt-concacaf-nations-league/
 
-**Most Oilers stars shine in Ekholm's return, but Draisaitl's streak ends: 5 takeaways**\
-`The Oilers got the offensive breakthrough they’ve been searching for against Utah, despite the end of Draisaitl's 18-game point streak.`\
-https://nytimes.com/athletic/6214924/2025/03/19/oilers-ekholm-returns-draisaitl-streak-ends/
+**What Oil Executives Want From President Trump**\
+`Tariffs, tax credits and deregulation are among the industry’s top priorities.`\
+https://nytimes.com/2025/03/19/business/energy-environment/oil-executives-trump-tariffs.html
 
-**Christian Arroyo in mix for final Phillies roster spot after late tryout tested his faith**\
-`When January became February and there were still no offers, Arroyo had to confront his baseball mortality. But a workout got him a deal.`\
-https://nytimes.com/athletic/6214000/2025/03/19/christian-arroyo-phillies-roster-spring-workout/
+**Trump Administration Live Updates: Oil Chiefs to Visit White House to Talk Tariffs and Regulation**\
+``\
+https://nytimes.com/live/2025/03/19/us/trump-news
 
-**MLB American League Central preview 2025: An underrated divisional juggernaut**\
-`Almost overnight, the AL Central bloomed into a divisional juggernaut, home to four winning teams in 2024 and one half of the ALCS.`\
-https://nytimes.com/athletic/6211061/2025/03/19/mlb-american-league-central-preview-2025/
+**Has Morgan Rielly found his defence partner for the long haul?**\
+`The earliest returns of Brandon Carlo's partnership with Rielly on the blue line have been mighty encouraging for Toronto.
+`\
+https://nytimes.com/athletic/6213723/2025/03/19/maple-leafs-morgan-rielly-brandon-carlo/
 
