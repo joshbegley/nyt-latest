@@ -1,3 +1,7 @@
+**Marshall Islands to play their first 11-a-side international match in Arkansas**\
+`The Pacific Island nation, with fewer than 40,000 inhabitants, will take on the U.S. Virgin Islands, the Turks and Caicos and Guam.`\
+https://nytimes.com/athletic/6213903/2025/03/19/marshall-islands-arkansas-first-game/
+
 **Jimmy Fallon Parodies Trump’s Podcast-Length Phone Call With Putin**\
 `The “Tonight Show” host said President Trump had spent most of the call “trying to sell Putin a Cybertruck.”`\
 https://nytimes.com/2025/03/19/arts/television/jimmy-fallon-trump-phone-call-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214869/2025/03/19/celtics-baylor-scheierman-celebr
 **Word of the Day: presage**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/19/learning/word-of-the-day-presage.html
-
-**'I arrived at Arsenal with a black bin bag and left with one. That's football'**\
-`WSL record appearance holder Jordan Nobbs discusses her Arsenal career and how hard it was to leave for Aston Villa`\
-https://nytimes.com/athletic/6163550/2025/03/19/jordan-nobbs-interview-arsenal-aston-villa/
 
