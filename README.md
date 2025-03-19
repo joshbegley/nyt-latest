@@ -1,3 +1,15 @@
+**Canadiens' Josh Anderson was saved by cut-resistant pants. Why do players still resist safety?**\
+`Anderson's use of cut-resistant pants likely prevented a severe injury, but comfort still appears to be a bigger priority among players.`\
+https://nytimes.com/athletic/6216512/2025/03/19/canadiens-josh-anderson-cut-resistant-pants/
+
+**Protesters Clash With Police in Turkey Over Istanbul Mayor Arrest**\
+`Mayor Ekrem Imamoglu of Istanbul is the top political rival of President Recep Tayyip Erdogan, and was set to be named the opposition’s presidential candidate.`\
+https://nytimes.com/video/world/middleeast/100000010061809/turkey-istanbul-mayor-arrest.html
+
+**Case for NL MVP: Pros and cons for Shohei Ohtani, other top contenders and a sleeper**\
+`Michael Salfino handicaps the race for the 2025 NL MVP honors, including his thoughts on how pitching could impact Shohei Ohtani's bid.`\
+https://nytimes.com/athletic/6215820/2025/03/19/nl-mvp-2025-best-bets-shohei-ohtani/
+
 **Athletics prodigy Ruthe, 15, becomes youngest to run sub-four-minute mile**\
 `Ruthe crossed the line in Auckland with a time of 3:58.35.`\
 https://nytimes.com/athletic/6216668/2025/03/19/sam-ruthe-sub-four-minute-mile/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6216618/2025/03/19/jose-altuve-open-season-primary-
 **The 2.23.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/03/19/the-22325-issue
-
-**Texans, OT Cam Robinson agree to 1-year deal: Source**\
-`Splitting 2024 with the Jaguars and Vikings, Robinson started a full season of games for the first time since 2020. `\
-https://nytimes.com/athletic/6216523/2025/03/19/cam-robinson-free-agency-signing-2025-texans/
-
-**Humiliation as Propaganda: Videos of Shackled Detainees Have History in El Salvador**\
-`A video showing rough treatment of deportees over the weekend was an extraordinary depiction by U.S. standards, but not by El Salvador’s.`\
-https://nytimes.com/2025/03/19/world/americas/deportation-videos-el-salvador.html
-
-**Stocks jump as Fed stays on a predicted path.**\
-`By Danielle Kaye and Joe Rennison`\
-https://nytimes.com/live/2025/03/19/business/fed-interest-rates/stocks-jump-as-fed-stays-on-a-predicted-path
 
