@@ -1,3 +1,11 @@
+**Bondi calls Tesla vandalism ‘domestic terrorism,’ promising steep consequences.**\
+`The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
+https://nytimes.com/2025/03/18/us/politics/bondi-calls-tesla-vandalism-domestic-terrorism-promising-steep-consequences.html
+
+**Dough Dispensers**\
+`Evan Park and Jeffrey Martinovic connect with us on the astral plane.`\
+https://nytimes.com/2025/03/18/crosswords/daily-puzzle-2025-03-19.html
+
 **Historians adopt a wait-and-see stance toward latest trove of Kennedy documents.**\
 `Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/historians-adopt-a-wait-and-see-stance-toward-latest-trove-of-kennedy-documents
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214124/2025/03/18/ncaa-tournament-first-four-unc/
 **How to Shop for a Home That Won’t Be Upended by Climate Change**\
 `Deciding where to live has always been a high-stakes financial decision, but a changing climate makes it even more critical. This guide will get you started.`\
 https://nytimes.com/interactive/2025/your-money/home-buying-climate-change.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/18/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Lance McCullers Jr. makes first start in 868 days after surviving 'the pits of despair'**\
-`"I felt as late as this past summer (that) I may never pitch again," McCullers said.`\
-https://nytimes.com/athletic/6214429/2025/03/18/lance-mccullers-jr-first-start-868-days/
 
