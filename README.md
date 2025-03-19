@@ -1,3 +1,7 @@
+**Jimmy Fallon Parodies Trump’s Podcast-Length Phone Call With Putin**\
+`The “Tonight Show” host said President Trump had spent most of the call “trying to sell Putin a Cybertruck.”`\
+https://nytimes.com/2025/03/19/arts/television/jimmy-fallon-trump-phone-call-putin.html
+
 **Turkey Arrests Istanbul’s Mayor, a Leading Opposition Figure**\
 `Ekrem Imamoglu was detained at his home on Wednesday, according to prosecutors, who said the charges against him were related to corruption and terrorism.`\
 https://nytimes.com/2025/03/19/world/middleeast/turkey-istanbul-mayor-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/learning/word-of-the-day-presage.html
 **'I arrived at Arsenal with a black bin bag and left with one. That's football'**\
 `WSL record appearance holder Jordan Nobbs discusses her Arsenal career and how hard it was to leave for Aston Villa`\
 https://nytimes.com/athletic/6163550/2025/03/19/jordan-nobbs-interview-arsenal-aston-villa/
-
-**Liverpool still have 'biggest prize' in their sights, but are already planning for the summer**\
-`A bruising week offered food for thought for Michael Edwards and Richard Hughes as post-season recruitment plans start to take shape`\
-https://nytimes.com/athletic/6212450/2025/03/19/liverpool-summer-transfer-plans/
 
