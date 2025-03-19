@@ -1,3 +1,7 @@
+**The Judiciary’s Role**\
+`We cover President Trump and his latest adversary: the courts.`\
+https://nytimes.com/2025/03/19/briefing/trump-the-judiciary.html
+
 **Israelis Take to Streets Day After Strikes on Gaza**\
 `Israeli protests are converging over national security and domestic politics amid concerns about the government’s renewed push to reduce the power of state watchdogs.`\
 https://nytimes.com/2025/03/19/world/middleeast/israel-protests-hamas-gaza-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214360/2025/03/19/wnba-mock-draft-march-madness-pa
 **Blues set for 'massive' game against Canucks with a fresh Jordan Binnington**\
 `Joel Hofer made 22 saves against Nashville, keeping Binnington rested for Thursday's clash against Vancouver for a playoff spot.`\
 https://nytimes.com/athletic/6214383/2025/03/19/blues-joel-hofer-binnington-goalies-predators/
-
-**New York Islanders, left for dead, are still hanging around the Eastern playoff race**\
-`Just under a month ago, the Islanders were 14th in the East. Despite everything, they're knocking on the door of a playoff spot.`\
-https://nytimes.com/athletic/6214572/2025/03/19/islanders-playoffs-stretch-run-penguins/
 

@@ -1,3 +1,7 @@
+**The Judiciary’s Role**\
+`We cover President Trump and his latest adversary: the courts.`\
+https://nytimes.com/2025/03/19/briefing/trump-the-judiciary.html
+
 **Israelis Take to Streets Day After Strikes on Gaza**\
 `Israeli protests are converging over national security and domestic politics amid concerns about the government’s renewed push to reduce the power of state watchdogs.`\
 https://nytimes.com/2025/03/19/world/middleeast/israel-protests-hamas-gaza-strikes.html
