@@ -1,3 +1,7 @@
+**Congo and Rwanda Call for Cease-Fire in Their Deadly Conflict**\
+`After talks in Qatar, the two countries’ presidents said they were committed to an unconditional truce between Congo’s army and a rebel group that Rwanda denies backing.`\
+https://nytimes.com/2025/03/19/world/africa/congo-rwanda-conflict-ceasefire.html
+
 **What to Know About the Backlash Against Tesla**\
 `Elon Musk’s electric carmaker faces serious headwinds amid his involvement with right-wing politics and the Trump administration.`\
 https://nytimes.com/2025/03/19/business/tesla-musk-trump-backlash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6213845/2025/03/19/jake-burger-mom-max-scherzer-tea
 **Catching up with Chris Patrick: Defying expectations and building a real contender around Alex Ovechkin**\
 `Many thought Alex Ovechkin would be pursuing history on a sinking ship, but the Caps GM's savvy additions have the team atop the East.`\
 https://nytimes.com/athletic/6214256/2025/03/19/chris-patrick-capitals-contenders-nhl-ovechkin/
-
-**Ringers or old-timers? MLS greats join Des Moines for fun run at Open Cup**\
-`A slew of former MLS players, including multiple U.S. men's national team veterans, are embracing the amateur side of the U.S. Open Cup.`\
-https://nytimes.com/athletic/6214657/2025/03/19/des-moines-menace-us-open-cup-mccarty-kljestan-feilhaber-wright-phillips/
 
