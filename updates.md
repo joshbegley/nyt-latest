@@ -1,3 +1,11 @@
+**Socks, suits and slippers: The Kennedy archive holds more than just documents.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/kennedy-archive-clothes
+
+**Pod of Dolphins Greets NASA Astronauts**\
+`The marine mammals swarmed around the recovery team and capsule, welcoming home the astronauts shortly after they splashed down off Florida’s Gulf Coast.`\
+https://nytimes.com/2025/03/18/science/dolphins-nasa-splashdown.html
+
 **A pod of dolphins greeted the returned astronauts.**\
 `The marine mammals swarmed around the recovery team and capsule, welcoming home the NASA astronauts shortly after they splashed down.`\
 https://nytimes.com/2025/03/18/science/dolphins-nasa-splashdown.html

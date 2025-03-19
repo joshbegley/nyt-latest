@@ -1,3 +1,11 @@
+**Oracle’s Role in TikTok’s Future Gets Capitol Hill Scrutiny**\
+`Top congressional staffers met with Oracle on Tuesday to talk about TikTok, which faces a ban in the United States unless it is sold to a non-Chinese owner by early April.`\
+https://nytimes.com/2025/03/18/technology/oracle-tiktok.html
+
+**Judge in U.S.A.I.D. Case Intervened in Trump’s Travel Ban and Abortion Pill Restriction**\
+`Judge Theodore D. Chuang also blocked high-profile measures during President Trump’s first term.`\
+https://nytimes.com/2025/03/18/us/politics/usaid-musk-judge-theodore-chuang.html
+
 **Socks, suits and slippers: The Kennedy archive holds more than just documents.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/kennedy-archive-clothes
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/nyregion/trump-mta-funding.html
 **What are the National Archives, where the Kennedy files are stored?**\
 `By Jennifer Schuessler`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-national-archives-where-the-kennedy-files-are-stored
-
-**Tesla Wins California Permit to Begin Offering Rides**\
-`The limited regulatory approval is an early step toward Elon Musk’s goal of offering a Tesla self-driving taxi service.`\
-https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.html
-
-**What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
-`Since the president’s murder in 1963,`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination
 
