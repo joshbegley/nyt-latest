@@ -1,3 +1,11 @@
+**Baylor Scheierman thinking about new celebrations, but tough mentality is working**\
+`Scheierman scored a career-high 20 points on 7-for-8 shooting from the field, including 6-for-7 on 3-point attempts.`\
+https://nytimes.com/athletic/6214869/2025/03/19/celtics-baylor-scheierman-celebrations-nets/
+
+**Word of the Day: presage**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/19/learning/word-of-the-day-presage.html
+
 **'I arrived at Arsenal with a black bin bag and left with one. That's football'**\
 `WSL record appearance holder Jordan Nobbs discusses her Arsenal career and how hard it was to leave for Aston Villa`\
 https://nytimes.com/athletic/6163550/2025/03/19/jordan-nobbs-interview-arsenal-aston-villa/
