@@ -1,3 +1,7 @@
+**Dust Storms Cloud New Mexico**\
+`The haze lowered visibility for drivers and put southern New Mexico at risk of fires.`\
+https://nytimes.com/video/us/100000010060361/dust-storms-cloud-new-mexico.html
+
 **Dust Storms in Texas and New Mexico Raise Fire Risks**\
 `Blowing dust reduced visibility to near zero in some parts of New Mexico, prompting road closures. Forecasters say dangerous fire conditions will persist until Thursday.`\
 https://nytimes.com/2025/03/19/us/wildfires-dust-new-mexico-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214224/2025/03/18/senators-canadiens-nhl-playoffs/
 **Yohe's 10 observations: The real Penguins showed up at the worst possible moment**\
 `The Penguins blew a third-period lead in brutal fashion, wasting an excellent night from Sidney Crosby and Tristan Jarry.`\
 https://nytimes.com/athletic/6214472/2025/03/18/penguins-blown-lead-letang-karlsson-islanders/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/18/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

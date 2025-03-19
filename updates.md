@@ -1,3 +1,11 @@
+**Dust Storms in Texas and New Mexico Raise Fire Risks**\
+`Blowing dust reduced visibility to near zero in some parts of New Mexico, prompting road closures. Forecasters say dangerous fire conditions will persist until Thursday.`\
+https://nytimes.com/2025/03/19/us/wildfires-dust-new-mexico-texas.html
+
+**Morale continues to decline as Blackhawks fall apart against Kraken**\
+`The Blackhawks allowed six unanswered goals at home in a brutal loss to Seattle.`\
+https://nytimes.com/athletic/6214750/2025/03/19/blackhawks-collapse-morale-kraken/
+
 **Chelsea and Man City face each other four times in a row this month - how will it affect their gameplans?**\
 `How does facing the same team repeatedly alter a manager's thinking?`\
 https://nytimes.com/athletic/6212644/2025/03/19/chelsea-vs-man-city-gameplan-row/
