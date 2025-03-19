@@ -1,3 +1,7 @@
+**Small Plane That Crashed in Alaska Was a Half-Ton Overweight, U.S. Says**\
+`All 10 people on board were killed when the plane, flying in poor visibility, plunged into sea ice near Nome in February.`\
+https://nytimes.com/2025/03/19/us/alaska-plane-crash-overweight.html
+
 **Chuck Schumer Learns the Downside of Being on Top in the Senate**\
 `Leaders in the upper chamber of Congress occasionally have to take a political beating to protect their members in tough spots, like the showdown over government funding.`\
 https://nytimes.com/2025/03/19/us/politics/chuck-schumer-senate-budget-vote-backlash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/briefing/ukraine-cease-fire-canada-defense-israel
 **America Is Aggravating the World’s Worst Humanitarian Crisis**\
 `Our silence about Sudan and the cancellation of U.S. aid comes painfully close to complicity.`\
 https://nytimes.com/2025/03/19/opinion/america-sudan-genocide.html
-
-**Canadiens' Josh Anderson was saved by cut-resistant pants. Why do players still resist safety?**\
-`Anderson's use of cut-resistant pants likely prevented a severe injury, but comfort still appears to be a bigger priority among players.`\
-https://nytimes.com/athletic/6216512/2025/03/19/canadiens-josh-anderson-cut-resistant-pants/
 

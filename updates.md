@@ -1,3 +1,15 @@
+**Chuck Schumer Learns the Downside of Being on Top in the Senate**\
+`Leaders in the upper chamber of Congress occasionally have to take a political beating to protect their members in tough spots, like the showdown over government funding.`\
+https://nytimes.com/2025/03/19/us/politics/chuck-schumer-senate-budget-vote-backlash.html
+
+**Ranger Suárez's back stiffness could alter Phillies rotation to start season**\
+`The Phillies sent him Monday for imaging that revealed no structural issues, but this is an injury that forced Suárez to miss time in 2024.`\
+https://nytimes.com/athletic/6216776/2025/03/19/ranger-suarez-back-injury-phillies-rotation/
+
+**More upsets are coming to the women's tournament. Just maybe not this year**\
+`While talent is proliferating around the game, right now it's just helping top seeds get even stronger. Can any underdogs have their day?`\
+https://nytimes.com/athletic/6216450/2025/03/19/2025-womens-march-madness-first-round-upsets-regional-analysis/
+
 **Shielded Kennedy Files Hid Spies, Not Conspiracies**\
 `Newly unredacted documents reveal details about Cold War spycraft, not a second gunman on grassy knolls. The revelations have “nothing to do with who killed Kennedy,” one expert said.`\
 https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
