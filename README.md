@@ -1,3 +1,11 @@
+**Trump once said he’s ‘not that curious’ about the J.F.K. files.**\
+`By Tyler Pager and Maggie Haberman`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/trump-once-said-hes-not-that-curious-about-the-jfk-files
+
+**J.F.K., Blown Away, What Else Do I Have to Say?**\
+`Why the newly released documents won’t put out the fire.`\
+https://nytimes.com/2025/03/18/books/review/john-f-kennedy-assassination-conspiracy-theory.html
+
 **Oracle’s Role in TikTok’s Future Gets Capitol Hill Scrutiny**\
 `Top congressional staffers met with Oracle on Tuesday to talk about TikTok, which faces a ban in the United States unless it is sold to a non-Chinese owner by early April.`\
 https://nytimes.com/2025/03/18/technology/oracle-tiktok.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214358/2025/03/18/cooper-kupp-seahawks-jersey-numb
 **Padres' Yu Darvish questionable for Opening Day due to elbow inflammation**\
 `Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
 https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/
-
-**Trump Official Threatens to Withhold M.T.A. Funding Over Safety Data**\
-`Sean Duffy, the U.S. transportation secretary, demanded a long list of details about crime in the subway and on buses in New York.`\
-https://nytimes.com/2025/03/18/nyregion/trump-mta-funding.html
-
-**What are the National Archives, where the Kennedy files are stored?**\
-`By Jennifer Schuessler`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-national-archives-where-the-kennedy-files-are-stored
 
