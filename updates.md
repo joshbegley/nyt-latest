@@ -1,3 +1,7 @@
+**Clippers playing without coach Tyronn Lue, assistant Jeff Van Gundy**\
+`LA will be without Lue for the fourth time in six games due to back pain.`\
+https://nytimes.com/athletic/6214590/2025/03/18/tyronn-lue-jeff-van-gundy-out-clippers/
+
 **Bondi Calls Tesla Vandalism ‘Domestic Terrorism,’ Promising Steep Consequences**\
 `The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
 https://nytimes.com/2025/03/18/us/politics/tesla-vandalism-domestic-terrorism.html
