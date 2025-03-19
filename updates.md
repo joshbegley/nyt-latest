@@ -1,3 +1,15 @@
+**The Windup: How Sasaki's debut went**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6214944/2025/03/19/dodgers-tokyo-roki-sasaki-the-windup/
+
+**F1 mailbag: Hadjar’s tears, Hamilton’s adjustment and a 'Racing Dad' award**\
+`The Athletic's F1 experts, Luke Smith and Madeline Coleman, answer your questions`\
+https://nytimes.com/athletic/6213658/2025/03/19/f1-hadjar-lewis-hamilton-anthony-hamilton/
+
+**How WR Mecole Hardman fits Packers on offense and special teams**\
+`The three-time Super Bowl champion was an All-Pro return man in 2019 and might return kicks and punts for the Packers.`\
+https://nytimes.com/athletic/6215679/2025/03/19/mecole-hardman-packers-free-agent/
+
 **This Japanese Sax Polymath Might Be a Postmodern Bach**\
 `The composer and saxophonist Yasuaki Shimizu is at home in free jazz, classical and art pop. Finally touring North America, he’s going big by staying small.`\
 https://nytimes.com/2025/03/19/arts/music/yasuaki-shimizu-new-york-north-america.html
