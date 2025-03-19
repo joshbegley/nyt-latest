@@ -1,8 +1,16 @@
+**What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
+`Since the president’s murder in 1963,`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination
+
+**Braves reunite with former closer Craig Kimbrel on minor-league deal: Source**\
+`Kimbrel debuted with Atlanta in 2010 and made four consecutive All-Star appearances in his first four full seasons with the Braves.`\
+https://nytimes.com/athletic/6214341/2025/03/18/braves-sign-craig-kimbrel-reunion/
+
 **Earth’s 10 Hottest Years Have Been the Last 10**\
 `A report from the World Meteorological Organization confirms that 2024 was the hottest year on record and the first year to be more than 1.5 degrees Celsius above the preindustrial era.`\
 https://nytimes.com/2025/03/18/climate/global-temperatures-wmo-report.html
 
-**Georgia may hold a spring game, but like the rest of the SEC, it won't be televised**\
+**Georgia might hold a spring game, but like the rest of the SEC, it won't be televised**\
 `In years past spring games were considered free publicity. Now they're considered a hazard.`\
 https://nytimes.com/athletic/6214292/2025/03/18/georgia-spring-game-not-televised-sec/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/18/us/kennedy-assassination-historians-documents.htm
 **Parents of Student Missing in the Dominican Republic Believe She Drowned**\
 `The student, Sudiksha Konanki, 20, was on a spring break trip to Punta Cana when she disappeared earlier this month, leading to a massive search effort and an investigation.`\
 https://nytimes.com/2025/03/18/us/sudiksha-konanki-drowned-dominican-republic.html
-
-**R.F.K. Jr. celebrated Trump’s order to declassify the documents.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/rfk-jr-kennedy-documents
-
-**Read The Times’s 1963 coverage of the Kennedy assassination.**\
-`By Tom Wicker`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/read-the-timess-1963-coverage-of-the-kennedy-assassination
 
