@@ -1,3 +1,19 @@
+**NFL rule change proposals: Playoff seeding changes, OT rules, 'tush push' ban**\
+`Any proposal needs approval from 24 of the 32 NFL voters to pass and become official.`\
+https://nytimes.com/athletic/6215801/2025/03/19/nfl-2025-rule-changes-playoff-seeds-tush-push/
+
+**U.S. Institute of Peace Accuses Trump and DOGE of ‘Takeover by Force’**\
+`The institute, a nonprofit dedicated to promoting peace, sued President Trump and Elon Musk’s government cost-cutting team over the administration’s attempts to dismantle it.`\
+https://nytimes.com/2025/03/19/us/politics/peace-institute-lawsuit-doge-trump.html
+
+**Lloyd: March Madness bracketology for my own amusement. You're not only one flipping out**\
+`There has never been a perfect bracket, according to the NCAA. Just like Matthew McConaughey, I decided to leave it to chance. `\
+https://nytimes.com/athletic/6215581/2025/03/19/march-madness-2025-ncaa-tournament-bracketology/
+
+**Iranian Dissident Tells of Activism That Led to Murder Plots in New York**\
+`Masih Alinejad started rattling Iran’s rulers as a teenager. Now, men whom prosecutors say arranged for an assassin to kill her in New York are on trial in Manhattan.`\
+https://nytimes.com/2025/03/19/nyregion/iran-murder-plot-masih-alinejad-testifies.html
+
 **Jung Hoo Lee's MRI results were encouraging, but highlight Giants' precarious postseason hopes**\
 `The news that Lee needed an MRI was ominous because there are only so many blows the Giants can absorb. They don't need to start now.`\
 https://nytimes.com/athletic/6214859/2025/03/19/jung-hoo-lee-mri-results-sf-giants-impact/
