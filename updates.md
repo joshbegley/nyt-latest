@@ -1,3 +1,7 @@
+**No Steph, no problem for Warriors as Jimmy Butler and Draymond Green lead way vs. Bucks**\
+`Butler promised to crank up his offense when needed. That time came Tuesday against the Bucks.`\
+https://nytimes.com/athletic/6214866/2025/03/19/jimmy-butlers-draymond-green-warriors-bucks/
+
 **Congo and Rwanda Call for Cease-Fire in Their Deadly Conflict**\
 `After talks in Qatar, the two countries’ presidents said they were committed to an unconditional truce between Congo’s army and a rebel group that Rwanda denies backing.`\
 https://nytimes.com/2025/03/19/world/africa/congo-rwanda-conflict-ceasefire.html
