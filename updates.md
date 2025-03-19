@@ -1,3 +1,7 @@
+**Winning World Cup England's 'only goal', Tuchel tells squad**\
+`Tuchel is currently leading his first England camp and will manage his first game against Albania at Wembley on Friday night.`\
+https://nytimes.com/athletic/6216040/2025/03/19/england-thomas-tuchel-world-cup/
+
 **Ex-Proud Boys leader is said to no longer be facing criminal prosecution over his arrest on assault charges.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/03/19/us/trump-news/enrique-tarrio-proud-boys-charges-dropped

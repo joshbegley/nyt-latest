@@ -1,3 +1,7 @@
+**Winning World Cup England's 'only goal', Tuchel tells squad**\
+`Tuchel is currently leading his first England camp and will manage his first game against Albania at Wembley on Friday night.`\
+https://nytimes.com/athletic/6216040/2025/03/19/england-thomas-tuchel-world-cup/
+
 **Ex-Proud Boys leader is said to no longer be facing criminal prosecution over his arrest on assault charges.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/03/19/us/trump-news/enrique-tarrio-proud-boys-charges-dropped
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tou
 **Couple Who Abused Adopted Children Are Sentenced to Decades in Prison**\
 `The West Virginia couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
 https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.html
-
-**Federal Reserve Extends Pause on Rate Cuts**\
-`The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
-https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
 
