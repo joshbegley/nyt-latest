@@ -1,3 +1,27 @@
+**Canucks win with a commanding, up-tempo game against Jets: 3 takeaways**\
+`Despite not having Conor Garland, the Canucks turned in their best offensive performance in weeks against the NHL's best team.`\
+https://nytimes.com/athletic/6214805/2025/03/19/canucks-defeat-jets-three-takeaways/
+
+**The BookKeeper - Exploring Manchester City's finances during a season of change**\
+`In-depth analysis of Manchester City's financial situation from The Athletic's new football finance writer`\
+https://nytimes.com/athletic/6115037/2025/03/19/the-bookkeeper-manchester-city-financial-analysis/
+
+**Thomas Tuchel and 'earning the right' to sing the English national anthem. Discuss.**\
+`Tuchel came up with what he presumably thought was quite a smart answer to an absurd riddle — but quite where this logic leads us is unclear`\
+https://nytimes.com/athletic/6209327/2025/03/19/thomas-tuchel-england-national-anthem/
+
+**Newcastle’s moment of triumph felt so wholesome. But we still need to talk about why it wasn't perfect**\
+`Football has become compromised and conflicted. The more we ignore that conflict, the more entangled it threatens to become`\
+https://nytimes.com/athletic/6213460/2025/03/19/newcastle-league-cup-victory-saudi-ownership/
+
+**Do Real Madrid have a point in 72-hour rest row?**\
+`Carlo Ancelotti made a bold claim after his side's win against Villarreal, but what do the numbers say about Madrid's lack of rest?`\
+https://nytimes.com/athletic/6213404/2025/03/19/real-madrid-carlo-ancelotti-rest-periods/
+
+**How the Premier League has been democratised by the growing spread of academy talent**\
+`The productivity of English football's academy system is making the country's top-flight increasingly competitive - and that's a good thing`\
+https://nytimes.com/athletic/6212297/2025/03/19/premier-league-academy-talent-spread/
+
 **Wednesday Briefing**\
 `A Putin-Trump call about Ukraine.`\
 https://nytimes.com/2025/03/19/briefing/trump-ukraine-gaza.html
