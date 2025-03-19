@@ -1,3 +1,15 @@
+**Why USL owners took the leap to vote for promotion and relegation**\
+`It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
+https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
+
+**Zelensky Says He’ll Speak to Trump About ‘Next Steps’**\
+`The Ukrainian president appeared open to Russia’s offer of a partial cease-fire, but deeply skeptical, after President Trump spoke with President Vladimir V. Putin.`\
+https://nytimes.com/2025/03/19/world/europe/zelensky-trump-ukraine-russia-putin.html
+
+**Cam Johnson thought he was getting traded, but Nets kept him for a reason**\
+`Johnson was supposed to get traded this year. Everyone seemed to agree. So why is he still a Net? Johnson explains why.`\
+https://nytimes.com/athletic/6214712/2025/03/19/cam-johnson-brooklyn-nets-trade-leadership/
+
 **What’s at Stake in Trump’s F.T.C. Purge**\
 `The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
 https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6214311/2025/03/19/nit-south-alabama-uc-riverside/
 **Bruins’ Fabian Lysell is back, and the prospect's clock is ticking**\
 `Interim coach Joe Sacco on Lysell's return: "He’s getting an opportunity. At some point, we’ll see him in the lineup here."`\
 https://nytimes.com/athletic/6214021/2025/03/19/bruins-fabian-lysell-prospect-clock/
-
-**'TRAE BENHAM, YOU ANIMAL': How High Point's student broadcasters went viral in March Madness**\
-`The call from Jimmy Roselli and Griffin Wright was — to quote the folks at Mid-Major Madness — "absolute electric factory."`\
-https://nytimes.com/athletic/6204555/2025/03/19/march-madness-2025-high-point-basketball-broadcasters/
-
-**Aguirre wants Mexico to laugh, and fight, toward Nations League glory**\
-`The head coach finds himself in a familiar spot, with Mexico at a pre-World Cup crossroads.`\
-https://nytimes.com/athletic/6214666/2025/03/19/mexico-aguirre-usmnt-concacaf-nations-league/
-
-**What Oil Executives Want From President Trump**\
-`Tariffs, tax credits and deregulation are among the industry’s top priorities.`\
-https://nytimes.com/2025/03/19/business/energy-environment/oil-executives-trump-tariffs.html
 

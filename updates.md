@@ -1,3 +1,15 @@
+**Why USL owners took the leap to vote for promotion and relegation**\
+`It took years of discussions, but the status quo will go and pro-rel will be implemented once USL launches its first-tier league.`\
+https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-vote-reaction/
+
+**Zelensky Says He’ll Speak to Trump About ‘Next Steps’**\
+`The Ukrainian president appeared open to Russia’s offer of a partial cease-fire, but deeply skeptical, after President Trump spoke with President Vladimir V. Putin.`\
+https://nytimes.com/2025/03/19/world/europe/zelensky-trump-ukraine-russia-putin.html
+
+**Cam Johnson thought he was getting traded, but Nets kept him for a reason**\
+`Johnson was supposed to get traded this year. Everyone seemed to agree. So why is he still a Net? Johnson explains why.`\
+https://nytimes.com/athletic/6214712/2025/03/19/cam-johnson-brooklyn-nets-trade-leadership/
+
 **What’s at Stake in Trump’s F.T.C. Purge**\
 `The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
 https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
