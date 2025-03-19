@@ -1,3 +1,7 @@
+**Most Oilers stars shine in Ekholm's return, but Draisaitl's streak ends: 5 takeaways**\
+`The Oilers got the offensive breakthrough they’ve been searching for against Utah, despite the end of Draisaitl's 18-game point streak.`\
+https://nytimes.com/athletic/6214924/2025/03/19/oilers-ekholm-returns-draisaitl-streak-ends/
+
 **Christian Arroyo in mix for final Phillies roster spot after late tryout tested his faith**\
 `When January became February and there were still no offers, Arroyo had to confront his baseball mortality. But a workout got him a deal.`\
 https://nytimes.com/athletic/6214000/2025/03/19/christian-arroyo-phillies-roster-spring-workout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6213859/2025/03/19/alex-ovechkin-nhl-situation-room
 **After quiet offseason, Orioles march forward at their own cautious pace**\
 `In nearly a year under new owner David Rubenstein, the Orioles still have not signed any of their prized young talent to long-term deals.`\
 https://nytimes.com/athletic/6214595/2025/03/19/baltimore-orioles-offseason-contracts/
-
-**2020 visions: Five years later, which teams and players lost the most with the shorter season?**\
-`The 60-game season in 2020 played in front of empty stadiums hurt the entire league, but some lost more than others.`\
-https://nytimes.com/athletic/6212956/2025/03/19/2020-season-biggest-losers-athletics-reds-giancarlo-stanton/
 
