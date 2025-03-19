@@ -1,3 +1,11 @@
+**Energy Infrastructure Attacks Have Inflicted Pain on Both Russia and Ukraine**\
+`An agreement to suspend attacks against energy infrastructure would halt a strategy employed by Ukraine and Russia. Kyiv has tried to hit at Russian oil revenues, and Moscow has tried to break Ukrainian morale.`\
+https://nytimes.com/2025/03/19/world/europe/ukraine-russia-energy-infrastructure.html
+
+**England's Bronze opens up on autism and ADHD diagnosis: 'It's my superpower'**\
+`Bronze, 33, explained to the BBC that she received her diagnosis in 2021 and was choosing to speak about it to help "get rid of the stigma".`\
+https://nytimes.com/athletic/6215038/2025/03/19/lucy-bronze-autism-adhd/
+
 **One and One-A: Why Ja’Marr Chase and Tee Higgins want to share the spotlight**\
 `The WRs are the ultimate package deal and their greatness grows exponentially because of each other. Now their bank accounts do, as well.`\
 https://nytimes.com/athletic/6214536/2025/03/19/jamarr-chase-tee-higgins-extensions-bengals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/learning/should-there-be-more-opportunities-for-w
 **What to Watch at the Federal Reserve’s March Meeting**\
 `A new set of economic projections will provide the latest view of how central bankers think President Trump’s agenda will affect the economy.`\
 https://nytimes.com/2025/03/19/business/federal-reserve-march-meeting.html
-
-**As Pope Francis Ails, Outlandish Rumors Run Wild**\
-`Audio, a photo, medical reports: The truth may be out there, but when it comes to the health of the pontiff, many people prefer more fanciful tales.`\
-https://nytimes.com/2025/03/19/world/europe/pope-francis-disinformation.html
-
-**Does the Fed Share the Stock Market’s Worry About the Economy?**\
-`So far, the Federal Reserve has avoided commenting on the increasingly uncertain outlook, but investors are waiting to see whether it changes its projections on Wednesday.`\
-https://nytimes.com/2025/03/19/business/federal-reserve-economy-projections.html
 
