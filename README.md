@@ -1,3 +1,15 @@
+**Chuck Schumer Learns the Downside of Being on Top in the Senate**\
+`Leaders in the upper chamber of Congress occasionally have to take a political beating to protect their members in tough spots, like the showdown over government funding.`\
+https://nytimes.com/2025/03/19/us/politics/chuck-schumer-learns-the-downside-of-being-on-top-in-the-senate.html
+
+**Ranger Suárez's back stiffness could alter Phillies rotation to start season**\
+`The Phillies sent him Monday for imaging that revealed no structural issues, but this is an injury that forced Suárez to miss time in 2024.`\
+https://nytimes.com/athletic/6216776/2025/03/19/ranger-suarez-back-injury-phillies-rotation/
+
+**More upsets are coming to the women's tournament. Just maybe not this year**\
+`While talent is proliferating around the game, right now it's just helping top seeds get even stronger. Can any underdogs have their day?`\
+https://nytimes.com/athletic/6216450/2025/03/19/2025-womens-march-madness-first-round-upsets-regional-analysis/
+
 **Shielded Kennedy Files Hid Spies, Not Conspiracies**\
 `Newly unredacted documents reveal details about Cold War spycraft, not a second gunman on grassy knolls. The revelations have “nothing to do with who killed Kennedy,” one expert said.`\
 https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/opinion/america-sudan-genocide.html
 **Canadiens' Josh Anderson was saved by cut-resistant pants. Why do players still resist safety?**\
 `Anderson's use of cut-resistant pants likely prevented a severe injury, but comfort still appears to be a bigger priority among players.`\
 https://nytimes.com/athletic/6216512/2025/03/19/canadiens-josh-anderson-cut-resistant-pants/
-
-**Protesters Clash With Police in Turkey Over Istanbul Mayor Arrest**\
-`Mayor Ekrem Imamoglu of Istanbul is the top political rival of President Recep Tayyip Erdogan, and was set to be named the opposition’s presidential candidate.`\
-https://nytimes.com/video/world/middleeast/100000010061809/turkey-istanbul-mayor-arrest.html
-
-**Case for NL MVP: Pros and cons for Shohei Ohtani, other top contenders and a sleeper**\
-`Michael Salfino handicaps the race for the 2025 NL MVP honors, including his thoughts on how pitching could impact Shohei Ohtani's bid.`\
-https://nytimes.com/athletic/6215820/2025/03/19/nl-mvp-2025-best-bets-shohei-ohtani/
-
-**Fifteen-year-old becomes youngest athlete to run sub-four-minute mile**\
-`Ruthe crossed the line in Auckland with a time of 3:58.35.`\
-https://nytimes.com/athletic/6216668/2025/03/19/sam-ruthe-sub-four-minute-mile/
 

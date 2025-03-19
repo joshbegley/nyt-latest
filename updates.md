@@ -1,3 +1,15 @@
+**Shielded Kennedy Files Hid Spies, Not Conspiracies**\
+`Newly unredacted documents reveal details about Cold War spycraft, not a second gunman on grassy knolls. The revelations have “nothing to do with who killed Kennedy,” one expert said.`\
+https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
+
+**Musk Donates to G.O.P. Members of Congress Who Support Impeaching Judges**\
+`Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republican incumbents who back ousting judges who impede the administration.`\
+https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
+
+**Jackie Robinson’s Legacy Vanishes, Then Reappears on Pentagon Site**\
+`A number of military pages focused on African American achievements have been lost amid the Trump administration’s effort to scrub references to diversity and inclusion. Some return. Others don’t.`\
+https://nytimes.com/2025/03/19/us/politics/jackie-robinson-defense-department.html
+
 **Love or hate the Astros' newest City Connect uniforms? Our panel weighs in**\
 `It can be hard to get baseball writers to agree on much, but that was not the case for these uniforms. `\
 https://nytimes.com/athletic/6216485/2025/03/19/mlb-city-connect-astros-nike/
