@@ -1,3 +1,19 @@
+**Jackie Robinson article restored after removal from Defense Department site**\
+`Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
+https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
+
+**The Amtrak chief executive abruptly resigned from the rail service.**\
+`Stephen J. Gardner stepped down on Wednesday after leading Amtrak for three years.`\
+https://nytimes.com/2025/03/19/us/politics/the-amtrak-chief-executive-abruptly-resigned-from-the-rail-service.html
+
+**‘More Than a Hint’ That Dark Energy Isn’t What Astronomers Thought**\
+`New data further challenge the best scientific theory of the history and the structure of the universe. But a separate recent result reinforces it.`\
+https://nytimes.com/2025/03/19/science/space/astronomer-desi-dark-energy.html
+
+**A Kennedy aide worried that the C.I.A. threatened the State Department’s power.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/a-kennedy-aide-worried-that-the-cia-threatened-the-state-departments-power
+
 **March Madness Quiz: Can you name these NCAA Tournament coaches?**\
 `These 16 coaches will be participating in March Madness. How many do you recognize?`\
 https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/

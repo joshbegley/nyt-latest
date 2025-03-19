@@ -1,3 +1,19 @@
+**Jackie Robinson article restored after removal from Defense Department site**\
+`Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
+https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
+
+**The Amtrak chief executive abruptly resigned from the rail service.**\
+`Stephen J. Gardner stepped down on Wednesday after leading Amtrak for three years.`\
+https://nytimes.com/2025/03/19/us/politics/the-amtrak-chief-executive-abruptly-resigned-from-the-rail-service.html
+
+**‘More Than a Hint’ That Dark Energy Isn’t What Astronomers Thought**\
+`New data further challenge the best scientific theory of the history and the structure of the universe. But a separate recent result reinforces it.`\
+https://nytimes.com/2025/03/19/science/space/astronomer-desi-dark-energy.html
+
+**A Kennedy aide worried that the C.I.A. threatened the State Department’s power.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/a-kennedy-aide-worried-that-the-cia-threatened-the-state-departments-power
+
 **March Madness Quiz: Can you name these NCAA Tournament coaches?**\
 `These 16 coaches will be participating in March Madness. How many do you recognize?`\
 https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/19/us/los-angeles-budget-deficit.html
 **Small Plane That Crashed in Alaska Was a Half-Ton Overweight, U.S. Says**\
 `All 10 people on board were killed when the plane, flying in poor visibility, plunged into sea ice near Nome in February.`\
 https://nytimes.com/2025/03/19/us/alaska-plane-crash-overweight.html
-
-**Chuck Schumer Learns the Downside of Being on Top in the Senate**\
-`Leaders in the upper chamber of Congress occasionally have to take a political beating to protect their members in tough spots, like the showdown over government funding.`\
-https://nytimes.com/2025/03/19/us/politics/chuck-schumer-senate-budget-vote-backlash.html
-
-**Ranger Suárez's back stiffness could alter Phillies rotation to start season**\
-`The Phillies sent him Monday for imaging that revealed no structural issues, but this is an injury that forced Suárez to miss time in 2024.`\
-https://nytimes.com/athletic/6216776/2025/03/19/ranger-suarez-back-injury-phillies-rotation/
-
-**More upsets are coming to the women's tournament. Just maybe not this year**\
-`While talent is proliferating around the game, right now it's just helping top seeds get even stronger. Can any underdogs have their day?`\
-https://nytimes.com/athletic/6216450/2025/03/19/2025-womens-march-madness-first-round-upsets-regional-analysis/
-
-**Shielded Kennedy Files Hid Spies, Not Conspiracies**\
-`Newly unredacted documents reveal details about Cold War spycraft, not a second gunman on grassy knolls. The revelations have “nothing to do with who killed Kennedy,” one expert said.`\
-https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
 
