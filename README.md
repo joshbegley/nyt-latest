@@ -1,3 +1,11 @@
+**Listen: Was that Liverpool's worst-ever performance in a final?**\
+`Walk On discuss whether Liverpool's performance in last Sunday's Carabao Cup final was their worst finals performance ever.`\
+https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/
+
+**Food Safety Jeopardized by Onslaught of Funding and Staff Cuts**\
+`The Trump administration halted some food testing and shut down a committee studying bacteria in infant formula. Earlier funding cutbacks under the Biden administration now threaten state labs and inspectors.`\
+https://nytimes.com/2025/03/19/health/food-safety-trump-fda-cutbacks-deadly-outbreaks.html
+
 **Listen: Should the Tennessee Titans draft Cam Ward with the No. 1 overall pick?**\
 `"The Athletic Football Show" discusses whether the Tennessee Titans should select Cam Ward with the No. 1 overall pick.`\
 https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-cam-ward-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6215337/2025/03/19/imane-khelif-olympics-donald-tru
 **Southgate: Young men are being led by 'toxic influencers'**\
 `Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
 https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
-
-**Key Saudi Pro League executive leaves role to take up new job**\
-`Al Lazeez joined the Saudi Pro League as a senior advisor in late 2021 and by early 2023 he had become vice-chairman.`\
-https://nytimes.com/athletic/6215333/2025/03/19/saad-al-lazeez-saudi-pro-league/
-
-**Analyzing Jets trends: The up-and-down PK, Perfetti's step forward, Arniel for Jack Adams?**\
-`As the Jets head toward the playoffs and home-ice advantage, here are the trends that could influence their fate.`\
-https://nytimes.com/athletic/6210870/2025/03/19/winnipeg-jets-trends-perfetti-nhl-jack-adams/
 
