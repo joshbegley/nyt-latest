@@ -1,3 +1,11 @@
+**Cleveland mayor accuses Haslams of 'misleading statements' around Browns' new stadium**\
+`The Haslam Sports Group wants to move the team to a stadium in Brook Park, while the City of Cleveland wants the team to play in downtown. `\
+https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-proposed-new-stadium/
+
+**Hold My Snacks: Pirate’s Booty Founder Attempts a Seaside Coup**\
+`A snack food magnate declared himself mayor of the Village of Sea Cliff, on Long Island. The voters said otherwise.`\
+https://nytimes.com/2025/03/19/nyregion/sea-cliff-mayor-pirates-booty-election.html
+
 **Guardians tab Tanner Bibee for first career Opening Day start**\
 `Bibee will start the Guardians’ first game of 2025, the first Opening Day assignment of his career.`\
 https://nytimes.com/athletic/6212898/2025/03/19/guardians-tanner-bibee-opening-day-starter/

@@ -1,3 +1,11 @@
+**Cleveland mayor accuses Haslams of 'misleading statements' around Browns' new stadium**\
+`The Haslam Sports Group wants to move the team to a stadium in Brook Park, while the City of Cleveland wants the team to play in downtown. `\
+https://nytimes.com/athletic/6215937/2025/03/19/cleveland-browns-haslams-mayor-proposed-new-stadium/
+
+**Hold My Snacks: Pirate’s Booty Founder Attempts a Seaside Coup**\
+`A snack food magnate declared himself mayor of the Village of Sea Cliff, on Long Island. The voters said otherwise.`\
+https://nytimes.com/2025/03/19/nyregion/sea-cliff-mayor-pirates-booty-election.html
+
 **Guardians tab Tanner Bibee for first career Opening Day start**\
 `Bibee will start the Guardians’ first game of 2025, the first Opening Day assignment of his career.`\
 https://nytimes.com/athletic/6212898/2025/03/19/guardians-tanner-bibee-opening-day-starter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/health/cdc-hiv-prevention-treatment.html
 **Judge Grants the Government Another Day to Share Details on Deportation Flights**\
 `Judge James Boasberg has asked the government to tell him what time two planes took off from U.S. soil and from where, what time they left U.S. airspace and what time they landed in El Salvador.`\
 https://nytimes.com/2025/03/19/us/politics/deportation-flights-doj-fight.html
-
-**Dear American and Canadian Friends and Neighbors:**\
-`Three Canadians and an American engage in a colloquy about relations between the countries. Also: Nuclear agency cutbacks; silencing Voice of America.`\
-https://nytimes.com/2025/03/19/opinion/us-canada-relations.html
-
-**White House Plans to Pause $175 Million for Penn Over Transgender Policy**\
-`The decision is the latest clash between a university and the administration as it pushes schools to end diversity programming and adopt stricter discipline, among other things.`\
-https://nytimes.com/2025/03/19/us/politics/trump-to-pause-175-million-for-university-of-pennsylvania-over-transgender-policy.html
 
