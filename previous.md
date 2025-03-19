@@ -1,40 +1,40 @@
-**Armed Rohingya Group’s Leader Is Arrested in Bangladesh**\
-`Attacks by the group, the Arakan Rohingya Salvation Army, were used as a pretext by the Myanmar military to launch a campaign of ethnic cleansing that set off a massive refugee crisis.`\
-https://nytimes.com/2025/03/19/world/asia/rohingya-arsa-ataullah-arrest.html
+**Defiance and Threats in Deportation Case Renew Fear of Constitutional Crisis**\
+`Legal scholars say that the nation has reached a tipping point and that the right question is not whether there is a crisis, but rather how much damage it will cause.`\
+https://nytimes.com/2025/03/19/us/politics/trump-deportations-constitutional-crisis-impeachment.html
 
-**Marshall Islands to play their first 11-a-side international match in Arkansas**\
-`The Pacific Island nation, with fewer than 40,000 inhabitants, will take on the U.S. Virgin Islands, the Turks and Caicos and Guam.`\
-https://nytimes.com/athletic/6213903/2025/03/19/marshall-islands-arkansas-first-game/
+**Panthers roster reset: Where they're in good shape and where help is needed**\
+`Bryce Young settled in last season and the offensive line returns intact. What positions will Carolina most likely to target in the draft?`\
+https://nytimes.com/athletic/6214071/2025/03/19/carolina-panthers-roster-analysis-nfl-draft/
 
-**Jimmy Fallon Parodies Trump’s Podcast-Length Phone Call With Putin**\
-`The “Tonight Show” host said President Trump had spent most of the call “trying to sell Putin a Cybertruck.”`\
-https://nytimes.com/2025/03/19/arts/television/jimmy-fallon-trump-phone-call-putin.html
+**Your Home Is Vulnerable to Extreme Weather. Here’s How to Protect It.**\
+`Here are some tips on how to defend your home against floodwaters, dangerous winds and wildfires.`\
+https://nytimes.com/2025/03/19/realestate/home-preparation-protection-climate-change.html
 
-**Turkey Arrests Istanbul’s Mayor, a Leading Opposition Figure**\
-`Ekrem Imamoglu was detained at his home on Wednesday, according to prosecutors, who said the charges against him were related to corruption and terrorism.`\
-https://nytimes.com/2025/03/19/world/middleeast/turkey-istanbul-mayor-arrest.html
+**Should There Be More Opportunities for Women and Girls to Play Football?**\
+`The founder of the Women’s National Football Conference, and a hall of fame running back herself, says yes. What do you think?`\
+https://nytimes.com/2025/03/19/learning/should-there-be-more-opportunities-for-women-and-girls-to-play-football.html
 
-**Back to Earth**\
-`Two NASA astronauts have returned after more than nine months in space. What questions would you ask them if you could?`\
-https://nytimes.com/2025/03/19/learning/back-to-earth.html
+**What to Watch at the Federal Reserve’s March Meeting**\
+`A new set of economic projections will provide the latest view of how central bankers think President Trump’s agenda will affect the economy.`\
+https://nytimes.com/2025/03/19/business/federal-reserve-march-meeting.html
 
-**To Finally Close Rikers, Panel Suggests Making It Someone’s Only Job**\
-`The jail is “decrepit, dysfunctional, and violent,” according to a report from a commission appointed by the City Council speaker, Adrienne Adams.`\
-https://nytimes.com/2025/03/19/nyregion/rikers-closing-plan.html
+**As Pope Francis Ails, Outlandish Rumors Run Wild**\
+`Audio, a photo, medical reports: The truth may be out there, but when it comes to the health of the pontiff, many people prefer more fanciful tales.`\
+https://nytimes.com/2025/03/19/world/europe/pope-francis-disinformation.html
 
-**How Trump’s Hostility to Canada Is Inflicting Pain on N.Y.C. Tourism**\
-`Among international tourists, only the British visit New York City more than Canadians, who spent $600 million there last year.`\
-https://nytimes.com/2025/03/19/nyregion/how-trumps-hostility-to-canada-is-inflicting-pain-on-nyc-tourism.html
+**Does the Fed Share the Stock Market’s Worry About the Economy?**\
+`So far, the Federal Reserve has avoided commenting on the increasingly uncertain outlook, but investors are waiting to see whether it changes its projections on Wednesday.`\
+https://nytimes.com/2025/03/19/business/federal-reserve-economy-projections.html
 
-**Fearing Trump, Hospital Shuns ‘Trigger’ Words Like ‘Diverse’**\
-`Lawyers at NYU Langone Health have identified terms to avoid or scrutinize as the medical center navigates Trump administration executive orders aimed at D.E.I. programs.`\
-https://nytimes.com/2025/03/19/nyregion/nyu-langone-trigger-words-trump-dei.html
+**Tech for Babies Is Booming. Here’s What One Parent Found Helped the Most.**\
+`The Snoo. The Nanit. The Hatch Rest. Many lists of baby gear mandate certain items, but our columnist wondered if it would be better to chuck those lists out.`\
+https://nytimes.com/2025/03/19/technology/personaltech/baby-tech-gear-recommendations.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/19/crosswords/spelling-bee-forum.html
+**Trump Has Gone From Unconstitutional to Anti-Constitutional**\
+`Where all this goes is still up to us.`\
+https://nytimes.com/2025/03/19/opinion/trump-musk-constitutional-unconstitutional.html
 
-**Baylor Scheierman thinking about new celebrations, but tough mentality is working**\
-`Scheierman scored a career-high 20 points on 7-for-8 shooting from the field, including 6-for-7 on 3-point attempts.`\
-https://nytimes.com/athletic/6214869/2025/03/19/celtics-baylor-scheierman-celebrations-nets/
+**With Orders, Investigations and Innuendo, Trump and G.O.P. Aim to Cripple the Left**\
+`The president and his allies in Congress are targeting the financial, digital and legal machinery that powers the Democratic Party and much of the progressive political world.`\
+https://nytimes.com/2025/03/19/us/politics/trump-republicans-attack-democrats-actblue.html
 

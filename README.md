@@ -1,3 +1,7 @@
+**What I’m hearing at Yankees camp: Considering upgrade at third base, deciding on starters**\
+`With Giancarlo Stanton out, Ben Rice looks like the designated hitter against lefty pitching with Aaron Judge taking turns vs. righties.`\
+https://nytimes.com/athletic/6214355/2025/03/19/kuty-what-im-hearing-yankees-camp/
+
 **Defiance and Threats in Deportation Case Renew Fear of Constitutional Crisis**\
 `Legal scholars say that the nation has reached a tipping point and that the right question is not whether there is a crisis, but rather how much damage it will cause.`\
 https://nytimes.com/2025/03/19/us/politics/trump-deportations-constitutional-crisis-impeachment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/technology/personaltech/baby-tech-gear-recommenda
 **Trump Has Gone From Unconstitutional to Anti-Constitutional**\
 `Where all this goes is still up to us.`\
 https://nytimes.com/2025/03/19/opinion/trump-musk-constitutional-unconstitutional.html
-
-**With Orders, Investigations and Innuendo, Trump and G.O.P. Aim to Cripple the Left**\
-`The president and his allies in Congress are targeting the financial, digital and legal machinery that powers the Democratic Party and much of the progressive political world.`\
-https://nytimes.com/2025/03/19/us/politics/trump-republicans-attack-democrats-actblue.html
 
