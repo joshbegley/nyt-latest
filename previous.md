@@ -1,3 +1,7 @@
+**Historians adopt a wait-and-see stance toward latest trove of Kennedy documents.**\
+`Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/historians-adopt-a-wait-and-see-stance-toward-latest-trove-of-kennedy-documents
+
 **Inside the 24-Hour Scramble Among Top National Security Officials Over the J.F.K. Documents**\
 `The director of the Central Intelligence Agency emphasized that some documents had nothing to do with the assassinated president, according to people familiar with the discussions.`\
 https://nytimes.com/2025/03/18/us/politics/national-security-officials-jfk-documents.html
@@ -15,7 +19,7 @@ https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/the-2017-
 https://nytimes.com/2025/03/18/us/trump-deportations-venezuela-gang.html
 
 **Mexico City Bans Traditional Bullfights for Violence-Free Option**\
-`Showdowns between men and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
+`Showdowns between people and bulls can still go on, but the animals can no longer be hurt or killed. Some bullfighting proponents said the law imperils an ancient tradition.`\
 https://nytimes.com/2025/03/18/world/americas/mexico-city-bans-traditional-bullfights.html
 
 **First Four: Alabama St. tops Saint Francis in thriller; UNC takes on SD State**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/18/mens-march-madness-projections-2
 **Lance McCullers Jr. makes first start in 868 days after surviving 'the pits of despair'**\
 `"I felt as late as this past summer (that) I may never pitch again," McCullers said.`\
 https://nytimes.com/athletic/6214429/2025/03/18/lance-mccullers-jr-first-start-868-days/
-
-**Review: Eight Andrew Scotts in a Heartbreaking Solo ‘Vanya’**\
-`Playing all the characters in an update of Chekhov, the Irish actor turns what could be merely a stunt into a tour de force.`\
-https://nytimes.com/2025/03/18/theater/andrew-scott-vanya-review.html
 
