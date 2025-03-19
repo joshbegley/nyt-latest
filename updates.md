@@ -1,3 +1,11 @@
+**March Madness Quiz: Can you name these NCAA Tournament coaches?**\
+`These 16 coaches will be participating in March Madness. How many do you recognize?`\
+https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/
+
+**Couple Who Abused Adopted Children Are Sentenced to Decades in Prison**\
+`The West Virginia couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
+https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.html
+
 **Federal Reserve Extends Pause on Rate Cuts**\
 `The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
 https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
