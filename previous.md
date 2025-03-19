@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6216145/2025/03/19/nba-referees-warriors-steph-curr
 `Federal judges are worried that online threats against judges who oversee high-profile cases challenging Trump administration policies may lead to real-world violence.`\
 https://nytimes.com/2025/03/19/us/trump-judges-threats.html
 
-**Two Officials Who Helped Dismantle U.S. Aid Agency Named as Its New Leaders**\
+**Two Officials Who Helped Dismantle U.S. Aid Agency Are Named as Its New Leaders**\
 `Secretary of State Marco Rubio said he had canceled 83 percent of U.S.A.I.D.’s programs. A federal judge found that efforts to shutter the agency were likely unconstitutional.`\
 https://nytimes.com/2025/03/19/us/politics/usaid-doge-leadership.html
 
