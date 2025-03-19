@@ -1,3 +1,7 @@
+**Raducanu and coach Platenik part ways after just one match**\
+`The pair part ways after just 14 days and one match together but Raducanu's team say she will "continue looking for the right coach."`\
+https://nytimes.com/athletic/6216317/2025/03/19/raducanu-coach-platenik-vlado-split/
+
 **Justice Dept. Moves to Release Surveillance Records of Martin Luther King Jr.**\
 `The request, which comes on the heels of an executive order by President Trump, represents a sharp reversal for the F.B.I. and the department.`\
 https://nytimes.com/2025/03/19/us/politics/mlk-jr-fbi-surveillance-records-unsealed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/well/mind/adhd-videos-tiktok-misinfo.html
 **Menaced by Trump, Canada Prepares to Join E.U. Military Industry Buildup**\
 `Canada’s draft deal to participate in Europe’s defense industry will bring contracts to Canadian manufacturers and help lessen dependence on the United States.`\
 https://nytimes.com/2025/03/19/world/canada/canada-eu-military-industry-trump.html
-
-**7 best bets to kick off the early days of the women's NCAA Tournament**\
-`Austin Mock has seven best bets across the First Four and first round of the women's NCAA Tournament.`\
-https://nytimes.com/athletic/6216147/2025/03/19/womens-ncaa-tournament-first-round-best-bets/
 
