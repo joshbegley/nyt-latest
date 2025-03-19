@@ -1,3 +1,7 @@
+**Scouting Dodgers and Guardians prospects — and Jesus Made — on the back fields**\
+`Notes from the back fields on Jaison Chourio, Jackson Ferris, Emil Morales, Made and more.`\
+https://nytimes.com/athletic/6214914/2025/03/19/scouting-dodgers-guardians-prospects-jesus-made-jaison-chourio-jackson-ferris/
+
 **Listen: Was that Liverpool's worst-ever performance in a final?**\
 `Walk On discuss whether Liverpool's performance in last Sunday's Carabao Cup final was their worst finals performance ever.`\
 https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214513/2025/03/19/ncaa-tournament-favorites-win-du
 **Imane Khelif eying another Olympic gold, not intimidated by Trump’s policies**\
 `"I am not transgender,” Khelif said. “This does not concern me, and it does not intimidate me. That is my response.”`\
 https://nytimes.com/athletic/6215337/2025/03/19/imane-khelif-olympics-donald-trump/
-
-**Southgate: Young men are being led by 'toxic influencers'**\
-`Southgate said at a BBC lecture that “young men are suffering” with feeling “isolated”, leading them to unhealthy solutions.`\
-https://nytimes.com/athletic/6215384/2025/03/19/gareth-southgate-lecture-influencers/
 
