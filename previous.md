@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6211002/2025/03/19/nfl-draft-travis-hunter-2025-pro
 `Plus, what traditional "basketball" school has the best chance to win a national title in college football in the next few years?`\
 https://nytimes.com/athletic/6213910/2025/03/19/mandels-mailbag-ncaa-tournament-college-football-playoff-committee/
 
+**Pre-March Madness WNBA mock draft: Paige Bueckers remains on top, Azzi Fudd rises**\
+`As the college basketball world gears up for March Madness, this is the last chance for seniors to make an impression on WNBA talent evaluators ahead of the 2025 WNBA Draft, which will be held eight days after the national championship.`\
+https://nytimes.com/athletic/6214360/2025/03/19/wnba-mock-draft-march-madness-paige-bueckers/
+
 **Blues set for 'massive' game against Canucks with a fresh Jordan Binnington**\
 `Joel Hofer made 22 saves against Nashville, keeping Binnington rested for Thursday's clash against Vancouver for a playoff spot.`\
 https://nytimes.com/athletic/6214383/2025/03/19/blues-joel-hofer-binnington-goalies-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210246/2025/03/19/mens-march-madness-2025-must-wat
 **The 2025 Aces Project: MLB insiders rank starting pitchers, from ‘just a guy’ to No. 1**\
 `Who are the baseball's aces? Executives, analysts and scouts weigh in to help us rank them all the way to the top. `\
 https://nytimes.com/athletic/6197907/2025/03/19/2025-mlb-aces-project-starting-pitchers/
-
-**Tigers roster projection 3.0: Where do Casey Mize, Spencer Torkelson and others stand?**\
-`As spring training nears its end, the Tigers have thinned out their clubhouse. A host of worthy players could be fighting for two spots.`\
-https://nytimes.com/athletic/6213908/2025/03/19/tigers-roster-projection-2025/
 

@@ -1,3 +1,7 @@
+**Pre-March Madness WNBA mock draft: Paige Bueckers remains on top, Azzi Fudd rises**\
+`As the college basketball world gears up for March Madness, this is the last chance for seniors to make an impression on WNBA talent evaluators ahead of the 2025 WNBA Draft, which will be held eight days after the national championship.`\
+https://nytimes.com/athletic/6214360/2025/03/19/wnba-mock-draft-march-madness-paige-bueckers/
+
 **2025 NBA mock draft: The Polarizing Express rolls through March**\
 `As the NCAA Tournament gets underway, several top prospects will be in the spotlight. And scouts have varying opinions on many of them.`\
 https://nytimes.com/athletic/6209187/2025/03/19/2025-cooper-flagg-nba-draft/

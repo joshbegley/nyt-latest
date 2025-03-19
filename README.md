@@ -1,3 +1,7 @@
+**The Pulse: We already have a buzzer-beater**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6213673/2025/03/19/north-carolina-ncaa-tournament-the-pulse/
+
 **2025 NBA mock draft: The Polarizing Express rolls through March**\
 `As the NCAA Tournament gets underway, several top prospects will be in the spotlight. And scouts have varying opinions on many of them.`\
 https://nytimes.com/athletic/6209187/2025/03/19/2025-cooper-flagg-nba-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214175/2025/03/19/ncaa-tournament-march-madness-co
 **‘Can’t-miss’ Men’s NCAA Tournament games on Thursday and Friday: truTV FTW?**\
 `What NCAA Tournament games are 'cant-miss' on Thursday and Friday? The Athletic's experts help you map out the two frenzied days of TV.`\
 https://nytimes.com/athletic/6210246/2025/03/19/mens-march-madness-2025-must-watch-games/
-
-**The 2025 Aces Project: MLB insiders rank starting pitchers, from ‘just a guy’ to No. 1**\
-`Who are the baseball's aces? Executives, analysts and scouts weigh in to help us rank them all the way to the top. `\
-https://nytimes.com/athletic/6197907/2025/03/19/2025-mlb-aces-project-starting-pitchers/
 
