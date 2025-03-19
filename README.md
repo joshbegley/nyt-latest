@@ -1,3 +1,7 @@
+**Love or hate the Astros' newest City Connect uniforms? Our panel weighs in**\
+`It can be hard to get baseball writers to agree on much, but that was not the case for these uniforms. `\
+https://nytimes.com/athletic/6216485/2025/03/19/love-or-hate-the-astros-newest-city-connect-uniforms-our-panel-weighs-in/
+
 **Thursday Briefing: Ukraine Agrees to a Strike Pause**\
 `Plus, a push against India’s “boss husbands.”`\
 https://nytimes.com/2025/03/19/briefing/ukraine-cease-fire-canada-defense-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/t-magazine/100000010042915/house-tour-bea-bongiasca.ht
 **Can Alabama's Jalen Milroe sneak into first round? QB showed off exciting traits at pro day**\
 `Milroe ran a blazing-fast 40-yard dash and impressed with his powerful arm in front of a packed crowd in Tuscaloosa. `\
 https://nytimes.com/athletic/6215861/2025/03/19/nfl-draft-jalen-milroe-alabama-pro-day/
-
-**K.W. Lee, 96, Dies; Journalist Who Gave a Voice to Immigrant Communities**\
-`His reporting sought to humanize and unite Asian Americans. It also led to the release of a Korean immigrant on death row.`\
-https://nytimes.com/2025/03/19/business/media/kw-lee-dead.html
 
