@@ -1,3 +1,7 @@
+**What I’m hearing at Yankees camp: Considering upgrade at third base, deciding on starters**\
+`With Giancarlo Stanton out, Ben Rice looks like the designated hitter against lefty pitching with Aaron Judge taking turns vs. righties.`\
+https://nytimes.com/athletic/6214355/2025/03/19/kuty-what-im-hearing-yankees-camp/
+
 **Defiance and Threats in Deportation Case Renew Fear of Constitutional Crisis**\
 `Legal scholars say that the nation has reached a tipping point and that the right question is not whether there is a crisis, but rather how much damage it will cause.`\
 https://nytimes.com/2025/03/19/us/politics/trump-deportations-constitutional-crisis-impeachment.html
