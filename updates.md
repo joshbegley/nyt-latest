@@ -1,3 +1,7 @@
+**Congo and Rwanda Call for Cease-Fire in Their Deadly Conflict**\
+`After talks in Qatar, the two countries’ presidents said they were committed to an unconditional truce between Congo’s army and a rebel group that Rwanda denies backing.`\
+https://nytimes.com/2025/03/19/world/africa/congo-rwanda-conflict-ceasefire.html
+
 **What to Know About the Backlash Against Tesla**\
 `Elon Musk’s electric carmaker faces serious headwinds amid his involvement with right-wing politics and the Trump administration.`\
 https://nytimes.com/2025/03/19/business/tesla-musk-trump-backlash.html
