@@ -1,3 +1,11 @@
+**Baylor Scheierman thinking about new celebrations, but tough mentality is working**\
+`Scheierman scored a career-high 20 points on 7-for-8 shooting from the field, including 6-for-7 on 3-point attempts.`\
+https://nytimes.com/athletic/6214869/2025/03/19/celtics-baylor-scheierman-celebrations-nets/
+
+**Word of the Day: presage**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/19/learning/word-of-the-day-presage.html
+
 **'I arrived at Arsenal with a black bin bag and left with one. That's football'**\
 `WSL record appearance holder Jordan Nobbs discusses her Arsenal career and how hard it was to leave for Aston Villa`\
 https://nytimes.com/athletic/6163550/2025/03/19/jordan-nobbs-interview-arsenal-aston-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6212368/2025/03/19/how-chelsea-can-fix-cole-palmer/
 **Canucks win with a commanding, up-tempo game against Jets: 3 takeaways**\
 `Despite not having Conor Garland, the Canucks turned in their best offensive performance in weeks against the NHL's best team.`\
 https://nytimes.com/athletic/6214805/2025/03/19/canucks-defeat-jets-three-takeaways/
-
-**The BookKeeper - Exploring Manchester City's finances during a season of change**\
-`In-depth analysis of Manchester City's financial situation from The Athletic's new football finance writer`\
-https://nytimes.com/athletic/6115037/2025/03/19/the-bookkeeper-manchester-city-financial-analysis/
-
-**Thomas Tuchel and 'earning the right' to sing the English national anthem. Discuss.**\
-`Tuchel came up with what he presumably thought was quite a smart answer to an absurd riddle — but quite where this logic leads us is unclear`\
-https://nytimes.com/athletic/6209327/2025/03/19/thomas-tuchel-england-national-anthem/
 
