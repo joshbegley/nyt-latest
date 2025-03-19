@@ -1,3 +1,11 @@
+**Ex-Proud Boys leader is said to no longer be facing criminal prosecution over his arrest on assault charges.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/03/19/us/trump-news/enrique-tarrio-proud-boys-charges-dropped
+
+**Students at Elite Schools Tell Sex-Offender Teacher How He Scarred Them**\
+`Winston Nguyen, who taught math at Saint Ann’s School in Brooklyn, was sentenced to seven years in prison after pressuring students from several private schools to send him lewd images.`\
+https://nytimes.com/2025/03/19/nyregion/winston-nguyen-saint-anns-sentencing.html
+
 **The Fed Sees Higher Inflation and Lower Growth**\
 `Also, Zelensky agreed to a limited cease-fire in a call with Trump. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severance-food.html
