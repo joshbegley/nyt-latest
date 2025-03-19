@@ -1,6 +1,6 @@
 **Chuck Schumer Learns the Downside of Being on Top in the Senate**\
 `Leaders in the upper chamber of Congress occasionally have to take a political beating to protect their members in tough spots, like the showdown over government funding.`\
-https://nytimes.com/2025/03/19/us/politics/chuck-schumer-learns-the-downside-of-being-on-top-in-the-senate.html
+https://nytimes.com/2025/03/19/us/politics/chuck-schumer-senate-budget-vote-backlash.html
 
 **Ranger Suárez's back stiffness could alter Phillies rotation to start season**\
 `The Phillies sent him Monday for imaging that revealed no structural issues, but this is an injury that forced Suárez to miss time in 2024.`\
