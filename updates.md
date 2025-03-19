@@ -1,3 +1,23 @@
+**A pod of dolphins greeted the returned astronauts.**\
+`The marine mammals swarmed around the recovery team and capsule, welcoming home the NASA astronauts shortly after they splashed down.`\
+https://nytimes.com/2025/03/18/science/dolphins-nasa-splashdown.html
+
+**The Social Security Administration says it will stop allowing changes made by phone.**\
+`By Tara Siegel Bernard`\
+https://nytimes.com/live/2025/03/18/us/trump-president-news/the-social-security-administration-says-it-will-stop-allowing-changes-made-by-phone
+
+**NASA Astronauts Finally Return to Earth, Almost 9 Months Delayed**\
+`A SpaceX capsule carrying two NASA astronauts, Butch Wilmore and Suni Williams, splashed down off Florida’s Gulf Coast on Tuesday, concluding their unexpectedly long stay in space.`\
+https://nytimes.com/video/science/space/100000010059269/nasa-splash-down-williams-wilmore.html
+
+**Cooper Kupp finally comes home to Seahawks, will wear No. 10**\
+`"The messaging was right on par with what I thought (about) how you build a championship team," Kupp said about joining the Seahawks.`\
+https://nytimes.com/athletic/6214358/2025/03/18/cooper-kupp-seahawks-jersey-number/
+
+**Padres' Yu Darvish questionable for Opening Day due to elbow inflammation**\
+`Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
+https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/
+
 **Padres' Yu Darvish questionable for Opening Day because of elbow inflammation**\
 `Manager Mike Shildt had previously cited "general fatigue" as the reason for a pause in Darvish's throwing schedule.`\
 https://nytimes.com/athletic/6214375/2025/03/18/padres-yu-darvish-questionable-elbow-inflammation/

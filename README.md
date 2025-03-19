@@ -1,5 +1,9 @@
-**A pod of dolphins greeted the returned astronauts.**\
-`The marine mammals swarmed around the recovery team and capsule, welcoming home the NASA astronauts shortly after they splashed down.`\
+**Socks, suits and slippers: The Kennedy archive holds more than just documents.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/kennedy-archive-clothes
+
+**Pod of Dolphins Greets NASA Astronauts**\
+`The marine mammals swarmed around the recovery team and capsule, welcoming home the astronauts shortly after they splashed down off Florida’s Gulf Coast.`\
 https://nytimes.com/2025/03/18/science/dolphins-nasa-splashdown.html
 
 **The Social Security Administration says it will stop allowing changes made by phone.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/18/business/tesla-ride-service-california-permit.htm
 **What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
 `Since the president’s murder in 1963,`\
 https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination
-
-**Braves reunite with former closer Craig Kimbrel on minor-league deal: Source**\
-`Kimbrel debuted with Atlanta in 2010 and made four consecutive All-Star appearances in his first four full seasons with the Braves.`\
-https://nytimes.com/athletic/6214341/2025/03/18/braves-sign-craig-kimbrel-reunion/
 
