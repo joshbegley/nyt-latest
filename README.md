@@ -1,3 +1,11 @@
+**VCU leads top second-round NCAA Tournament upset candidates**\
+`The Rams could be primed for a Sweet 16 run.`\
+https://nytimes.com/athletic/6215469/2025/03/19/2025-ncaa-tournament-second-round-upset-predictions/
+
+**My Husband Has Dementia. Can I Put Him in a Home and Move to Europe?**\
+`The magazine’s Ethicist columnist on the obligations we have to a spouse with a degenerative illness.`\
+https://nytimes.com/2025/03/19/magazine/husband-dementia-europe-ethics.html
+
 **Scoop City: Nine ways free agency changed this draft**\
 `Inside: How free agency changed this year&#8217;s draft, whether Brock Purdy should get $60 million and which sleeper QB you should know.`\
 https://nytimes.com/athletic/6215696/2025/03/19/free-agency-nfl-draft-impact-2025-cam-ward-titans-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/climate/epa-20-billion-climate-grants-lawsuit.htm
 **Bears free-agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
 `GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
 https://nytimes.com/athletic/6181354/2025/03/19/chicago-bears-2025-free-agency-tracker/
-
-**MoneyCall: The business case for 96 teams**\
-`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
-https://nytimes.com/athletic/6214795/2025/03/19/ncaa-tournament-expansion-abundance-moneycall-newsletter/
-
-**The tennis antitrust plaintiffs say they do not want to destroy the sport. They never could.**\
-`The PTPA and players' lawsuit is wide-ranging, but its core aims and likely consequences are directed at revenue and the calendar.`\
-https://nytimes.com/athletic/6215214/2025/03/19/tennis-lawsuit-ptpa-prize-money-schedule-why/
 
