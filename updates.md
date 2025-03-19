@@ -1,3 +1,7 @@
+**Stefanik’s Nomination for U.N. Ambassador Will Begin Moving Ahead**\
+`The confirmation process of Representative Elise Stefanik, a New York Republican, has been delayed while House Republicans relied on her vote to maintain the slimmest of majorities.`\
+https://nytimes.com/2025/03/19/us/politics/elise-stefanik-united-nations-ambassador-house-trump.html
+
 **Trump’s Tariffs Could Deal a Blow to Boeing and the Aerospace Industry**\
 `Aerospace companies are big exporters but also very reliant on a global supply chain, making them vulnerable.`\
 https://nytimes.com/2025/03/19/business/boeing-trump-tariffs.html

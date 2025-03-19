@@ -1,3 +1,7 @@
+**Stefanik’s Nomination for U.N. Ambassador Will Begin Moving Ahead**\
+`The confirmation process of Representative Elise Stefanik, a New York Republican, has been delayed while House Republicans relied on her vote to maintain the slimmest of majorities.`\
+https://nytimes.com/2025/03/19/us/politics/elise-stefanik-united-nations-ambassador-house-trump.html
+
 **Trump’s Tariffs Could Deal a Blow to Boeing and the Aerospace Industry**\
 `Aerospace companies are big exporters but also very reliant on a global supply chain, making them vulnerable.`\
 https://nytimes.com/2025/03/19/business/boeing-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/health/food-safety-trump-fda-cutbacks-deadly-outb
 **Listen: Should the Tennessee Titans draft Cam Ward with the No. 1 overall pick?**\
 `"The Athletic Football Show" discusses whether the Tennessee Titans should select Cam Ward with the No. 1 overall pick.`\
 https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-cam-ward-draft/
-
-**Lowetide: How the Oilers' deployment versus elites offers some surprises**\
-`The Oilers' philosophy has been to let the opposition worry about line matching against Connor McDavid and Leon Draisaitl.`\
-https://nytimes.com/athletic/6212371/2025/03/19/edmonton-oilers-elites-stats-2025/
 

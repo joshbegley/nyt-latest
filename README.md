@@ -1,3 +1,27 @@
+**This Japanese Sax Polymath Might Be a Postmodern Bach**\
+`The composer and saxophonist Yasuaki Shimizu is at home in free jazz, classical and art pop. Finally touring North America, he’s going big by staying small.`\
+https://nytimes.com/2025/03/19/arts/music/yasuaki-shimizu-new-york-north-america.html
+
+**Judge Temporarily Stops E.P.A. from Clawing Back $14 Billion in Climate Grants**\
+`Billions of dollars in funding for climate projects are still in limbo after a federal judge blocked the E.P.A. from withdrawing the money.`\
+https://nytimes.com/2025/03/19/climate/epa-20-billion-climate-grants-lawsuit.html
+
+**Bears free-agency tracker: Grady Jarrett, Dayo Odeyingbo join D-line**\
+`GM Ryan Poles continued his overhaul of the offensive line by adding Drew Dalman, then turned his attention to the defensive line.`\
+https://nytimes.com/athletic/6181354/2025/03/19/chicago-bears-2025-free-agency-tracker/
+
+**MoneyCall: The business case for 96 teams**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter. `\
+https://nytimes.com/athletic/6214795/2025/03/19/ncaa-tournament-expansion-abundance-moneycall-newsletter/
+
+**The tennis antitrust plaintiffs say they do not want to destroy the sport. They never could.**\
+`The PTPA and players' lawsuit is wide-ranging, but its core aims and likely consequences are directed at revenue and the calendar.`\
+https://nytimes.com/athletic/6215214/2025/03/19/tennis-lawsuit-ptpa-prize-money-schedule-why/
+
+**Trump’s Tariffs Have Sown Uncertainty. That Might Be the Point.**\
+`President Trump’s economic advisers have used a hodgepodge of messages to justify starting trade wars that are spooking markets.`\
+https://nytimes.com/2025/03/19/business/trump-tariffs-economy.html
+
 **Stefanik’s Nomination for U.N. Ambassador Will Begin Moving Ahead**\
 `The confirmation process of Representative Elise Stefanik, a New York Republican, has been delayed while House Republicans relied on her vote to maintain the slimmest of majorities.`\
 https://nytimes.com/2025/03/19/us/politics/elise-stefanik-united-nations-ambassador-house-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/19/well/live/pads-tampons-free-schools.html
 **Pasta? For Spring? Delicious.**\
 `Ali Slagle’s one-pot tortellini with prosciutto and peas is a cheerful nod to the new season (and perfect for these still-chilly nights).`\
 https://nytimes.com/2025/03/19/dining/delicious-spring-pasta-recipes.html
-
-**Tyler Reddick on his clutch Homestead pass and much more: 12 Questions**\
-`Tyler Reddick talks about last year's thrilling playoff win, why he doesn't feel more for other drivers and more in the latest 12 Questions.`\
-https://nytimes.com/athletic/6204946/2025/03/19/tyler-reddick-nascar-homestead-pass-12-questions/
-
-**Bucks stuck 'in an offensive funk,' lose to Warriors to start five-game road trip**\
-`"We gotta do things with more force, more pace," Damian Lillard said after the Bucks scored a season-low 93 points against Golden State.`\
-https://nytimes.com/athletic/6215086/2025/03/19/bucks-warriors-giannis-antetokounmpo-damian-lillard/
-
-**Scouting Dodgers and Guardians prospects — and Jesus Made — on the back fields**\
-`Notes from the back fields on Jaison Chourio, Jackson Ferris, Emil Morales, Made and more.`\
-https://nytimes.com/athletic/6214914/2025/03/19/scouting-dodgers-guardians-prospects-jesus-made-jaison-chourio-jackson-ferris/
-
-**Listen: Was that Liverpool's worst-ever performance in a final?**\
-`Walk On discuss whether Liverpool's display in Sunday's Carabao Cup showpiece at Wembley was their poorest ever with a trophy at stake`\
-https://nytimes.com/athletic/6213273/2025/03/19/liverpool-carabao-cup-final-worst-ever/
-
-**Food Safety Jeopardized by Onslaught of Funding and Staff Cuts**\
-`The Trump administration halted some food testing and shut down a committee studying bacteria in infant formula. Earlier funding cutbacks under the Biden administration now threaten state labs and inspectors.`\
-https://nytimes.com/2025/03/19/health/food-safety-trump-fda-cutbacks-deadly-outbreaks.html
-
-**Listen: Should the Tennessee Titans draft Cam Ward with the No. 1 overall pick?**\
-`"The Athletic Football Show" discusses whether the Tennessee Titans should select Cam Ward with the No. 1 overall pick.`\
-https://nytimes.com/athletic/6215081/2025/03/19/athletic-football-show-titans-cam-ward-draft/
 
