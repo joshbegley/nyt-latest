@@ -1,3 +1,7 @@
+**Inside the 24-Hour Scramble Among Top National Security Officials Over the J.F.K. Documents**\
+`The director of the Central Intelligence Agency emphasized that some documents had nothing to do with the assassinated president, according to people familiar with the discussions.`\
+https://nytimes.com/2025/03/18/us/politics/national-security-officials-jfk-documents.html
+
 **Corrections: March 19, 2025**\
 `Corrections that appeared in print on Wednesday, March 19, 2025.`\
 https://nytimes.com/2025/03/18/pageoneplus/corrections-march-19-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6214429/2025/03/18/lance-mccullers-jr-first-start-8
 **Review: Eight Andrew Scotts in a Heartbreaking Solo ‘Vanya’**\
 `Playing all the characters in an update of Chekhov, the Irish actor turns what could be merely a stunt into a tour de force.`\
 https://nytimes.com/2025/03/18/theater/andrew-scott-vanya-review.html
-
-**‘Amerikin’ Review: A White Supremacist’s Undoing: DNA**\
-`The protagonist of Chisa Hutchinson’s new play is proud of his racial heritage, until he gets some unexpected test results.`\
-https://nytimes.com/2025/03/18/theater/amerikin-review-chisa-hutchinson.html
 
