@@ -1,3 +1,11 @@
+**A.D.H.D. Videos on TikTok Are Often Misleading, New Study Finds**\
+`Even people who have been diagnosed don’t always spot inaccuracies or generalizations about the condition in the social media posts, research suggests.`\
+https://nytimes.com/2025/03/19/well/mind/adhd-videos-tiktok-misinfo.html
+
+**Menaced by Trump, Canada Prepares to Join E.U. Military Industry Buildup**\
+`Canada’s draft deal to participate in Europe’s defense industry will bring contracts to Canadian manufacturers and help lessen dependence on the United States.`\
+https://nytimes.com/2025/03/19/world/canada/canada-eu-military-industry-trump.html
+
 **7 best bets to kick off the early days of the women's NCAA Tournament**\
 `Austin Mock has seven best bets across the First Four and first round of the women's NCAA Tournament.`\
 https://nytimes.com/athletic/6216147/2025/03/19/womens-ncaa-tournament-first-round-best-bets/

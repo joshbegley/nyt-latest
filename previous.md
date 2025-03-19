@@ -1,3 +1,11 @@
+**A.D.H.D. Videos on TikTok Are Often Misleading, New Study Finds**\
+`Even people who have been diagnosed don’t always spot inaccuracies or generalizations about the condition in the social media posts, research suggests.`\
+https://nytimes.com/2025/03/19/well/mind/adhd-videos-tiktok-misinfo.html
+
+**Menaced by Trump, Canada Prepares to Join E.U. Military Industry Buildup**\
+`Canada’s draft deal to participate in Europe’s defense industry will bring contracts to Canadian manufacturers and help lessen dependence on the United States.`\
+https://nytimes.com/2025/03/19/world/canada/canada-eu-military-industry-trump.html
+
 **7 best bets to kick off the early days of the women's NCAA Tournament**\
 `Austin Mock has seven best bets across the First Four and first round of the women's NCAA Tournament.`\
 https://nytimes.com/athletic/6216147/2025/03/19/womens-ncaa-tournament-first-round-best-bets/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/arts/design/lisa-schiff-art-adviser-sentenced.htm
 **Swipe No More: M.T.A. to Stop Selling MetroCards**\
 `The transition to the new tap-and-go system for New York City subway and bus riders is expected to save the agency at least $20 million annually, it said.`\
 https://nytimes.com/2025/03/19/nyregion/nyc-subway-metro-card.html
-
-**Amid Kennedy Center Upheaval, a Maestro Decides to Stay On**\
-`As the center goes through changes after President Trump’s takeover, Gianandrea Noseda is extending his tenure at the National Symphony Orchestra, one of the center’s main groups.`\
-https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html
-
-**Bywater, New Orleans, a Once-Industrial Neighborhood With a Funky Vibe**\
-`A calm retreat that’s just a short walk from the bacchanalia of Bourbon Street.`\
-https://nytimes.com/2025/03/19/realestate/bywater-new-orleans-a-once-industrial-neighborhood-with-a-funky-vibe.html
 
