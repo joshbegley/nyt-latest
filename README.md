@@ -1,3 +1,11 @@
+**Ex-Proud Boys leader is said to no longer be facing criminal prosecution over his arrest on assault charges.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/03/19/us/trump-news/enrique-tarrio-proud-boys-charges-dropped
+
+**Students at Elite Schools Tell Sex-Offender Teacher How He Scarred Them**\
+`Winston Nguyen, who taught math at Saint Ann’s School in Brooklyn, was sentenced to seven years in prison after pressuring students from several private schools to send him lewd images.`\
+https://nytimes.com/2025/03/19/nyregion/winston-nguyen-saint-anns-sentencing.html
+
 **The Fed Sees Higher Inflation and Lower Growth**\
 `Also, Zelensky agreed to a limited cease-fire in a call with Trump. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severance-food.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.h
 **Federal Reserve Extends Pause on Rate Cuts**\
 `The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
 https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
-
-**Liverpool's Alexander-Arnold targeting April return from ankle sprain**\
-`The 26-year-old is hopeful of being given the green light to resume training at some point in April.`\
-https://nytimes.com/athletic/6216928/2025/03/19/liverpool-alexander-arnold-ankle-injury-return-date/
-
-**Los Angeles Faces Nearly $1 Billion Deficit as It Rebuilds From Fires**\
-`Shifting federal policies, combined with the cost of January’s wildfires, have created “serious financial headwinds” for the city, officials said.`\
-https://nytimes.com/2025/03/19/us/los-angeles-budget-deficit.html
 
