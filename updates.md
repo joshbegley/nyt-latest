@@ -1,3 +1,19 @@
+**In This French Director’s Work, Sex Leads to Unexpected Destinations**\
+`Alain Guiraudie broke through with “Stranger by the Lake.” In his new movie, “Misericordia,” eroticism and death are also intimately entangled.`\
+https://nytimes.com/2025/03/19/movies/alain-guiraudie-misericordia-stranger-by-the-lake.html
+
+**Six Women Were Elected. So Why Were Their Husbands Sworn In?**\
+`In rural India, guarantees of equal representation on village councils are easily thwarted. But some women are pushing back against “boss husbands.”`\
+https://nytimes.com/2025/03/19/world/asia/india-panchayat.html
+
+**Quote of the Day: 5 Years After Covid, A High School Class Learns to Live Again**\
+`Quotation of the Day for Wednesday, March 19, 2025.`\
+https://nytimes.com/2025/03/18/pageoneplus/quote-of-the-day-5-years-after-covid-a-high-school-class-learns-to-live-again.html
+
+**Why do the Senators keep struggling against the Canadiens?**\
+`Ottawa fell to a 0-3 record against Montreal this season, with each loss having its own reason.`\
+https://nytimes.com/athletic/6214224/2025/03/18/senators-canadiens-nhl-playoffs/
+
 **Yohe's 10 observations: The real Penguins showed up at the worst possible moment**\
 `The Penguins blew a third-period lead in brutal fashion, wasting an excellent night from Sidney Crosby and Tristan Jarry.`\
 https://nytimes.com/athletic/6214472/2025/03/18/penguins-blown-lead-letang-karlsson-islanders/

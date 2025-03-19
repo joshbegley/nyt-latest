@@ -1,3 +1,19 @@
+**In This French Director’s Work, Sex Leads to Unexpected Destinations**\
+`Alain Guiraudie broke through with “Stranger by the Lake.” In his new movie, “Misericordia,” eroticism and death are also intimately entangled.`\
+https://nytimes.com/2025/03/19/movies/alain-guiraudie-misericordia-stranger-by-the-lake.html
+
+**Six Women Were Elected. So Why Were Their Husbands Sworn In?**\
+`In rural India, guarantees of equal representation on village councils are easily thwarted. But some women are pushing back against “boss husbands.”`\
+https://nytimes.com/2025/03/19/world/asia/india-panchayat.html
+
+**Quote of the Day: 5 Years After Covid, A High School Class Learns to Live Again**\
+`Quotation of the Day for Wednesday, March 19, 2025.`\
+https://nytimes.com/2025/03/18/pageoneplus/quote-of-the-day-5-years-after-covid-a-high-school-class-learns-to-live-again.html
+
+**Why do the Senators keep struggling against the Canadiens?**\
+`Ottawa fell to a 0-3 record against Montreal this season, with each loss having its own reason.`\
+https://nytimes.com/athletic/6214224/2025/03/18/senators-canadiens-nhl-playoffs/
+
 **Yohe's 10 observations: The real Penguins showed up at the worst possible moment**\
 `The Penguins blew a third-period lead in brutal fashion, wasting an excellent night from Sidney Crosby and Tristan Jarry.`\
 https://nytimes.com/athletic/6214472/2025/03/18/penguins-blown-lead-letang-karlsson-islanders/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6214590/2025/03/18/tyronn-lue-jeff-van-gundy-out-cl
 **Bondi Calls Tesla Vandalism ‘Domestic Terrorism,’ Promising Steep Consequences**\
 `The attorney general echoed remarks by President Trump, as protesters against Elon Musk and his efforts to shrink the government have defaced and destroyed Tesla vehicles.`\
 https://nytimes.com/2025/03/18/us/politics/tesla-vandalism-domestic-terrorism.html
-
-**Dough Dispensers**\
-`Evan Park and Jeffrey Martinovic connect with us on the astral plane.`\
-https://nytimes.com/2025/03/18/crosswords/daily-puzzle-2025-03-19.html
-
-**Historians adopt a wait-and-see stance toward latest trove of Kennedy documents.**\
-`Scholars say the papers are unlikely to include dramatic revelations but could shed light on lingering questions — including about the intelligence agencies.`\
-https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/historians-adopt-a-wait-and-see-stance-toward-latest-trove-of-kennedy-documents
-
-**Inside the 24-Hour Scramble Among Top National Security Officials Over the J.F.K. Documents**\
-`The director of the Central Intelligence Agency emphasized that some documents had nothing to do with the assassinated president, according to people familiar with the discussions.`\
-https://nytimes.com/2025/03/18/us/politics/national-security-officials-jfk-documents.html
-
-**Corrections: March 19, 2025**\
-`Corrections that appeared in print on Wednesday, March 19, 2025.`\
-https://nytimes.com/2025/03/18/pageoneplus/corrections-march-19-2025.html
 
