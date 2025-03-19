@@ -1,3 +1,11 @@
+**Trump Had ‘Aptitude for Music’ as a Child, He Told Kennedy Center Board**\
+`The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
+https://nytimes.com/2025/03/19/arts/music/trump-aptitude-for-music-kennedy-center.html
+
+**Trump Says Houthis in Yemen Will Be ‘Annihilated,’ as U.S. Keeps Up Strikes**\
+`The president warned Iran to stop arming the militant group, which has been attacking ships in the Red Sea.`\
+https://nytimes.com/2025/03/19/world/middleeast/trump-houthis-yemen-strikes.html
+
 **Queens Businessman Sentenced to Prison for Acting as Agent of China**\
 `An Quanzhong, who will spend 13 months behind bars, harassed a resident whom China’s government wanted back home. His conviction was one of several that prosecutors have won against operatives in New York.`\
 https://nytimes.com/2025/03/19/nyregion/chinese-repression-sentence-an-quanzhong.html
