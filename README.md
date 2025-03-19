@@ -1,3 +1,11 @@
+**March Madness Quiz: Can you name these NCAA Tournament coaches?**\
+`These 16 coaches will be participating in March Madness. How many do you recognize?`\
+https://nytimes.com/athletic/6214528/2025/03/19/march-madness-quiz-name-ncaa-tournament-coach/
+
+**Couple Who Abused Adopted Children Are Sentenced to Decades in Prison**\
+`The couple, who are white, forced their adopted children, who are Black, to perform heavy labor and stand for hours with their hands on their heads, prosecutors said.`\
+https://nytimes.com/2025/03/19/us/west-virginia-couple-children-abuse-sentence.html
+
 **Federal Reserve Extends Pause on Rate Cuts**\
 `The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
 https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6216450/2025/03/19/2025-womens-march-madness-first-
 **Shielded Kennedy Files Hid Spies, Not Conspiracies**\
 `Newly unredacted documents reveal details about Cold War spycraft, not a second gunman on grassy knolls. The revelations have “nothing to do with who killed Kennedy,” one expert said.`\
 https://nytimes.com/2025/03/19/us/politics/jfk-documents-assassination-conspiracy.html
-
-**Musk Donates to G.O.P. Members of Congress Who Support Impeaching Judges**\
-`Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republicans who back ousting judges who impede the administration.`\
-https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
-
-**Jackie Robinson’s Legacy Vanishes, Then Reappears on Pentagon Site**\
-`A number of military pages focused on African American achievements have been lost amid the Trump administration’s effort to scrub references to diversity and inclusion. Some return. Others don’t.`\
-https://nytimes.com/2025/03/19/us/politics/jackie-robinson-defense-department.html
 

@@ -1,3 +1,15 @@
+**Federal Reserve Extends Pause on Rate Cuts**\
+`The Trump administration’s tariffs most likely mean “further progress may be delayed” on getting inflation back to the Federal Reserve’s 2 percent target, the central bank’s chair said.`\
+https://nytimes.com/video/business/economy/100000010062076/jerome-powell-federal-reserve.html
+
+**Liverpool's Alexander-Arnold targeting April return from ankle sprain**\
+`The 26-year-old is hopeful of being given the green light to resume training at some point in April.`\
+https://nytimes.com/athletic/6216928/2025/03/19/liverpool-alexander-arnold-ankle-injury-return-date/
+
+**Los Angeles Faces Nearly $1 Billion Deficit as It Rebuilds From Fires**\
+`Shifting federal policies, combined with the cost of January’s wildfires, have created “serious financial headwinds” for the city, officials said.`\
+https://nytimes.com/2025/03/19/us/los-angeles-budget-deficit.html
+
 **Musk Donates to G.O.P. Members of Congress Who Support Impeaching Judges**\
 `Amid a controversy over whether President Trump will abide by court rulings, Elon Musk gave the maximum to the campaigns of Republicans who back ousting judges who impede the administration.`\
 https://nytimes.com/2025/03/19/us/politics/musk-donations-congress-judges.html
