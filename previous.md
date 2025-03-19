@@ -1,3 +1,11 @@
+**Key Saudi Pro League executive leaves role to take up new job**\
+`Al Lazeez joined the Saudi Pro League as a senior advisor in late 2021 and by early 2023 he had become vice-chairman.`\
+https://nytimes.com/athletic/6215333/2025/03/19/saad-al-lazeez-saudi-pro-league/
+
+**Analyzing Jets trends: The up-and-down PK, Perfetti's step forward, Arniel for Jack Adams?**\
+`As the Jets head toward the playoffs and home-ice advantage, here are the trends that could influence their fate.`\
+https://nytimes.com/athletic/6210870/2025/03/19/winnipeg-jets-trends-perfetti-nhl-jack-adams/
+
 **Read the Order Transferring Mahmoud Khalil’s Case to New Jersey**\
 `Read Judge Jesse Furman’s order transferring Mahmoud Khalil’s habeas corpus case from the Southern District of New York to the District of New Jersey.`\
 https://nytimes.com/interactive/2025/03/19/nyregion/mahmoud-khalil-nj-transfer-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214655/2025/03/19/usl-promotion-relegation-owners-
 **Zelensky Says He’ll Speak to Trump About ‘Next Steps’**\
 `The Ukrainian president appeared open to Russia’s offer of a partial cease-fire, but deeply skeptical, after President Trump spoke with President Vladimir V. Putin.`\
 https://nytimes.com/2025/03/19/world/europe/zelensky-trump-ukraine-russia-putin.html
-
-**Cam Johnson thought he was getting traded, but Nets kept him for a reason**\
-`Johnson was supposed to get traded this year. Everyone seemed to agree. So why is he still a Net? Johnson explains why.`\
-https://nytimes.com/athletic/6214712/2025/03/19/cam-johnson-brooklyn-nets-trade-leadership/
-
-**What’s at Stake in Trump’s F.T.C. Purge**\
-`The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
-https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
 

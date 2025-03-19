@@ -1,3 +1,11 @@
+**Key Saudi Pro League executive leaves role to take up new job**\
+`Al Lazeez joined the Saudi Pro League as a senior advisor in late 2021 and by early 2023 he had become vice-chairman.`\
+https://nytimes.com/athletic/6215333/2025/03/19/saad-al-lazeez-saudi-pro-league/
+
+**Analyzing Jets trends: The up-and-down PK, Perfetti's step forward, Arniel for Jack Adams?**\
+`As the Jets head toward the playoffs and home-ice advantage, here are the trends that could influence their fate.`\
+https://nytimes.com/athletic/6210870/2025/03/19/winnipeg-jets-trends-perfetti-nhl-jack-adams/
+
 **Read the Order Transferring Mahmoud Khalil’s Case to New Jersey**\
 `Read Judge Jesse Furman’s order transferring Mahmoud Khalil’s habeas corpus case from the Southern District of New York to the District of New Jersey.`\
 https://nytimes.com/interactive/2025/03/19/nyregion/mahmoud-khalil-nj-transfer-order.html
