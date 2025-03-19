@@ -1,3 +1,11 @@
+**No, North Carolina shouldn't have been in the NCAA Tournament — but this wasn't a felony**\
+`UNC was a mistake. Not an egregious one, as the action on the court Tuesday conveyed. But that doesn't do much for West Virginia.`\
+https://nytimes.com/athletic/6214744/2025/03/19/north-carolina-ncaa-tournament-west-virginia/
+
+**The Athletic FC: Pochettino on USMNT pressure, USL vote to bring in promotion/relegation**\
+`Today in TAFC: Pochettino on the pressure of the USMNT job and becoming No 1 in the world. Plus: USL votes to bring in promotion/relegation.`\
+https://nytimes.com/athletic/6215087/2025/03/19/the-athletic-fc-pochettino-on-usmnt-pressure-usl-vote-to-bring-in-promotion-relegation/
+
 **No Steph, no problem for Warriors as Jimmy Butler and Draymond Green lead way vs. Bucks**\
 `Butler promised to crank up his offense when needed. That time came Tuesday against the Bucks.`\
 https://nytimes.com/athletic/6214866/2025/03/19/jimmy-butlers-draymond-green-warriors-bucks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6211061/2025/03/19/mlb-american-league-central-prev
 **MLB American League West 2025 preview: Houston's run may be fading**\
 `The West doesn’t feature any truly horrible teams. But there aren’t any surefire picks either.`\
 https://nytimes.com/athletic/6206470/2025/03/19/mlb-american-league-west-preview/
-
-**What I learned from studying 2,300 transfers in the portal window**\
-`Of the 1,194 players who left Power 4 schools, 42 percent signed with those programs and 31 percent signed with Group of 5 schools.`\
-https://nytimes.com/athletic/6203361/2025/03/19/transfer-portal-final-numbers-winter-window/
-
-**Rosenthal: Max Scherzer's sixth-grade teacher? Fellow major leaguer Jake Burger's mom**\
-`The Rangers first baseman was only five months old when his mom started teaching the future Hall of Fame pitcher. `\
-https://nytimes.com/athletic/6213845/2025/03/19/jake-burger-mom-max-scherzer-teacher/
 
