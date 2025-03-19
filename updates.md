@@ -1,3 +1,7 @@
+**What’s at Stake in Trump’s F.T.C. Purge**\
+`The president’s firing of the two Democratic commissioners at the regulator not only a challenge to the legal status quo, but also raises uncertainty for businesses.`\
+https://nytimes.com/2025/03/19/business/dealbook/trump-purge-ftc.html
+
 **Here’s what to know.**\
 `By Adam Nagourney`\
 https://nytimes.com/live/2025/03/19/us/jfk-assassination-files/heres-what-to-know
