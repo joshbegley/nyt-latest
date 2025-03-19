@@ -1,3 +1,7 @@
+**Swipe No More: M.T.A. to Stop Selling MetroCards**\
+`The transition to the new tap-and-go system for New York City subway and bus riders is expected to save the agency at least $20 million annually, it said.`\
+https://nytimes.com/2025/03/19/nyregion/nyc-subway-metro-card.html
+
 **Amid Kennedy Center Upheaval, a Maestro Decides to Stay On**\
 `As the center goes through changes after President Trump’s takeover, Gianandrea Noseda is extending his tenure at the National Symphony Orchestra, one of the center’s main groups.`\
 https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html

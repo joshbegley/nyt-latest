@@ -1,3 +1,7 @@
+**Swipe No More: M.T.A. to Stop Selling MetroCards**\
+`The transition to the new tap-and-go system for New York City subway and bus riders is expected to save the agency at least $20 million annually, it said.`\
+https://nytimes.com/2025/03/19/nyregion/nyc-subway-metro-card.html
+
 **Amid Kennedy Center Upheaval, a Maestro Decides to Stay On**\
 `As the center goes through changes after President Trump’s takeover, Gianandrea Noseda is extending his tenure at the National Symphony Orchestra, one of the center’s main groups.`\
 https://nytimes.com/2025/03/19/arts/music/noseda-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215581/2025/03/19/march-madness-2025-ncaa-tourname
 **Iranian Dissident Tells of Activism That Led to Murder Plots in New York**\
 `Masih Alinejad started rattling Iran’s rulers as a teenager. Now, men whom prosecutors say arranged for an assassin to kill her in New York are on trial in Manhattan.`\
 https://nytimes.com/2025/03/19/nyregion/iran-murder-plot-masih-alinejad-testifies.html
-
-**Jung Hoo Lee's MRI results were encouraging, but highlight Giants' precarious postseason hopes**\
-`The news that Lee needed an MRI was ominous because there are only so many blows the Giants can absorb. They don't need to start now.`\
-https://nytimes.com/athletic/6214859/2025/03/19/jung-hoo-lee-mri-results-sf-giants-impact/
 
