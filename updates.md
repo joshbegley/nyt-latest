@@ -1,3 +1,7 @@
+**How Rangers face-planted in all areas against Flames: 3 takeaways**\
+`Poor team defense returned as New York fell 2-1 in a matchup it hardly could afford to lose against Calgary.`\
+https://nytimes.com/athletic/6214649/2025/03/18/rangers-flames-nhl-playoffs-standings/
+
 **Clippers playing without coach Tyronn Lue, assistant Jeff Van Gundy**\
 `LA will be without Lue for the fourth time in six games due to back pain.`\
 https://nytimes.com/athletic/6214590/2025/03/18/tyronn-lue-jeff-van-gundy-out-clippers/
