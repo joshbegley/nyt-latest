@@ -1,3 +1,7 @@
+**Live Updates: 64,000 Pages of Kennedy Files Could Take Weeks to Study**\
+`The papers related, sometimes very tangentially, to the assassination of John F. Kennedy were made public by President Trump, but it’s unclear how many are new. Though scholars don’t expect major revelations, they are still eager to look.`\
+https://nytimes.com/live/2025/03/19/us/jfk-assassination-files
+
 **Big Ten recruiting thoughts: USC's impressive start, Maryland's big get, Indiana's opportunity**\
 `It's very early in the cycle, but four of the top seven teams in the Class of 2026 rankings are from the Big Ten.`\
 https://nytimes.com/athletic/6213043/2025/03/19/big-ten-foootball-recruiting-usc-maryland-indiana/
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/03/19/us/trump-news
 `The earliest returns of Brandon Carlo's partnership with Rielly on the blue line have been mighty encouraging for Toronto.
 `\
 https://nytimes.com/athletic/6213723/2025/03/19/maple-leafs-morgan-rielly-brandon-carlo/
-
-**Trey Murphy’s season-ending injury is sadly familiar for Pelicans**\
-`The statuses of Murphy, Dejounte Murray and Herb Jones could be unknown into 2025-26.`\
-https://nytimes.com/athletic/6214266/2025/03/19/trey-murphy-injury-season-end-pelicans/
 
