@@ -1,3 +1,19 @@
+**Queens Businessman Sentenced to Prison for Acting as Agent of China**\
+`An Quanzhong, who will spend 13 months behind bars, harassed a resident whom China’s government wanted back home. His conviction was one of several that prosecutors have won against operatives in New York.`\
+https://nytimes.com/2025/03/19/nyregion/chinese-repression-sentence-an-quanzhong.html
+
+**Taking a Page From Trump’s Book**\
+`Tim Walz’s comments about Elon Musk suggest an attack on the tech billionaire’s immigrant background is making its way into the public conversation.`\
+https://nytimes.com/2025/03/19/us/politics/tim-walz-elon-musk-democrats-immigration.html
+
+**Trump Says Houthis in Yemen Will Be ‘Annihilated,’ as U.S. Keeps Up Strikes**\
+`The president warned Iran to stop arming the militant group, which has been attacking ships in the Red Sea.`\
+https://nytimes.com/2025/03/19/world/middleeast/yemen-houthis-trump-iiran.html
+
+**N.Y. Leaders Considering Ban on Wearing Face Masks in Public**\
+`Gov. Kathy Hochul is pushing for a partial ban on face coverings, wading into a contentious issue that has arisen amid protests on campus.`\
+https://nytimes.com/2025/03/19/nyregion/mask-ban-ny-hochul.html
+
 **Takeaways From the Kennedy Files: Spycraft, Collateral Damage and Granular Detail**\
 `The big reveal from almost 64,000 documents was that there wasn’t much of a reveal at all.`\
 https://nytimes.com/2025/03/19/us/politics/jfk-assassination-files-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6216777/2025/03/19/tigers-third-base-woes/
 **Winning World Cup England's 'only goal', Tuchel tells squad**\
 `Tuchel is currently leading his first England camp and will manage his first game against Albania at Wembley on Friday night.`\
 https://nytimes.com/athletic/6216040/2025/03/19/england-thomas-tuchel-world-cup/
-
-**Ex-Proud Boys leader is said to no longer be facing criminal prosecution over his arrest on assault charges.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2025/03/19/us/trump-news/enrique-tarrio-proud-boys-charges-dropped
-
-**Students at Elite Schools Tell Sex-Offender Teacher How He Scarred Them**\
-`Winston Nguyen, who taught math at Saint Ann’s School in Brooklyn, was sentenced to seven years in prison after pressuring students from several private schools to send him lewd images.`\
-https://nytimes.com/2025/03/19/nyregion/winston-nguyen-saint-anns-sentencing.html
-
-**The Fed Sees Higher Inflation and Lower Growth**\
-`Also, Zelensky agreed to a limited cease-fire in a call with Trump. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/03/19/briefing/fed-economy-trump-zelensky-call-severance-food.html
-
-**Jackie Robinson article restored after removal from Defense Department site**\
-`Negro Leagues Baseball Museum president Bob Kendrick criticized the move, calling articles on Robinson "American history."`\
-https://nytimes.com/athletic/6215529/2025/03/19/jackie-robinson-defense-department-article-removed/
 
