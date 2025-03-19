@@ -1,3 +1,19 @@
+**What are the mysteries and conspiracies surrounding J.F.K.’s assassination?**\
+`Since the president’s murder in 1963,`\
+https://nytimes.com/live/2025/03/18/us/jfk-mlk-rfk-assassination-files/what-are-the-mysteries-and-conspiracies-surrounding-jfks-assassination
+
+**Braves reunite with former closer Craig Kimbrel on minor-league deal: Source**\
+`Kimbrel debuted with Atlanta in 2010 and made four consecutive All-Star appearances in his first four full seasons with the Braves.`\
+https://nytimes.com/athletic/6214341/2025/03/18/braves-sign-craig-kimbrel-reunion/
+
+**Earth’s 10 Hottest Years Have Been the Last 10**\
+`A report from the World Meteorological Organization confirms that 2024 was the hottest year on record and the first year to be more than 1.5 degrees Celsius above the preindustrial era.`\
+https://nytimes.com/2025/03/18/climate/global-temperatures-wmo-report.html
+
+**Georgia might hold a spring game, but like the rest of the SEC, it won't be televised**\
+`In years past spring games were considered free publicity. Now they're considered a hazard.`\
+https://nytimes.com/athletic/6214292/2025/03/18/georgia-spring-game-not-televised-sec/
+
 **Sources: Promotion, relegation in USA to become reality after historic USL vote**\
 `The league's owners have agreed to incorporate pro-rel upon the creation of a new first-division league.`\
 https://nytimes.com/athletic/6213452/2025/03/18/usl-promotion-relegation-us-soccer-vote/
