@@ -1,3 +1,11 @@
+**Chelsea and Man City face each other four times in a row this month - how will it affect their gameplans?**\
+`How does facing the same team repeatedly alter a manager's thinking?`\
+https://nytimes.com/athletic/6212644/2025/03/19/chelsea-vs-man-city-gameplan-row/
+
+**Connections: Sports Edition Coach: Hints for March 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6214764/2025/03/19/connections-sports-edition-hints-for-march-19-2025/
+
 **In This French Director’s Work, Sex Leads to Unexpected Destinations**\
 `Alain Guiraudie broke through with “Stranger by the Lake.” In his new movie, “Misericordia,” eroticism and death are also intimately entangled.`\
 https://nytimes.com/2025/03/19/movies/alain-guiraudie-misericordia-stranger-by-the-lake.html
