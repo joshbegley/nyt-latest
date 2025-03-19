@@ -1,3 +1,11 @@
+**Energy Infrastructure Attacks Have Inflicted Pain on Both Russia and Ukraine**\
+`An agreement to suspend attacks against energy infrastructure would halt a strategy employed by Ukraine and Russia. Kyiv has tried to hit at Russian oil revenues, and Moscow has tried to break Ukrainian morale.`\
+https://nytimes.com/2025/03/19/world/europe/ukraine-russia-energy-infrastructure.html
+
+**England's Bronze opens up on autism and ADHD diagnosis: 'It's my superpower'**\
+`Bronze, 33, explained to the BBC that she received her diagnosis in 2021 and was choosing to speak about it to help "get rid of the stigma".`\
+https://nytimes.com/athletic/6215038/2025/03/19/lucy-bronze-autism-adhd/
+
 **One and One-A: Why Ja’Marr Chase and Tee Higgins want to share the spotlight**\
 `The WRs are the ultimate package deal and their greatness grows exponentially because of each other. Now their bank accounts do, as well.`\
 https://nytimes.com/athletic/6214536/2025/03/19/jamarr-chase-tee-higgins-extensions-bengals/
