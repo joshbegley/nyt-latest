@@ -1,3 +1,7 @@
+**Schwellenbach is superb, Verdugo is signed, Smith-Shawver is rising: Braves observations**\
+`After surpassing expectations last season as a rookie with no experience above Double A, Schwellenbach looks capable of even more.`\
+https://nytimes.com/athletic/6219694/2025/03/20/braves-observations-schwellenbach-verdugo-smith-shawver/
+
 **No. 12-seed McNeese hangs on to upset 5-seed Clemson**\
 `Despite a late push by Clemson, McNeese claimed its first NCAA Tournament win since moving to Division I in 1972-73.`\
 https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/trump-judges-impeach-congress.html
 **The Battle for Sudan’s Capital**\
 `Sudan’s catastrophic civil war and severe humanitarian crisis have entered a new phase as the military battles former allies-turned-rebels for the strategic control of Khartoum.`\
 https://nytimes.com/video/world/africa/100000010061835/battle-for-khartoum-sudans-capital.html
-
-**Adams Names Rejected Pick for Top Lawyer as First Deputy Mayor**\
-`Randy Mastro, who withdrew his nomination for corporation counsel after the City Council strongly objected, will try to help calm the turmoil in Mayor Eric Adams’s administration.`\
-https://nytimes.com/2025/03/20/nyregion/adams-randy-mastro-first-deputy-mayor.html
 

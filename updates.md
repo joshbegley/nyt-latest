@@ -1,3 +1,7 @@
+**Schwellenbach is superb, Verdugo is signed, Smith-Shawver is rising: Braves observations**\
+`After surpassing expectations last season as a rookie with no experience above Double A, Schwellenbach looks capable of even more.`\
+https://nytimes.com/athletic/6219694/2025/03/20/braves-observations-schwellenbach-verdugo-smith-shawver/
+
 **No. 12-seed McNeese hangs on to upset 5-seed Clemson**\
 `Despite a late push by Clemson, McNeese claimed its first NCAA Tournament win since moving to Division I in 1972-73.`\
 https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-tournament/
