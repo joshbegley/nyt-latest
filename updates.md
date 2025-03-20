@@ -4,6 +4,12 @@
 `\
 https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
 
+**Concacaf Nations League: Who’s the best bet to reach the final?**\
+`Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
+
+`\
+https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
+
 **How to watch No. 1 Auburn vs. No. 16 Alabama State in the men's NCAA Tournament**\
 `Auburn is a massive favorite in its first-round game against Alabama State. Do the Hornets have a chance at history?`\
 https://nytimes.com/athletic/6216159/2025/03/20/auburn-alabama-state-ncaa-tournament-how-to-watch/

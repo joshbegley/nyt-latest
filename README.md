@@ -1,3 +1,7 @@
+**Jury Duty, but Make It Fun**\
+`Immersive theater productions are taking jury service, which most consider a burden to be avoided at all costs, and packaging it as entertainment.`\
+https://nytimes.com/2025/03/20/arts/jury-duty-but-make-it-fun.html
+
 **How to watch No. 1 Auburn vs. No. 16 Alabama State in the men's NCAA Tournament**\
 `Auburn is a massive favorite in its first-round game against Alabama State. Do the Hornets have a chance at history?`\
 https://nytimes.com/athletic/6216159/2025/03/20/auburn-alabama-state-ncaa-tournament-how-to-watch/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/03/20/learning/angry-cat.html
 **Mexico Sent Cartel Bosses to U.S. Knowing They Could Face Execution**\
 `Rafael Caro Quintero, who faces trial in Brooklyn, and at least four other drug cartel figures are vulnerable to the death penalty because they were expelled from Mexico rather than extradited.`\
 https://nytimes.com/2025/03/20/nyregion/mexico-cartel-bosses-death-penalty.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/20/crosswords/spelling-bee-forum.html
 
