@@ -1,3 +1,7 @@
+**1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
+`A victim was in stable condition after being shot in the arm in Troy, Mich., and the police were searching for the gunman. Both were hospital employees.`\
+https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
+
 **As Britons Prepare for Inflation Jump, Bank of England Remains Cautious**\
 `Policymakers held interest rates at 4.5 percent on Thursday as they warned of rising economic uncertainty. Households are also bracing for higher utility costs starting next month.`\
 https://nytimes.com/2025/03/20/business/uk-economy-inflation-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6216622/2025/03/20/nascar-driver-approval-process-k
 **Ukraine Attacks Air Base Deep Inside Russia**\
 `The two sides traded strikes overnight as the Trump administration worked to hammer out the details of a partial cease-fire.`\
 https://nytimes.com/2025/03/20/world/europe/ukraine-attacks-russia-airbase-engels-drones.html
-
-**Europe Delays Tariffs on U.S. Whiskey and Other Goods**\
-`The European trade commissioner said U.S. officials want to start negotiating only after a fresh set of Trump administration tariffs takes effect on April 2.`\
-https://nytimes.com/2025/03/20/world/europe/us-tariffs-eu-whiskey.html
 

@@ -1,3 +1,7 @@
+**1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
+`A victim was in stable condition after being shot in the arm in Troy, Mich., and the police were searching for the gunman. Both were hospital employees.`\
+https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
+
 **Barcelona inform fans club will not return to the Camp Nou this season**\
 `Barcelona had initially intended to return to playing their home games at their iconic ground before the end of 2024.`\
 https://nytimes.com/athletic/6218113/2025/03/20/barcelona-camp-nou-return/
