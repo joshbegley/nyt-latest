@@ -2,7 +2,7 @@
 `All the highlights and key plays from the USMNT's Concacaf Nations League semifinal vs. Panama`\
 https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
 
-**Men's March Madness Day 1 takeaways: No. 12 McNeese Step upsets Clemson**\
+**Men's March Madness Day 1 takeaways: No. 12 McNeese upsets Clemson**\
 `It was a rough start for the ACC as Louisville also fell on Day 1. Top seeds Houston, Auburn cruise.`\
 https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
 
