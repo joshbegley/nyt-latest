@@ -1,3 +1,7 @@
+**Duke's Cooper Flagg active for tournament opener, 'confident' about ankle**\
+`Duke coach Jon Scheyer said Flagg’s weeklong absence may have been beneficial from a rest perspective.`\
+https://nytimes.com/athletic/6219065/2025/03/20/cooper-flagg-active-duke-injury-update/
+
 **For Cleveland Orchestra, It’s Beethoven (and Freedom) to the Rescue**\
 `When the star singer Asmik Grigorian dropped out of the orchestra’s performance at Carnegie Hall, Beethoven’s Fifth and his “Leonore” Overture No. 3 subbed in.`\
 https://nytimes.com/2025/03/20/arts/music/cleveland-orchestra-franz-welser-most-beethoven-carnegie.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
 **Amid Change and Challenges, These Hong Kong Bookshops Persist**\
 `It has not been easy for the city’s bookstores recently. But there are still shops piled high with new, rare and secondhand tomes, if you know where to look.`\
 https://nytimes.com/2025/03/20/arts/design/hong-kong-independent-bookshops.html
-
-**‘The Residence’ Review: Murder and Mystery in the White House**\
-`The Netflix series, executive produced by Shonda Rimes, is the latest lighthearted murder mystery on streaming TV.`\
-https://nytimes.com/2025/03/20/arts/television/the-residence-review-netflix.html
 
