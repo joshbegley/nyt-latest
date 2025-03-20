@@ -1,3 +1,15 @@
+**The Complexities of Family Estrangement**\
+`Readers reflect on troubled parent-child relationships. Also: Support for a pro-Palestinian activist; what President Trump means by “great.”`\
+https://nytimes.com/2025/03/20/opinion/family-estrangement-abuse.html
+
+**5 intriguing players for Jazz fans in March Madness**\
+`All five are expected to be prime options for the Jazz, wherever they fall in the draft, with Utah's floor currently in the top six picks`\
+https://nytimes.com/athletic/6217684/2025/03/20/march-madness-nba-jazz-players/
+
+**Why Trump’s Ultimatum to Columbia Could Upend Higher Education**\
+`A demand for the university’s administration to place the Middle Eastern studies department under receivership could signal a broader crackdown across the United States.`\
+https://nytimes.com/2025/03/20/us/columbia-university-receivership-trump.html
+
 **Renewed Israeli Strikes Force Gazans to Flee Their Homes**\
 `The truce between Israel and Hamas collapsed early on Tuesday when Israel launched a deadly round of airstrikes on Gaza, forcing a new wave of displacement. Hamas retaliated on Thursday, firing the first barrage of rockets toward Israel in months.`\
 https://nytimes.com/video/world/middleeast/100000010063015/israel-gaza-strikes-displacement-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/20/movies/misericordia-review.html
 **Five key storylines at the Chinese Grand Prix**\
 `From racing in the dry to the first sprint weekend of the season - this is all you need to know ahead of the Chinese Grand Prix `\
 https://nytimes.com/athletic/6218179/2025/03/20/chinese-grand-prix-key-storylines-2025s/
-
-**Why Trump Can’t Quit Biden**\
-`Smearing his predecessor is inoculation from his own incompetence.`\
-https://nytimes.com/2025/03/20/opinion/trump-biden.html
-
-**How a Plane to Australia Took Me to ‘90s Oakland**\
-`How a pidgin became a Creole`\
-https://nytimes.com/2025/03/20/opinion/language-kriol-australia.html
-
-**Spring training hitter performances worth noting for fantasy baseball 2025**\
-`Owen Poindexter looks at hitters posting spring numbers fantasy baseball managers should note, like Brett Baty's push for more power.`\
-https://nytimes.com/athletic/6216172/2025/03/20/fantasy-baseball-2025-spring-training-hitters-notable-performances/
 
