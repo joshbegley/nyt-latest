@@ -7,7 +7,7 @@ https://nytimes.com/2025/03/20/learning/teenagers-on-how-covid-has-changed-them.
 https://nytimes.com/2025/03/20/climate/climate-change-buying-a-home.html
 
 **Trump Administration Sends a New Group of Migrants to Guantánamo Bay**\
-`Officials have said most of the people sent to the U.S. base are members of Venezuelan gang but have not offered evidence to support that claim.`\
+`Officials have said most of the people sent to the U.S. base are members of a Venezuelan gang but have not offered evidence to support that claim.`\
 https://nytimes.com/2025/03/20/us/politics/more-migrants-guantanamo-bay.html
 
 **WR Michael Gallup comes out of retirement, joins Commanders**\

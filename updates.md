@@ -1,3 +1,7 @@
+**Trump Administration Sends a New Group of Migrants to Guantánamo Bay**\
+`Officials have said most of the people sent to the U.S. base are members of a Venezuelan gang but have not offered evidence to support that claim.`\
+https://nytimes.com/2025/03/20/us/politics/more-migrants-guantanamo-bay.html
+
 **Teenagers on How Covid Has Changed Them**\
 `This month marks the fifth anniversary of the pandemic. We asked students how their lives are different today because of it.`\
 https://nytimes.com/2025/03/20/learning/teenagers-on-how-covid-has-changed-them.html
