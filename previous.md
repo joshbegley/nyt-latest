@@ -1,3 +1,7 @@
+**How to watch No. 6 BYU vs. No. 11 VCU in the NCAA Tournament**\
+`BYU is a small favorite against VCU in Thursday's first-round NCAA Tournament game. Will the Cougars end a tourney slump?`\
+https://nytimes.com/athletic/6214328/2025/03/20/byu-vcu-mens-ncaa-tournament-how-to-watch/
+
 **How to watch No. 4 Purdue vs. No. 13 High Point in the NCAA Tournament**\
 `Purdue isn't expecting to return to the Final Four this year, but are still a solid favorite against High Point in the first round.`\
 https://nytimes.com/athletic/6214274/2025/03/20/purdue-high-point-ncaa-tournament-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/opinion/democrats-tea-party-trump.html
 **After a London Sale Fell Through, They Found Their Way to New York**\
 `With a budget of up to $900,000, a deaf couple toured several Manhattan neighborhoods in search of a one-bedroom or two-bedroom near parks and subways. Here’s what they found.`\
 https://nytimes.com/interactive/2025/03/20/realestate/manhattan-coop-home-search.html
-
-**So What if Elon Musk Rescued the Astronauts?**\
-`Recent launch failures point to challenges facing Elon Musk's space venture.`\
-https://nytimes.com/2025/03/20/opinion/astronauts-return-spacex-musk.html
 

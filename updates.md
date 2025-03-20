@@ -1,3 +1,7 @@
+**How to watch No. 6 BYU vs. No. 11 VCU in the NCAA Tournament**\
+`BYU is a small favorite against VCU in Thursday's first-round NCAA Tournament game. Will the Cougars end a tourney slump?`\
+https://nytimes.com/athletic/6214328/2025/03/20/byu-vcu-mens-ncaa-tournament-how-to-watch/
+
 **How to watch No. 4 Purdue vs. No. 13 High Point in the NCAA Tournament**\
 `Purdue isn't expecting to return to the Final Four this year, but are still a solid favorite against High Point in the first round.`\
 https://nytimes.com/athletic/6214274/2025/03/20/purdue-high-point-ncaa-tournament-how-to-watch/
