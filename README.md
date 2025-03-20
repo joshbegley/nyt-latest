@@ -1,3 +1,7 @@
+**Hadjar grateful to 'classy' Hamiltons after F1 crash on debut**\
+`"Lewis sent me a message later that day," Hadjar revealed when reflecting on his formation lap crash in Australia. "Really classy guy.”`\
+https://nytimes.com/athletic/6217773/2025/03/20/isack-hadjar-hamilton-f1/
+
 **Concacaf Nations League: Who’s the best bet to reach the final?**\
 `Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/03/20/arts/television/late-night-tesla-elon-musk.html
 **'In it to win it': How a mature process for Matt Boldy helped him snap out of a slump in Wild win**\
 `"Some relief," Boldy said. "The more you build it up, the more stress you create about yourself."`\
 https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
-
-**Word of the Day: archivist**\
-`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
 
