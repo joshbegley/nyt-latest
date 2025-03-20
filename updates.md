@@ -1,3 +1,7 @@
+**A Trump Recession?**\
+`We explore three big questions about the economy.`\
+https://nytimes.com/2025/03/20/briefing/donald-trump-us-economy-recession.html
+
 **Ex-Cardinals Descalso, Jay reunite as coaches mentoring young talent**\
 `Drafting and developing was the priority for the club when Jay and Descalso were coming through the system.`\
 https://nytimes.com/athletic/6215783/2025/03/20/cardinals-coaches-daniel-descalso-jon-jay/
