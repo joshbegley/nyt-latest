@@ -1,3 +1,7 @@
+**After Baltimore Collapse, Risk Reviews Urged for Dozens of U.S. Bridges**\
+`The Brooklyn Bridge and the Golden Gate are among those that need assessments of their vulnerability to a strike by a large ship like the one that hit the Key Bridge.`\
+https://nytimes.com/2025/03/20/us/baltimore-collapse-risk-reviews-us-bridges.html
+
 **Sound Engineer for Eminem Stole and Sold His Songs for Bitcoin, U.S. Says**\
 `About 25 unreleased songs by the rapper were discovered online, and investigators traced sales of the music to a former employee, according to federal prosecutors.`\
 https://nytimes.com/2025/03/20/us/eminem-music-leaked-engineer-charged.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/business/fox-news-bret-baier-ratings.html
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Blue Jays' Mark Shapiro still 'optimistic' about keeping Vladimir Guerrero Jr.**\
-`Thirty days ago, the two sides appeared to be at an impasse. Now, Shapiro said they are searching for “the sweet spot” to make a deal. `\
-https://nytimes.com/athletic/6219834/2025/03/20/blue-jays-optimistic-vlad-guerrero-signing/
 
