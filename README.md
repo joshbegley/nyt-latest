@@ -1,3 +1,11 @@
+**Violence Flares as Hindu Group Calls for Removal of Muslim Ruler’s Tomb**\
+`The tensions showed how right-wing Hindu leaders and organizations use historical grievances to fuel contemporary tensions.`\
+https://nytimes.com/2025/03/20/world/asia/india-nagpur-aurangzeb.html
+
+**Administration Officials Believe Order Lets Immigration Agents Enter Homes Without Warrants**\
+`It remains unclear whether the Trump administration will apply the law in this way. But such an interpretation, experts say, would infringe on basic civil liberties.`\
+https://nytimes.com/2025/03/20/us/politics/trump-alien-enemies-immigration-agents.html
+
 **The Complexities of Family Estrangement**\
 `Readers reflect on troubled parent-child relationships. Also: Support for a pro-Palestinian activist; what President Trump means by “great.”`\
 https://nytimes.com/2025/03/20/opinion/family-estrangement-abuse.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6218897/2025/03/20/japan-becomes-first-team-to-qual
 **Submit your questions for Josh Kendall's post-free agency Falcons mailbag**\
 `Atlanta has added or re-signed starters at edge rusher, cornerback and safety, but there's more work to do, especially on defense.`\
 https://nytimes.com/athletic/6218788/2025/03/20/falcons-mailbag-questions-11/
-
-**One of the nation’s top housing regulators places 35 workers on leave, a union says.**\
-`By Matthew Goldstein`\
-https://nytimes.com/live/2025/03/20/us/trump-education-news/one-of-the-nations-top-housing-regulators-places-35-workers-on-leave-a-union-says
-
-**‘Misericordia’ Review: Danger Always Hides in the Bushes**\
-`The French director Alain Guiraudie’s latest film, a bent kind of murder mystery, presents life at its basest and gamiest.`\
-https://nytimes.com/2025/03/20/movies/misericordia-review.html
-
-**Five key storylines at the Chinese Grand Prix**\
-`From racing in the dry to the first sprint weekend of the season - this is all you need to know ahead of the Chinese Grand Prix `\
-https://nytimes.com/athletic/6218179/2025/03/20/chinese-grand-prix-key-storylines-2025s/
 
