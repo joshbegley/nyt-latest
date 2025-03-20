@@ -1,3 +1,11 @@
+**Why Ultrathin Is In**\
+`When it comes to fashion models, the body diversity revolution appears to be at an end.`\
+https://nytimes.com/2025/03/20/style/ultra-thin-models.html
+
+**Kirsty Coventry becomes first woman to be elected IOC president**\
+`Coventry was chosen over six other candidates, including Lord Sebastian Coe and Juan Antonio Samaranch Jr, to succeed Thomas Bach.`\
+https://nytimes.com/athletic/6218687/2025/03/20/kirsty-coventry-ioc-president/
+
 **Snow White and the Seven Kajillion Controversies**\
 `The dwarfs. The casting. The politics of the lead actress. And that wig! Is Disney’s live-action remake of the classic film doomed by culture war skirmishes?`\
 https://nytimes.com/2025/03/20/business/snow-white-movie-controversies.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/arts/design/flannery-oconnors-paintings-georgia-c
 **Andy Baraghani Made You a Menu**\
 `More specifically, he’s designed a gorgeous, herby feast to celebrate the Persian New Year, including this ultra-green kuku sabzi.`\
 https://nytimes.com/2025/03/20/dining/kuku-sabzi-nowruz.html
-
-**Doctors Told Him He Was Going to Die. Then A.I. Saved His Life.**\
-`Scientists are using machine learning to find new treatments among thousands of old medicines.`\
-https://nytimes.com/2025/03/20/well/ai-drug-repurposing.html
-
-**Robert E. Ginna Jr., Whose Article Bolstered U.F.O. Claims, Dies at 99**\
-`A founding editor of People, he also served as editor in chief of Little, Brown and produced films. But his public image was defined by a 1952 story for Life.`\
-https://nytimes.com/2025/03/20/books/robert-ginna-dead.html
 

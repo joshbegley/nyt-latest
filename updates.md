@@ -1,3 +1,11 @@
+**Why Ultrathin Is In**\
+`When it comes to fashion models, the body diversity revolution appears to be at an end.`\
+https://nytimes.com/2025/03/20/style/ultra-thin-models.html
+
+**Kirsty Coventry becomes first woman to be elected IOC president**\
+`Coventry was chosen over six other candidates, including Lord Sebastian Coe and Juan Antonio Samaranch Jr, to succeed Thomas Bach.`\
+https://nytimes.com/athletic/6218687/2025/03/20/kirsty-coventry-ioc-president/
+
 **Snow White and the Seven Kajillion Controversies**\
 `The dwarfs. The casting. The politics of the lead actress. And that wig! Is Disney’s live-action remake of the classic film doomed by culture war skirmishes?`\
 https://nytimes.com/2025/03/20/business/snow-white-movie-controversies.html
