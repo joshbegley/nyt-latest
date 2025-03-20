@@ -1,3 +1,11 @@
+**The homophobic fan chant at Mexico matches and protocols to stop it**\
+`Mexico matches in competitions have regularly been marred by an anti-gay fan chant when opposing goalkeepers take goal kicks.`\
+https://nytimes.com/athletic/6219313/2025/03/20/mexico-fan-chant-homophobic-concacaf-nations-league-fifa/
+
+**Lenny Schultz, Comedian Who Made a Lot of Noise, Dies at 91**\
+`A highly physical performer, he said he couldn’t tell jokes. But he became well known for a wild act that fellow comedians didn’t want to follow.`\
+https://nytimes.com/2025/03/20/arts/television/lenny-schultz-dead.html
+
 **Teenagers on How Covid Has Changed Them**\
 `This month marks the fifth anniversary of the pandemic. We asked students how their lives are different today because of it.`\
 https://nytimes.com/2025/03/20/learning/teenagers-on-how-covid-has-changed-them.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/business/media/jeffrey-bruce-klein-dies.html
 **What’s Going On in This Picture? | March 24, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/20/learning/whats-going-on-in-this-picture-march-24-2025.html
-
-**Fan removed from arena after throwing water bottle onto court during March Madness opener**\
-`The incident occurred with Creighton up 73-61 and 4:41 remaining, after Louisville coach Pat Kelsey received a technical foul.`\
-https://nytimes.com/athletic/6219293/2025/03/20/creighton-louisville-fan-water-bottle-throw/
-
-**Some Deported Migrants Don’t Belong to Venezuelan Gang, Lawyers Say**\
-`The question of whether the deported Venezuelans actually have ties to Tren de Aragua could be raised at a hearing set for Friday in Federal District Court in Washington.`\
-https://nytimes.com/2025/03/20/us/politics/trump-deportation-venezuela-tren-de-aragua.html
 
