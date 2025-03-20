@@ -1,3 +1,11 @@
+**How to watch No. 4 Purdue vs. No. 13 High Point in the NCAA Tournament**\
+`Purdue isn't expecting to return to the Final Four this year, but are still a solid favorite against High Point in the first round.`\
+https://nytimes.com/athletic/6214274/2025/03/20/purdue-high-point-ncaa-tournament-how-to-watch/
+
+**The New York Times International Edition in Print for Friday, March 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/20/todays-new-york-times-international-edition
+
 **How to watch No. 7 Kansas vs. No. 10 Arkansas in the NCAA Tournament**\
 `It's Bill Self's Kansas against John Calipari's Arkansas in the first round of the NCAA Tournament. What's not to like?`\
 https://nytimes.com/athletic/6210554/2025/03/20/kansas-arkansas-ncaa-tournament-how-to-watch/
