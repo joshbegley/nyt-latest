@@ -1,3 +1,7 @@
+**First Four: Mount St. Mary's rolls past American; Texas vs. Xavier underway**\
+`The Mountaineers, a surprise NCAA Tournament team after they won their conference tourney, move on to face No. 1 seed Duke on Friday.`\
+https://nytimes.com/athletic/6217250/2025/03/19/ncaa-tournament-first-four-texas-xavier/
+
 **Nonprofit’s Leader Convicted of Siphoning Off $240 Million in Federal Food Aid**\
 `Aimee Bock was accused of overseeing a scheme that exploited lax pandemic-era controls, and reaped millions with fake invoices for nonexistent meals.`\
 https://nytimes.com/2025/03/19/us/nonprofit-leader-convicted-federal-food-aid.html
