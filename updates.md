@@ -1,3 +1,11 @@
+**Friday Briefing: Hamas Targets Tel Aviv**\
+`Plus, a home like no other in the Philippines.`\
+https://nytimes.com/2025/03/20/briefing/hamas-rockets-ukraine-strikes-trump-power.html
+
+**What Happens to Student Loans if the Education Dept. Closes?**\
+`The White House released an executive order instructing the secretary of education to begin shutting down the department — but not to cancel your debt.`\
+https://nytimes.com/2025/03/20/business/student-loans-education-department.html
+
 **Trump Signs Order Aimed at Eliminating Education Department ‘Once and for All’**\
 `Congress and federal law stand in the way of shutting down the agency, which manages federal loans for college, tracks student achievement and supports programs for students with disabilities.`\
 https://nytimes.com/2025/03/20/us/politics/trump-education-department.html
