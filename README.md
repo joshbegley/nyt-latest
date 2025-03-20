@@ -1,3 +1,11 @@
+**Snow White and the Seven Kajillion Controversies**\
+`The dwarfs. The casting. The politics of the lead actress. And that wig! Is Disney’s live-action remake of the classic film doomed by culture war skirmishes?`\
+https://nytimes.com/2025/03/20/business/snow-white-movie-controversies.html
+
+**Kirsty Coventry Is Elected President of the I.O.C.**\
+`The new leader of the Olympic movement will have several urgent issues to deal with straight away, including the rights of transgender athletes and the challenges posed by the climate crisis.`\
+https://nytimes.com/2025/03/20/world/olympics/ioc-election-president.html
+
 **Thomas Tuchel says England were 'afraid of defeat' at Euro 2024**\
 `"I felt tension and pressure on the shoulders of the players," Tuchel said on Thursday. "They were more afraid."`\
 https://nytimes.com/athletic/6218528/2025/03/20/thomas-tuchel-england-euros/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/well/ai-drug-repurposing.html
 **Robert E. Ginna Jr., Whose Article Bolstered U.F.O. Claims, Dies at 99**\
 `A founding editor of People, he also served as editor in chief of Little, Brown and produced films. But his public image was defined by a 1952 story for Life.`\
 https://nytimes.com/2025/03/20/books/robert-ginna-dead.html
-
-**Tennis tours play Uno reverse card on Grand Slams with their own plan to fix the sport**\
-`The plan for increased player prize money and a reduced schedule comes after a lawsuit was filed against tennis' governing bodies.`\
-https://nytimes.com/athletic/6217945/2025/03/20/tennis-atp-wta-grand-slams-schedule-money-media-fix-issues/
-
-**The Sudden Weirdness of TV Presidents**\
-`Today’s political dramas have conspiracy, murder and supervolcanoes. But their conventional White House protocols and procedures might be the most disorienting aspects.`\
-https://nytimes.com/2025/03/20/arts/television/trump-tv-presidents.html
 
