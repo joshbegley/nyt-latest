@@ -1,3 +1,15 @@
+**Why the Maple Leafs signed NCAA free agent John Prokop**\
+`The Leafs beat out multiple NHL teams for John Prokop’s services, inking the defenceman to a one-year contract beginning next season.`\
+https://nytimes.com/athletic/6218956/2025/03/20/maple-leafs-sign-ncaa-john-prokop/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Jeffrey Bruce Klein, a Founder and Editor of Mother Jones, Dies at 77**\
+`He was one of four journalists who started the muckraking progressive magazine in 1976. He returned as its editor in chief in the 1990s.`\
+https://nytimes.com/2025/03/20/business/media/jeffrey-bruce-klein-dies.html
+
 **What’s Going On in This Picture? | March 24, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2025/03/20/learning/whats-going-on-in-this-picture-march-24-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeawa
 **J.B. Moore, Producer of Seminal Hip-Hop Records, Dies at 81**\
 `He was a magazine ad salesman when he and a colleague, Robert Ford, teamed with Kurtis Blow and helped break rap music into the mainstream.`\
 https://nytimes.com/2025/03/20/arts/music/jb-moore-dead.html
-
-**Hugues Oyarzabal, Surfing Star Who Rode With a Camera, Dies at 39**\
-`With a video recorder affixed to his board or clamped to his teeth, he took viewers along for the ride, often inside the curling “barrel” of a wave.`\
-https://nytimes.com/2025/03/20/sports/hugues-oyarzabal-surfing-dead.html
-
-**Republican Ex-Candidate Is Convicted in Shooting Plot Targeting New Mexico Democrats**\
-`Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
-https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
-
-**Fantasy baseball bullpen report: Closer competitions in Boston, Arizona and more**\
-`Greg Jewett runs through the closer competitions still hanging in the balance as spring training enters its final week.`\
-https://nytimes.com/athletic/6217639/2025/03/20/fantasy-baseball-2025-bullpen-report-closer-competitions-stock-watch/
 
