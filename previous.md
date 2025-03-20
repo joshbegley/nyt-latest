@@ -1,3 +1,27 @@
+**Duke's Cooper Flagg active for tournament opener, 'confident' about ankle**\
+`Duke coach Jon Scheyer said Flagg’s weeklong absence may have been beneficial from a rest perspective.`\
+https://nytimes.com/athletic/6219065/2025/03/20/cooper-flagg-active-duke-injury-update/
+
+**For Cleveland Orchestra, It’s Beethoven (and Freedom) to the Rescue**\
+`When the star singer Asmik Grigorian dropped out of the orchestra’s performance at Carnegie Hall, Beethoven’s Fifth and his “Leonore” Overture No. 3 subbed in.`\
+https://nytimes.com/2025/03/20/arts/music/cleveland-orchestra-franz-welser-most-beethoven-carnegie.html
+
+**Jake Peavy rejoins Padres as special assistant to CEO**\
+`Greupner said in a news release that Peavy will assist multiple departments in the organization and serve as a team ambassador.`\
+https://nytimes.com/athletic/6219129/2025/03/20/jake-peavy-2007-nl-cy-young-winner-rejoins-padres-as-special-assistant-to-ceo/
+
+**Man Last Seen With Missing Student Leaves the Dominican Republic**\
+`The man, Joshua Steven Riibe, was never named as a suspect in the disappearance of Sudiksha Konanki in Punta Cana, but he said he had not been allowed to leave the Dominican Republic.`\
+https://nytimes.com/2025/03/20/world/americas/sudiksha-konanki-dominican-republic.html
+
+**Until Saturday: Jackie Robinson, CFB star**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6219155/2025/03/20/jackie-robinson-college-football-until-saturday/
+
+**A Hong Kong Picasso Show Aims to Help Viewers See Him ‘in a New Light’**\
+`The exhibition at M+ pairs the Spanish master’s works with those of four generations of Asian and Asian-diasporic artists, setting up a lively dialogue.`\
+https://nytimes.com/2025/03/20/arts/design/hong-kong-picasso.html
+
 **Listen: Chelsea's Stamford Bridge debut and how it set the tone for an ambitious, big-spending club**\
 `Straight Outta Cobham discuss Chelsea's first league game at Stamford Bridge and the significance of the club still being based there`\
 https://nytimes.com/athletic/6217996/2025/03/20/straight-outta-cobham-chelsea-stamford-bridge-debut/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
 **Amid Change and Challenges, These Hong Kong Bookshops Persist**\
 `It has not been easy for the city’s bookstores recently. But there are still shops piled high with new, rare and secondhand tomes, if you know where to look.`\
 https://nytimes.com/2025/03/20/arts/design/hong-kong-independent-bookshops.html
-
-**‘The Residence’ Review: Murder and Mystery in the White House**\
-`The Netflix series, executive produced by Shonda Rimes, is the latest lighthearted murder mystery on streaming TV.`\
-https://nytimes.com/2025/03/20/arts/television/the-residence-review-netflix.html
-
-**Ukrainian Strike Hits Air Base Deep Inside Russian Territory**\
-`The attack on Engels airfield in Russia’s Saratov region, appeared to target an area with several warehouses, which is described online as for weapons storage.`\
-https://nytimes.com/video/world/europe/100000010062987/ukraine-russia-strikes-air-base-engels.html
-
-**New I.O.C. President Is the First Woman and First African to Hold Role**\
-`Kirsty Coventry was elected after the first round of secret voting by the International Olympic Committee’s membership.`\
-https://nytimes.com/video/world/olympics/100000010063555/olympics-committee-elects-new-president.html
-
-**Want to Know About the Art Scene in Hong Kong? Talk to Pearl Lam.**\
-`With Art Basel Hong Kong approaching, the gallerist discussed her thoughts on the city’s place in the Asian art world.`\
-https://nytimes.com/2025/03/20/arts/design/pearl-lam-art-basel-hong-kong.html
-
-**An Exhibition About Old News Aims to Make Sense of a Changed Hong Kong**\
-`A painter and a former journalist have teamed up to demonstrate the city’s shift from relative openness to tighter controls on freedoms of expression.`\
-https://nytimes.com/2025/03/20/arts/design/art-basel-hong-kong-chow-chun-fai.html
-
-**Listen: What is the Ravens' most pressing need for the rest of free agency?**\
-`"The Athletic Football Show" discusses which positions are the Baltimore Ravens' biggest needs for the remainder of free agency.`\
-https://nytimes.com/athletic/6218446/2025/03/20/baltimore-ravens-most-pressing-need-free-agency/
 
