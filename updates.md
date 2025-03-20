@@ -1,3 +1,15 @@
+**Renewed Israeli Strikes Force Gazans to Flee Their Homes**\
+`The truce between Israel and Hamas collapsed early on Tuesday when Israel launched a deadly round of airstrikes on Gaza, forcing a new wave of displacement. Hamas retaliated on Thursday, firing the first barrage of rockets toward Israel in months.`\
+https://nytimes.com/video/world/middleeast/100000010063015/israel-gaza-strikes-displacement-deaths.html
+
+**Inside President Trump’s Battle With the Courts**\
+`President Trump’s actions on immigration over the last few weeks may seem like chaos. But they’ve been in motion since 2023. Maggie Haberman, a White House correspondent for The New York Times, walks us through the president’s plan to test the limits of his power in the courts.`\
+https://nytimes.com/video/us/politics/100000010061762/inside-president-trumps-battle-with-the-courts.html
+
+**Japan becomes first team to qualify for 2026 World Cup**\
+`Between Japan and the three cohosts, 44 places remain up for grabs at the expanded 2026 World Cup.`\
+https://nytimes.com/athletic/6218897/2025/03/20/japan-becomes-first-team-to-qualify-for-2026-world-cup/
+
 **Submit your questions for Josh Kendall's post-free agency Falcons mailbag**\
 `Atlanta has added or re-signed starters at edge rusher, cornerback and safety, but there's more work to do, especially on defense.`\
 https://nytimes.com/athletic/6218788/2025/03/20/falcons-mailbag-questions-11/
