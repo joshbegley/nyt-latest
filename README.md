@@ -22,8 +22,8 @@ https://nytimes.com/2025/03/20/nyregion/masih-alinejad-iran-guilty-verdict.html
 `Yeshiva, a Modern Orthodox Jewish school in New York, had refused for years to recognize the club. The resulting legal fight reached the Supreme Court.`\
 https://nytimes.com/2025/03/20/nyregion/yeshiva-university-lgbtq-club.html
 
-**Trump Signs Order Aimed at Eliminating Education Department ‘Once and For All’**\
-`Congress and federal law stand in the way.`\
+**Trump Signs Order Aimed at Eliminating Education Department ‘Once and for All’**\
+`Congress and federal law stand in the way of shutting down the agency, which manages federal loans for college, tracks student achievement and supports programs for students with disabilities.`\
 https://nytimes.com/2025/03/20/us/politics/trump-education-department.html
 
 **Bondi Trumpets Weeks-Old Arrests for Tesla Attacks**\
