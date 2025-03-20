@@ -1,4 +1,4 @@
-**Braves agree to one-year deal with free-agent outfielder Alex Verdugo: Source**\
+**Braves agree to 1-year deal with free-agent outfielder Alex Verdugo: Source**\
 `Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
 https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/
 
