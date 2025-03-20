@@ -1,3 +1,13 @@
+**Concacaf Nations League: Who’s the best bet to reach the final?**\
+`Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
+
+`\
+https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
+
+**Football betting 101: Explaining the most popular markets and terms**\
+`Sam Tighe provides a glossary to define and explain the most commonly used phrases in football betting.`\
+https://nytimes.com/athletic/6215572/2025/03/20/premier-league-betting-glossary-explainer/
+
 **The Phoenix Suns, energy-generated behavior and one last gasp to save a miserable season**\
 `After a bad loss to the Lakers, the Suns have played with more energy, winning back-to-back games for the first time since late January.`\
 https://nytimes.com/athletic/6217759/2025/03/20/phoenix-suns-last-gasp-miserable-season-bulls/
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
 **Word of the Day: archivist**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
-
-**Overtime Pay for 9 Extra Months in Space? Nope.**\
-`Suni Williams and Butch Wilmore do not get overtime for their unexpectedly long stay on the International Space Station, according to NASA rules. But they do get $5 a day for “incidentals.”`\
-https://nytimes.com/2025/03/20/us/nasa-astronauts-overtime.html
-
-**Knicks can't have lapses as they did against Spurs at this point in season**\
-`It's not that New York lost to San Antonio that is the problem, it's how it lost.`\
-https://nytimes.com/athletic/6217648/2025/03/20/knicks-loss-spurs-lapses-schedule/
 
