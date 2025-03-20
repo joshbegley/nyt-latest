@@ -1,3 +1,15 @@
+**Trump Wants to Take Over Ukraine’s Nuclear Plants. What Would That Mean?**\
+`The White House said taking ownership of Ukrainian plants would give them the “best protection.” The idea faces legal hurdles and operational challenges, and it’s unclear if Ukraine would agree to it.`\
+https://nytimes.com/2025/03/20/world/europe/trump-ukraine-nuclear-plants.html
+
+**Is it too easy to enter a NASCAR race? The sport grapples with a rising question**\
+`A string of unique cases has brought NASCAR's process for approving drivers into the spotlight. And not everyone agrees on the solution.`\
+https://nytimes.com/athletic/6216622/2025/03/20/nascar-driver-approval-process-katherine-legge-helio-castroneves/
+
+**Ukraine Attacks Air Base Deep Inside Russia**\
+`The two sides traded strikes overnight as the Trump administration worked to hammer out the details of a partial cease-fire.`\
+https://nytimes.com/2025/03/20/world/europe/ukraine-attacks-russia-airbase-engels-drones.html
+
 **Europe Delays Tariffs on U.S. Whiskey and Other Goods**\
 `The European trade commissioner said U.S. officials want to start negotiating only after a fresh set of Trump administration tariffs takes effect on April 2.`\
 https://nytimes.com/2025/03/20/world/europe/us-tariffs-eu-whiskey.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6217892/2025/03/20/concacaf-nations-league-chelsea-
 **What Twins coach Ramon Borrego brings to the bigs after 20 years in minors: 'He's earned it'**\
 `After decades in the minors as a player, coach and manager, Borrego finally got the call. "He's earned it," Rocco Baldelli said.`\
 https://nytimes.com/athletic/6194974/2025/03/20/ramon-borrego-twins-infield-coach/
-
-**Jiménez or Giménez? It's a 'problem' Mexico is happy to have**\
-`After fruitless attacking performances in the 2022 World Cup and 2024 Copa América, Mexico appears to have two potential antidotes.`\
-https://nytimes.com/athletic/6217681/2025/03/20/raul-jimenez-santiago-gimenez-mexico-forwards-aguirre-nations-league/
-
-**'You have to have patience': How Wild prospect David Jiricek is handling scratches — and development**\
-`Jiricek isn't as ticked off as Wild fans but would obviously rather be in the lineup. "I'm not going to lie, I still want to play."`\
-https://nytimes.com/athletic/6216347/2025/03/20/wild-david-jiricek-scratches/
-
-**Evaluating the Senators' potential playoff matchups this spring: Mailbag**\
-`Plus, an early look at the Senators' cap structure for 2025-26 and Steve Staios' candidacy for GM of the Year.`\
-https://nytimes.com/athletic/6192379/2025/03/20/senators-playoffs-matchups-mailbag/
 

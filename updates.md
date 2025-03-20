@@ -1,3 +1,15 @@
+**Trump Wants to Take Over Ukraine’s Nuclear Plants. What Would That Mean?**\
+`The White House said taking ownership of Ukrainian plants would give them the “best protection.” The idea faces legal hurdles and operational challenges, and it’s unclear if Ukraine would agree to it.`\
+https://nytimes.com/2025/03/20/world/europe/trump-ukraine-nuclear-plants.html
+
+**Is it too easy to enter a NASCAR race? The sport grapples with a rising question**\
+`A string of unique cases has brought NASCAR's process for approving drivers into the spotlight. And not everyone agrees on the solution.`\
+https://nytimes.com/athletic/6216622/2025/03/20/nascar-driver-approval-process-katherine-legge-helio-castroneves/
+
+**Ukraine Attacks Air Base Deep Inside Russia**\
+`The two sides traded strikes overnight as the Trump administration worked to hammer out the details of a partial cease-fire.`\
+https://nytimes.com/2025/03/20/world/europe/ukraine-attacks-russia-airbase-engels-drones.html
+
 **Europe Delays Tariffs on U.S. Whiskey and Other Goods**\
 `The European trade commissioner said U.S. officials want to start negotiating only after a fresh set of Trump administration tariffs takes effect on April 2.`\
 https://nytimes.com/2025/03/20/world/europe/us-tariffs-eu-whiskey.html
