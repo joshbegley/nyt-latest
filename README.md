@@ -1,3 +1,7 @@
+**Word of the Day: archivist**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
+
 **Overtime Pay for 9 Extra Months in Space? Nope.**\
 `Suni Williams and Butch Wilmore do not get overtime for their unexpectedly long stay on the International Space Station, according to NASA rules. But they do get $5 a day for “incidentals.”`\
 https://nytimes.com/2025/03/20/us/nasa-astronauts-overtime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215603/2025/03/20/mike-penders-chelsea-analysis/
 **Evan Ferguson is yet to start on loan at West Ham. Will he make an impact after the break?**\
 `Striker Ferguson has played just 92 minutes across five appearances since his move to West Ham on loan from Brighton in February`\
 https://nytimes.com/athletic/6212267/2025/03/20/evan-ferguson-west-ham-analysis/
-
-**Erling Haaland and assists: How does he create chances and should he do it more often?**\
-`The numbers that show the Manchester City striker's creativity actually stacks up pretty well when compared to many of his team-mates`\
-https://nytimes.com/athletic/6214991/2025/03/20/erling-haaland-assists-premier-league/
 
