@@ -1,3 +1,7 @@
+**Braves agree to one-year deal with free-agent outfielder Alex Verdugo: Source**\
+`Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
+https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/
+
 **Duke's Cooper Flagg active for tournament opener, 'confident' about ankle**\
 `Duke coach Jon Scheyer said Flagg’s weeklong absence may have been beneficial from a rest perspective.`\
 https://nytimes.com/athletic/6219065/2025/03/20/cooper-flagg-active-duke-injury-update/
