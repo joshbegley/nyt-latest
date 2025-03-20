@@ -1,3 +1,7 @@
+**Overtime Pay for 9 Extra Months in Space? Nope.**\
+`Suni Williams and Butch Wilmore do not get overtime for their unexpectedly long stay on the International Space Station, according to NASA rules. But they do get $5 a day for “incidentals.”`\
+https://nytimes.com/2025/03/20/us/nasa-astronauts-overtime.html
+
 **Knicks can't have lapses as they did against Spurs at this point in season**\
 `It's not that New York lost to San Antonio that is the problem, it's how it lost.`\
 https://nytimes.com/athletic/6217648/2025/03/20/knicks-loss-spurs-lapses-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212267/2025/03/20/evan-ferguson-west-ham-analysis/
 **Erling Haaland and assists: How does he create chances and should he do it more often?**\
 `The numbers that show the Manchester City striker's creativity actually stacks up pretty well when compared to many of his team-mates`\
 https://nytimes.com/athletic/6214991/2025/03/20/erling-haaland-assists-premier-league/
-
-**The BookKeeper - Exploring Arsenal's finances, transfer funds, owner debts and soaring revenues**\
-`In-depth analysis of Arsenal's economic situation from The Athletic's new specialist football finance writer`\
-https://nytimes.com/athletic/6131043/2025/03/20/the-bookkeeper-arsenal-finances-transfer-psr/
 
