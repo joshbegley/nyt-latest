@@ -1,3 +1,15 @@
+**Sound Engineer for Eminem Stole and Sold His Songs for Bitcoin, U.S. Says**\
+`About 25 unreleased songs by the rapper were discovered online, and investigators traced sales of the music to a former employee, according to federal prosecutors.`\
+https://nytimes.com/2025/03/20/us/eminem-music-leaked-engineer-charged.html
+
+**Trump Ordered the Shutdown of the Education Department**\
+`Congress and federal law stand in his way. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/03/20/briefing/trump-education-department-shutdown.html
+
+**White House says test scores haven’t improved since 1979. That’s not true.**\
+`Recent sharp declines, including during the pandemic, flattened scores. But for much of the last half-century, student achievement was climbing.`\
+https://nytimes.com/live/2025/03/20/us/trump-education-news/white-house-says-test-scores-havent-improved-since-1979-thats-not-true
+
 **Schwellenbach is superb, Verdugo is signed, Smith-Shawver is rising: Braves observations**\
 `After surpassing expectations last season as a rookie with no experience above Double A, Schwellenbach looks capable of even more.`\
 https://nytimes.com/athletic/6219694/2025/03/20/braves-observations-schwellenbach-verdugo-smith-shawver/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2
 **Blue Jays' Mark Shapiro still 'optimistic' about keeping Vladimir Guerrero Jr.**\
 `Thirty days ago, the two sides appeared to be at an impasse. Now, Shapiro said they are searching for “the sweet spot” to make a deal. `\
 https://nytimes.com/athletic/6219834/2025/03/20/blue-jays-optimistic-vlad-guerrero-signing/
-
-**Family of Boeing Whistle-Blower Who Killed Himself Sues Company**\
-`The lawsuit argues that Boeing should be held responsible for the death of John Barnett, who had raised concerns about safety.`\
-https://nytimes.com/2025/03/20/business/boeing-john-barnett-lawsuit.html
-
-**House Republicans Want to Impeach Judges. Here’s How the Process Would Work.**\
-`Judges have rarely been removed from the federal bench, and only for criminal acts. But House Republicans are intensifying efforts to oust them for decisions against President Trump.`\
-https://nytimes.com/2025/03/20/us/politics/trump-judges-impeach-congress.html
-
-**The Battle for Sudan’s Capital**\
-`Sudan’s catastrophic civil war and severe humanitarian crisis have entered a new phase as the military battles former allies-turned-rebels for the strategic control of Khartoum.`\
-https://nytimes.com/video/world/africa/100000010061835/battle-for-khartoum-sudans-capital.html
 
