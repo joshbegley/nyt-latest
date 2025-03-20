@@ -1,3 +1,31 @@
+**The 2025 Nations League: New structure, how it impacts the World Cup and what’s left to compete for**\
+`While World Cup 2026 qualifiers begin across Europe over the next week, there are also important Nations League games happening`\
+https://nytimes.com/athletic/6213018/2025/03/20/uefa-nations-league-latest-analysis/
+
+**In Rush to Release Kennedy Files, Personal Information Went Public, Too**\
+`Social Security numbers and other personal details were included in the 64,000 pages of documents that the Trump administration declassified this week.`\
+https://nytimes.com/2025/03/20/us/jfk-assassination-files-personal-information.html
+
+**Wolves are 17th and will probably finish 17th. It is a relief but also a test**\
+`Survival felt a long way off when Vitor Pereira was appointed but now he has a different challenge to deal with in the nine remaining games`\
+https://nytimes.com/athletic/6215525/2025/03/20/wolves-17th-position-premier-league/
+
+**Why Unai Emery changing his side's structure to suit Marcus Rashford is a major compliment**\
+`The Villa manager has tweaked his side's setup to get the most out of the Manchester United loanee — it looks to be working`\
+https://nytimes.com/athletic/6212119/2025/03/20/why-unai-emery-changing-his-sides-structure-to-suit-marcus-rashford-is-a-major-compliment/
+
+**Penders will join Chelsea in the summer - is he ready for the Premier League?**\
+`Goalkeeper Mike Penders is 19 and has only just broken into the first-team at Genk`\
+https://nytimes.com/athletic/6215603/2025/03/20/mike-penders-chelsea-analysis/
+
+**Evan Ferguson is yet to start on loan at West Ham. Will he make an impact after the break?**\
+`Striker Ferguson has played just 92 minutes across five appearances since his move to West Ham on loan from Brighton in February`\
+https://nytimes.com/athletic/6212267/2025/03/20/evan-ferguson-west-ham-analysis/
+
+**Erling Haaland and assists: How does he create chances and should he do it more often?**\
+`The numbers that show the Manchester City striker's creativity actually stacks up pretty well when compared to many of his team-mates`\
+https://nytimes.com/athletic/6214991/2025/03/20/erling-haaland-assists-premier-league/
+
 **The BookKeeper - Exploring Arsenal's finances, transfer funds, owner debts and soaring revenues**\
 `In-depth analysis of Arsenal's economic situation from The Athletic's new specialist football finance writer`\
 https://nytimes.com/athletic/6131043/2025/03/20/the-bookkeeper-arsenal-finances-transfer-psr/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6215426/2025/03/20/ireland-melia-duff-noonan-athert
 **Tuchel shouldn't try to coach like he's English. The past teaches us that**\
 `The former Chelsea manager has spoken about a playing style mirroring traditional English strengths. But he shouldn’t overlook his own`\
 https://nytimes.com/athletic/6215591/2025/03/20/tuchel-shouldnt-try-to-coach-like-hes-english/
-
-**Who would our writers pick to start for England in the first game of the Tuchel era?**\
-`Our writers outline the approach they would like to see as England's new manager gets his tenure under way`\
-https://nytimes.com/athletic/6215077/2025/03/20/england-albania-starting-xi-writers-selections/
-
-**Benjamin Henrichs interview: 'I heard my Achilles go bang. I was crying on the floor'**\
-`The Germany defender has swapped notes with an Olympic rock climber and a breakdancer, and taken inspiration from Kobe Bryant, in his rehab`\
-https://nytimes.com/athletic/6215041/2025/03/20/benjamin-henrichs-germany-leipzig-achilles/
-
-**Why WhatsApp has become the latest delivery method for AI insights in football**\
-`The democratisation of data insight is a positive for football. AI and Whatsapp are key to that, especially when it comes to recruitment`\
-https://nytimes.com/athletic/6200885/2025/03/20/ai-whatsapp-football-advancements/
-
-**Thursday Briefing**\
-`A step toward a truce in Ukraine.`\
-https://nytimes.com/2025/03/20/briefing/ukraine-israel-canada.html
-
-**The New York Times in Print for Thursday, March 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/20/todays-new-york-times
-
-**Stop Iran’s Nuclear Threat With a Deal, Not Conflict**\
-`The Trump administration should back away from threats and engage Iran in an effort to bring a diplomatic halt to its nuclear weapons capability.`\
-https://nytimes.com/2025/03/20/opinion/us-iran-nuclear-weapons.html
-
-**‘Operation Pursuit’: Inside the High-Stakes Arrest of Rodrigo Duterte**\
-`The man who ordered the Philippines’ bloody war on drugs is now in a cell at The Hague. Getting him there was far from a sure thing.`\
-https://nytimes.com/2025/03/20/world/asia/philippines-rodrigo-duterte-arrest.html
 

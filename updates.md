@@ -1,3 +1,11 @@
+**The BookKeeper - Exploring Arsenal's finances, transfer funds, owner debts and soaring revenues**\
+`In-depth analysis of Arsenal's economic situation from The Athletic's new specialist football finance writer`\
+https://nytimes.com/athletic/6131043/2025/03/20/the-bookkeeper-arsenal-finances-transfer-psr/
+
+**Tuchel shouldn't try to coach like he's English. The past teaches us that**\
+`The former Chelsea manager has spoken about a playing style mirroring traditional English strengths. But he shouldn’t overlook his own`\
+https://nytimes.com/athletic/6215591/2025/03/20/tuchel-shouldnt-try-to-coach-like-hes-english/
+
 **Mason Melia, Michael Noonan, Christopher Atherton: Is there something happening with Irish boys?**\
 `From the outside looking in, teenage talent is making a mark at senior level on both sides of the Irish border and attracting covetous eyes`\
 https://nytimes.com/athletic/6215426/2025/03/20/ireland-melia-duff-noonan-atherton-northern-republic-academies/
