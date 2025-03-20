@@ -1,3 +1,7 @@
+**Can Trump Really Abolish the Department of Education?**\
+`President Trump signed an order calling for the agency to close, and has already gutted its staff and programs. Still, students may not see much change, at least at first.`\
+https://nytimes.com/2025/03/20/us/can-trump-dismantle-education-department.html
+
 **Tourist Detentions at the U.S. Border: What International Visitors Should Know**\
 `Incidents of travelers being denied entry into the United States in recent weeks have sparked concern over what to expect at airports and other border crossings.`\
 https://nytimes.com/2025/03/20/travel/us-border-crossing-international-visa.html
@@ -18,8 +22,8 @@ https://nytimes.com/2025/03/20/nyregion/masih-alinejad-iran-guilty-verdict.html
 `Yeshiva, a Modern Orthodox Jewish school in New York, had refused for years to recognize the club. The resulting legal fight reached the Supreme Court.`\
 https://nytimes.com/2025/03/20/nyregion/yeshiva-university-lgbtq-club.html
 
-**Congress and federal law stand in Trump’s way.**\
-`Doing away with the department entirely is a long-held Republican d`\
+**Trump Signs Order Aimed at Eliminating Education Department ‘Once and For All’**\
+`Congress and federal law stand in the way.`\
 https://nytimes.com/2025/03/20/us/politics/trump-education-department.html
 
 **Bondi Trumpets Weeks-Old Arrests for Tesla Attacks**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/protesters-ucla-lawsuit.html
 **Top Washington Post Alumni Urged Jeff Bezos to Replace C.E.O.**\
 `An emailed message underscores a divide between the chief executive, Will Lewis, and the people who helped build The Post into a force in American journalism.`\
 https://nytimes.com/2025/03/20/business/media/washington-post-jeff-bezos-will-lewis.html
-
-**‘Shared Custody’ Is a Prickly Spanish Divorce Drama**\
-`And as with many European series, this one, on Hulu, features plenty of cool sweaters and hot tempers.`\
-https://nytimes.com/2025/03/20/arts/television/shared-custody-hulu.html
 
