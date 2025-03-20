@@ -1,3 +1,11 @@
+**WR Michael Gallup comes out of retirement, joins Commanders**\
+`Gallup spent six seasons with the Cowboys and overlapped with Washington coach Dan Quinn for three years in Dallas. `\
+https://nytimes.com/athletic/6219241/2025/03/20/michael-gallup-commanders-free-agent-signing-2025/
+
+**Maple Leafs sign NCAA free agent John Prokop: What he brings to Toronto**\
+`The Leafs beat out multiple NHL teams for John Prokop’s services, inking the defenceman to a one-year contract beginning next season.`\
+https://nytimes.com/athletic/6218956/2025/03/20/maple-leafs-sign-ncaa-john-prokop/
+
 **Why the Maple Leafs signed NCAA free agent John Prokop**\
 `The Leafs beat out multiple NHL teams for John Prokop’s services, inking the defenceman to a one-year contract beginning next season.`\
 https://nytimes.com/athletic/6218956/2025/03/20/maple-leafs-sign-ncaa-john-prokop/

@@ -1,4 +1,8 @@
-**Why the Maple Leafs signed NCAA free agent John Prokop**\
+**WR Michael Gallup comes out of retirement, joins Commanders**\
+`Gallup spent six seasons with the Cowboys and overlapped with Washington coach Dan Quinn for three years in Dallas. `\
+https://nytimes.com/athletic/6219241/2025/03/20/michael-gallup-commanders-free-agent-signing-2025/
+
+**Maple Leafs sign NCAA free agent John Prokop: What he brings to Toronto**\
 `The Leafs beat out multiple NHL teams for John Prokop’s services, inking the defenceman to a one-year contract beginning next season.`\
 https://nytimes.com/athletic/6218956/2025/03/20/maple-leafs-sign-ncaa-john-prokop/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6218900/2025/03/20/celtics-sale-bill-chisholm-bosto
 **Men's March Madness Day 1 takeaways: Creighton trio rules Louisville**\
 `Purdue also advances. No. 1 seed Auburn and No. 2 St. John's are also on Tuesday schedule.`\
 https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
-
-**J.B. Moore, Producer of Seminal Hip-Hop Records, Dies at 81**\
-`He was a magazine ad salesman when he and a colleague, Robert Ford, teamed with Kurtis Blow and helped break rap music into the mainstream.`\
-https://nytimes.com/2025/03/20/arts/music/jb-moore-dead.html
 
