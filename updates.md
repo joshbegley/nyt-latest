@@ -1,3 +1,7 @@
+**Men's March Madness Day 1 takeaways: 12-seed McNeese St. topples Clemson**\
+`It was a rough start for the ACC as Louisville also fell on Day 1. Top seeds Houston, Auburn cruise.`\
+https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
+
 **Tuchel says England football team should “not be a political statement”**\
 `Tuchel's predecessor Gareth Southgate was initially open to taking public views on political and social issues.`\
 https://nytimes.com/athletic/6219561/2025/03/20/thomas-tuchel-england-politics/
