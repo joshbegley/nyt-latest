@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
 
+**Maple Leafs report cards: Lucky bounce off ref helps Toronto edge high-flying Avs**\
+`Referee Kelly Sutherland accidentally set up Steven Lorentz's short-handed game-winning goal as Toronto topped Colorado 2-1.
+`\
+https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
+
 **Step Inside the Gilded Age Splendor of the New Frick**\
 `Our art critic’s room-by-room tour of New York’s Gilded Age house museum, reopening after nearly five years. Don’t miss the new upstairs galleries.`\
 https://nytimes.com/interactive/2025/03/19/arts/design/frick-museum-reopening-nyc.html
