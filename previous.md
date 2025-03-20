@@ -1,3 +1,7 @@
+**Celtics sold for $6.1 billion, highest price in North American sports history**\
+`The sale price is the largest for a North American franchise, topping the $6.05 billion that a group paid for the Commanders.`\
+https://nytimes.com/athletic/6218327/2025/03/20/celtics-franchise-sale-william-chisholm-highest-value-billion/
+
 **Bernie Sanders Has an Idea for the Left: Don’t Run as Democrats**\
 `The Vermont senator, who has long had a tense relationship with the Democratic Party, suggested in an interview that more progressives should join him in running as independents.`\
 https://nytimes.com/2025/03/20/us/politics/bernie-sanders-democrats-independents.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217689/2025/03/20/jesse-marsch-canada-aggressive-n
 **Eddie Jordan was one of a kind. F1 will never see a team boss like him again**\
 `Everything Eddie Jordan did was done with passion and heart. That’s as great a legacy as anyone can wish to leave in F1.`\
 https://nytimes.com/athletic/6217986/2025/03/20/eddie-jordan-tributes-formula-one/
-
-**This Octopus’s Other Car Is a Shark**\
-`Researchers in New Zealand saw a colorful blob on top of a shark’s head. When they looked closer, they realized it had eight arms.`\
-https://nytimes.com/2025/03/20/science/octopus-riding-shark-new-zealand.html
 

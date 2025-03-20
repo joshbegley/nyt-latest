@@ -1,3 +1,7 @@
+**Celtics sold for $6.1 billion, highest price in North American sports history**\
+`The sale price is the largest for a North American franchise, topping the $6.05 billion that a group paid for the Commanders.`\
+https://nytimes.com/athletic/6218327/2025/03/20/celtics-franchise-sale-william-chisholm-highest-value-billion/
+
 **Bernie Sanders Has an Idea for the Left: Don’t Run as Democrats**\
 `The Vermont senator, who has long had a tense relationship with the Democratic Party, suggested in an interview that more progressives should join him in running as independents.`\
 https://nytimes.com/2025/03/20/us/politics/bernie-sanders-democrats-independents.html
