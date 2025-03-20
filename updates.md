@@ -1,3 +1,7 @@
+**Canada Condemns China’s Execution of 4 Canadians on Drug Convictions**\
+`Canada’s foreign minister said the government would continue to ask for leniency from China for other Canadians in similar situations.`\
+https://nytimes.com/2025/03/19/world/asia/china-canada-drug-executions.html
+
 **University of California Will Stop Requiring Diversity Statements in Hiring**\
 `The statements had risen in popularity as colleges sought to improve campus culture, but they drew criticism from conservatives who argued they were a political test.`\
 https://nytimes.com/2025/03/20/us/diversity-statements-university-of-california.html
