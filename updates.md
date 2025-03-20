@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-go
 `\
 https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
 
+**Maple Leafs report cards: Lucky bounce off ref helps Toronto edge high-flying Avs**\
+`Referee Kelly Sutherland accidentally set up Steven Lorentz's short-handed game-winning goal as Toronto topped Colorado 2-1.
+`\
+https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/19/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
