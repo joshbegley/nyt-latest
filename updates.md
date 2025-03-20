@@ -16,6 +16,12 @@ https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-
 `\
 https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
 
+**Concacaf Nations League: Who’s the best bet to reach the final?**\
+`Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
+
+`\
+https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
+
 **Hadjar grateful to 'classy' Hamiltons after F1 crash on debut**\
 `"Lewis sent me a message later that day," Hadjar revealed when reflecting on his formation lap crash in Australia. "Really classy guy.”`\
 https://nytimes.com/athletic/6217773/2025/03/20/isack-hadjar-hamilton-f1/
