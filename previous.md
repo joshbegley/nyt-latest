@@ -1,3 +1,7 @@
+**Danielle Hunter, Texans agree to contract extension: Reports**\
+`Hunter, who had 12 sacks in 2024, joined the Texans last offseason after eight years with the Minnesota Vikings. `\
+https://nytimes.com/athletic/6217234/2025/03/19/texans-danielle-hunter-contract-extension/
+
 **‘We Had a World’ Review: Through the Fourth Wall and Into the Past**\
 `Joshua Harmon’s new play features uniformly standout performances and tells a poignant story of family dynamics.`\
 https://nytimes.com/2025/03/19/theater/we-had-a-world-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/us/politics/trump-education-department.html
 **SoftBank to Buy Ampere, a Silicon Valley Chip Start-Up, for $6.5 Billion**\
 `The move is a bet that Ampere’s chips can begin playing a significant role in data centers for creating artificial intelligence.`\
 https://nytimes.com/2025/03/19/technology/softbank-ampere-chips.html
-
-**Touring Kennedy Center, Trump Mused on His Childhood ‘Aptitude for Music’**\
-`The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
-https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
 

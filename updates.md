@@ -1,3 +1,7 @@
+**Danielle Hunter, Texans agree to contract extension: Reports**\
+`Hunter, who had 12 sacks in 2024, joined the Texans last offseason after eight years with the Minnesota Vikings. `\
+https://nytimes.com/athletic/6217234/2025/03/19/texans-danielle-hunter-contract-extension/
+
 **‘We Had a World’ Review: Through the Fourth Wall and Into the Past**\
 `Joshua Harmon’s new play features uniformly standout performances and tells a poignant story of family dynamics.`\
 https://nytimes.com/2025/03/19/theater/we-had-a-world-review.html
