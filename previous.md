@@ -1,3 +1,7 @@
+**How to watch No. 5 Clemson vs. No. 12 McNeese in the NCAA Tournament**\
+`Clemson is a solid favorite against McNeese, but the Cowboys are a trendy 12-5 upset pick. Will Clemson survive?`\
+https://nytimes.com/athletic/6216237/2025/03/20/clemson-mcneese-mens-ncaa-tournament-how-to-watch/
+
 **Hadjar grateful to 'classy' Hamiltons after F1 crash on debut**\
 `"Lewis sent me a message later that day," Hadjar revealed when reflecting on his formation lap crash in Australia. "Really classy guy.”`\
 https://nytimes.com/athletic/6217773/2025/03/20/isack-hadjar-hamilton-f1/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/03/20/crosswords/spelling-bee-forum.html
 **Late Night Tackles the Attacks on Tesla**\
 `Jordan Klepper said no one should be blowing up Elon Musk’s cars, “especially because if you just wait a few minutes, they’ll probably do it by themselves.”`\
 https://nytimes.com/2025/03/20/arts/television/late-night-tesla-elon-musk.html
-
-**'In it to win it': How a mature process for Matt Boldy helped him snap out of a slump in Wild win**\
-`"Some relief," Boldy said. "The more you build it up, the more stress you create about yourself."`\
-https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
 
