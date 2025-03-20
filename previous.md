@@ -3,6 +3,10 @@
 `\
 https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
 
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/19/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Step Inside the Gilded Age Splendor of the New Frick**\
 `Our art critic’s room-by-room tour of New York’s Gilded Age house museum, reopening after nearly five years. Don’t miss the new upstairs galleries.`\
 https://nytimes.com/interactive/2025/03/19/arts/design/frick-museum-reopening-nyc.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/19/pageoneplus/corrections-march-20-2025.html
 **Danielle Hunter, Texans agree to contract extension**\
 `Hunter, who had 12 sacks in 2024, joined the Texans last offseason after eight years with the Minnesota Vikings. `\
 https://nytimes.com/athletic/6217234/2025/03/19/texans-danielle-hunter-contract-extension/
-
-**‘We Had a World’ Review: Through the Fourth Wall and Into the Past**\
-`Joshua Harmon’s new play features uniformly standout performances and tells a poignant story of family dynamics.`\
-https://nytimes.com/2025/03/19/theater/we-had-a-world-review.html
 
