@@ -1,3 +1,11 @@
+**Why Deebo Samuel pushed for trade to Commanders: 'I like winners'**\
+`“I’m just coming to add my little dog mentality and contribute to the offense in any aspect they need me," Samuel told reporters. `\
+https://nytimes.com/athletic/6219730/2025/03/20/deebo-samuel-commanders-adam-peters/
+
+**Watch: Have the Lakers found their formula with Luka Dončić?**\
+`NBA Daily discuss LeBron James’ injury status, Austin Reaves stepping up in his absence and Luka Dončić thriving in JJ Redick’s system.`\
+https://nytimes.com/athletic/6219164/2025/03/20/lakers-luka-doncic-nba-daily/
+
 **Friday Briefing: Hamas Targets Tel Aviv**\
 `Plus, a home like no other in the Philippines.`\
 https://nytimes.com/2025/03/20/briefing/hamas-rockets-ukraine-strikes-trump-power.html
