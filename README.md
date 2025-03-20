@@ -1,3 +1,11 @@
+**Netanyahu Expected to Fire Shin Bet Chief Despite Protests**\
+`Israelis have been demonstrating against the move, which many see as part of an effort to reduce checks on Prime Minister Benjamin Netanyahu’s right-wing government.`\
+https://nytimes.com/2025/03/20/world/middleeast/israel-netanyahu-shin-bet-ronen-bar.html
+
+**How to watch No. 7 UCLA vs. No. 10 Utah State in the NCAA Tournament**\
+`UCLA is a solid favorite against Utah State in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216330/2025/03/20/ucla-utah-state-ncaa-tournament-how-to-watch/
+
 **Celtics draft prospects to watch in March Madness: Would Ryan Kalkbrenner or Johni Broome fit?**\
 `As the NCAA Tournament begins, here are some of the players potentially in range whom the Celtics should be keeping an eye on.`\
 https://nytimes.com/athletic/6216997/2025/03/20/march-madness-celtics-draft-ryan-kalkbrenner-johni-broome/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6216037/2025/03/20/broncos-mailbag-2025-nfl-draft-b
 **The hecklers are targeting Rory McIlroy. His challenge is to resist golf's unruly spectators**\
 `Many players ignore any stupidity, and then it goes away. McIlroy generally always had. We’re seeing what happens when you flinch.`\
 https://nytimes.com/athletic/6216670/2025/03/20/rory-mcilroy-golf-hecklers-fans-phone/
-
-**Alabama football expects to make big jump in Year 2 under Kalen DeBoer**\
-`The continuity between Crimson Tide players and coaches has led to a faster start this spring.`\
-https://nytimes.com/athletic/6216567/2025/03/20/alabama-spring-football-kalen-deboer/
-
-**The U.S., Canada, Mexico and Panama are playing in a soccer tournament**\
-`The Concacaf Nations League title playoffs bring together the U.S. and three nations caught in the crosshairs of Trump's rhetoric`\
-https://nytimes.com/athletic/6215662/2025/03/20/concacaf-nations-league-usa-mexico-canada-panama-world-cup-trump/
 
