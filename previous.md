@@ -1,3 +1,23 @@
+**Trump Officials Ordered Congestion Pricing to End Friday. Now What?**\
+`As the March 21 deadline looms, the M.T.A. has refused to stop the tolls and sued the transportation secretary, Sean Duffy, and federal officials in federal court in Manhattan.`\
+https://nytimes.com/2025/03/20/nyregion/nyc-congestion-pricing-trump-mta-battle.html
+
+**Angry Cat**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/03/20/learning/angry-cat.html
+
+**Mexico Sent Cartel Bosses to U.S. Knowing They Could Face Execution**\
+`Rafael Caro Quintero, who faces trial in Brooklyn, and at least four other drug cartel figures are vulnerable to the death penalty because they were expelled from Mexico rather than extradited.`\
+https://nytimes.com/2025/03/20/nyregion/mexico-cartel-bosses-death-penalty.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/20/crosswords/spelling-bee-forum.html
+
+**Late Night Tackles the Attacks on Tesla**\
+`Jordan Klepper said no one should be blowing up Elon Musk’s cars, “especially because if you just wait a few minutes, they’ll probably do it by themselves.”`\
+https://nytimes.com/2025/03/20/arts/television/late-night-tesla-elon-musk.html
+
 **'In it to win it': How a mature process for Matt Boldy helped him snap out of a slump in Wild win**\
 `"Some relief," Boldy said. "The more you build it up, the more stress you create about yourself."`\
 https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6217648/2025/03/20/knicks-loss-spurs-lapses-schedul
 **How it feels to play Shankly on stage: 'He was no f***ing saint'**\
 `Peter Mullan reveals why he wanted to play Liverpool's mythologised manager — and how he captured his fellow Scot's voice`\
 https://nytimes.com/athletic/6205395/2025/03/20/peter-mullan-bill-shankly-play/
-
-**The 2025 Nations League: New structure, how it impacts the World Cup and what’s left to compete for**\
-`While World Cup 2026 qualifiers begin across Europe over the next week, there are also important Nations League games happening`\
-https://nytimes.com/athletic/6213018/2025/03/20/uefa-nations-league-latest-analysis/
-
-**Why have Brighton suffered so many injuries and how will they avoid a repeat?**\
-`Frustratingly for Brighton, they have led the Premier League this season when it comes to injuries - can they break the pattern?`\
-https://nytimes.com/athletic/6143322/2025/03/20/brighton-injuries/
-
-**In Rush to Release Kennedy Files, Personal Information Went Public, Too**\
-`Social Security numbers and other personal details were included in the 64,000 pages of documents that the Trump administration declassified this week.`\
-https://nytimes.com/2025/03/20/us/jfk-assassination-files-personal-information.html
-
-**Wolves are 17th and will probably finish 17th. It is a relief but also a test**\
-`Survival felt a long way off when Vitor Pereira was appointed but now he has a different challenge to deal with in the nine remaining games`\
-https://nytimes.com/athletic/6215525/2025/03/20/wolves-17th-position-premier-league/
-
-**Why Unai Emery changing his side's structure to suit Marcus Rashford is a major compliment**\
-`The Villa manager has tweaked his side's setup to get the most out of the Manchester United loanee — it looks to be working`\
-https://nytimes.com/athletic/6212119/2025/03/20/why-unai-emery-changing-his-sides-structure-to-suit-marcus-rashford-is-a-major-compliment/
 
