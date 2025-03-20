@@ -1,3 +1,7 @@
+**'In it to win it': How a mature process for Matt Boldy helped him snap out of a slump in Wild win**\
+`"Some relief," Boldy said. "The more you build it up, the more stress you create about yourself."`\
+https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
+
 **Why have Brighton suffered so many injuries and how will they avoid a repeat?**\
 `Frustratingly for Brighton, they have led the Premier League this season when it comes to injuries - can they break the pattern?`\
 https://nytimes.com/athletic/6143322/2025/03/20/brighton-injuries/

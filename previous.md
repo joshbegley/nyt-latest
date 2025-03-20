@@ -1,3 +1,7 @@
+**'In it to win it': How a mature process for Matt Boldy helped him snap out of a slump in Wild win**\
+`"Some relief," Boldy said. "The more you build it up, the more stress you create about yourself."`\
+https://nytimes.com/athletic/6217743/2025/03/20/wild-kraken-matt-boldy-slump/
+
 **Word of the Day: archivist**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6215525/2025/03/20/wolves-17th-position-premier-lea
 **Why Unai Emery changing his side's structure to suit Marcus Rashford is a major compliment**\
 `The Villa manager has tweaked his side's setup to get the most out of the Manchester United loanee — it looks to be working`\
 https://nytimes.com/athletic/6212119/2025/03/20/why-unai-emery-changing-his-sides-structure-to-suit-marcus-rashford-is-a-major-compliment/
-
-**Penders will join Chelsea in the summer - is he ready for the Premier League?**\
-`Goalkeeper Mike Penders is 19 and has only just broken into the first-team at Genk`\
-https://nytimes.com/athletic/6215603/2025/03/20/mike-penders-chelsea-analysis/
 
