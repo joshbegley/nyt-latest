@@ -1,40 +1,40 @@
-**Blue Jackets may soon get healthy, but losing skid has made playoff picture blurry**\
-`With 15 games remaining in the Blue Jackets' season, we thought we'd take a thumbnail look at what they're up against.`\
-https://nytimes.com/athletic/6217867/2025/03/20/blue-jackets-nhl-playoff-chances/
+**What Twins coach Ramon Borrego brings to the bigs after 20 years in minors: 'He's earned it'**\
+`After decades in the minors as a player, coach and manager, Borrego finally got the call. "He's earned it," Rocco Baldelli said.`\
+https://nytimes.com/athletic/6194974/2025/03/20/ramon-borrego-twins-infield-coach/
 
-**Netanyahu Expected to Fire Shin Bet Chief Despite Protests**\
-`Israelis have been demonstrating against the move, which many see as part of an effort to reduce checks on Prime Minister Benjamin Netanyahu’s right-wing government.`\
-https://nytimes.com/2025/03/20/world/middleeast/israel-netanyahu-shin-bet-ronen-bar.html
+**Jiménez or Giménez? It's a 'problem' Mexico is happy to have**\
+`After fruitless attacking performances in the 2022 World Cup and 2024 Copa América, Mexico appears to have two potential antidotes.`\
+https://nytimes.com/athletic/6217681/2025/03/20/raul-jimenez-santiago-gimenez-mexico-forwards-aguirre-nations-league/
 
-**How to watch No. 7 UCLA vs. No. 10 Utah State in the NCAA Tournament**\
-`UCLA is a solid favorite against Utah State in the first round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6216330/2025/03/20/ucla-utah-state-ncaa-tournament-how-to-watch/
+**'You have to have patience': How Wild prospect David Jiricek is handling scratches — and development**\
+`Jiricek isn't as ticked off as Wild fans but would obviously rather be in the lineup. "I'm not going to lie, I still want to play."`\
+https://nytimes.com/athletic/6216347/2025/03/20/wild-david-jiricek-scratches/
 
-**Celtics draft prospects to watch in March Madness: Would Ryan Kalkbrenner or Johni Broome fit?**\
-`As the NCAA Tournament begins, here are some of the players potentially in range whom the Celtics should be keeping an eye on.`\
-https://nytimes.com/athletic/6216997/2025/03/20/march-madness-celtics-draft-ryan-kalkbrenner-johni-broome/
+**Evaluating the Senators' potential playoff matchups this spring: Mailbag**\
+`Plus, an early look at the Senators' cap structure for 2025-26 and Steve Staios' candidacy for GM of the Year.`\
+https://nytimes.com/athletic/6192379/2025/03/20/senators-playoffs-matchups-mailbag/
 
-**How to watch No. 5 Michigan vs. No. 12 UC San Diego in the NCAA Tournament**\
-`Michigan is fresh off winning the Big Ten tournament. Will the Wolverines maintain that momentum into the NCAA Tournament vs. UC San Diego?`\
-https://nytimes.com/athletic/6216547/2025/03/20/michigan-uc-san-diego-ncaa-tournament-how-to-watch/
+**Chez Mellusi has mixed emotions about his football career but is eager for his future**\
+`Mellusi played four games in his final season at Wisconsin but left the program when he didn't want to be demoted.`\
+https://nytimes.com/athletic/6210902/2025/03/20/chez-mellusi-wisconsin-football-luke-fickell/
 
-**Meet Luca Marrelli, the Blue Jackets's breakout prospect**\
-`Marrelli, a third-round pick in 2024, has already been signed by Columbus to an entry-level contract.`\
-https://nytimes.com/athletic/6203484/2025/03/20/blue-jackets-prospect-luca-marrelli/
+**Trump Administration Live Updates: President to Sign Order to Dismantle Education Department**\
+``\
+https://nytimes.com/live/2025/03/20/us/trump-education-news
 
-**Inside the design of the Mets' new road jerseys**\
-`With a nod to their history, the Mets resurrected a bygone script and also tapped into something modern: “Feedback has been awesome."`\
-https://nytimes.com/athletic/6213421/2025/03/20/mets-jersey-design-road-uniforms/
+**Seahawks roster reset: O-line help still needed, but draft priorities becoming clearer**\
+`The Seahawks have addressed most needs outside of the offensive line, which could create plenty of flexibility in the draft.`\
+https://nytimes.com/athletic/6216607/2025/03/20/seahawks-roster-free-agency-needs/
 
-**It’s time to change the NHL playoff format. Here are some ideas to improve it**\
-`From a traditional 1 vs. 8 format to changing the points system, there are ways the NHL could improve the postseason matchups and paths.`\
-https://nytimes.com/athletic/6216321/2025/03/20/change-the-nhl-playoff-format/
+**Bad defense, Shesterkin's greatness, Lafrenière's chances: diving into the Rangers' data**\
+`What do the numbers reveal about New York's up-and-down season so far?`\
+https://nytimes.com/athletic/6216038/2025/03/20/rangers-data-defense-shesterkin-lafreniere/
 
-**Three first-rounders from one high school? Corona High has a chance to make history**\
-`At the July draft, Corona could achieve something unique in MLB history. Before then, it's trying to take California baseball by storm.`\
-https://nytimes.com/athletic/6217130/2025/03/20/corona-high-3-first-rounders-california-mlb-draft/
+**McLaren advantage could be greater than Red Bull at its best, says Russell**\
+`Mercedes driver George Russell says McLaren's advantage over the rest of the grid is a significant one `\
+https://nytimes.com/athletic/6217774/2025/03/20/george-russell-mclaren-red-bull-quotes/
 
-**Broncos mailbag: The next step for Bo Nix, NFL Draft targets, 'Hard Knocks' chances**\
-`Also, Patrick Surtain continues to see cornerbacks get bigger deals than his, so is a pay adjustment in his future?`\
-https://nytimes.com/athletic/6216037/2025/03/20/broncos-mailbag-2025-nfl-draft-bo-nix/
+**The most overplayed March Madness commercials of all time**\
+`It started with a whisper. Orange Vanilla Coke. NAPA Know-How. French Vanilla. Rocky Road.`\
+https://nytimes.com/athletic/6215959/2025/03/20/march-madness-commercials-rankings-best-worst/
 
