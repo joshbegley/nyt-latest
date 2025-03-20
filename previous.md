@@ -1,3 +1,11 @@
+**Listen: Chelsea's Stamford Bridge debut and how it set the tone for an ambitious, big-spending club**\
+`Straight Outta Cobham discuss Chelsea's first league game at Stamford Bridge and the significance of the club still being based there`\
+https://nytimes.com/athletic/6217996/2025/03/20/straight-outta-cobham-chelsea-stamford-bridge-debut/
+
+**Tesla Recalls Nearly All Cybertrucks Over Stainless Steel Panels Falling Off**\
+`The recall of about 46,000 vehicles includes all models that were manufactured from November 2023, when the Cybertruck was first produced, through February.`\
+https://nytimes.com/2025/03/20/business/tesla-cybertruck-recall.html
+
 **Trump Won Over Many Arab Americans in November. Now, Has He Lost Them?**\
 `In Detroit and its suburbs, anger is deep over Israeli airstrikes in Gaza. So is the sense that there is nowhere for Arab Americans to turn.`\
 https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/arts/design/art-basel-hong-kong-chow-chun-fai.htm
 **Listen: What is the Ravens' most pressing need for the rest of free agency?**\
 `"The Athletic Football Show" discusses which positions are the Baltimore Ravens' biggest needs for the remainder of free agency.`\
 https://nytimes.com/athletic/6218446/2025/03/20/baltimore-ravens-most-pressing-need-free-agency/
-
-**Ask Ornstein: Liverpool, Chelsea and Huijsen? Maresca future? Tuchel long-term plan?**\
-`Today we ran the latest subscriber exclusive Q&A session — here are David's favourite answers`\
-https://nytimes.com/athletic/6218536/2025/03/20/liverpool-transfer-news-dean-huijsen-chelsea-enzo-maresca-ask-ornstein/
-
-**Do I Like Pasta Now?**\
-`My love for these spring pastas — namely this lemony orzo with asparagus and bread crumbs — sure indicates as much.`\
-https://nytimes.com/2025/03/20/dining/vegetarian-spring-pastas.html
 
