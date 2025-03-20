@@ -1,3 +1,7 @@
+**Braves agree to one-year deal with free-agent outfielder Alex Verdugo: Source**\
+`Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
+https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/
+
 **Duke's Cooper Flagg active for tournament opener, 'confident' about ankle**\
 `Duke coach Jon Scheyer said Flagg’s weeklong absence may have been beneficial from a rest perspective.`\
 https://nytimes.com/athletic/6219065/2025/03/20/cooper-flagg-active-duke-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/business/tesla-cybertruck-recall.html
 **Trump Won Over Many Arab Americans in November. Now, Has He Lost Them?**\
 `In Detroit and its suburbs, anger is deep over Israeli airstrikes in Gaza. So is the sense that there is nowhere for Arab Americans to turn.`\
 https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
-
-**Amid Change and Challenges, These Hong Kong Bookshops Persist**\
-`It has not been easy for the city’s bookstores recently. But there are still shops piled high with new, rare and secondhand tomes, if you know where to look.`\
-https://nytimes.com/2025/03/20/arts/design/hong-kong-independent-bookshops.html
 
