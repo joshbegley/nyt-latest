@@ -1,4 +1,16 @@
-**Man Utd disabled supporters group concerned over 'deterioration' of experiences**\
+**Bernie Sanders Has an Idea for the Left: Don’t Run as Democrats**\
+`The Vermont senator, who has long had a tense relationship with the Democratic Party, suggested in an interview that more progressives should join him in running as independents.`\
+https://nytimes.com/2025/03/20/us/politics/bernie-sanders-democrats-independents.html
+
+**Angela Stanford named U.S. captain for 2026 Solheim Cup**\
+`The Americans have only won three overseas Solheim Cups in nine attempts. Stanford played on two of those three victorious teams.`\
+https://nytimes.com/athletic/6216881/2025/03/20/angela-stanford-us-captain-2026-solheim-cup/
+
+**Trinity Rodman, Ben Shelton and how high-profile relationships affect soccer careers**\
+`Rodman and Shelton have gone public - it's not easy combining a sports career with a high-profile relationship, but it is doable`\
+https://nytimes.com/athletic/6215514/2025/03/20/trinity-rodman-ben-shelton-relationships-soccer/
+
+**Man Utd disabled supporters' group concerned over 'deterioration' of experiences**\
 `The letter detailed several concerns over a "disconnect" between club and its fans "regarding the increasing emphasis on disability issues".`\
 https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-supporters-concerns/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6217986/2025/03/20/eddie-jordan-tributes-formula-on
 **This Octopus’s Other Car Is a Shark**\
 `Researchers in New Zealand saw a colorful blob on top of a shark’s head. When they looked closer, they realized it had eight arms.`\
 https://nytimes.com/2025/03/20/science/octopus-riding-shark-new-zealand.html
-
-**NBA Awards Watch: Jokić or SGA? Let's go deep on the MVP debate**\
-`What should and shouldn't matter in a race involving two historic individual seasons?`\
-https://nytimes.com/athletic/6209097/2025/03/20/nba-awards-watch-mvp-shai-gilgeous-alexander-nikola-jokic/
-
-**Trump Wants to Take Over Ukraine’s Nuclear Plants. What Would That Mean?**\
-`The White House said taking ownership of Ukrainian plants would give them the “best protection.” The idea faces legal hurdles and operational challenges, and it’s unclear if Ukraine would agree to it.`\
-https://nytimes.com/2025/03/20/world/europe/trump-ukraine-nuclear-plants.html
-
-**Is it too easy to enter a NASCAR race? The sport grapples with a rising question**\
-`A string of unique cases has brought NASCAR's process for approving drivers into the spotlight. And not everyone agrees on the solution.`\
-https://nytimes.com/athletic/6216622/2025/03/20/nascar-driver-approval-process-katherine-legge-helio-castroneves/
 

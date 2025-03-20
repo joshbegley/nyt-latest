@@ -1,3 +1,11 @@
+**Man Utd disabled supporters group concerned over 'deterioration' of experiences**\
+`The letter detailed several concerns over a "disconnect" between club and its fans "regarding the increasing emphasis on disability issues".`\
+https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-supporters-concerns/
+
+**1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
+`A victim was in stable condition after being shot in the arm in Troy, Mich., and the police said the gunman was in custody. Both were hospital employees.`\
+https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
+
 **1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
 `A victim was in stable condition after being shot in the arm in Troy, Mich., and the police were searching for the gunman. Both were hospital employees.`\
 https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
