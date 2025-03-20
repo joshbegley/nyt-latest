@@ -1,3 +1,15 @@
+**As Fox Gets a Trump Bump, Bret Baier Closes In on His Broadcast Rivals**\
+`“I don’t think it’s bad to have the commander in chief be a regular viewer of the show,” the anchor said in an interview.`\
+https://nytimes.com/2025/03/20/business/fox-news-bret-baier-ratings.html
+
+**Blue Jays' Mark Shapiro still 'optimistic' about keeping Vladimir Guerrero Jr.**\
+`Thirty days ago, the two sides appeared to be at an impasse. Now, Shapiro said they are searching for “the sweet spot” to make a deal. `\
+https://nytimes.com/athletic/6219834/2025/03/20/blue-jays-optimistic-vlad-guerrero-signing/
+
+**Family of Boeing Whistle-Blower Who Killed Himself Sues Company**\
+`The lawsuit argues that Boeing should be held responsible for the death of John Barnett, who had raised concerns about safety.`\
+https://nytimes.com/2025/03/20/business/boeing-john-barnett-lawsuit.html
+
 **House Republicans Want to Impeach Judges. Here’s How the Process Would Work.**\
 `Judges have rarely been removed from the federal bench, and only for criminal acts. But House Republicans are intensifying efforts to oust them for decisions against President Trump.`\
 https://nytimes.com/2025/03/20/us/politics/trump-judges-impeach-congress.html
