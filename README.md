@@ -1,3 +1,7 @@
+**Ex-Michigan OC Weiss indicted on 24 computer access, identity theft charges**\
+`Matt Weiss was charged with accessing accounts belonging to thousands of students and downloading intimate photos stored on them.`\
+https://nytimes.com/athletic/6219501/2025/03/20/matt-weiss-michigan-indictment-charges/
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/03/20/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/climate/climate-change-buying-a-home.html
 **Trump Administration Sends a New Group of Migrants to Guantánamo Bay**\
 `Officials have said most of the people sent to the U.S. base are members of a Venezuelan gang but have not offered evidence to support that claim.`\
 https://nytimes.com/2025/03/20/us/politics/more-migrants-guantanamo-bay.html
-
-**WR Michael Gallup comes out of retirement, joins Commanders**\
-`Gallup spent six seasons with the Cowboys and overlapped with Washington coach Dan Quinn for three years in Dallas. `\
-https://nytimes.com/athletic/6219241/2025/03/20/michael-gallup-commanders-free-agent-signing-2025/
 

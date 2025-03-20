@@ -1,3 +1,19 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/03/20/books/review/new-books-recommendations.html
+
+**Dinner and a Show Isn’t Dead**\
+`Karaage and comedy, shrimp cocktail and a revolving restaurant and more.`\
+https://nytimes.com/2025/03/20/dining/dinner-and-a-show-isnt-dead.html
+
+**Browns, guard Teven Jenkins agree to one-year deal**\
+`Jenkins, who ranked as the No. 33 free agent on The Athletic's top 150 list, played the first four years of his career with the Bears.`\
+https://nytimes.com/athletic/6197999/2025/03/20/teven-jenkins-free-agency-signing-2025-browns/
+
+**Clark, Fever will have 41 games nationally broadcast or streamed in 2025**\
+`With the WNBA expanding its schedule to 44 games this season, it’s unsurprising Indiana’s total increased.`\
+https://nytimes.com/athletic/6219540/2025/03/20/caitlin-clark-fever-wnba-2025-schedule-broadcast/
+
 **The homophobic fan chant at Mexico matches and protocols to stop it**\
 `Mexico matches in competitions have regularly been marred by an anti-gay fan chant when opposing goalkeepers take goal kicks.`\
 https://nytimes.com/athletic/6219313/2025/03/20/mexico-fan-chant-homophobic-concacaf-nations-league-fifa/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/more-migrants-guantanamo-bay.html
 **WR Michael Gallup comes out of retirement, joins Commanders**\
 `Gallup spent six seasons with the Cowboys and overlapped with Washington coach Dan Quinn for three years in Dallas. `\
 https://nytimes.com/athletic/6219241/2025/03/20/michael-gallup-commanders-free-agent-signing-2025/
-
-**Maple Leafs sign NCAA free agent John Prokop: What he brings to Toronto**\
-`The Leafs beat out multiple NHL teams for John Prokop’s services, inking the defenceman to a one-year contract beginning next season.`\
-https://nytimes.com/athletic/6218956/2025/03/20/maple-leafs-sign-ncaa-john-prokop/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Jeffrey Bruce Klein, a Founder and Editor of Mother Jones, Dies at 77**\
-`He was one of four journalists who started the muckraking progressive magazine in 1976. He returned as its editor in chief in the 1990s.`\
-https://nytimes.com/2025/03/20/business/media/jeffrey-bruce-klein-dies.html
-
-**What’s Going On in This Picture? | March 24, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/03/20/learning/whats-going-on-in-this-picture-march-24-2025.html
 

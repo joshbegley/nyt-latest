@@ -1,3 +1,19 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/03/20/books/review/new-books-recommendations.html
+
+**Dinner and a Show Isn’t Dead**\
+`Karaage and comedy, shrimp cocktail and a revolving restaurant and more.`\
+https://nytimes.com/2025/03/20/dining/dinner-and-a-show-isnt-dead.html
+
+**Browns, guard Teven Jenkins agree to one-year deal**\
+`Jenkins, who ranked as the No. 33 free agent on The Athletic's top 150 list, played the first four years of his career with the Bears.`\
+https://nytimes.com/athletic/6197999/2025/03/20/teven-jenkins-free-agency-signing-2025-browns/
+
+**Clark, Fever will have 41 games nationally broadcast or streamed in 2025**\
+`With the WNBA expanding its schedule to 44 games this season, it’s unsurprising Indiana’s total increased.`\
+https://nytimes.com/athletic/6219540/2025/03/20/caitlin-clark-fever-wnba-2025-schedule-broadcast/
+
 **The homophobic fan chant at Mexico matches and protocols to stop it**\
 `Mexico matches in competitions have regularly been marred by an anti-gay fan chant when opposing goalkeepers take goal kicks.`\
 https://nytimes.com/athletic/6219313/2025/03/20/mexico-fan-chant-homophobic-concacaf-nations-league-fifa/
