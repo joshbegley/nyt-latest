@@ -1,3 +1,7 @@
+**How to watch No. 1 Auburn vs. No. 16 Alabama State in the men's NCAA Tournament**\
+`Auburn is a massive favorite in its first-round game against Alabama State. Do the Hornets have a chance at history?`\
+https://nytimes.com/athletic/6216159/2025/03/20/auburn-alabama-state-ncaa-tournament-how-to-watch/
+
 **How to watch No. 5 Clemson vs. No. 12 McNeese in the NCAA Tournament**\
 `Clemson is a solid favorite against McNeese, but the Cowboys are a trendy 12-5 upset pick. Will Clemson survive?`\
 https://nytimes.com/athletic/6216237/2025/03/20/clemson-mcneese-mens-ncaa-tournament-how-to-watch/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/03/20/nyregion/mexico-cartel-bosses-death-penalty.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/03/20/crosswords/spelling-bee-forum.html
-
-**Late Night Tackles the Attacks on Tesla**\
-`Jordan Klepper said no one should be blowing up Elon Musk’s cars, “especially because if you just wait a few minutes, they’ll probably do it by themselves.”`\
-https://nytimes.com/2025/03/20/arts/television/late-night-tesla-elon-musk.html
 
