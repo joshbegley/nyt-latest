@@ -1,3 +1,19 @@
+**House Republicans Want to Impeach Judges. Here’s How the Process Would Work.**\
+`Judges have rarely been removed from the federal bench, and only for criminal acts. But House Republicans are intensifying efforts to oust them for decisions against President Trump.`\
+https://nytimes.com/2025/03/20/us/politics/trump-judges-impeach-congress.html
+
+**The Battle for Sudan’s Capital**\
+`Sudan’s catastrophic civil war and severe humanitarian crisis have entered a new phase as the military battles former allies-turned-rebels for the strategic control of Khartoum.`\
+https://nytimes.com/video/world/africa/100000010061835/battle-for-khartoum-sudans-capital.html
+
+**Adams Names Rejected Pick for Top Lawyer as First Deputy Mayor**\
+`Randy Mastro, who withdrew his nomination for corporation counsel after the City Council strongly objected, will try to help calm the turmoil in Mayor Eric Adams’s administration.`\
+https://nytimes.com/2025/03/20/nyregion/adams-randy-mastro-first-deputy-mayor.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **In Miami, Scalpers Had the Hot Tickets … to Driver’s License Appointments**\
 `The tax collector’s office in Miami-Dade County, Fla., said it uncovered scalpers using the free online-appointment system to book slots and resell them for $25 to $250.`\
 https://nytimes.com/2025/03/20/us/miami-dmv-appointment-scalpers.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/20/business/student-loans-education-department.html
 **Can Trump Really Abolish the Department of Education?**\
 `President Trump signed an order calling for the agency to close, and has already gutted its staff and programs. Still, students may not see much change, at least at first.`\
 https://nytimes.com/2025/03/20/us/can-trump-dismantle-education-department.html
-
-**Tourist Detentions at the U.S. Border: What International Visitors Should Know**\
-`Incidents of travelers being denied entry into the United States in recent weeks have sparked concern over what to expect at airports and other border crossings.`\
-https://nytimes.com/2025/03/20/travel/us-border-crossing-international-visa.html
-
-**Canadians Turn on Tesla, and It Becomes Physical**\
-`More than 80 Teslas were damaged in Hamilton, Ontario, the police said, amid other acts of vandalism against the company owned by Elon Musk.`\
-https://nytimes.com/2025/03/20/world/canada/tesla-canada-musk-trump-tariffs.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Two Men Are Convicted in Plot to Kill Iranian Dissident in New York City**\
-`The convictions brought some measure of resolution to what U.S. officials have described as an unrelenting retaliation effort against Masih Alinejad.`\
-https://nytimes.com/2025/03/20/nyregion/masih-alinejad-iran-guilty-verdict.html
 
