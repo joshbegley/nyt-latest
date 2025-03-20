@@ -1,3 +1,7 @@
+**Blue Jackets may soon get healthy, but losing skid has made playoff picture blurry**\
+`With 15 games remaining in the Blue Jackets' season, we thought we'd take a thumbnail look at what they're up against.`\
+https://nytimes.com/athletic/6217867/2025/03/20/blue-jackets-nhl-playoff-chances/
+
 **Netanyahu Expected to Fire Shin Bet Chief Despite Protests**\
 `Israelis have been demonstrating against the move, which many see as part of an effort to reduce checks on Prime Minister Benjamin Netanyahu’s right-wing government.`\
 https://nytimes.com/2025/03/20/world/middleeast/israel-netanyahu-shin-bet-ronen-bar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217130/2025/03/20/corona-high-3-first-rounders-cal
 **Broncos mailbag: The next step for Bo Nix, NFL Draft targets, 'Hard Knocks' chances**\
 `Also, Patrick Surtain continues to see cornerbacks get bigger deals than his, so is a pay adjustment in his future?`\
 https://nytimes.com/athletic/6216037/2025/03/20/broncos-mailbag-2025-nfl-draft-bo-nix/
-
-**The hecklers are targeting Rory McIlroy. His challenge is to resist golf's unruly spectators**\
-`Many players ignore any stupidity, and then it goes away. McIlroy generally always had. We’re seeing what happens when you flinch.`\
-https://nytimes.com/athletic/6216670/2025/03/20/rory-mcilroy-golf-hecklers-fans-phone/
 
