@@ -1,3 +1,7 @@
+**The Pulse: Your final bracket checklist**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6215495/2025/03/20/ncaa-tournament-picks-the-pulse/
+
 **Iran Releases French Citizen After 2 Years in Detention, Officials Say**\
 `Olivier Grondeau had been accused of spying while visiting Iran on a tourist visa. President Emmanuel Macron of France had denounced his detention as “disgraceful and arbitrary.”`\
 https://nytimes.com/2025/03/20/world/europe/france-iran-prisoner-release.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217368/2025/03/20/reds-chase-burns-rhett-lowder/
 **A conversation with Bronny James, who’s gaining ‘confidence’ amid outside noise**\
 `Away from the bright lights (as much as he can be), the 20-year-old has made strides, as any rookie would hope: "I see the progress."`\
 https://nytimes.com/athletic/6216948/2025/03/20/bronny-james-interview-lakers-nba/
-
-**What's driving Auston Matthews and the Maple Leafs' top line to another level?**\
-`The Leafs had one line that looked effective against the red-hot Avalanche on Wednesday, and Matthews led the way.`\
-https://nytimes.com/athletic/6217520/2025/03/20/maple-leafs-matthews-top-line-avalanche/
 
