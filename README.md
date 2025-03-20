@@ -1,3 +1,11 @@
+**‘The Residence’ Review: Murder and Mystery in the White House**\
+`The Netflix series, executive produced by Shonda Rimes, is the latest lighthearted murder mystery on streaming TV.`\
+https://nytimes.com/2025/03/20/arts/television/the-residence-review-netflix.html
+
+**Ukrainian Strike Hits Air Base Deep Inside Russian Territory**\
+`The attack on Engels airfield in Russia’s Saratov region, appeared to target an area with several warehouses, which is described online as for weapons storage.`\
+https://nytimes.com/video/world/europe/100000010062987/ukraine-russia-strikes-air-base-engels.html
+
 **New I.O.C. President Is the First Woman and First African to Hold Role**\
 `Kirsty Coventry was elected after the first round of secret voting by the International Olympic Committee’s membership.`\
 https://nytimes.com/video/world/olympics/100000010063555/olympics-committee-elects-new-president.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/03/20/dining/vegetarian-spring-pastas.html
 **Violence Flares as Hindu Group Calls for Removal of Muslim Ruler’s Tomb**\
 `The tensions showed how right-wing Hindu leaders and organizations in India use historical grievances to fuel contemporary tensions.`\
 https://nytimes.com/2025/03/20/world/asia/india-nagpur-aurangzeb.html
-
-**Administration Officials Believe Order Lets Immigration Agents Enter Homes Without Warrants**\
-`It remains unclear whether the Trump administration will apply the law in this way. But such an interpretation, experts say, would infringe on basic civil liberties.`\
-https://nytimes.com/2025/03/20/us/politics/trump-alien-enemies-immigration-agents.html
-
-**The Complexities of Family Estrangement**\
-`Readers reflect on troubled parent-child relationships. Also: Support for a pro-Palestinian activist; what President Trump means by “great.”`\
-https://nytimes.com/2025/03/20/opinion/family-estrangement-abuse.html
 
