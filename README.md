@@ -1,3 +1,7 @@
+**Top Washington Post Alumni Urged Jeff Bezos to Replace C.E.O.**\
+`An emailed message underscores a divide between the chief executive, Will Lewis, and the people who helped build The Post into a force in American journalism.`\
+https://nytimes.com/2025/03/20/business/media/washington-post-jeff-bezos-will-lewis.html
+
 **‘Shared Custody’ Is a Prickly Spanish Divorce Drama**\
 `And as with many European series, this one, on Hulu, features plenty of cool sweaters and hot tempers.`\
 https://nytimes.com/2025/03/20/arts/television/shared-custody-hulu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219540/2025/03/20/caitlin-clark-fever-wnba-2025-sc
 **The homophobic fan chant at Mexico matches and protocols to stop it**\
 `Mexico matches in competitions have regularly been marred by an anti-gay fan chant when opposing goalkeepers take goal kicks.`\
 https://nytimes.com/athletic/6219313/2025/03/20/mexico-fan-chant-homophobic-concacaf-nations-league-fifa/
-
-**Lenny Schultz, Comedian Who Made a Lot of Noise, Dies at 91**\
-`A highly physical performer, he said he couldn’t tell jokes. But he became well known for a wild act that fellow comedians didn’t want to follow.`\
-https://nytimes.com/2025/03/20/arts/television/lenny-schultz-dead.html
 
