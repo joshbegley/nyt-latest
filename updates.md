@@ -1,3 +1,7 @@
+**The Pulse: Your final bracket checklist**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6215495/2025/03/20/ncaa-tournament-picks-the-pulse/
+
 **Iran Releases French Citizen After 2 Years in Detention, Officials Say**\
 `Olivier Grondeau had been accused of spying while visiting Iran on a tourist visa. President Emmanuel Macron of France had denounced his detention as “disgraceful and arbitrary.”`\
 https://nytimes.com/2025/03/20/world/europe/france-iran-prisoner-release.html
