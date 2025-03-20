@@ -1,3 +1,16 @@
+**D.H.S. Detains a Georgetown University Academic**\
+`Badar Khan Suri, an Indian national teaching on a student visa, was deemed “deportable,” a spokeswoman for Homeland Security said.`\
+https://nytimes.com/2025/03/19/us/politics/georgetown-suri-detained.html
+
+**Troy Taylor found to have bullied female staffers: Report**\
+`The investigations began after multiple employees filed complaints against Taylor for hostile behavior.`\
+https://nytimes.com/athletic/6217448/2025/03/19/troy-taylor-stanford-investigations/
+
+**Maple Leafs report cards: Lucky bounce off ref helps Toronto edge high-flying Avs**\
+`Referee Kelly Sutherland accidentally set up Steven Lorentz's short-handed game-winning goal as Toronto topped Colorado 2-1.
+`\
+https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
+
 **Maple Leafs report cards: Lucky bounce off ref helps Toronto edge high-flying Avs**\
 `Referee Kelly Sutherland accidentally set up Steven Lorentz's short-handed game-winning goal as Toronto topped Colorado 2-1.
 `\
