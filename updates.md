@@ -1,3 +1,7 @@
+**Reinstated, but Not Back to Work: Fired Workers Linger in ‘Limbo’**\
+`More than a dozen federal agencies have reinstated employees and immediately placed them on administrative leave, according to court filings.`\
+https://nytimes.com/2025/03/19/us/politics/fired-federal-workers-reinstated-place-administrative-leave.html
+
 **First Four: Mount St. Mary's rolls past American; Texas vs. Xavier underway**\
 `The Mountaineers, a surprise NCAA Tournament team after they won their conference tourney, move on to face No. 1 seed Duke on Friday.`\
 https://nytimes.com/athletic/6217250/2025/03/19/ncaa-tournament-first-four-texas-xavier/
