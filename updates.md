@@ -1,3 +1,11 @@
+**Alex Ovechkin 7 goals away from breaking Wayne Gretzky's record with No. 888**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
+
+**Trump Signs Executive Order to Dismantle Education Department**\
+`The order instructs the education secretary to begin dismantling the agency, which can’t close without Congress’s approval.`\
+https://nytimes.com/video/us/politics/100000010064355/trump-executive-order-close-education-department.html
+
 **Is Playboi Carti Rap’s Next — or Last — Superstar?**\
 `After nearly five years of building hype, the Atlanta rapper’s 30-song third album, “Music,” has finally arrived. Let’s discuss.`\
 https://nytimes.com/2025/03/20/arts/music/playboi-carti-music-popcast.html
