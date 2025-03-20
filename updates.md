@@ -1,3 +1,7 @@
+**Blue Jackets may soon get healthy, but losing skid has made playoff picture blurry**\
+`With 15 games remaining in the Blue Jackets' season, we thought we'd take a thumbnail look at what they're up against.`\
+https://nytimes.com/athletic/6217867/2025/03/20/blue-jackets-nhl-playoff-chances/
+
 **Netanyahu Expected to Fire Shin Bet Chief Despite Protests**\
 `Israelis have been demonstrating against the move, which many see as part of an effort to reduce checks on Prime Minister Benjamin Netanyahu’s right-wing government.`\
 https://nytimes.com/2025/03/20/world/middleeast/israel-netanyahu-shin-bet-ronen-bar.html
