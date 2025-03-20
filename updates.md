@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Lucky bounce off ref helps Toronto edge high-flying Avs**\
+`Referee Kelly Sutherland accidentally set up Steven Lorentz's short-handed game-winning goal as Toronto topped Colorado 2-1.
+`\
+https://nytimes.com/athletic/6217438/2025/03/19/maple-leafs-avalanche-referee-goal/
+
 **Quote of the Day: American Tourists Journeyed To Hell and Back in Venezuela**\
 `Quotation of the Day for Thursday, March 20, 2025`\
 https://nytimes.com/2025/03/19/pageoneplus/quote-of-the-day-american-tourists-journeyed-to-hell-and-back-in-venezuela.html
