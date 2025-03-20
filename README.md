@@ -1,6 +1,6 @@
 **Jury Duty, but Make It Fun**\
 `Immersive theater productions are taking jury service, which most consider a burden to be avoided at all costs, and packaging it as entertainment.`\
-https://nytimes.com/2025/03/20/arts/jury-duty-but-make-it-fun.html
+https://nytimes.com/2025/03/20/arts/jury-duty-experience-game.html
 
 **How to watch No. 1 Auburn vs. No. 16 Alabama State in the men's NCAA Tournament**\
 `Auburn is a massive favorite in its first-round game against Alabama State. Do the Hornets have a chance at history?`\
