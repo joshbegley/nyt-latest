@@ -1,3 +1,7 @@
+**‘Operation Pursuit’: Inside the High-Stakes Arrest of Rodrigo Duterte**\
+`The man who ordered the Philippines’ bloody war on drugs is now in a cell at The Hague. Getting him there was far from a sure thing.`\
+https://nytimes.com/2025/03/20/world/asia/philippines-rodrigo-duterte-arrest.html
+
 **Canada Condemns China’s Execution of 4 Canadians on Drug Convictions**\
 `Canada’s foreign minister said the government would continue to ask for leniency from China for other Canadians in similar situations.`\
 https://nytimes.com/2025/03/19/world/asia/china-canada-drug-executions.html
