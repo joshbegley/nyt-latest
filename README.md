@@ -1,3 +1,7 @@
+**Reinstated, but Not Back to Work: Fired Workers Linger in ‘Limbo’**\
+`More than a dozen federal agencies have reinstated employees and immediately placed them on administrative leave, according to court filings.`\
+https://nytimes.com/2025/03/19/us/politics/fired-federal-workers-reinstated-place-administrative-leave.html
+
 **Nonprofit’s Leader Convicted of Siphoning Off $240 Million in Federal Food Aid**\
 `Aimee Bock was accused of overseeing a scheme that exploited lax pandemic-era controls, and reaped millions with fake invoices for nonexistent meals.`\
 https://nytimes.com/2025/03/19/us/nonprofit-leader-convicted-federal-food-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217049/2025/03/19/notre-dame-spring-practice-day-o
 **Kansas Voters Will Decide Whether to Hold Open Elections for State Supreme Court**\
 `A question on the ballot next year will ask voters to amend the Constitution to set open elections. Republicans said it would empower Kansans, while Democrats argued it would politicize the judiciary.`\
 https://nytimes.com/2025/03/19/us/kansas-supreme-court-elections.html
-
-**Free-agent WR Stefon Diggs visiting with Patriots: Source**\
-`Diggs, a free agent, 10-year veteran and former All-Pro with six 1,000-yard seasons, is in Foxboro, Mass., visiting with the team.`\
-https://nytimes.com/athletic/6217181/2025/03/19/stefon-diggs-patriots-visit-free-agent/
 
