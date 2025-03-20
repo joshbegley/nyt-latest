@@ -1,3 +1,11 @@
+**Why Deebo Samuel pushed for trade to Commanders: 'I like winners'**\
+`“I’m just coming to add my little dog mentality and contribute to the offense in any aspect they need me," Samuel told reporters. `\
+https://nytimes.com/athletic/6219730/2025/03/20/deebo-samuel-commanders-adam-peters/
+
+**Watch: Have the Lakers found their formula with Luka Dončić?**\
+`NBA Daily discuss LeBron James’ injury status, Austin Reaves stepping up in his absence and Luka Dončić thriving in JJ Redick’s system.`\
+https://nytimes.com/athletic/6219164/2025/03/20/lakers-luka-doncic-nba-daily/
+
 **Friday Briefing: Hamas Targets Tel Aviv**\
 `Plus, a home like no other in the Philippines.`\
 https://nytimes.com/2025/03/20/briefing/hamas-rockets-ukraine-strikes-trump-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/nyregion/masih-alinejad-iran-guilty-verdict.html
 **Yeshiva University Recognizes L.G.B.T.Q. Club After Lengthy Battle**\
 `Yeshiva, a Modern Orthodox Jewish school in New York, had refused for years to recognize the club. The resulting legal fight reached the Supreme Court.`\
 https://nytimes.com/2025/03/20/nyregion/yeshiva-university-lgbtq-club.html
-
-**Trump Signs Order Aimed at Eliminating Education Department ‘Once and for All’**\
-`Congress and federal law stand in the way of shutting down the agency, which manages federal loans for college, tracks student achievement and supports programs for students with disabilities.`\
-https://nytimes.com/2025/03/20/us/politics/trump-education-department.html
-
-**Bondi Trumpets Weeks-Old Arrests for Tesla Attacks**\
-`Attorney General Pam Bondi’s statement underscored the extent to which the administration has publicly defended and embraced Elon Musk, one of President Trump’s chief allies.`\
-https://nytimes.com/2025/03/20/us/politics/pam-bondi-tesla-domestic-terrorism.html
 
