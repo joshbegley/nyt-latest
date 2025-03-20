@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6217418/2025/03/20/connections-sports-edition-hints
 `Quotation of the Day for Thursday, March 20, 2025`\
 https://nytimes.com/2025/03/19/pageoneplus/quote-of-the-day-american-tourists-journeyed-to-hell-and-back-in-venezuela.html
 
-**Canada Condemns China’s Execution of 4 Canadians on Drug Charges**\
+**Canada Condemns China’s Execution of 4 Canadians on Drug Convictions**\
 `Canada’s foreign minister said the government would continue to ask for leniency from China for other Canadians in similar situations.`\
 https://nytimes.com/2025/03/19/world/asia/china-canada-drug-executions.html
 
