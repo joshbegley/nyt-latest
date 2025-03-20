@@ -1,3 +1,11 @@
+**Trump’s Judicial Defiance Is New to the Autocrat Playbook, Experts Say**\
+`The president’s escalating conflict with federal courts goes beyond what has happened in countries like Hungary and Turkey, where leaders spent years remaking the judiciary.`\
+https://nytimes.com/2025/03/20/world/europe/trump-courts-defiance-autocrats-playbook.html
+
+**Astros starter Luis Garcia shut down with another post-Tommy John setback**\
+`Garcia, who has not appeared in a major-league game since May 1, 2023, was scheduled to face hitters Thursday morning.`\
+https://nytimes.com/athletic/6218472/2025/03/20/luis-garcia-astros-injury-shut-down/
+
 **Sprung From the Attic, Flannery O’Connor’s Artworks See the Light**\
 `The darkly comic Southern novelist kept a quiet practice in the visual arts. For the centenary of her birth, her paintings are finally getting an audience — and updating her legacy.`\
 https://nytimes.com/2025/03/20/arts/design/flannery-oconnors-paintings-georgia-college.html

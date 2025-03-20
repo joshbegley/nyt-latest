@@ -1,3 +1,11 @@
+**Trump’s Judicial Defiance Is New to the Autocrat Playbook, Experts Say**\
+`The president’s escalating conflict with federal courts goes beyond what has happened in countries like Hungary and Turkey, where leaders spent years remaking the judiciary.`\
+https://nytimes.com/2025/03/20/world/europe/trump-courts-defiance-autocrats-playbook.html
+
+**Astros starter Luis Garcia shut down with another post-Tommy John setback**\
+`Garcia, who has not appeared in a major-league game since May 1, 2023, was scheduled to face hitters Thursday morning.`\
+https://nytimes.com/athletic/6218472/2025/03/20/luis-garcia-astros-injury-shut-down/
+
 **Sprung From the Attic, Flannery O’Connor’s Artworks See the Light**\
 `The darkly comic Southern novelist kept a quiet practice in the visual arts. For the centenary of her birth, her paintings are finally getting an audience — and updating her legacy.`\
 https://nytimes.com/2025/03/20/arts/design/flannery-oconnors-paintings-georgia-college.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6217790/2025/03/20/baseball-player-rankings-angels-
 **The Thai Island With a Food Scene That Rivals the Beach**\
 `Plus: the neighborhood to know in Athens, Japanese-made sunglasses and more recommendations from T Magazine.`\
 https://nytimes.com/2025/03/20/t-magazine/phuket-thailand-restaurants-food.html
-
-**On Its Website, DOGE Deletes More Than 100 Government Leases It Said Were Canceled**\
-`Elon Musk’s cost-cutting group dropped its total purported savings from eliminating federal office space after losing some battles within the Trump administration.`\
-https://nytimes.com/2025/03/20/us/politics/doge-canceled-leases.html
-
-**Why the Fed’s Job May Get a Lot More Difficult**\
-`President Trump’s plans risk stoking inflation and denting growth, an undesirable combination that economists warn could lead to much tougher trade-offs for the central bank.`\
-https://nytimes.com/2025/03/20/business/fed-trump-tariffs-inflation.html
 
