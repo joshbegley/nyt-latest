@@ -1,3 +1,11 @@
+**Thomas Tuchel says England were 'afraid of defeat' at Euro 2024**\
+`"I felt tension and pressure on the shoulders of the players," Tuchel said on Thursday. "They were more afraid."`\
+https://nytimes.com/athletic/6218528/2025/03/20/thomas-tuchel-england-euros/
+
+**Republicans Once Championed Free Speech on Campus. Now, Not So Much.**\
+`President Trump and state politicians are pushing new laws and policies that crack down on curriculum, protests and speakers.`\
+https://nytimes.com/2025/03/20/us/politics/trump-republicans-gop-free-speech-college-campus-protest.html
+
 **Trump’s Judicial Defiance Is New to the Autocrat Playbook, Experts Say**\
 `The president’s escalating conflict with federal courts goes beyond what has happened in countries like Hungary and Turkey, where leaders spent years remaking the judiciary.`\
 https://nytimes.com/2025/03/20/world/europe/trump-courts-defiance-autocrats-playbook.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6217945/2025/03/20/tennis-atp-wta-grand-slams-sched
 **The Sudden Weirdness of TV Presidents**\
 `Today’s political dramas have conspiracy, murder and supervolcanoes. But their conventional White House protocols and procedures might be the most disorienting aspects.`\
 https://nytimes.com/2025/03/20/arts/television/trump-tv-presidents.html
-
-**The Windup: Baseball's best position players**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6217790/2025/03/20/baseball-player-rankings-angels-phones-the-windup/
-
-**The Thai Island With a Food Scene That Rivals the Beach**\
-`Plus: the neighborhood to know in Athens, Japanese-made sunglasses and more recommendations from T Magazine.`\
-https://nytimes.com/2025/03/20/t-magazine/phuket-thailand-restaurants-food.html
 
