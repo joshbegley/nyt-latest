@@ -1,40 +1,40 @@
-**How to watch No. 6 BYU vs. No. 11 VCU in the NCAA Tournament**\
-`BYU is a small favorite against VCU in Thursday's first-round NCAA Tournament game. Will the Cougars end a tourney slump?`\
-https://nytimes.com/athletic/6214328/2025/03/20/byu-vcu-mens-ncaa-tournament-how-to-watch/
+**A look at the Jets' depth chart — and what might be next — after first wave of free agency**\
+`The way the Jets' roster shapes up ahead of the NFL Draft.`\
+https://nytimes.com/athletic/6215551/2025/03/20/new-york-jets-depth-chart-draft-needs/
 
-**How to watch No. 4 Purdue vs. No. 13 High Point in the NCAA Tournament**\
-`Purdue isn't expecting to return to the Final Four this year, but are still a solid favorite against High Point in the first round.`\
-https://nytimes.com/athletic/6214274/2025/03/20/purdue-high-point-ncaa-tournament-how-to-watch/
+**MLB Position Player Tiers 2025: How 100 of the game’s best stack up from Juan Soto to Shohei Ohtani**\
+`We separated the best 100 non-pitchers into different levels to see who reigns supreme. Then we let MLB talent evaluators weigh in.`\
+https://nytimes.com/athletic/6204865/2025/03/20/mlb-position-player-tiers-2025/
 
-**The New York Times International Edition in Print for Friday, March 21, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/20/todays-new-york-times-international-edition
+**This Week in Sports Trivia: March 20, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6213933/2025/03/20/this-week-in-sports-trivia-march-20-2025/
 
-**How to watch No. 7 Kansas vs. No. 10 Arkansas in the NCAA Tournament**\
-`It's Bill Self's Kansas against John Calipari's Arkansas in the first round of the NCAA Tournament. What's not to like?`\
-https://nytimes.com/athletic/6210554/2025/03/20/kansas-arkansas-ncaa-tournament-how-to-watch/
+**David Taylor modeling Oklahoma St. wrestling after Cael Sanderson, Penn St.**\
+`This weekend's NCAAs will provide a litmus test for Cowboys, whose coach is trying to catch the program where he once wrestled.`\
+https://nytimes.com/athletic/6216268/2025/03/20/david-taylor-modeling-oklahoma-state-wrestling-after-cael-sandersons-penn-state/
 
-**In Indonesia, a Parliamentary Action Evokes an Authoritarian Past**\
-`Legislators revised a law to allocate more civilian posts for military officers, a move that harked back to the era of the dictator Suharto.`\
-https://nytimes.com/2025/03/20/world/asia/indonesia-military-law.html
+**Chase Burns hoping he can follow in Rhett Lowder's footsteps — again**\
+`If Burns can take Lowder's path the rest of this year, the Reds will be thrilled.`\
+https://nytimes.com/athletic/6217368/2025/03/20/reds-chase-burns-rhett-lowder/
 
-**If Patriots land Travis Hunter in the NFL Draft, where should they play him?**\
-`If the Heisman Trophy winner were to fall to the Patriots at No. 4, at what position should they play him: cornerback or wide receiver?`\
-https://nytimes.com/athletic/6215519/2025/03/20/patriots-travis-hunter-nfl-draft-position/
+**A conversation with Bronny James, who’s gaining ‘confidence’ amid outside noise**\
+`Away from the bright lights (as much as he can be), the 20-year-old has made strides, as any rookie would hope: "I see the progress."`\
+https://nytimes.com/athletic/6216948/2025/03/20/bronny-james-interview-lakers-nba/
 
-**Why Are Women Drawn to These ‘Unflattering’ Pants?**\
-`Bloomers, a poufy pant with a feminist history, have found wider appeal.`\
-https://nytimes.com/2025/03/20/style/oversize-poufy-pants-bloomers-spring.html
+**What's driving Auston Matthews and the Maple Leafs' top line to another level?**\
+`The Leafs had one line that looked effective against the red-hot Avalanche on Wednesday, and Matthews led the way.`\
+https://nytimes.com/athletic/6217520/2025/03/20/maple-leafs-matthews-top-line-avalanche/
 
-**Why Are We Still Strip-Searching Prisoners?**\
-`Strip searches are traumatic and ineffective. It’s time to phase them out.`\
-https://nytimes.com/2025/03/20/opinion/prison-strip-searches.html
+**Men's March Madness 2025: What to watch for on Day 1**\
+`No. 1 seed Auburn, No. 2 St. John's and No. 7 Kansas are among those in action on Day 1 of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
 
-**The Last Thing Democrats Need Is Their Own Tea Party**\
-`One was plenty.`\
-https://nytimes.com/2025/03/20/opinion/democrats-tea-party-trump.html
+**Everyone wants to be in the building for Alex Ovechkin's record-breaker — except opposing goalies**\
+`Are Ovechkin's upcoming opponents calendar-watching? You bet. No one wants to be a victim in a historic highlight.`\
+https://nytimes.com/athletic/6216463/2025/03/20/alex-ovechkin-goals-record-goalies/
 
-**After a London Sale Fell Through, They Found Their Way to New York**\
-`With a budget of up to $900,000, a deaf couple toured several Manhattan neighborhoods in search of a one-bedroom or two-bedroom near parks and subways. Here’s what they found.`\
-https://nytimes.com/interactive/2025/03/20/realestate/manhattan-coop-home-search.html
+**The March Madness big man who shoots free throws underhand: ‘Whatever it takes to win’**\
+`"When they called, my first question was, is (Kyler) serious? Because I’m not going to waste my time,” NBA legend Rick Barry said.`\
+https://nytimes.com/athletic/6214098/2025/03/20/march-madness-2025-wofford-terriers-college-basketball/
 
