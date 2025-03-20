@@ -1,3 +1,11 @@
+**Robert E. Ginna Jr., Whose Article Bolstered U.F.O. Claims, Dies at 99**\
+`A founding editor of People, he also served as editor in chief of Little, Brown and produced films. But his public image was defined by a 1952 story for Life.`\
+https://nytimes.com/2025/03/20/books/robert-ginna-dead.html
+
+**Tennis tours play Uno reverse card on Grand Slams with their own plan to fix the sport**\
+`The plan for increased player prize money and a reduced schedule comes after a lawsuit was filed against tennis' governing bodies.`\
+https://nytimes.com/athletic/6217945/2025/03/20/tennis-atp-wta-grand-slams-schedule-money-media-fix-issues/
+
 **The Sudden Weirdness of TV Presidents**\
 `Today’s political dramas have conspiracy, murder and supervolcanoes. But their conventional White House protocols and procedures might be the most disorienting aspects.`\
 https://nytimes.com/2025/03/20/arts/television/trump-tv-presidents.html
