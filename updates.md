@@ -1,3 +1,11 @@
+**Violence Flares as Hindu Group Calls for Removal of Muslim Ruler’s Tomb**\
+`The tensions showed how right-wing Hindu leaders and organizations use historical grievances to fuel contemporary tensions.`\
+https://nytimes.com/2025/03/20/world/asia/india-nagpur-aurangzeb.html
+
+**Administration Officials Believe Order Lets Immigration Agents Enter Homes Without Warrants**\
+`It remains unclear whether the Trump administration will apply the law in this way. But such an interpretation, experts say, would infringe on basic civil liberties.`\
+https://nytimes.com/2025/03/20/us/politics/trump-alien-enemies-immigration-agents.html
+
 **The Complexities of Family Estrangement**\
 `Readers reflect on troubled parent-child relationships. Also: Support for a pro-Palestinian activist; what President Trump means by “great.”`\
 https://nytimes.com/2025/03/20/opinion/family-estrangement-abuse.html
