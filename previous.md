@@ -1,3 +1,19 @@
+**Republican Ex-Candidate Is Found Guilty in Plot to Shoot New Mexico Democrats**\
+`Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
+https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
+
+**Fantasy baseball bullpen report: Closer competitions in Boston, Arizona and more**\
+`Greg Jewett runs through the closer competitions still hanging in the balance as spring training enters its final week.`\
+https://nytimes.com/athletic/6217639/2025/03/20/fantasy-baseball-2025-bullpen-report-closer-competitions-stock-watch/
+
+**Scotland’s Nicola Sturgeon Cleared After Party Finance Inquiry**\
+`The former Scottish first minister’s husband, the onetime chief executive of the Scottish National Party, appeared in court on embezzlement charges.`\
+https://nytimes.com/2025/03/20/world/europe/nicola-sturgeon-cleared-snp-police.html
+
+**Heat Today: A bright spot to Miami's 9-game skid? Improved NBA Draft Lottery luck**\
+`Miami's nine-game losing streak is its longest since 2008. A bright side to the struggle? Better odds to retool sooner than later`\
+https://nytimes.com/athletic/6218809/2025/03/20/heat-nba-draft-lottery-luck/
+
 **New York City Can’t Allow Noncitizens to Vote, Top State Court Rules**\
 `The Court of Appeals upheld a lower-court ruling that had declared unconstitutional the city’s bid to allow noncitizens to vote.`\
 https://nytimes.com/2025/03/20/nyregion/noncitizen-voting-ny.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6219129/2025/03/20/jake-peavy-2007-nl-cy-young-winn
 **Man Last Seen With Missing Student Leaves the Dominican Republic**\
 `The man, Joshua Steven Riibe, was never named as a suspect in the disappearance of Sudiksha Konanki in Punta Cana, but he said he had not been allowed to leave the Dominican Republic.`\
 https://nytimes.com/2025/03/20/world/americas/sudiksha-konanki-dominican-republic.html
-
-**Until Saturday: Jackie Robinson, CFB star**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6219155/2025/03/20/jackie-robinson-college-football-until-saturday/
-
-**A Hong Kong Picasso Show Aims to Help Viewers See Him ‘in a New Light’**\
-`The exhibition at M+ pairs the Spanish master’s works with those of four generations of Asian and Asian-diasporic artists, setting up a lively dialogue.`\
-https://nytimes.com/2025/03/20/arts/design/hong-kong-picasso.html
-
-**Listen: Chelsea's Stamford Bridge debut and how it set the tone for an ambitious, big-spending club**\
-`Straight Outta Cobham discuss Chelsea's first league game at Stamford Bridge and the significance of the club still being based there`\
-https://nytimes.com/athletic/6217996/2025/03/20/straight-outta-cobham-chelsea-stamford-bridge-debut/
-
-**Tesla Recalls Nearly All Cybertrucks Over Stainless Steel Panels Falling Off**\
-`The recall of about 46,000 vehicles includes all models that were manufactured from November 2023, when the Cybertruck was first produced, through February.`\
-https://nytimes.com/2025/03/20/business/tesla-cybertruck-recall.html
 

@@ -1,3 +1,19 @@
+**Republican Ex-Candidate Is Found Guilty in Plot to Shoot New Mexico Democrats**\
+`Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
+https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
+
+**Fantasy baseball bullpen report: Closer competitions in Boston, Arizona and more**\
+`Greg Jewett runs through the closer competitions still hanging in the balance as spring training enters its final week.`\
+https://nytimes.com/athletic/6217639/2025/03/20/fantasy-baseball-2025-bullpen-report-closer-competitions-stock-watch/
+
+**Scotland’s Nicola Sturgeon Cleared After Party Finance Inquiry**\
+`The former Scottish first minister’s husband, the onetime chief executive of the Scottish National Party, appeared in court on embezzlement charges.`\
+https://nytimes.com/2025/03/20/world/europe/nicola-sturgeon-cleared-snp-police.html
+
+**Heat Today: A bright spot to Miami's 9-game skid? Improved NBA Draft Lottery luck**\
+`Miami's nine-game losing streak is its longest since 2008. A bright side to the struggle? Better odds to retool sooner than later`\
+https://nytimes.com/athletic/6218809/2025/03/20/heat-nba-draft-lottery-luck/
+
 **New York City Can’t Allow Noncitizens to Vote, Top State Court Rules**\
 `The Court of Appeals upheld a lower-court ruling that had declared unconstitutional the city’s bid to allow noncitizens to vote.`\
 https://nytimes.com/2025/03/20/nyregion/noncitizen-voting-ny.html

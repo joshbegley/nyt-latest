@@ -1,4 +1,4 @@
-**Republican Ex-Candidate Is Found Guilty in Plot to Shoot New Mexico Democrats**\
+**Republican Ex-Candidate Is Convicted in Shooting Plot Targeting New Mexico Democrats**\
 `Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
 https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
 
