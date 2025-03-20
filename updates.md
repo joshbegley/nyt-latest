@@ -1,3 +1,7 @@
+**Touring Kennedy Center, Trump Mused on His Childhood ‘Aptitude for Music’**\
+`The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
+https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
+
 **Marcus Freeman feeling 'recalibrated' as Notre Dame opens spring practice**\
 `Here's what else we learned on day one about the Irish quarterback competition, defensive transfers, the receiver spot and more. `\
 https://nytimes.com/athletic/6217049/2025/03/19/notre-dame-spring-practice-day-one-marcus-freeman/

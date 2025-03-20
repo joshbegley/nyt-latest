@@ -22,7 +22,7 @@ https://nytimes.com/2025/03/19/us/politics/trump-education-department.html
 `The move is a bet that Ampere’s chips can begin playing a significant role in data centers for creating artificial intelligence.`\
 https://nytimes.com/2025/03/19/technology/softbank-ampere-chips.html
 
-**Trump Had ‘Aptitude for Music’ as a Child, He Told Kennedy Center Board**\
+**Touring Kennedy Center, Trump Mused on His Childhood ‘Aptitude for Music’**\
 `The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
 https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
 
