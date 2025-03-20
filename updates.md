@@ -1,3 +1,7 @@
+**The Phoenix Suns, energy-generated behavior and one last gasp to save a miserable season**\
+`After a bad loss to the Lakers, the Suns have played with more energy, winning back-to-back games for the first time since late January.`\
+https://nytimes.com/athletic/6217759/2025/03/20/phoenix-suns-last-gasp-miserable-season-bulls/
+
 **Trump Officials Ordered Congestion Pricing to End Friday. Now What?**\
 `As the March 21 deadline looms, the M.T.A. has refused to stop the tolls and sued the transportation secretary, Sean Duffy, and federal officials in federal court in Manhattan.`\
 https://nytimes.com/2025/03/20/nyregion/nyc-congestion-pricing-trump-mta-battle.html

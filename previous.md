@@ -1,3 +1,7 @@
+**The Phoenix Suns, energy-generated behavior and one last gasp to save a miserable season**\
+`After a bad loss to the Lakers, the Suns have played with more energy, winning back-to-back games for the first time since late January.`\
+https://nytimes.com/athletic/6217759/2025/03/20/phoenix-suns-last-gasp-miserable-season-bulls/
+
 **Trump Officials Ordered Congestion Pricing to End Friday. Now What?**\
 `As the March 21 deadline looms, the M.T.A. has refused to stop the tolls and sued the transportation secretary, Sean Duffy, and federal officials in federal court in Manhattan.`\
 https://nytimes.com/2025/03/20/nyregion/nyc-congestion-pricing-trump-mta-battle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/nasa-astronauts-overtime.html
 **Knicks can't have lapses as they did against Spurs at this point in season**\
 `It's not that New York lost to San Antonio that is the problem, it's how it lost.`\
 https://nytimes.com/athletic/6217648/2025/03/20/knicks-loss-spurs-lapses-schedule/
-
-**How it feels to play Shankly on stage: 'He was no f***ing saint'**\
-`Peter Mullan reveals why he wanted to play Liverpool's mythologised manager — and how he captured his fellow Scot's voice`\
-https://nytimes.com/athletic/6205395/2025/03/20/peter-mullan-bill-shankly-play/
 
