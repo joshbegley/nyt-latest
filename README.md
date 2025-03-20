@@ -1,3 +1,7 @@
+**The Wizards and Jazz raced their way to the bottom Wednesday. It wasn't pretty**\
+`The draft lottery was front-and-center when the teams with the league's two worst records squared off with some curious lineups.`\
+https://nytimes.com/athletic/6217784/2025/03/20/washington-wizards-utah-jazz/
+
 **Powell Revives a Debate on ‘Transitory’ Inflation**\
 `Investors cheered the Federal Reserve chair’s assessment. But some economists fear a case of déjà vu.`\
 https://nytimes.com/2025/03/20/business/dealbook/powell-tariff-transitory-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210902/2025/03/20/chez-mellusi-wisconsin-football-
 **Trump Administration Live Updates: President to Sign Order to Dismantle Education Department**\
 ``\
 https://nytimes.com/live/2025/03/20/us/trump-education-news
-
-**Seahawks roster reset: O-line help still needed, but draft priorities becoming clearer**\
-`The Seahawks have addressed most needs outside of the offensive line, which could create plenty of flexibility in the draft.`\
-https://nytimes.com/athletic/6216607/2025/03/20/seahawks-roster-free-agency-needs/
 
