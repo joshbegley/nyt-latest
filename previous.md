@@ -1,3 +1,7 @@
+**In Miami, Scalpers Had the Hot Tickets … to Driver’s License Appointments**\
+`The tax collector’s office in Miami-Dade County, Fla., said it uncovered scalpers using the free online-appointment system to book slots and resell them for $25 to $250.`\
+https://nytimes.com/2025/03/20/us/miami-dmv-appointment-scalpers.html
+
 **Why Deebo Samuel pushed for trade to Commanders: 'I like winners'**\
 `“I’m just coming to add my little dog mentality and contribute to the offense in any aspect they need me," Samuel told reporters. `\
 https://nytimes.com/athletic/6219730/2025/03/20/deebo-samuel-commanders-adam-peters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2
 **Two Men Are Convicted in Plot to Kill Iranian Dissident in New York City**\
 `The convictions brought some measure of resolution to what U.S. officials have described as an unrelenting retaliation effort against Masih Alinejad.`\
 https://nytimes.com/2025/03/20/nyregion/masih-alinejad-iran-guilty-verdict.html
-
-**Yeshiva University Recognizes L.G.B.T.Q. Club After Lengthy Battle**\
-`Yeshiva, a Modern Orthodox Jewish school in New York, had refused for years to recognize the club. The resulting legal fight reached the Supreme Court.`\
-https://nytimes.com/2025/03/20/nyregion/yeshiva-university-lgbtq-club.html
 

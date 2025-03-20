@@ -1,3 +1,7 @@
+**In Miami, Scalpers Had the Hot Tickets … to Driver’s License Appointments**\
+`The tax collector’s office in Miami-Dade County, Fla., said it uncovered scalpers using the free online-appointment system to book slots and resell them for $25 to $250.`\
+https://nytimes.com/2025/03/20/us/miami-dmv-appointment-scalpers.html
+
 **Why Deebo Samuel pushed for trade to Commanders: 'I like winners'**\
 `“I’m just coming to add my little dog mentality and contribute to the offense in any aspect they need me," Samuel told reporters. `\
 https://nytimes.com/athletic/6219730/2025/03/20/deebo-samuel-commanders-adam-peters/
