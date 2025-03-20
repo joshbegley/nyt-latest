@@ -1,3 +1,15 @@
+**J.B. Moore, Producer of Seminal Hip-Hop Records, Dies at 81**\
+`He was a magazine ad salesman when he and a colleague, Robert Ford, teamed with Kurtis Blow and helped break rap music into the mainstream.`\
+https://nytimes.com/2025/03/20/arts/music/jb-moore-dead.html
+
+**Hugues Oyarzabal, Surfing Star Who Rode With a Camera, Dies at 39**\
+`With a video recorder affixed to his board or clamped to his teeth, he took viewers along for the ride, often inside the curling “barrel” of a wave.`\
+https://nytimes.com/2025/03/20/sports/hugues-oyarzabal-surfing-dead.html
+
+**Republican Ex-Candidate Is Convicted in Shooting Plot Targeting New Mexico Democrats**\
+`Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
+https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
+
 **Republican Ex-Candidate Is Found Guilty in Plot to Shoot New Mexico Democrats**\
 `Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
 https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html

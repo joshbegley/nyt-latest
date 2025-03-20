@@ -1,4 +1,12 @@
-**Republican Ex-Candidate Is Found Guilty in Plot to Shoot New Mexico Democrats**\
+**J.B. Moore, Producer of Seminal Hip-Hop Records, Dies at 81**\
+`He was a magazine ad salesman when he and a colleague, Robert Ford, teamed with Kurtis Blow and helped break rap music into the mainstream.`\
+https://nytimes.com/2025/03/20/arts/music/jb-moore-dead.html
+
+**Hugues Oyarzabal, Surfing Star Who Rode With a Camera, Dies at 39**\
+`With a video recorder affixed to his board or clamped to his teeth, he took viewers along for the ride, often inside the curling “barrel” of a wave.`\
+https://nytimes.com/2025/03/20/sports/hugues-oyarzabal-surfing-dead.html
+
+**Republican Ex-Candidate Is Convicted in Shooting Plot Targeting New Mexico Democrats**\
 `Solomon Peña, who lost an election for a statehouse seat in 2022, was convicted on all 13 counts.`\
 https://nytimes.com/2025/03/20/us/solomon-pena-new-mexico-shootings-guilty.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6219065/2025/03/20/cooper-flagg-active-duke-injury-
 **For Cleveland Orchestra, It’s Beethoven (and Freedom) to the Rescue**\
 `When the star singer Asmik Grigorian dropped out of the orchestra’s performance at Carnegie Hall, Beethoven’s Fifth and his “Leonore” Overture No. 3 subbed in.`\
 https://nytimes.com/2025/03/20/arts/music/cleveland-orchestra-franz-welser-most-beethoven-carnegie.html
-
-**Jake Peavy rejoins Padres as special assistant to CEO**\
-`Greupner said in a news release that Peavy will assist multiple departments in the organization and serve as a team ambassador.`\
-https://nytimes.com/athletic/6219129/2025/03/20/jake-peavy-2007-nl-cy-young-winner-rejoins-padres-as-special-assistant-to-ceo/
-
-**Man Last Seen With Missing Student Leaves the Dominican Republic**\
-`The man, Joshua Steven Riibe, was never named as a suspect in the disappearance of Sudiksha Konanki in Punta Cana, but he said he had not been allowed to leave the Dominican Republic.`\
-https://nytimes.com/2025/03/20/world/americas/sudiksha-konanki-dominican-republic.html
 
