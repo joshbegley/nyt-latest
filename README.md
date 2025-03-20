@@ -1,3 +1,7 @@
+**Submit your questions for Josh Kendall's post-free agency Falcons mailbag**\
+`Atlanta has added or re-signed starters at edge rusher, cornerback and safety, but there's more work to do, especially on defense.`\
+https://nytimes.com/athletic/6218788/2025/03/20/falcons-mailbag-questions-11/
+
 **One of the nation’s top housing regulators places 35 workers on leave, a union says.**\
 `By Matthew Goldstein`\
 https://nytimes.com/live/2025/03/20/us/trump-education-news/one-of-the-nations-top-housing-regulators-places-35-workers-on-leave-a-union-says
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/taliban-frees-american-aircraft-mecha
 **Georgia's Nitro Tuggle arrested on 2 misdemeanor driving charges**\
 `Tuggle's arrest is the ninth known arrest of a Georgia football player for driving-related offenses since January 2023.`\
 https://nytimes.com/athletic/6218742/2025/03/20/nitro-tuggle-arrest-georgia-football/
-
-**The Bounce: Even when the Thunder have reason to lose, they win. Plus, Celtics sold for big money**\
-`Are the Thunder capable of winning no matter which lineup they use? Apparently so!`\
-https://nytimes.com/athletic/6218337/2025/03/20/thunder-shai-gilgeous-alexander-celtics-sold-sale-nba-the-bounce/
 
