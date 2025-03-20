@@ -1,3 +1,7 @@
+**University of California Will Stop Requiring Diversity Statements in Hiring**\
+`The statements had risen in popularity as colleges sought to improve campus culture, but they drew criticism from conservatives who argued they were a political test.`\
+https://nytimes.com/2025/03/20/us/diversity-statements-university-of-california.html
+
 **SailGP A to Z: From Australia to Zones, an alphabetical guide to the high-octane championship**\
 `Terminology and names to help the uninitiated understand what's going on out there on the water.`\
 https://nytimes.com/athletic/6212486/2025/03/20/sailgp-a-to-z-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/pageoneplus/quote-of-the-day-american-tourists-jo
 **Canada Condemns China’s Execution of 4 Canadians on Drug Charges**\
 `Canada’s foreign minister said the government would continue to ask for leniency from China for other Canadians in similar situations.`\
 https://nytimes.com/2025/03/19/world/asia/china-canada-drug-executions.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/19/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

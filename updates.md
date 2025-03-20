@@ -1,3 +1,7 @@
+**University of California Will Stop Requiring Diversity Statements in Hiring**\
+`The statements had risen in popularity as colleges sought to improve campus culture, but they drew criticism from conservatives who argued they were a political test.`\
+https://nytimes.com/2025/03/20/us/diversity-statements-university-of-california.html
+
 **SailGP A to Z: From Australia to Zones, an alphabetical guide to the high-octane championship**\
 `Terminology and names to help the uninitiated understand what's going on out there on the water.`\
 https://nytimes.com/athletic/6212486/2025/03/20/sailgp-a-to-z-guide/
