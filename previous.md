@@ -1,3 +1,11 @@
+**Trump Won Over Many Arab Americans in November. Now, Has He Lost Them?**\
+`In Detroit and its suburbs, anger is deep over Israeli airstrikes in Gaza. So is the sense that there is nowhere for Arab Americans to turn.`\
+https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
+
+**Amid Change and Challenges, These Hong Kong Bookshops Persist**\
+`It has not been easy for the city’s bookstores recently. But there are still shops piled high with new, rare and secondhand tomes, if you know where to look.`\
+https://nytimes.com/2025/03/20/arts/design/hong-kong-independent-bookshops.html
+
 **‘The Residence’ Review: Murder and Mystery in the White House**\
 `The Netflix series, executive produced by Shonda Rimes, is the latest lighthearted murder mystery on streaming TV.`\
 https://nytimes.com/2025/03/20/arts/television/the-residence-review-netflix.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6218536/2025/03/20/liverpool-transfer-news-dean-hui
 **Do I Like Pasta Now?**\
 `My love for these spring pastas — namely this lemony orzo with asparagus and bread crumbs — sure indicates as much.`\
 https://nytimes.com/2025/03/20/dining/vegetarian-spring-pastas.html
-
-**Violence Flares as Hindu Group Calls for Removal of Muslim Ruler’s Tomb**\
-`The tensions showed how right-wing Hindu leaders and organizations in India use historical grievances to fuel contemporary tensions.`\
-https://nytimes.com/2025/03/20/world/asia/india-nagpur-aurangzeb.html
 
