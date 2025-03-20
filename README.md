@@ -1,3 +1,7 @@
+**‘We Had a World’ Review: Through the Fourth Wall and Into the Past**\
+`Joshua Harmon’s new play features uniformly standout performances and tells a poignant story of family dynamics.`\
+https://nytimes.com/2025/03/19/theater/we-had-a-world-review.html
+
 **First Four: Mount St. Mary's rolls past American; Texas vs. Xavier on deck**\
 `The Mountaineers, a surprise NCAA Tournament team after they won their conference tourney, move on to face No. 1 seed Duke on Friday.`\
 https://nytimes.com/athletic/6217250/2025/03/19/ncaa-tournament-first-four-texas-xavier/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/technology/softbank-ampere-chips.html
 **Touring Kennedy Center, Trump Mused on His Childhood ‘Aptitude for Music’**\
 `The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
 https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
-
-**Queens Businessman Sentenced to Prison for Acting as Agent of China**\
-`An Quanzhong, who will spend 13 months behind bars, harassed a resident whom China’s government wanted back home. His conviction was one of several that prosecutors have won against operatives in New York.`\
-https://nytimes.com/2025/03/19/nyregion/chinese-repression-sentence-an-quanzhong.html
 

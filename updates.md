@@ -1,3 +1,7 @@
+**First Four: Mount St. Mary's rolls past American; Texas vs. Xavier on deck**\
+`The Mountaineers, a surprise NCAA Tournament team after they won their conference tourney, move on to face No. 1 seed Duke on Friday.`\
+https://nytimes.com/athletic/6217250/2025/03/19/ncaa-tournament-first-four-texas-xavier/
+
 **Mater Dei High School signs 10-year, 7-figure multimedia rights deal**\
 `According to Mater Dei, the deal makes the high school the first in the country to sign such an agreement.`\
 https://nytimes.com/athletic/6216896/2025/03/19/mater-dei-high-school-media-deal-playfly-nil/
