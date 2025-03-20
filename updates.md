@@ -1,3 +1,7 @@
+**Ex-Michigan OC Weiss indicted on 24 computer access, identity theft charges**\
+`Matt Weiss was charged with accessing accounts belonging to thousands of students and downloading intimate photos stored on them.`\
+https://nytimes.com/athletic/6219501/2025/03/20/matt-weiss-michigan-indictment-charges/
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/03/20/books/review/new-books-recommendations.html
