@@ -1,3 +1,11 @@
+**New York City Can’t Allow Noncitizens to Vote, Top State Court Rules**\
+`The Court of Appeals upheld a lower-court ruling that had declared unconstitutional the city’s bid to allow noncitizens to vote.`\
+https://nytimes.com/2025/03/20/nyregion/noncitizen-voting-ny.html
+
+**Braves sign free-agent outfielder Alex Verdugo to one-year, $1.5 million deal**\
+`Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
+https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/
+
 **Braves agree to 1-year deal with free-agent outfielder Alex Verdugo: Source**\
 `Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
 https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/

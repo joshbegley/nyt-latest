@@ -1,4 +1,8 @@
-**Braves agree to 1-year deal with free-agent outfielder Alex Verdugo: Source**\
+**New York City Can’t Allow Noncitizens to Vote, Top State Court Rules**\
+`The Court of Appeals upheld a lower-court ruling that had declared unconstitutional the city’s bid to allow noncitizens to vote.`\
+https://nytimes.com/2025/03/20/nyregion/noncitizen-voting-ny.html
+
+**Braves sign free-agent outfielder Alex Verdugo to one-year, $1.5 million deal**\
 `Verdugo was the No. 38 free agent on The Athletic's offseason Top 40 Big Board. `\
 https://nytimes.com/athletic/6219190/2025/03/20/alex-verdugo-braves-free-agent-deal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217996/2025/03/20/straight-outta-cobham-chelsea-st
 **Tesla Recalls Nearly All Cybertrucks Over Stainless Steel Panels Falling Off**\
 `The recall of about 46,000 vehicles includes all models that were manufactured from November 2023, when the Cybertruck was first produced, through February.`\
 https://nytimes.com/2025/03/20/business/tesla-cybertruck-recall.html
-
-**Trump Won Over Many Arab Americans in November. Now, Has He Lost Them?**\
-`In Detroit and its suburbs, anger is deep over Israeli airstrikes in Gaza. So is the sense that there is nowhere for Arab Americans to turn.`\
-https://nytimes.com/2025/03/20/us/trump-arab-americans-gaza-israel.html
 
