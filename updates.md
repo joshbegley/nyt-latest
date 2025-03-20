@@ -1,3 +1,7 @@
+**Global women’s seven-a-side soccer tournament launches with $5m prize pot**\
+`World Sevens Football will consist of eight professional clubs competing for a "game-changing prize pool".`\
+https://nytimes.com/athletic/6217854/2025/03/20/womens-sevens-soccer-football-w7f/
+
 **The Pulse: Your final bracket checklist**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6215495/2025/03/20/ncaa-tournament-picks-the-pulse/

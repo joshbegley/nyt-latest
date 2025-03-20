@@ -1,3 +1,7 @@
+**Global women’s seven-a-side soccer tournament launches with $5m prize pot**\
+`World Sevens Football will consist of eight professional clubs competing for a "game-changing prize pool".`\
+https://nytimes.com/athletic/6217854/2025/03/20/womens-sevens-soccer-football-w7f/
+
 **The Pulse: Your final bracket checklist**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6215495/2025/03/20/ncaa-tournament-picks-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6216268/2025/03/20/david-taylor-modeling-oklahoma-s
 **Chase Burns hoping he can follow in Rhett Lowder's footsteps — again**\
 `If Burns can take Lowder's path the rest of this year, the Reds will be thrilled.`\
 https://nytimes.com/athletic/6217368/2025/03/20/reds-chase-burns-rhett-lowder/
-
-**A conversation with Bronny James, who’s gaining ‘confidence’ amid outside noise**\
-`Away from the bright lights (as much as he can be), the 20-year-old has made strides, as any rookie would hope: "I see the progress."`\
-https://nytimes.com/athletic/6216948/2025/03/20/bronny-james-interview-lakers-nba/
 
