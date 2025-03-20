@@ -1,4 +1,16 @@
-**Danielle Hunter, Texans agree to contract extension: Reports**\
+**Nonprofit’s Leader Convicted of Siphoning Off $240 Million in Federal Food Aid**\
+`Aimee Bock was accused of overseeing a scheme that exploited lax pandemic-era controls, and reaped millions with fake invoices for nonexistent meals.`\
+https://nytimes.com/2025/03/19/us/nonprofit-leader-convicted-federal-food-aid.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/19/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Corrections: March 20, 2025**\
+`Corrections that appeared in print on Thursday, March 20, 2025.`\
+https://nytimes.com/2025/03/19/pageoneplus/corrections-march-20-2025.html
+
+**Danielle Hunter, Texans agree to contract extension**\
 `Hunter, who had 12 sacks in 2024, joined the Texans last offseason after eight years with the Minnesota Vikings. `\
 https://nytimes.com/athletic/6217234/2025/03/19/texans-danielle-hunter-contract-extension/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/19/us/kansas-supreme-court-elections.html
 **Free-agent WR Stefon Diggs visiting with Patriots: Source**\
 `Diggs, a free agent, 10-year veteran and former All-Pro with six 1,000-yard seasons, is in Foxboro, Mass., visiting with the team.`\
 https://nytimes.com/athletic/6217181/2025/03/19/stefon-diggs-patriots-visit-free-agent/
-
-**John Lynch says 49ers 'have a plan' after team's free-agency roster purge**\
-`The 49ers will have to replenish their roster in the upcoming NFL Draft, in which they own 11 picks. `\
-https://nytimes.com/athletic/6217033/2025/03/19/john-lynch-49ers-plan-free-agency-roster/
-
-**Trump Is Said to Sign Order Aimed at Dismantling Education Department**\
-`The order will lay the groundwork for eventually shuttering the agency, reassigning some of its primary duties.`\
-https://nytimes.com/2025/03/19/us/politics/trump-education-department.html
-
-**SoftBank to Buy Ampere, a Silicon Valley Chip Start-Up, for $6.5 Billion**\
-`The move is a bet that Ampere’s chips can begin playing a significant role in data centers for creating artificial intelligence.`\
-https://nytimes.com/2025/03/19/technology/softbank-ampere-chips.html
 

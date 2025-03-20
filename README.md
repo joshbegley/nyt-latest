@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6217234/2025/03/19/texans-danielle-hunter-contract-
 `Joshua Harmon’s new play features uniformly standout performances and tells a poignant story of family dynamics.`\
 https://nytimes.com/2025/03/19/theater/we-had-a-world-review.html
 
-**First Four: Mount St. Mary's rolls past American; Texas vs. Xavier on deck**\
+**First Four: Mount St. Mary's rolls past American; Texas vs. Xavier underway**\
 `The Mountaineers, a surprise NCAA Tournament team after they won their conference tourney, move on to face No. 1 seed Duke on Friday.`\
 https://nytimes.com/athletic/6217250/2025/03/19/ncaa-tournament-first-four-texas-xavier/
 
