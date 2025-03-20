@@ -1,40 +1,40 @@
-**A Trump Recession?**\
-`We explore three big questions about the economy.`\
-https://nytimes.com/2025/03/20/briefing/donald-trump-us-economy-recession.html
+**Celtics draft prospects to watch in March Madness: Would Ryan Kalkbrenner or Johni Broome fit?**\
+`As the NCAA Tournament begins, here are some of the players potentially in range whom the Celtics should be keeping an eye on.`\
+https://nytimes.com/athletic/6216997/2025/03/20/march-madness-celtics-draft-ryan-kalkbrenner-johni-broome/
 
-**Ex-Cardinals Descalso, Jay reunite as coaches mentoring young talent**\
-`Drafting and developing was the priority for the club when Jay and Descalso were coming through the system.`\
-https://nytimes.com/athletic/6215783/2025/03/20/cardinals-coaches-daniel-descalso-jon-jay/
+**How to watch No. 5 Michigan vs. No. 12 UC San Diego in the NCAA Tournament**\
+`Michigan is fresh off winning the Big Ten tournament. Will the Wolverines maintain that momentum into the NCAA Tournament vs. UC San Diego?`\
+https://nytimes.com/athletic/6216547/2025/03/20/michigan-uc-san-diego-ncaa-tournament-how-to-watch/
 
-**UCLA is the top seed in women's March Madness. It only took 36,000 miles to get there**\
-`As a new Big Ten team from the West Coast, the Bruins meticulously managed the impact of increased travel. `\
-https://nytimes.com/athletic/6215903/2025/03/20/ucla-travel-big-ten-march-madness/
+**Meet Luca Marrelli, the Blue Jackets's breakout prospect**\
+`Marrelli, a third-round pick in 2024, has already been signed by Columbus to an entry-level contract.`\
+https://nytimes.com/athletic/6203484/2025/03/20/blue-jackets-prospect-luca-marrelli/
 
-**How to watch No. 2 St. John's vs. No. 15 Omaha in the men's NCAA Tournament**\
-`For the first time in a full decade, St. John's is dancing in the field of 64. It is favored over Omaha on Thursday night.`\
-https://nytimes.com/athletic/6211442/2025/03/20/omaha-st-johns-ncaa-tournament-how-to-watch/
+**Inside the design of the Mets' new road jerseys**\
+`With a nod to their history, the Mets resurrected a bygone script and also tapped into something modern: “Feedback has been awesome."`\
+https://nytimes.com/athletic/6213421/2025/03/20/mets-jersey-design-road-uniforms/
 
-**The Phillies paid an analytics company millions. Now they're suing it over 'loss of competitive advantage'**\
-`The Phillies last week sued Zelus Analytics for what they said was an attempt to sell its platform to more NL East teams.`\
-https://nytimes.com/athletic/6216672/2025/03/20/phillies-zelus-analytics-teamworks-lawsuit/
+**It’s time to change the NHL playoff format. Here are some ideas to improve it**\
+`From a traditional 1 vs. 8 format to changing the points system, there are ways the NHL could improve the postseason matchups and paths.`\
+https://nytimes.com/athletic/6216321/2025/03/20/change-the-nhl-playoff-format/
 
-**Global women’s seven-a-side soccer tournament launches with $5m prize pot**\
-`World Sevens Football will consist of eight professional clubs competing for a "game-changing prize pool".`\
-https://nytimes.com/athletic/6217854/2025/03/20/womens-sevens-soccer-football-w7f/
+**Three first-rounders from one high school? Corona High has a chance to make history**\
+`At the July draft, Corona could achieve something unique in MLB history. Before then, it's trying to take California baseball by storm.`\
+https://nytimes.com/athletic/6217130/2025/03/20/corona-high-3-first-rounders-california-mlb-draft/
 
-**The Pulse: Your final bracket checklist**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6215495/2025/03/20/ncaa-tournament-picks-the-pulse/
+**Broncos mailbag: The next step for Bo Nix, NFL Draft targets, 'Hard Knocks' chances**\
+`Also, Patrick Surtain continues to see cornerbacks get bigger deals than his, so is a pay adjustment in his future?`\
+https://nytimes.com/athletic/6216037/2025/03/20/broncos-mailbag-2025-nfl-draft-bo-nix/
 
-**Iran Releases French Citizen After 2 Years in Detention, Officials Say**\
-`Olivier Grondeau had been accused of spying while visiting Iran on a tourist visa. President Emmanuel Macron of France had denounced his detention as “disgraceful and arbitrary.”`\
-https://nytimes.com/2025/03/20/world/europe/france-iran-prisoner-release.html
+**The hecklers are targeting Rory McIlroy. His challenge is to resist golf's unruly spectators**\
+`Many players ignore any stupidity, and then it goes away. McIlroy generally always had. We’re seeing what happens when you flinch.`\
+https://nytimes.com/athletic/6216670/2025/03/20/rory-mcilroy-golf-hecklers-fans-phone/
 
-**How to watch No. 6 Missouri vs. No. 11 Drake in the NCAA Tournament**\
-`Mizzou is favored to knock out Drake in the first round. It's a clash of styles with the up-tempo Tigers and slow Bulldogs.`\
-https://nytimes.com/athletic/6214381/2025/03/20/missouri-drake-mens-ncaa-tournament-how-to-watch/
+**Alabama football expects to make big jump in Year 2 under Kalen DeBoer**\
+`The continuity between Crimson Tide players and coaches has led to a faster start this spring.`\
+https://nytimes.com/athletic/6216567/2025/03/20/alabama-spring-football-kalen-deboer/
 
-**MLB American League East preview 2025: Baseball's powerhouse division is back**\
-`The AL East has long been a powerhouse. This season, it’s as deep and competitive as any division in baseball.`\
-https://nytimes.com/athletic/6212154/2025/03/20/mlb-american-league-east-preview-2025/
+**The U.S., Canada, Mexico and Panama are playing in a soccer tournament**\
+`The Concacaf Nations League title playoffs bring together the U.S. and three nations caught in the crosshairs of Trump's rhetoric`\
+https://nytimes.com/athletic/6215662/2025/03/20/concacaf-nations-league-usa-mexico-canada-panama-world-cup-trump/
 
