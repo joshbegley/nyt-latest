@@ -1,3 +1,19 @@
+**Barcelona and Osasuna's appeal to reschedule La Liga match rejected**\
+`Barcelona's Raphinha and Ronald Araujo and Osasuna's Enzo Boyomo will likely miss the game due to their international commitments.`\
+https://nytimes.com/athletic/6218219/2025/03/20/barcelona-osasuna-appeal-rejected/
+
+**GW hires Colgate's Ganiyat Adeduntan as women's basketball coach**\
+`Adeduntan spent four seasons on Jenn Rizzotti’s GW staff from 2017 to 2021 before being named Colgate’s head coach.`\
+https://nytimes.com/athletic/6218323/2025/03/20/george-washington-women-basketball-ganiyat-adeduntan-coach-hire/
+
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6217920/2025/03/20/ask-ornstein-qa-our-football-insider-answers-your-questions-21/
+
+**Garrett Stubbs demoted as Rafael Marchán wins Phillies backup catcher job**\
+`"I'll just continue to try to find ways to help the organization win whatever way I can," the 31-year-old catcher said. `\
+https://nytimes.com/athletic/6218316/2025/03/20/phillies-catchers-garrett-stubbs-rafael-marchan/
+
 **Celtics sold for $6.1 billion, highest price in North American sports history**\
 `The sale price is the largest for a North American franchise, topping the $6.05 billion that a group paid for the Commanders.`\
 https://nytimes.com/athletic/6218327/2025/03/20/celtics-franchise-sale-william-chisholm-highest-value-billion/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-suppo
 **1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
 `A victim was in stable condition after being shot in the arm in Troy, Mich., and the police said the gunman was in custody. Both were hospital employees.`\
 https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
-
-**As Britons Prepare for Inflation Jump, Bank of England Remains Cautious**\
-`Policymakers held interest rates at 4.5 percent on Thursday as they warned of rising economic uncertainty. Households are also bracing for higher utility costs starting next month.`\
-https://nytimes.com/2025/03/20/business/uk-economy-inflation-interest-rates.html
-
-**Barcelona inform fans club will not return to the Camp Nou this season**\
-`Barcelona had initially intended to return to playing their home games at their iconic ground before the end of 2024.`\
-https://nytimes.com/athletic/6218113/2025/03/20/barcelona-camp-nou-return/
-
-**Marsch wants aggressive, fearless Canada for Nations League title tilt**\
-`Canada's head coach is not pulling any punches ahead of the Concacaf Nations League playoffs.`\
-https://nytimes.com/athletic/6217689/2025/03/20/jesse-marsch-canada-aggressive-nations-league/
-
-**Eddie Jordan was one of a kind. F1 will never see a team boss like him again**\
-`Everything Eddie Jordan did was done with passion and heart. That’s as great a legacy as anyone can wish to leave in F1.`\
-https://nytimes.com/athletic/6217986/2025/03/20/eddie-jordan-tributes-formula-one/
 
