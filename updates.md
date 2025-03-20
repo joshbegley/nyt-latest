@@ -1,3 +1,11 @@
+**Snow White and the Seven Kajillion Controversies**\
+`The dwarfs. The casting. The politics of the lead actress. And that wig! Is Disney’s live-action remake of the classic film doomed by culture war skirmishes?`\
+https://nytimes.com/2025/03/20/business/snow-white-movie-controversies.html
+
+**Kirsty Coventry Is Elected President of the I.O.C.**\
+`The new leader of the Olympic movement will have several urgent issues to deal with straight away, including the rights of transgender athletes and the challenges posed by the climate crisis.`\
+https://nytimes.com/2025/03/20/world/olympics/ioc-election-president.html
+
 **Thomas Tuchel says England were 'afraid of defeat' at Euro 2024**\
 `"I felt tension and pressure on the shoulders of the players," Tuchel said on Thursday. "They were more afraid."`\
 https://nytimes.com/athletic/6218528/2025/03/20/thomas-tuchel-england-euros/
