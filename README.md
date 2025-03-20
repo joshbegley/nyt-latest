@@ -1,3 +1,11 @@
+**Celtics draft prospects to watch in March Madness: Would Ryan Kalkbrenner or Johni Broome fit?**\
+`As the NCAA Tournament begins, here are some of the players potentially in range whom the Celtics should be keeping an eye on.`\
+https://nytimes.com/athletic/6216997/2025/03/20/march-madness-celtics-draft-ryan-kalkbrenner-johni-broome/
+
+**How to watch No. 5 Michigan vs. No. 12 UC San Diego in the NCAA Tournament**\
+`Michigan is fresh off winning the Big Ten tournament. Will the Wolverines maintain that momentum into the NCAA Tournament vs. UC San Diego?`\
+https://nytimes.com/athletic/6216547/2025/03/20/michigan-uc-san-diego-ncaa-tournament-how-to-watch/
+
 **Meet Luca Marrelli, the Blue Jackets's breakout prospect**\
 `Marrelli, a third-round pick in 2024, has already been signed by Columbus to an entry-level contract.`\
 https://nytimes.com/athletic/6203484/2025/03/20/blue-jackets-prospect-luca-marrelli/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6216567/2025/03/20/alabama-spring-football-kalen-de
 **The U.S., Canada, Mexico and Panama are playing in a soccer tournament**\
 `The Concacaf Nations League title playoffs bring together the U.S. and three nations caught in the crosshairs of Trump's rhetoric`\
 https://nytimes.com/athletic/6215662/2025/03/20/concacaf-nations-league-usa-mexico-canada-panama-world-cup-trump/
-
-**With new perspective, Josh Sargent is primed for this USMNT opportunity**\
-`Sargent enters the Nations League finals as the U.S.'s top choice at striker, and it's an opportunity he doesn't take lightly.`\
-https://nytimes.com/athletic/6217363/2025/03/20/josh-sargent-usmnt-nations-league-striker-norwich-pochettino/
-
-**Caleb Love's college career has been about perseverance. Is a big March Madness ahead?**\
-`"I'm proud of myself that I kept going," Love said. "With the spotlight I had coming into college, a lot of people would have folded."`\
-https://nytimes.com/athletic/6216990/2025/03/20/caleb-love-arizona-basketball-march-madness/
 
