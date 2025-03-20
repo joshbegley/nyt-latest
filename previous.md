@@ -1,4 +1,8 @@
-**Men's March Madness Day 1 takeaways: 12-seed McNeese St. topples Clemson**\
+**USMNT vs. Panama LIVE: Pochettino's U.S. aims for Nations League final**\
+`All the highlights and key plays from the USMNT's Concacaf Nations League semifinal vs. Panama`\
+https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
+
+**Men's March Madness Day 1 takeaways: No. 12 McNeese upsets Clemson**\
 `It was a rough start for the ACC as Louisville also fell on Day 1. Top seeds Houston, Auburn cruise.`\
 https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219694/2025/03/20/braves-observations-schwellenbac
 **No. 12-seed McNeese hangs on to upset 5-seed Clemson**\
 `Despite a late push by Clemson, McNeese claimed its first NCAA Tournament win since moving to Division I in 1972-73.`\
 https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-tournament/
-
-**Judge Bars Social Security Officials From Giving DOGE Unredacted Data**\
-`A federal judge in Maryland found that Elon Musk’s scrutiny of the agency’s data systems appeared to violate federal privacy laws.`\
-https://nytimes.com/2025/03/20/us/politics/musk-doge-social-security-records.html
 
