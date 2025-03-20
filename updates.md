@@ -1,3 +1,13 @@
+**Jury Duty, but Make It Fun**\
+`Immersive theater productions are taking jury service, which most consider a burden to be avoided at all costs, and packaging it as entertainment.`\
+https://nytimes.com/2025/03/20/arts/jury-duty-experience-game.html
+
+**Concacaf Nations League: Who’s the best bet to reach the final?**\
+`Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
+
+`\
+https://nytimes.com/athletic/6215475/2025/03/20/concacaf-nations-league-betting-tips-predictions-usmnt/
+
 **Concacaf Nations League: Who’s the best bet to reach the final?**\
 `Julia Ranney previews the 2025 Concacaf Nations League semi-finals, outlining the key players, storylines, and which teams to bet on.
 
