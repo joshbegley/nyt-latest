@@ -1,3 +1,27 @@
+**As Britons Prepare for Inflation Jump, Bank of England Remains Cautious**\
+`Policymakers held interest rates at 4.5 percent on Thursday as they warned of rising economic uncertainty. Households are also bracing for higher utility costs starting next month.`\
+https://nytimes.com/2025/03/20/business/uk-economy-inflation-interest-rates.html
+
+**Barcelona inform fans club will not return to the Camp Nou this season**\
+`Barcelona had initially intended to return to playing their home games at their iconic home ground before the end of 2024.`\
+https://nytimes.com/athletic/6218113/2025/03/20/barcelona-camp-nou-return/
+
+**Marsch wants aggressive, fearless Canada for Nations League title tilt**\
+`Canada's head coach is not pulling any punches ahead of the Concacaf Nations League playoffs.`\
+https://nytimes.com/athletic/6217689/2025/03/20/jesse-marsch-canada-aggressive-nations-league/
+
+**Eddie Jordan was one of a kind. F1 will never see a team boss like him again**\
+`Everything Eddie Jordan did was done with passion and heart. That’s as great a legacy as anyone can wish to leave in F1.`\
+https://nytimes.com/athletic/6217986/2025/03/20/eddie-jordan-tributes-formula-one/
+
+**This Octopus’s Other Car Is a Shark**\
+`Researchers in New Zealand saw a colorful blob on top of a shark’s head. When they looked closer, they realized it had eight arms.`\
+https://nytimes.com/2025/03/20/science/octopus-riding-shark-new-zealand.html
+
+**NBA Awards Watch: Jokić or SGA? Let's go deep on the MVP debate**\
+`What should and shouldn't matter in a race involving two historic individual seasons?`\
+https://nytimes.com/athletic/6209097/2025/03/20/nba-awards-watch-mvp-shai-gilgeous-alexander-nikola-jokic/
+
 **Trump Wants to Take Over Ukraine’s Nuclear Plants. What Would That Mean?**\
 `The White House said taking ownership of Ukrainian plants would give them the “best protection.” The idea faces legal hurdles and operational challenges, and it’s unclear if Ukraine would agree to it.`\
 https://nytimes.com/2025/03/20/world/europe/trump-ukraine-nuclear-plants.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/20/world/europe/ukraine-attacks-russia-airbase-engel
 **Europe Delays Tariffs on U.S. Whiskey and Other Goods**\
 `The European trade commissioner said U.S. officials want to start negotiating only after a fresh set of Trump administration tariffs takes effect on April 2.`\
 https://nytimes.com/2025/03/20/world/europe/us-tariffs-eu-whiskey.html
-
-**Ex-Germany youth 'keeper Dahmen says he 'can imagine' playing for England**\
-`Dahmen, 26, qualifies to represent England through his mother. He has previously represented Germany at youth level.`\
-https://nytimes.com/athletic/6218049/2025/03/20/finn-dahmen-england-germany/
-
-**The Wizards and Jazz raced their way to the bottom Wednesday. It wasn't pretty**\
-`The draft lottery was front-and-center when the teams with the league's two worst records squared off with some curious lineups.`\
-https://nytimes.com/athletic/6217784/2025/03/20/washington-wizards-utah-jazz/
-
-**Powell Revives a Debate on ‘Transitory’ Inflation**\
-`Investors cheered the Federal Reserve chair’s assessment. But some economists fear a case of déjà vu.`\
-https://nytimes.com/2025/03/20/business/dealbook/powell-tariff-transitory-inflation.html
-
-**U.S. Turned Away French Scientist Over Views on Trump Policies, France Says**\
-`The French authorities said the academic had been traveling to a conference near Houston when border officials blocked his entry because of conversations found on his phone.`\
-https://nytimes.com/2025/03/20/world/europe/us-france-scientist-entry-trump-messages.html
-
-**The Athletic FC: Why Concacaf Nations League may get political, Chelsea's unbeaten run ends**\
-`Today in TAFC: Why the Concacaf Nations League could get political. Plus: A DAZN/McDonald's deal and a women's £5m seven-a-side tournament.`\
-https://nytimes.com/athletic/6217892/2025/03/20/concacaf-nations-league-chelsea-unbeaten-run/
-
-**What Twins coach Ramon Borrego brings to the bigs after 20 years in minors: 'He's earned it'**\
-`After decades in the minors as a player, coach and manager, Borrego finally got the call. "He's earned it," Rocco Baldelli said.`\
-https://nytimes.com/athletic/6194974/2025/03/20/ramon-borrego-twins-infield-coach/
 
