@@ -1,8 +1,12 @@
+**Alex Ovechkin 7 goals away from breaking Wayne Gretzky's record with No. 888**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
+
 **Is Playboi Carti Rap’s Next — or Last — Superstar?**\
 `After nearly five years of building hype, the Atlanta rapper’s 30-song third album, “Music,” has finally arrived. Let’s discuss.`\
 https://nytimes.com/2025/03/20/arts/music/playboi-carti-music-popcast.html
 
-**Trump Signs Executive Order to Close Education Department**\
+**Trump Signs Executive Order to Dismantle Education Department**\
 `The order instructs the education secretary to begin dismantling the agency, which can’t close without Congress’s approval.`\
 https://nytimes.com/video/us/politics/100000010064355/trump-executive-order-close-education-department.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/paul-weiss-deal-trump-executive-order
 **After Baltimore Collapse, Risk Reviews Urged for Dozens of U.S. Bridges**\
 `The Brooklyn Bridge and the Golden Gate are among those that need assessments of their vulnerability to a strike by a large ship like the one that hit the Key Bridge.`\
 https://nytimes.com/2025/03/20/us/baltimore-collapse-risk-reviews-us-bridges.html
-
-**Sound Engineer for Eminem Stole and Sold His Songs for Bitcoin, U.S. Says**\
-`About 25 unreleased songs by the rapper were discovered online, and investigators traced sales of the music to a former employee, according to federal prosecutors.`\
-https://nytimes.com/2025/03/20/us/eminem-music-leaked-engineer-charged.html
 
