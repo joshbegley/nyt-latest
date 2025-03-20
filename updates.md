@@ -1,3 +1,19 @@
+**Is Playboi Carti Rap’s Next — or Last — Superstar?**\
+`After nearly five years of building hype, the Atlanta rapper’s 30-song third album, “Music,” has finally arrived. Let’s discuss.`\
+https://nytimes.com/2025/03/20/arts/music/playboi-carti-music-popcast.html
+
+**Trump Signs Executive Order to Close Education Department**\
+`The order instructs the education secretary to begin dismantling the agency, which can’t close without Congress’s approval.`\
+https://nytimes.com/video/us/politics/100000010064355/trump-executive-order-close-education-department.html
+
+**Reds' Opening Day roster down to final spots: Roster predictions 4.0**\
+`It appears the final spot in the rotation and the fifth outfielder spot are the only roster decisions left.`\
+https://nytimes.com/athletic/6219959/2025/03/20/reds-opening-day-roster-prediction-4/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **USMNT vs. Panama LIVE: Pochettino's U.S. aims for Nations League final**\
 `All the highlights and key plays from the USMNT's Concacaf Nations League semifinal vs. Panama`\
 https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/

@@ -1,3 +1,19 @@
+**Is Playboi Carti Rap’s Next — or Last — Superstar?**\
+`After nearly five years of building hype, the Atlanta rapper’s 30-song third album, “Music,” has finally arrived. Let’s discuss.`\
+https://nytimes.com/2025/03/20/arts/music/playboi-carti-music-popcast.html
+
+**Trump Signs Executive Order to Close Education Department**\
+`The order instructs the education secretary to begin dismantling the agency, which can’t close without Congress’s approval.`\
+https://nytimes.com/video/us/politics/100000010064355/trump-executive-order-close-education-department.html
+
+**Reds' Opening Day roster down to final spots: Roster predictions 4.0**\
+`It appears the final spot in the rotation and the fifth outfielder spot are the only roster decisions left.`\
+https://nytimes.com/athletic/6219959/2025/03/20/reds-opening-day-roster-prediction-4/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **USMNT vs. Panama LIVE: Pochettino's U.S. aims for Nations League final**\
 `All the highlights and key plays from the USMNT's Concacaf Nations League semifinal vs. Panama`\
 https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/20/us/baltimore-collapse-risk-reviews-us-bridges.htm
 **Sound Engineer for Eminem Stole and Sold His Songs for Bitcoin, U.S. Says**\
 `About 25 unreleased songs by the rapper were discovered online, and investigators traced sales of the music to a former employee, according to federal prosecutors.`\
 https://nytimes.com/2025/03/20/us/eminem-music-leaked-engineer-charged.html
-
-**Trump Ordered the Shutdown of the Education Department**\
-`Congress and federal law stand in his way. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/03/20/briefing/trump-education-department-shutdown.html
-
-**White House says test scores haven’t improved since 1979. That’s not true.**\
-`Recent sharp declines, including during the pandemic, flattened scores. But for much of the last half-century, student achievement was climbing.`\
-https://nytimes.com/live/2025/03/20/us/trump-education-news/white-house-says-test-scores-havent-improved-since-1979-thats-not-true
-
-**Schwellenbach is superb, Verdugo is signed, Smith-Shawver is rising: Braves observations**\
-`After surpassing expectations last season as a rookie with no experience above Double A, Schwellenbach looks capable of even more.`\
-https://nytimes.com/athletic/6219694/2025/03/20/braves-observations-schwellenbach-verdugo-smith-shawver/
-
-**No. 12-seed McNeese hangs on to upset 5-seed Clemson**\
-`Despite a late push by Clemson, McNeese claimed its first NCAA Tournament win since moving to Division I in 1972-73.`\
-https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-tournament/
 
