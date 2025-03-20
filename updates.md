@@ -1,3 +1,19 @@
+**Bernie Sanders Has an Idea for the Left: Don’t Run as Democrats**\
+`The Vermont senator, who has long had a tense relationship with the Democratic Party, suggested in an interview that more progressives should join him in running as independents.`\
+https://nytimes.com/2025/03/20/us/politics/bernie-sanders-democrats-independents.html
+
+**Angela Stanford named U.S. captain for 2026 Solheim Cup**\
+`The Americans have only won three overseas Solheim Cups in nine attempts. Stanford played on two of those three victorious teams.`\
+https://nytimes.com/athletic/6216881/2025/03/20/angela-stanford-us-captain-2026-solheim-cup/
+
+**Trinity Rodman, Ben Shelton and how high-profile relationships affect soccer careers**\
+`Rodman and Shelton have gone public - it's not easy combining a sports career with a high-profile relationship, but it is doable`\
+https://nytimes.com/athletic/6215514/2025/03/20/trinity-rodman-ben-shelton-relationships-soccer/
+
+**Man Utd disabled supporters' group concerned over 'deterioration' of experiences**\
+`The letter detailed several concerns over a "disconnect" between club and its fans "regarding the increasing emphasis on disability issues".`\
+https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-supporters-concerns/
+
 **Man Utd disabled supporters group concerned over 'deterioration' of experiences**\
 `The letter detailed several concerns over a "disconnect" between club and its fans "regarding the increasing emphasis on disability issues".`\
 https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-supporters-concerns/
