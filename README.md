@@ -1,6 +1,14 @@
+**The BookKeeper - Exploring Arsenal's finances, transfer funds, owner debts and soaring revenues**\
+`In-depth analysis of Arsenal's economic situation from The Athletic's new specialist football finance writer`\
+https://nytimes.com/athletic/6131043/2025/03/20/the-bookkeeper-arsenal-finances-transfer-psr/
+
 **Mason Melia, Michael Noonan, Christopher Atherton: Is there something happening with Irish boys?**\
 `From the outside looking in, teenage talent is making a mark at senior level on both sides of the Irish border and attracting covetous eyes`\
 https://nytimes.com/athletic/6215426/2025/03/20/ireland-melia-duff-noonan-atherton-northern-republic-academies/
+
+**Tuchel shouldn't try to coach like he's English. The past teaches us that**\
+`The former Chelsea manager has spoken about a playing style mirroring traditional English strengths. But he shouldn’t overlook his own`\
+https://nytimes.com/athletic/6215591/2025/03/20/tuchel-shouldnt-try-to-coach-like-hes-english/
 
 **Who would our writers pick to start for England in the first game of the Tuchel era?**\
 `Our writers outline the approach they would like to see as England's new manager gets his tenure under way`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/opinion/us-iran-nuclear-weapons.html
 **‘Operation Pursuit’: Inside the High-Stakes Arrest of Rodrigo Duterte**\
 `The man who ordered the Philippines’ bloody war on drugs is now in a cell at The Hague. Getting him there was far from a sure thing.`\
 https://nytimes.com/2025/03/20/world/asia/philippines-rodrigo-duterte-arrest.html
-
-**University of California Will Stop Requiring Diversity Statements in Hiring**\
-`The statements had risen in popularity as colleges sought to improve campus culture, but they drew criticism from conservatives who argued they were a political test.`\
-https://nytimes.com/2025/03/20/us/diversity-statements-university-of-california.html
-
-**SailGP A to Z: From Australia to Zones, an alphabetical guide to the high-octane championship**\
-`Terminology and names to help the uninitiated understand what's going on out there on the water.`\
-https://nytimes.com/athletic/6212486/2025/03/20/sailgp-a-to-z-guide/
 
