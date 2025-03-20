@@ -1,3 +1,7 @@
+**Marcus Freeman feeling 'recalibrated' as Notre Dame opens spring practice**\
+`Here's what else we learned on day one about the Irish quarterback competition, defensive transfers, the receiver spot and more. `\
+https://nytimes.com/athletic/6217049/2025/03/19/notre-dame-spring-practice-day-one-marcus-freeman/
+
 **Kansas Voters Will Decide Whether to Hold Open Elections for State Supreme Court**\
 `A question on the ballot next year will ask voters to amend the Constitution to set open elections. Republicans said it would empower Kansans, while Democrats argued it would politicize the judiciary.`\
 https://nytimes.com/2025/03/19/us/kansas-supreme-court-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/us/politics/tim-walz-elon-musk-democrats-immigrat
 **Trump Says Houthis in Yemen Will Be ‘Annihilated,’ as U.S. Keeps Up Strikes**\
 `The president warned Iran to stop arming the militant group, which has been attacking ships in the Red Sea.`\
 https://nytimes.com/2025/03/19/world/middleeast/trump-houthis-yemen-strikes.html
-
-**N.Y. Leaders Considering Ban on Wearing Face Masks in Public**\
-`Gov. Kathy Hochul is pushing for a partial ban on face coverings, wading into a contentious issue that has arisen amid protests on campus.`\
-https://nytimes.com/2025/03/19/nyregion/mask-ban-ny-hochul.html
 

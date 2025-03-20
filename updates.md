@@ -1,3 +1,7 @@
+**Marcus Freeman feeling 'recalibrated' as Notre Dame opens spring practice**\
+`Here's what else we learned on day one about the Irish quarterback competition, defensive transfers, the receiver spot and more. `\
+https://nytimes.com/athletic/6217049/2025/03/19/notre-dame-spring-practice-day-one-marcus-freeman/
+
 **Kansas Voters Will Decide Whether to Hold Open Elections for State Supreme Court**\
 `A question on the ballot next year will ask voters to amend the Constitution to set open elections. Republicans said it would empower Kansans, while Democrats argued it would politicize the judiciary.`\
 https://nytimes.com/2025/03/19/us/kansas-supreme-court-elections.html
