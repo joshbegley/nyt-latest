@@ -1,3 +1,7 @@
+**Mater Dei High School signs 10-year, 7-figure multimedia rights deal**\
+`According to Mater Dei, the deal makes the high school the first in the country to sign such an agreement.`\
+https://nytimes.com/athletic/6216896/2025/03/19/mater-dei-high-school-media-deal-playfly-nil/
+
 **Marcus Freeman feeling 'recalibrated' as Notre Dame opens spring practice**\
 `Here's what else we learned on day one about the Irish quarterback competition, defensive transfers, the receiver spot and more. `\
 https://nytimes.com/athletic/6217049/2025/03/19/notre-dame-spring-practice-day-one-marcus-freeman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/19/nyregion/chinese-repression-sentence-an-quanzhong
 **Taking a Page From Trump’s Book**\
 `Tim Walz’s comments about Elon Musk suggest an attack on the tech billionaire’s immigrant background is making its way into the public conversation.`\
 https://nytimes.com/2025/03/19/us/politics/tim-walz-elon-musk-democrats-immigration.html
-
-**Trump Says Houthis in Yemen Will Be ‘Annihilated,’ as U.S. Keeps Up Strikes**\
-`The president warned Iran to stop arming the militant group, which has been attacking ships in the Red Sea.`\
-https://nytimes.com/2025/03/19/world/middleeast/trump-houthis-yemen-strikes.html
 

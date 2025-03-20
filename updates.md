@@ -1,3 +1,7 @@
+**Mater Dei High School signs 10-year, 7-figure multimedia rights deal**\
+`According to Mater Dei, the deal makes the high school the first in the country to sign such an agreement.`\
+https://nytimes.com/athletic/6216896/2025/03/19/mater-dei-high-school-media-deal-playfly-nil/
+
 **Touring Kennedy Center, Trump Mused on His Childhood ‘Aptitude for Music’**\
 `The president, who recently took over Washington’s major performing arts center, reportedly said that he had not been encouraged to develop his musical talents.`\
 https://nytimes.com/2025/03/19/arts/music/trump-kennedy-center-music.html
