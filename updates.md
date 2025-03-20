@@ -1,3 +1,7 @@
+**Word of the Day: archivist**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
+
 **Overtime Pay for 9 Extra Months in Space? Nope.**\
 `Suni Williams and Butch Wilmore do not get overtime for their unexpectedly long stay on the International Space Station, according to NASA rules. But they do get $5 a day for “incidentals.”`\
 https://nytimes.com/2025/03/20/us/nasa-astronauts-overtime.html
