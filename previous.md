@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6205395/2025/03/20/peter-mullan-bill-shankly-play/
 `While World Cup 2026 qualifiers begin across Europe over the next week, there are also important Nations League games happening`\
 https://nytimes.com/athletic/6213018/2025/03/20/uefa-nations-league-latest-analysis/
 
+**Why have Brighton suffered so many injuries and how will they avoid a repeat?**\
+`Frustratingly for Brighton, they have led the Premier League this season when it comes to injuries - can they break the pattern?`\
+https://nytimes.com/athletic/6143322/2025/03/20/brighton-injuries/
+
 **In Rush to Release Kennedy Files, Personal Information Went Public, Too**\
 `Social Security numbers and other personal details were included in the 64,000 pages of documents that the Trump administration declassified this week.`\
 https://nytimes.com/2025/03/20/us/jfk-assassination-files-personal-information.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212119/2025/03/20/why-unai-emery-changing-his-side
 **Penders will join Chelsea in the summer - is he ready for the Premier League?**\
 `Goalkeeper Mike Penders is 19 and has only just broken into the first-team at Genk`\
 https://nytimes.com/athletic/6215603/2025/03/20/mike-penders-chelsea-analysis/
-
-**Evan Ferguson is yet to start on loan at West Ham. Will he make an impact after the break?**\
-`Striker Ferguson has played just 92 minutes across five appearances since his move to West Ham on loan from Brighton in February`\
-https://nytimes.com/athletic/6212267/2025/03/20/evan-ferguson-west-ham-analysis/
 

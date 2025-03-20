@@ -1,3 +1,7 @@
+**Why have Brighton suffered so many injuries and how will they avoid a repeat?**\
+`Frustratingly for Brighton, they have led the Premier League this season when it comes to injuries - can they break the pattern?`\
+https://nytimes.com/athletic/6143322/2025/03/20/brighton-injuries/
+
 **Word of the Day: archivist**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/20/learning/word-of-the-day-archivist.html
