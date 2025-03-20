@@ -1,3 +1,15 @@
+**Kansas Voters Will Decide Whether to Hold Open Elections for State Supreme Court**\
+`A question on the ballot next year will ask voters to amend the Constitution to set open elections. Republicans said it would empower Kansans, while Democrats argued it would politicize the judiciary.`\
+https://nytimes.com/2025/03/19/us/kansas-supreme-court-elections.html
+
+**Free-agent WR Stefon Diggs visiting with Patriots: Source**\
+`Diggs, a free agent, 10-year veteran and former All-Pro with six 1,000-yard seasons, is in Foxboro, Mass., visiting with the team.`\
+https://nytimes.com/athletic/6217181/2025/03/19/stefon-diggs-patriots-visit-free-agent/
+
+**John Lynch says 49ers 'have a plan' after team's free-agency roster purge**\
+`The 49ers will have to replenish their roster in the upcoming NFL Draft, in which they own 11 picks. `\
+https://nytimes.com/athletic/6217033/2025/03/19/john-lynch-49ers-plan-free-agency-roster/
+
 **Trump Is Said to Sign Order Aimed at Dismantling Education Department**\
 `The order will lay the groundwork for eventually shuttering the agency, reassigning some of its primary duties.`\
 https://nytimes.com/2025/03/19/us/politics/trump-education-department.html
