@@ -1,3 +1,15 @@
+**No. 12-seed McNeese hangs on to upset 5-seed Clemson**\
+`Despite a late push by Clemson, McNeese claimed its first NCAA Tournament win since moving to Division I in 1972-73.`\
+https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-tournament/
+
+**Judge Bars Social Security Officials From Giving DOGE Unredacted Data**\
+`A federal judge in Maryland found that Elon Musk’s scrutiny of the agency’s data systems appeared to violate federal privacy laws.`\
+https://nytimes.com/2025/03/20/us/politics/musk-doge-social-security-records.html
+
+**Intelligence Assessment Said to Contradict Trump on Venezuelan Gang**\
+`To invoke wartime deportation powers, President Trump asserted that Venezuela’s government controls a gang. U.S. intelligence analysts think that is not true.`\
+https://nytimes.com/2025/03/20/us/politics/intelligence-trump-venezuelan-gang-alien-enemies.html
+
 **As Fox Gets a Trump Bump, Bret Baier Closes In on His Broadcast Rivals**\
 `“I don’t think it’s bad to have the commander in chief be a regular viewer of the show,” the anchor said in an interview.`\
 https://nytimes.com/2025/03/20/business/fox-news-bret-baier-ratings.html
