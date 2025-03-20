@@ -1,3 +1,11 @@
+**Hamas Fires Rockets at Tel Aviv as Israel Expands Gaza Ground Operations**\
+`A two-month cease-fire in Gaza collapsed this week amid a renewed Israeli bombardment. The fighting now looks like it is escalating back to full-scale war.`\
+https://nytimes.com/2025/03/20/world/middleeast/hamas-attack-tel-aviv-israel-gaza.html
+
+**'Just get him the ball': Cade Cunningham caps big night with game-winning 3 against Heat**\
+`The Pistons' point guard's teammates say he is playing at an All-NBA level. "He's been the best guard in the NBA all year if you ask me."`\
+https://nytimes.com/athletic/6218243/2025/03/20/cade-cunningham-pistons-heat/
+
 **Barcelona and Osasuna's appeal to reschedule La Liga match rejected**\
 `Barcelona's Raphinha and Ronald Araujo and Osasuna's Enzo Boyomo will likely miss the game due to their international commitments.`\
 https://nytimes.com/athletic/6218219/2025/03/20/barcelona-osasuna-appeal-rejected/

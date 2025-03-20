@@ -1,3 +1,11 @@
+**Hamas Fires Rockets at Tel Aviv as Israel Expands Gaza Ground Operations**\
+`A two-month cease-fire in Gaza collapsed this week amid a renewed Israeli bombardment. The fighting now looks like it is escalating back to full-scale war.`\
+https://nytimes.com/2025/03/20/world/middleeast/hamas-attack-tel-aviv-israel-gaza.html
+
+**'Just get him the ball': Cade Cunningham caps big night with game-winning 3 against Heat**\
+`The Pistons' point guard's teammates say he is playing at an All-NBA level. "He's been the best guard in the NBA all year if you ask me."`\
+https://nytimes.com/athletic/6218243/2025/03/20/cade-cunningham-pistons-heat/
+
 **Barcelona and Osasuna's appeal to reschedule La Liga match rejected**\
 `Barcelona's Raphinha and Ronald Araujo and Osasuna's Enzo Boyomo will likely miss the game due to their international commitments.`\
 https://nytimes.com/athletic/6218219/2025/03/20/barcelona-osasuna-appeal-rejected/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6216881/2025/03/20/angela-stanford-us-captain-2026-
 **Trinity Rodman, Ben Shelton and how high-profile relationships affect soccer careers**\
 `Rodman and Shelton have gone public - it's not easy combining a sports career with a high-profile relationship, but it is doable`\
 https://nytimes.com/athletic/6215514/2025/03/20/trinity-rodman-ben-shelton-relationships-soccer/
-
-**Man Utd disabled supporters' group concerned over 'deterioration' of experiences**\
-`The letter detailed several concerns over a "disconnect" between club and its fans "regarding the increasing emphasis on disability issues".`\
-https://nytimes.com/athletic/6218128/2025/03/20/manchester-united-disabled-supporters-concerns/
-
-**1 Person Injured in Shooting in Michigan Hospital Parking Lot**\
-`A victim was in stable condition after being shot in the arm in Troy, Mich., and the police said the gunman was in custody. Both were hospital employees.`\
-https://nytimes.com/2025/03/20/us/shooting-troy-beaumont-hospital-michigan.html
 
