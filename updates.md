@@ -1,3 +1,15 @@
+**Sprung From the Attic, Flannery O’Connor’s Artworks See the Light**\
+`The darkly comic Southern novelist kept a quiet practice in the visual arts. For the centenary of her birth, her paintings are finally getting an audience — and updating her legacy.`\
+https://nytimes.com/2025/03/20/arts/design/flannery-oconnors-paintings-georgia-college.html
+
+**Andy Baraghani Made You a Menu**\
+`More specifically, he’s designed a gorgeous, herby feast to celebrate the Persian New Year, including this ultra-green kuku sabzi.`\
+https://nytimes.com/2025/03/20/dining/kuku-sabzi-nowruz.html
+
+**Doctors Told Him He Was Going to Die. Then A.I. Saved His Life.**\
+`Scientists are using machine learning to find new treatments among thousands of old medicines.`\
+https://nytimes.com/2025/03/20/well/ai-drug-repurposing.html
+
 **Robert E. Ginna Jr., Whose Article Bolstered U.F.O. Claims, Dies at 99**\
 `A founding editor of People, he also served as editor in chief of Little, Brown and produced films. But his public image was defined by a 1952 story for Life.`\
 https://nytimes.com/2025/03/20/books/robert-ginna-dead.html
