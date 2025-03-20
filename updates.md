@@ -1,3 +1,11 @@
+**Europe Delays Tariffs on U.S. Whiskey and Other Goods**\
+`The European trade commissioner said U.S. officials want to start negotiating only after a fresh set of Trump administration tariffs takes effect on April 2.`\
+https://nytimes.com/2025/03/20/world/europe/us-tariffs-eu-whiskey.html
+
+**Ex-Germany youth 'keeper Dahmen says he 'can imagine' playing for England**\
+`Dahmen, 26, qualifies to represent England through his mother. He has previously represented Germany at youth level.`\
+https://nytimes.com/athletic/6218049/2025/03/20/finn-dahmen-england-germany/
+
 **The Wizards and Jazz raced their way to the bottom Wednesday. It wasn't pretty**\
 `The draft lottery was front-and-center when the teams with the league's two worst records squared off with some curious lineups.`\
 https://nytimes.com/athletic/6217784/2025/03/20/washington-wizards-utah-jazz/
