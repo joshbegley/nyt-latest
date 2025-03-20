@@ -1,3 +1,7 @@
+**Top Washington Post Alumni Urged Jeff Bezos to Replace C.E.O.**\
+`An emailed message underscores a divide between the chief executive, Will Lewis, and the people who helped build The Post into a force in American journalism.`\
+https://nytimes.com/2025/03/20/business/media/washington-post-jeff-bezos-will-lewis.html
+
 **‘Shared Custody’ Is a Prickly Spanish Divorce Drama**\
 `And as with many European series, this one, on Hulu, features plenty of cool sweaters and hot tempers.`\
 https://nytimes.com/2025/03/20/arts/television/shared-custody-hulu.html
