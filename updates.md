@@ -1,3 +1,11 @@
+**The homophobic fan chant at Mexico matches and protocols to stop it**\
+`Mexico matches in competitions have regularly been marred by an anti-gay fan chant when opposing goalkeepers take goal kicks.`\
+https://nytimes.com/athletic/6219313/2025/03/20/mexico-fan-chant-homophobic-concacaf-nations-league-fifa/
+
+**Lenny Schultz, Comedian Who Made a Lot of Noise, Dies at 91**\
+`A highly physical performer, he said he couldn’t tell jokes. But he became well known for a wild act that fellow comedians didn’t want to follow.`\
+https://nytimes.com/2025/03/20/arts/television/lenny-schultz-dead.html
+
 **Trump Administration Sends a New Group of Migrants to Guantánamo Bay**\
 `Officials have said most of the people sent to the U.S. base are members of a Venezuelan gang but have not offered evidence to support that claim.`\
 https://nytimes.com/2025/03/20/us/politics/more-migrants-guantanamo-bay.html
