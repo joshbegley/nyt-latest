@@ -1,3 +1,11 @@
+**Tuchel says England football team should “not be a political statement”**\
+`Tuchel's predecessor Gareth Southgate was initially open to taking public views on political and social issues.`\
+https://nytimes.com/athletic/6219561/2025/03/20/thomas-tuchel-england-politics/
+
+**Big Law Firm Reaches Deal With Trump Over Executive Order**\
+`Paul, Weiss — one of three law firms targeted by President Trump as part of his retribution campaign — said it resolved the conflict by agreeing to a range of commitments.`\
+https://nytimes.com/2025/03/20/us/politics/paul-weiss-deal-trump-executive-order-withdrawn.html
+
 **After Baltimore Collapse, Risk Reviews Urged for Dozens of U.S. Bridges**\
 `The Brooklyn Bridge and the Golden Gate are among those that need assessments of their vulnerability to a strike by a large ship like the one that hit the Key Bridge.`\
 https://nytimes.com/2025/03/20/us/baltimore-collapse-risk-reviews-us-bridges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/musk-doge-social-security-records.htm
 **Intelligence Assessment Said to Contradict Trump on Venezuelan Gang**\
 `To invoke wartime deportation powers, President Trump asserted that Venezuela’s government controls a gang. U.S. intelligence analysts think that is not true.`\
 https://nytimes.com/2025/03/20/us/politics/intelligence-trump-venezuelan-gang-alien-enemies.html
-
-**As Fox Gets a Trump Bump, Bret Baier Closes In on His Broadcast Rivals**\
-`“I don’t think it’s bad to have the commander in chief be a regular viewer of the show,” the anchor said in an interview.`\
-https://nytimes.com/2025/03/20/business/fox-news-bret-baier-ratings.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

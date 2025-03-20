@@ -1,3 +1,11 @@
+**Tuchel says England football team should “not be a political statement”**\
+`Tuchel's predecessor Gareth Southgate was initially open to taking public views on political and social issues.`\
+https://nytimes.com/athletic/6219561/2025/03/20/thomas-tuchel-england-politics/
+
+**Big Law Firm Reaches Deal With Trump Over Executive Order**\
+`Paul, Weiss — one of three law firms targeted by President Trump as part of his retribution campaign — said it resolved the conflict by agreeing to a range of commitments.`\
+https://nytimes.com/2025/03/20/us/politics/paul-weiss-deal-trump-executive-order-withdrawn.html
+
 **After Baltimore Collapse, Risk Reviews Urged for Dozens of U.S. Bridges**\
 `The Brooklyn Bridge and the Golden Gate are among those that need assessments of their vulnerability to a strike by a large ship like the one that hit the Key Bridge.`\
 https://nytimes.com/2025/03/20/us/baltimore-collapse-risk-reviews-us-bridges.html

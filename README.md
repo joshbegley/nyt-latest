@@ -1,3 +1,7 @@
+**Men's March Madness Day 1 takeaways: 12-seed McNeese St. topples Clemson**\
+`It was a rough start for the ACC as Louisville also fell on Day 1. Top seeds Houston, Auburn cruise.`\
+https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
+
 **Tuchel says England football team should “not be a political statement”**\
 `Tuchel's predecessor Gareth Southgate was initially open to taking public views on political and social issues.`\
 https://nytimes.com/athletic/6219561/2025/03/20/thomas-tuchel-england-politics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219849/2025/03/20/mcneese-clemson-will-wade-ncaa-t
 **Judge Bars Social Security Officials From Giving DOGE Unredacted Data**\
 `A federal judge in Maryland found that Elon Musk’s scrutiny of the agency’s data systems appeared to violate federal privacy laws.`\
 https://nytimes.com/2025/03/20/us/politics/musk-doge-social-security-records.html
-
-**Intelligence Assessment Said to Contradict Trump on Venezuelan Gang**\
-`To invoke wartime deportation powers, President Trump asserted that Venezuela’s government controls a gang. U.S. intelligence analysts think that is not true.`\
-https://nytimes.com/2025/03/20/us/politics/intelligence-trump-venezuelan-gang-alien-enemies.html
 
