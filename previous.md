@@ -1,3 +1,19 @@
+**Ex-Cardinals Descalso, Jay reunite as coaches mentoring young talent**\
+`Drafting and developing was the priority for the club when Jay and Descalso were coming through the system.`\
+https://nytimes.com/athletic/6215783/2025/03/20/cardinals-coaches-daniel-descalso-jon-jay/
+
+**UCLA is the top seed in women's March Madness. It only took 36,000 miles to get there**\
+`As a new Big Ten team from the West Coast, the Bruins meticulously managed the impact of increased travel. `\
+https://nytimes.com/athletic/6215903/2025/03/20/ucla-travel-big-ten-march-madness/
+
+**How to watch No. 2 St. John's vs. No. 15 Omaha in the men's NCAA Tournament**\
+`For the first time in a full decade, St. John's is dancing in the field of 64. It is favored over Omaha on Thursday night.`\
+https://nytimes.com/athletic/6211442/2025/03/20/omaha-st-johns-ncaa-tournament-how-to-watch/
+
+**The Phillies paid an analytics company millions. Now they're suing it over 'loss of competitive advantage'**\
+`The Phillies last week sued Zelus Analytics for what they said was an attempt to sell its platform to more NL East teams.`\
+https://nytimes.com/athletic/6216672/2025/03/20/phillies-zelus-analytics-teamworks-lawsuit/
+
 **Global women’s seven-a-side soccer tournament launches with $5m prize pot**\
 `World Sevens Football will consist of eight professional clubs competing for a "game-changing prize pool".`\
 https://nytimes.com/athletic/6217854/2025/03/20/womens-sevens-soccer-football-w7f/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6212154/2025/03/20/mlb-american-league-east-preview
 **A look at the Jets' depth chart — and what might be next — after first wave of free agency**\
 `The way the Jets' roster shapes up ahead of the NFL Draft.`\
 https://nytimes.com/athletic/6215551/2025/03/20/new-york-jets-depth-chart-draft-needs/
-
-**MLB Position Player Tiers 2025: How 100 of the game’s best stack up from Juan Soto to Shohei Ohtani**\
-`We separated the best 100 non-pitchers into different levels to see who reigns supreme. Then we let MLB talent evaluators weigh in.`\
-https://nytimes.com/athletic/6204865/2025/03/20/mlb-position-player-tiers-2025/
-
-**This Week in Sports Trivia: March 20, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6213933/2025/03/20/this-week-in-sports-trivia-march-20-2025/
-
-**David Taylor modeling Oklahoma St. wrestling after Cael Sanderson, Penn St.**\
-`This weekend's NCAAs will provide a litmus test for Cowboys, whose coach is trying to catch the program where he once wrestled.`\
-https://nytimes.com/athletic/6216268/2025/03/20/david-taylor-modeling-oklahoma-state-wrestling-after-cael-sandersons-penn-state/
-
-**Chase Burns hoping he can follow in Rhett Lowder's footsteps — again**\
-`If Burns can take Lowder's path the rest of this year, the Reds will be thrilled.`\
-https://nytimes.com/athletic/6217368/2025/03/20/reds-chase-burns-rhett-lowder/
 

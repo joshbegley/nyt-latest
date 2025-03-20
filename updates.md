@@ -1,3 +1,19 @@
+**Ex-Cardinals Descalso, Jay reunite as coaches mentoring young talent**\
+`Drafting and developing was the priority for the club when Jay and Descalso were coming through the system.`\
+https://nytimes.com/athletic/6215783/2025/03/20/cardinals-coaches-daniel-descalso-jon-jay/
+
+**UCLA is the top seed in women's March Madness. It only took 36,000 miles to get there**\
+`As a new Big Ten team from the West Coast, the Bruins meticulously managed the impact of increased travel. `\
+https://nytimes.com/athletic/6215903/2025/03/20/ucla-travel-big-ten-march-madness/
+
+**How to watch No. 2 St. John's vs. No. 15 Omaha in the men's NCAA Tournament**\
+`For the first time in a full decade, St. John's is dancing in the field of 64. It is favored over Omaha on Thursday night.`\
+https://nytimes.com/athletic/6211442/2025/03/20/omaha-st-johns-ncaa-tournament-how-to-watch/
+
+**The Phillies paid an analytics company millions. Now they're suing it over 'loss of competitive advantage'**\
+`The Phillies last week sued Zelus Analytics for what they said was an attempt to sell its platform to more NL East teams.`\
+https://nytimes.com/athletic/6216672/2025/03/20/phillies-zelus-analytics-teamworks-lawsuit/
+
 **Global women’s seven-a-side soccer tournament launches with $5m prize pot**\
 `World Sevens Football will consist of eight professional clubs competing for a "game-changing prize pool".`\
 https://nytimes.com/athletic/6217854/2025/03/20/womens-sevens-soccer-football-w7f/
