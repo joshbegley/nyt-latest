@@ -1,3 +1,7 @@
+**Trump Signs Order Aimed at Eliminating Education Department ‘Once and for All’**\
+`Congress and federal law stand in the way of shutting down the agency, which manages federal loans for college, tracks student achievement and supports programs for students with disabilities.`\
+https://nytimes.com/2025/03/20/us/politics/trump-education-department.html
+
 **Can Trump Really Abolish the Department of Education?**\
 `President Trump signed an order calling for the agency to close, and has already gutted its staff and programs. Still, students may not see much change, at least at first.`\
 https://nytimes.com/2025/03/20/us/can-trump-dismantle-education-department.html
