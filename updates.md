@@ -1,3 +1,15 @@
+**Iran Releases French Citizen After 2 Years in Detention, Officials Say**\
+`Olivier Grondeau had been accused of spying while visiting Iran on a tourist visa. President Emmanuel Macron of France had denounced his detention as “disgraceful and arbitrary.”`\
+https://nytimes.com/2025/03/20/world/europe/france-iran-prisoner-release.html
+
+**How to watch No. 6 Missouri vs. No. 11 Drake in the NCAA Tournament**\
+`Mizzou is favored to knock out Drake in the first round. It's a clash of styles with the up-tempo Tigers and slow Bulldogs.`\
+https://nytimes.com/athletic/6214381/2025/03/20/missouri-drake-mens-ncaa-tournament-how-to-watch/
+
+**MLB American League East preview 2025: Baseball's powerhouse division is back**\
+`The AL East has long been a powerhouse. This season, it’s as deep and competitive as any division in baseball.`\
+https://nytimes.com/athletic/6212154/2025/03/20/mlb-american-league-east-preview-2025/
+
 **A look at the Jets' depth chart — and what might be next — after first wave of free agency**\
 `The way the Jets' roster shapes up ahead of the NFL Draft.`\
 https://nytimes.com/athletic/6215551/2025/03/20/new-york-jets-depth-chart-draft-needs/

@@ -1,3 +1,15 @@
+**Iran Releases French Citizen After 2 Years in Detention, Officials Say**\
+`Olivier Grondeau had been accused of spying while visiting Iran on a tourist visa. President Emmanuel Macron of France had denounced his detention as “disgraceful and arbitrary.”`\
+https://nytimes.com/2025/03/20/world/europe/france-iran-prisoner-release.html
+
+**How to watch No. 6 Missouri vs. No. 11 Drake in the NCAA Tournament**\
+`Mizzou is favored to knock out Drake in the first round. It's a clash of styles with the up-tempo Tigers and slow Bulldogs.`\
+https://nytimes.com/athletic/6214381/2025/03/20/missouri-drake-mens-ncaa-tournament-how-to-watch/
+
+**MLB American League East preview 2025: Baseball's powerhouse division is back**\
+`The AL East has long been a powerhouse. This season, it’s as deep and competitive as any division in baseball.`\
+https://nytimes.com/athletic/6212154/2025/03/20/mlb-american-league-east-preview-2025/
+
 **A look at the Jets' depth chart — and what might be next — after first wave of free agency**\
 `The way the Jets' roster shapes up ahead of the NFL Draft.`\
 https://nytimes.com/athletic/6215551/2025/03/20/new-york-jets-depth-chart-draft-needs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6216948/2025/03/20/bronny-james-interview-lakers-nb
 **What's driving Auston Matthews and the Maple Leafs' top line to another level?**\
 `The Leafs had one line that looked effective against the red-hot Avalanche on Wednesday, and Matthews led the way.`\
 https://nytimes.com/athletic/6217520/2025/03/20/maple-leafs-matthews-top-line-avalanche/
-
-**Men's March Madness 2025: What to watch for on Day 1**\
-`No. 1 seed Auburn, No. 2 St. John's and No. 7 Kansas are among those in action on Day 1 of the NCAA Tournament.`\
-https://nytimes.com/athletic/6216479/2025/03/20/march-madness-2025-day-1-takeaways/
-
-**Everyone wants to be in the building for Alex Ovechkin's record-breaker — except opposing goalies**\
-`Are Ovechkin's upcoming opponents calendar-watching? You bet. No one wants to be a victim in a historic highlight.`\
-https://nytimes.com/athletic/6216463/2025/03/20/alex-ovechkin-goals-record-goalies/
-
-**The March Madness big man who shoots free throws underhand: ‘Whatever it takes to win’**\
-`"When they called, my first question was, is (Kyler) serious? Because I’m not going to waste my time,” NBA legend Rick Barry said.`\
-https://nytimes.com/athletic/6214098/2025/03/20/march-madness-2025-wofford-terriers-college-basketball/
 
