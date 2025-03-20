@@ -1,3 +1,11 @@
+**Knicks can't have lapses as they did against Spurs at this point in season**\
+`It's not that New York lost to San Antonio that is the problem, it's how it lost.`\
+https://nytimes.com/athletic/6217648/2025/03/20/knicks-loss-spurs-lapses-schedule/
+
+**How it feels to play Shankly on stage: 'He was no f***ing saint'**\
+`Peter Mullan reveals why he wanted to play Liverpool's mythologised manager — and how he captured his fellow Scot's voice`\
+https://nytimes.com/athletic/6205395/2025/03/20/peter-mullan-bill-shankly-play/
+
 **The 2025 Nations League: New structure, how it impacts the World Cup and what’s left to compete for**\
 `While World Cup 2026 qualifiers begin across Europe over the next week, there are also important Nations League games happening`\
 https://nytimes.com/athletic/6213018/2025/03/20/uefa-nations-league-latest-analysis/
