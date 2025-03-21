@@ -1,3 +1,7 @@
+**'Fails to adequately address essential issues': Grand Slams reject tennis tours' future plan**\
+`Tennis' four biggest tournaments have rejected a plan from the men's and women's tours to reconfigure the sport.`\
+https://nytimes.com/athletic/6220845/2025/03/21/tennis-grand-slams-respond-atp-wta-plan-tournament-schedule/
+
 **Hamilton takes first pole position as Ferrari driver for Chinese GP sprint**\
 `The Briton is on pole for the first sprint race of the year with Max Verstappen alongside him on the front row in Shanghai.`\
 https://nytimes.com/athletic/6220850/2025/03/21/lewis-hamilton-ferrari-pole-position-china-sprint/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/21/nyregion/school-cell-phone-ban-nyc.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/03/21/crosswords/spelling-bee-forum.html
-
-**Painting Over**\
-`Do you know why this image was in the news this week and what it shows?`\
-https://nytimes.com/2025/03/21/learning/painting-over.html
 

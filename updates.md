@@ -1,3 +1,8 @@
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+
 **Hamilton takes first pole position as Ferrari driver for Chinese GP sprint**\
 `The Briton is on pole for the first sprint race of the year with Max Verstappen alongside him on the front row in Shanghai.`\
 https://nytimes.com/athletic/6220850/2025/03/21/lewis-hamilton-ferrari-pole-position-china-sprint/
