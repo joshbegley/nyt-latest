@@ -1,3 +1,15 @@
+**Lowetide: Why Oilers' new defenceman Jake Walman is a perfect fit**\
+`Walman brings several above average skills that make him an attractive addition to Edmonton's defence.`\
+https://nytimes.com/athletic/6218557/2025/03/21/oilers-jake-walman-stats/
+
+**Cunha handed additional one-match ban after Bournemouth red card**\
+`The Brazil international was sent off after hitting, kicking and headbutting Milos Kerkez during extra time of the FA Cup defeat on March 1.`\
+https://nytimes.com/athletic/6171081/2025/03/21/matheus-cunha-red-card-ban/
+
+**A guide to Cooper Flagg trading cards**\
+`Everything you need to know about Flagg's nascent trading card market `\
+https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
+
 **Long-Lost Klimt Portrays African Prince**\
 `The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
 https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
