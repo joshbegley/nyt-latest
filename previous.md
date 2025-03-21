@@ -1,3 +1,15 @@
+**NHL identifies billionaire as ownership candidate for potential Houston expansion**\
+`The Friedkin Group already owns two prominent soccer franchises in AS Roma in Serie A and Everton in the Premier League.`\
+https://nytimes.com/athletic/6220247/2025/03/20/houston-nhl-ownership-expansion-friedkin/
+
+**Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
+`Drake, now 31-3, won its first NCAA Tournament game since 1971 and will play the winner of UNC Wilmington and Texas Tech.`\
+https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
+
+**Musk Offers $100 to Wisconsin Voters, Bringing Back a Controversial Tactic**\
+`By offering cash to voters who sign a petition opposing “activist judges,” Elon Musk’s super PAC can help identify conservative voters in a race for the Wisconsin Supreme Court.`\
+https://nytimes.com/2025/03/20/us/politics/elon-musk-wisconsin-petition.html
+
 **Thierry Henry swarmed by Panama celebration after Nations League semis win**\
 `Cecilio Waterman struck the only goal of Thursday’s first semifinal deep into injury time then ran straight toward Henry.`\
 https://nytimes.com/athletic/6220297/2025/03/20/thierry-henry-panama-nations-league-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/trump-education-executive-order-scene
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/20/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Alexandria Ocasio-Cortez Puts Her Own Spin on Bernie Sanders’s Pitch**\
-`The two progressive leaders, one young and one old, are touring Western cities with a similar message but a key difference in how they sell it.`\
-https://nytimes.com/2025/03/20/us/politics/aoc-bernie-sanders-vegas-denver.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Corrections: March 21, 2025**\
-`Corrections that appeared in print on Friday, March 21, 2025.`\
-https://nytimes.com/2025/03/20/pageoneplus/corrections-march-21-2025.html
 

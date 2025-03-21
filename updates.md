@@ -1,3 +1,15 @@
+**NHL identifies billionaire as ownership candidate for potential Houston expansion**\
+`The Friedkin Group already owns two prominent soccer franchises in AS Roma in Serie A and Everton in the Premier League.`\
+https://nytimes.com/athletic/6220247/2025/03/20/houston-nhl-ownership-expansion-friedkin/
+
+**Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
+`Drake, now 31-3, won its first NCAA Tournament game since 1971 and will play the winner of UNC Wilmington and Texas Tech.`\
+https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
+
+**Musk Offers $100 to Wisconsin Voters, Bringing Back a Controversial Tactic**\
+`By offering cash to voters who sign a petition opposing “activist judges,” Elon Musk’s super PAC can help identify conservative voters in a race for the Wisconsin Supreme Court.`\
+https://nytimes.com/2025/03/20/us/politics/elon-musk-wisconsin-petition.html
+
 **Thierry Henry swarmed by Panama celebration after Nations League semis win**\
 `Cecilio Waterman struck the only goal of Thursday’s first semifinal deep into injury time then ran straight toward Henry.`\
 https://nytimes.com/athletic/6220297/2025/03/20/thierry-henry-panama-nations-league-playoffs/
