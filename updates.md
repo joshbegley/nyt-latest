@@ -1,3 +1,11 @@
+**How to watch No. 5 Memphis vs. No. 12 Colorado State in the NCAA Tournament**\
+`Colorado State is only a No. 12 seed, but the Rams are favored against Memphis in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216664/2025/03/21/memphis-colorado-state-mens-ncaa-tournament-how-to-watch/
+
+**When should Jaxson Dart be drafted? Evaluating pros and cons of the Ole Miss QB**\
+`Dart has an intriguing skillset with a live arm but a simplistic college offense leaves him with a need for refinement in the NFL.`\
+https://nytimes.com/athletic/6179747/2025/03/21/jaxson-dart-nfl-draft-qb-mississippi/
+
 **How to watch No. 1 Duke vs. No. 16 Mount St. Mary's in the men's NCAA Tournament**\
 `Duke is favored by more than 30 points over Mount St. Mary's. This first-round game could give insight into Cooper Flagg's ankle injury. `\
 https://nytimes.com/athletic/6218847/2025/03/21/duke-mount-st-marys-ncaa-tournament-how-to-watch/

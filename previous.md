@@ -1,3 +1,11 @@
+**How to watch No. 5 Memphis vs. No. 12 Colorado State in the NCAA Tournament**\
+`Colorado State is only a No. 12 seed, but the Rams are favored against Memphis in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216664/2025/03/21/memphis-colorado-state-mens-ncaa-tournament-how-to-watch/
+
+**When should Jaxson Dart be drafted? Evaluating pros and cons of the Ole Miss QB**\
+`Dart has an intriguing skillset with a live arm but a simplistic college offense leaves him with a need for refinement in the NFL.`\
+https://nytimes.com/athletic/6179747/2025/03/21/jaxson-dart-nfl-draft-qb-mississippi/
+
 **How to watch No. 1 Duke vs. No. 16 Mount St. Mary's in the men's NCAA Tournament**\
 `Duke is favored by more than 30 points over Mount St. Mary's. This first-round game could give insight into Cooper Flagg's ankle injury. `\
 https://nytimes.com/athletic/6218847/2025/03/21/duke-mount-st-marys-ncaa-tournament-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/opinion/trump-courts-presidents-emergencies.html
 **Haim Wonders if ‘Relationships’ are Worth the Trouble**\
 `Plus new tracks from Jason Isbell, Yaeji and more.`\
 https://nytimes.com/2025/03/21/podcasts/haim-wonders-if-relationships-are-worth-the-trouble.html
-
-**The Big Secret About Medicaid: It’s a Middle-Class Benefit**\
-`If you have a parent short on savings, a disabled adult child or a minor with special needs, Medicaid may be your backstop. Plenty of people are unaware.`\
-https://nytimes.com/2025/03/21/your-money/medicaid-trump-long-term-care.html
-
-**In Germany, ‘Orphaned’ by U.S., Shock Gives Way to Action**\
-`No country in Europe is as much a product of enlightened postwar American diplomacy. Now adrift, it has begun to reckon with a new world.`\
-https://nytimes.com/2025/03/21/world/europe/germany-us-ally-relationship-military.html
 
