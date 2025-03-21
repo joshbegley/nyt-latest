@@ -1,5 +1,9 @@
+**Penny Hardaway has 1 NCAA tourney win but says, 'I’m not looking for any excuses'**\
+`The defining stat when it comes to Hardaway as Memphis' coach might be one ... as in, one NCAA Tournament win.`\
+https://nytimes.com/athletic/6222378/2025/03/21/penny-hardaway-memphis-basketball-march-madness/
+
 **Max Kepler feeling comfortable in Phillies clubhouse in first spring away from Twins**\
-`He’s healthy again, swinging a hot bat after making several adjustments, and acclimating to a new, boisterous group of teammates.`\
+`He's healthy again, swinging a hot bat after making several adjustments, and acclimating to a new, boisterous group of teammates.`\
 https://nytimes.com/athletic/6222262/2025/03/21/max-kepler-phillies-twins/
 
 **Gordon injury 'doesn't look good', says Tuchel**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2
 **Tate Brothers, Trailed by Human-Trafficking Charges, Are Returning to Romania**\
 `Andrew Tate said on social media that he and his brother, Tristan, were flying back to Romania from the United States for a proceeding in their criminal case.`\
 https://nytimes.com/2025/03/21/world/andrew-tate-brothers-romania-trafficking.html
-
-**Lewis-Skelly 'lost for words' after record-breaking England debut**\
-`The Arsenal teenager scored 20 minutes into his first senior appearance for his country, aged 18 years and 176 days.`\
-https://nytimes.com/athletic/6222216/2025/03/21/myles-lewis-skelly-england-debut/
 
