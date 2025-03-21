@@ -1,3 +1,15 @@
+**Deion calls out teams for 'lies' about Shedeur's NFL Draft process**\
+`“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
+https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
+
+**Watch: Tara VanDerveer reflects on her most memorable March Madness moments with Stanford**\
+`No Offseason sits down with Tara VanDerveer to answer listener questions on he NCAA Tournament and March Madness.`\
+https://nytimes.com/athletic/6221565/2025/03/21/tara-vanderveer-reflects-on-her-most-memorable-march-madness-moments-with-stanford/
+
+**Friday’s flight disruptions are among the biggest since a 2010 volcanic eruption in Iceland.**\
+`By Jenny Gross`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/fridays-flight-disruptions-are-among-the-biggest-since-a-2010-volcanic-eruption-in-iceland
+
 **Bucks' Kyle Kuzma still searching for ways to be a 'valuable player moving forward'**\
 `Kuzma's versatility has been important to Milwaukee since the trade deadline. Now, the Bucks need to find the spot where he works best.`\
 https://nytimes.com/athletic/6220739/2025/03/21/kyle-kuzma-bucks-lakers/

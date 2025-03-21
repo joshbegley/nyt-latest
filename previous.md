@@ -1,3 +1,15 @@
+**Deion calls out teams for 'lies' about Shedeur's NFL Draft process**\
+`“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
+https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
+
+**Watch: Tara VanDerveer reflects on her most memorable March Madness moments with Stanford**\
+`No Offseason sits down with Tara VanDerveer to answer listener questions on he NCAA Tournament and March Madness.`\
+https://nytimes.com/athletic/6221565/2025/03/21/tara-vanderveer-reflects-on-her-most-memorable-march-madness-moments-with-stanford/
+
+**Friday’s flight disruptions are among the biggest since a 2010 volcanic eruption in Iceland.**\
+`By Jenny Gross`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/fridays-flight-disruptions-are-among-the-biggest-since-a-2010-volcanic-eruption-in-iceland
+
 **Bucks' Kyle Kuzma still searching for ways to be a 'valuable player moving forward'**\
 `Kuzma's versatility has been important to Milwaukee since the trade deadline. Now, the Bucks need to find the spot where he works best.`\
 https://nytimes.com/athletic/6220739/2025/03/21/kyle-kuzma-bucks-lakers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/trump-netanyahu-israel-political-stra
 **Pitching Season Rating: A new metric for grading starting pitchers in fantasy baseball**\
 `John Laghezza shares one of his new creations, a metric for fantasy baseball starting pitchers valuations, akin to wRC+ for hitters.`\
 https://nytimes.com/athletic/6218478/2025/03/21/pitching-season-rating-a-new-metric-for-grading-starting-pitchers-in-fantasy-baseball/
-
-**FIFA removes Club Leon from Club World Cup for breaching multi-club rules**\
-`Leon are majority owned by Grupo Pachuca, which also controls fellow Liga MX side and Club World Cup participant Pachuca.`\
-https://nytimes.com/athletic/6221552/2025/03/21/club-leon-club-world-cup-pachuca/
-
-**Decrepit infrastructure? Poor security? Heathrow chaos prompts thorny questions.**\
-`With counterterrorism police leading the investigation, the possibility of sabotage was being taken seriously, though officials say there is no evidence of foul play.`\
-https://nytimes.com/2025/03/21/world/europe/infrastructure-security-heathrow-chaos.html
-
-**Paul Weiss Chair Says Deal With Trump Adheres to Firm’s Principles**\
-`In an email message on Thursday evening, Paul Weiss Chairman Brad Karp reassured employees that the deal with President Trump was in keeping with the firm’s principles.`\
-https://nytimes.com/2025/03/21/business/paul-weiss-memo-trump-deal.html
 
