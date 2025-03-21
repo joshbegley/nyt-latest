@@ -1,7 +1,3 @@
-**Paul Weiss Chair Says Deal with Trump Adheres to Firm’s Principles**\
-`In an email message on Thursday evening, Paul Weiss Chairman Brad Karp reassured employees that the deal with President Trump was in keeping with the firm’s principles.`\
-https://nytimes.com/2025/03/21/business/paul-weiss-memo-trump-deal.html
-
 **Supreme Court Rules for Chicago Politician in Bank Fraud Case**\
 `The justices unanimously said a law prohibiting “any false statement or report” did not cover misleading assertions that fell short of outright lies.`\
 https://nytimes.com/2025/03/21/us/politics/supreme-court-chicago-politician-fraud.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/03/21/opinion/trump-canada-tariffs.html
 **BBQ Pepper Shrimp, Warm Baguette, Green Salad: Happy Friday**\
 `Korsha Wilson’s easy shrimp dish is a satisfying way to close out the week and a bright start to the weekend.`\
 https://nytimes.com/2025/03/21/dining/bbq-shrimp-green-salad.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include dead-serious assassins, replicant Keystone Kops, long-simmering revenge and more than one variety of stuffed bear.`\
+https://nytimes.com/2025/03/21/movies/five-action-movies-to-stream-now.html
 
