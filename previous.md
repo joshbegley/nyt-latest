@@ -1,3 +1,27 @@
+**The worrying numbers that suggest Manchester United Women have been overperforming**\
+`The data underlying their loss to Liverpool shows the result was coming`\
+https://nytimes.com/athletic/6218660/2025/03/21/manchester-united-women-overperforming/
+
+**Who’s Against Banning Cellphones in Schools?**\
+`Gov. Kathy Hochul is pushing a ban on smartphones in schools, and reaction is favorable, with one notable exception: parents who can’t stop monitoring their children.`\
+https://nytimes.com/2025/03/21/nyregion/school-cell-phone-ban-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/21/crosswords/spelling-bee-forum.html
+
+**Painting Over**\
+`Do you know why this image was in the news this week and what it shows?`\
+https://nytimes.com/2025/03/21/learning/painting-over.html
+
+**David Leonhardt Says Good Night to The Morning**\
+`Five years after founding The Times’s flagship newsletter, Mr. Leonhardt recently began a new role on Opinion, overseeing the editing and writing of the paper’s editorials.`\
+https://nytimes.com/2025/03/21/insider/david-leonhardt-the-morning.html
+
+**Workers Say They Were Pressured to Pay for N.Y.C. Election Jobs**\
+`A Republican Board of Elections employee was charged with taking kickbacks in exchange for jobs working the polls in the Bronx. Other employees say it did not end with her.`\
+https://nytimes.com/2025/03/21/nyregion/board-elections-bribes-jobs-bronx.html
+
 **What We Know About the Closure of Heathrow Airport**\
 `A fire at a substation in London cut off power to one of the world’s busiest airports, causing travel disruptions globally.`\
 https://nytimes.com/2025/03/21/world/europe/london-heathrow-airport-closed.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-s
 **Word of the Day: quotidian**\
 `This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/21/learning/word-of-the-day-quotidian.html
-
-**Sabres score own goal on delayed penalty in another inexplicable loss to Utah**\
-`"Bad play by me, and even worse result," Tage Thompson said after Buffalo's 5-2 loss to Utah.`\
-https://nytimes.com/athletic/6220683/2025/03/21/sabres-score-own-goal-on-delayed-penalty-utah/
-
-**What next for Everton's new stadium development, Liverpool's north docks and Goodison Park?**\
-`If The Friedkin Group can make their plans for the new stadium and Goodison Park a reality — the club and city could be transformed`\
-https://nytimes.com/athletic/6217931/2025/03/21/everton-inspired-by-you-new-stadium-goodison-park/
-
-**Junior Firpo's stock is high at Leeds United. What does the future hold?**\
-`Firpo has been a source of creativity for Leeds this season but his contract expires in the summer and his future remains unclear`\
-https://nytimes.com/athletic/6218852/2025/03/21/junior-firpo-leeds-united-future/
-
-**United need wing-backs for Amorim's system - but can you make rather than buy them?**\
-`United might move for wing-backs in the summer window, but is there a way to create internal solutions from players they already have?`\
-https://nytimes.com/athletic/5910385/2025/03/21/manchester-united-wing-back-analysis/
-
-**Identifying (almost) everyone in Newcastle's iconic Wembley celebration photo**\
-`Throughout Eddie Howe's time as head coach, wins have been marked by a post-match photo - but this one will have a special pride of place`\
-https://nytimes.com/athletic/6215024/2025/03/21/newcastle-cup-final-photo-wembley/
-
-**Spurs have frozen ticket prices, but is it all good news for matchgoing fans?**\
-`Spurs announced adjustments to ticketing, including changes relating to senior concessions, ticket exchange, and their cup ticket scheme`\
-https://nytimes.com/athletic/6218257/2025/03/21/spurs-have-frozen-ticket-prices-but-is-it-all-good-news-for-matchgoing-fans/
 
