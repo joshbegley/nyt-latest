@@ -1,3 +1,7 @@
+**Tate Brothers, Trailed by Human-Trafficking Charges, Are Returning to Romania**\
+`Andrew Tate said on social media that he and his brother, Tristan, were flying back to Romania from the United States for a proceeding in their criminal case.`\
+https://nytimes.com/2025/03/21/world/andrew-tate-brothers-romania-trafficking.html
+
 **Lewis-Skelly 'lost for words' after record-breaking England debut**\
 `The Arsenal teenager scored 20 minutes into his first senior appearance for his country, aged 18 years and 176 days.`\
 https://nytimes.com/athletic/6222216/2025/03/21/myles-lewis-skelly-england-debut/
