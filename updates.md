@@ -1,3 +1,7 @@
+**Sabres score own goal on delayed penalty in another inexplicable loss to Utah**\
+`"Bad play by me, and even worse result," Tage Thompson said after Buffalo's 5-2 loss to Utah.`\
+https://nytimes.com/athletic/6220683/2025/03/21/sabres-score-own-goal-on-delayed-penalty-utah/
+
 **What next for Everton's new stadium development, Liverpool's north docks and Goodison Park?**\
 `If The Friedkin Group can make their plans for the new stadium and Goodison Park a reality — the club and city could be transformed`\
 https://nytimes.com/athletic/6217931/2025/03/21/everton-inspired-by-you-new-stadium-goodison-park/

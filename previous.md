@@ -1,3 +1,7 @@
+**Sabres score own goal on delayed penalty in another inexplicable loss to Utah**\
+`"Bad play by me, and even worse result," Tage Thompson said after Buffalo's 5-2 loss to Utah.`\
+https://nytimes.com/athletic/6220683/2025/03/21/sabres-score-own-goal-on-delayed-penalty-utah/
+
 **What next for Everton's new stadium development, Liverpool's north docks and Goodison Park?**\
 `If The Friedkin Group can make their plans for the new stadium and Goodison Park a reality — the club and city could be transformed`\
 https://nytimes.com/athletic/6217931/2025/03/21/everton-inspired-by-you-new-stadium-goodison-park/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6213586/2025/03/21/thomas-tuchel-england-world-cup-
 **The player, paralysed at 17, who was 'saved' after buying his boyhood football club**\
 `Dowell was playing for Worthing U18s when he was paralysed in an accident - the story of what he did next is remarkable`\
 https://nytimes.com/athletic/6213444/2025/03/21/george-dowell-interview-worthing-fc/
-
-**London Firefighters Battle Blaze That Knocked Out Power at Heathrow**\
-`The London Fire Brigade said that disruptions from the fire, at an electrical substation, would increase into Friday. Its cause was not immediately known.`\
-https://nytimes.com/2025/03/21/world/europe/london-firefighters-heathrow-airport.html
 
