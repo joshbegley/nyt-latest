@@ -1,3 +1,11 @@
+**‘A million moving pieces’: What happens when a hub like Heathrow shuts down.**\
+`Lots of people need to secure hotel rooms and new travel plans.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-passengers-flights-logistics.html
+
+**How to watch No. 6 Ole Miss vs. No. 11 North Carolina in the NCAA Tournament**\
+`North Carolina blew away San Diego State in the First Four and is now favored to keep the run going against Ole Miss.`\
+https://nytimes.com/athletic/6216771/2025/03/21/ole-miss-north-carolina-ncaa-tournament-how-to-watch/
+
 **'This is who I am': Coco Gauff returns to the people and place that made her**\
 `Gauff is the highest-paid female athlete in the world, but still finds the tennis court that made her a place to recenter herself.`\
 https://nytimes.com/athletic/6216895/2025/03/21/coco-gauff-tennis-family-background-grandmother-pompey-park-delray-beach/

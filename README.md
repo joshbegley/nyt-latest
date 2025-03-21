@@ -1,3 +1,7 @@
+**A return to V10 engines would excite many in F1 - but how viable is it?**\
+`V6 engines have been used since 2014 but Red Bull's Christian Horner is among the team bosses to see some upsides`\
+https://nytimes.com/athletic/6220803/2025/03/21/f1-v10-engines-return-2026/
+
 **‘A million moving pieces’: What happens when a hub like Heathrow shuts down.**\
 `Lots of people need to secure hotel rooms and new travel plans.`\
 https://nytimes.com/2025/03/21/world/europe/heathrow-passengers-flights-logistics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/weather/dust-storm.html
 **The New York Times International Edition in Print for Saturday, March 22, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/21/todays-new-york-times-international-edition
-
-**Hojlund explains copying Ronaldo's celebration: 'It was not to mock him'**\
-`The Man Utd striker called Ronaldo his 'idol', saying that he has been a fan of the 40-year-old since 2009.`\
-https://nytimes.com/athletic/6220866/2025/03/21/cristiano-ronaldo-hojlund-celebration/
 
