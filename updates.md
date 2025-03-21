@@ -1,3 +1,11 @@
+**Texas Measles Outbreak May Continue for a Year, Officials Say**\
+`Vaccination efforts have faltered, and many residents have turned to alternative treatments endorsed by Robert F. Kennedy Jr., the health secretary.`\
+https://nytimes.com/2025/03/21/health/measles-outbreak-texas.html
+
+**ICE Tells a Cornell Student Activist to Turn Himself In**\
+`The student, who is from Gambia and was involved in pro-Palestinian activism on campus, was told to report to the immigration agency’s offices.`\
+https://nytimes.com/2025/03/21/us/politics/ice-tells-a-cornell-student-activist-to-turn-himself-in.html
+
 **Canada women's world championship roster announced**\
 `Hockey Canada revealed its 25-player roster for the IIHF Women’s World Championship on Friday.`\
 https://nytimes.com/athletic/6221911/2025/03/21/canada-iihf-womens-world-championship-roster/
