@@ -1,3 +1,11 @@
+**Heathrow Airport Halts Operations After Substation Fire in London**\
+`Dozens of firefighters were trying to put out a nearby blaze. The airport said it would be closed all of Friday.`\
+https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
+
+**The Rangers are still in the playoff race, but going nowhere fast**\
+`Nearing the end of a strange season, the Rangers don't look like they truly want to challenge for a playoff berth.`\
+https://nytimes.com/athletic/6220319/2025/03/20/rangers-playoff-race-defense-leafs/
+
 **Maple Leafs report cards: John Tavares, strong team effort earn Toronto win in New York**\
 `Tavares had two goals and Anthony Stolarz made 27 saves as Toronto defeated the Rangers 4-3 on Thursday night.`\
 https://nytimes.com/athletic/6220352/2025/03/20/maple-leafs-rangers-john-tavares-goals/
