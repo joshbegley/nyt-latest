@@ -1,3 +1,19 @@
+**After major outages, power was restored to most homes on Friday.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
+
+**South Korean Court Blocks K-pop Group NewJeans From Going It Alone**\
+`The court sided with the girl group’s record label, Ador, barring the quintet from planning commercial pursuits after trying to cut ties. The band vowed to appeal.`\
+https://nytimes.com/2025/03/21/world/asia/korea-newjeans-ruling.html
+
+**Long Before She Was Charged With Murder, a Group of Men Had Raised an Alarm**\
+`“I told the judge, I told the D.A., that she was going to kill somebody,” said David Butler, one of several men who said they had been drugged and defrauded by the same woman in New Orleans.`\
+https://nytimes.com/2025/03/21/us/adan-manzano-death-suspect-drugs.html
+
+**The Athletic FC: USMNT, Canada and.... Thierry Henry stunned; what has Tuchel been up to?**\
+`Today in TAFC: Pochettino fails Panama test with USMNT, Henry is mobbed in celebrations, Tuchel's reign starts and Modric scolds Mbappe`\
+https://nytimes.com/athletic/6221025/2025/03/21/usmnt-panama-waterman-thierry-henry/
+
 **Read the document**\
 `The final agreement that Taryn Southern agreed to with Bryan Johnson signed in 2020.`\
 https://nytimes.com/interactive/2025/03/21/business/taryn-southern-final-agreement-1.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6217248/2025/03/21/anthony-edwards-rim-shooting-str
 **Drawing Back the Pentagon’s Curtains for Musk**\
 `The billionaire was set to be briefed on the military’s closely guarded playbooks on China, raising new questions about his power and access.`\
 https://nytimes.com/2025/03/21/business/dealbook/trump-musk-pentagon-access.html
-
-**Croatia's 'golden' generation still have what it takes. Now, can they win a medal?**\
-`Croatia managed to beat France on their home turf on Thrusday evening — now can they win the Nations League?`\
-https://nytimes.com/athletic/6220071/2025/03/21/croatia-france-analysis-nations-league/
-
-**Trump Administration Live Updates: Pentagon to Brief Musk on Military Plan for Any War With China**\
-``\
-https://nytimes.com/live/2025/03/21/us/trump-news
-
-**Ohio State freshman Jaloni Cambridge won't have March Madness nerves**\
-`Cambridge won Big Ten Freshman of the Year and was a first-team all-conference member, following in Caitlin Clark's footsteps.`\
-https://nytimes.com/athletic/6219197/2025/03/21/ohio-state-freshman-jaloni-cambridge-march-madness/
-
-**Nothing boring about it: Unpredictable women's NCAA Tournament is another boost**\
-`Parity in the women's game is a sign of the sport's evolution, columnist Chantel Jennings writes.`\
-https://nytimes.com/athletic/6219549/2025/03/21/women-ncaa-tournament-unpredictable-upset/
 
