@@ -1,3 +1,11 @@
+**USMNT vs. Canada: A desirable matchup with undesirable third-place stakes**\
+`Playing for third is not what the U.S. nor Canada had in mind, but their Nations League finale can still serve a useful purpose.`\
+https://nytimes.com/athletic/6220855/2025/03/21/usmnt-canada-concacaf-nations-league-third-place-game/
+
+**Democratic Senators Ask Watchdogs to Investigate Musk’s Downsizing Efforts**\
+`The senators asked the inspectors general to look at future job cuts as well.`\
+https://nytimes.com/2025/03/21/us/politics/doge-cuts-senate-democrats.html
+
 **Democratic Senators Ask Government Watchdogs to Probe Musk’s Downsizing Efforts**\
 `The senators asked the inspectors general to look at future job cuts as well.`\
 https://nytimes.com/2025/03/21/us/politics/doge-cuts-senate-democrats.html
