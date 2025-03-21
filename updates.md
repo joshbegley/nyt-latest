@@ -1,3 +1,11 @@
+**‘Severance’ Season 2 Finale: Mark vs. Mark**\
+`The season ended with a bizarre but moving episode that found the Lumon employees’ inner and outer selves at cross purposes.`\
+https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-recap.html
+
+**The Bounce: How long can Celtics afford themselves in today's NBA?**\
+`The Celtics were just sold for a historic figure. How long will it be until they have to make some tough choices with their roster?`\
+https://nytimes.com/athletic/6221083/2025/03/21/celtics-sale-jayson-tatum-jaylen-brown-steph-curry-warriors-ncaa-tournament-nba-the-bounce/
+
 **Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
 `This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
 https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html

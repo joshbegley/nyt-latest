@@ -1,3 +1,11 @@
+**‘Severance’ Season 2 Finale: Mark vs. Mark**\
+`The season ended with a bizarre but moving episode that found the Lumon employees’ inner and outer selves at cross purposes.`\
+https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-recap.html
+
+**The Bounce: How long can Celtics afford themselves in today's NBA?**\
+`The Celtics were just sold for a historic figure. How long will it be until they have to make some tough choices with their roster?`\
+https://nytimes.com/athletic/6221083/2025/03/21/celtics-sale-jayson-tatum-jaylen-brown-steph-curry-warriors-ncaa-tournament-nba-the-bounce/
+
 **Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
 `This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
 https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/us/adan-manzano-death-suspect-drugs.html
 **The Athletic FC: USMNT, Canada and.... Thierry Henry stunned; what has Tuchel been up to?**\
 `Today in TAFC: Pochettino fails Panama test with USMNT, Henry is mobbed in celebrations, Tuchel's reign starts and Modric scolds Mbappe`\
 https://nytimes.com/athletic/6221025/2025/03/21/usmnt-panama-waterman-thierry-henry/
-
-**Read the document**\
-`The final agreement that Taryn Southern agreed to with Bryan Johnson signed in 2020.`\
-https://nytimes.com/interactive/2025/03/21/business/taryn-southern-final-agreement-1.html
-
-**In Wes Anderson’s World, It’s All About the Details**\
-`A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
-https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html
 
