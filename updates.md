@@ -1,3 +1,19 @@
+**Stranded by Heathrow closure, some passengers got creative. Others just gave up.**\
+`The New York Times asked passengers whose travel plans were upended by a daylong disruption at Heathrow Airport to share how they coped.`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-passengers-stories
+
+**What Caused the Fire That Shut Down Heathrow Airport?**\
+`Officials and travelers are calling for an investigation into not only how the blaze started, but how it was able to cause such a large disruption to global travel.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-power-fire-investigation.html
+
+**MLB suspends Julio Urías through All-Star break under domestic violence policy**\
+`The free agent will be reinstated from the restricted list on July 17.`\
+https://nytimes.com/athletic/6222029/2025/03/21/mlb-suspends-julio-urias/
+
+**Trump Raged at Columbia Over $400 Million Decades Ago. Sound Familiar?**\
+`A quarter century ago, the university was looking to expand. It considered, and rejected, property owned by Donald Trump. He did not forget it.`\
+https://nytimes.com/2025/03/21/nyregion/trump-columbia-university-400-million.html
+
 **McDavid, Draisaitl to miss Saturday’s game vs. Kraken with injuries**\
 `Knoblauch said McDavid will be sidelined for “maybe a week” with a lower-body injury, while Draisaitl’s timeline is “up to a week.”`\
 https://nytimes.com/athletic/6222013/2025/03/21/connor-mcdavid-leon-draisaitl-injury-oilers/
