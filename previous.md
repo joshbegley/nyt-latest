@@ -1,3 +1,19 @@
+**Spurs have frozen ticket prices, but is it all good news for matchgoing fans?**\
+`Spurs announced adjustments to ticketing, including changes relating to senior concessions, ticket exchange, and their cup ticket scheme`\
+https://nytimes.com/athletic/6218257/2025/03/21/spurs-have-frozen-ticket-prices-but-is-it-all-good-news-for-matchgoing-fans/
+
+**Geography, politics and admin: The long road to becoming an international football team**\
+`Greenland is one of the nations hoping to become recognised on the global football stage - but the path is a difficult one`\
+https://nytimes.com/athletic/6218449/2025/03/21/geography-politics-and-admin-the-long-road-to-becoming-an-international-football-team/
+
+**The BookKeeper: Exploring Liverpool's finances, England's most profitable club**\
+`In-depth analysis of Liverpool's economic situation from The Athletic's new specialist football finance writer`\
+https://nytimes.com/athletic/6131040/2025/03/21/the-bookkeeper-liverpool-finances-transfers/
+
+**Thomas Tuchel, 'aura' and his crash course for England's players**\
+`The new England manager is getting 60 days with his players before the World Cup starts next June - he is quickly getting to work`\
+https://nytimes.com/athletic/6213586/2025/03/21/thomas-tuchel-england-world-cup-2026/
+
 **The player, paralysed at 17, who was 'saved' after buying his boyhood football club**\
 `Dowell was playing for Worthing U18s when he was paralysed in an accident - the story of what he did next is remarkable`\
 https://nytimes.com/athletic/6213444/2025/03/21/george-dowell-interview-worthing-fc/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6220636/2025/03/21/mexico-canada-concacaf-nations-l
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Paul Skenes card sells for $1.11 million after Pirates bounty offer declined**\
-`The 11-year-old boy who originally landed the card will take home more money on the sale than Skenes' 2025 base salary. `\
-https://nytimes.com/athletic/6216741/2025/03/21/paul-skenes-debut-patch-auction-sale/
-
-** A Sojourn for the Senses in Ise-Shima**\
-`A train trip to Japan’s Ise-Shima peninsula promises an immersive, sensorial experience from start to finish. Here’s what travelers can expect to feel, see, taste, smell and hear throughout their journey.
-`\
-https://nytimes.com/paidpost/kintetsu-railways/-a-sojourn-for-the-senses-in-ise-shima.html
-
-**Pochettino not to blame for Nations League exit, Tyler Adams says**\
-`A dismal defeat was not Pochettino's fault, according to one of his key players.`\
-https://nytimes.com/athletic/6220610/2025/03/21/usmnt-panama-mauricio-pochettino-not-to-blame-for-nations-league-tyler-adams/
-
-**Teslas Vandalized in Canada**\
-`People spray-painted a Tesla dealership, punctured tires and scratched vehicles in apparent protest of Elon Musk, who has made repeated jabs at Canada.`\
-https://nytimes.com/video/world/americas/100000010064984/tesla-canada-vandalism-musk.html
 

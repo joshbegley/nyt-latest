@@ -1,3 +1,19 @@
+**Spurs have frozen ticket prices, but is it all good news for matchgoing fans?**\
+`Spurs announced adjustments to ticketing, including changes relating to senior concessions, ticket exchange, and their cup ticket scheme`\
+https://nytimes.com/athletic/6218257/2025/03/21/spurs-have-frozen-ticket-prices-but-is-it-all-good-news-for-matchgoing-fans/
+
+**Geography, politics and admin: The long road to becoming an international football team**\
+`Greenland is one of the nations hoping to become recognised on the global football stage - but the path is a difficult one`\
+https://nytimes.com/athletic/6218449/2025/03/21/geography-politics-and-admin-the-long-road-to-becoming-an-international-football-team/
+
+**The BookKeeper: Exploring Liverpool's finances, England's most profitable club**\
+`In-depth analysis of Liverpool's economic situation from The Athletic's new specialist football finance writer`\
+https://nytimes.com/athletic/6131040/2025/03/21/the-bookkeeper-liverpool-finances-transfers/
+
+**Thomas Tuchel, 'aura' and his crash course for England's players**\
+`The new England manager is getting 60 days with his players before the World Cup starts next June - he is quickly getting to work`\
+https://nytimes.com/athletic/6213586/2025/03/21/thomas-tuchel-england-world-cup-2026/
+
 **The player, paralysed at 17, who was 'saved' after buying his boyhood football club**\
 `Dowell was playing for Worthing U18s when he was paralysed in an accident - the story of what he did next is remarkable`\
 https://nytimes.com/athletic/6213444/2025/03/21/george-dowell-interview-worthing-fc/
