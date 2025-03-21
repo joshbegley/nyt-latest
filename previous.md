@@ -1,3 +1,7 @@
+**Women's March Madness first round takeaways: Michigan's three freshmen shine**\
+`Iowa State's Audi Crooks was on fire, but Michigan pulled out a first-round victory.`\
+https://nytimes.com/athletic/6221735/2025/03/21/womens-march-madness-2025-first-round-takeaways-michigan-notre-dame/
+
 **Kilmer McCully, Pathologist Scorned for Heart Disease Theory, Dies at 91**\
 `His studies showed that a B vitamin deficiency could cause hardened arteries. It took the medical profession more than a decade to catch up.`\
 https://nytimes.com/2025/03/21/science/kilmer-mccully-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/supreme-court-barrett-book.html
 **Dozens of U.S. flights were diverted to airports far from London.**\
 `By Christine Chung`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/dozens-of-us-flights-were-diverted-to-airports-far-from-london
-
-**Trump Cleaves Student Loan and Special Education Services From Education Dept.**\
-`President Trump said Friday that he was tasking other government entities with core functions of the Education Department as he works to dismantle an agency conservatives have long criticized.`\
-https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
 
