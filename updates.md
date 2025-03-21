@@ -1,3 +1,7 @@
+**‘Yellowjackets’ Season 3, Episode 7 Recap: ‘Barbecue’**\
+`Our new arrivals smell something sizzling in the woods. Here comes a meal with all the fixin’s.`\
+https://nytimes.com/2025/03/21/arts/television/yellowjackets-recap-season-3-episode-7.html
+
 **‘Severance’ Season 2 Finale: Mark vs. Mark**\
 `The season ended with a bizarre but moving episode that found the Lumon employees’ inner and outer selves at cross purposes.`\
 https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-recap.html

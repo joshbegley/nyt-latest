@@ -1,3 +1,7 @@
+**‘Yellowjackets’ Season 3, Episode 7 Recap: ‘Barbecue’**\
+`Our new arrivals smell something sizzling in the woods. Here comes a meal with all the fixin’s.`\
+https://nytimes.com/2025/03/21/arts/television/yellowjackets-recap-season-3-episode-7.html
+
 **‘Severance’ Season 2 Finale: Mark vs. Mark**\
 `The season ended with a bizarre but moving episode that found the Lumon employees’ inner and outer selves at cross purposes.`\
 https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/world/asia/korea-newjeans-ruling.html
 **Long Before She Was Charged With Murder, a Group of Men Had Raised an Alarm**\
 `“I told the judge, I told the D.A., that she was going to kill somebody,” said David Butler, one of several men who said they had been drugged and defrauded by the same woman in New Orleans.`\
 https://nytimes.com/2025/03/21/us/adan-manzano-death-suspect-drugs.html
-
-**The Athletic FC: USMNT, Canada and.... Thierry Henry stunned; what has Tuchel been up to?**\
-`Today in TAFC: Pochettino fails Panama test with USMNT, Henry is mobbed in celebrations, Tuchel's reign starts and Modric scolds Mbappe`\
-https://nytimes.com/athletic/6221025/2025/03/21/usmnt-panama-waterman-thierry-henry/
 
