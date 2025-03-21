@@ -1,3 +1,19 @@
+**The Power of ‘Two’: An Anniversary Playlist**\
+`Celebrate two years of this newsletter with songs by Dolly Parton, Stacey Q, Mitski and more.`\
+https://nytimes.com/2025/03/21/arts/music/amplifier-newsletter-two-songs.html
+
+**How Israel Divides the Right**\
+`By Ross Douthat`\
+https://nytimes.com/2025/03/21/opinion/israel-republican-antisemitism.html
+
+**As Trump Broadens Crackdown, Focus Expands to Legal Immigrants and Tourists**\
+`U.S. border officials are using more aggressive tactics at ports of entry as the administration scrutinizes green card and visa holders who have expressed opposition to its policies.`\
+https://nytimes.com/2025/03/21/us/politics/trump-immigration-visa-crackdown.html
+
+**Women's March Madness first round takeaways: Kentucky survives scare from No. 13 Liberty**\
+`Wildcats guard Georgia Amoore scored 34 points to avoid the upset.`\
+https://nytimes.com/athletic/6221735/2025/03/21/womens-march-madness-2025-first-round-takeaways-michigan-notre-dame/
+
 **Women's March Madness first round takeaways: Michigan's three freshmen shine**\
 `Iowa State's Audi Crooks was on fire, but Michigan pulled out a first-round victory.`\
 https://nytimes.com/athletic/6221735/2025/03/21/womens-march-madness-2025-first-round-takeaways-michigan-notre-dame/

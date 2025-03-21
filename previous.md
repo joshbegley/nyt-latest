@@ -1,5 +1,17 @@
-**Women's March Madness first round takeaways: Michigan's three freshmen shine**\
-`Iowa State's Audi Crooks was on fire, but Michigan pulled out a first-round victory.`\
+**The Power of ‘Two’: An Anniversary Playlist**\
+`Celebrate two years of this newsletter with songs by Dolly Parton, Stacey Q, Mitski and more.`\
+https://nytimes.com/2025/03/21/arts/music/amplifier-newsletter-two-songs.html
+
+**How Israel Divides the Right**\
+`By Ross Douthat`\
+https://nytimes.com/2025/03/21/opinion/israel-republican-antisemitism.html
+
+**As Trump Broadens Crackdown, Focus Expands to Legal Immigrants and Tourists**\
+`U.S. border officials are using more aggressive tactics at ports of entry as the administration scrutinizes green card and visa holders who have expressed opposition to its policies.`\
+https://nytimes.com/2025/03/21/us/politics/trump-immigration-visa-crackdown.html
+
+**Women's March Madness first round takeaways: Kentucky survives scare from No. 13 Liberty**\
+`Wildcats guard Georgia Amoore scored 34 points to avoid the upset.`\
 https://nytimes.com/athletic/6221735/2025/03/21/womens-march-madness-2025-first-round-takeaways-michigan-notre-dame/
 
 **Kilmer McCully, Pathologist Scorned for Heart Disease Theory, Dies at 91**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6220038/2025/03/21/eno-sarris-mlb-fantasy-baseball-
 **USMNT vs. Canada: A desirable matchup with undesirable third-place stakes**\
 `Playing for third is not what the U.S. nor Canada had in mind, but their Nations League finale can still serve a useful purpose.`\
 https://nytimes.com/athletic/6220855/2025/03/21/usmnt-canada-concacaf-nations-league-third-place-game/
-
-**Democratic Senators Ask Watchdogs to Investigate Musk’s Downsizing Efforts**\
-`The senators asked the inspectors general to look at future job cuts as well.`\
-https://nytimes.com/2025/03/21/us/politics/doge-cuts-senate-democrats.html
-
-**In New Book, Barrett Says She Will Bring Readers Inside Supreme Court**\
-`Justice Amy Coney Barrett, who has faced intense scrutiny since joining the court, says she will make the judicial process less of a “mystery” for readers.`\
-https://nytimes.com/2025/03/21/us/politics/supreme-court-barrett-book.html
-
-**Dozens of U.S. flights were diverted to airports far from London.**\
-`By Christine Chung`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/dozens-of-us-flights-were-diverted-to-airports-far-from-london
 
