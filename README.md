@@ -1,3 +1,7 @@
+**Murillo — the most watchable centre-half in modern football**\
+`Murillo may not have got on for Brazil against Colombia, but the Forest defender's time will come`\
+https://nytimes.com/athletic/6213151/2025/03/21/murillo-brazil-nottingham-forest/
+
 **The worrying numbers that suggest Manchester United Women have been overperforming**\
 `The data underlying their loss to Liverpool shows the result was coming`\
 https://nytimes.com/athletic/6218660/2025/03/21/manchester-united-women-overperforming/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/arts/television/late-night-trump-department-of-ed
 **Once a taboo, periods are the new tool for growing women's football**\
 `Through new commercial partnerships, WSL sides are seeing the benefits of ending the stigma around periods`\
 https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-soccer-periods-wsl/
-
-**Word of the Day: quotidian**\
-`This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/21/learning/word-of-the-day-quotidian.html
 
