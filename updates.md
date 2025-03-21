@@ -1,3 +1,11 @@
+**Justice Dept. Tries to Intervene on Trump’s Behalf in Jan. 6 Lawsuits**\
+`The department employed a maneuver that could protect the president from legal and financial consequences in a series of civil suits.`\
+https://nytimes.com/2025/03/20/us/politics/jan-6-lawsuits.html
+
+**Boeser helps Canucks salvage a point in heartbreaking loss to Blues: 3 takeaways**\
+`Boeser scored with 2.7 seconds left in regulation to force overtime against a rival for the final wild-card spot in the West.`\
+https://nytimes.com/athletic/6220126/2025/03/20/canucks-boeser-blues-playoff-chase/
+
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
