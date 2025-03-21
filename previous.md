@@ -1,3 +1,11 @@
+**Once a taboo, periods are the new tool for growing women's football**\
+`Through new commercial partnerships, WSL sides are seeing the benefits of ending the stigma around periods`\
+https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-soccer-periods-wsl/
+
+**Word of the Day: quotidian**\
+`This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/21/learning/word-of-the-day-quotidian.html
+
 **Sabres score own goal on delayed penalty in another inexplicable loss to Utah**\
 `"Bad play by me, and even worse result," Tage Thompson said after Buffalo's 5-2 loss to Utah.`\
 https://nytimes.com/athletic/6220683/2025/03/21/sabres-score-own-goal-on-delayed-penalty-utah/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6218449/2025/03/21/geography-politics-and-admin-the
 **The BookKeeper: Exploring Liverpool's finances, England's most profitable club**\
 `In-depth analysis of Liverpool's economic situation from The Athletic's new specialist football finance writer`\
 https://nytimes.com/athletic/6131040/2025/03/21/the-bookkeeper-liverpool-finances-transfers/
-
-**Thomas Tuchel, 'aura' and his crash course for England's players**\
-`The new England manager is getting 60 days with his players before the World Cup starts next June - he is quickly getting to work`\
-https://nytimes.com/athletic/6213586/2025/03/21/thomas-tuchel-england-world-cup-2026/
-
-**The player, paralysed at 17, who was 'saved' after buying his boyhood football club**\
-`Dowell was playing for Worthing U18s when he was paralysed in an accident - the story of what he did next is remarkable`\
-https://nytimes.com/athletic/6213444/2025/03/21/george-dowell-interview-worthing-fc/
 
