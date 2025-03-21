@@ -1,3 +1,11 @@
+**Kilmer McCully, Pathologist Scorned for Heart Disease Theory, Dies at 91**\
+`His studies showed that a B vitamin deficiency could cause hardened arteries. It took the medical profession more than a decade to catch up.`\
+https://nytimes.com/2025/03/21/science/kilmer-mccully-dead.html
+
+**Are We in a Constitutional Crisis?**\
+`Adam Liptak, who covers the Supreme Court for The New York Times, says the right question is not whether there is a constitutional crisis, but rather how much damage it will cause and how the American government may be fundamentally transformed.`\
+https://nytimes.com/video/us/politics/100000010063017/are-we-in-a-constitutional-crisis.html
+
 **The Heathrow shutdown could delay many air cargo shipments.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-shutdown-could-delay-many-air-cargo-shipments
