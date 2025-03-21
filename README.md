@@ -1,3 +1,11 @@
+**Trump Fires Nearly the Entire Civil Rights Branch of D.H.S.**\
+`The move guts the office responsible for oversight over President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/03/21/us/politics/trump-civil-rights-homeland-security-deportations.html
+
+**After Lunar Disappointments, NASA Hits the Jackpot With Blue Ghost**\
+`Firefly Aerospace’s successful moon lander has yielded a trove of data that scientists will pore over for years.`\
+https://nytimes.com/2025/03/21/science/blue-ghost-moon-science.html
+
 **Robert Denham, Lawyer Who Steered Companies Through Crises, Dies at 79**\
 `Among his rescues was teaming up with Warren Buffett to keep the investment bank Salomon Brothers afloat amid a bid-rigging scandal in the 1990s.`\
 https://nytimes.com/2025/03/21/business/robert-denham-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6221918/2025/03/21/womens-world-cup-bid-costa-rica-
 **Dom Smith opts out of Yankees deal**\
 `Smith will officially become a free agent if the Yankees do not add him to the roster in the next 24 hours.`\
 https://nytimes.com/athletic/6221849/2025/03/21/dom-smith-yankees-26th-man/
-
-**Trump administration weighs economic aid for farmers affected by tariffs.**\
-`By Tony Romm`\
-https://nytimes.com/live/2025/03/21/us/trump-news/rump-administration-weighs-economic-aid-for-farmers-affected-by-tariffs
-
-**The Giants will name Patrick Bailey's backup soon. What's in the job description?**\
-`The Giants have a choice to make between Sam Huff and Max Stassi. What are the qualities they should be looking for in making the choice?`\
-https://nytimes.com/athletic/6221456/2025/03/21/sf-giants-backup-catcher-sam-huff-max-stassi/
 

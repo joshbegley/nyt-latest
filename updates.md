@@ -1,3 +1,7 @@
+**Robert Denham, Lawyer Who Steered Companies Through Crises, Dies at 79**\
+`Among his rescues was teaming up with Warren Buffett to keep the investment bank Salomon Brothers afloat amid a bid-rigging scandal in the 1990s.`\
+https://nytimes.com/2025/03/21/business/robert-denham-dead.html
+
 **Texas Measles Outbreak May Continue for a Year, Officials Say**\
 `Vaccination efforts have faltered, and many residents have turned to alternative treatments endorsed by Robert F. Kennedy Jr., the health secretary.`\
 https://nytimes.com/2025/03/21/health/measles-outbreak-texas.html
