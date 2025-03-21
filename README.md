@@ -1,3 +1,7 @@
+**Tate Brothers, Trailed by Human-Trafficking Charges, Are Returning to Romania**\
+`Andrew Tate said on social media that he and his brother, Tristan, were flying back to Romania from the United States for a proceeding in their criminal case.`\
+https://nytimes.com/2025/03/21/world/andrew-tate-brothers-romania-trafficking.html
+
 **Lewis-Skelly 'lost for words' after record-breaking England debut**\
 `The Arsenal teenager scored 20 minutes into his first senior appearance for his country, aged 18 years and 176 days.`\
 https://nytimes.com/athletic/6222216/2025/03/21/myles-lewis-skelly-england-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2
 **Duke, Cooper Flagg cruise in star freshman's return from injury**\
 `Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
 https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
-
-**Trump Threatens to Jail Tesla Vandals in El Salvador Prisons**\
-`President Nayib Bukele of El Salvador had previously offered to imprison convicted criminals from the United States in his country’s notorious prison facilities, for a fee.`\
-https://nytimes.com/2025/03/21/us/politics/trump-tesla-vandalism-prison.html
 
