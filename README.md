@@ -1,3 +1,11 @@
+**Heathrow Airport Halts Operations After Substation Fire in London**\
+`Dozens of firefighters were trying to put out a nearby blaze. The airport said it would be closed all of Friday.`\
+https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
+
+**The Rangers are still in the playoff race, but going nowhere fast**\
+`Nearing the end of a strange season, the Rangers don't look like they truly want to challenge for a playoff berth.`\
+https://nytimes.com/athletic/6220319/2025/03/20/rangers-playoff-race-defense-leafs/
+
 **Maple Leafs report cards: John Tavares, strong team effort earn Toronto win in New York**\
 `Tavares had two goals and Anthony Stolarz made 27 saves as Toronto defeated the Rangers 4-3 on Thursday night.`\
 https://nytimes.com/athletic/6220352/2025/03/20/maple-leafs-rangers-john-tavares-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/us/politics/elon-musk-wisconsin-petition.html
 **Thierry Henry swarmed by Panama celebration after Nations League semis win**\
 `Cecilio Waterman struck the only goal of Thursday’s first semifinal deep into injury time then ran straight toward Henry.`\
 https://nytimes.com/athletic/6220297/2025/03/20/thierry-henry-panama-nations-league-playoffs/
-
-**Review: The Stiff Who Saved Europe, in ‘Operation Mincemeat’**\
-`A proudly silly British musical comedy about the “Trojan corpse” of World War II comes to Broadway.`\
-https://nytimes.com/2025/03/20/theater/operation-mincemeat-review-broadway.html
-
-**A Neologism for ‘Fan’**\
-`Boaz Moser and Jacob Reed’s puzzle adds some zip to our Friday.`\
-https://nytimes.com/2025/03/20/crosswords/daily-puzzle-2025-03-21.html
 
