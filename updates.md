@@ -1,3 +1,11 @@
+**Alexandria Ocasio-Cortez Puts Her Own Spin on Bernie Sanders’s Pitch**\
+`The two progressive leaders, one young and one old, are touring Western cities with a similar message but a key difference in how they sell it.`\
+https://nytimes.com/2025/03/20/us/politics/aoc-bernie-sanders-vegas-denver.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Corrections: March 21, 2025**\
 `Corrections that appeared in print on Friday, March 21, 2025.`\
 https://nytimes.com/2025/03/20/pageoneplus/corrections-march-21-2025.html
