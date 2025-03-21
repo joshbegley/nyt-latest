@@ -1,3 +1,7 @@
+**Alex Ovechkin 7 goals from breaking Wayne Gretzky's record with No. 888**\
+`The Washington Capitals superstar continues to close in on Gretzky's longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
+
 **Alex Ovechkin 7 goals away from breaking Wayne Gretzky's record with No. 888**\
 `The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
