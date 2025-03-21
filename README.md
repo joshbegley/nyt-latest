@@ -1,6 +1,6 @@
 **Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
 `Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
-https://nytimes.com/2025/03/21/us/politics/bruce-selya-dead.html
+https://nytimes.com/2025/03/21/us/politics/judge-bruce-selya-dead.html
 
 **I Need an Egg Donor. Can I Ask a Former Student?**\
 `The magazine’s Ethicist columnist on navigating the power dynamics of a life-altering request.`\

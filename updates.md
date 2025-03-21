@@ -1,3 +1,23 @@
+**Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
+`Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
+https://nytimes.com/2025/03/21/us/politics/bruce-selya-dead.html
+
+**I Need an Egg Donor. Can I Ask a Former Student?**\
+`The magazine’s Ethicist columnist on navigating the power dynamics of a life-altering request.`\
+https://nytimes.com/2025/03/21/magazine/professor-student-donor-ethics.html
+
+**Heathrow Rumbles Back to Life After Substation Fire Shut Down Airport**\
+`The blaze forced Britain’s largest airport to cancel or divert more than 1,000 flights on Friday and removed a linchpin of global air travel. Counterterrorism police were investigating the cause of the fire.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-airport-london-fire.html
+
+**Columbia Makes Concessions to Trump Amid Bid to Reclaim Federal Funds**\
+`The administration has moved to cut $400 million in federal funding to the university without changes to its policies and rules.`\
+https://nytimes.com/2025/03/21/nyregion/columbia-response-trump-demands.html
+
+**Decades Ago, Columbia Refused to Pay Trump $400 Million. Note That Number.**\
+`A quarter century ago, the university was looking to expand. It considered, and rejected, property owned by Donald Trump. He did not forget it.`\
+https://nytimes.com/2025/03/21/nyregion/trump-columbia-university-400-million.html
+
 **Fanatics says it had $40 million in Tokyo Series sales, a new special event record**\
 `Japan's rapidly growing interest in MLB helped Fanatics sell more merchandise than it does for events like the World Series`\
 https://nytimes.com/athletic/6221408/2025/03/21/fanatics-mlb-tokyo-series-sales/
