@@ -1,3 +1,11 @@
+**What ‘Conservative Cosmo’ Thinks Women Want**\
+`The Evie reader can work. She can be a mom. It’s her choice. It’s just not feminism.`\
+https://nytimes.com/2025/03/21/style/evie-magazine.html
+
+**Obamacare Enrollees Could See Big Changes in 2026**\
+`A proposed rule would restrict “eligibility, enrollment and affordability” in plans under the Affordable Care Act, health policy analysts say.`\
+https://nytimes.com/2025/03/21/business/obamacare-enrollees-could-see-big-changes-in-2026.html
+
 **Power is mostly restored to homes after the fire near Heathrow.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6220106/2025/03/21/twins-roster-projection-bullpen-
 **Russian Energy Sites Burn as Kyiv and Moscow Trade Accusations of Blame**\
 `Russia and Ukraine are preparing to discuss a potential cease-fire on power infrastructure, and each is seeking to portray the other side as untrustworthy ahead of talks.`\
 https://nytimes.com/2025/03/21/world/europe/russia-ukraine-power-energy-grid.html
-
-**Ant-Man's weakness? Finishing at the rim has been a strange struggle for Anthony Edwards**\
-`The Timberwolves lost some momentum this week as they try to figure out why their young superstar is having trouble on drives to the basket.`\
-https://nytimes.com/athletic/6217248/2025/03/21/anthony-edwards-rim-shooting-struggles-timberwolves/
-
-**Drawing Back the Pentagon’s Curtains for Musk**\
-`The billionaire was set to be briefed on the military’s closely guarded playbooks on China, raising new questions about his power and access.`\
-https://nytimes.com/2025/03/21/business/dealbook/trump-musk-pentagon-access.html
 
