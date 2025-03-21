@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, March 22, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/21/upshot/flashback.html
+
 **Prime Tire: A Ferrari bounce-back in China. Plus, don't count on F1's return to V10 engines**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6221898/2025/03/21/f1-chinese-grand-prix-lewis-hamilton-v10-engines-prime-tire/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/03/21/health/measles-outbreak-texas.html
 `The student, who is from Gambia and was involved in pro-Palestinian activism on campus, was told to report to the immigration agency’s offices.`\
 https://nytimes.com/2025/03/21/us/politics/trump-cornell-student-ice.html
 
-**Canada women's world championship roster announced**\
+**Canada women's world championship roster announced: Snubs, surprises and new faces**\
 `Hockey Canada revealed its 25-player roster for the IIHF Women’s World Championship on Friday.`\
 https://nytimes.com/athletic/6221911/2025/03/21/canada-iihf-womens-world-championship-roster/
 
 **Trump Rejects Idea That Musk Should Have Access to Top-Secret China War Plans**\
 `The president also denied a report that such a briefing had been planned to be held at the Pentagon on Friday.`\
 https://nytimes.com/2025/03/21/us/politics/trump-china-elon-musk-pentagon.html
-
-**MLB ‘evaluating’ Diversity Pipeline Program, strikes DEI references from its website**\
-`Commissioner Rob Manfred said the league is trying to remain "consistent with what the law requires."`\
-https://nytimes.com/athletic/6221850/2025/03/21/mlb-diversity-rob-manfred/
 
