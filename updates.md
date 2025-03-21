@@ -1,3 +1,19 @@
+**Were the Kennedy Files a Bust? Not So Fast, Historians Say.**\
+`The thousands of documents posted online this week disappointed assassination buffs. But historians are finding many newly revealed secrets.`\
+https://nytimes.com/2025/03/20/us/politics/jfk-assassination-files-cia.html
+
+**Trump Administration Postpones Deadline for Companies to Record and Trace Tainted Food**\
+`A law passed in 2011 required food companies to track food in the event of contamination and a recall. The administration delayed the move, set to take effect next year, for 30 months.`\
+https://nytimes.com/2025/03/20/health/food-safety-trump-administration-outbreaks-listeria-ecoli.html
+
+**Musk Set to Get Access to Top-Secret U.S. Plan for Potential War With China**\
+`Giving Elon Musk access to some of the nation’s most closely guarded military secrets is a major expansion of his role as an adviser to President Trump and highlights his conflicts of interest.`\
+https://nytimes.com/2025/03/20/us/politics/musk-pentagon-briefing-china-war-plan.html
+
+**Aleksei Navalny Among National Book Critics Circle Award Winners**\
+`Hisham Matar won the fiction prize, and Sandra Cisneros received the lifetime achievement award.`\
+https://nytimes.com/2025/03/20/books/nbcc-award-winners.html
+
 **Alex Ovechkin 7 goals from breaking Wayne Gretzky's record with No. 888**\
 `The Washington Capitals superstar continues to close in on Gretzky's longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
