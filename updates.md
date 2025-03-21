@@ -1,3 +1,11 @@
+**Supreme Court Rules for Chicago Politician in Bank Fraud Case**\
+`The justices unanimously said a law prohibiting “any false statement or report” did not cover misleading assertions that fell short of outright lies.`\
+https://nytimes.com/2025/03/21/us/politics/supreme-court-chicago-politician-fraud.html
+
+**Substation fires are rare, but they can be very disruptive.**\
+`By Ivan Penn`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/substation-fires-are-rare-but-they-can-be-very-disruptive
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
