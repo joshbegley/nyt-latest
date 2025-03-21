@@ -1,3 +1,11 @@
+**Heathrow Rumbles Back to Life After Substation Fire Shut Down Airport**\
+`The blaze forced Britain’s largest airport to cancel or divert more than 1,000 flights on Friday and removed a linchpin of global air travel. Counterterrorism police were investigating the cause of the fire.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-airport-london-fire.html
+
+**Columbia Makes Concessions to Trump Amid Bid to Reclaim Federal Funds**\
+`The administration has moved to cut $400 million in federal funding to the university without changes to its policies and rules.`\
+https://nytimes.com/2025/03/21/nyregion/columbia-response-trump-demands.html
+
 **Fanatics says it had $40 million in Tokyo Series sales, a new special event record**\
 `Japan's rapidly growing interest in MLB helped Fanatics sell more merchandise than it does for events like the World Series`\
 https://nytimes.com/athletic/6221408/2025/03/21/fanatics-mlb-tokyo-series-sales/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6222013/2025/03/21/connor-mcdavid-leon-draisaitl-in
 **Scouting reports on Curtis Mead, Casey Mize and more spring training standouts**\
 `Andrea Arcadipane offers a scouting breakdown of some of the top spring training performers, including a couple of bright, young Rays.`\
 https://nytimes.com/athletic/6221535/2025/03/21/scouting-reports-on-curtis-mead-casey-mize-and-more-spring-training-standouts/
-
-**If Auburn doesn’t find itself after ‘calling out,’ Creighton is going to find itself in Atlanta**\
-`Bruce Pearl is not happy with the way things are going. He shouldn’t be. A malaise has set in over the past few weeks.`\
-https://nytimes.com/athletic/6221972/2025/03/21/auburn-creighton-ncaa-tournament-upset/
-
-**Trump Attacks Reporting on Musk War Plans Meeting**\
-`A planned Pentagon briefing, in which Elon Musk would learn military plans for any potential war with China, did not go forward after reports in The New York Times and The Wall Street Journal.`\
-https://nytimes.com/2025/03/21/business/media/trump-new-york-times-musk-china.html
 
