@@ -1,3 +1,7 @@
+**Long-Lost Klimt Portrays African Prince**\
+`The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
+https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
+
 **A guide to Cooper Flagg trading cards**\
 `Everything you need to know about Flagg's nascent trading card market `\
 https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
