@@ -1,3 +1,11 @@
+**Arkansas, Calipari deliver Kansas' first NCAA first-round loss since 2006**\
+`A season that started with the Jayhawks at No. 1 ends in disappointment. John Calipari could meet Rick Pitino's St. John's next.`\
+https://nytimes.com/athletic/6220250/2025/03/20/arkansas-kansas-calipari-self-ncaa-tournament/
+
+**‘It Sounds Strange, Doesn’t It?’ Trump Muses About Gutting the Education Dept.**\
+`President Trump signed the executive order in the East Room of the White House, which was packed with jittery children.`\
+https://nytimes.com/2025/03/20/us/politics/trump-education-executive-order-scene.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/20/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
