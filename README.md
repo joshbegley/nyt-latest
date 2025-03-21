@@ -1,3 +1,7 @@
+**In Wes Anderson’s World, It’s All About the Details**\
+`A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
+https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html
+
 **Twins roster projection 3.0: Who nabs final spots in bullpen and infield?**\
 `Infielder and reliever are the two spots to watch closest over the final five days of Twins camp.`\
 https://nytimes.com/athletic/6220106/2025/03/21/twins-roster-projection-bullpen-infield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219549/2025/03/21/women-ncaa-tournament-unpredicta
 **Bruins' priority in offseason rebuild: Speed at all positions**\
 `The Bruins lost a lot of experience at this season's trade deadline, opening up roster flexibility this offseason.`\
 https://nytimes.com/athletic/6220008/2025/03/21/bruins-rebuild-priority-speed-offense/
-
-**Inside the tweaks that have finally boosted the much-maligned Wild penalty kill**\
-`Freddy Gaudreau on the improvements: "We have just been working on our craft, working on doing all the little details better and together."`\
-https://nytimes.com/athletic/6213778/2025/03/21/wild-penalty-kill-tweaks/
 
