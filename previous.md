@@ -1,3 +1,7 @@
+**In Japan, Timeshares Are Back, and Cooler Than Ever**\
+`A new model of ownership is allowing middle-class families and wealthy vacationers alike to buy a piece of alluring properties.`\
+https://nytimes.com/2025/03/21/realestate/japan-timeshares-homes.html
+
 **‘Is the grass greener?’ A transfer watches his former team in the NCAA Tournament**\
 `Bryce Pope spent four years building UC San Diego and transferred to USC. We watched the Tritons' first-round heartbreaker with him.`\
 https://nytimes.com/athletic/6220777/2025/03/21/ucsd-ncaa-tournament-bryce-pope-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219662/2025/03/21/alex-ovechkin-goals-record-wayne
 **'He loves to compete': Evan Engram's road to Broncos' 'Joker' role tested his resilience**\
 `Engram has been one of the most productive tight ends in the NFL since 2017, but that vision wasn't always easy for others to see.`\
 https://nytimes.com/athletic/6218038/2025/03/21/evan-engram-broncos-joker-tight-end/
-
-**Injuries to Leon Draisaitl and Connor McDavid leave the Oilers with uncertainty**\
-`McDavid left a 4-3 overtime loss to the Winnipeg Jets with what the team is calling a lower body injury.`\
-https://nytimes.com/athletic/6220778/2025/03/21/oilers-injuries-leon-draisaitl-connor-mcdavid/
 

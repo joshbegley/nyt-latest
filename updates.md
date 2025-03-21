@@ -1,3 +1,7 @@
+**In Japan, Timeshares Are Back, and Cooler Than Ever**\
+`A new model of ownership is allowing middle-class families and wealthy vacationers alike to buy a piece of alluring properties.`\
+https://nytimes.com/2025/03/21/realestate/japan-timeshares-homes.html
+
 **‘Is the grass greener?’ A transfer watches his former team in the NCAA Tournament**\
 `Bryce Pope spent four years building UC San Diego and transferred to USC. We watched the Tritons' first-round heartbreaker with him.`\
 https://nytimes.com/athletic/6220777/2025/03/21/ucsd-ncaa-tournament-bryce-pope-transfer-portal/
