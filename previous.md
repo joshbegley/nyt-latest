@@ -1,3 +1,7 @@
+**For Trump and Netanyahu, Similar Strategies With Similar Goals**\
+`The American and Israeli leaders have been mirroring each other as they go to war with their own governments`\
+https://nytimes.com/2025/03/21/us/politics/trump-netanyahu-israel-political-strategy.html
+
 **Pitching Season Rating: A new metric for grading starting pitchers in fantasy baseball**\
 `John Laghezza shares one of his new creations, a metric for fantasy baseball starting pitchers valuations, akin to wRC+ for hitters.`\
 https://nytimes.com/athletic/6218478/2025/03/21/pitching-season-rating-a-new-metric-for-grading-starting-pitchers-in-fantasy-baseball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2
 **Shutdown of Britain’s Busiest Airport Causes Worldwide Travel Disruption**\
 `Heathrow Airport in London, one of the busiest in the world, was shut down on Friday after a fire disrupted power from a nearby electrical substation.`\
 https://nytimes.com/video/world/europe/100000010065664/heathrow-airport-shut-fire-travel-disruption.html
-
-**Many California Trees Survived the Wildfires. Here’s Why.**\
-`As the fires that ravaged Los Angeles in January ebbed, many trees were left standing next to burnt down homes. Here’s why.`\
-https://nytimes.com/card/2025/03/21/us/la-fires-trees
 

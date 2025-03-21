@@ -1,3 +1,7 @@
+**For Trump and Netanyahu, Similar Strategies With Similar Goals**\
+`The American and Israeli leaders have been mirroring each other as they go to war with their own governments`\
+https://nytimes.com/2025/03/21/us/politics/trump-netanyahu-israel-political-strategy.html
+
 **Pitching Season Rating: A new metric for grading starting pitchers in fantasy baseball**\
 `John Laghezza shares one of his new creations, a metric for fantasy baseball starting pitchers valuations, akin to wRC+ for hitters.`\
 https://nytimes.com/athletic/6218478/2025/03/21/pitching-season-rating-a-new-metric-for-grading-starting-pitchers-in-fantasy-baseball/
