@@ -1,3 +1,12 @@
+**Virgil van Dijk next club odds: Could a move to PSG be in the works?**\
+`Sam Tighe looks at the transfer news surrounding Liverpool’s Virgil van Dijk after the Reds’ Champions League and Carabao Cup failings.`\
+https://nytimes.com/athletic/6213082/2025/03/21/liverpool-virgil-van-dijk-transfer-odds-predictions/
+
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+
 **Murillo - the most watchable centre-back in modern football**\
 `Murillo did not make his debut for Brazil against Colombia, but the Forest defender's time will come`\
 https://nytimes.com/athletic/6213151/2025/03/21/murillo-brazil-nottingham-forest/

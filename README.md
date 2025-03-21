@@ -1,3 +1,7 @@
+**How to watch No. 4 Kentucky vs. No. 13 Liberty in the women's NCAA Tournament**\
+`Kentucky hosts Liberty in the first round of the women's NCAA Tournament, with the No. 4 Wildcats expected to advance.`\
+https://nytimes.com/athletic/6211329/2025/03/21/kentucky-liberty-womens-ncaa-tournament-how-to-watch/
+
 **Virgil van Dijk next club odds: Could a move to PSG be in the works?**\
 `Sam Tighe looks at the transfer news surrounding Liverpool’s Virgil van Dijk after the Reds’ Champions League and Carabao Cup failings.`\
 https://nytimes.com/athletic/6213082/2025/03/21/liverpool-virgil-van-dijk-transfer-odds-predictions/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/21/nyregion/board-elections-bribes-jobs-bronx.html
 **What We Know About the Closure of Heathrow Airport**\
 `A fire at a substation in London cut off power to one of the world’s busiest airports, causing travel disruptions globally.`\
 https://nytimes.com/2025/03/21/world/europe/london-heathrow-airport-closed.html
-
-**Late Night Flunks Trump for Gutting the Department of Education**\
-`“Trump famously said he loves the poorly educated, and now he will have so many more people to love,” Jimmy Kimmel said on Thursday.`\
-https://nytimes.com/2025/03/21/arts/television/late-night-trump-department-of-education.html
 
