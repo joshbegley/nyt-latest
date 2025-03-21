@@ -1,3 +1,7 @@
+**Bowden’s 2025 All-MLB Breakout Team: A 26-man roster of promising players to watch**\
+`Here is my loaded 26-man roster, a position-by-position look at the players who are primed for breakout seasons in 2025.`\
+https://nytimes.com/athletic/6219550/2025/03/21/mlb-breakout-predictions-2025/
+
 **The Size of the Tax Cut**\
 `We explain how Republicans are approaching taxes.`\
 https://nytimes.com/2025/03/21/briefing/the-size-of-the-tax-cut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6216375/2025/03/21/bears-championship-window-ryan-p
 **What we heard from Chiefs' free-agent signees, starting with left tackle Jaylon Moore**\
 `Kristian Fulton can't wait to work with Steve Spagnuolo, and Gardner Minshew is pumped to learn from Andy Reid and Patrick Mahomes.`\
 https://nytimes.com/athletic/6219882/2025/03/21/chiefs-free-agent-signees-jaylon-moore/
-
-**J.J. McCarthy, Aaron Rodgers and the Vikings' QB situation: Answering 4 key questions**\
-`The Vikings will have high expectations entering the 2025 season. But where they end up will depend on their QB. Here's where things stand.`\
-https://nytimes.com/athletic/6219923/2025/03/21/jj-mccarthy-aaron-rodgers-vikings-qb/
 
