@@ -1,3 +1,7 @@
+**In Wes Anderson’s World, It’s All About the Details**\
+`A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
+https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html
+
 **Twins roster projection 3.0: Who nabs final spots in bullpen and infield?**\
 `Infielder and reliever are the two spots to watch closest over the final five days of Twins camp.`\
 https://nytimes.com/athletic/6220106/2025/03/21/twins-roster-projection-bullpen-infield/
