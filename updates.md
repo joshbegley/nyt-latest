@@ -1,3 +1,7 @@
+**A History of the Alien Enemies Act of 1798**\
+`Before the current Trump administration, the law had been invoked just three times.`\
+https://nytimes.com/2025/03/21/us/politics/trump-alien-enemies-act-history.html
+
 **America Last: Why Shoppers Abroad Are Boycotting U.S. Goods**\
 `A growing number of Europeans and citizens of other countries are choosing not to buy American products to demonstrate their anger at President Trump’s policies.`\
 https://nytimes.com/2025/03/21/world/europe/europe-boycott-american-products-trump.html
