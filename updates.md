@@ -1,3 +1,16 @@
+**Paul Skenes card sells for $1.11 million after Pirates bounty offer declined**\
+`The 11-year-old boy who originally landed the card will take home more money on the sale than Skenes' 2025 base salary. `\
+https://nytimes.com/athletic/6216741/2025/03/21/paul-skenes-debut-patch-auction-sale/
+
+** A Sojourn for the Senses in Ise-Shima**\
+`A train trip to Japan’s Ise-Shima peninsula promises an immersive, sensorial experience from start to finish. Here’s what travelers can expect to feel, see, taste, smell and hear throughout their journey.
+`\
+https://nytimes.com/paidpost/kintetsu-railways/-a-sojourn-for-the-senses-in-ise-shima.html
+
+**Pochettino not to blame for Nations League exit, Tyler Adams says**\
+`A dismal defeat was not Pochettino's fault, according to one of his key players.`\
+https://nytimes.com/athletic/6220610/2025/03/21/usmnt-panama-mauricio-pochettino-not-to-blame-for-nations-league-tyler-adams/
+
 **Pochettino not to blame for Nations League exit, says Tyler Adams**\
 `A dismal defeat was not Mauricio Pochettino's fault, according to one of his key players.`\
 https://nytimes.com/athletic/6220610/2025/03/21/usmnt-panama-mauricio-pochettino-not-to-blame-for-nations-league-tyler-adams/
