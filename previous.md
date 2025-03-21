@@ -1,3 +1,11 @@
+**Hamilton takes first pole position as Ferrari driver for Chinese GP sprint**\
+`The Briton is on pole for the first sprint race of the year with Max Verstappen alongside him on the front row in Shanghai.`\
+https://nytimes.com/athletic/6220850/2025/03/21/lewis-hamilton-ferrari-pole-position-china-sprint/
+
+**How to watch No. 7 Saint Mary's vs. No. 10 Vanderbilt in the NCAA Tournament**\
+`Saint Mary's is favored against Vanderbilt in a 7-10 matchup in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216716/2025/03/21/saint-marys-vanderbilt-ncaa-tournament-how-to-watch/
+
 **Heathrow Closure Wreaks Havoc on Travel Plans Worldwide**\
 `The flights of thousands of passengers were disrupted by the shutdown on Friday at London Heathrow, one of the world’s busiest airports.`\
 https://nytimes.com/2025/03/21/world/europe/heathrow-airport-closure-flights.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/03/21/crosswords/spelling-bee-forum.html
 **Painting Over**\
 `Do you know why this image was in the news this week and what it shows?`\
 https://nytimes.com/2025/03/21/learning/painting-over.html
-
-**David Leonhardt Says Good Night to The Morning**\
-`Five years after founding The Times’s flagship newsletter, Mr. Leonhardt recently began a new role on Opinion, overseeing the editing and writing of the paper’s editorials.`\
-https://nytimes.com/2025/03/21/insider/david-leonhardt-the-morning.html
-
-**Workers Say They Were Pressured to Pay for N.Y.C. Election Jobs**\
-`A Republican Board of Elections employee was charged with taking kickbacks in exchange for jobs working the polls in the Bronx. Other employees say it did not end with her.`\
-https://nytimes.com/2025/03/21/nyregion/board-elections-bribes-jobs-bronx.html
 

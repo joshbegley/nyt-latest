@@ -1,3 +1,16 @@
+**Hamilton takes first pole position as Ferrari driver for Chinese GP sprint**\
+`The Briton is on pole for the first sprint race of the year with Max Verstappen alongside him on the front row in Shanghai.`\
+https://nytimes.com/athletic/6220850/2025/03/21/lewis-hamilton-ferrari-pole-position-china-sprint/
+
+**How to watch No. 7 Saint Mary's vs. No. 10 Vanderbilt in the NCAA Tournament**\
+`Saint Mary's is favored against Vanderbilt in a 7-10 matchup in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6216716/2025/03/21/saint-marys-vanderbilt-ncaa-tournament-how-to-watch/
+
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+
 **The betting lowdown: Title races across Europe’s big five leagues**\
 `Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
 `\
