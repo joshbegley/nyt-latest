@@ -1,40 +1,40 @@
-**What to Know if Your Heathrow Flight Was Canceled or Diverted**\
-`Around 220,000 passengers were expected to travel through London’s Heathrow Airport on Friday. The airport’s closure is expected to have ripple effects worldwide.`\
-https://nytimes.com/2025/03/21/world/europe/heathrow-flights-canceled-diverted-what-to-do.html
+**Twins roster projection 3.0: Who nabs final spots in bullpen and infield?**\
+`Infielder and reliever are the two spots to watch closest over the final five days of Twins camp.`\
+https://nytimes.com/athletic/6220106/2025/03/21/twins-roster-projection-bullpen-infield/
 
-**U.S. Says Decision to Turn Back French Scientist Had Nothing to Do With Trump**\
-`The Department of Homeland Security said the academic was denied entry because he had “confidential” data from an American lab, not because of his views on the president’s policies.`\
-https://nytimes.com/2025/03/21/world/europe/us-france-scientist-entry-trump.html
+**Russian Energy Sites Burn as Kyiv and Moscow Trade Accusations of Blame**\
+`Russia and Ukraine are preparing to discuss a potential cease-fire on power infrastructure, and each is seeking to portray the other side as untrustworthy ahead of talks.`\
+https://nytimes.com/2025/03/21/world/europe/russia-ukraine-power-energy-grid.html
 
-**Turner extends Man Utd contract to 2028**\
-`Turner has made 167 appearances for Man Utd since re-joining the club upon the formation of its professional women’s team in 2018. `\
-https://nytimes.com/athletic/6221059/2025/03/21/millie-turner-contract-manchester-united/
+**Ant-Man's weakness? Finishing at the rim has been a strange struggle for Anthony Edwards**\
+`The Timberwolves lost some momentum this week as they try to figure out why their young superstar is having trouble on drives to the basket.`\
+https://nytimes.com/athletic/6217248/2025/03/21/anthony-edwards-rim-shooting-struggles-timberwolves/
 
-**For the Lakers, the past eight days have been about surviving the schedule**\
-`LA got blown out Thursday but went 3-3 while playing six games in eight days and dealing with multiple injuries. `\
-https://nytimes.com/athletic/6217686/2025/03/21/lakers-tough-schedule-injuries-bucks-loss/
+**Drawing Back the Pentagon’s Curtains for Musk**\
+`The billionaire was set to be briefed on the military’s closely guarded playbooks on China, raising new questions about his power and access.`\
+https://nytimes.com/2025/03/21/business/dealbook/trump-musk-pentagon-access.html
 
-**In Japan, Timeshares Are Back, and Cooler Than Ever**\
-`A new model of ownership is allowing middle-class families and wealthy vacationers alike to buy a piece of alluring properties.`\
-https://nytimes.com/2025/03/21/realestate/japan-timeshares-homes.html
+**Croatia's 'golden' generation still have what it takes. Now, can they win a medal?**\
+`Croatia managed to beat France on their home turf on Thrusday evening — now can they win the Nations League?`\
+https://nytimes.com/athletic/6220071/2025/03/21/croatia-france-analysis-nations-league/
 
-**‘Is the grass greener?’ A transfer watches his former team in the NCAA Tournament**\
-`Bryce Pope spent four years building UC San Diego and transferred to USC. We watched the Tritons' first-round heartbreaker with him.`\
-https://nytimes.com/athletic/6220777/2025/03/21/ucsd-ncaa-tournament-bryce-pope-transfer-portal/
+**Trump Administration Live Updates: Pentagon to Brief Musk on Military Plan for Any War With China**\
+``\
+https://nytimes.com/live/2025/03/21/us/trump-news
 
-**Israel Tries to Pressure Hamas to Free More Hostages**\
-`Israel’s defense minister said it was preparing to seize more territory in Gaza and intensify attacks unless the Palestinian group freed more of the dozens of remaining captives.`\
-https://nytimes.com/2025/03/21/world/middleeast/israel-hamas-gaza-hostages.html
+**Ohio State freshman Jaloni Cambridge won't have March Madness nerves**\
+`Cambridge won Big Ten Freshman of the Year and was a first-team all-conference member, following in Caitlin Clark's footsteps.`\
+https://nytimes.com/athletic/6219197/2025/03/21/ohio-state-freshman-jaloni-cambridge-march-madness/
 
-**A backup generator’s failure raises questions about Heathrow’s contingency planning.**\
-`A backup generator was also affected by the fire at an electrical substation that closed Heathrow, prompting questions about the state of the country’s infrastructure.`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/a-backup-generators-failure-raises-questions-about-heathrows-contingency-planning
+**Nothing boring about it: Unpredictable women's NCAA Tournament is another boost**\
+`Parity in the women's game is a sign of the sport's evolution, columnist Chantel Jennings writes.`\
+https://nytimes.com/athletic/6219549/2025/03/21/women-ncaa-tournament-unpredictable-upset/
 
-**'Built like a Transformer' and possibly 'the next 60-homer guy,' Cam Smith is turning heads**\
-`The top prospect's work ethic, production and demeanor have impressed everyone this spring: "He looks the part. But he acts the part, too."`\
-https://nytimes.com/athletic/6219720/2025/03/21/astros-cam-smith-prospect-spring-training/
+**Bruins' priority in offseason rebuild: Speed at all positions**\
+`The Bruins lost a lot of experience at this season's trade deadline, opening up roster flexibility this offseason.`\
+https://nytimes.com/athletic/6220008/2025/03/21/bruins-rebuild-priority-speed-offense/
 
-**How to watch NCAA Women's Frozen Four — plus, top players, schedule and more**\
-`Everything you need to know about the 2025 women's Frozen Four.`\
-https://nytimes.com/athletic/6219797/2025/03/21/womens-frozen-four-hockey-ncaa-2025/
+**Inside the tweaks that have finally boosted the much-maligned Wild penalty kill**\
+`Freddy Gaudreau on the improvements: "We have just been working on our craft, working on doing all the little details better and together."`\
+https://nytimes.com/athletic/6213778/2025/03/21/wild-penalty-kill-tweaks/
 
