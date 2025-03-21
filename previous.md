@@ -1,3 +1,11 @@
+**Look on the bright side: The 10 most important developments of another lost Blackhawks season**\
+`With just a few weeks left in the season, let's change focus from the losing and look at some positive developments from the team.`\
+https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-developments/
+
+**‘Who Will Come to Invest?’ China’s Attacks on Panama Canal Deal Alarm Hong Kong**\
+`Beijing’s threat to stop a tycoon’s sale of his ports business has dealmakers wondering if they can still operate without political interference.`\
+https://nytimes.com/2025/03/20/business/trump-panama-canal-china-hong-kong.html
+
 **Heathrow Airport Halts Operations After Substation Fire in London**\
 `Dozens of firefighters were trying to put out a nearby blaze. The airport said it would be closed all of Friday.`\
 https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6220247/2025/03/20/houston-nhl-ownership-expansion-
 **Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
 `Drake, now 31-3, won its first NCAA Tournament game since 2021 and will play the winner of UNC Wilmington and Texas Tech.`\
 https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
-
-**Musk Offers $100 to Wisconsin Voters, Bringing Back a Controversial Tactic**\
-`By offering cash to voters who sign a petition opposing “activist judges,” Elon Musk’s super PAC can help identify conservative voters in a race for the Wisconsin Supreme Court.`\
-https://nytimes.com/2025/03/20/us/politics/elon-musk-wisconsin-petition.html
-
-**Thierry Henry swarmed by Panama celebration after Nations League semis win**\
-`Cecilio Waterman struck the only goal of Thursday’s first semifinal deep into injury time then ran straight toward Henry.`\
-https://nytimes.com/athletic/6220297/2025/03/20/thierry-henry-panama-nations-league-playoffs/
 

@@ -1,3 +1,11 @@
+**Look on the bright side: The 10 most important developments of another lost Blackhawks season**\
+`With just a few weeks left in the season, let's change focus from the losing and look at some positive developments from the team.`\
+https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-developments/
+
+**‘Who Will Come to Invest?’ China’s Attacks on Panama Canal Deal Alarm Hong Kong**\
+`Beijing’s threat to stop a tycoon’s sale of his ports business has dealmakers wondering if they can still operate without political interference.`\
+https://nytimes.com/2025/03/20/business/trump-panama-canal-china-hong-kong.html
+
 **Heathrow Airport Halts Operations After Substation Fire in London**\
 `Dozens of firefighters were trying to put out a nearby blaze. The airport said it would be closed all of Friday.`\
 https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
