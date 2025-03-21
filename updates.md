@@ -1,3 +1,11 @@
+**Penny Hardaway has 1 NCAA tourney win but says, 'I’m not looking for any excuses'**\
+`The defining stat when it comes to Hardaway as Memphis' coach might be one ... as in, one NCAA Tournament win.`\
+https://nytimes.com/athletic/6222378/2025/03/21/penny-hardaway-memphis-basketball-march-madness/
+
+**Max Kepler feeling comfortable in Phillies clubhouse in first spring away from Twins**\
+`He's healthy again, swinging a hot bat after making several adjustments, and acclimating to a new, boisterous group of teammates.`\
+https://nytimes.com/athletic/6222262/2025/03/21/max-kepler-phillies-twins/
+
 **Max Kepler feeling comfortable in Phillies clubhouse in first spring away from Twins**\
 `He’s healthy again, swinging a hot bat after making several adjustments, and acclimating to a new, boisterous group of teammates.`\
 https://nytimes.com/athletic/6222262/2025/03/21/max-kepler-phillies-twins/

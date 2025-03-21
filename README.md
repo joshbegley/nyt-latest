@@ -1,3 +1,11 @@
+**Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
+`The provision had been in place since the civil rights era.`\
+https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
+
+**An Interview With Elon Musk’s Daughter Was Months in the Making**\
+`Teen Vogue’s rollicking Q&A with Vivian Wilson offered insight into her life, her interests and her feelings about her famous father.`\
+https://nytimes.com/2025/03/21/style/vivian-wilson-teen-vogue-elon-musk.html
+
 **Penny Hardaway has 1 NCAA tourney win but says, 'I’m not looking for any excuses'**\
 `The defining stat when it comes to Hardaway as Memphis' coach might be one ... as in, one NCAA Tournament win.`\
 https://nytimes.com/athletic/6222378/2025/03/21/penny-hardaway-memphis-basketball-march-madness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6222288/2025/03/21/tyler-conklin-chargers-contract/
 **Ole Miss stops UNC comeback, sends last-team-in Tar Heels home**\
 `After a fierce bubble debate and First Four win, North Carolina came up short against Ole Miss in the first round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6222370/2025/03/21/unc-ole-miss-ncaa-tournament/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Tate Brothers, Trailed by Human-Trafficking Charges, Are Returning to Romania**\
-`Andrew Tate said on social media that he and his brother, Tristan, were flying back to Romania from the United States for a proceeding in their criminal case.`\
-https://nytimes.com/2025/03/21/world/andrew-tate-brothers-romania-trafficking.html
 
