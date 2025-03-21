@@ -1,3 +1,11 @@
+**Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
+`The provision had been in place since the civil rights era.`\
+https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
+
+**An Interview With Elon Musk’s Daughter Was Months in the Making**\
+`Teen Vogue’s rollicking Q&A with Vivian Wilson offered insight into her life, her interests and her feelings about her famous father.`\
+https://nytimes.com/2025/03/21/style/vivian-wilson-teen-vogue-elon-musk.html
+
 **Penny Hardaway has 1 NCAA tourney win but says, 'I’m not looking for any excuses'**\
 `The defining stat when it comes to Hardaway as Memphis' coach might be one ... as in, one NCAA Tournament win.`\
 https://nytimes.com/athletic/6222378/2025/03/21/penny-hardaway-memphis-basketball-march-madness/
