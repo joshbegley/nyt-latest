@@ -1,3 +1,11 @@
+**‘A million moving pieces’: What happens when a hub like Heathrow shuts down.**\
+`Lots of people need to secure hotel rooms and new travel plans.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-passengers-flights-logistics.html
+
+**How to watch No. 6 Ole Miss vs. No. 11 North Carolina in the NCAA Tournament**\
+`North Carolina blew away San Diego State in the First Four and is now favored to keep the run going against Ole Miss.`\
+https://nytimes.com/athletic/6216771/2025/03/21/ole-miss-north-carolina-ncaa-tournament-how-to-watch/
+
 **'This is who I am': Coco Gauff returns to the people and place that made her**\
 `Gauff is the highest-paid female athlete in the world, but still finds the tennis court that made her a place to recenter herself.`\
 https://nytimes.com/athletic/6216895/2025/03/21/coco-gauff-tennis-family-background-grandmother-pompey-park-delray-beach/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/03/21/todays-new-york-times-internatio
 **Hojlund explains copying Ronaldo's celebration: 'It was not to mock him'**\
 `The Man Utd striker called Ronaldo his 'idol', saying that he has been a fan of the 40-year-old since 2009.`\
 https://nytimes.com/athletic/6220866/2025/03/21/cristiano-ronaldo-hojlund-celebration/
-
-**How to watch No. 5 Memphis vs. No. 12 Colorado State in the NCAA Tournament**\
-`Colorado State is only a No. 12 seed, but the Rams are favored against Memphis in the first round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6216664/2025/03/21/memphis-colorado-state-mens-ncaa-tournament-how-to-watch/
-
-**When should Jaxson Dart be drafted? Evaluating pros and cons of the Ole Miss QB**\
-`Dart has an intriguing skillset with a live arm but a simplistic college offense leaves him with a need for refinement in the NFL.`\
-https://nytimes.com/athletic/6179747/2025/03/21/jaxson-dart-nfl-draft-qb-mississippi/
 
