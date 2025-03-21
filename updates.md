@@ -1,3 +1,11 @@
+**What ‘Conservative Cosmo’ Thinks Women Want**\
+`The Evie reader can work. She can be a mom. It’s her choice. It’s just not feminism.`\
+https://nytimes.com/2025/03/21/style/evie-magazine.html
+
+**Obamacare Enrollees Could See Big Changes in 2026**\
+`A proposed rule would restrict “eligibility, enrollment and affordability” in plans under the Affordable Care Act, health policy analysts say.`\
+https://nytimes.com/2025/03/21/business/obamacare-changes-2026.html
+
 **Power is mostly restored to homes after the fire near Heathrow.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
