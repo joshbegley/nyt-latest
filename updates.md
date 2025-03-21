@@ -1,3 +1,15 @@
+**Finding This Party Was Half the Fun**\
+`At a fashion store hidden within Uzbekistan’s oldest market, artists gathered to celebrate the country’s inaugural Bukhara Biennial.`\
+https://nytimes.com/2025/03/21/t-magazine/bukhara-biennial-nowruz-j-kim-party.html
+
+**Rangers' J.T. Miller 'nothing but thankful' ahead of first showdown with Canucks**\
+`Despite how everything ended with Vancouver, the 32-year-old holds no ill will against his former team.`\
+https://nytimes.com/athletic/6222115/2025/03/21/rangers-canucks-jt-miller-trade/
+
+**Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
+`Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
+https://nytimes.com/2025/03/21/us/politics/judge-bruce-selya-dead.html
+
 **Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
 `Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
 https://nytimes.com/2025/03/21/us/politics/bruce-selya-dead.html
