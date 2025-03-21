@@ -1,3 +1,11 @@
+**Decrepit infrastructure? Poor security? Heathrow chaos prompts thorny questions.**\
+`With counterterrorism police leading the investigation, the possibility of sabotage was being taken seriously, though officials say there is no evidence of foul play.`\
+https://nytimes.com/2025/03/21/world/europe/infrastructure-security-heathrow-chaos.html
+
+**Paul Weiss Chair Says Deal With Trump Adheres to Firm’s Principles**\
+`In an email message on Thursday evening, Paul Weiss Chairman Brad Karp reassured employees that the deal with President Trump was in keeping with the firm’s principles.`\
+https://nytimes.com/2025/03/21/business/paul-weiss-memo-trump-deal.html
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include dead-serious assassins, replicant Keystone Kops, long-simmering revenge and more than one variety of stuffed bear.`\
 https://nytimes.com/2025/03/21/movies/five-action-movies-to-stream-now.html
