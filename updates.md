@@ -1,3 +1,7 @@
+**What next for Everton's new stadium development, Liverpool's north docks and Goodison Park?**\
+`If The Friedkin Group can make their plans for the new stadium and Goodison Park a reality — the club and city could be transformed`\
+https://nytimes.com/athletic/6217931/2025/03/21/everton-inspired-by-you-new-stadium-goodison-park/
+
 **Junior Firpo's stock is high at Leeds United. What does the future hold?**\
 `Firpo has been a source of creativity for Leeds this season but his contract expires in the summer and his future remains unclear`\
 https://nytimes.com/athletic/6218852/2025/03/21/junior-firpo-leeds-united-future/
