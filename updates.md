@@ -1,3 +1,7 @@
+**Murillo — the most watchable centre-half in modern football**\
+`Murillo may not have got on for Brazil against Colombia, but the Forest defender's time will come`\
+https://nytimes.com/athletic/6213151/2025/03/21/murillo-brazil-nottingham-forest/
+
 **The worrying numbers that suggest Manchester United Women have been overperforming**\
 `The data underlying their loss to Liverpool shows the result was coming`\
 https://nytimes.com/athletic/6218660/2025/03/21/manchester-united-women-overperforming/
