@@ -1,3 +1,23 @@
+**The Size of the Tax Cut**\
+`We explain how Republicans are approaching taxes.`\
+https://nytimes.com/2025/03/21/briefing/the-size-of-the-tax-cut.html
+
+**Airlines Scramble to Rebook Travelers After Canceling Heathrow Flights**\
+`About 80 airlines operate at the airport, London’s busiest travel hub.`\
+https://nytimes.com/2025/03/21/business/heathrow-airlines-travel.html
+
+**How to watch No. 6 Illinois vs. No. 11 Xavier in the men's NCAA Tournament**\
+`The Illini are slight favorites over the Musketeers, who are coming off a win over Texas in the First Four.`\
+https://nytimes.com/athletic/6219213/2025/03/21/xavier-illinois-mens-ncaa-tournament-how-to-watch/
+
+**How to watch No. 4 Arizona vs. No. 13 Akron in the men's NCAA Tournament**\
+`Arizona enters the tournament as a No. 4 seed and is heavily favored against the Akron Zips. `\
+https://nytimes.com/athletic/6219759/2025/03/21/arizona-akron-mens-ncaa-tournament-how-to-watch/
+
+**The Pulse: Two huge upsets, plus Boston billions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6219239/2025/03/21/mcneese-drake-ncaa-tournament-the-pulse/
+
 **Eno Sarris' updated MLB starting pitcher rankings for the 2025 season**\
 `Several starters have dealt with injuries, so it's time for an updated look at the top pitchers to target in your fantasy drafts.`\
 https://nytimes.com/athletic/6211367/2025/03/21/sarris-mlb-starting-pitcher-rankings-fantasy-baseball/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6219882/2025/03/21/chiefs-free-agent-signees-jaylon
 **J.J. McCarthy, Aaron Rodgers and the Vikings' QB situation: Answering 4 key questions**\
 `The Vikings will have high expectations entering the 2025 season. But where they end up will depend on their QB. Here's where things stand.`\
 https://nytimes.com/athletic/6219923/2025/03/21/jj-mccarthy-aaron-rodgers-vikings-qb/
-
-**It's on Senators' best players to avoid late-season skid in playoff chase**\
-`Brady Tkachuk and Tim Stützle looked more like their usual selves, but the Avalanche administered a beating in a rough first period.`\
-https://nytimes.com/athletic/6220144/2025/03/21/senators-skid-playoff-chase-avalanche/
-
-**How much does every NFL owner want to win? A team-by-team breakdown of their efforts**\
-`Not every owner is willing to do what it takes to win, or even knows how to accomplish the goal. So which teams are best set for success?`\
-https://nytimes.com/athletic/6216519/2025/03/21/nfl-owners-free-agency-offseason/
-
-**U.S. World Cup host cities pushing for $625m in federal funding for security costs**\
-`Eleven cities are engaged in expensive lobbying attempts to persuade the Trump administration to commit federal cash`\
-https://nytimes.com/athletic/6217420/2025/03/21/world-cup-security-trump-fifa/
-
-**Where are all the schools in the women’s NCAA Tournament located?**\
-`From Michigan (179 miles) to Oregon (2,863), here's how far every non-host has to travel in the first round of the women's NCAA Tournament.`\
-https://nytimes.com/athletic/6209626/2025/03/21/school-locations-womens-ncaa-tournament-2025/
-
-**Alabama's NCAA hopes ride on Mark Sears' play in his final run with the Tide**\
-`Which Sears shows up in the NCAA Tournament will dictate if Alabama makes a run at a second consecutive Final Four.`\
-https://nytimes.com/athletic/6218729/2025/03/21/march-madness-2025-alabama-basketball-mark-sears/
 
