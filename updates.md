@@ -1,3 +1,7 @@
+**London’s Heathrow Airport Halts Operations, Throwing Global Travel Into Disarray**\
+`The airport, one of the world’s busiest, was set to be closed all of Friday because of a fire at a nearby power substation.`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire
+
 **Fire Engulfs London Substation**\
 `A substation in Hayes, in western London, caught fire and disrupted one of the busiest airports in the world.`\
 https://nytimes.com/video/world/europe/100000010064995/heathrow-airport-fire.html
