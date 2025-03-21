@@ -1,3 +1,11 @@
+**Kilmer McCully, Pathologist Scorned for Heart Disease Theory, Dies at 91**\
+`His studies showed that a B vitamin deficiency could cause hardened arteries. It took the medical profession more than a decade to catch up.`\
+https://nytimes.com/2025/03/21/science/kilmer-mccully-dead.html
+
+**Are We in a Constitutional Crisis?**\
+`Adam Liptak, who covers the Supreme Court for The New York Times, says the right question is not whether there is a constitutional crisis, but rather how much damage it will cause and how the American government may be fundamentally transformed.`\
+https://nytimes.com/video/us/politics/100000010063017/are-we-in-a-constitutional-crisis.html
+
 **The Heathrow shutdown could delay many air cargo shipments.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-shutdown-could-delay-many-air-cargo-shipments
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/doz
 **Trump Cleaves Student Loan and Special Education Services From Education Dept.**\
 `President Trump said Friday that he was tasking other government entities with core functions of the Education Department as he works to dismantle an agency conservatives have long criticized.`\
 https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
-
-**Aaron Rodgers visiting with Steelers, deal today is 'possible': Sources**\
-`Rodgers, 41, is seeking his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
-https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agent-visit/
-
-**The Novelty of a Natural Smile**\
-`At a time when celebrity veneers seem to be a norm, Aimee Lou Wood of “White Lotus” has found fans of her perfectly imperfect teeth.`\
-https://nytimes.com/2025/03/21/style/aimee-lou-wood-teeth-white-lotus.html
 

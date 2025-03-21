@@ -1,3 +1,15 @@
+**The Heathrow shutdown could delay many air cargo shipments.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-shutdown-could-delay-many-air-cargo-shipments
+
+**Japanese Breakfast’s Shimmering Sadness, and 8 More New Songs**\
+`Hear tracks by Marianne Faithfull, the Waterboys featuring Fiona Apple, Debby Friday and more.`\
+https://nytimes.com/2025/03/21/arts/music/playlist-japanese-breakfast-jack-harlow-morgan-wallen.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 3/21 at 2:00 p.m. ET**\
+`Submit your questions for Eno Sarris' live chat about MLB and fantasy baseball.`\
+https://nytimes.com/athletic/6220038/2025/03/21/eno-sarris-mlb-fantasy-baseball-live-chat-3-21/
+
 **USMNT vs. Canada: A desirable matchup with undesirable third-place stakes**\
 `Playing for third is not what the U.S. nor Canada had in mind, but their Nations League finale can still serve a useful purpose.`\
 https://nytimes.com/athletic/6220855/2025/03/21/usmnt-canada-concacaf-nations-league-third-place-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agen
 **The Novelty of a Natural Smile**\
 `At a time when celebrity veneers seem to be a norm, Aimee Lou Wood of “White Lotus” has found fans of her perfectly imperfect teeth.`\
 https://nytimes.com/2025/03/21/style/aimee-lou-wood-teeth-white-lotus.html
-
-**Five Free Movies to Stream Now**\
-`In films like “First Cow” and “Red Rocket” on Tubi, Plex and PlutoTV, you’ll see the arc of a country that bends from opportunity to opportunism.`\
-https://nytimes.com/2025/03/21/movies/five-free-movies-to-stream-now.html
-
-**‘Severance’ Finale Raises New Questions, but Were There Any Answers?**\
-`Our critics and editors assess the new conflicts introduced by the Season 2 finale and whether it cleared up enough of the show’s many mysteries.`\
-https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-questions.html
-
-**Everton, Leicester accused of breaching guidelines by advertising unlicensed gambling firms**\
-`Neither club responded directly to the accusation but maintain they are confident they are complying with the regulations.`\
-https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
 

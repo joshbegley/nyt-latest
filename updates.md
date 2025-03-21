@@ -1,3 +1,15 @@
+**The Heathrow shutdown could delay many air cargo shipments.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-shutdown-could-delay-many-air-cargo-shipments
+
+**Japanese Breakfast’s Shimmering Sadness, and 8 More New Songs**\
+`Hear tracks by Marianne Faithfull, the Waterboys featuring Fiona Apple, Debby Friday and more.`\
+https://nytimes.com/2025/03/21/arts/music/playlist-japanese-breakfast-jack-harlow-morgan-wallen.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 3/21 at 2:00 p.m. ET**\
+`Submit your questions for Eno Sarris' live chat about MLB and fantasy baseball.`\
+https://nytimes.com/athletic/6220038/2025/03/21/eno-sarris-mlb-fantasy-baseball-live-chat-3-21/
+
 **USMNT vs. Canada: A desirable matchup with undesirable third-place stakes**\
 `Playing for third is not what the U.S. nor Canada had in mind, but their Nations League finale can still serve a useful purpose.`\
 https://nytimes.com/athletic/6220855/2025/03/21/usmnt-canada-concacaf-nations-league-third-place-game/
