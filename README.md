@@ -1,3 +1,7 @@
+**Corrections: March 21, 2025**\
+`Corrections that appeared in print on Friday, March 21, 2025.`\
+https://nytimes.com/2025/03/20/pageoneplus/corrections-march-21-2025.html
+
 **Panama deals USMNT another deflating, exposing defeat**\
 `The USMNT won't be winning a fourth straight Nations League title after suffering another humiliating loss to Panama. `\
 https://nytimes.com/athletic/6220176/2025/03/20/panama-deals-usmnt-another-deflating-exposing-defeat/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010064355/trump-executive-order-clos
 **Reds' Opening Day roster down to final spots: Roster predictions 4.0**\
 `It appears the final spot in the rotation and the fifth outfielder spot are the only roster decisions left.`\
 https://nytimes.com/athletic/6219959/2025/03/20/reds-opening-day-roster-prediction-4/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
