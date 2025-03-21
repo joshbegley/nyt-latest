@@ -1,3 +1,11 @@
+**‘Is the grass greener?’ A transfer watches his former team in the NCAA Tournament**\
+`Bryce Pope spent four years building UC San Diego and transferred to USC. We watched the Tritons' first-round heartbreaker with him.`\
+https://nytimes.com/athletic/6220777/2025/03/21/ucsd-ncaa-tournament-bryce-pope-transfer-portal/
+
+**Israel Tries to Pressure Hamas to Free More Hostages**\
+`Israel’s defense minister said it was preparing to seize more territory in Gaza and intensify attacks unless the Palestinian group freed more of the dozens of remaining captives.`\
+https://nytimes.com/2025/03/21/world/middleeast/israel-hamas-gaza-hostages.html
+
 **A backup generator’s failure raises questions about Heathrow’s contingency planning.**\
 `A backup generator was also affected by the fire at an electrical substation that closed Heathrow, prompting questions about the state of the country’s infrastructure.`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/a-backup-generators-failure-raises-questions-about-heathrows-contingency-planning
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6218038/2025/03/21/evan-engram-broncos-joker-tight-
 **Injuries to Leon Draisaitl and Connor McDavid leave the Oilers with uncertainty**\
 `McDavid left a 4-3 overtime loss to the Winnipeg Jets with what the team is calling a lower body injury.`\
 https://nytimes.com/athletic/6220778/2025/03/21/oilers-injuries-leon-draisaitl-connor-mcdavid/
-
-**Arsenal live Q&A: Jordan Campbell answers your questions**\
-`Get your questions in now and and I will be with you between 3pm and 4pm GMT (11am to noon ET) to answer as many as I can`\
-https://nytimes.com/athletic/6217880/2025/03/21/arsenal-questions-arteta-saka/
-
-**State of the Red Sox: Seven roster spots unsettled a week before Opening Day**\
-`The Red Sox have a series of decisions to make, some of which could involve top prospects like Kristian Campbell and Marcelo Mayer. `\
-https://nytimes.com/athletic/6219764/2025/03/21/red-sox-roster-opening-day-projection/
 
