@@ -1,3 +1,27 @@
+**A guide to Cooper Flagg trading cards**\
+`Everything you need to know about Flagg's nascent trading card market `\
+https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
+
+**The defensive breakdown that doomed the USMNT against Panama**\
+`With the Concacaf Nations League semifinal heading for extra time, a crucial play clinched victory for Panama.`\
+https://nytimes.com/athletic/6220357/2025/03/21/goal-breakdown-panama-usmnt-nations-league/
+
+**Blue Ghost’s Long Day on the Moon**\
+`The sun has set on the Blue Ghost spacecraft, ending a successful mission to the moon.`\
+https://nytimes.com/interactive/2025/03/21/science/blue-ghost-moon-landing.html
+
+**Row Z: Chelsea's strong stance, Siuuu-per Hojlund and where are the celebration police now?**\
+`Welcome to Row Z, The Athletic’s weekly column that shines a light on the bonkers side of the game`\
+https://nytimes.com/athletic/6221112/2025/03/21/chelsea-fofana-fernandez-hojlund-ronaldo/
+
+**The Windup: A surprise pick to win the AL East**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6220640/2025/03/21/al-east-preview-prediction-the-windup/
+
+**Judge to Consider Block on Trump’s Use of Wartime Law to Deport Venezuelans**\
+`A hearing on Friday afternoon could also include some discussion about the Justice Department’s repeated recalcitrance in responding to the judge’s demands.`\
+https://nytimes.com/2025/03/21/us/politics/trump-deportations-alien-enemies-act-block.html
+
 **‘Yellowjackets’ Season 3, Episode 7 Recap: ‘Barbecue’**\
 `Our new arrivals smell something sizzling in the woods. Here comes a meal with all the fixin’s.`\
 https://nytimes.com/2025/03/21/arts/television/yellowjackets-recap-season-3-episode-7.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6221083/2025/03/21/celtics-sale-jayson-tatum-jaylen
 **Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
 `This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
 https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html
-
-**Long-Lost Klimt Portrays African Prince**\
-`The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
-https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
-
-**What ‘Conservative Cosmo’ Thinks Women Want**\
-`The Evie reader can work. She can be a mom. It’s her choice. It’s just not feminism.`\
-https://nytimes.com/2025/03/21/style/evie-magazine.html
-
-**Obamacare Enrollees Could See Big Changes in 2026**\
-`A proposed rule would restrict “eligibility, enrollment and affordability” in plans under the Affordable Care Act, health policy analysts say.`\
-https://nytimes.com/2025/03/21/business/obamacare-changes-2026.html
-
-**Power is mostly restored to homes after the fire near Heathrow.**\
-`By Claire Moses`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
-
-**South Korean Court Blocks K-pop Group NewJeans From Going It Alone**\
-`The court sided with the girl group’s record label, Ador, barring the quintet from planning commercial pursuits after trying to cut ties. The band vowed to appeal.`\
-https://nytimes.com/2025/03/21/world/asia/korea-newjeans-ruling.html
-
-**Long Before She Was Charged With Murder, a Group of Men Had Raised an Alarm**\
-`“I told the judge, I told the D.A., that she was going to kill somebody,” said David Butler, one of several men who said they had been drugged and defrauded by the same woman in New Orleans.`\
-https://nytimes.com/2025/03/21/us/adan-manzano-death-suspect-drugs.html
 

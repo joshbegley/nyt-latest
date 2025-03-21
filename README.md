@@ -1,7 +1,3 @@
-**A guide to Cooper Flagg trading cards**\
-`Everything you need to know about Flagg's nascent trading card market `\
-https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
-
 **The defensive breakdown that doomed the USMNT against Panama**\
 `With the Concacaf Nations League semifinal heading for extra time, a crucial play clinched victory for Panama.`\
 https://nytimes.com/athletic/6220357/2025/03/21/goal-breakdown-panama-usmnt-nations-league/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6221083/2025/03/21/celtics-sale-jayson-tatum-jaylen
 **Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
 `This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
 https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html
+
+**Long-Lost Klimt Portrays African Prince**\
+`The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
+https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
 
