@@ -1,3 +1,7 @@
+**Eno Sarris' updated MLB starting pitcher rankings for the 2025 season**\
+`Several starters have dealt with injuries, so it's time for an updated look at the top pitchers to target in your fantasy drafts.`\
+https://nytimes.com/athletic/6211367/2025/03/21/sarris-mlb-starting-pitcher-rankings-fantasy-baseball/
+
 **Mess in the West: Behind OKC, teams are jockeying for positioning**\
 `The battles for home-court advantage in Round 1 and a top-six playoff spot could go down to the final day of the season.`\
 https://nytimes.com/athletic/6215621/2025/03/21/nba-western-conference-playoffs-lakers-warriors/
