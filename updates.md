@@ -1,3 +1,7 @@
+**Power is mostly restored to homes after the fire near Heathrow.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
+
 **After major outages, power was restored to most homes on Friday.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
