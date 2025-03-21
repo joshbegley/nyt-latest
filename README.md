@@ -1,3 +1,11 @@
+**Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
+`Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
+https://nytimes.com/2025/03/21/us/politics/bruce-selya-dead.html
+
+**I Need an Egg Donor. Can I Ask a Former Student?**\
+`The magazine’s Ethicist columnist on navigating the power dynamics of a life-altering request.`\
+https://nytimes.com/2025/03/21/magazine/professor-student-donor-ethics.html
+
 **Heathrow Rumbles Back to Life After Substation Fire Shut Down Airport**\
 `The blaze forced Britain’s largest airport to cancel or divert more than 1,000 flights on Friday and removed a linchpin of global air travel. Counterterrorism police were investigating the cause of the fire.`\
 https://nytimes.com/2025/03/21/world/europe/heathrow-airport-london-fire.html
@@ -22,19 +30,11 @@ https://nytimes.com/2025/03/21/world/europe/heathrow-power-fire-investigation.ht
 `The free agent will be reinstated from the restricted list on July 17.`\
 https://nytimes.com/athletic/6222029/2025/03/21/mlb-suspends-julio-urias/
 
-**Trump Raged at Columbia Over $400 Million Decades Ago. Sound Familiar?**\
+**Decades Ago, Columbia Refused to Pay Trump $400 Million. Note That Number.**\
 `A quarter century ago, the university was looking to expand. It considered, and rejected, property owned by Donald Trump. He did not forget it.`\
 https://nytimes.com/2025/03/21/nyregion/trump-columbia-university-400-million.html
 
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**McDavid, Draisaitl to miss Saturday’s game vs. Kraken with injuries**\
-`Knoblauch said McDavid will be sidelined for “maybe a week” with a lower-body injury, while Draisaitl’s timeline is “up to a week.”`\
-https://nytimes.com/athletic/6222013/2025/03/21/connor-mcdavid-leon-draisaitl-injury-oilers/
-
-**Scouting reports on Curtis Mead, Casey Mize and more spring training standouts**\
-`Andrea Arcadipane offers a scouting breakdown of some of the top spring training performers, including a couple of bright, young Rays.`\
-https://nytimes.com/athletic/6221535/2025/03/21/scouting-reports-on-curtis-mead-casey-mize-and-more-spring-training-standouts/
 
