@@ -1,3 +1,11 @@
+**What We Know About the Closure of Heathrow Airport**\
+`A fire at a substation in London cut off power to one of the world’s busiest airports, causing travel disruptions globally.`\
+https://nytimes.com/2025/03/21/world/europe/london-heathrow-airport-closed.html
+
+**Late Night Flunks Trump for Gutting the Department of Education**\
+`“Trump famously said he loves the poorly educated, and now he will have so many more people to love,” Jimmy Kimmel said on Thursday.`\
+https://nytimes.com/2025/03/21/arts/television/late-night-trump-department-of-education.html
+
 **Once a taboo, periods are the new tool for growing women's football**\
 `Through new commercial partnerships, WSL sides are seeing the benefits of ending the stigma around periods`\
 https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-soccer-periods-wsl/

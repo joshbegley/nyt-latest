@@ -1,3 +1,11 @@
+**What We Know About the Closure of Heathrow Airport**\
+`A fire at a substation in London cut off power to one of the world’s busiest airports, causing travel disruptions globally.`\
+https://nytimes.com/2025/03/21/world/europe/london-heathrow-airport-closed.html
+
+**Late Night Flunks Trump for Gutting the Department of Education**\
+`“Trump famously said he loves the poorly educated, and now he will have so many more people to love,” Jimmy Kimmel said on Thursday.`\
+https://nytimes.com/2025/03/21/arts/television/late-night-trump-department-of-education.html
+
 **Once a taboo, periods are the new tool for growing women's football**\
 `Through new commercial partnerships, WSL sides are seeing the benefits of ending the stigma around periods`\
 https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-soccer-periods-wsl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6215024/2025/03/21/newcastle-cup-final-photo-wemble
 **Spurs have frozen ticket prices, but is it all good news for matchgoing fans?**\
 `Spurs announced adjustments to ticketing, including changes relating to senior concessions, ticket exchange, and their cup ticket scheme`\
 https://nytimes.com/athletic/6218257/2025/03/21/spurs-have-frozen-ticket-prices-but-is-it-all-good-news-for-matchgoing-fans/
-
-**Geography, politics and admin: The long road to becoming an international football team**\
-`Greenland is one of the nations hoping to become recognised on the global football stage - but the path is a difficult one`\
-https://nytimes.com/athletic/6218449/2025/03/21/geography-politics-and-admin-the-long-road-to-becoming-an-international-football-team/
-
-**The BookKeeper: Exploring Liverpool's finances, England's most profitable club**\
-`In-depth analysis of Liverpool's economic situation from The Athletic's new specialist football finance writer`\
-https://nytimes.com/athletic/6131040/2025/03/21/the-bookkeeper-liverpool-finances-transfers/
 
