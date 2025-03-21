@@ -1,3 +1,15 @@
+**Virginia hiring VCU coach Ryan Odom, who led UMBC to historic upset**\
+`Odom was the architect of the greatest upset in NCAA Tournament history at Virginia’s expense.`\
+https://nytimes.com/athletic/6217638/2025/03/21/virginia-basketball-coach-ryan-odom-vcu-umbc/
+
+**Columbia Concedes to Trump**\
+`Plus, Sudan’s army recaptures the presidential palace.`\
+https://nytimes.com/2025/03/21/briefing/columbia-trump-sudan.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Howe?**\
 `Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
 https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
