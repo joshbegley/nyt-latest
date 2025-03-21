@@ -1,3 +1,15 @@
+**Junior Firpo's stock is high at Leeds United. What does the future hold?**\
+`Firpo has been a source of creativity for Leeds this season but his contract expires in the summer and his future remains unclear`\
+https://nytimes.com/athletic/6218852/2025/03/21/junior-firpo-leeds-united-future/
+
+**United need wing-backs for Amorim's system - but can you make rather than buy them?**\
+`United might move for wing-backs in the summer window, but is there a way to create internal solutions from players they already have?`\
+https://nytimes.com/athletic/5910385/2025/03/21/manchester-united-wing-back-analysis/
+
+**Identifying (almost) everyone in Newcastle's iconic Wembley celebration photo**\
+`Throughout Eddie Howe's time as head coach, wins have been marked by a post-match photo - but this one will have a special pride of place`\
+https://nytimes.com/athletic/6215024/2025/03/21/newcastle-cup-final-photo-wembley/
+
 **Spurs have frozen ticket prices, but is it all good news for matchgoing fans?**\
 `Spurs announced adjustments to ticketing, including changes relating to senior concessions, ticket exchange, and their cup ticket scheme`\
 https://nytimes.com/athletic/6218257/2025/03/21/spurs-have-frozen-ticket-prices-but-is-it-all-good-news-for-matchgoing-fans/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/21/world/europe/london-firefighters-heathrow-airport
 **Friday Briefing**\
 `Fighting escalates in Gaza.`\
 https://nytimes.com/2025/03/21/briefing/gaza-ukraine-trump.html
-
-**The New York Times in Print for Friday, March 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/21/todays-new-york-times
-
-**Jiménez and a tested Mexico crush Canada's Nations League hopes**\
-`Canada entered the Concacaf Nations League finals looking to make a statement, but it'll exit with a familiar lack of satisfaction. `\
-https://nytimes.com/athletic/6220636/2025/03/21/mexico-canada-concacaf-nations-league-raul-jimenez-marsch/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
