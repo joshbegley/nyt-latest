@@ -1,3 +1,7 @@
+**America Last: Why Shoppers Abroad Are Boycotting U.S. Goods**\
+`A growing number of Europeans and citizens of other countries are choosing not to buy American products to demonstrate their anger at President Trump’s policies.`\
+https://nytimes.com/2025/03/21/world/europe/europe-boycott-american-products-trump.html
+
 **The Power of ‘Two’: An Anniversary Playlist**\
 `Celebrate two years of this newsletter with songs by Dolly Parton, Stacey Q, Mitski and more.`\
 https://nytimes.com/2025/03/21/arts/music/amplifier-newsletter-two-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/arts/music/playlist-japanese-breakfast-jack-harlo
 **Live Q&A: Talking baseball with Eno Sarris on Friday 3/21 at 2:00 p.m. ET**\
 `Submit your questions for Eno Sarris' live chat about MLB and fantasy baseball.`\
 https://nytimes.com/athletic/6220038/2025/03/21/eno-sarris-mlb-fantasy-baseball-live-chat-3-21/
-
-**USMNT vs. Canada: A desirable matchup with undesirable third-place stakes**\
-`Playing for third is not what the U.S. nor Canada had in mind, but their Nations League finale can still serve a useful purpose.`\
-https://nytimes.com/athletic/6220855/2025/03/21/usmnt-canada-concacaf-nations-league-third-place-game/
 
