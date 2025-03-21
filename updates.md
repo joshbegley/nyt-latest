@@ -1,3 +1,11 @@
+**Decades Ago, Columbia Refused to Pay Trump $400 Million. Note That Number.**\
+`A quarter century ago, the university was looking to expand. It considered, and rejected, property owned by Donald Trump. He did not forget it.`\
+https://nytimes.com/2025/03/21/nyregion/trump-columbia-university-400-million.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Finding This Party Was Half the Fun**\
 `At a fashion store hidden within Uzbekistan’s oldest market, artists gathered to celebrate the country’s inaugural Bukhara Biennial.`\
 https://nytimes.com/2025/03/21/t-magazine/bukhara-biennial-nowruz-j-kim-party.html
