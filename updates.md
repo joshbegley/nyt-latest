@@ -1,3 +1,12 @@
+**How to watch No. 4 Kentucky vs. No. 13 Liberty in the women's NCAA Tournament**\
+`Kentucky hosts Liberty in the first round of the women's NCAA Tournament, with the No. 4 Wildcats expected to advance.`\
+https://nytimes.com/athletic/6211329/2025/03/21/kentucky-liberty-womens-ncaa-tournament-how-to-watch/
+
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+
 **The betting lowdown: Title races across Europe’s big five leagues**\
 `Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
 `\
