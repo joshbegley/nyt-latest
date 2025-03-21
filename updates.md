@@ -1,3 +1,7 @@
+**Corrections: March 21, 2025**\
+`Corrections that appeared in print on Friday, March 21, 2025.`\
+https://nytimes.com/2025/03/20/pageoneplus/corrections-march-21-2025.html
+
 **Panama deals USMNT another deflating, exposing defeat**\
 `The USMNT won't be winning a fourth straight Nations League title after suffering another humiliating loss to Panama. `\
 https://nytimes.com/athletic/6220176/2025/03/20/panama-deals-usmnt-another-deflating-exposing-defeat/
