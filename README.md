@@ -1,3 +1,11 @@
+**Shutdown of Britain’s Busiest Airport Causes Worldwide Travel Disruption**\
+`Heathrow Airport in London, one of the busiest in the world, was shut down on Friday after a fire disrupted power from a nearby electrical substation.`\
+https://nytimes.com/video/world/europe/100000010065664/heathrow-airport-shut-fire-travel-disruption.html
+
+**Many California Trees Survived the Wildfires. Here’s Why.**\
+`As the fires that ravaged Los Angeles in January ebbed, many trees were left standing next to burnt down homes. Here’s why.`\
+https://nytimes.com/card/2025/03/21/us/la-fires-trees
+
 **Residents near the burning power station saw ‘a massive ball of flame.’**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/residents-near-the-burning-power-station-saw-a-massive-ball-of-flame
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6219972/2025/03/21/riccardo-calafiori-injury-arsena
 **Three wacky Premier League bets to liven up the end of the season**\
 `Sam Tighe has a look at three wacky, out-of-the-box Premier League bets ahead of the next round of fixtures. `\
 https://nytimes.com/athletic/6219229/2025/03/21/premier-league-wacky-bets-odds-predictions/
-
-**NHL Power Rankings: Jets retake top spot as we refine data to find the scary numbers for each team**\
-`The Jets and Hurricanes are moving up but there's a number to be worried about for every team in the league, even the very best.`\
-https://nytimes.com/athletic/6220584/2025/03/21/nhl-power-rankings-jets-2/
-
-**8 New Shows Our Theater Critics Are Talking About**\
-`A British satirical comedy, a Tennessee Williams classic, a soundscape of Havana: These are productions worth knowing about.`\
-https://nytimes.com/2025/03/21/theater/8-new-shows-our-theater-critics-are-talking-about.html
 
