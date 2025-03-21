@@ -1,3 +1,7 @@
+**The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Eddie Howe?**\
+`Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
+https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
+
 **Duke, Cooper Flagg cruise in star freshman's return from injury**\
 `Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
 https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/judge-bruce-selya-dead.html
 **I Need an Egg Donor. Can I Ask a Former Student?**\
 `The magazine’s Ethicist columnist on navigating the power dynamics of a life-altering request.`\
 https://nytimes.com/2025/03/21/magazine/professor-student-donor-ethics.html
-
-**Heathrow Rumbles Back to Life After Substation Fire Shut Down Airport**\
-`The blaze forced Britain’s largest airport to cancel or divert more than 1,000 flights on Friday and removed a linchpin of global air travel. Counterterrorism police were investigating the cause of the fire.`\
-https://nytimes.com/2025/03/21/world/europe/heathrow-airport-london-fire.html
 

@@ -2,6 +2,10 @@
 `Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
 https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
 
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Duke, Cooper Flagg cruise in star freshman's return from injury**\
 `Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
 https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222115/2025/03/21/rangers-canucks-jt-miller-trade/
 **Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
 `Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
 https://nytimes.com/2025/03/21/us/politics/judge-bruce-selya-dead.html
-
-**I Need an Egg Donor. Can I Ask a Former Student?**\
-`The magazine’s Ethicist columnist on navigating the power dynamics of a life-altering request.`\
-https://nytimes.com/2025/03/21/magazine/professor-student-donor-ethics.html
 

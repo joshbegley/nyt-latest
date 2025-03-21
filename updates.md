@@ -1,3 +1,7 @@
+**The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Eddie Howe?**\
+`Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
+https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
+
 **Duke, Cooper Flagg cruise in star freshman's return from injury**\
 `Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
 https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
