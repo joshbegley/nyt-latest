@@ -1,3 +1,7 @@
+**Read the document**\
+`The final agreement that Taryn Southern agreed to with Bryan Johnson signed in 2020.`\
+https://nytimes.com/interactive/2025/03/21/business/taryn-southern-final-agreement-1.html
+
 **In Wes Anderson’s World, It’s All About the Details**\
 `A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
 https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html

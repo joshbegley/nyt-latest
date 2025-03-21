@@ -1,3 +1,7 @@
+**Read the document**\
+`The final agreement that Taryn Southern agreed to with Bryan Johnson signed in 2020.`\
+https://nytimes.com/interactive/2025/03/21/business/taryn-southern-final-agreement-1.html
+
 **In Wes Anderson’s World, It’s All About the Details**\
 `A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
 https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219197/2025/03/21/ohio-state-freshman-jaloni-cambr
 **Nothing boring about it: Unpredictable women's NCAA Tournament is another boost**\
 `Parity in the women's game is a sign of the sport's evolution, columnist Chantel Jennings writes.`\
 https://nytimes.com/athletic/6219549/2025/03/21/women-ncaa-tournament-unpredictable-upset/
-
-**Bruins' priority in offseason rebuild: Speed at all positions**\
-`The Bruins lost a lot of experience at this season's trade deadline, opening up roster flexibility this offseason.`\
-https://nytimes.com/athletic/6220008/2025/03/21/bruins-rebuild-priority-speed-offense/
 
