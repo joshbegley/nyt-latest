@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/20/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Alexandria Ocasio-Cortez Puts Her Own Spin on Bernie Sanders’s Pitch**\
 `The two progressive leaders, one young and one old, are touring Western cities with a similar message but a key difference in how they sell it.`\
 https://nytimes.com/2025/03/20/us/politics/aoc-bernie-sanders-vegas-denver.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/books/nbcc-award-winners.html
 **Alex Ovechkin 7 goals from breaking Wayne Gretzky's record with No. 888**\
 `The Washington Capitals superstar continues to close in on Gretzky's longstanding record of 894 career NHL goals.`\
 https://nytimes.com/athletic/6210420/2025/03/20/alex-ovechkin-goal-888-wayne-gretzky/
-
-**Is Playboi Carti Rap’s Next — or Last — Superstar?**\
-`After nearly five years of building hype, the Atlanta rapper’s 30-song third album, “Music,” has finally arrived. Let’s discuss.`\
-https://nytimes.com/2025/03/20/arts/music/playboi-carti-music-popcast.html
 

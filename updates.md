@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/20/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Alexandria Ocasio-Cortez Puts Her Own Spin on Bernie Sanders’s Pitch**\
 `The two progressive leaders, one young and one old, are touring Western cities with a similar message but a key difference in how they sell it.`\
 https://nytimes.com/2025/03/20/us/politics/aoc-bernie-sanders-vegas-denver.html
