@@ -1,3 +1,7 @@
+**Fanatics says it had $40 million in Tokyo Series sales, a new special event record**\
+`Japan's rapidly growing interest in MLB helped Fanatics sell more merchandise than it does for events like the World Series`\
+https://nytimes.com/athletic/6221408/2025/03/21/fanatics-mlb-tokyo-series-sales/
+
 **Stranded by Heathrow closure, some passengers got creative. Others just gave up.**\
 `The New York Times asked passengers whose travel plans were upended by a daylong disruption at Heathrow Airport to share how they coped.`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-passengers-stories
