@@ -1,3 +1,7 @@
+**What next for Everton's new stadium development, Liverpool's north docks and Goodison Park?**\
+`If The Friedkin Group can make their plans for the new stadium and Goodison Park a reality — the club and city could be transformed`\
+https://nytimes.com/athletic/6217931/2025/03/21/everton-inspired-by-you-new-stadium-goodison-park/
+
 **Junior Firpo's stock is high at Leeds United. What does the future hold?**\
 `Firpo has been a source of creativity for Leeds this season but his contract expires in the summer and his future remains unclear`\
 https://nytimes.com/athletic/6218852/2025/03/21/junior-firpo-leeds-united-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6213444/2025/03/21/george-dowell-interview-worthing
 **London Firefighters Battle Blaze That Knocked Out Power at Heathrow**\
 `The London Fire Brigade said that disruptions from the fire, at an electrical substation, would increase into Friday. Its cause was not immediately known.`\
 https://nytimes.com/2025/03/21/world/europe/london-firefighters-heathrow-airport.html
-
-**Friday Briefing**\
-`Fighting escalates in Gaza.`\
-https://nytimes.com/2025/03/21/briefing/gaza-ukraine-trump.html
 
