@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6219959/2025/03/20/reds-opening-day-roster-predicti
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
-**USMNT vs. Panama LIVE: Pochettino's U.S. aims for Nations League final**\
-`All the highlights and key plays from the USMNT's Concacaf Nations League semifinal vs. Panama`\
+**Panama stuns USMNT with stoppage-time winner in Nations League semis**\
+`Panama ensured that the U.S. will not be winning a fourth straight Concacaf Nations League title with a stunning late winner.`\
 https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
 

@@ -1,3 +1,7 @@
+**Panama stuns USMNT with stoppage-time winner in Nations League semis**\
+`Panama ensured that the U.S. will not be winning a fourth straight Concacaf Nations League title with a stunning late winner.`\
+https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
+
 **Were the Kennedy Files a Bust? Not So Fast, Historians Say.**\
 `The thousands of documents posted online this week disappointed assassination buffs. But historians are finding many newly revealed secrets.`\
 https://nytimes.com/2025/03/20/us/politics/jfk-assassination-files-cia.html
