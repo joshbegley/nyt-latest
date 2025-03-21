@@ -1,3 +1,11 @@
+**Everton, Leicester accused of breaching guidelines by advertising unlicensed gambling firms**\
+`Neither club responded directly to the accusation but maintain they are confident they are complying with the regulations.`\
+https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
+
+**Here are the upset odds for McNeese, Drake, Gonzaga and more**\
+`Are Purdue and Texas Tech in trouble? And what about Tennessee?`\
+https://nytimes.com/athletic/6221600/2025/03/21/ncaa-tournament-upsets-round-2-mcneese-drake/
+
 **Deion calls out teams for 'lies' about Shedeur's NFL Draft process**\
 `“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
 https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/

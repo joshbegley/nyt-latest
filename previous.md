@@ -1,3 +1,11 @@
+**Everton, Leicester accused of breaching guidelines by advertising unlicensed gambling firms**\
+`Neither club responded directly to the accusation but maintain they are confident they are complying with the regulations.`\
+https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
+
+**Here are the upset odds for McNeese, Drake, Gonzaga and more**\
+`Are Purdue and Texas Tech in trouble? And what about Tennessee?`\
+https://nytimes.com/athletic/6221600/2025/03/21/ncaa-tournament-upsets-round-2-mcneese-drake/
+
 **Deion calls out teams for 'lies' about Shedeur's NFL Draft process**\
 `“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
 https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/opinion/psychiatric-drugs-withdrawal.html
 **Cubarsi to return to Barcelona after suffering ankle injury on Spain duty**\
 `The 18-year-old was forced off injured in the 41st minute of Spain’s 2-2 draw with the Netherlands on Thursday.`\
 https://nytimes.com/athletic/6219868/2025/03/21/pau-cubarsi-injury-barcelona-spain/
-
-**For Trump and Netanyahu, Similar Strategies With Similar Goals**\
-`The American and Israeli leaders have been mirroring each other as they go to war with their own governments`\
-https://nytimes.com/2025/03/21/us/politics/trump-netanyahu-israel-political-strategy.html
-
-**Pitching Season Rating: A new metric for grading starting pitchers in fantasy baseball**\
-`John Laghezza shares one of his new creations, a metric for fantasy baseball starting pitchers valuations, akin to wRC+ for hitters.`\
-https://nytimes.com/athletic/6218478/2025/03/21/pitching-season-rating-a-new-metric-for-grading-starting-pitchers-in-fantasy-baseball/
 

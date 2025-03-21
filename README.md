@@ -1,3 +1,11 @@
+**Five Free Movies to Stream Now**\
+`In films like “First Cow” and “Red Rocket” on Tubi, Plex and PlutoTV, you’ll see the arc of a country that bends from opportunity to opportunism.`\
+https://nytimes.com/2025/03/21/movies/five-free-movies-to-stream-now.html
+
+**‘Severance’ Finale Raises New Questions, but Were There Any Answers?**\
+`Our critics and editors assess the new conflicts introduced by the Season 2 finale and whether it cleared up enough of the show’s many mysteries.`\
+https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-questions.html
+
 **Everton, Leicester accused of breaching guidelines by advertising unlicensed gambling firms**\
 `Neither club responded directly to the accusation but maintain they are confident they are complying with the regulations.`\
 https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6221607/2025/03/21/free-agency-quarterback-recap-nf
 **NBA trends I'm watching: Warriors reborn, a guard who plays big, a box-out natural**\
 `A dynasty is hoping to re-emerge. An All-Star is even more refined than before. And a rookie is honing the fundamentals at a rapid rate.`\
 https://nytimes.com/athletic/6221355/2025/03/21/nba-trends-warriors-cade-cunningham-yves-missi-free-throws/
-
-**Psychiatric Drugs: Getting Off vs. Staying On**\
-`A psychiatrist and a patient respond to an article in Science Times. Also: A plea to Congress; an upside-down definition of waste, fraud and abuse.`\
-https://nytimes.com/2025/03/21/opinion/psychiatric-drugs-withdrawal.html
-
-**Cubarsi to return to Barcelona after suffering ankle injury on Spain duty**\
-`The 18-year-old was forced off injured in the 41st minute of Spain’s 2-2 draw with the Netherlands on Thursday.`\
-https://nytimes.com/athletic/6219868/2025/03/21/pau-cubarsi-injury-barcelona-spain/
 
