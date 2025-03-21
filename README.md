@@ -1,40 +1,40 @@
+**Why the Shipping Industry Isn’t Rushing Back to the Red Sea**\
+`The companies that operate large container ships say they plan to keep going around Africa as violence flares in the region.`\
+https://nytimes.com/2025/03/21/business/economy/red-sea-shipping-houthis.html
+
+**China’s Government Is Short of Money as Its Leaders Face Trump**\
+`Tax revenues have fallen, leaving the government with less money to help consumers or exporters as Beijing braces for President Trump’s tariffs.`\
+https://nytimes.com/2025/03/21/business/china-taxes-trump-tariffs.html
+
+**Celebrating Love on Miami’s ‘305 Day’**\
+`Maria Aguado and Salvador Salazar, who were introduced by a mutual friend, bonded over their upbringings in Venezuela.`\
+https://nytimes.com/2025/03/21/style/maria-aguado-salvador-salazar-wedding.html
+
+**The Virtual Meeting That Started It All**\
+`Chi Mokel and Tommaso Wagner met at the dawn of the pandemic five years ago, just as she was starting a new job at the foundation where he worked.`\
+https://nytimes.com/2025/03/21/style/chi-mokel-tommaso-wagner-wedding.html
+
+**Making More Than Just Beautiful Music Together**\
+`Carole-Anne Drescher and Rob Carroll, both professional musicians, met six years ago while playing in the same wedding band. They weren’t the first couple in the band to marry.`\
+https://nytimes.com/2025/03/21/style/carol-anne-drescher-rob-carroll-wedding.html
+
+**Happily Unmarried — Until Her Daughters Staged an Intervention**\
+`After almost 17 years together, Leron Rogers and Chinyere Gonzalez exchanged vows in Jamaica after her children urged them to make it official.`\
+https://nytimes.com/2025/03/21/style/leron-rogers-chinyere-gonzalez-wedding.html
+
+**The Lady Will Have the Laxatives**\
+`If I acted on a date like a girl who has a healthy relationship with food, could I become her?`\
+https://nytimes.com/2025/03/21/style/modern-love-anorexia-the-lady-will-have-the-laxatives.html
+
+**Quote of the Day: Syrians Want to Be Wanted by the Assad Regime**\
+`Quotation of the Day for Friday, March 21, 2025.`\
+https://nytimes.com/2025/03/20/pageoneplus/quote-of-the-day-syrians-want-to-be-wanted-by-the-assad-regime.html
+
+**Kings' DeMar DeRozan reaches 25,000 career points**\
+`DeRozan entered Thursday night’s game averaging 22.2 points while getting to the free throw line for 5.6 attempts per game.`\
+https://nytimes.com/athletic/6219970/2025/03/20/demar-derozan-25000-career-points-kings/
+
 **Goal-starved Blue Jackets suffer 'bad break' late in OT loss to Florida**\
 `Columbus continued its late-season slide on Thursday, which has made a playoff berth a tall order now.`\
 https://nytimes.com/athletic/6220340/2025/03/20/blue-jackets-panthers-nhl-playoffs/
-
-**Depleted Flyers' scoring woes were predictable, but it shouldn't be this bad**\
-`The end of the season does not look kind for the Flyers, with several key players struggling to hit the net.`\
-https://nytimes.com/athletic/6220429/2025/03/20/flyers-scoring-issues-capitals/
-
-**Look on the bright side: The 10 most important developments of another lost Blackhawks season**\
-`With just a few weeks left in the season, let's change focus from the losing and look at some positive developments from the team.`\
-https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-developments/
-
-**‘Who Will Come to Invest?’ China’s Attacks on Panama Canal Deal Alarm Hong Kong**\
-`Beijing’s threat to stop a tycoon’s sale of his ports business has dealmakers wondering if they can still operate without political interference.`\
-https://nytimes.com/2025/03/20/business/trump-panama-canal-china-hong-kong.html
-
-**Heathrow Airport to Be Closed All Day After Nearby Fire**\
-`One of the world’s busiest airports canceled all arrivals and departures until 11:59 p.m. Friday after a fire nearby disrupted power. The airport serves about 1,300 flights a day.`\
-https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
-
-**The Rangers are still in the playoff race, but going nowhere fast**\
-`Nearing the end of a strange season, the Rangers don't look like they truly want to challenge for a playoff berth.`\
-https://nytimes.com/athletic/6220319/2025/03/20/rangers-playoff-race-defense-leafs/
-
-**Maple Leafs report cards: John Tavares, strong team effort earn Toronto win in New York**\
-`Tavares had two goals and Anthony Stolarz made 27 saves as Toronto defeated the Rangers 4-3 on Thursday night.`\
-https://nytimes.com/athletic/6220352/2025/03/20/maple-leafs-rangers-john-tavares-goals/
-
-**Justice Dept. Tries to Intervene on Trump’s Behalf in Jan. 6 Lawsuits**\
-`The department employed a maneuver that could protect the president from legal and financial consequences in a series of civil suits.`\
-https://nytimes.com/2025/03/20/us/politics/jan-6-lawsuits.html
-
-**Boeser helps Canucks salvage a point in heartbreaking loss to Blues: 3 takeaways**\
-`Boeser scored with 2.7 seconds left in regulation to force overtime against a rival for the final wild-card spot in the West.`\
-https://nytimes.com/athletic/6220126/2025/03/20/canucks-boeser-blues-playoff-chase/
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
