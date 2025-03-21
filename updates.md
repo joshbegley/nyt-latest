@@ -1,3 +1,7 @@
+**America Last: Why Shoppers Abroad Are Boycotting U.S. Goods**\
+`A growing number of Europeans and citizens of other countries are choosing not to buy American products to demonstrate their anger at President Trump’s policies.`\
+https://nytimes.com/2025/03/21/world/europe/europe-boycott-american-products-trump.html
+
 **The Power of ‘Two’: An Anniversary Playlist**\
 `Celebrate two years of this newsletter with songs by Dolly Parton, Stacey Q, Mitski and more.`\
 https://nytimes.com/2025/03/21/arts/music/amplifier-newsletter-two-songs.html
