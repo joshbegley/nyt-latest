@@ -1,3 +1,31 @@
+**Canada women's world championship roster announced**\
+`Hockey Canada revealed its 25-player roster for the IIHF Women’s World Championship on Friday.`\
+https://nytimes.com/athletic/6221911/2025/03/21/canada-iihf-womens-world-championship-roster/
+
+**Trump Rejects Idea That Musk Should Have Access to Top-Secret China War Plans**\
+`The president also denied a report that such a briefing had been planned to be held at the Pentagon on Friday.`\
+https://nytimes.com/2025/03/21/us/politics/trump-china-elon-musk-pentagon.html
+
+**MLB ‘evaluating’ Diversity Pipeline Program, strikes DEI references from its website**\
+`Commissioner Rob Manfred said the league is trying to remain "consistent with what the law requires."`\
+https://nytimes.com/athletic/6221850/2025/03/21/mlb-diversity-rob-manfred/
+
+**U.S.-Mexico 2031 Women's World Cup bid exploring games in Costa Rica, Jamaica**\
+`Nothing has been confirmed, but early-stage conversations about hosting a limited amount of fixtures in the two countries have taken place.`\
+https://nytimes.com/athletic/6221918/2025/03/21/womens-world-cup-bid-costa-rica-jamaica/
+
+**Dom Smith opts out of Yankees deal**\
+`Smith will officially become a free agent if the Yankees do not add him to the roster in the next 24 hours.`\
+https://nytimes.com/athletic/6221849/2025/03/21/dom-smith-yankees-26th-man/
+
+**Trump administration weighs economic aid for farmers affected by tariffs.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/03/21/us/trump-news/rump-administration-weighs-economic-aid-for-farmers-affected-by-tariffs
+
+**The Giants will name Patrick Bailey's backup soon. What's in the job description?**\
+`The Giants have a choice to make between Sam Huff and Max Stassi. What are the qualities they should be looking for in making the choice?`\
+https://nytimes.com/athletic/6221456/2025/03/21/sf-giants-backup-catcher-sam-huff-max-stassi/
+
 **A History of the Alien Enemies Act of 1798**\
 `Before the current Trump administration, the law had been invoked just three times.`\
 https://nytimes.com/2025/03/21/us/politics/trump-alien-enemies-act-history.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/21/world/europe/europe-boycott-american-products-tru
 **The Power of ‘Two’: An Anniversary Playlist**\
 `Celebrate two years of this newsletter with songs by Dolly Parton, Stacey Q, Mitski and more.`\
 https://nytimes.com/2025/03/21/arts/music/amplifier-newsletter-two-songs.html
-
-**How Israel Divides the Right**\
-`By Ross Douthat`\
-https://nytimes.com/2025/03/21/opinion/israel-republican-antisemitism.html
-
-**As Trump Broadens Crackdown, Focus Expands to Legal Immigrants and Tourists**\
-`U.S. border officials are using more aggressive tactics at ports of entry as the administration scrutinizes green card and visa holders who have expressed opposition to its policies.`\
-https://nytimes.com/2025/03/21/us/politics/trump-immigration-visa-crackdown.html
-
-**Women's March Madness first round takeaways: Kentucky survives scare from No. 13 Liberty**\
-`Wildcats guard Georgia Amoore scored 34 points to avoid the upset.`\
-https://nytimes.com/athletic/6221735/2025/03/21/womens-march-madness-2025-first-round-takeaways-michigan-notre-dame/
-
-**Kilmer McCully, Pathologist Scorned for Heart Disease Theory, Dies at 91**\
-`His studies showed that a B vitamin deficiency could cause hardened arteries. It took the medical profession more than a decade to catch up.`\
-https://nytimes.com/2025/03/21/science/kilmer-mccully-dead.html
-
-**Are We in a Constitutional Crisis?**\
-`Adam Liptak, who covers the Supreme Court for The New York Times, says the right question is not whether there is a constitutional crisis, but rather how much damage it will cause and how the American government may be fundamentally transformed.`\
-https://nytimes.com/video/us/politics/100000010063017/are-we-in-a-constitutional-crisis.html
-
-**The Heathrow shutdown could delay many air cargo shipments.**\
-`By Peter Eavis`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-shutdown-could-delay-many-air-cargo-shipments
-
-**Japanese Breakfast’s Shimmering Sadness, and 8 More New Songs**\
-`Hear tracks by Marianne Faithfull, the Waterboys featuring Fiona Apple, Debby Friday and more.`\
-https://nytimes.com/2025/03/21/arts/music/playlist-japanese-breakfast-jack-harlow-morgan-wallen.html
 
