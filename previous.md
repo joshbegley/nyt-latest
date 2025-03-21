@@ -1,9 +1,21 @@
+**Democratic Senators Ask Government Watchdogs to Probe Musk’s Downsizing Efforts**\
+`The senators asked the inspectors general to look at future job cuts as well.`\
+https://nytimes.com/2025/03/21/us/politics/doge-cuts-senate-democrats.html
+
+**In New Book, Barrett Says She Will Bring Readers Inside Supreme Court**\
+`Justice Amy Coney Barrett, who has faced intense scrutiny since joining the court, says she will make the judicial process less of a “mystery” for readers.`\
+https://nytimes.com/2025/03/21/us/politics/supreme-court-barrett-book.html
+
+**Dozens of U.S. flights were diverted to airports far from London.**\
+`By Christine Chung`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/dozens-of-us-flights-were-diverted-to-airports-far-from-london
+
 **Trump Cleaves Student Loan and Special Education Services From Education Dept.**\
 `President Trump said Friday that he was tasking other government entities with core functions of the Education Department as he works to dismantle an agency conservatives have long criticized.`\
 https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
 
-**Aaron Rodgers visiting with Steelers: Source**\
-`Rodgers, 41, is joining his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
+**Aaron Rodgers visiting with Steelers, deal today is 'possible': Sources**\
+`Rodgers, 41, is seeking his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
 https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agent-visit/
 
 **The Novelty of a Natural Smile**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
 **Here are the upset odds for McNeese, Drake, Gonzaga and more**\
 `Are Purdue and Texas Tech in trouble? And what about Tennessee?`\
 https://nytimes.com/athletic/6221600/2025/03/21/ncaa-tournament-upsets-round-2-mcneese-drake/
-
-**Deion calls out team for 'lies' about Shedeur's NFL Draft process**\
-`“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
-https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
-
-**Watch: Tara VanDerveer reflects on her most memorable March Madness moments with Stanford**\
-`No Offseason sits down with Tara VanDerveer to answer listener questions on he NCAA Tournament and March Madness.`\
-https://nytimes.com/athletic/6221565/2025/03/21/tara-vanderveer-reflects-on-her-most-memorable-march-madness-moments-with-stanford/
-
-**Friday’s flight disruptions are among the biggest since a 2010 volcanic eruption in Iceland.**\
-`By Jenny Gross`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/fridays-flight-disruptions-are-among-the-biggest-since-a-2010-volcanic-eruption-in-iceland
 
