@@ -1,3 +1,15 @@
+**Trump Cleaves Student Loan and Special Education Services From Education Dept.**\
+`President Trump said Friday that he was tasking other government entities with core functions of the Education Department as he works to dismantle an agency conservatives have long criticized.`\
+https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
+
+**Aaron Rodgers visiting with Steelers: Source**\
+`Rodgers, 41, is joining his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
+https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agent-visit/
+
+**The Novelty of a Natural Smile**\
+`At a time when celebrity veneers seem to be a norm, Aimee Lou Wood of “White Lotus” has found fans of her perfectly imperfect teeth.`\
+https://nytimes.com/2025/03/21/style/aimee-lou-wood-teeth-white-lotus.html
+
 **Five Free Movies to Stream Now**\
 `In films like “First Cow” and “Red Rocket” on Tubi, Plex and PlutoTV, you’ll see the arc of a country that bends from opportunity to opportunism.`\
 https://nytimes.com/2025/03/21/movies/five-free-movies-to-stream-now.html
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6218161/2025/03/21/everton-leicester-stake-bcgame/
 `Are Purdue and Texas Tech in trouble? And what about Tennessee?`\
 https://nytimes.com/athletic/6221600/2025/03/21/ncaa-tournament-upsets-round-2-mcneese-drake/
 
-**Deion calls out teams for 'lies' about Shedeur's NFL Draft process**\
+**Deion calls out team for 'lies' about Shedeur's NFL Draft process**\
 `“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
 https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6221565/2025/03/21/tara-vanderveer-reflects-on-her-
 **Friday’s flight disruptions are among the biggest since a 2010 volcanic eruption in Iceland.**\
 `By Jenny Gross`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/fridays-flight-disruptions-are-among-the-biggest-since-a-2010-volcanic-eruption-in-iceland
-
-**Bucks' Kyle Kuzma still searching for ways to be a 'valuable player moving forward'**\
-`Kuzma's versatility has been important to Milwaukee since the trade deadline. Now, the Bucks need to find the spot where he works best.`\
-https://nytimes.com/athletic/6220739/2025/03/21/kyle-kuzma-bucks-lakers/
-
-**Scoop City: Where the QB carousel stands after free agency**\
-`Inside: A recap of the quarterback carousal, how proposed rules could ban the tush push and your thoughts on Brock Purdy&#8217;s payday.`\
-https://nytimes.com/athletic/6221607/2025/03/21/free-agency-quarterback-recap-nfl-scoop-city/
-
-**NBA trends I'm watching: Warriors reborn, a guard who plays big, a box-out natural**\
-`A dynasty is hoping to re-emerge. An All-Star is even more refined than before. And a rookie is honing the fundamentals at a rapid rate.`\
-https://nytimes.com/athletic/6221355/2025/03/21/nba-trends-warriors-cade-cunningham-yves-missi-free-throws/
 

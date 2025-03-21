@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
 
 **Aaron Rodgers visiting with Steelers: Source**\
-`Rodgers, 41, is joining his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
+`Rodgers, 41, is seeking his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
 https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agent-visit/
 
 **The Novelty of a Natural Smile**\

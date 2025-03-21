@@ -1,3 +1,19 @@
+**Trump Cleaves Student Loan and Special Education Services From Education Dept.**\
+`President Trump said Friday that he was tasking other government entities with core functions of the Education Department as he works to dismantle an agency conservatives have long criticized.`\
+https://nytimes.com/2025/03/21/us/politics/trump-education-department-student-loans.html
+
+**Aaron Rodgers visiting with Steelers: Source**\
+`Rodgers, 41, is joining his third NFL team in pursuit of one last hurrah before wrapping up a Hall of Fame career.`\
+https://nytimes.com/athletic/6171825/2025/03/21/aaron-rodgers-steelers-free-agent-visit/
+
+**The Novelty of a Natural Smile**\
+`At a time when celebrity veneers seem to be a norm, Aimee Lou Wood of “White Lotus” has found fans of her perfectly imperfect teeth.`\
+https://nytimes.com/2025/03/21/style/aimee-lou-wood-teeth-white-lotus.html
+
+**Deion calls out team for 'lies' about Shedeur's NFL Draft process**\
+`“We like to call that stuff out," Sanders said, referring to disparaging reports of his son's team interviews.`\
+https://nytimes.com/athletic/6221316/2025/03/21/shedeur-deion-sanders-nfl-draft-process-attitude-lies/
+
 **Five Free Movies to Stream Now**\
 `In films like “First Cow” and “Red Rocket” on Tubi, Plex and PlutoTV, you’ll see the arc of a country that bends from opportunity to opportunism.`\
 https://nytimes.com/2025/03/21/movies/five-free-movies-to-stream-now.html
