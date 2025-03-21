@@ -1,6 +1,10 @@
+**Bucks' Kyle Kuzma still searching for ways to be a 'valuable player moving forward'**\
+`Kuzma's versatility has been important to Milwaukee since the trade deadline. Now, the Bucks need to find the spot where he works best.`\
+https://nytimes.com/athletic/6220739/2025/03/21/kyle-kuzma-bucks-lakers/
+
 **Scoop City: Where the QB carousel stands after free agency**\
 `Inside: A recap of the quarterback carousal, how proposed rules could ban the tush push and your thoughts on Brock Purdy&#8217;s payday.`\
-https://nytimes.com/athletic/6221607/2025/03/21/where-the-qb-carousel-stands-after-free-agency-plus-where-the-browns-titans-are-leaning/
+https://nytimes.com/athletic/6221607/2025/03/21/free-agency-quarterback-recap-nfl-scoop-city/
 
 **NBA trends I'm watching: Warriors reborn, a guard who plays big, a box-out natural**\
 `A dynasty is hoping to re-emerge. An All-Star is even more refined than before. And a rookie is honing the fundamentals at a rapid rate.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/world/europe/infrastructure-security-heathrow-cha
 **Paul Weiss Chair Says Deal With Trump Adheres to Firm’s Principles**\
 `In an email message on Thursday evening, Paul Weiss Chairman Brad Karp reassured employees that the deal with President Trump was in keeping with the firm’s principles.`\
 https://nytimes.com/2025/03/21/business/paul-weiss-memo-trump-deal.html
-
-**Supreme Court Rules for Chicago Politician in Bank Fraud Case**\
-`The justices unanimously said a law prohibiting “any false statement or report” did not cover misleading assertions that fell short of outright lies.`\
-https://nytimes.com/2025/03/21/us/politics/supreme-court-chicago-politician-fraud.html
 
