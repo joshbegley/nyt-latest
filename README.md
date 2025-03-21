@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6220247/2025/03/20/houston-nhl-ownership-expansion-friedkin/
 
 **Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
-`Drake, now 31-3, won its first NCAA Tournament game since 1971 and will play the winner of UNC Wilmington and Texas Tech.`\
+`Drake, now 31-3, won its first NCAA Tournament game since 2021 and will play the winner of UNC Wilmington and Texas Tech.`\
 https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
 
 **Musk Offers $100 to Wisconsin Voters, Bringing Back a Controversial Tactic**\
