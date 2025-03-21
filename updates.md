@@ -1,3 +1,23 @@
+**Bucks' Kyle Kuzma still searching for ways to be a 'valuable player moving forward'**\
+`Kuzma's versatility has been important to Milwaukee since the trade deadline. Now, the Bucks need to find the spot where he works best.`\
+https://nytimes.com/athletic/6220739/2025/03/21/kyle-kuzma-bucks-lakers/
+
+**Scoop City: Where the QB carousel stands after free agency**\
+`Inside: A recap of the quarterback carousal, how proposed rules could ban the tush push and your thoughts on Brock Purdy&#8217;s payday.`\
+https://nytimes.com/athletic/6221607/2025/03/21/free-agency-quarterback-recap-nfl-scoop-city/
+
+**NBA trends I'm watching: Warriors reborn, a guard who plays big, a box-out natural**\
+`A dynasty is hoping to re-emerge. An All-Star is even more refined than before. And a rookie is honing the fundamentals at a rapid rate.`\
+https://nytimes.com/athletic/6221355/2025/03/21/nba-trends-warriors-cade-cunningham-yves-missi-free-throws/
+
+**Psychiatric Drugs: Getting Off vs. Staying On**\
+`A psychiatrist and a patient respond to an article in Science Times. Also: A plea to Congress; an upside-down definition of waste, fraud and abuse.`\
+https://nytimes.com/2025/03/21/opinion/psychiatric-drugs-withdrawal.html
+
+**Cubarsi to return to Barcelona after suffering ankle injury on Spain duty**\
+`The 18-year-old was forced off injured in the 41st minute of Spain’s 2-2 draw with the Netherlands on Thursday.`\
+https://nytimes.com/athletic/6219868/2025/03/21/pau-cubarsi-injury-barcelona-spain/
+
 **For Trump and Netanyahu, Similar Strategies With Similar Goals**\
 `The American and Israeli leaders have been mirroring each other as they go to war with their own governments`\
 https://nytimes.com/2025/03/21/us/politics/trump-netanyahu-israel-political-strategy.html
