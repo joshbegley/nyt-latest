@@ -1,3 +1,23 @@
+**How to watch No. 3 Kentucky vs. No. 14 Troy in the NCAA Tournament**\
+`Kentucky starts its first NCAA Tournament under Mark Pope against Troy on Friday evening.`\
+https://nytimes.com/athletic/6211275/2025/03/21/kentucky-troy-ncaa-tournament-how-to-watch/
+
+**Bills post-free agency mock draft: Which needs remain after an active signing period?**\
+`The Athletic's staff mock draft produced the first-round selection. What comes next for the Bills?`\
+https://nytimes.com/athletic/6219534/2025/03/21/bills-post-free-agency-mock-draft-which-needs-remain-after-a-busy-signing-period/
+
+**How Desert Southwest Dust Ends Up on Your Windshield in Des Moines**\
+`Rare back-to-back wind events have spread dust from Texas and New Mexico across the eastern U.S. and Canada.`\
+https://nytimes.com/2025/03/21/weather/dust-storm.html
+
+**The New York Times International Edition in Print for Saturday, March 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/21/todays-new-york-times-international-edition
+
+**Hojlund explains copying Ronaldo's celebration: 'It was not to mock him'**\
+`The Man Utd striker called Ronaldo his 'idol', saying that he has been a fan of the 40-year-old since 2009.`\
+https://nytimes.com/athletic/6220866/2025/03/21/cristiano-ronaldo-hojlund-celebration/
+
 **How to watch No. 5 Memphis vs. No. 12 Colorado State in the NCAA Tournament**\
 `Colorado State is only a No. 12 seed, but the Rams are favored against Memphis in the first round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6216664/2025/03/21/memphis-colorado-state-mens-ncaa-tournament-how-to-watch/
