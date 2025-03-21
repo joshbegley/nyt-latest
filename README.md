@@ -1,6 +1,22 @@
-**Aviation chaos can quickly spiral, despite contingency plans.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-airport-closed-aviation-effects
+**Residents near the burning power station saw ‘a massive ball of flame.’**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/residents-near-the-burning-power-station-saw-a-massive-ball-of-flame
+
+**Trump’s Tariffs Against Canada Can’t Be About Trade**\
+`Even people sympathetic to some of Trump’s views on trade can’t understand what he’s doing to Canada, our peaceful neighbor.`\
+https://nytimes.com/2025/03/21/opinion/trump-canada-tariffs.html
+
+**BBQ Pepper Shrimp, Warm Baguette, Green Salad: Happy Friday**\
+`Korsha Wilson’s easy shrimp dish is a satisfying way to close out the week and a bright start to the weekend.`\
+https://nytimes.com/2025/03/21/dining/bbq-shrimp-green-salad.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include dead-serious assassins, replicant Keystone Kops, long-simmering revenge and more than one variety of stuffed bear.`\
+https://nytimes.com/2025/03/21/movies/five-action-movies-to-stream-now.html
+
+**Aviation Chaos Can Quickly Spiral, Despite Contingency Plans**\
+`When crises occur, airline network operation centers go into overdrive. but managing the response is a delicate balance.`\
+https://nytimes.com/2025/03/21/business/heathrow-airport-closed-aviation-effects.html
 
 **Raphinha: Phone call with Flick was key in Barcelona stay last summer**\
 `Raphinha has 27 goals and 20 assists across all competitions this season and is among the contenders for the Ballon d'Or.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6220584/2025/03/21/nhl-power-rankings-jets-2/
 **8 New Shows Our Theater Critics Are Talking About**\
 `A British satirical comedy, a Tennessee Williams classic, a soundscape of Havana: These are productions worth knowing about.`\
 https://nytimes.com/2025/03/21/theater/8-new-shows-our-theater-critics-are-talking-about.html
-
-**Lowetide: Why Oilers' new defenceman Jake Walman is a perfect fit**\
-`Walman brings several above average skills that make him an attractive addition to Edmonton's defence.`\
-https://nytimes.com/athletic/6218557/2025/03/21/oilers-jake-walman-stats/
-
-**Cunha handed additional one-match ban after Bournemouth red card**\
-`The Brazil international was sent off after hitting, kicking and headbutting Milos Kerkez during extra time of the FA Cup defeat on March 1.`\
-https://nytimes.com/athletic/6171081/2025/03/21/matheus-cunha-red-card-ban/
-
-**A guide to Cooper Flagg trading cards**\
-`Everything you need to know about Flagg's nascent trading card market `\
-https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
-
-**The defensive breakdown that doomed the USMNT against Panama**\
-`With the Concacaf Nations League semifinal heading for extra time, a crucial play clinched victory for Panama.`\
-https://nytimes.com/athletic/6220357/2025/03/21/goal-breakdown-panama-usmnt-nations-league/
 
