@@ -1,3 +1,31 @@
+**Max Kepler feeling comfortable in Phillies clubhouse in first spring away from Twins**\
+`He’s healthy again, swinging a hot bat after making several adjustments, and acclimating to a new, boisterous group of teammates.`\
+https://nytimes.com/athletic/6222262/2025/03/21/max-kepler-phillies-twins/
+
+**Gordon injury 'doesn't look good', says Tuchel**\
+`The Newcastle United winger dropped to the ground in apparent discomfort and received treatment on the pitch after the full-time whistle.`\
+https://nytimes.com/athletic/6222422/2025/03/21/anthony-gordon-injury-update-england/
+
+**What to Know About Paul Weiss, the Law Firm Bowing to Trump’s Demands**\
+`The 150-year-old firm has employed many Democrats, including Manhattan’s former U.S. attorney. Its revenue was more than $2.6 billion last year.`\
+https://nytimes.com/2025/03/21/nyregion/what-is-paul-weiss.html
+
+**The Best Korean Skin Care Products **\
+`Text by Rory Evans`\
+https://nytimes.com/card/2025/03/21/smarter-living/wirecutter/the-best-korean-skin-care-products
+
+**The Justice Dept. announces a leak investigation after a Times article about intelligence assessments.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/03/21/us/trump-news/justice-dept-leak-investigation-intelligence
+
+**Chargers agree to deal with former Jets, Vikings TE Tyler Conklin**\
+`Conklin joins Los Angeles after spending the past three seasons with the Jets.`\
+https://nytimes.com/athletic/6222288/2025/03/21/tyler-conklin-chargers-contract/
+
+**Ole Miss stops UNC comeback, sends last-team-in Tar Heels home**\
+`After a fierce bubble debate and First Four win, North Carolina came up short against Ole Miss in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6222370/2025/03/21/unc-ole-miss-ncaa-tournament/
+
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/21/world/andrew-tate-brothers-romania-trafficking.ht
 **Lewis-Skelly 'lost for words' after record-breaking England debut**\
 `The Arsenal teenager scored 20 minutes into his first senior appearance for his country, aged 18 years and 176 days.`\
 https://nytimes.com/athletic/6222216/2025/03/21/myles-lewis-skelly-england-debut/
-
-**Top prospect Drake Baldwin makes Braves' opening roster; Chris Sale says kid is ready**\
-`Baldwin will make his major-league debut on Opening Day, catching the reigning NL Cy Young Award winner.`\
-https://nytimes.com/athletic/6222251/2025/03/21/drake-baldwin-braves-opening-day-roster-chris-sale/
-
-**Despite a drop in velocity, Cardinals starter Sonny Gray says he feels 'physically good'**\
-`Gray's velocity has been noticeably down all camp. He and the Cardinals will hope for much better results come Opening Day.`\
-https://nytimes.com/athletic/6222143/2025/03/21/cardinals-sonny-gray-drop-in-velocity/
-
-**Man Charged With Posing as Federal Agent After Promising Green Card Help**\
-`Prosecutors said a New York City man, who drove a red Hummer with “ICE” on its license plate, promised to help a Chinese citizen obtain a green card if she invested $500,000 with him.`\
-https://nytimes.com/2025/03/21/nyregion/green-card-fraud-ice.html
-
-**Virginia hiring VCU coach Ryan Odom, who led UMBC to historic upset**\
-`Odom was the architect of the greatest upset in NCAA Tournament history at Virginia’s expense.`\
-https://nytimes.com/athletic/6217638/2025/03/21/virginia-basketball-coach-ryan-odom-vcu-umbc/
-
-**Columbia Concedes to Trump**\
-`Plus, Sudan’s army recaptures the presidential palace.`\
-https://nytimes.com/2025/03/21/briefing/columbia-trump-sudan.html
-
-**The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Howe?**\
-`Analysis as England's brave new era under Tuchel began with a comfortable win over Albania in World Cup qualification at Wembley`\
-https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
-
-**Duke, Cooper Flagg cruise in star freshman's return from injury**\
-`Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
-https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
 
