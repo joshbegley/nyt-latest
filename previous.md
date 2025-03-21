@@ -1,3 +1,7 @@
+**Maple Leafs report cards: John Tavares, strong team effort earn Toronto win in New York**\
+`Tavares had two goals and Anthony Stolarz made 27 saves as Toronto defeated the Rangers 4-3 on Thursday night.`\
+https://nytimes.com/athletic/6220352/2025/03/20/maple-leafs-rangers-john-tavares-goals/
+
 **Justice Dept. Tries to Intervene on Trump’s Behalf in Jan. 6 Lawsuits**\
 `The department employed a maneuver that could protect the president from legal and financial consequences in a series of civil suits.`\
 https://nytimes.com/2025/03/20/us/politics/jan-6-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/20/theater/operation-mincemeat-review-broadway.html
 **A Neologism for ‘Fan’**\
 `Boaz Moser and Jacob Reed’s puzzle adds some zip to our Friday.`\
 https://nytimes.com/2025/03/20/crosswords/daily-puzzle-2025-03-21.html
-
-**Food Banks Left in the Lurch as Some Shipments Are Suspended**\
-`A representative of a nationwide food pantry network, said U.S.D.A. officials had informed him that some food aid distributed by the federal government was under review.`\
-https://nytimes.com/2025/03/20/us/politics/food-banks-usda.html
 
