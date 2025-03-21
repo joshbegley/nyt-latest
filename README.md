@@ -1,3 +1,11 @@
+**Trump Administration Sees Bias in a Judge and Tries to Push Her Off a Case**\
+`“This court has not kept its disdain for President Trump secret,” the Justice Department said in a motion in a case filed by a law firm suing the administration.`\
+https://nytimes.com/2025/03/21/us/politics/perkins-coie-howell.html
+
+**Trump Offers a Glimpse of New Stealth Fighter, the F-47**\
+`The president declared 47 “a beautiful number,” but did not announce a nickname for the warplane.`\
+https://nytimes.com/2025/03/21/us/politics/trump-f-47-fighter-jet-boeing.html
+
 **Where do the Candidates for New Jersey Governor Stand on the Issues?**\
 `The New York Times sent a wide-ranging survey to candidates for governor of New Jersey about housing, immigration, abortion, transit, affordability, schools and climate.`\
 https://nytimes.com/interactive/2025/03/21/nyregion/new-jersey-governor-candidates-issues.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/nyregion/columbia-response-trump-demands.html
 **Fanatics says it had $40 million in Tokyo Series sales, a new special event record**\
 `Japan's rapidly growing interest in MLB helped Fanatics sell more merchandise than it does for events like the World Series`\
 https://nytimes.com/athletic/6221408/2025/03/21/fanatics-mlb-tokyo-series-sales/
-
-**Stranded by Heathrow closure, some passengers got creative. Others just gave up.**\
-`The New York Times asked passengers whose travel plans were upended by a daylong disruption at Heathrow Airport to share how they coped.`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-passengers-stories
-
-**What Caused the Fire That Shut Down Heathrow Airport?**\
-`Officials and travelers are calling for an investigation into not only how the blaze started, but how it was able to cause such a large disruption to global travel.`\
-https://nytimes.com/2025/03/21/world/europe/heathrow-power-fire-investigation.html
 

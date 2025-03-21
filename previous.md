@@ -1,3 +1,15 @@
+**Where do the Candidates for New Jersey Governor Stand on the Issues?**\
+`The New York Times sent a wide-ranging survey to candidates for governor of New Jersey about housing, immigration, abortion, transit, affordability, schools and climate.`\
+https://nytimes.com/interactive/2025/03/21/nyregion/new-jersey-governor-candidates-issues.html
+
+**Finding This Party Was Half the Fun**\
+`At a fashion store hidden within Uzbekistan’s oldest market, artists gathered to celebrate the country’s inaugural Bukhara Biennial.`\
+https://nytimes.com/2025/03/21/t-magazine/bukhara-biennial-nowruz-j-kim-party.html
+
+**Rangers' J.T. Miller 'nothing but thankful' ahead of first showdown with Canucks**\
+`Despite how everything ended with Vancouver, the 32-year-old holds no ill will against his former team.`\
+https://nytimes.com/athletic/6222115/2025/03/21/rangers-canucks-jt-miller-trade/
+
 **Bruce M. Selya, Federal Judge Known for Polysyllabic Prose, Dies at 90**\
 `Judge Selya enlivened his writing with original vocabulary and colorful figures of speech. “Selyaisms” included asseverate, crapulous and sockdolager.`\
 https://nytimes.com/2025/03/21/us/politics/judge-bruce-selya-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/hea
 **What Caused the Fire That Shut Down Heathrow Airport?**\
 `Officials and travelers are calling for an investigation into not only how the blaze started, but how it was able to cause such a large disruption to global travel.`\
 https://nytimes.com/2025/03/21/world/europe/heathrow-power-fire-investigation.html
-
-**MLB suspends Julio Urías through All-Star break under domestic violence policy**\
-`The free agent will be reinstated from the restricted list on July 17.`\
-https://nytimes.com/athletic/6222029/2025/03/21/mlb-suspends-julio-urias/
-
-**Decades Ago, Columbia Refused to Pay Trump $400 Million. Note That Number.**\
-`A quarter century ago, the university was looking to expand. It considered, and rejected, property owned by Donald Trump. He did not forget it.`\
-https://nytimes.com/2025/03/21/nyregion/trump-columbia-university-400-million.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
