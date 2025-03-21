@@ -1,3 +1,19 @@
+**Lewis-Skelly 'lost for words' after record-breaking England debut**\
+`The Arsenal teenager scored 20 minutes into his first senior appearance for his country, aged 18 years and 176 days.`\
+https://nytimes.com/athletic/6222216/2025/03/21/myles-lewis-skelly-england-debut/
+
+**Top prospect Drake Baldwin makes Braves' opening roster; Chris Sale says kid is ready**\
+`Baldwin will make his major-league debut on Opening Day, catching the reigning NL Cy Young Award winner.`\
+https://nytimes.com/athletic/6222251/2025/03/21/drake-baldwin-braves-opening-day-roster-chris-sale/
+
+**Despite a drop in velocity, Cardinals starter Sonny Gray says he feels 'physically good'**\
+`Gray's velocity has been noticeably down all camp. He and the Cardinals will hope for much better results come Opening Day.`\
+https://nytimes.com/athletic/6222143/2025/03/21/cardinals-sonny-gray-drop-in-velocity/
+
+**Man Charged With Posing as Federal Agent After Promising Green Card Help**\
+`Prosecutors said a New York City man, who drove a red Hummer with “ICE” on its license plate, promised to help a Chinese citizen obtain a green card if she invested $500,000 with him.`\
+https://nytimes.com/2025/03/21/nyregion/green-card-fraud-ice.html
+
 **Virginia hiring VCU coach Ryan Odom, who led UMBC to historic upset**\
 `Odom was the architect of the greatest upset in NCAA Tournament history at Virginia’s expense.`\
 https://nytimes.com/athletic/6217638/2025/03/21/virginia-basketball-coach-ryan-odom-vcu-umbc/
@@ -7,7 +23,7 @@ https://nytimes.com/athletic/6217638/2025/03/21/virginia-basketball-coach-ryan-o
 https://nytimes.com/2025/03/21/briefing/columbia-trump-sudan.html
 
 **The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Howe?**\
-`Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
+`Analysis as England's brave new era under Tuchel began with a comfortable win over Albania in World Cup qualification at Wembley`\
 https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
 
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-r
 **Trump Threatens to Jail Tesla Vandals in El Salvador Prisons**\
 `President Nayib Bukele of El Salvador had previously offered to imprison convicted criminals from the United States in his country’s notorious prison facilities, for a fee.`\
 https://nytimes.com/2025/03/21/us/politics/trump-tesla-vandalism-prison.html
-
-**Trump Administration Sees Bias in a Judge and Tries to Push Her Off a Case**\
-`“This court has not kept its disdain for President Trump secret,” the Justice Department said in a motion in a case filed by a law firm suing the administration.`\
-https://nytimes.com/2025/03/21/us/politics/perkins-coie-howell.html
-
-**Trump Offers a Glimpse of New Stealth Fighter, the F-47**\
-`The president declared 47 “a beautiful number,” but did not announce a nickname for the warplane.`\
-https://nytimes.com/2025/03/21/us/politics/trump-f-47-fighter-jet-boeing.html
-
-**Where do the Candidates for New Jersey Governor Stand on the Issues?**\
-`The New York Times sent a wide-ranging survey to candidates for governor of New Jersey about housing, immigration, abortion, transit, affordability, schools and climate.`\
-https://nytimes.com/interactive/2025/03/21/nyregion/new-jersey-governor-candidates-issues.html
-
-**Finding This Party Was Half the Fun**\
-`At a fashion store hidden within Uzbekistan’s oldest market, artists gathered to celebrate the country’s inaugural Bukhara Biennial.`\
-https://nytimes.com/2025/03/21/t-magazine/bukhara-biennial-nowruz-j-kim-party.html
 
