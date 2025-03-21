@@ -1,3 +1,7 @@
+**The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Howe?**\
+`Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
+https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
+
 **The Briefing: England 2 Albania 0 - Record-breaker Lewis-Skelly and was Tuchel inspired by Eddie Howe?**\
 `Analysis as England's brave new era under Tuchel began with a comfortable victory over Albania in World Cup qualification at Wembley`\
 https://nytimes.com/athletic/6217935/2025/03/21/england-lewis-skelly-tuchel-bellingham-albania/
