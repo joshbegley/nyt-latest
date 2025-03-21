@@ -1,3 +1,11 @@
+**Justice Dept. Tries to Intervene on Trump’s Behalf in Jan. 6 Lawsuits**\
+`The department employed a maneuver that could protect the president from legal and financial consequences in a series of civil suits.`\
+https://nytimes.com/2025/03/20/us/politics/jan-6-lawsuits.html
+
+**Boeser helps Canucks salvage a point in heartbreaking loss to Blues: 3 takeaways**\
+`Boeser scored with 2.7 seconds left in regulation to force overtime against a rival for the final wild-card spot in the West.`\
+https://nytimes.com/athletic/6220126/2025/03/20/canucks-boeser-blues-playoff-chase/
+
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/20/crosswords/daily-puzzle-2025-03-21.html
 **Food Banks Left in the Lurch as Some Shipments Are Suspended**\
 `A representative of a nationwide food pantry network, said U.S.D.A. officials had informed him that some food aid distributed by the federal government was under review.`\
 https://nytimes.com/2025/03/20/us/politics/food-banks-usda.html
-
-**Arkansas, Calipari deliver Kansas' first NCAA first-round loss since 2006**\
-`A season that started with the Jayhawks at No. 1 ends in disappointment. John Calipari could meet Rick Pitino's St. John's next.`\
-https://nytimes.com/athletic/6220250/2025/03/20/arkansas-kansas-calipari-self-ncaa-tournament/
-
-**‘It Sounds Strange, Doesn’t It?’ Trump Muses About Gutting the Education Dept.**\
-`President Trump signed the executive order in the East Room of the White House, which was packed with jittery children.`\
-https://nytimes.com/2025/03/20/us/politics/trump-education-executive-order-scene.html
 

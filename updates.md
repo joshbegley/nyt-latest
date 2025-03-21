@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
 `Drake, now 31-3, won its first NCAA Tournament game since 2021 and will play the winner of UNC Wilmington and Texas Tech.`\
 https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
