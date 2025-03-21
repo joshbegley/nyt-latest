@@ -1,3 +1,11 @@
+**Goal-starved Blue Jackets suffer 'bad break' late in OT loss to Florida**\
+`Columbus continued its late-season slide on Thursday, which has made a playoff berth a tall order now.`\
+https://nytimes.com/athletic/6220340/2025/03/20/blue-jackets-panthers-nhl-playoffs/
+
+**Depleted Flyers' scoring woes were predictable, but it shouldn't be this bad**\
+`The end of the season does not look kind for the Flyers, with several key players struggling to hit the net.`\
+https://nytimes.com/athletic/6220429/2025/03/20/flyers-scoring-issues-capitals/
+
 **Look on the bright side: The 10 most important developments of another lost Blackhawks season**\
 `With just a few weeks left in the season, let's change focus from the losing and look at some positive developments from the team.`\
 https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-developments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6220126/2025/03/20/canucks-boeser-blues-playoff-cha
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**NHL identifies billionaire as ownership candidate for potential Houston expansion**\
-`The Friedkin Group already owns two prominent soccer franchises in AS Roma in Serie A and Everton in the Premier League.`\
-https://nytimes.com/athletic/6220247/2025/03/20/houston-nhl-ownership-expansion-friedkin/
-
-**Bennett Stirtz shines as No. 11 seed Drake knocks off Missouri**\
-`Drake, now 31-3, won its first NCAA Tournament game since 2021 and will play the winner of UNC Wilmington and Texas Tech.`\
-https://nytimes.com/athletic/6220276/2025/03/20/drake-missouri-bennett-stirtz-ncaa-tournament/
 

@@ -1,3 +1,7 @@
+**Heathrow Airport to Be Closed All Day After Nearby Fire**\
+`One of the world’s busiest airports canceled all arrivals and departures until 11:59 p.m. Friday after a fire nearby disrupted power. The airport serves about 1,300 flights a day.`\
+https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
+
 **Look on the bright side: The 10 most important developments of another lost Blackhawks season**\
 `With just a few weeks left in the season, let's change focus from the losing and look at some positive developments from the team.`\
 https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-developments/

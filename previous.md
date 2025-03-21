@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6220385/2025/03/20/blackhawks-kings-nhl-season-deve
 `Beijing’s threat to stop a tycoon’s sale of his ports business has dealmakers wondering if they can still operate without political interference.`\
 https://nytimes.com/2025/03/20/business/trump-panama-canal-china-hong-kong.html
 
-**Heathrow Airport Halts Operations After Substation Fire in London**\
-`Dozens of firefighters were trying to put out a nearby blaze. The airport said it would be closed all of Friday.`\
+**Heathrow Airport to Be Closed All Day After Nearby Fire**\
+`One of the world’s busiest airports canceled all arrivals and departures until 11:59 p.m. Friday after a fire nearby disrupted power. The airport serves about 1,300 flights a day.`\
 https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
 
 **The Rangers are still in the playoff race, but going nowhere fast**\
