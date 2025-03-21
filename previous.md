@@ -1,3 +1,11 @@
+**Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
+`This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
+https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html
+
+**Long-Lost Klimt Portrays African Prince**\
+`The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
+https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
+
 **What ‘Conservative Cosmo’ Thinks Women Want**\
 `The Evie reader can work. She can be a mom. It’s her choice. It’s just not feminism.`\
 https://nytimes.com/2025/03/21/style/evie-magazine.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/03/21/business/taryn-southern-final-agreeme
 **In Wes Anderson’s World, It’s All About the Details**\
 `A museum exhibition shows how thousands of small decisions add up to make the director’s signature style.`\
 https://nytimes.com/2025/03/21/movies/wes-anderson-movies-props-costumes.html
-
-**Twins roster projection 3.0: Who nabs final spots in bullpen and infield?**\
-`Infielder and reliever are the two spots to watch closest over the final five days of Twins camp.`\
-https://nytimes.com/athletic/6220106/2025/03/21/twins-roster-projection-bullpen-infield/
-
-**Russian Energy Sites Burn as Kyiv and Moscow Trade Accusations of Blame**\
-`Russia and Ukraine are preparing to discuss a potential cease-fire on power infrastructure, and each is seeking to portray the other side as untrustworthy ahead of talks.`\
-https://nytimes.com/2025/03/21/world/europe/russia-ukraine-power-energy-grid.html
 

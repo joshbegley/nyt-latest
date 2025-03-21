@@ -1,3 +1,11 @@
+**Art Basel Hong Kong’s Film Program Blends Facts, Fiction and Fantasy**\
+`This year, the fair features the work of more than 30 filmmakers. The centerpiece is “Vampires in Space,” a mix of sci-fi and social commentary.`\
+https://nytimes.com/2025/03/21/arts/design/art-basel-hong-kong-film.html
+
+**Long-Lost Klimt Portrays African Prince**\
+`The gallery selling the work, which resurfaced at the TEFAF Maastricht art fair, says a major museum is negotiating to buy it.`\
+https://nytimes.com/2025/03/21/arts/design/rediscovered-klimt-african-prince.html
+
 **What ‘Conservative Cosmo’ Thinks Women Want**\
 `The Evie reader can work. She can be a mom. It’s her choice. It’s just not feminism.`\
 https://nytimes.com/2025/03/21/style/evie-magazine.html
