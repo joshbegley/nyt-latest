@@ -1,3 +1,15 @@
+**Three wacky Premier League bets to liven up the end of the season**\
+`Sam Tighe has a look at three wacky, out-of-the-box Premier League bets ahead of the next round of fixtures. `\
+https://nytimes.com/athletic/6219229/2025/03/21/premier-league-wacky-bets-odds-predictions/
+
+**NHL Power Rankings: Jets retake top spot as we refine data to find the scary numbers for each team**\
+`The Jets and Hurricanes are moving up but there's a number to be worried about for every team in the league, even the very best.`\
+https://nytimes.com/athletic/6220584/2025/03/21/nhl-power-rankings-jets-2/
+
+**8 New Shows Our Theater Critics Are Talking About**\
+`A British satirical comedy, a Tennessee Williams classic, a soundscape of Havana: These are productions worth knowing about.`\
+https://nytimes.com/2025/03/21/theater/8-new-shows-our-theater-critics-are-talking-about.html
+
 **Lowetide: Why Oilers' new defenceman Jake Walman is a perfect fit**\
 `Walman brings several above average skills that make him an attractive addition to Edmonton's defence.`\
 https://nytimes.com/athletic/6218557/2025/03/21/oilers-jake-walman-stats/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6221112/2025/03/21/chelsea-fofana-fernandez-hojlund
 **The Windup: A surprise pick to win the AL East**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6220640/2025/03/21/al-east-preview-prediction-the-windup/
-
-**Judge to Consider Block on Trump’s Use of Wartime Law to Deport Venezuelans**\
-`A hearing on Friday afternoon could also include some discussion about the Justice Department’s repeated recalcitrance in responding to the judge’s demands.`\
-https://nytimes.com/2025/03/21/us/politics/trump-deportations-alien-enemies-act-block.html
-
-**‘Yellowjackets’ Season 3, Episode 7 Recap: ‘Barbecue’**\
-`Our new arrivals smell something sizzling in the woods. Here comes a meal with all the fixin’s.`\
-https://nytimes.com/2025/03/21/arts/television/yellowjackets-recap-season-3-episode-7.html
-
-**‘Severance’ Season 2 Finale: Mark vs. Mark**\
-`The season ended with a bizarre but moving episode that found the Lumon employees’ inner and outer selves at cross purposes.`\
-https://nytimes.com/2025/03/21/arts/television/severance-season-2-finale-recap.html
 
