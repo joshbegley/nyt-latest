@@ -1,41 +1,40 @@
-**Read the document**\
-`The initial agreement that Bryan Johnson wanted Taryn Southern to sign.`\
-https://nytimes.com/interactive/2025/03/21/business/Taryn-Southern-first-agreement_Redactedpdf.html
+**Trump Voters Love Him More Than Before. Four Conservative Columnists Pinpoint Why.**\
+`More registered voters think America is on the right track than at any point since 2004, a new poll says. What does that mean about Trump?`\
+https://nytimes.com/2025/03/21/opinion/trump-administration-polling.html
 
-**What Having a Brother With Down Syndrome Has Taught Me About Everyone Else**\
-`I’ve always seen my brother as just another kid. Why doesn’t the rest of the world?`\
-https://nytimes.com/video/opinion/100000009912791/down-syndrome-family-life.html
+**The Secret to Keeping Your Relationship Fun**\
+`Your relationship may be solid, but is it playful?`\
+https://nytimes.com/2025/03/21/well/fun-relationship-tips.html
 
-**'Fails to adequately address essential issues': Grand Slams reject tennis tours' future plan**\
-`Tennis' four biggest tournaments have rejected a plan from the men's and women's tours to reconfigure the sport.`\
-https://nytimes.com/athletic/6220845/2025/03/21/tennis-grand-slams-respond-atp-wta-plan-tournament-schedule/
+**Clues From Inside an ‘Extermination Camp’ Promise Despair and Hope**\
+`The discovery of an “extermination camp” outside a small village in Mexico has sent families searching for their missing loved ones into a mix of turmoil and hope for answers.`\
+https://nytimes.com/2025/03/21/world/americas/mexico-extermination-camp.html
 
-**Hamilton takes first pole position as Ferrari driver for Chinese GP sprint**\
-`The Briton is on pole for the first sprint race of the year with Max Verstappen alongside him on the front row in Shanghai.`\
-https://nytimes.com/athletic/6220850/2025/03/21/lewis-hamilton-ferrari-pole-position-china-sprint/
+**‘Severance’ Asks: What if We’re Not Paranoid Enough?**\
+`The Apple TV hit is just the latest of a particular kind of paranoid thriller, one that addresses the anxiety that our enemies are the people closest to us.`\
+https://nytimes.com/2025/03/21/opinion/severance-finale-paranoid-fantasy.html
 
-**How to watch No. 7 Saint Mary's vs. No. 10 Vanderbilt in the NCAA Tournament**\
-`Saint Mary's is favored against Vanderbilt in a 7-10 matchup in the first round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6216716/2025/03/21/saint-marys-vanderbilt-ncaa-tournament-how-to-watch/
+**The New York Times News Quiz, March 21, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/03/21/briefing/trump-immigration-israel-nasa-news-quiz.html
 
-**Heathrow Closure Wreaks Havoc on Travel Plans Worldwide**\
-`The flights of thousands of passengers were disrupted by the shutdown on Friday at London Heathrow, one of the world’s busiest airports.`\
-https://nytimes.com/2025/03/21/world/europe/heathrow-airport-closure-flights.html
+**Trump’s Imaginary Emergencies Are Doing Real Damage**\
+`It is one thing to sacrifice liberty in the face of a real threat. To manufacture threats in order to sacrifice liberty is another matter altogether.`\
+https://nytimes.com/2025/03/21/opinion/trump-courts-presidents-emergencies.html
 
-**How to watch No. 4 Kentucky vs. No. 13 Liberty in the women's NCAA Tournament**\
-`Kentucky hosts Liberty in the first round of the women's NCAA Tournament, with the No. 4 Wildcats expected to advance.`\
-https://nytimes.com/athletic/6211329/2025/03/21/kentucky-liberty-womens-ncaa-tournament-how-to-watch/
+**Haim Wonders if ‘Relationships’ are Worth the Trouble**\
+`Plus new tracks from Jason Isbell, Yaeji and more.`\
+https://nytimes.com/2025/03/21/podcasts/haim-wonders-if-relationships-are-worth-the-trouble.html
 
-**Virgil van Dijk next club odds: Could a move to PSG be in the works?**\
-`Sam Tighe looks at the transfer news surrounding Liverpool’s Virgil van Dijk after the Reds’ Champions League and Carabao Cup failings.`\
-https://nytimes.com/athletic/6213082/2025/03/21/liverpool-virgil-van-dijk-transfer-odds-predictions/
+**The Big Secret About Medicaid: It’s a Middle-Class Benefit**\
+`If you have a parent short on savings, a disabled adult child or a minor with special needs, Medicaid may be your backstop. Plenty of people are unaware.`\
+https://nytimes.com/2025/03/21/your-money/medicaid-trump-long-term-care.html
 
-**The betting lowdown: Title races across Europe’s big five leagues**\
-`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
-`\
-https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+**In Germany, ‘Orphaned’ by U.S., Shock Gives Way to Action**\
+`No country in Europe is as much a product of enlightened postwar American diplomacy. Now adrift, it has begun to reckon with a new world.`\
+https://nytimes.com/2025/03/21/world/europe/germany-us-ally-relationship-military.html
 
-**The worrying numbers that suggest Manchester United Women have been overperforming**\
-`The data underlying their loss to Liverpool shows the result was coming`\
-https://nytimes.com/athletic/6218660/2025/03/21/manchester-united-women-overperforming/
+**How Well Do You Understand Your Pet?**\
+`If you own a dog, perhaps not as well as you think, a new study says.`\
+https://nytimes.com/2025/03/21/learning/how-well-do-you-understand-your-pet.html
 
