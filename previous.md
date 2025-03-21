@@ -1,3 +1,11 @@
+**Pitching Season Rating: A new metric for grading starting pitchers in fantasy baseball**\
+`John Laghezza shares one of his new creations, a metric for fantasy baseball starting pitchers valuations, akin to wRC+ for hitters.`\
+https://nytimes.com/athletic/6218478/2025/03/21/pitching-season-rating-a-new-metric-for-grading-starting-pitchers-in-fantasy-baseball/
+
+**FIFA removes Club Leon from Club World Cup for breaching multi-club rules**\
+`Leon are majority owned by Grupo Pachuca, which also controls fellow Liga MX side and Club World Cup participant Pachuca.`\
+https://nytimes.com/athletic/6221552/2025/03/21/club-leon-club-world-cup-pachuca/
+
 **Decrepit infrastructure? Poor security? Heathrow chaos prompts thorny questions.**\
 `With counterterrorism police leading the investigation, the possibility of sabotage was being taken seriously, though officials say there is no evidence of foul play.`\
 https://nytimes.com/2025/03/21/world/europe/infrastructure-security-heathrow-chaos.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010065664/heathrow-airport-shut-fir
 **Many California Trees Survived the Wildfires. Here’s Why.**\
 `As the fires that ravaged Los Angeles in January ebbed, many trees were left standing next to burnt down homes. Here’s why.`\
 https://nytimes.com/card/2025/03/21/us/la-fires-trees
-
-**Residents near the burning power station saw ‘a massive ball of flame.’**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/residents-near-the-burning-power-station-saw-a-massive-ball-of-flame
-
-**Trump’s Tariffs Against Canada Can’t Be About Trade**\
-`Even people sympathetic to some of Trump’s views on trade can’t understand what he’s doing to Canada, our peaceful neighbor.`\
-https://nytimes.com/2025/03/21/opinion/trump-canada-tariffs.html
 
