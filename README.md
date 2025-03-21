@@ -4,7 +4,7 @@ https://nytimes.com/2025/03/21/style/evie-magazine.html
 
 **Obamacare Enrollees Could See Big Changes in 2026**\
 `A proposed rule would restrict “eligibility, enrollment and affordability” in plans under the Affordable Care Act, health policy analysts say.`\
-https://nytimes.com/2025/03/21/business/obamacare-enrollees-could-see-big-changes-in-2026.html
+https://nytimes.com/2025/03/21/business/obamacare-changes-2026.html
 
 **Power is mostly restored to homes after the fire near Heathrow.**\
 `By Claire Moses`\
