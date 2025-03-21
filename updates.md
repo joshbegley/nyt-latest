@@ -1,3 +1,11 @@
+**Goal-starved Blue Jackets suffer 'bad break' late in OT loss to Florida**\
+`Columbus continued its late-season slide on Thursday, which has made a playoff berth a tall order now.`\
+https://nytimes.com/athletic/6220340/2025/03/20/blue-jackets-panthers-nhl-playoffs/
+
+**Depleted Flyers' scoring woes were predictable, but it shouldn't be this bad**\
+`The end of the season does not look kind for the Flyers, with several key players struggling to hit the net.`\
+https://nytimes.com/athletic/6220429/2025/03/20/flyers-scoring-issues-capitals/
+
 **Heathrow Airport to Be Closed All Day After Nearby Fire**\
 `One of the world’s busiest airports canceled all arrivals and departures until 11:59 p.m. Friday after a fire nearby disrupted power. The airport serves about 1,300 flights a day.`\
 https://nytimes.com/2025/03/20/world/europe/heathrow-airport-fire.html
