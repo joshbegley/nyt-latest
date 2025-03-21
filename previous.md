@@ -1,3 +1,7 @@
+**Panama deals USMNT another deflating, exposing defeat**\
+`The USMNT won't be winning a fourth straight Nations League title after suffering another humiliating loss to Panama. `\
+https://nytimes.com/athletic/6220176/2025/03/20/panama-deals-usmnt-another-deflating-exposing-defeat/
+
 **Were the Kennedy Files a Bust? Not So Fast, Historians Say.**\
 `The thousands of documents posted online this week disappointed assassination buffs. But historians are finding many newly revealed secrets.`\
 https://nytimes.com/2025/03/20/us/politics/jfk-assassination-files-cia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219959/2025/03/20/reds-opening-day-roster-predicti
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/20/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Panama stuns USMNT with stoppage-time winner in Nations League semis**\
-`Panama ensured that the U.S. will not be winning a fourth straight Concacaf Nations League title with a stunning late winner.`\
-https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
 

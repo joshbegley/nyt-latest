@@ -1,3 +1,7 @@
+**Panama deals USMNT another deflating, exposing defeat**\
+`The USMNT won't be winning a fourth straight Nations League title after suffering another humiliating loss to Panama. `\
+https://nytimes.com/athletic/6220176/2025/03/20/panama-deals-usmnt-another-deflating-exposing-defeat/
+
 **Panama stuns USMNT with stoppage-time winner in Nations League semis**\
 `Panama ensured that the U.S. will not be winning a fourth straight Concacaf Nations League title with a stunning late winner.`\
 https://nytimes.com/athletic/6219761/2025/03/20/usmnt-panama-concacaf-nations-league-semifinals-pulisic-sargent-video/
