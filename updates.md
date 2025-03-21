@@ -1,3 +1,15 @@
+**U.S. Says Decision to Turn Back French Scientist Had Nothing to Do With Trump**\
+`The Department of Homeland Security said the academic was denied entry because he had “confidential” data from an American lab, not because of his views on the president’s policies.`\
+https://nytimes.com/2025/03/21/world/europe/us-france-scientist-entry-trump.html
+
+**Turner extends Man Utd contract to 2028**\
+`Turner has made 167 appearances for Man Utd since re-joining the club upon the formation of its professional women’s team in 2018. `\
+https://nytimes.com/athletic/6221059/2025/03/21/millie-turner-contract-manchester-united/
+
+**For the Lakers, the past eight days have been about surviving the schedule**\
+`LA got blown out Thursday but went 3-3 while playing six games in eight days and dealing with multiple injuries. `\
+https://nytimes.com/athletic/6217686/2025/03/21/lakers-tough-schedule-injuries-bucks-loss/
+
 **In Japan, Timeshares Are Back, and Cooler Than Ever**\
 `A new model of ownership is allowing middle-class families and wealthy vacationers alike to buy a piece of alluring properties.`\
 https://nytimes.com/2025/03/21/realestate/japan-timeshares-homes.html

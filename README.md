@@ -1,3 +1,7 @@
+**What to Know if Your Heathrow Flight Was Canceled or Diverted**\
+`Around 220,000 passengers were expected to travel through London’s Heathrow Airport on Friday. The airport’s closure is expected to have ripple effects worldwide.`\
+https://nytimes.com/2025/03/21/world/europe/heathrow-flights-canceled-diverted-what-to-do.html
+
 **U.S. Says Decision to Turn Back French Scientist Had Nothing to Do With Trump**\
 `The Department of Homeland Security said the academic was denied entry because he had “confidential” data from an American lab, not because of his views on the president’s policies.`\
 https://nytimes.com/2025/03/21/world/europe/us-france-scientist-entry-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219720/2025/03/21/astros-cam-smith-prospect-spring
 **How to watch NCAA Women's Frozen Four — plus, top players, schedule and more**\
 `Everything you need to know about the 2025 women's Frozen Four.`\
 https://nytimes.com/athletic/6219797/2025/03/21/womens-frozen-four-hockey-ncaa-2025/
-
-**MLB is trying to expand in Japan. Can Japan's NPB grow in America?**\
-`Japanese baseball has a rich history, but a series of structural factors stand in the way of it becoming a phenomenon in America. `\
-https://nytimes.com/athletic/6220221/2025/03/21/japan-npb-expand-america-mlb/
 
