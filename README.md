@@ -1,3 +1,7 @@
+**After major outages, power was restored to most homes on Friday.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/after-major-outages-power-was-restored-to-most-homes-on-friday
+
 **South Korean Court Blocks K-pop Group NewJeans From Going It Alone**\
 `The court sided with the girl group’s record label, Ador, barring the quintet from planning commercial pursuits after trying to cut ties. The band vowed to appeal.`\
 https://nytimes.com/2025/03/21/world/asia/korea-newjeans-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217248/2025/03/21/anthony-edwards-rim-shooting-str
 **Drawing Back the Pentagon’s Curtains for Musk**\
 `The billionaire was set to be briefed on the military’s closely guarded playbooks on China, raising new questions about his power and access.`\
 https://nytimes.com/2025/03/21/business/dealbook/trump-musk-pentagon-access.html
-
-**Croatia's 'golden' generation still have what it takes. Now, can they win a medal?**\
-`Croatia managed to beat France on their home turf on Thrusday evening — now can they win the Nations League?`\
-https://nytimes.com/athletic/6220071/2025/03/21/croatia-france-analysis-nations-league/
 
