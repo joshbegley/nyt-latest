@@ -1,3 +1,8 @@
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
+
 **Heathrow Closure Wreaks Havoc on Travel Plans Worldwide**\
 `The flights of thousands of passengers were disrupted by the shutdown on Friday at London Heathrow, one of the world’s busiest airports.`\
 https://nytimes.com/2025/03/21/world/europe/heathrow-airport-closure-flights.html
