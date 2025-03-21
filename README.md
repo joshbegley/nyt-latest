@@ -1,3 +1,7 @@
+**McDavid, Draisaitl to miss Saturday’s game vs. Kraken with injuries**\
+`Knoblauch said McDavid will be sidelined for “maybe a week” with a lower-body injury, while Draisaitl’s timeline is “up to a week.”`\
+https://nytimes.com/athletic/6222013/2025/03/21/connor-mcdavid-leon-draisaitl-injury-oilers/
+
 **Scouting reports on Curtis Mead, Casey Mize and more spring training standouts**\
 `Andrea Arcadipane offers a scouting breakdown of some of the top spring training performers, including a couple of bright, young Rays.`\
 https://nytimes.com/athletic/6221535/2025/03/21/scouting-reports-on-curtis-mead-casey-mize-and-more-spring-training-standouts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/trump-civil-rights-homeland-security-
 **After Lunar Disappointments, NASA Hits the Jackpot With Blue Ghost**\
 `Firefly Aerospace’s successful moon lander has yielded a trove of data that scientists will pore over for years.`\
 https://nytimes.com/2025/03/21/science/blue-ghost-moon-science.html
-
-**March Madness 2025 Day 2 takeaways: Grant Nelson helps Alabama avoid upset**\
-`Tide get aid from an injured senior forward, while another SEC team is sent packing. Duke and Cooper Flagg are in action.`\
-https://nytimes.com/athletic/6220252/2025/03/21/march-madness-2025-day-2-what-to-watch-mens-ncaa-tournament/
 
