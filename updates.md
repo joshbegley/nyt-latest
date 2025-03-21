@@ -1,3 +1,11 @@
+**Duke, Cooper Flagg cruise in star freshman's return from injury**\
+`Flagg finished with 14 points on 6-of-11 shooting, while also chipping in seven rebounds, four assists and two blocks in 22 minutes of play.`\
+https://nytimes.com/athletic/6222255/2025/03/21/cooper-flagg-duke-injury-first-round-ncaa-tournament/
+
+**Trump Threatens to Jail Tesla Vandals in El Salvador Prisons**\
+`President Nayib Bukele of El Salvador had previously offered to imprison convicted criminals from the United States in his country’s notorious prison facilities, for a fee.`\
+https://nytimes.com/2025/03/21/us/politics/trump-tesla-vandalism-prison.html
+
 **Trump Administration Sees Bias in a Judge and Tries to Push Her Off a Case**\
 `“This court has not kept its disdain for President Trump secret,” the Justice Department said in a motion in a case filed by a law firm suing the administration.`\
 https://nytimes.com/2025/03/21/us/politics/perkins-coie-howell.html
