@@ -1,3 +1,7 @@
+**How to watch No. 1 Duke vs. No. 16 Mount St. Mary's in the men's NCAA Tournament**\
+`Duke is favored by more than 30 points over Mount St. Mary's. This first-round game could give insight into Cooper Flagg's ankle injury. `\
+https://nytimes.com/athletic/6218847/2025/03/21/duke-mount-st-marys-ncaa-tournament-how-to-watch/
+
 **Trump Voters Love Him More Than Before. Four Conservative Columnists Pinpoint Why.**\
 `More registered voters think America is on the right track than at any point since 2004, a new poll says. What does that mean about Trump?`\
 https://nytimes.com/2025/03/21/opinion/trump-administration-polling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/your-money/medicaid-trump-long-term-care.html
 **In Germany, ‘Orphaned’ by U.S., Shock Gives Way to Action**\
 `No country in Europe is as much a product of enlightened postwar American diplomacy. Now adrift, it has begun to reckon with a new world.`\
 https://nytimes.com/2025/03/21/world/europe/germany-us-ally-relationship-military.html
-
-**How Well Do You Understand Your Pet?**\
-`If you own a dog, perhaps not as well as you think, a new study says.`\
-https://nytimes.com/2025/03/21/learning/how-well-do-you-understand-your-pet.html
 

@@ -1,3 +1,7 @@
+**How to watch No. 1 Duke vs. No. 16 Mount St. Mary's in the men's NCAA Tournament**\
+`Duke is favored by more than 30 points over Mount St. Mary's. This first-round game could give insight into Cooper Flagg's ankle injury. `\
+https://nytimes.com/athletic/6218847/2025/03/21/duke-mount-st-marys-ncaa-tournament-how-to-watch/
+
 **Trump Voters Love Him More Than Before. Four Conservative Columnists Pinpoint Why.**\
 `More registered voters think America is on the right track than at any point since 2004, a new poll says. What does that mean about Trump?`\
 https://nytimes.com/2025/03/21/opinion/trump-administration-polling.html
