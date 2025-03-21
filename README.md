@@ -1,6 +1,11 @@
-**Murillo - the most watchable centre-back in modern football**\
-`Murillo did not make his debut for Brazil against Colombia, but the Forest defender's time will come`\
-https://nytimes.com/athletic/6213151/2025/03/21/murillo-brazil-nottingham-forest/
+**Virgil van Dijk next club odds: Could a move to PSG be in the works?**\
+`Sam Tighe looks at the transfer news surrounding Liverpool’s Virgil van Dijk after the Reds’ Champions League and Carabao Cup failings.`\
+https://nytimes.com/athletic/6213082/2025/03/21/liverpool-virgil-van-dijk-transfer-odds-predictions/
+
+**The betting lowdown: Title races across Europe’s big five leagues**\
+`Brett Koremenos looks at Europe’s big five leagues and explores which of the title races are still worth betting on. 
+`\
+https://nytimes.com/athletic/6219287/2025/03/21/big-five-leagues-title-race-betting-odds-predictions/
 
 **The worrying numbers that suggest Manchester United Women have been overperforming**\
 `The data underlying their loss to Liverpool shows the result was coming`\
@@ -33,8 +38,4 @@ https://nytimes.com/2025/03/21/world/europe/london-heathrow-airport-closed.html
 **Late Night Flunks Trump for Gutting the Department of Education**\
 `“Trump famously said he loves the poorly educated, and now he will have so many more people to love,” Jimmy Kimmel said on Thursday.`\
 https://nytimes.com/2025/03/21/arts/television/late-night-trump-department-of-education.html
-
-**Once a taboo, periods are the new tool for growing women's football**\
-`Through new commercial partnerships, WSL sides are seeing the benefits of ending the stigma around periods`\
-https://nytimes.com/athletic/6217999/2025/03/21/arsenal-manchester-city-womens-soccer-periods-wsl/
 
