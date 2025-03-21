@@ -1,3 +1,7 @@
+**Paul Weiss Chair Says Deal with Trump Adheres to Firm’s Principles**\
+`In an email message on Thursday evening, Paul Weiss Chairman Brad Karp reassured employees that the deal with President Trump was in keeping with the firm’s principles.`\
+https://nytimes.com/2025/03/21/business/paul-weiss-memo-trump-deal.html
+
 **Supreme Court Rules for Chicago Politician in Bank Fraud Case**\
 `The justices unanimously said a law prohibiting “any false statement or report” did not cover misleading assertions that fell short of outright lies.`\
 https://nytimes.com/2025/03/21/us/politics/supreme-court-chicago-politician-fraud.html
