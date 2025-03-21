@@ -1,40 +1,40 @@
-**Bowden’s 2025 All-MLB Breakout Team: A 26-man roster of promising players to watch**\
-`Here is my loaded 26-man roster, a position-by-position look at the players who are primed for breakout seasons in 2025.`\
-https://nytimes.com/athletic/6219550/2025/03/21/mlb-breakout-predictions-2025/
+**A backup generator’s failure raises questions about Heathrow’s contingency planning.**\
+`A backup generator was also affected by the fire at an electrical substation that closed Heathrow, prompting questions about the state of the country’s infrastructure.`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/a-backup-generators-failure-raises-questions-about-heathrows-contingency-planning
 
-**The Size of the Tax Cut**\
-`We explain how Republicans are approaching taxes.`\
-https://nytimes.com/2025/03/21/briefing/the-size-of-the-tax-cut.html
+**'Built like a Transformer' and possibly 'the next 60-homer guy,' Cam Smith is turning heads**\
+`The top prospect's work ethic, production and demeanor have impressed everyone this spring: "He looks the part. But he acts the part, too."`\
+https://nytimes.com/athletic/6219720/2025/03/21/astros-cam-smith-prospect-spring-training/
 
-**Airlines Scramble to Rebook Travelers After Canceling Heathrow Flights**\
-`About 80 airlines operate at the airport, London’s busiest travel hub.`\
-https://nytimes.com/2025/03/21/business/heathrow-airlines-travel.html
+**How to watch NCAA Women's Frozen Four — plus, top players, schedule and more**\
+`Everything you need to know about the 2025 women's Frozen Four.`\
+https://nytimes.com/athletic/6219797/2025/03/21/womens-frozen-four-hockey-ncaa-2025/
 
-**How to watch No. 6 Illinois vs. No. 11 Xavier in the men's NCAA Tournament**\
-`The Illini are slight favorites over the Musketeers, who are coming off a win over Texas in the First Four.`\
-https://nytimes.com/athletic/6219213/2025/03/21/xavier-illinois-mens-ncaa-tournament-how-to-watch/
+**MLB is trying to expand in Japan. Can Japan's NPB grow in America?**\
+`Japanese baseball has a rich history, but a series of structural factors stand in the way of it becoming a phenomenon in America. `\
+https://nytimes.com/athletic/6220221/2025/03/21/japan-npb-expand-america-mlb/
 
-**How to watch No. 4 Arizona vs. No. 13 Akron in the men's NCAA Tournament**\
-`Arizona enters the tournament as a No. 4 seed and is heavily favored against the Akron Zips. `\
-https://nytimes.com/athletic/6219759/2025/03/21/arizona-akron-mens-ncaa-tournament-how-to-watch/
+**How to watch No. 7 Marquette vs. No. 10 New Mexico: Odds, storylines for men's NCAA Tournament matchup**\
+`Can New Mexico pull a first-round upset when the Lobos take on Marquette in the first round of the NCAA Tournament?`\
+https://nytimes.com/athletic/6216390/2025/03/21/marquette-new-mexico-ncaa-tournament-how-to-watchtch-odds/
 
-**The Pulse: Two huge upsets, plus Boston billions**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6219239/2025/03/21/mcneese-drake-ncaa-tournament-the-pulse/
+**The Contrarian: Alex Ovechkin's goals record chase is bad, and other fake arguments**\
+`Debating the Capitals superstar vs. Sidney Crosby, plus Connor McDavid, the playoff format, the Olympics and much more.`\
+https://nytimes.com/athletic/6219662/2025/03/21/alex-ovechkin-goals-record-wayne-gretzky-nhl/
 
-**Eno Sarris' updated MLB starting pitcher rankings for the 2025 season**\
-`Several starters have dealt with injuries, so it's time for an updated look at the top pitchers to target in your fantasy drafts.`\
-https://nytimes.com/athletic/6211367/2025/03/21/sarris-mlb-starting-pitcher-rankings-fantasy-baseball/
+**'He loves to compete': Evan Engram's road to Broncos' 'Joker' role tested his resilience**\
+`Engram has been one of the most productive tight ends in the NFL since 2017, but that vision wasn't always easy for others to see.`\
+https://nytimes.com/athletic/6218038/2025/03/21/evan-engram-broncos-joker-tight-end/
 
-**Mess in the West: Behind OKC, teams are jockeying for positioning**\
-`The battles for home-court advantage in Round 1 and a top-six playoff spot could go down to the final day of the season.`\
-https://nytimes.com/athletic/6215621/2025/03/21/nba-western-conference-playoffs-lakers-warriors/
+**Injuries to Leon Draisaitl and Connor McDavid leave the Oilers with uncertainty**\
+`McDavid left a 4-3 overtime loss to the Winnipeg Jets with what the team is calling a lower body injury.`\
+https://nytimes.com/athletic/6220778/2025/03/21/oilers-injuries-leon-draisaitl-connor-mcdavid/
 
-**Examining the Bears' window to win and how GM Ryan Poles has shaped the roster**\
-`With Caleb Williams on his rookie contract, the Bears know that now is the time for strike, even with a new head coach. `\
-https://nytimes.com/athletic/6216375/2025/03/21/bears-championship-window-ryan-poles/
+**Arsenal live Q&A: Jordan Campbell answers your questions**\
+`Get your questions in now and and I will be with you between 3pm and 4pm GMT (11am to noon ET) to answer as many as I can`\
+https://nytimes.com/athletic/6217880/2025/03/21/arsenal-questions-arteta-saka/
 
-**What we heard from Chiefs' free-agent signees, starting with left tackle Jaylon Moore**\
-`Kristian Fulton can't wait to work with Steve Spagnuolo, and Gardner Minshew is pumped to learn from Andy Reid and Patrick Mahomes.`\
-https://nytimes.com/athletic/6219882/2025/03/21/chiefs-free-agent-signees-jaylon-moore/
+**State of the Red Sox: Seven roster spots unsettled a week before Opening Day**\
+`The Red Sox have a series of decisions to make, some of which could involve top prospects like Kristian Campbell and Marcelo Mayer. `\
+https://nytimes.com/athletic/6219764/2025/03/21/red-sox-roster-opening-day-projection/
 
