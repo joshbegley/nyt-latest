@@ -1,3 +1,11 @@
+**Aviation chaos can quickly spiral, despite contingency plans.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire/heathrow-airport-closed-aviation-effects
+
+**Raphinha: Phone call with Flick was key in Barcelona stay last summer**\
+`Raphinha has 27 goals and 20 assists across all competitions this season and is among the contenders for the Ballon d'Or.`\
+https://nytimes.com/athletic/6221412/2025/03/21/barcelona-raphinha-hansi-flick/
+
 **Calafiori returns to Arsenal after sustaining knee injury with Italy**\
 `Calafiori slipped off the ball in second-half stoppage time on Thursday and went down holding his left knee before receiving treatment.`\
 https://nytimes.com/athletic/6219972/2025/03/21/riccardo-calafiori-injury-arsenal-italy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6221346/2025/03/21/cooper-flagg-cards-autographs/
 **The defensive breakdown that doomed the USMNT against Panama**\
 `With the Concacaf Nations League semifinal heading for extra time, a crucial play clinched victory for Panama.`\
 https://nytimes.com/athletic/6220357/2025/03/21/goal-breakdown-panama-usmnt-nations-league/
-
-**Blue Ghost’s Long Day on the Moon**\
-`The sun has set on the Blue Ghost spacecraft, ending a successful mission to the moon.`\
-https://nytimes.com/interactive/2025/03/21/science/blue-ghost-moon-landing.html
-
-**Row Z: Chelsea's strong stance, Siuuu-per Hojlund and where are the celebration police now?**\
-`Welcome to Row Z, The Athletic’s weekly column that shines a light on the bonkers side of the game`\
-https://nytimes.com/athletic/6221112/2025/03/21/chelsea-fofana-fernandez-hojlund-ronaldo/
 

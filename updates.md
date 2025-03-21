@@ -1,3 +1,7 @@
+**Calafiori returns to Arsenal after sustaining knee injury with Italy**\
+`Calafiori slipped off the ball in second-half stoppage time on Thursday and went down holding his left knee before receiving treatment.`\
+https://nytimes.com/athletic/6219972/2025/03/21/riccardo-calafiori-injury-arsenal-italy/
+
 **Three wacky Premier League bets to liven up the end of the season**\
 `Sam Tighe has a look at three wacky, out-of-the-box Premier League bets ahead of the next round of fixtures. `\
 https://nytimes.com/athletic/6219229/2025/03/21/premier-league-wacky-bets-odds-predictions/
