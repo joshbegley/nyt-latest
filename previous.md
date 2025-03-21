@@ -1,3 +1,15 @@
+**Trump Attacks Reporting on Musk War Plans Meeting**\
+`A planned Pentagon briefing, in which Elon Musk would learn military plans for any potential war with China, did not go forward after reports in The New York Times and The Wall Street Journal.`\
+https://nytimes.com/2025/03/21/business/media/trump-new-york-times-musk-china.html
+
+**Flashback: Your Weekly History Quiz, March 22, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/21/upshot/flashback.html
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Prime Tire: A Ferrari bounce-back in China. Plus, don't count on F1's return to V10 engines**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6221898/2025/03/21/f1-chinese-grand-prix-lewis-hamilton-v10-engines-prime-tire/
@@ -14,6 +26,10 @@ https://nytimes.com/2025/03/21/us/politics/trump-civil-rights-homeland-security-
 `Firefly Aerospace’s successful moon lander has yielded a trove of data that scientists will pore over for years.`\
 https://nytimes.com/2025/03/21/science/blue-ghost-moon-science.html
 
+**March Madness 2025 Day 2 takeaways: Grant Nelson helps Alabama avoid upset**\
+`Tide get aid from an injured senior forward, while another SEC team is sent packing. Duke and Cooper Flagg are in action.`\
+https://nytimes.com/athletic/6220252/2025/03/21/march-madness-2025-day-2-what-to-watch-mens-ncaa-tournament/
+
 **Robert Denham, Lawyer Who Steered Companies Through Crises, Dies at 79**\
 `Among his rescues was teaming up with Warren Buffett to keep the investment bank Salomon Brothers afloat amid a bid-rigging scandal in the 1990s.`\
 https://nytimes.com/2025/03/21/business/robert-denham-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/21/business/robert-denham-dead.html
 **Texas Measles Outbreak May Continue for a Year, Officials Say**\
 `Vaccination efforts have faltered, and many residents have turned to alternative treatments endorsed by Robert F. Kennedy Jr., the health secretary.`\
 https://nytimes.com/2025/03/21/health/measles-outbreak-texas.html
-
-**ICE Tells a Cornell Student Activist to Turn Himself In**\
-`The student, who is from Gambia and was involved in pro-Palestinian activism on campus, was told to report to the immigration agency’s offices.`\
-https://nytimes.com/2025/03/21/us/politics/trump-cornell-student-ice.html
-
-**Canada women's world championship roster announced**\
-`Hockey Canada revealed its 25-player roster for the IIHF Women’s World Championship on Friday.`\
-https://nytimes.com/athletic/6221911/2025/03/21/canada-iihf-womens-world-championship-roster/
-
-**Trump Rejects Idea That Musk Should Have Access to Top-Secret China War Plans**\
-`The president also denied a report that such a briefing had been planned to be held at the Pentagon on Friday.`\
-https://nytimes.com/2025/03/21/us/politics/trump-china-elon-musk-pentagon.html
-
-**MLB ‘evaluating’ Diversity Pipeline Program, strikes DEI references from its website**\
-`Commissioner Rob Manfred said the league is trying to remain "consistent with what the law requires."`\
-https://nytimes.com/athletic/6221850/2025/03/21/mlb-diversity-rob-manfred/
 

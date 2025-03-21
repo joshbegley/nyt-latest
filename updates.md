@@ -1,3 +1,19 @@
+**Trump Attacks Reporting on Musk War Plans Meeting**\
+`A planned Pentagon briefing, in which Elon Musk would learn military plans for any potential war with China, did not go forward after reports in The New York Times and The Wall Street Journal.`\
+https://nytimes.com/2025/03/21/business/media/trump-new-york-times-musk-china.html
+
+**Flashback: Your Weekly History Quiz, March 22, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/03/21/upshot/flashback.html
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**March Madness 2025 Day 2 takeaways: Grant Nelson helps Alabama avoid upset**\
+`Tide get aid from an injured senior forward, while another SEC team is sent packing. Duke and Cooper Flagg are in action.`\
+https://nytimes.com/athletic/6220252/2025/03/21/march-madness-2025-day-2-what-to-watch-mens-ncaa-tournament/
+
 **Prime Tire: A Ferrari bounce-back in China. Plus, don't count on F1's return to V10 engines**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6221898/2025/03/21/f1-chinese-grand-prix-lewis-hamilton-v10-engines-prime-tire/
