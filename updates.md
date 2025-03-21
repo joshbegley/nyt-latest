@@ -1,3 +1,7 @@
+**Why the Pentagon Scuttled Its Briefing of Musk on War Plans**\
+`“You wouldn’t show it to a businessman,” President Trump said in denying that Elon Musk was to be briefed on top-secret plans in the event of war with China.`\
+https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
+
 **Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
 `The provision had been in place since the civil rights era.`\
 https://nytimes.com/2025/03/21/us/politics/trump-segregation.html

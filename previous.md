@@ -1,3 +1,7 @@
+**Why the Pentagon Scuttled Its Briefing of Musk on War Plans**\
+`“You wouldn’t show it to a businessman,” President Trump said in denying that Elon Musk was to be briefed on top-secret plans in the event of war with China.`\
+https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
+
 **Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
 `The provision had been in place since the civil rights era.`\
 https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/21/us/trump-news/justice-dept-leak-investigatio
 **Chargers agree to deal with former Jets, Vikings TE Tyler Conklin**\
 `Conklin joins Los Angeles after spending the past three seasons with the Jets.`\
 https://nytimes.com/athletic/6222288/2025/03/21/tyler-conklin-chargers-contract/
-
-**Ole Miss stops UNC comeback, sends last-team-in Tar Heels home**\
-`After a fierce bubble debate and First Four win, North Carolina came up short against Ole Miss in the first round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6222370/2025/03/21/unc-ole-miss-ncaa-tournament/
 
