@@ -1,3 +1,19 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Steph Curry exits Warriors' game vs. Raptors with pelvic contusion**\
+`Curry didn't emerge from the locker room after leaving the game late in the third quarter.`\
+https://nytimes.com/athletic/6220617/2025/03/21/steph-curry-pelvic-contusion-warriors/
+
+**Same Berhalter-era USMNT problems linger under Pochettino**\
+`There's plenty of blame to go around after the USMNT's reign as Concacaf Nations League champion came to an abrupt end.`\
+https://nytimes.com/athletic/6220446/2025/03/21/usmnt-loss-panama-players-pochettino/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Fire Engulfs London Substation**\
 `A substation in Hayes, in western London, caught fire and disrupted one of the busiest airports in the world.`\
 https://nytimes.com/video/world/europe/100000010064995/heathrow-airport-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/21/world/africa/sudan-civil-war-khartoum-battle.html
 **Russell Coutts: The sailing great who became the ultimate disruptor**\
 `A supreme athlete in his former life and now the supreme sports entrepreneur, Russell Coutts is a phenomenon`\
 https://nytimes.com/athletic/6218996/2025/03/21/russell-coutts-sailgp-interview/
-
-**One Doctor’s Quest for the Truth About Convicted Killer Lucy Letby**\
-`Dr. Shoo Lee’s research was used to help convict a British nurse of murdering babies, but he says it should never have been cited.`\
-https://nytimes.com/2025/03/21/world/europe/lucy-letby-nurse-murder.html
-
-**When the Walls Close In on the ‘Wolf Hall’ Saga**\
-`Viewers thrilled to the scheming Thomas Cromwell’s rise. Now, in the new TV series “The Mirror and the Light,” comes the fall.`\
-https://nytimes.com/2025/03/21/arts/television/the-mirror-and-the-light-pbs-wolf-hall.html
-
-**Connections: Sports Edition Coach: Hints for March 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6220398/2025/03/21/connections-sports-edition-hints-for-march-21-2025/
-
-**Why the Shipping Industry Isn’t Rushing Back to the Red Sea**\
-`The companies that operate large container ships say they plan to keep going around Africa as violence flares in the region.`\
-https://nytimes.com/2025/03/21/business/economy/red-sea-shipping-houthis.html
 

@@ -1,3 +1,19 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Steph Curry exits Warriors' game vs. Raptors with pelvic contusion**\
+`Curry didn't emerge from the locker room after leaving the game late in the third quarter.`\
+https://nytimes.com/athletic/6220617/2025/03/21/steph-curry-pelvic-contusion-warriors/
+
+**Same Berhalter-era USMNT problems linger under Pochettino**\
+`There's plenty of blame to go around after the USMNT's reign as Concacaf Nations League champion came to an abrupt end.`\
+https://nytimes.com/athletic/6220446/2025/03/21/usmnt-loss-panama-players-pochettino/
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **London’s Heathrow Airport Halts Operations, Throwing Global Travel Into Disarray**\
 `The airport, one of the world’s busiest, was set to be closed all of Friday because of a fire at a nearby power substation.`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire
