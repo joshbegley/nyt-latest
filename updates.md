@@ -1,3 +1,11 @@
+**Trump Administration Sees Bias in a Judge and Tries to Push Her Off a Case**\
+`“This court has not kept its disdain for President Trump secret,” the Justice Department said in a motion in a case filed by a law firm suing the administration.`\
+https://nytimes.com/2025/03/21/us/politics/perkins-coie-howell.html
+
+**Trump Offers a Glimpse of New Stealth Fighter, the F-47**\
+`The president declared 47 “a beautiful number,” but did not announce a nickname for the warplane.`\
+https://nytimes.com/2025/03/21/us/politics/trump-f-47-fighter-jet-boeing.html
+
 **Where do the Candidates for New Jersey Governor Stand on the Issues?**\
 `The New York Times sent a wide-ranging survey to candidates for governor of New Jersey about housing, immigration, abortion, transit, affordability, schools and climate.`\
 https://nytimes.com/interactive/2025/03/21/nyregion/new-jersey-governor-candidates-issues.html
