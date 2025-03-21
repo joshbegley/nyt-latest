@@ -1,3 +1,7 @@
+**Eno Sarris' updated MLB starting pitcher rankings for the 2025 season**\
+`Several starters have dealt with injuries, so it's time for an updated look at the top pitchers to target in your fantasy drafts.`\
+https://nytimes.com/athletic/6211367/2025/03/21/sarris-mlb-starting-pitcher-rankings-fantasy-baseball/
+
 **Mess in the West: Behind OKC, teams are jockeying for positioning**\
 `The battles for home-court advantage in Round 1 and a top-six playoff spot could go down to the final day of the season.`\
 https://nytimes.com/athletic/6215621/2025/03/21/nba-western-conference-playoffs-lakers-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6209626/2025/03/21/school-locations-womens-ncaa-tou
 **Alabama's NCAA hopes ride on Mark Sears' play in his final run with the Tide**\
 `Which Sears shows up in the NCAA Tournament will dictate if Alabama makes a run at a second consecutive Final Four.`\
 https://nytimes.com/athletic/6218729/2025/03/21/march-madness-2025-alabama-basketball-mark-sears/
-
-**‘Can’t Miss’ Women’s 2025 March Madness games on Friday and Saturday**\
-`With 28 women's NCAA Tournament games played over Friday and Saturday, The Athletic's team IDs the ones you shouldn't miss watching.`\
-https://nytimes.com/athletic/6213281/2025/03/21/womens-march-madness-2025-must-watch-games/
 
