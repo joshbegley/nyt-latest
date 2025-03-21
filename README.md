@@ -1,5 +1,14 @@
-**Pochettino not to blame for Nations League exit, says Tyler Adams**\
-`A dismal defeat was not Mauricio Pochettino's fault, according to one of his key players.`\
+**Paul Skenes card sells for $1.11 million after Pirates bounty offer declined**\
+`The 11-year-old boy who originally landed the card will take home more money on the sale than Skenes' 2025 base salary. `\
+https://nytimes.com/athletic/6216741/2025/03/21/paul-skenes-debut-patch-auction-sale/
+
+** A Sojourn for the Senses in Ise-Shima**\
+`A train trip to Japan’s Ise-Shima peninsula promises an immersive, sensorial experience from start to finish. Here’s what travelers can expect to feel, see, taste, smell and hear throughout their journey.
+`\
+https://nytimes.com/paidpost/kintetsu-railways/-a-sojourn-for-the-senses-in-ise-shima.html
+
+**Pochettino not to blame for Nations League exit, Tyler Adams says**\
+`A dismal defeat was not Pochettino's fault, according to one of his key players.`\
 https://nytimes.com/athletic/6220610/2025/03/21/usmnt-panama-mauricio-pochettino-not-to-blame-for-nations-league-tyler-adams/
 
 **Teslas Vandalized in Canada**\
@@ -29,12 +38,4 @@ https://nytimes.com/video/world/europe/100000010064995/heathrow-airport-fire.htm
 **London’s Heathrow Airport Halts Operations, Throwing Global Travel Into Disarray**\
 `The airport, one of the world’s busiest, was set to be closed all of Friday because of a fire at a nearby power substation. At least 120 flights that were headed to the airport were diverted.`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire
-
-**Ethan Nwaneri at 18: A teenage star steeped in Hale End heritage**\
-`Nwaneri toasts his 18th birthday as he enjoys a breakthrough season at Arsenal. He's following in the path laid by other academy favourites`\
-https://nytimes.com/athletic/6215461/2025/03/21/ethan-nwaneri-arsenal-hale-end/
-
-**Kansas' KJ Adams suffers Achilles injury in loss to Arkansas**\
-`Adams fell and grabbed his left leg while going for a rebound late in the second half.`\
-https://nytimes.com/athletic/6220515/2025/03/21/kj-adams-injury-kansas-ncaa-tournament/
 

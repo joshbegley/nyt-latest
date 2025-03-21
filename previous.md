@@ -1,3 +1,11 @@
+**Pochettino not to blame for Nations League exit, says Tyler Adams**\
+`A dismal defeat was not Mauricio Pochettino's fault, according to one of his key players.`\
+https://nytimes.com/athletic/6220610/2025/03/21/usmnt-panama-mauricio-pochettino-not-to-blame-for-nations-league-tyler-adams/
+
+**Teslas Vandalized in Canada**\
+`People spray-painted a Tesla dealership, punctured tires and scratched vehicles in apparent protest of Elon Musk, who has made repeated jabs at Canada.`\
+https://nytimes.com/video/world/americas/100000010064984/tesla-canada-vandalism-musk.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2
 https://nytimes.com/video/world/europe/100000010064995/heathrow-airport-fire.html
 
 **London’s Heathrow Airport Halts Operations, Throwing Global Travel Into Disarray**\
-`The airport, one of the world’s busiest, was set to be closed all of Friday because of a fire at a nearby power substation.`\
+`The airport, one of the world’s busiest, was set to be closed all of Friday because of a fire at a nearby power substation. At least 120 flights that were headed to the airport were diverted.`\
 https://nytimes.com/live/2025/03/21/world/heathrow-airport-power-outage-fire
 
 **Ethan Nwaneri at 18: A teenage star steeped in Hale End heritage**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6215461/2025/03/21/ethan-nwaneri-arsenal-hale-end/
 **Kansas' KJ Adams suffers Achilles injury in loss to Arkansas**\
 `Adams fell and grabbed his left leg while going for a rebound late in the second half.`\
 https://nytimes.com/athletic/6220515/2025/03/21/kj-adams-injury-kansas-ncaa-tournament/
-
-**In Sudan’s Devastated Capital, a Climatic Battle Comes Into View**\
-`Two years into a civil war, the military is closing in on the presidential palace in Khartoum, where its paramilitary foe is holed up. Civilians are trapped in the middle in a city with an apocalyptic air.`\
-https://nytimes.com/2025/03/21/world/africa/sudan-civil-war-khartoum-battle.html
-
-**Russell Coutts: The sailing great who became the ultimate disruptor**\
-`A supreme athlete in his former life and now the supreme sports entrepreneur, Russell Coutts is a phenomenon`\
-https://nytimes.com/athletic/6218996/2025/03/21/russell-coutts-sailgp-interview/
 
