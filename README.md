@@ -1,3 +1,11 @@
+**Scouting reports on Curtis Mead, Casey Mize and more spring training standouts**\
+`Andrea Arcadipane offers a scouting breakdown of some of the top spring training performers, including a couple of bright, young Rays.`\
+https://nytimes.com/athletic/6221535/2025/03/21/scouting-reports-on-curtis-mead-casey-mize-and-more-spring-training-standouts/
+
+**If Auburn doesn’t find itself after ‘calling out,’ Creighton is going to find itself in Atlanta**\
+`Bruce Pearl is not happy with the way things are going. He shouldn’t be. A malaise has set in over the past few weeks.`\
+https://nytimes.com/athletic/6221972/2025/03/21/auburn-creighton-ncaa-tournament-upset/
+
 **Trump Attacks Reporting on Musk War Plans Meeting**\
 `A planned Pentagon briefing, in which Elon Musk would learn military plans for any potential war with China, did not go forward after reports in The New York Times and The Wall Street Journal.`\
 https://nytimes.com/2025/03/21/business/media/trump-new-york-times-musk-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/science/blue-ghost-moon-science.html
 **March Madness 2025 Day 2 takeaways: Grant Nelson helps Alabama avoid upset**\
 `Tide get aid from an injured senior forward, while another SEC team is sent packing. Duke and Cooper Flagg are in action.`\
 https://nytimes.com/athletic/6220252/2025/03/21/march-madness-2025-day-2-what-to-watch-mens-ncaa-tournament/
-
-**Robert Denham, Lawyer Who Steered Companies Through Crises, Dies at 79**\
-`Among his rescues was teaming up with Warren Buffett to keep the investment bank Salomon Brothers afloat amid a bid-rigging scandal in the 1990s.`\
-https://nytimes.com/2025/03/21/business/robert-denham-dead.html
-
-**Texas Measles Outbreak May Continue for a Year, Officials Say**\
-`Vaccination efforts have faltered, and many residents have turned to alternative treatments endorsed by Robert F. Kennedy Jr., the health secretary.`\
-https://nytimes.com/2025/03/21/health/measles-outbreak-texas.html
 
