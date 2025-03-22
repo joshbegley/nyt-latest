@@ -1,3 +1,7 @@
+**Tuchel's England were not radically different - but that's not a big problem**\
+`England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
+https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
+
 **Tuchel's England were not radically different — but that's not a big problem**\
 `England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
 https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
