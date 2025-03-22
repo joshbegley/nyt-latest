@@ -1,3 +1,15 @@
+**How Arsenal made the basic act of running hard after losing the ball their superpower**\
+`Sunday's win against Chelsea was a timely reminder of how suffocating Arsenal can be when every player is dialled in to the danger`\
+https://nytimes.com/athletic/6218644/2025/03/22/arsenal-superpower-running-hard-after-losing-the-ball/
+
+**Kuyt interview: 'For Arne to win the league in his first season… no one will forget it'**\
+`The former Liverpool forward has watched Arne Slot at close quarters in the Netherlands and is enjoying the Dutch influence at Anfield`\
+https://nytimes.com/athletic/6215932/2025/03/22/dirk-kuyt-interview-liverpool/
+
+**Newcastle United Women: A record crowd at St James' Park for the derby and using men's League Cup 'buzz'**\
+`Becky Langley's thoughts as her side prepares to face Sunderland in front of a record-breaking Championship crowd`\
+https://nytimes.com/athletic/6218452/2025/03/22/newcastle-united-women-becky-langley-derby-sunderland-st-james/
+
 **Haaland, Odegaard and Norway's desperate quest to end decades in the wilderness**\
 `Failure to reach the World Cup and end a 26-year tournament absence will be a devastating blow for such a talented squad`\
 https://nytimes.com/athletic/6221042/2025/03/22/norway-haaland-odegaard-2026-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/22/world/africa/sudan-photo-sniper.html
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**UConn fights off Oklahoma to keep 3-peat hopes alive — for now**\
-`Next up for the Huskies? A date with No. 1 Florida, arguably the best team in America right now.`\
-https://nytimes.com/athletic/6222822/2025/03/22/uconn-oklahoma-ncaa-tournament/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**With Erdogan Rival Detained, Critics See Democracy Eroding in Turkey**\
-`Opponents say President Recep Tayyip Erdogan manipulates the courts and the media to tighten his grip on power, and now is trying to prevent a top contender from running for president.`\
-https://nytimes.com/2025/03/22/world/middleeast/turkey-erdogan-democracy-istanbul-mayor-detention.html
 
