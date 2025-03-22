@@ -1,3 +1,7 @@
+**Sirens' Abby Roque scores first 'Michigan' goal in PWHL history**\
+`The 27-year-old Michigan native made PWHL history Saturday after scoring the first "Michigan" goal in league history.`\
+https://nytimes.com/athletic/6223535/2025/03/22/pwhl-abby-roque-michigan-goal-sirens/
+
 **Cleveland Guardians sign ace Tanner Bibee to 5-year contract extension**\
 `The new deal includes $48 million guaranteed for Bibee, plus a club option for 2030. `\
 https://nytimes.com/athletic/6223498/2025/03/22/cleveland-guardians-tanner-bibee-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2
 **Chomps Recalls Beef and Turkey Sticks Over ‘Pieces of Metal’ Complaints**\
 `The snack sticks included in the recall were packaged at a single facility in Idaho from Jan. 16 through Jan. 23, the company said.`\
 https://nytimes.com/2025/03/22/us/chomps-beef-stick-recall-metal.html
-
-**Women's March Madness first round takeaways: UConn's blowout victory among tournament's largest**\
-`Follow along with our Day 2 updates and analysis.`\
-https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round-takeaways-iowa-uconn/
 
