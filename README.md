@@ -26,13 +26,13 @@ https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
-**Corrections: March 23, 2025**\
-`Corrections that appeared in print on Sunday, March 23, 2025.`\
-https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
-
 **Corrections: March 22, 2025**\
 `Corrections that appeared in print on Saturday, March 22, 2025.`\
 https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
+
+**Corrections: March 23, 2025**\
+`Corrections that appeared in print on Sunday, March 23, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
 
 **TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
 `Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
