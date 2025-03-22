@@ -1,3 +1,11 @@
+**Corrections: March 23, 2025**\
+`Corrections that appeared in print on Sunday, March 23, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
+
+**Corrections: March 22, 2025**\
+`Corrections that appeared in print on Saturday, March 22, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
+
 **TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
 `Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/us/migrant-children-legal-representation-funding.
 **Paul Weiss Deal With Trump Faces Backlash From Legal Profession**\
 `Paul Weiss, a law firm targeted by President Trump, reached a deal to settle a conflict. Many in the legal field are condemning the agreement.`\
 https://nytimes.com/2025/03/21/business/paul-weiss-trump-reaction.html
-
-**Jameis Winston, Giants agree to terms on two-year deal: Does NY have its new QB1?**\
-`The veteran quarterback gets a chance to bring his fun-loving persona and mercurial playing style to a fourth NFL team.`\
-https://nytimes.com/athletic/6182168/2025/03/21/jameis-winston-free-agency-signing-2025-team/
-
-**State of the Padres: Darvish heads to IL, roster battles down to the wire before opener**\
-`San Diego has decisions to make regarding the final two spots in the rotation, one or two spots in the bullpen, and the entire bench.`\
-https://nytimes.com/athletic/6222495/2025/03/21/padres-darvish-injury-roster-battles/
 
