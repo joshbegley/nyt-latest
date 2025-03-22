@@ -1,3 +1,7 @@
+**Travel Disruptions Linger as Flights Resume at London’s Heathrow**\
+`The airport restarted full operations on Saturday, after a power substation fire halted operations for most of Friday.`\
+https://nytimes.com/2025/03/22/world/europe/heathrow-airport-flights.html
+
 **Protests Swell in South Korea as Court Weighs President’s Fate**\
 `Rallies for and against Yoon Suk Yeol fill the streets as the Constitutional Court decides whether his ill-fated imposition of martial law justifies removal.`\
 https://nytimes.com/2025/03/22/world/asia/south-korea-yoon-protests.html
