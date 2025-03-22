@@ -1,3 +1,7 @@
+**Which NHL top defense pairs have been the best and worst this season?**\
+`We identify the NHL teams with top pairs that are dominating and the ones significantly trailing the competition.`\
+https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/
+
 **‘So Eager to Get Back’: Travelers Pour Into a Reopened Heathrow**\
 `Information boards showed that most flights would leave on time, but the lines at ticketing counters signaled that many travelers were in for more delays.`\
 https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.html
