@@ -2,7 +2,7 @@
 `The snack sticks included in the recall were packaged at a single facility in Idaho from Jan. 16 through Jan. 23, the company said.`\
 https://nytimes.com/2025/03/22/us/chomps-beef-stick-recall-metal.html
 
-**Women's March Madness first round takeaways: Iowa rolls in post-Caitlin Clark era**\
+**Women's March Madness first round takeaways: Iowa rolls in post-Caitlin Clark tourney era**\
 `Follow along with our Day 2 updates and analysis.`\
 https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round-takeaways-iowa-uconn/
 
