@@ -1,3 +1,11 @@
+**The Trump administration moved to end a program for migrants from 4 Caribbean and Latin American nations.**\
+`By the end of 2024, more than 500,000 migrants had entered the United States through the initiative, known as the C.H.N.V. program.`\
+https://nytimes.com/2025/03/21/us/politics/the-trump-administration-moved-to-end-a-program-for-migrants-from-4-caribbean-and-latin-american-nations.html
+
+**Trump Jumps Into a Major Wisconsin Court Race With an Endorsement**\
+`The president threw his support to Brad Schimel, the conservative candidate in a race for control of the battleground state’s top court. Elon Musk has spent millions of dollars on the contest.`\
+https://nytimes.com/2025/03/21/us/politics/trump-schimel-wisconsin-supreme-court.html
+
 **George Foreman, Boxing Champion and Grilling Magnate, Dies at 76**\
 `He claimed a world title in his 20s and again in his 40s, and then made millions selling grills.`\
 https://nytimes.com/2025/03/21/sports/george-foreman-dead.html
