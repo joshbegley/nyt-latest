@@ -1,3 +1,19 @@
+**An NBA player started so his autistic son could see him. Here's how the team responded**\
+`"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
+https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
+
+**In California, Confusion Abounds Over Status of 2 National Monuments**\
+`The White House removed all references to the Chuckwalla and Sáttítla monuments from a fact sheet outlining how the president would reverse some Biden-era environmental policies.`\
+https://nytimes.com/2025/03/22/us/politics/california-monuments-white-house-trump.html
+
+**Trump Administration Live Updates: Program for Migrants From 4 Caribbean and Latin American Nations to End**\
+``\
+https://nytimes.com/live/2025/03/22/us/trump-news
+
+**England kit change vs Albania happened due to mistake on first shirt**\
+`Squad numbers were placed directly under the logo of shirt providers Nike rather than in the centre, as was seen at Euro 2024.`\
+https://nytimes.com/athletic/6223042/2025/03/22/england-kit-albania-mistake/
+
 **The Pulse: Our first Saturday edition!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2
 **Reese Johnson: The Maple Leafs trade deadline addition no one is talking about**\
 `Toronto's deadline-day acquisition of Reese Johnson flew under the radar. How he plans to work his way into the conversation.`\
 https://nytimes.com/athletic/6203570/2025/03/22/maple-leafs-reese-johnson-trade-deadline/
-
-**Good luck scoring on Hurricanes' penalty-kill unit. Here's why it's always so strong**\
-`Changes to personnel and coaching haven't lowered the standards for the Hurricanes.`\
-https://nytimes.com/athletic/6222146/2025/03/22/hurricanes-penalty-kill-brindamour/
-
-**'It's complete chaos' How a goalie from Winnipeg produced a California roller hockey documentary**\
-`Driedger produced a documentary film about a California-based roller hockey league with one of the most unique backstories in hockey history`\
-https://nytimes.com/athletic/6220548/2025/03/22/chris-driedger-pro-beach-hockey-documentary/
-
-**Panama defeat conjures memories of USMNT's most devastating losses**\
-`A loss in the Nations League semis was brutal, but it doesn't quite rank up with some of the biggest gut-punches in USMNT history.`\
-https://nytimes.com/athletic/6222843/2025/03/22/usmnt-history-most-devastating-losses-trinidad-mexico/
-
-**How Blackhawks defenseman Wyatt Kaiser's game has taken off lately**\
-`Kaiser's recent goal scoring has made his play more noticeable, but there's more to it than that.`\
-https://nytimes.com/athletic/6222021/2025/03/22/blackhawks-defenseman-wyatt-kaiser/
 

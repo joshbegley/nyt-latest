@@ -1,3 +1,19 @@
+**An NBA player started so his autistic son could see him. Here's how the team responded**\
+`"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
+https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
+
+**In California, Confusion Abounds Over Status of 2 National Monuments**\
+`The White House removed all references to the Chuckwalla and Sáttítla monuments from a fact sheet outlining how the president would reverse some Biden-era environmental policies.`\
+https://nytimes.com/2025/03/22/us/politics/california-monuments-white-house-trump.html
+
+**Trump Administration Live Updates: Program for Migrants From 4 Caribbean and Latin American Nations to End**\
+``\
+https://nytimes.com/live/2025/03/22/us/trump-news
+
+**England kit change vs Albania happened due to mistake on first shirt**\
+`Squad numbers were placed directly under the logo of shirt providers Nike rather than in the centre, as was seen at Euro 2024.`\
+https://nytimes.com/athletic/6223042/2025/03/22/england-kit-albania-mistake/
+
 **The Pulse: Our first Saturday edition!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the-pulse/
