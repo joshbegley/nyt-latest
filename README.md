@@ -1,3 +1,11 @@
+**The Trump administration moved to end a program for migrants from 4 Caribbean and Latin American nations.**\
+`By the end of 2024, more than 500,000 migrants had entered the United States through the initiative, known as the C.H.N.V. program.`\
+https://nytimes.com/2025/03/21/us/politics/the-trump-administration-moved-to-end-a-program-for-migrants-from-4-caribbean-and-latin-american-nations.html
+
+**Trump Jumps Into a Major Wisconsin Court Race With an Endorsement**\
+`The president threw his support to Brad Schimel, the conservative candidate in a race for control of the battleground state’s top court. Elon Musk has spent millions of dollars on the contest.`\
+https://nytimes.com/2025/03/21/us/politics/trump-schimel-wisconsin-supreme-court.html
+
 **George Foreman, Boxing Champion and Grilling Magnate, Dies at 76**\
 `He claimed a world title in his 20s and again in his 40s, and then made millions selling grills.`\
 https://nytimes.com/2025/03/21/sports/george-foreman-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
 **TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
 `Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
-
-**Jameis Winston is just a placeholder; the Giants' fate rests on their next QB decision**\
-`Signing Winston isn’t the end of the Giants' QB quest this offseason. In some ways, it's just the beginning. `\
-https://nytimes.com/athletic/6205320/2025/03/21/jameis-winston-giants-nfl-free-agency-nfl-draft/
-
-**Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
-`Gibson, 37, agreed to a one-year, $5.25 million contract with Baltimore.`\
-https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
 
