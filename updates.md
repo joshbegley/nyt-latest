@@ -1,3 +1,7 @@
+**Spartans, Terps might get pushed by second-round underdogs**\
+`Duke and Florida seem pretty safe in the second round, but Michigan State and Maryland may have something to fear in their Sunday foes.`\
+https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-fear-second-round-upsets-heres-the-case-for-underdogs/
+
 **Which NHL top defense pairs have been the best and worst this season?**\
 `We identify the NHL teams with top pairs that are dominating and the ones significantly trailing the competition.`\
 https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/

@@ -1,3 +1,7 @@
+**Spartans, Terps might get pushed by second-round underdogs**\
+`Duke and Florida seem pretty safe in the second round, but Michigan State and Maryland may have something to fear in their Sunday foes.`\
+https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-fear-second-round-upsets-heres-the-case-for-underdogs/
+
 **Which NHL top defense pairs have been the best and worst this season?**\
 `We identify the NHL teams with top pairs that are dominating and the ones significantly trailing the competition.`\
 https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the
 **A Montana Senator Seeks to Be Trump’s Voice in Beijing**\
 `Senator Steve Daines said in an interview that in meetings with Chinese officials, he called for talks between President Trump and China’s leader, Xi Jinping.`\
 https://nytimes.com/2025/03/22/world/asia/trump-china-xi-daines.html
-
-**Lewis Hamilton has perfect response to ‘yapping’ about his Ferrari start**\
-`One sprint win won’t define Lewis Hamilton’s season, but it was a fine way to answer any early criticism`\
-https://nytimes.com/athletic/6222932/2025/03/22/lewis-hamilton-china-sprint-win-analysis/
 
