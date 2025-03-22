@@ -1,3 +1,7 @@
+**Panama enjoys latest USMNT upset, sets sights on Nations League triumph**\
+`Causing the USMNT heartache is nothing new for jubilant Panama.`\
+https://nytimes.com/athletic/6223058/2025/03/22/waterman-concacaf-nations-league-usmnt-panama/
+
 **Penn State wrestling dynasty wins fourth straight NCAA championship**\
 `This is Penn State’s 12th NCAA title under Sanderson and the program’s 13th overall. Penn State’s first wrestling championship came in 1953.`\
 https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-national-championship/
