@@ -1,40 +1,40 @@
-**Police Investigate ‘Mass Shooting’ at Park in New Mexico**\
-`The shooting at a gathering of drivers of modified sports cars appeared to have left at least two people dead.`\
+**Reese Johnson: The Maple Leafs trade deadline addition no one is talking about**\
+`Toronto's deadline-day acquisition of Reese Johnson flew under the radar. How he plans to work his way into the conversation.`\
+https://nytimes.com/athletic/6203570/2025/03/22/maple-leafs-reese-johnson-trade-deadline/
+
+**Good luck scoring on Hurricanes' penalty-kill unit. Here's why it's always so strong**\
+`Changes to personnel and coaching haven't lowered the standards for the Hurricanes.`\
+https://nytimes.com/athletic/6222146/2025/03/22/hurricanes-penalty-kill-brindamour/
+
+**'It's complete chaos' How a goalie from Winnipeg produced a California roller hockey documentary**\
+`Driedger produced a documentary film about a California-based roller hockey league with one of the most unique backstories in hockey history`\
+https://nytimes.com/athletic/6220548/2025/03/22/chris-driedger-pro-beach-hockey-documentary/
+
+**Panama defeat conjures memories of USMNT's most devastating losses**\
+`A loss in the Nations League semis was brutal, but it doesn't quite rank up with some of the biggest gut-punches in USMNT history.`\
+https://nytimes.com/athletic/6222843/2025/03/22/usmnt-history-most-devastating-losses-trinidad-mexico/
+
+**How Blackhawks defenseman Wyatt Kaiser's game has taken off lately**\
+`Kaiser's recent goal scoring has made his play more noticeable, but there's more to it than that.`\
+https://nytimes.com/athletic/6222021/2025/03/22/blackhawks-defenseman-wyatt-kaiser/
+
+**Emil Andrae going through 'learning process,' plus Nikita Grebenkin's hot start**\
+`Andrae could be on his way to officially arriving at the NHL level, and Grebenkin is making a good first impression. `\
+https://nytimes.com/athletic/6222060/2025/03/22/flyers-emil-andrae-nikita-grebenkin/
+
+**The Nonprofit Caught in the Fray of Trump’s Attacks on Big Law**\
+`A federal inquiry into D.E.I. practices at 20 law firms zeroed in on SEO, a decades-old program that helps students land jobs on Wall Street.`\
+https://nytimes.com/2025/03/22/business/dealbook/trump-dei-seo-wall-street.html
+
+**2 Books With Celebrity Cameos**\
+`A memoir of Greenwich Village; an Argentine story collection.`\
+https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
+
+**Police Investigate Shooting at Park in New Mexico**\
+`The shooting happened at a gathering of drivers of modified sports cars. There appeared to be at least two dead.`\
 https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
 
 **Rockets Fired From Lebanon Prompt Israeli Airstrikes**\
 `Israel retaliated after rockets were fired from Lebanon toward Israel for the first time in months. Israel said the airstrikes targeted sites linked to Hezbollah.`\
 https://nytimes.com/2025/03/22/world/middleeast/lebanon-israel-rockets-airstrikes-gaza.html
-
-**What I'm hearing in Astros camp: Chas McCormick's roster spot, Framber Valdez's future**\
-`Plus how Jose Altuve is getting left-field tips from Yordan Alvarez, and what the Astros are considering as they figure out their bullpen.`\
-https://nytimes.com/athletic/6222191/2025/03/22/astros-chas-mccormick-framber-valdez/
-
-**What I'm seeing at Phillies spring training with less than a week until Opening Day**\
-`Observations from camp: Ranger Suárez's status, Rafael Marchán's moment, Max Kepler's spot in the lineup, a minor leaguer to watch and more.`\
-https://nytimes.com/athletic/6222245/2025/03/22/phillies-observations-ranger-suarez-rafael-marchan/
-
-**Breslow’s Red Sox front-office audit resulted in painful cuts. Will the changes bring wins?**\
-`Following an audit, Breslow reshaped the front office, leaving some optimistic about their roles and others uneasy with the changes.`\
-https://nytimes.com/athletic/6222678/2025/03/22/red-sox-craig-breslow-front-office-changes/
-
-**NHL playoff tiers: Where each team sits and what's at stake down the stretch**\
-`The Athletic asked its NHL staff to put all 32 teams into five playoff tiers and highlight what's at stake for each club in the stretch run.`\
-https://nytimes.com/athletic/6222052/2025/03/22/nhl-playoff-tiers-teams-stakes-season-stretch/
-
-**It’s About Ideology, Not Oligarchy**\
-`Trump’s agenda doesn’t serve the superrich.`\
-https://nytimes.com/2025/03/22/opinion/trump-oligarchy-populism.html
-
-**Daniel Jebbison is growing up – and could be just what Canada needs**\
-`Canada's newest striker has inspiration in the form of a child on the way and is eager to fulfill his potential for both club and country`\
-https://nytimes.com/athletic/6221909/2025/03/22/daniel-jebbison-canada-bournemouth/
-
-**Meet the Opposite of Elon Musk**\
-`Valentino Deng also has roots in South Africa, but he exudes the empathy that Musk scorns.`\
-https://nytimes.com/2025/03/22/opinion/musk-trump-education.html
-
-**Who Will Defend the Defenders of the Constitution?**\
-`The president and his allies are encouraging a campaign of menace.`\
-https://nytimes.com/2025/03/22/opinion/law-firms-judges-intimidation.html
 
