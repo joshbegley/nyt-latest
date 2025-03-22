@@ -1,3 +1,7 @@
+**Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
+`The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
+https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
+
 **'This can blow up fast': For Max Scherzer, the stuff is sharp but the thumb is troubling**\
 `Scherzer struck out four Twins over four scoreless innings on Saturday: "I know I can still pitch at a very high level."`\
 https://nytimes.com/athletic/6223709/2025/03/22/blue-jays-max-scherzer-thumb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223649/2025/03/22/astros-cam-smith-zach-dezenzo-st
 **Ronaldo has 'no problem' with Hojlund copying 'siu' celebration**\
 `Ronaldo said that it was an "honour" that athletes around the world have copied his celebration.`\
 https://nytimes.com/athletic/6223681/2025/03/22/cristiano-ronaldo-siu-hojlund-celebration/
-
-**Filip Gustavsson stays hot, Justin Brazeau scores first goal with Wild: 3 takeaways**\
-`The trade-deadline pickup snapped a long drought and scored his first goal with Minnesota in a 4-1 win over Buffalo on Saturday.`\
-https://nytimes.com/athletic/6223427/2025/03/22/wild-sabres-justin-brazeau-filip-gustavsson/
 
