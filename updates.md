@@ -1,3 +1,11 @@
+**Thomas Hoobler, Half of a Prolific Writing Couple, Dies at 82**\
+`He and his wife, Dorothy Hoobler, wrote 103 books, most recently one about presidential love letters, “Are You Prepared for the Storm of Love Making?”`\
+https://nytimes.com/2025/03/22/books/thomas-hoobler-dies.html
+
+**Yankees notes: Carlos Carrasco makes roster, searching for a righty bat**\
+`By making the Opening Day roster, Carrasco now locks in a guaranteed salary of $1.5 million.`\
+https://nytimes.com/athletic/6223378/2025/03/22/yankees-roster-carlos-carrasco-oswald-peraza/
+
 **Bayern hopeful that Neuer will be fit for Champions League quarter-final**\
 `Despite the setback, the German club remain hopeful that the 38-year-old will be fit to face Inter Milan in the Champions League on April 8.`\
 https://nytimes.com/athletic/6223499/2025/03/22/bayern-munich-manuel-neuer-injury-setback-update/

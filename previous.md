@@ -1,3 +1,11 @@
+**Thomas Hoobler, Half of a Prolific Writing Couple, Dies at 82**\
+`He and his wife, Dorothy Hoobler, wrote 103 books, most recently one about presidential love letters, “Are You Prepared for the Storm of Love Making?”`\
+https://nytimes.com/2025/03/22/books/thomas-hoobler-dies.html
+
+**Yankees notes: Carlos Carrasco makes roster, searching for a righty bat**\
+`By making the Opening Day roster, Carrasco now locks in a guaranteed salary of $1.5 million.`\
+https://nytimes.com/athletic/6223378/2025/03/22/yankees-roster-carlos-carrasco-oswald-peraza/
+
 **Bayern hopeful that Neuer will be fit for Champions League quarter-final**\
 `Despite the setback, the German club remain hopeful that the 38-year-old will be fit to face Inter Milan in the Champions League on April 8.`\
 https://nytimes.com/athletic/6223499/2025/03/22/bayern-munich-manuel-neuer-injury-setback-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round
 **Tuchel: Bellingham needs to be 'more disciplined,' tried to do too much at Euros**\
 `Bellingham started England's 2-0 World Cup qualifier win against Albania at Wembley on Friday and played the full game.`\
 https://nytimes.com/athletic/6223092/2025/03/22/thomas-tuchel-jude-bellingham-england/
-
-**Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
-`The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs. He will need to rest in the Vatican for at least two months, his doctors said.`\
-https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
-
-**How the Chinese Grand Prix came to resemble a Taylor Swift concert**\
-`The Shanghai fan zone is something completely different. The gift exchange is new, exhilarating and joyous`\
-https://nytimes.com/athletic/6222959/2025/03/22/chinese-grand-prix-2025-fans-taylor-swift/
 
