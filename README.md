@@ -1,9 +1,13 @@
+**Blues expected to call up Dalibor Dvorsky from AHL: Source**\
+`The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
+https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
+
 **The I.R.S. is preparing to help ICE locate immigrants targeted for deportation.**\
 `The tax agency is nearing an agreement to verify whether ICE officials have the right address for people they are trying to deport.`\
 https://nytimes.com/live/2025/03/22/us/trump-news/the-irs-is-preparing-to-help-ice-locate-immigrants-targeted-for-deportation
 
-**As schedule gets tougher, Wild getting the best of Filip Gustavsson at the perfect time**\
-`Gustavsson has been playing his best hockey and has been the backbone for Minnesota at the most important time of the year.`\
+**As schedule gets tougher, Wild getting the best of Gustavsson at the perfect time**\
+`Gustavsson has been playing his best hockey and has been the backbone for Minnesota at the most critical time of the year.`\
 https://nytimes.com/athletic/6223838/2025/03/22/wild-sabres-filip-gustavsson-schedule/
 
 **Women’s Basketball Coach Is Fired After Pulling Player’s Ponytail**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223709/2025/03/22/blue-jays-max-scherzer-thumb/
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Canada coach Jesse Marsch says refereeing disrespect hinders his team**\
-`Controversial calls in Canada's Concacaf Nations League semifinal fueled Marsch's frustration.`\
-https://nytimes.com/athletic/6223677/2025/03/22/marsch-disrespect-canada-usmnt-nations-league/
 
