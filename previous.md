@@ -1,3 +1,7 @@
+**Protests Swell in South Korea as Court Weighs President’s Fate**\
+`Rallies for and against Yoon Suk Yeol fill the streets as the Constitutional Court decides whether his ill-fated imposition of martial law justifies removal.`\
+https://nytimes.com/2025/03/22/world/asia/south-korea-yoon-protests.html
+
 **How Arsenal made the basic act of running hard after losing the ball their superpower**\
 `Sunday's win against Chelsea was a timely reminder of how suffocating Arsenal can be when every player is dialled in to the danger`\
 https://nytimes.com/athletic/6218644/2025/03/22/arsenal-superpower-running-hard-after-losing-the-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/world/europe/heathrow-airport-flights.html
 **The Sniper’s Nest**\
 `Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
 https://nytimes.com/2025/03/22/world/africa/sudan-photo-sniper.html
-
-**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

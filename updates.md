@@ -1,3 +1,7 @@
+**Protests Swell in South Korea as Court Weighs President’s Fate**\
+`Rallies for and against Yoon Suk Yeol fill the streets as the Constitutional Court decides whether his ill-fated imposition of martial law justifies removal.`\
+https://nytimes.com/2025/03/22/world/asia/south-korea-yoon-protests.html
+
 **How Arsenal made the basic act of running hard after losing the ball their superpower**\
 `Sunday's win against Chelsea was a timely reminder of how suffocating Arsenal can be when every player is dialled in to the danger`\
 https://nytimes.com/athletic/6218644/2025/03/22/arsenal-superpower-running-hard-after-losing-the-ball/
