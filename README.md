@@ -1,3 +1,7 @@
+**Which NHL top defense pairs have been the best and worst this season?**\
+`We identify the NHL teams with top pairs that are dominating and the ones significantly trailing the competition.`\
+https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/world/asia/trump-china-xi-daines.html
 **Lewis Hamilton has perfect response to ‘yapping’ about his Ferrari start**\
 `One sprint win won’t define Lewis Hamilton’s season, but it was a fine way to answer any early criticism`\
 https://nytimes.com/athletic/6222932/2025/03/22/lewis-hamilton-china-sprint-win-analysis/
-
-**Suns, with a newfound source of energy, post their biggest win of the season**\
-`The energy surge is noticeable. So is the power source. The Big Three has been replaced by The Active Three.`\
-https://nytimes.com/athletic/6222890/2025/03/22/phoenix-suns-cleveland-cavaliers-playoffs-devin-booker/
 
