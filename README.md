@@ -1,40 +1,40 @@
-**How to watch No. 2 UConn vs. No. 15 Arkansas State in the women's NCAA Tournament**\
-`Big East Player of the Year Paige Bueckers and UConn are favored by more than 40 points over Arkansas State. `\
-https://nytimes.com/athletic/6213008/2025/03/22/uconn-arkansas-state-womens-ncaa-tournament-how-to-watch/
+**Everyone in the City Needs Soundproofing, Even Spiders**\
+`Researchers have found evidence that a common North American spider species alters its webs to deal with urban noise pollution.`\
+https://nytimes.com/2025/03/22/science/spiders-webs-noise-pollution.html
 
-**How to watch No. 6 Iowa vs. No. 11 Murray State in the women's NCAA Tournament**\
-`Iowa starts its first NCAA Tournament after Caitlin Clark against Murray State. The No. 6 seed Hawkeyes are solid favorites.`\
-https://nytimes.com/athletic/6211401/2025/03/22/iowa-murray-state-womens-ncaa-tournament-how-to-watch/
+**Money, Power and Politics: The Musk Effect in Washington and Beyond**\
+`Elon Musk is seemingly everywhere, dominating the news out of Washington and beyond. The tech billionaire’s increasing influence in the White House has raised complicated questions about how he could reshape U.S. politics.`\
+https://nytimes.com/2025/03/22/us/politics/elon-musk-politics-roundtable.html
 
-**Tuchel's England were not radically different - but that's not a big problem**\
-`England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
-https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
+**Deportations Haven’t Surged Under Trump. But Here’s How They’ve Changed.**\
+`An analysis of flight data shows how the Trump administration is using extraordinary means to deport people.`\
+https://nytimes.com/interactive/2025/03/22/us/trump-deportation-flights-maps.html
 
-**A Walkway Was Set to Open on the Queensboro Bridge. Until it Wasn’t.**\
-`A long-awaited pedestrian path appeared to be finished this month. A ribbon-cutting was scheduled. A news release was prepared. Then City Hall hit the brakes.`\
-https://nytimes.com/2025/03/22/nyregion/queensboro-bridge-pedestrian-path-adams.html
+**‘Severance’ Finale: Which Theories Were Correct?**\
+`Some fans correctly predicted some of the episode’s biggest revelations. But other mysteries remain, and many more were introduced.`\
+https://nytimes.com/2025/03/22/arts/television/severance-finale-season-2-apple-tv.html
 
-**How the Owner of a Nightclub and a Roller Rink Spends His Sundays**\
-`Varun Kataria owns various nightlife venues in Bushwick, Brooklyn. His Sundays usually begin with creative projects and end with his dog, Mushroom.`\
-https://nytimes.com/2025/03/22/nyregion/varun-kataria-xanadu-turks-inn-sultan-room.html
+**How Elon Musk’s DOGE Cuts Leave a Vacuum That China Can Fill**\
+`The Department of Government Efficiency is shuttering organizations that Beijing worried about most, or actively sought to subvert.`\
+https://nytimes.com/2025/03/22/us/politics/elon-musk-doge-china.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/22/crosswords/spelling-bee-forum.html
+**Can a French Department Store Make Wall Street Très Chic?**\
+`With a new location in Lower Manhattan — its first in America — Printemps is aiming to conquer an area where other luxury emporiums have recently failed.`\
+https://nytimes.com/2025/03/22/style/printemps-store-manhattan.html
 
-**Protests Swell in South Korea as Court Weighs President’s Fate**\
-`Rallies for and against Yoon Suk Yeol fill the streets as the Constitutional Court decides whether his ill-fated imposition of martial law justifies removal.`\
-https://nytimes.com/2025/03/22/world/asia/south-korea-yoon-protests.html
+**How to Talk to a Neurodiverse Colleague**\
+`Work Friend reconsiders a past response. Plus, the best way to correct people who get your name wrong.`\
+https://nytimes.com/2025/03/22/business/neurodiverse-colleague-work-advice.html
 
-**How Arsenal made the basic act of running hard after losing the ball their superpower**\
-`Sunday's win against Chelsea was a timely reminder of how suffocating Arsenal can be when every player is dialled in to the danger`\
-https://nytimes.com/athletic/6218644/2025/03/22/arsenal-superpower-running-hard-after-losing-the-ball/
+**How an Autopen Conspiracy Theory About Biden Went Viral**\
+`A specious theory on pardons had help from the conservative Heritage Foundation before President Trump and right-wing influencers amplified it.`\
+https://nytimes.com/2025/03/22/business/media/autopen-biden-trump-conspiracy-theory.html
 
-**Kuyt interview: 'For Arne to win the league in his first season… no one will forget it'**\
-`The former Liverpool forward has watched Arne Slot at close quarters in the Netherlands and is enjoying the Dutch influence at Anfield`\
-https://nytimes.com/athletic/6215932/2025/03/22/dirk-kuyt-interview-liverpool/
+**Dementia May Not Always Be the Threat It Is Now. Here’s Why.**\
+`The number of cases will increase, but the rates seem to be declining with every birth cohort that reaches advanced ages, researchers said.`\
+https://nytimes.com/2025/03/22/health/dementia-rates-elderly.html
 
-**Newcastle United Women: A record crowd at St James' Park for the derby and using men's League Cup 'buzz'**\
-`Becky Langley's thoughts as her side prepares to face Sunderland in front of a record-breaking Championship crowd`\
-https://nytimes.com/athletic/6218452/2025/03/22/newcastle-united-women-becky-langley-derby-sunderland-st-james/
+**What 6 Voters Think of Trump’s Latest Actions**\
+`The first months of President Trump’s second term have been characterized by a flurry of activity. The New York Times talked with several voters about their reactions to some of the latest measures.`\
+https://nytimes.com/2025/03/22/us/trump-voters-policies-tariffs-judges.html
 

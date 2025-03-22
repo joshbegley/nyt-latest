@@ -1,3 +1,11 @@
+**How to watch No. 2 UConn vs. No. 15 Arkansas State in the women's NCAA Tournament**\
+`Big East Player of the Year Paige Bueckers and UConn are favored by more than 40 points over Arkansas State. `\
+https://nytimes.com/athletic/6213008/2025/03/22/uconn-arkansas-state-womens-ncaa-tournament-how-to-watch/
+
+**How to watch No. 6 Iowa vs. No. 11 Murray State in the women's NCAA Tournament**\
+`Iowa starts its first NCAA Tournament after Caitlin Clark against Murray State. The No. 6 seed Hawkeyes are solid favorites.`\
+https://nytimes.com/athletic/6211401/2025/03/22/iowa-murray-state-womens-ncaa-tournament-how-to-watch/
+
 **Tuchel's England were not radically different - but that's not a big problem**\
 `England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
 https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
