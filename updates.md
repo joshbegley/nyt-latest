@@ -1,3 +1,7 @@
+**Man Accused of Shoplifting Dies at Brooklyn Courthouse**\
+`The cause of death was not immediately clear. Four other people have died this year in city jails or just after being released from custody.`\
+https://nytimes.com/2025/03/22/nyregion/man-dies-police-custody-brooklyn.html
+
 **Lazy Daisy Cake Is as Easy as It Sounds**\
 `The frosting is a “lazy” mix of melted butter, brown sugar and coconut — because sluggish bakers deserve nice treats, too.`\
 https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
