@@ -1,3 +1,11 @@
+**How George Foreman Turned a Home Grill Into a Culinary Heavyweight**\
+`The former boxer transformed American cooking, and himself, with an appliance that remains a cultural touchstone.`\
+https://nytimes.com/2025/03/22/dining/george-foreman-grill.html
+
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Chomps Recalls Beef and Turkey Sticks Over ‘Pieces of Metal’ Complaints**\
 `The snack sticks included in the recall were packaged at a single facility in Idaho from Jan. 16 through Jan. 23, the company said.`\
 https://nytimes.com/2025/03/22/us/chomps-beef-stick-recall-metal.html

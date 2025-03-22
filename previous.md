@@ -1,3 +1,11 @@
+**How George Foreman Turned a Home Grill Into a Culinary Heavyweight**\
+`The former boxer transformed American cooking, and himself, with an appliance that remains a cultural touchstone.`\
+https://nytimes.com/2025/03/22/dining/george-foreman-grill.html
+
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Chomps Recalls Beef and Turkey Sticks Over ‘Pieces of Metal’ Complaints**\
 `The snack sticks included in the recall were packaged at a single facility in Idaho from Jan. 16 through Jan. 23, the company said.`\
 https://nytimes.com/2025/03/22/us/chomps-beef-stick-recall-metal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223165/2025/03/22/reds-spencer-steer-injury/
 **Panama enjoys latest USMNT upset, sets sights on Nations League triumph**\
 `Causing the USMNT heartache is nothing new for jubilant Panama.`\
 https://nytimes.com/athletic/6223058/2025/03/22/waterman-concacaf-nations-league-usmnt-panama/
-
-**Penn State wrestling dynasty wins fourth straight NCAA championship**\
-`This is Penn State’s 12th NCAA title under Sanderson and the program’s 13th overall. Penn State’s first wrestling championship came in 1953.`\
-https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-national-championship/
-
-**What Is Justice Roberts Getting At?**\
-`The repercussions of Trump v. United States may finally be hitting the chief justice.`\
-https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html
 
