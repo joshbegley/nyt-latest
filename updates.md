@@ -1,3 +1,19 @@
+**Tuchel's England were not radically different — but that's not a big problem**\
+`England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
+https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
+
+**A Walkway Was Set to Open on the Queensboro Bridge. Until it Wasn’t.**\
+`A long-awaited pedestrian path appeared to be finished this month. A ribbon-cutting was scheduled. A news release was prepared. Then City Hall hit the brakes.`\
+https://nytimes.com/2025/03/22/nyregion/queensboro-bridge-pedestrian-path-adams.html
+
+**How the Owner of a Nightclub and a Roller Rink Spends His Sundays**\
+`Varun Kataria owns various nightlife venues in Bushwick, Brooklyn. His Sundays usually begin with creative projects and end with his dog, Mushroom.`\
+https://nytimes.com/2025/03/22/nyregion/varun-kataria-xanadu-turks-inn-sultan-room.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/22/crosswords/spelling-bee-forum.html
+
 **Travel Disruptions Linger as Flights Resume at London’s Heathrow**\
 `The airport restarted full operations on Saturday, after a power substation fire halted operations for most of Friday.`\
 https://nytimes.com/2025/03/22/world/europe/heathrow-airport-flights.html
