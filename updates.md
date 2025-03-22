@@ -1,3 +1,11 @@
+**Sirens' Abby Roque scores first 'Michigan' goal in PWHL history**\
+`The 27-year-old Michigan native made PWHL history Saturday after scoring the first "Michigan" goal in league history.`\
+https://nytimes.com/athletic/6223535/2025/03/22/pwhl-abby-roque-michigan-goal-sirens/
+
+**Cleveland Guardians sign ace Tanner Bibee to 5-year contract extension**\
+`The new deal includes $48 million guaranteed for Bibee, plus a club option for 2030. `\
+https://nytimes.com/athletic/6223498/2025/03/22/cleveland-guardians-tanner-bibee-contract-extension/
+
 **Thomas Hoobler, Half of a Prolific Writing Couple, Dies at 82**\
 `He and his wife, Dorothy Hoobler, wrote 103 books, most recently one about presidential love letters, “Are You Prepared for the Storm of Love Making?”`\
 https://nytimes.com/2025/03/22/books/thomas-hoobler-dies.html
