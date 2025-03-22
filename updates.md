@@ -1,3 +1,7 @@
+**How Canucks snatched defeat from the jaws of victory in Manhattan: 3 takeaways**\
+`Quinn Hughes did everything possible to will his team to a victory, but Vancouver still fell 5-3 in New York on Saturday.`\
+https://nytimes.com/athletic/6223516/2025/03/22/canucks-rangers-score-takeaways/
+
 **With New Decree, Trump Seeks to Cow the Legal Profession**\
 `A presidential memorandum aimed at lawyers everywhere struck a menacing tone.`\
 https://nytimes.com/2025/03/22/us/politics/trump-memo-lawyers.html
