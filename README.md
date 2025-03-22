@@ -1,13 +1,9 @@
-**George Foreman, legendary boxer and Muhammad Ali’s foe turned friend, dies at 76**\
-`The oldest world heavyweight boxing champion in history died Friday surrounded by loved ones, his family shared.`\
-https://nytimes.com/athletic/6222682/2025/03/21/george-foreman-boxer-obituary/
-
 **Lewis Hamilton wins first race with Ferrari in Chinese GP sprint**\
 `Hamilton led every lap from pole in just his second F1 race with Ferrari. `\
 https://nytimes.com/athletic/6222772/2025/03/21/lewis-hamilton-win-ferrari-chinese-grand-prix-sprint/
 
 **Yohe's 10 observations: Sidney Crosby, Boko Imama lead Penguins to another win**\
-`The Penguins won for a fifth time in six games and have produced 20 goals in their past four games.`\
+`The Penguins won for a fifth time in six games and have produced 20 goals in their last four games.`\
 https://nytimes.com/athletic/6222514/2025/03/21/penguins-blue-jackets-sidney-crosby-boko-imama/
 
 **The Trump administration moved to end a program for migrants from 4 Caribbean and Latin American nations.**\
@@ -37,4 +33,8 @@ https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Corrections: March 22, 2025**\
+`Corrections that appeared in print on Saturday, March 22, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
 

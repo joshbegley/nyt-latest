@@ -1,3 +1,7 @@
+**George Foreman, legendary boxer and Muhammad Ali’s foe turned friend, dies at 76**\
+`The oldest world heavyweight boxing champion in history died Friday surrounded by loved ones, his family shared.`\
+https://nytimes.com/athletic/6222682/2025/03/21/george-foreman-boxer-obituary/
+
 **Lewis Hamilton wins first race with Ferrari in Chinese GP sprint**\
 `Hamilton led every lap from pole in just his second F1 race with Ferrari. `\
 https://nytimes.com/athletic/6222772/2025/03/21/lewis-hamilton-win-ferrari-chinese-grand-prix-sprint/
