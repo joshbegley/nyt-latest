@@ -1,3 +1,11 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**‘So Eager to Get Back’: Travelers Pour Into a Reopened Heathrow**\
+`Information boards showed that most flights would leave on time, but the lines at ticketing counters signaled that many travelers were in for more delays.`\
+https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.html
+
 **Joe Ingles started so his autistic son could see him play. Here's how the Wolves responded**\
 `"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
 https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6222932/2025/03/22/lewis-hamilton-china-sprint-win-
 **Suns, with a newfound source of energy, post their biggest win of the season**\
 `The energy surge is noticeable. So is the power source. The Big Three has been replaced by The Active Three.`\
 https://nytimes.com/athletic/6222890/2025/03/22/phoenix-suns-cleveland-cavaliers-playoffs-devin-booker/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Reese Johnson: The Maple Leafs trade deadline addition no one is talking about**\
-`Toronto's deadline-day acquisition of Reese Johnson flew under the radar. How he plans to work his way into the conversation.`\
-https://nytimes.com/athletic/6203570/2025/03/22/maple-leafs-reese-johnson-trade-deadline/
 

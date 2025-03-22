@@ -1,3 +1,7 @@
+**‘So Eager to Get Back’: Travelers Pour Into a Reopened Heathrow**\
+`Information boards showed that most flights would leave on time, but the lines at ticketing counters signaled that many travelers were in for more delays.`\
+https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.html
+
 **Joe Ingles started so his autistic son could see him play. Here's how the Wolves responded**\
 `"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
 https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
