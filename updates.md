@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **With Erdogan Rival Detained, Critics See Democracy Eroding in Turkey**\
 `Opponents say President Recep Tayyip Erdogan manipulates the courts and the media to tighten his grip on power, and now is trying to prevent a top contender from running for president.`\
 https://nytimes.com/2025/03/22/world/middleeast/turkey-erdogan-democracy-istanbul-mayor-detention.html
