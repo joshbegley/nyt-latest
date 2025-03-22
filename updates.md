@@ -1,3 +1,15 @@
+**TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
+`Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
+
+**Jameis Winston is just a placeholder; the Giants' fate rests on their next QB decision**\
+`Signing Winston isn’t the end of the Giants' QB quest this offseason. In some ways, it's just the beginning. `\
+https://nytimes.com/athletic/6205320/2025/03/21/jameis-winston-giants-nfl-free-agency-nfl-draft/
+
+**Jameis Winston, Giants agree to terms on two-year deal: Does NY have its new QB1?**\
+`The veteran quarterback gets a chance to bring his fun-loving persona and mercurial playing style to a fourth NFL team.`\
+https://nytimes.com/athletic/6182168/2025/03/21/jameis-winston-free-agency-signing-2025-team/
+
 **Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
 `Gibson, 37, agreed to a one-year, $5.25 million contract with Baltimore.`\
 https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/

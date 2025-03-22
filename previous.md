@@ -1,3 +1,11 @@
+**TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
+`Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
+
+**Jameis Winston is just a placeholder; the Giants' fate rests on their next QB decision**\
+`Signing Winston isn’t the end of the Giants' QB quest this offseason. In some ways, it's just the beginning. `\
+https://nytimes.com/athletic/6205320/2025/03/21/jameis-winston-giants-nfl-free-agency-nfl-draft/
+
 **Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
 `Gibson, 37, agreed to a one-year, $5.25 million contract with Baltimore.`\
 https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
@@ -22,19 +30,11 @@ https://nytimes.com/2025/03/21/us/migrant-children-legal-representation-funding.
 `Paul Weiss, a law firm targeted by President Trump, reached a deal to settle a conflict. Many in the legal field are condemning the agreement.`\
 https://nytimes.com/2025/03/21/business/paul-weiss-trump-reaction.html
 
-**Jameis Winston, Giants agree to terms on two-year, $8 million deal**\
+**Jameis Winston, Giants agree to terms on two-year deal: Does NY have its new QB1?**\
 `The veteran quarterback gets a chance to bring his fun-loving persona and mercurial playing style to a fourth NFL team.`\
 https://nytimes.com/athletic/6182168/2025/03/21/jameis-winston-free-agency-signing-2025-team/
 
 **State of the Padres: Darvish heads to IL, roster battles down to the wire before opener**\
 `San Diego has decisions to make regarding the final two spots in the rotation, one or two spots in the bullpen, and the entire bench.`\
 https://nytimes.com/athletic/6222495/2025/03/21/padres-darvish-injury-roster-battles/
-
-**Why the Pentagon Scuttled Its Briefing of Musk on War Plans**\
-`“You wouldn’t show it to a businessman,” President Trump said in denying that Elon Musk was to be briefed on top-secret plans in the event of war with China.`\
-https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
-
-**Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
-`The provision had been in place since the civil rights era.`\
-https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
 
