@@ -1,3 +1,7 @@
+**Carlos Alcaraz exits Miami Open in loose defeat to David Goffin**\
+`Alcaraz joined Daniil Medvedev in leaving Florida early after Goffin hit his peak while the Spaniard dipped.`\
+https://nytimes.com/athletic/6222939/2025/03/22/carlos-alcaraz-miami-result-david-goffin/
+
 **March Madness power rankings: Resetting men's title contenders after Round 1**\
 `The top seeds are looking strong, but with the field narrowing, we could see many more surprises over the weekend.`\
 https://nytimes.com/athletic/6220736/2025/03/22/mens-ncaa-tournament-power-rankings-favorites/

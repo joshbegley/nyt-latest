@@ -1,3 +1,7 @@
+**Carlos Alcaraz exits Miami Open in loose defeat to David Goffin**\
+`Alcaraz joined Daniil Medvedev in leaving Florida early after Goffin hit his peak while the Spaniard dipped.`\
+https://nytimes.com/athletic/6222939/2025/03/22/carlos-alcaraz-miami-result-david-goffin/
+
 **March Madness power rankings: Resetting men's title contenders after Round 1**\
 `The top seeds are looking strong, but with the field narrowing, we could see many more surprises over the weekend.`\
 https://nytimes.com/athletic/6220736/2025/03/22/mens-ncaa-tournament-power-rankings-favorites/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222415/2025/03/22/march-madness-mcneese-mens-baske
 **How to watch No. 4 Purdue vs. No. 12 McNeese in the men's NCAA Tournament**\
 `Purdue is favored over McNeese, which pulled the surprise upset of Clemson on Thursday. The winner heads to the Sweet 16.`\
 https://nytimes.com/athletic/6222219/2025/03/22/purdue-mcneese-ncaa-tournament-how-to-watch/
-
-**How to watch the second day of women’s March Madness: Schedule, odds and storylines**\
-`Venue, date, time, broadcast and streaming info for every women's NCAA Tourney game on Saturday. `\
-https://nytimes.com/athletic/6213969/2025/03/22/womens-march-madness-first-round-games-saturday-how-to-watch/
 

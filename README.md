@@ -1,3 +1,11 @@
+**How to watch No. 3 LSU vs. No. 14 San Diego State in the women's NCAA Tournament**\
+`Flau'jae Johnson and LSU begin their NCAA Tournament run in The Jungle. They're huge home favorites over San Diego State.`\
+https://nytimes.com/athletic/6214936/2025/03/22/lsu-san-diego-state-womens-ncaa-tournament-how-to-watch/
+
+**Phillies prospect Justin Crawford to begin season at Triple A: Sources**\
+`Crawford, according to two team sources, will be in Lehigh Valley's outfield along with fellow spring standout Gabriel Rincones Jr.`\
+https://nytimes.com/athletic/6222745/2025/03/22/justin-crawford-phillies-triple-a-assignment/
+
 **Carlos Alcaraz exits Miami Open in loose defeat to David Goffin**\
 `Alcaraz joined Daniil Medvedev in leaving Florida early after Goffin hit his peak while the Spaniard dipped.`\
 https://nytimes.com/athletic/6222939/2025/03/22/carlos-alcaraz-miami-result-david-goffin/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/22/crosswords/wordle-review-1373.html
 **Connections Companion No. 651**\
 `Scroll down for hints and conversation about the puzzle for Sunday, March 23, 2025.`\
 https://nytimes.com/2025/03/22/crosswords/connections-companion-651.html
-
-**March Madness' early breakout star can't be found on the court, though his 'aura' can**\
-`McNeese's 22-year-old team manager Amir Khan has gone viral, boombox and all.`\
-https://nytimes.com/athletic/6222415/2025/03/22/march-madness-mcneese-mens-basketball-amir-khan-manager/
-
-**How to watch No. 4 Purdue vs. No. 12 McNeese in the men's NCAA Tournament**\
-`Purdue is favored over McNeese, which pulled the surprise upset of Clemson on Thursday. The winner heads to the Sweet 16.`\
-https://nytimes.com/athletic/6222219/2025/03/22/purdue-mcneese-ncaa-tournament-how-to-watch/
 
