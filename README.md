@@ -1,40 +1,40 @@
-**How to watch No. 3 LSU vs. No. 14 San Diego State in the women's NCAA Tournament**\
-`Flau'jae Johnson and LSU begin their NCAA Tournament run in The Jungle. They're huge home favorites over San Diego State.`\
-https://nytimes.com/athletic/6214936/2025/03/22/lsu-san-diego-state-womens-ncaa-tournament-how-to-watch/
+**What I'm hearing in Astros camp: Chas McCormick's roster spot, Framber Valdez's future**\
+`Plus how Jose Altuve is getting left-field tips from Yordan Alvarez, and what the Astros are considering as they figure out their bullpen.`\
+https://nytimes.com/athletic/6222191/2025/03/22/astros-chas-mccormick-framber-valdez/
 
-**Phillies prospect Justin Crawford to begin season at Triple A: Sources**\
-`Crawford, according to two team sources, will be in Lehigh Valley's outfield along with fellow spring standout Gabriel Rincones Jr.`\
-https://nytimes.com/athletic/6222745/2025/03/22/justin-crawford-phillies-triple-a-assignment/
+**What I'm seeing at Phillies spring training with less than a week until Opening Day**\
+`Observations from camp: Ranger Suárez's status, Rafael Marchán's moment, Max Kepler's spot in the lineup, a minor leaguer to watch and more.`\
+https://nytimes.com/athletic/6222245/2025/03/22/phillies-observations-ranger-suarez-rafael-marchan/
 
-**Carlos Alcaraz exits Miami Open in loose defeat to David Goffin**\
-`Alcaraz joined Daniil Medvedev in leaving Florida early after Goffin hit his peak while the Spaniard dipped.`\
-https://nytimes.com/athletic/6222939/2025/03/22/carlos-alcaraz-miami-result-david-goffin/
+**Breslow’s Red Sox front-office audit resulted in painful cuts. Will the changes bring wins?**\
+`Following an audit, Breslow reshaped the front office, leaving some optimistic about their roles and others uneasy with the changes.`\
+https://nytimes.com/athletic/6222678/2025/03/22/red-sox-craig-breslow-front-office-changes/
 
-**March Madness power rankings: Resetting men's title contenders after Round 1**\
-`The top seeds are looking strong, but with the field narrowing, we could see many more surprises over the weekend.`\
-https://nytimes.com/athletic/6220736/2025/03/22/mens-ncaa-tournament-power-rankings-favorites/
+**NHL playoff tiers: Where each team sits and what's at stake down the stretch**\
+`The Athletic asked its NHL staff to put all 32 teams into five playoff tiers and highlight what's at stake for each club in the stretch run.`\
+https://nytimes.com/athletic/6222052/2025/03/22/nhl-playoff-tiers-teams-stakes-season-stretch/
 
-**Spring Awakening**\
-`Being new at something isn’t always pleasant, but beyond the discomfort, rewards await.`\
-https://nytimes.com/2025/03/22/briefing/spring-awakening.html
+**It’s About Ideology, Not Oligarchy**\
+`Trump’s agenda doesn’t serve the superrich.`\
+https://nytimes.com/2025/03/22/opinion/trump-oligarchy-populism.html
 
-**Men’s March Madness 2025: What to watch for on Day 3**\
-`There are some epic NCAA Tournament matchups on deck Saturday as teams vie for a trip to the Sweet 16.`\
-https://nytimes.com/athletic/6221890/2025/03/22/march-madness-2025-mens-what-to-watch-takeaways-3/
+**Daniel Jebbison is growing up – and could be just what Canada needs**\
+`Canada's newest striker has inspiration in the form of a child on the way and is eager to fulfill his potential for both club and country`\
+https://nytimes.com/athletic/6221909/2025/03/22/daniel-jebbison-canada-bournemouth/
 
-**Everton mailbag: Send your questions to Patrick Boyland**\
-`Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
-https://nytimes.com/athletic/6219234/2025/03/22/everton-mailbag-send-your-questions-to-patrick-boyland/
+**Meet the Opposite of Elon Musk**\
+`Valentino Deng also has roots in South Africa, but he exudes the empathy that Musk scorns.`\
+https://nytimes.com/2025/03/22/opinion/musk-trump-education.html
 
-**The Carney Doctrine on Trump: Demand Respect, Be Patient, Diversify**\
-`On the road with the prime minister, we learned more about his approach to President Trump.`\
-https://nytimes.com/2025/03/22/world/canada/mark-carney-trump-tariffs.html
+**Who Will Defend the Defenders of the Constitution?**\
+`The president and his allies are encouraging a campaign of menace.`\
+https://nytimes.com/2025/03/22/opinion/law-firms-judges-intimidation.html
 
-**Wordle Review No. 1,373**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 23, 2025.`\
-https://nytimes.com/2025/03/22/crosswords/wordle-review-1373.html
+**Where's the March Madness? The NCAA Tournament's Cinderella shortage**\
+`Only five double-digit seeds advanced over the past two days: two No. 10s, one No. 11 and two No. 12s. That ties the fewest since 2017.`\
+https://nytimes.com/athletic/6222948/2025/03/22/march-madness-upsets-ncaa-tournament-history/
 
-**Connections Companion No. 651**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 23, 2025.`\
-https://nytimes.com/2025/03/22/crosswords/connections-companion-651.html
+**Why Did Elon Musk Go After Bunkers Full of Seeds?**\
+`Gene banks are like a survivalist cache: our nation’s safeguard against all future challenges to growing the food we need.`\
+https://nytimes.com/2025/03/22/opinion/doge-elon-musk-usda-crops.html
 
