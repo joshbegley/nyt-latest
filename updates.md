@@ -1,3 +1,7 @@
+**Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 99**\
+`Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
+https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
+
 **Spartans, Terps might get pushed by second-round underdogs**\
 `Duke and Florida seem pretty safe in the second round, but Michigan State and Maryland may have something to fear in their Sunday foes.`\
 https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-fear-second-round-upsets-heres-the-case-for-underdogs/

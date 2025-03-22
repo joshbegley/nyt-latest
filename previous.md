@@ -1,3 +1,7 @@
+**Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 99**\
+`Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
+https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
+
 **Spartans, Terps might get pushed by second-round underdogs**\
 `Duke and Florida seem pretty safe in the second round, but Michigan State and Maryland may have something to fear in their Sunday foes.`\
 https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-fear-second-round-upsets-heres-the-case-for-underdogs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223042/2025/03/22/england-kit-albania-mistake/
 **The Pulse: Our first Saturday edition!**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the-pulse/
-
-**A Montana Senator Seeks to Be Trump’s Voice in Beijing**\
-`Senator Steve Daines said in an interview that in meetings with Chinese officials, he called for talks between President Trump and China’s leader, Xi Jinping.`\
-https://nytimes.com/2025/03/22/world/asia/trump-china-xi-daines.html
 
