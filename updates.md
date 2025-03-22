@@ -1,3 +1,7 @@
+**Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
+`The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs.`\
+https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
+
 **How the Chinese Grand Prix came to resemble a Taylor Swift concert**\
 `The Shanghai fan zone is something completely different. The gift exchange is new, exhilarating and joyous`\
 https://nytimes.com/athletic/6222959/2025/03/22/chinese-grand-prix-2025-fans-taylor-swift/

@@ -1,3 +1,7 @@
+**Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
+`The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs.`\
+https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
+
 **How the Chinese Grand Prix came to resemble a Taylor Swift concert**\
 `The Shanghai fan zone is something completely different. The gift exchange is new, exhilarating and joyous`\
 https://nytimes.com/athletic/6222959/2025/03/22/chinese-grand-prix-2025-fans-taylor-swift/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
 **Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 88**\
 `Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
 https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
-
-**Spartans, Terps might get pushed by second-round underdogs**\
-`Duke and Florida seem pretty safe in the second round, but Michigan State and Maryland may have something to fear in their Sunday foes.`\
-https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-fear-second-round-upsets-heres-the-case-for-underdogs/
 
