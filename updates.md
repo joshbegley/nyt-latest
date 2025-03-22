@@ -1,3 +1,11 @@
+**Corrections: March 23, 2025**\
+`Corrections that appeared in print on Sunday, March 23, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
+
+**Corrections: March 22, 2025**\
+`Corrections that appeared in print on Saturday, March 22, 2025.`\
+https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
+
 **TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
 `Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
