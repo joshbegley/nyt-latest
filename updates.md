@@ -1,3 +1,7 @@
+**Bayern hopeful that Neuer will be fit for Champions League quarter-final**\
+`Despite the setback, the German club remain hopeful that the 38-year-old will be fit to face Inter Milan in the Champions League on April 8.`\
+https://nytimes.com/athletic/6223499/2025/03/22/bayern-munich-manuel-neuer-injury-setback-update/
+
 **Women's March Madness first round takeaways: UConn's blowout victory among tournament's largest**\
 `Follow along with our Day 2 updates and analysis.`\
 https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round-takeaways-iowa-uconn/
