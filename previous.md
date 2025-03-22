@@ -1,3 +1,7 @@
+**How a Major Democratic Law Firm Ended Up Bowing to Trump**\
+`Paul Weiss, targeted by an executive order from President Trump, had started working with other big firms to challenge the order in court. Then its chairman went to Oval Office and cut a deal.`\
+https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
+
 **Corrections: March 23, 2025**\
 `Corrections that appeared in print on Sunday, March 23, 2025.`\
 https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/social-security-dudek-judge-doge.html
 **Trump Administration Halts Funding for Legal Representation of Migrant Children**\
 `The decision could force thousands of minors who crossed the border alone to go to court without a lawyer, leaving them vulnerable to swift deportation.`\
 https://nytimes.com/2025/03/21/us/migrant-children-legal-representation-funding.html
-
-**Paul Weiss Deal With Trump Faces Backlash From Legal Profession**\
-`Paul Weiss, a law firm targeted by President Trump, reached a deal to settle a conflict. Many in the legal field are condemning the agreement.`\
-https://nytimes.com/2025/03/21/business/paul-weiss-trump-reaction.html
 

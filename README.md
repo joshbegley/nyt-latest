@@ -1,6 +1,14 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **How a Major Democratic Law Firm Ended Up Bowing to Trump**\
 `Paul Weiss, targeted by an executive order from President Trump, had started working with other big firms to challenge the order in court. Then its chairman went to Oval Office and cut a deal.`\
 https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **Corrections: March 23, 2025**\
 `Corrections that appeared in print on Sunday, March 23, 2025.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6222319/2025/03/21/john-calipari-rick-pitino-march-
 **Police Recover Diamond Earrings Worth $769,500 That Thief Swallowed**\
 `The police in Orlando, Fla., said that a suspect spent time in a hospital while they waited for the stolen jewels to be “expelled from his system.”`\
 https://nytimes.com/2025/03/21/us/tiffany-diamond-theft-orlando.html
-
-**Social Security Leader Warns of Halt to Agency’s Work, Before Backtracking**\
-`The head of the Social Security Administration pulled back his startling warning after a judge said he had misinterpreted a court order restricting DOGE access.`\
-https://nytimes.com/2025/03/21/us/politics/social-security-dudek-judge-doge.html
-
-**Trump Administration Halts Funding for Legal Representation of Migrant Children**\
-`The decision could force thousands of minors who crossed the border alone to go to court without a lawyer, leaving them vulnerable to swift deportation.`\
-https://nytimes.com/2025/03/21/us/migrant-children-legal-representation-funding.html
 

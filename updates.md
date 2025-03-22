@@ -1,3 +1,7 @@
+**How a Major Democratic Law Firm Ended Up Bowing to Trump**\
+`Paul Weiss, targeted by an executive order from President Trump, had started working with other big firms to challenge the order in court. Then its chairman went to Oval Office and cut a deal.`\
+https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
+
 **Corrections: March 23, 2025**\
 `Corrections that appeared in print on Sunday, March 23, 2025.`\
 https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
