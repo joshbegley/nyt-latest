@@ -1,3 +1,15 @@
+**March Madness' early breakout star can't be found on the court, though his 'aura' can**\
+`McNeese's 22-year-old team manager Amir Khan has gone viral, boombox and all.`\
+https://nytimes.com/athletic/6222415/2025/03/22/march-madness-mcneese-mens-basketball-amir-khan-manager/
+
+**How to watch No. 4 Purdue vs. No. 12 McNeese in the men's NCAA Tournament**\
+`Purdue is favored over McNeese, which pulled the surprise upset of Clemson on Thursday. The winner heads to the Sweet 16.`\
+https://nytimes.com/athletic/6222219/2025/03/22/purdue-mcneese-ncaa-tournament-how-to-watch/
+
+**How to watch the second day of women’s March Madness: Schedule, odds and storylines**\
+`Venue, date, time, broadcast and streaming info for every women's NCAA Tourney game on Saturday. `\
+https://nytimes.com/athletic/6213969/2025/03/22/womens-march-madness-first-round-games-saturday-how-to-watch/
+
 **Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
 `The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
 https://nytimes.com/2025/03/22/magazine/lindsay-gibson-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/22/arts/television/severance-finale-season-2-apple-t
 **How Elon Musk’s DOGE Cuts Leave a Vacuum That China Can Fill**\
 `The Department of Government Efficiency is shuttering organizations that Beijing worried about most, or actively sought to subvert.`\
 https://nytimes.com/2025/03/22/us/politics/elon-musk-doge-china.html
-
-**Can a French Department Store Make Wall Street Très Chic?**\
-`With a new location in Lower Manhattan — its first in America — Printemps is aiming to conquer an area where other luxury emporiums have recently failed.`\
-https://nytimes.com/2025/03/22/style/printemps-store-manhattan.html
-
-**How to Talk to a Neurodiverse Colleague**\
-`Work Friend reconsiders a past response. Plus, the best way to correct people who get your name wrong.`\
-https://nytimes.com/2025/03/22/business/neurodiverse-colleague-work-advice.html
-
-**How an Autopen Conspiracy Theory About Biden Went Viral**\
-`A specious theory on pardons had help from the conservative Heritage Foundation before President Trump and right-wing influencers amplified it.`\
-https://nytimes.com/2025/03/22/business/media/autopen-biden-trump-conspiracy-theory.html
 
