@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **With Erdogan Rival Detained, Critics See Democracy Eroding in Turkey**\
 `Opponents say President Recep Tayyip Erdogan manipulates the courts and the media to tighten his grip on power, and now is trying to prevent a top contender from running for president.`\
 https://nytimes.com/2025/03/22/world/middleeast/turkey-erdogan-democracy-istanbul-mayor-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222682/2025/03/21/george-foreman-boxer-obituary/
 **Lewis Hamilton wins first race with Ferrari in Chinese GP sprint**\
 `Hamilton led every lap from pole in just his second F1 race with Ferrari. `\
 https://nytimes.com/athletic/6222772/2025/03/21/lewis-hamilton-win-ferrari-chinese-grand-prix-sprint/
-
-**Yohe's 10 observations: Sidney Crosby, Boko Imama lead Penguins to another win**\
-`The Penguins won for a fifth time in six games and have produced 20 goals in their last four games.`\
-https://nytimes.com/athletic/6222514/2025/03/21/penguins-blue-jackets-sidney-crosby-boko-imama/
 
