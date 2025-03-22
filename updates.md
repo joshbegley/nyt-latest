@@ -1,3 +1,7 @@
+**Joe Ingles started so his autistic son could see him play. Here's how the Wolves responded**\
+`"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
+https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
+
 **An NBA player started so his autistic son could see him. Here's how the team responded**\
 `"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
 https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
