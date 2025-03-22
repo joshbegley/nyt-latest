@@ -1,3 +1,19 @@
+**Where’d You Go?**\
+`Andrew Colin Kirk makes a seductive New York Times puzzle debut.`\
+https://nytimes.com/2025/03/22/crosswords/daily-puzzle-2025-03-23.html
+
+**How Rangers stole 2 points after getting outplayed by Canucks: 4 takeaways**\
+`New York was outshot 39-12 and outplayed by Vancouver for most of the night, but still somehow came away with a 5-3 victory.`\
+https://nytimes.com/athletic/6223585/2025/03/22/rangers-canucks-takeaways-nhl-playoffs/
+
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**John Calipari returns to Sweet 16 as Arkansas upsets St. John's, Rick Pitino**\
+`A year ago, Calipari was being ridiculed with great delight over his Kentucky team's first-round loss to 14th-seeded Oakland.`\
+https://nytimes.com/athletic/6223662/2025/03/22/arkansas-john-calipari-st-johns-rick-pitino/
+
 **Cam Smith, Zach Dezenzo still in contention for Astros' Opening Day roster after cuts**\
 `Smith and Dezenzo survived a day filled with roster cuts, but it's difficult to envision both being on the team on Opening Day.`\
 https://nytimes.com/athletic/6223649/2025/03/22/astros-cam-smith-zach-dezenzo-still-in-contention-for-astros-opening-day-roster/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/22/us/politics/trump-memo-lawyers.html
 **Venezuela Says It Will Resume Accepting U.S. Deportation Flights**\
 `The Venezuelan government attributed a willingness to receive the flights to the plight of Venezuelan migrants sent to notorious prisons in El Salvador with little to no due process.`\
 https://nytimes.com/2025/03/22/us/politics/trump-venezuela-deportations-migrants.html
-
-**1 Dead and 3 Are Missing After Boat Capsizes in Florida**\
-`One adult and two children are missing, and four others were rescued on the St. Johns River near Jacksonville, Fla. They were on the water to take pictures of the sunset, an official said.`\
-https://nytimes.com/2025/03/22/us/boat-capsized-st-johns-river-florida.html
-
-**Sirens' Abby Roque scores first 'Michigan' goal in PWHL history**\
-`The 27-year-old Michigan native made PWHL history Saturday after scoring the first "Michigan" goal in league history.`\
-https://nytimes.com/athletic/6223535/2025/03/22/pwhl-abby-roque-michigan-goal-sirens/
-
-**Cleveland Guardians sign ace Tanner Bibee to 5-year contract extension**\
-`The new deal includes $48 million guaranteed for Bibee, plus a club option for 2030. `\
-https://nytimes.com/athletic/6223498/2025/03/22/cleveland-guardians-tanner-bibee-contract-extension/
-
-**Thomas Hoobler, Half of a Prolific Writing Couple, Dies at 82**\
-`He and his wife, Dorothy Hoobler, wrote 103 books, most recently one about presidential love letters, “Are You Prepared for the Storm of Love Making?”`\
-https://nytimes.com/2025/03/22/books/thomas-hoobler-dies.html
 
