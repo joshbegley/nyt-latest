@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **How a Major Democratic Law Firm Ended Up Bowing to Trump**\
-`Paul Weiss was targeted by an executive order from President Trump. Its chairman, who had worked against Mr. Trump during his first term, then went to Oval Office and cut a deal.`\
+`Paul Weiss was targeted by an executive order from President Trump. Its chairman, who had worked against Mr. Trump during his first term, then went to the Oval Office and cut a deal.`\
 https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
 
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
