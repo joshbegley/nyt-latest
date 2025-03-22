@@ -31,7 +31,7 @@ https://nytimes.com/2025/03/22/business/dealbook/trump-dei-seo-wall-street.html
 https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
 
 **Police Investigate Shooting at Park in New Mexico**\
-`The shooting happened at a gathering of drivers of modified sports cars. There appeared to be at least two dead.`\
+`The shooting happened at a gathering of drivers of modified sports cars. There were two lifeless bodies on the ground at the scene.`\
 https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
 
 **Rockets Fired From Lebanon Prompt Israeli Airstrikes**\

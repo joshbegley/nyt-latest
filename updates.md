@@ -1,3 +1,7 @@
+**Police Investigate Shooting at Park in New Mexico**\
+`The shooting happened at a gathering of drivers of modified sports cars. There were two lifeless bodies on the ground at the scene.`\
+https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
+
 **Reese Johnson: The Maple Leafs trade deadline addition no one is talking about**\
 `Toronto's deadline-day acquisition of Reese Johnson flew under the radar. How he plans to work his way into the conversation.`\
 https://nytimes.com/athletic/6203570/2025/03/22/maple-leafs-reese-johnson-trade-deadline/
