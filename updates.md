@@ -1,3 +1,7 @@
+**Women's March Madness first round takeaways: UConn's blowout victory among tournament's largest**\
+`Follow along with our Day 2 updates and analysis.`\
+https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round-takeaways-iowa-uconn/
+
 **George Foreman Turned a Home Grill Into a Culinary Heavyweight**\
 `The former boxer transformed American cooking, and himself, with an appliance that remains a cultural touchstone.`\
 https://nytimes.com/2025/03/22/dining/george-foreman-grill.html
