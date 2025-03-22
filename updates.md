@@ -1,5 +1,9 @@
 **The Sniper’s Nest**\
 `Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
+https://nytimes.com/2025/03/22/world/africa/sudan-photo-sniper.html
+
+**The Sniper’s Nest**\
+`Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
 https://nytimes.com/2025/03/22/world/africa/the-snipers-nest.html
 
 **UConn fights off Oklahoma to keep 3-peat hopes alive — for now**\
