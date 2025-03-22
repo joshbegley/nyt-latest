@@ -1,3 +1,7 @@
+**Jameis Winston, Giants agree to terms on two-year, $8 million deal**\
+`The veteran quarterback gets a chance to bring his fun-loving persona and mercurial playing style to a fourth NFL team.`\
+https://nytimes.com/athletic/6182168/2025/03/21/jameis-winston-free-agency-signing-2025-team/
+
 **State of the Padres: Darvish heads to IL, roster battles down to the wire before opener**\
 `San Diego has decisions to make regarding the final two spots in the rotation, one or two spots in the bullpen, and the entire bench.`\
 https://nytimes.com/athletic/6222495/2025/03/21/padres-darvish-injury-roster-battles/
