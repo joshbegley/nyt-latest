@@ -1,3 +1,19 @@
+**Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
+`The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
+https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
+
+**'This can blow up fast': For Max Scherzer, the stuff is sharp but the thumb is troubling**\
+`Scherzer struck out four Twins over four scoreless innings on Saturday: "I know I can still pitch at a very high level."`\
+https://nytimes.com/athletic/6223709/2025/03/22/blue-jays-max-scherzer-thumb/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Canada coach Jesse Marsch says refereeing disrespect hinders his team**\
+`Controversial calls in Canada's Concacaf Nations League semifinal fueled Marsch's frustration.`\
+https://nytimes.com/athletic/6223677/2025/03/22/marsch-disrespect-canada-usmnt-nations-league/
+
 **Where’d You Go?**\
 `Andrew Colin Kirk makes a seductive New York Times puzzle debut.`\
 https://nytimes.com/2025/03/22/crosswords/daily-puzzle-2025-03-23.html
