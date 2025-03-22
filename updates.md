@@ -1,3 +1,7 @@
+**With New Decree, Trump Seeks to Cow the Legal Profession**\
+`A presidential memorandum aimed at lawyers everywhere struck a menacing tone.`\
+https://nytimes.com/2025/03/22/us/politics/trump-memo-lawyers.html
+
 **Venezuela Says It Will Resume Accepting U.S. Deportation Flights**\
 `The Venezuelan government attributed a willingness to receive the flights to the plight of Venezuelan migrants sent to notorious prisons in El Salvador with little to no due process.`\
 https://nytimes.com/2025/03/22/us/politics/trump-venezuela-deportations-migrants.html
