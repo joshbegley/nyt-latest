@@ -1,3 +1,11 @@
+**Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
+`The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
+https://nytimes.com/2025/03/22/magazine/lindsay-gibson-interview.html
+
+**Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
+`The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
+https://nytimes.com/video/podcasts/100000010058964/dr-lindsay-c-gibson-thinks-compassion-for-our-parents-can-be-a-trap.html
+
 **Everyone in the City Needs Soundproofing, Even Spiders**\
 `Researchers have found evidence that a common North American spider species alters its webs to deal with urban noise pollution.`\
 https://nytimes.com/2025/03/22/science/spiders-webs-noise-pollution.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/22/business/neurodiverse-colleague-work-advice.html
 **How an Autopen Conspiracy Theory About Biden Went Viral**\
 `A specious theory on pardons had help from the conservative Heritage Foundation before President Trump and right-wing influencers amplified it.`\
 https://nytimes.com/2025/03/22/business/media/autopen-biden-trump-conspiracy-theory.html
-
-**Dementia May Not Always Be the Threat It Is Now. Here’s Why.**\
-`The number of cases will increase, but the rates seem to be declining with every birth cohort that reaches advanced ages, researchers said.`\
-https://nytimes.com/2025/03/22/health/dementia-rates-elderly.html
-
-**What 6 Voters Think of Trump’s Latest Actions**\
-`The first months of President Trump’s second term have been characterized by a flurry of activity. The New York Times talked with several voters about their reactions to some of the latest measures.`\
-https://nytimes.com/2025/03/22/us/trump-voters-policies-tariffs-judges.html
 
