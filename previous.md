@@ -1,3 +1,7 @@
+**Suns, with a newfound source of energy, post their biggest win of the season**\
+`The energy surge is noticeable. So is the power source. The Big Three has been replaced by The Active Three.`\
+https://nytimes.com/athletic/6222890/2025/03/22/phoenix-suns-cleveland-cavaliers-playoffs-devin-booker/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/business/dealbook/trump-dei-seo-wall-street.html
 **2 Books With Celebrity Cameos**\
 `A memoir of Greenwich Village; an Argentine story collection.`\
 https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
-
-**Police Investigate Shooting at Park in New Mexico**\
-`The shooting happened at a gathering of drivers of modified sports cars. There were two lifeless bodies on the ground at the scene.`\
-https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
 
