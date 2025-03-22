@@ -1,3 +1,19 @@
+**Tuchel's England were not radically different — but that's not a big problem**\
+`England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
+https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
+
+**A Walkway Was Set to Open on the Queensboro Bridge. Until it Wasn’t.**\
+`A long-awaited pedestrian path appeared to be finished this month. A ribbon-cutting was scheduled. A news release was prepared. Then City Hall hit the brakes.`\
+https://nytimes.com/2025/03/22/nyregion/queensboro-bridge-pedestrian-path-adams.html
+
+**How the Owner of a Nightclub and a Roller Rink Spends His Sundays**\
+`Varun Kataria owns various nightlife venues in Bushwick, Brooklyn. His Sundays usually begin with creative projects and end with his dog, Mushroom.`\
+https://nytimes.com/2025/03/22/nyregion/varun-kataria-xanadu-turks-inn-sultan-room.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/22/crosswords/spelling-bee-forum.html
+
 **Protests Swell in South Korea as Court Weighs President’s Fate**\
 `Rallies for and against Yoon Suk Yeol fill the streets as the Constitutional Court decides whether his ill-fated imposition of martial law justifies removal.`\
 https://nytimes.com/2025/03/22/world/asia/south-korea-yoon-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6221042/2025/03/22/norway-haaland-odegaard-2026-wor
 **Real Madrid Women's story so far: A message on a napkin, Barca dominance and dreams of silverware**\
 `Real Madrid women's team are on the verge of a first Champions League semi-final - but there is still catching up to do with game's elite`\
 https://nytimes.com/athletic/6218688/2025/03/22/real-madrid-femenino-womens-champions-league-spain/
-
-**Matt Turner and the challenge of being No 1 goalkeeper for his country but not his club**\
-`The Crystal Palace loanee has started only four games this season but remains Mauricio Pochettino's No 1 despite understandable rustiness`\
-https://nytimes.com/athletic/6221014/2025/03/22/matt-turner-usmnt-crystal-palace-pyzdrowski/
-
-**The New York Times in Print for Saturday, March 22, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/22/todays-new-york-times
-
-**Travel Disruptions Linger as Flights Resume at London’s Heathrow**\
-`The airport restarted full operations on Saturday, after a power substation fire halted operations for most of Friday.`\
-https://nytimes.com/2025/03/22/world/europe/heathrow-airport-flights.html
-
-**The Sniper’s Nest**\
-`Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
-https://nytimes.com/2025/03/22/world/africa/sudan-photo-sniper.html
 
