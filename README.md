@@ -1,6 +1,6 @@
 **The Sniper’s Nest**\
 `Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
-https://nytimes.com/2025/03/22/world/africa/the-snipers-nest.html
+https://nytimes.com/2025/03/22/world/africa/sudan-photo-sniper.html
 
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
