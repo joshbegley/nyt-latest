@@ -1,3 +1,11 @@
+**Police Investigate ‘Mass Shooting’ at Park in New Mexico**\
+`The shooting at a gathering of drivers of modified sports cars appeared to have left at least two people dead.`\
+https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
+
+**Rockets Fired From Lebanon Prompt Israeli Airstrikes**\
+`Israel retaliated after rockets were fired from Lebanon toward Israel for the first time in months. Israel said the airstrikes targeted sites linked to Hezbollah.`\
+https://nytimes.com/2025/03/22/world/middleeast/lebanon-israel-rockets-airstrikes-gaza.html
+
 **What I'm hearing in Astros camp: Chas McCormick's roster spot, Framber Valdez's future**\
 `Plus how Jose Altuve is getting left-field tips from Yordan Alvarez, and what the Astros are considering as they figure out their bullpen.`\
 https://nytimes.com/athletic/6222191/2025/03/22/astros-chas-mccormick-framber-valdez/
