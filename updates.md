@@ -1,4 +1,8 @@
 **Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
+`Gibson, 37, agreed to a one-year, $5.25 million contract with Baltimore.`\
+https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
+
+**Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
 `Gibson, 37, agreed to a one-year, $5 million contract with Baltimore.`\
 https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
 
