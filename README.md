@@ -1,3 +1,7 @@
+**Panama enjoys latest USMNT upset, sets sights on Nations League triumph**\
+`Causing the USMNT heartache is nothing new for jubilant Panama.`\
+https://nytimes.com/athletic/6223058/2025/03/22/waterman-concacaf-nations-league-usmnt-panama/
+
 **Penn State wrestling dynasty wins fourth straight NCAA championship**\
 `This is Penn State’s 12th NCAA title under Sanderson and the program’s 13th overall. Penn State’s first wrestling championship came in 1953.`\
 https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-national-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2
 **‘So Eager to Get Back’: Travelers Pour Into a Reopened Heathrow**\
 `Information boards showed that most flights would leave on time, but the lines at ticketing counters signaled that many travelers were in for more delays.`\
 https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.html
-
-**Joe Ingles started so his autistic son could see him play. Here's how the Wolves responded**\
-`"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
-https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
 
