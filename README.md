@@ -1,3 +1,7 @@
+**What Is Justice Roberts Getting At?**\
+`The repercussions of Trump v. United States may finally be hitting the chief justice.`\
+https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html
+
 **Man Accused of Shoplifting Dies at Brooklyn Courthouse**\
 `The cause of death was not immediately clear. Four other people have died this year in city jails or just after being released from custody.`\
 https://nytimes.com/2025/03/22/nyregion/man-dies-police-custody-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolv
 **In California, Confusion Abounds Over Status of 2 National Monuments**\
 `The White House removed all references to the Chuckwalla and Sáttítla monuments from a fact sheet outlining how the president would reverse some Biden-era environmental policies.`\
 https://nytimes.com/2025/03/22/us/politics/california-monuments-white-house-trump.html
-
-**Trump Administration Live Updates: Program for Migrants From 4 Caribbean and Latin American Nations to End**\
-``\
-https://nytimes.com/live/2025/03/22/us/trump-news
 
