@@ -1,3 +1,7 @@
+**Wisconsin's Casey O'Brien wins 2025 Patty Kazmaier Award**\
+`O’Brien won the 2025 Patty Kazmaier Award on Saturday after a historic final season at the University of Wisconsin.`\
+https://nytimes.com/athletic/6221575/2025/03/22/patty-kazmaier-casey-obrien-2025-ncaa-womens-hockey/
+
 **Reds' Spencer Steer to begin season on IL with shoulder injury**\
 `In his two-plus seasons with the Reds, Steer has played every defensive position other than pitcher, catcher or center field.`\
 https://nytimes.com/athletic/6223165/2025/03/22/reds-spencer-steer-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223059/2025/03/22/should-michigan-state-maryland-f
 **Which NHL top defense pairs have been the best and worst this season?**\
 `We identify the NHL teams with top pairs that are dominating and the ones significantly trailing the competition.`\
 https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
