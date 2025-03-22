@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Reese Johnson: The Maple Leafs trade deadline addition no one is talking about**\
 `Toronto's deadline-day acquisition of Reese Johnson flew under the radar. How he plans to work his way into the conversation.`\
 https://nytimes.com/athletic/6203570/2025/03/22/maple-leafs-reese-johnson-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
 **Police Investigate Shooting at Park in New Mexico**\
 `The shooting happened at a gathering of drivers of modified sports cars. There were two lifeless bodies on the ground at the scene.`\
 https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
-
-**Rockets Fired From Lebanon Prompt Israeli Airstrikes**\
-`Israel retaliated after rockets were fired from Lebanon toward Israel for the first time in months. Israel said the airstrikes targeted sites linked to Hezbollah.`\
-https://nytimes.com/2025/03/22/world/middleeast/lebanon-israel-rockets-airstrikes-gaza.html
 
