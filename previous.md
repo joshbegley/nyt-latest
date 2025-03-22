@@ -1,3 +1,7 @@
+**State of the Padres: Darvish heads to IL, roster battles down to the wire before opener**\
+`San Diego has decisions to make regarding the final two spots in the rotation, one or two spots in the bullpen, and the entire bench.`\
+https://nytimes.com/athletic/6222495/2025/03/21/padres-darvish-injury-roster-battles/
+
 **Why the Pentagon Scuttled Its Briefing of Musk on War Plans**\
 `“You wouldn’t show it to a businessman,” President Trump said in denying that Elon Musk was to be briefed on top-secret plans in the event of war with China.`\
 https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/03/21/smarter-living/wirecutter/the-best-korean-sk
 **The Justice Dept. announces a leak investigation after a Times article about intelligence assessments.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/03/21/us/trump-news/justice-dept-leak-investigation-intelligence
-
-**Chargers agree to deal with former Jets, Vikings TE Tyler Conklin**\
-`Conklin joins Los Angeles after spending the past three seasons with the Jets.`\
-https://nytimes.com/athletic/6222288/2025/03/21/tyler-conklin-chargers-contract/
 
