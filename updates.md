@@ -1,3 +1,7 @@
+**UConn fights off Oklahoma to keep 3-peat hopes alive — for now**\
+`Next up for the Huskies? A date with No. 1 Florida, arguably the best team in America right now.`\
+https://nytimes.com/athletic/6222822/2025/03/22/uconn-oklahoma-ncaa-tournament/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
