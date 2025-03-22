@@ -1,3 +1,11 @@
+**George Foreman, Ageless Heavyweight Champion, Dies at 76**\
+`He claimed a world title in his 20s and again in his 40s, and then made millions selling grills.`\
+https://nytimes.com/2025/03/21/sports/george-foreman-dead.html
+
+**Pop**\
+`Katie Hoody’s suspenseful puzzle is packed with tripwires.`\
+https://nytimes.com/2025/03/21/crosswords/daily-puzzle-2025-03-22.html
+
 **How a Major Democratic Law Firm Ended Up Bowing to Trump**\
 `Paul Weiss was targeted by an executive order from President Trump. Its chairman, who had worked against Mr. Trump during his first term, then went to the Oval Office and cut a deal.`\
 https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
