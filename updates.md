@@ -1,3 +1,7 @@
+**Reds' Spencer Steer to begin season on IL with shoulder injury**\
+`In his two-plus seasons with the Reds, Steer has played every defensive position other than pitcher, catcher or center field.`\
+https://nytimes.com/athletic/6223165/2025/03/22/reds-spencer-steer-injury/
+
 **Panama enjoys latest USMNT upset, sets sights on Nations League triumph**\
 `Causing the USMNT heartache is nothing new for jubilant Panama.`\
 https://nytimes.com/athletic/6223058/2025/03/22/waterman-concacaf-nations-league-usmnt-panama/

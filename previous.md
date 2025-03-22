@@ -1,3 +1,7 @@
+**Reds' Spencer Steer to begin season on IL with shoulder injury**\
+`In his two-plus seasons with the Reds, Steer has played every defensive position other than pitcher, catcher or center field.`\
+https://nytimes.com/athletic/6223165/2025/03/22/reds-spencer-steer-injury/
+
 **Panama enjoys latest USMNT upset, sets sights on Nations League triumph**\
 `Causing the USMNT heartache is nothing new for jubilant Panama.`\
 https://nytimes.com/athletic/6223058/2025/03/22/waterman-concacaf-nations-league-usmnt-panama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217351/2025/03/22/nhl-top-defense-pairs-rankings/
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**‘So Eager to Get Back’: Travelers Pour Into a Reopened Heathrow**\
-`Information boards showed that most flights would leave on time, but the lines at ticketing counters signaled that many travelers were in for more delays.`\
-https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.html
 
