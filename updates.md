@@ -1,3 +1,11 @@
+**As schedule gets tougher, Wild getting the best of Filip Gustavsson at the perfect time**\
+`Gustavsson has been playing his best hockey and has been the backbone for Minnesota at the most important time of the year.`\
+https://nytimes.com/athletic/6223838/2025/03/22/wild-sabres-filip-gustavsson-schedule/
+
+**Women’s Basketball Coach Is Fired After Pulling Player’s Ponytail**\
+`The coach of the women’s varsity team in Northville, N.Y., was caught yanking a player’s hair on a television broadcast of a championship game on Friday.`\
+https://nytimes.com/2025/03/22/nyregion/northville-basketball-coach-fired.html
+
 **Spirit owner: 'Important' to keep Trinity Rodman in NWSL for team, league**\
 `"We're going to do everything in our power to hopefully keep her here," Michele Kang said about Rodman's interest playing abroad.`\
 https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman-nwsl/
