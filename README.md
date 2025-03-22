@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6221014/2025/03/22/matt-turner-usmnt-crystal-palace
 https://nytimes.com/issue/todayspaper/2025/03/22/todays-new-york-times
 
 **Travel Disruptions Linger as Flights Resume at London’s Heathrow**\
-`The airport was starting its first full day of service on Saturday, after a power substation fire halted operations for most of Friday.`\
+`The airport restarted full operations on Saturday, after a power substation fire halted operations for most of Friday.`\
 https://nytimes.com/2025/03/22/world/europe/heathrow-airport-flights.html
 
 **The Sniper’s Nest**\
