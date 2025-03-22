@@ -1,3 +1,11 @@
+**Lewis Hamilton wins first race with Ferrari in Chinese GP sprint**\
+`Hamilton led every lap from pole in just his second F1 race with Ferrari. `\
+https://nytimes.com/athletic/6222772/2025/03/21/lewis-hamilton-win-ferrari-chinese-grand-prix-sprint/
+
+**Yohe's 10 observations: Sidney Crosby, Boko Imama lead Penguins to another win**\
+`The Penguins won for a fifth time in six games and have produced 20 goals in their past four games.`\
+https://nytimes.com/athletic/6222514/2025/03/21/penguins-blue-jackets-sidney-crosby-boko-imama/
+
 **The Trump administration moved to end a program for migrants from 4 Caribbean and Latin American nations.**\
 `By the end of 2024, more than 500,000 migrants had entered the United States through the initiative, known as the C.H.N.V. program.`\
 https://nytimes.com/2025/03/21/us/politics/the-trump-administration-moved-to-end-a-program-for-migrants-from-4-caribbean-and-latin-american-nations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2
 **Corrections: March 22, 2025**\
 `Corrections that appeared in print on Saturday, March 22, 2025.`\
 https://nytimes.com/2025/03/21/pageoneplus/corrections-march-22-2025.html
-
-**Corrections: March 23, 2025**\
-`Corrections that appeared in print on Sunday, March 23, 2025.`\
-https://nytimes.com/2025/03/21/pageoneplus/corrections-march-23-2025.html
-
-**TCU's Hailey Van Lith vs. Louisville: Her journey to this March Madness showdown**\
-`Van Lith, a senior guard, will face her former team on Sunday in the second round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6222655/2025/03/21/tcus-hailey-van-lith-vs-louisville-her-journey-to-this-march-madness-showdown/
 

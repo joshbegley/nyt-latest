@@ -1,3 +1,11 @@
+**Lewis Hamilton wins first race with Ferrari in Chinese GP sprint**\
+`Hamilton led every lap from pole in just his second F1 race with Ferrari. `\
+https://nytimes.com/athletic/6222772/2025/03/21/lewis-hamilton-win-ferrari-chinese-grand-prix-sprint/
+
+**Yohe's 10 observations: Sidney Crosby, Boko Imama lead Penguins to another win**\
+`The Penguins won for a fifth time in six games and have produced 20 goals in their past four games.`\
+https://nytimes.com/athletic/6222514/2025/03/21/penguins-blue-jackets-sidney-crosby-boko-imama/
+
 **The Trump administration moved to end a program for migrants from 4 Caribbean and Latin American nations.**\
 `By the end of 2024, more than 500,000 migrants had entered the United States through the initiative, known as the C.H.N.V. program.`\
 https://nytimes.com/2025/03/21/us/politics/the-trump-administration-moved-to-end-a-program-for-migrants-from-4-caribbean-and-latin-american-nations.html
