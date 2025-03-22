@@ -1,3 +1,11 @@
+**Cam Smith, Zach Dezenzo still in contention for Astros' Opening Day roster after cuts**\
+`Smith and Dezenzo survived a day filled with roster cuts, but it's difficult to envision both being on the team on Opening Day.`\
+https://nytimes.com/athletic/6223649/2025/03/22/astros-cam-smith-zach-dezenzo-still-in-contention-for-astros-opening-day-roster/
+
+**Ronaldo has 'no problem' with Hojlund copying 'siu' celebration**\
+`Ronaldo said that it was an "honour" that athletes around the world have copied his celebration.`\
+https://nytimes.com/athletic/6223681/2025/03/22/cristiano-ronaldo-siu-hojlund-celebration/
+
 **Filip Gustavsson stays hot, Justin Brazeau scores first goal with Wild: 3 takeaways**\
 `The trade-deadline pickup snapped a long drought and scored his first goal with Minnesota in a 4-1 win over Buffalo on Saturday.`\
 https://nytimes.com/athletic/6223427/2025/03/22/wild-sabres-justin-brazeau-filip-gustavsson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223498/2025/03/22/cleveland-guardians-tanner-bibee
 **Thomas Hoobler, Half of a Prolific Writing Couple, Dies at 82**\
 `He and his wife, Dorothy Hoobler, wrote 103 books, most recently one about presidential love letters, “Are You Prepared for the Storm of Love Making?”`\
 https://nytimes.com/2025/03/22/books/thomas-hoobler-dies.html
-
-**Yankees notes: Carlos Carrasco makes roster, searching for a righty bat**\
-`By making the Opening Day roster, Carrasco now locks in a guaranteed salary of $1.5 million.`\
-https://nytimes.com/athletic/6223378/2025/03/22/yankees-roster-carlos-carrasco-oswald-peraza/
-
-**Bayern hopeful that Neuer will be fit for Champions League quarter-final**\
-`Despite the setback, the German club remain hopeful that the 38-year-old will be fit to face Inter Milan in the Champions League on April 8.`\
-https://nytimes.com/athletic/6223499/2025/03/22/bayern-munich-manuel-neuer-injury-setback-update/
 

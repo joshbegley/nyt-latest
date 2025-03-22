@@ -1,3 +1,7 @@
+**Filip Gustavsson stays hot, Justin Brazeau scores first goal with Wild: 3 takeaways**\
+`The trade-deadline pickup snapped a long drought and scored his first goal with Minnesota in a 4-1 win over Buffalo on Saturday.`\
+https://nytimes.com/athletic/6223427/2025/03/22/wild-sabres-justin-brazeau-filip-gustavsson/
+
 **How Canucks snatched defeat from the jaws of victory in Manhattan: 3 takeaways**\
 `Quinn Hughes did everything possible to will his team to a victory, but Vancouver still fell 5-3 in New York on Saturday.`\
 https://nytimes.com/athletic/6223516/2025/03/22/canucks-rangers-score-takeaways/
