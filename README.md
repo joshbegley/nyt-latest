@@ -1,5 +1,9 @@
-**Police Investigate ‘Mass Shooting’ at Park in New Mexico**\
-`The shooting at a gathering of drivers of modified sports cars appeared to have left at least two people dead.`\
+**2 Books With Celebrity Cameos**\
+`A memoir of Greenwich Village; an Argentine story collection.`\
+https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
+
+**Police Investigate Shooting at Park in New Mexico**\
+`The shooting happened at a gathering of drivers of modified sports cars. There appeared to be at least two dead.`\
 https://nytimes.com/2025/03/22/us/shooting-las-cruces-new-mexico.html
 
 **Rockets Fired From Lebanon Prompt Israeli Airstrikes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221909/2025/03/22/daniel-jebbison-canada-bournemou
 **Meet the Opposite of Elon Musk**\
 `Valentino Deng also has roots in South Africa, but he exudes the empathy that Musk scorns.`\
 https://nytimes.com/2025/03/22/opinion/musk-trump-education.html
-
-**Who Will Defend the Defenders of the Constitution?**\
-`The president and his allies are encouraging a campaign of menace.`\
-https://nytimes.com/2025/03/22/opinion/law-firms-judges-intimidation.html
 
