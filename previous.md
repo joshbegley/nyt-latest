@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6223677/2025/03/22/marsch-disrespect-canada-usmnt-n
 https://nytimes.com/2025/03/22/crosswords/daily-puzzle-2025-03-23.html
 
 **How Rangers stole 2 points after getting outplayed by Canucks: 4 takeaways**\
-`New York was outshot 39-12 and outplayed by Vancouver for most of the night, but still somehow came away with a 5-3 victory.`\
+`New York was outshot 39-12 and outplayed by Vancouver for most of the night but still somehow came away with a 5-3 victory.`\
 https://nytimes.com/athletic/6223585/2025/03/22/rangers-canucks-takeaways-nhl-playoffs/
 
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\

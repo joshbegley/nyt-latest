@@ -1,3 +1,7 @@
+**How Rangers stole 2 points after getting outplayed by Canucks: 4 takeaways**\
+`New York was outshot 39-12 and outplayed by Vancouver for most of the night but still somehow came away with a 5-3 victory.`\
+https://nytimes.com/athletic/6223585/2025/03/22/rangers-canucks-takeaways-nhl-playoffs/
+
 **Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
 `Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
 https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
