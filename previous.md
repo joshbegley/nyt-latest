@@ -1,3 +1,7 @@
+**Spirit owner: 'Important' to keep Trinity Rodman in NWSL for team, league**\
+`"We're going to do everything in our power to hopefully keep her here," Michele Kang said about Rodman's interest playing abroad.`\
+https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman-nwsl/
+
 **Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
 `Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
 https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223585/2025/03/22/rangers-canucks-takeaways-nhl-pl
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**John Calipari returns to Sweet 16 as Arkansas upsets St. John's, Rick Pitino**\
-`A year ago, Calipari was being ridiculed with great delight over his Kentucky team's first-round loss to 14th-seeded Oakland.`\
-https://nytimes.com/athletic/6223662/2025/03/22/arkansas-john-calipari-st-johns-rick-pitino/
 

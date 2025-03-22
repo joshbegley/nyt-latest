@@ -1,3 +1,7 @@
+**Spirit owner: 'Important' to keep Trinity Rodman in NWSL for team, league**\
+`"We're going to do everything in our power to hopefully keep her here," Michele Kang said about Rodman's interest playing abroad.`\
+https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman-nwsl/
+
 **How Rangers stole 2 points after getting outplayed by Canucks: 4 takeaways**\
 `New York was outshot 39-12 and outplayed by Vancouver for most of the night but still somehow came away with a 5-3 victory.`\
 https://nytimes.com/athletic/6223585/2025/03/22/rangers-canucks-takeaways-nhl-playoffs/
