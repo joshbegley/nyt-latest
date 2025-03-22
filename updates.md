@@ -1,4 +1,8 @@
 **Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
+`The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs. He will need to rest in the Vatican for at least two months, his doctors said.`\
+https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
+
+**Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
 `The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs.`\
 https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
 

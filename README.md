@@ -1,3 +1,7 @@
+**Tuchel: Bellingham needs to be 'more disciplined,' tried to do too much at Euros**\
+`Bellingham started England's 2-0 World Cup qualifier win against Albania at Wembley on Friday and played the full game.`\
+https://nytimes.com/athletic/6223092/2025/03/22/thomas-tuchel-jude-bellingham-england/
+
 **Pope Francis Will Be Discharged From the Hospital on Sunday, Doctors Say**\
 `The 88-year-old pontiff has been hospitalized for six weeks with pneumonia in both lungs. He will need to rest in the Vatican for at least two months, his doctors said.`\
 https://nytimes.com/2025/03/22/world/europe/pope-francis-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/nyregion/man-dies-police-custody-brooklyn.html
 **Lazy Daisy Cake Is as Easy as It Sounds**\
 `The frosting is a “lazy” mix of melted butter, brown sugar and coconut — because sluggish bakers deserve nice treats, too.`\
 https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
-
-**Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 88**\
-`Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
-https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
 
