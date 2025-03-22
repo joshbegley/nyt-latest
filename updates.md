@@ -1,3 +1,7 @@
+**1 Dead and 3 Are Missing After Boat Capsizes in Florida**\
+`One adult and two children are missing, and four others were rescued on the St. Johns River near Jacksonville, Fla. They were on the water to take pictures of the sunset, an official said.`\
+https://nytimes.com/2025/03/22/us/boat-capsized-st-johns-river-florida.html
+
 **Sirens' Abby Roque scores first 'Michigan' goal in PWHL history**\
 `The 27-year-old Michigan native made PWHL history Saturday after scoring the first "Michigan" goal in league history.`\
 https://nytimes.com/athletic/6223535/2025/03/22/pwhl-abby-roque-michigan-goal-sirens/
