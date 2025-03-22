@@ -1,3 +1,11 @@
+**Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
+`Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
+https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
+
+**Could Will Wade’s honesty change how we talk about coaching moves?**\
+`CLEVELAND — It was a one-word answer, but in college basketball circles, it hit like switching from black-and-white to technicolor, like hearing the Beatles in stereo for the first time.`\
+https://nytimes.com/athletic/6223688/2025/03/22/will-wades-coaching-moves-college-sports/
+
 **Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
 `The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
 https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2
 **John Calipari returns to Sweet 16 as Arkansas upsets St. John's, Rick Pitino**\
 `A year ago, Calipari was being ridiculed with great delight over his Kentucky team's first-round loss to 14th-seeded Oakland.`\
 https://nytimes.com/athletic/6223662/2025/03/22/arkansas-john-calipari-st-johns-rick-pitino/
-
-**Cam Smith, Zach Dezenzo still in contention for Astros' Opening Day roster after cuts**\
-`Smith and Dezenzo survived a day filled with roster cuts, but it's difficult to envision both being on the team on Opening Day.`\
-https://nytimes.com/athletic/6223649/2025/03/22/astros-cam-smith-zach-dezenzo-still-in-contention-for-astros-opening-day-roster/
-
-**Ronaldo has 'no problem' with Hojlund copying 'siu' celebration**\
-`Ronaldo said that it was an "honour" that athletes around the world have copied his celebration.`\
-https://nytimes.com/athletic/6223681/2025/03/22/cristiano-ronaldo-siu-hojlund-celebration/
 
