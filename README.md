@@ -1,3 +1,7 @@
+**Venezuela Says It Will Resume Accepting U.S. Deportation Flights**\
+`The Venezuelan government attributed a willingness to receive the flights to the plight of Venezuelan migrants sent to notorious prisons in El Salvador with little to no due process.`\
+https://nytimes.com/2025/03/22/us/politics/trump-venezuela-deportations-migrants.html
+
 **1 Dead and 3 Are Missing After Boat Capsizes in Florida**\
 `One adult and two children are missing, and four others were rescued on the St. Johns River near Jacksonville, Fla. They were on the water to take pictures of the sunset, an official said.`\
 https://nytimes.com/2025/03/22/us/boat-capsized-st-johns-river-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223316/2025/03/22/jackson-jobe-casey-mize-complete
 **George Foreman Turned a Home Grill Into a Culinary Heavyweight**\
 `The former boxer transformed American cooking, and himself, with an appliance that remains a cultural touchstone.`\
 https://nytimes.com/2025/03/22/dining/george-foreman-grill.html
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
