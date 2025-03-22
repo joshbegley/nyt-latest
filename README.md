@@ -1,3 +1,11 @@
+**How to watch No. 2 UConn vs. No. 15 Arkansas State in the women's NCAA Tournament**\
+`Big East Player of the Year Paige Bueckers and UConn are favored by more than 40 points over Arkansas State. `\
+https://nytimes.com/athletic/6213008/2025/03/22/uconn-arkansas-state-womens-ncaa-tournament-how-to-watch/
+
+**How to watch No. 6 Iowa vs. No. 11 Murray State in the women's NCAA Tournament**\
+`Iowa starts its first NCAA Tournament after Caitlin Clark against Murray State. The No. 6 seed Hawkeyes are solid favorites.`\
+https://nytimes.com/athletic/6211401/2025/03/22/iowa-murray-state-womens-ncaa-tournament-how-to-watch/
+
 **Tuchel's England were not radically different - but that's not a big problem**\
 `England managed a 2-0 win over Albania on Friday night but they did not look very different to any qualifier since 2016`\
 https://nytimes.com/athletic/6216597/2025/03/22/thomas-tuchel-england-albania-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6215932/2025/03/22/dirk-kuyt-interview-liverpool/
 **Newcastle United Women: A record crowd at St James' Park for the derby and using men's League Cup 'buzz'**\
 `Becky Langley's thoughts as her side prepares to face Sunderland in front of a record-breaking Championship crowd`\
 https://nytimes.com/athletic/6218452/2025/03/22/newcastle-united-women-becky-langley-derby-sunderland-st-james/
-
-**Haaland, Odegaard and Norway's desperate quest to end decades in the wilderness**\
-`Failure to reach the World Cup and end a 26-year tournament absence will be a devastating blow for such a talented squad`\
-https://nytimes.com/athletic/6221042/2025/03/22/norway-haaland-odegaard-2026-world-cup/
-
-**Real Madrid Women's story so far: A message on a napkin, Barca dominance and dreams of silverware**\
-`Real Madrid women's team are on the verge of a first Champions League semi-final - but there is still catching up to do with game's elite`\
-https://nytimes.com/athletic/6218688/2025/03/22/real-madrid-femenino-womens-champions-league-spain/
 
