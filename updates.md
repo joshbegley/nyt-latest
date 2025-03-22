@@ -1,3 +1,7 @@
+**March Madness power rankings: Resetting men's title contenders after Round 1**\
+`The top seeds are looking strong, but with the field narrowing, we could see many more surprises over the weekend.`\
+https://nytimes.com/athletic/6220736/2025/03/22/mens-ncaa-tournament-power-rankings-favorites/
+
 **Spring Awakening**\
 `Being new at something isn’t always pleasant, but beyond the discomfort, rewards await.`\
 https://nytimes.com/2025/03/22/briefing/spring-awakening.html

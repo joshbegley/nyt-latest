@@ -1,3 +1,7 @@
+**March Madness power rankings: Resetting men's title contenders after Round 1**\
+`The top seeds are looking strong, but with the field narrowing, we could see many more surprises over the weekend.`\
+https://nytimes.com/athletic/6220736/2025/03/22/mens-ncaa-tournament-power-rankings-favorites/
+
 **Spring Awakening**\
 `Being new at something isn’t always pleasant, but beyond the discomfort, rewards await.`\
 https://nytimes.com/2025/03/22/briefing/spring-awakening.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222219/2025/03/22/purdue-mcneese-ncaa-tournament-h
 **How to watch the second day of women’s March Madness: Schedule, odds and storylines**\
 `Venue, date, time, broadcast and streaming info for every women's NCAA Tourney game on Saturday. `\
 https://nytimes.com/athletic/6213969/2025/03/22/womens-march-madness-first-round-games-saturday-how-to-watch/
-
-**Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
-`The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
-https://nytimes.com/2025/03/22/magazine/lindsay-gibson-interview.html
 
