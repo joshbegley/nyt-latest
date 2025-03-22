@@ -1,3 +1,11 @@
+**Jackson Jobe, Casey Mize complete what could be formidable Tigers rotation**\
+`The Detroit Tigers will round out their rotation with a former top prospect seeking redemption and a current prospect learning the ropes.`\
+https://nytimes.com/athletic/6223316/2025/03/22/jackson-jobe-casey-mize-complete-what-could-be-formidable-tigers-rotation/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **How George Foreman Turned a Home Grill Into a Culinary Heavyweight**\
 `The former boxer transformed American cooking, and himself, with an appliance that remains a cultural touchstone.`\
 https://nytimes.com/2025/03/22/dining/george-foreman-grill.html
