@@ -1,3 +1,7 @@
+**What Is Justice Roberts Getting At?**\
+`The repercussions of Trump v. United States may finally be hitting the chief justice.`\
+https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html
+
 **Man Accused of Shoplifting Dies at Brooklyn Courthouse**\
 `The cause of death was not immediately clear. Four other people have died this year in city jails or just after being released from custody.`\
 https://nytimes.com/2025/03/22/nyregion/man-dies-police-custody-brooklyn.html
