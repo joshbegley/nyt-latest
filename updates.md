@@ -1,3 +1,11 @@
+**How to watch No. 3 LSU vs. No. 14 San Diego State in the women's NCAA Tournament**\
+`Flau'jae Johnson and LSU begin their NCAA Tournament run in The Jungle. They're huge home favorites over San Diego State.`\
+https://nytimes.com/athletic/6214936/2025/03/22/lsu-san-diego-state-womens-ncaa-tournament-how-to-watch/
+
+**Phillies prospect Justin Crawford to begin season at Triple A: Sources**\
+`Crawford, according to two team sources, will be in Lehigh Valley's outfield along with fellow spring standout Gabriel Rincones Jr.`\
+https://nytimes.com/athletic/6222745/2025/03/22/justin-crawford-phillies-triple-a-assignment/
+
 **Carlos Alcaraz exits Miami Open in loose defeat to David Goffin**\
 `Alcaraz joined Daniil Medvedev in leaving Florida early after Goffin hit his peak while the Spaniard dipped.`\
 https://nytimes.com/athletic/6222939/2025/03/22/carlos-alcaraz-miami-result-david-goffin/
