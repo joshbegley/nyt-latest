@@ -1,3 +1,11 @@
+**Chomps Recalls Beef and Turkey Sticks Over ‘Pieces of Metal’ Complaints**\
+`The snack sticks included in the recall were packaged at a single facility in Idaho from Jan. 16 through Jan. 23, the company said.`\
+https://nytimes.com/2025/03/22/us/chomps-beef-stick-recall-metal.html
+
+**Women's March Madness first round takeaways: Iowa rolls in post-Caitlin Clark tourney era**\
+`Follow along with our Day 2 updates and analysis.`\
+https://nytimes.com/athletic/6223302/2025/03/22/womens-march-madness-first-round-takeaways-iowa-uconn/
+
 **Tuchel: Bellingham needs to be 'more disciplined,' tried to do too much at Euros**\
 `Bellingham started England's 2-0 World Cup qualifier win against Albania at Wembley on Friday and played the full game.`\
 https://nytimes.com/athletic/6223092/2025/03/22/thomas-tuchel-jude-bellingham-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-nation
 **What Is Justice Roberts Getting At?**\
 `The repercussions of Trump v. United States may finally be hitting the chief justice.`\
 https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html
-
-**Man Accused of Shoplifting Dies at Brooklyn Courthouse**\
-`The cause of death was not immediately clear. Four other people have died this year in city jails or just after being released from custody.`\
-https://nytimes.com/2025/03/22/nyregion/man-dies-police-custody-brooklyn.html
-
-**Lazy Daisy Cake Is as Easy as It Sounds**\
-`The frosting is a “lazy” mix of melted butter, brown sugar and coconut — because sluggish bakers deserve nice treats, too.`\
-https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
 
