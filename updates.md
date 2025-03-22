@@ -1,3 +1,11 @@
+**Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
+`The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
+https://nytimes.com/2025/03/22/magazine/lindsay-gibson-interview.html
+
+**Dr. Lindsay C. Gibson Thinks Compassion for Our Parents Can Be a Trap**\
+`The clinical psychologist explains the demands of “emotionally immature” parents, the impact it has on their children and the freedom of saying “no.”`\
+https://nytimes.com/video/podcasts/100000010058964/dr-lindsay-c-gibson-thinks-compassion-for-our-parents-can-be-a-trap.html
+
 **Everyone in the City Needs Soundproofing, Even Spiders**\
 `Researchers have found evidence that a common North American spider species alters its webs to deal with urban noise pollution.`\
 https://nytimes.com/2025/03/22/science/spiders-webs-noise-pollution.html
