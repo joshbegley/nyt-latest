@@ -1,3 +1,15 @@
+**The Pulse: Our first Saturday edition!**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the-pulse/
+
+**A Montana Senator Seeks to Be Trump’s Voice in Beijing**\
+`Senator Steve Daines said in an interview that in meetings with Chinese officials, he called for talks between President Trump and China’s leader, Xi Jinping.`\
+https://nytimes.com/2025/03/22/world/asia/trump-china-xi-daines.html
+
+**Lewis Hamilton has perfect response to ‘yapping’ about his Ferrari start**\
+`One sprint win won’t define Lewis Hamilton’s season, but it was a fine way to answer any early criticism`\
+https://nytimes.com/athletic/6222932/2025/03/22/lewis-hamilton-china-sprint-win-analysis/
+
 **Suns, with a newfound source of energy, post their biggest win of the season**\
 `The energy surge is noticeable. So is the power source. The Big Three has been replaced by The Active Three.`\
 https://nytimes.com/athletic/6222890/2025/03/22/phoenix-suns-cleveland-cavaliers-playoffs-devin-booker/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6222843/2025/03/22/usmnt-history-most-devastating-l
 **How Blackhawks defenseman Wyatt Kaiser's game has taken off lately**\
 `Kaiser's recent goal scoring has made his play more noticeable, but there's more to it than that.`\
 https://nytimes.com/athletic/6222021/2025/03/22/blackhawks-defenseman-wyatt-kaiser/
-
-**Emil Andrae going through 'learning process,' plus Nikita Grebenkin's hot start**\
-`Andrae could be on his way to officially arriving at the NHL level, and Grebenkin is making a good first impression. `\
-https://nytimes.com/athletic/6222060/2025/03/22/flyers-emil-andrae-nikita-grebenkin/
-
-**The Nonprofit Caught in the Fray of Trump’s Attacks on Big Law**\
-`A federal inquiry into D.E.I. practices at 20 law firms zeroed in on SEO, a decades-old program that helps students land jobs on Wall Street.`\
-https://nytimes.com/2025/03/22/business/dealbook/trump-dei-seo-wall-street.html
-
-**2 Books With Celebrity Cameos**\
-`A memoir of Greenwich Village; an Argentine story collection.`\
-https://nytimes.com/2025/03/22/books/read-like-wind-recommendations.html
 
