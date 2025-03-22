@@ -1,5 +1,13 @@
+**Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
+`Gibson, 37, agreed to a one-year, $5 million contract with Baltimore.`\
+https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
+
+**John Calipari and Rick Pitino have stood the test of time, just not together**\
+`Pitino, coaching St. John’s, and Calipari, coaching Arkansas, will go head-to-head for the 24th time.`\
+https://nytimes.com/athletic/6222319/2025/03/21/john-calipari-rick-pitino-march-madness-st-johns-arkansas/
+
 **Police Recover Diamond Earrings Worth $769,500 That Thief Swallowed**\
-`The police in Orlando, Fla., said that a suspect spent time in a hospital while they waited for the stolen jewels to be “expelled from his system.’`\
+`The police in Orlando, Fla., said that a suspect spent time in a hospital while they waited for the stolen jewels to be “expelled from his system.”`\
 https://nytimes.com/2025/03/21/us/tiffany-diamond-theft-orlando.html
 
 **Social Security Leader Warns of Halt to Agency’s Work, Before Backtracking**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
 **Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
 `The provision had been in place since the civil rights era.`\
 https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
-
-**An Interview With Elon Musk’s Daughter Was Months in the Making**\
-`Teen Vogue’s rollicking Q&A with Vivian Wilson offered insight into her life, her interests and her feelings about her famous father.`\
-https://nytimes.com/2025/03/21/style/vivian-wilson-teen-vogue-elon-musk.html
-
-**Penny Hardaway has 1 NCAA tourney win but says, 'I’m not looking for any excuses'**\
-`The defining stat when it comes to Hardaway as Memphis' coach might be one ... as in, one NCAA Tournament win.`\
-https://nytimes.com/athletic/6222378/2025/03/21/penny-hardaway-memphis-basketball-march-madness/
 
