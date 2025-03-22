@@ -1,3 +1,15 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/21/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**How a Major Democratic Law Firm Ended Up Bowing to Trump**\
+`Paul Weiss was targeted by an executive order from President Trump. Its chairman, who had worked against Mr. Trump during his first term, then went to Oval Office and cut a deal.`\
+https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
+
+**Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/21/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **How a Major Democratic Law Firm Ended Up Bowing to Trump**\
 `Paul Weiss, targeted by an executive order from President Trump, had started working with other big firms to challenge the order in court. Then its chairman went to Oval Office and cut a deal.`\
 https://nytimes.com/2025/03/21/us/politics/paul-weiss-trump.html
