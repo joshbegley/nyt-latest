@@ -1,3 +1,7 @@
+**Lazy Daisy Cake Is as Easy as It Sounds**\
+`The frosting is a “lazy” mix of melted butter, brown sugar and coconut — because sluggish bakers deserve nice treats, too.`\
+https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
+
 **Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 88**\
 `Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
 https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/22/us/trump-news
 **England kit change vs Albania happened due to mistake on first shirt**\
 `Squad numbers were placed directly under the logo of shirt providers Nike rather than in the centre, as was seen at Euro 2024.`\
 https://nytimes.com/athletic/6223042/2025/03/22/england-kit-albania-mistake/
-
-**The Pulse: Our first Saturday edition!**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6222866/2025/03/22/march-madness-george-foreman-the-pulse/
 

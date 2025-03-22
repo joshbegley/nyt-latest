@@ -1,3 +1,7 @@
+**Lazy Daisy Cake Is as Easy as It Sounds**\
+`The frosting is a “lazy” mix of melted butter, brown sugar and coconut — because sluggish bakers deserve nice treats, too.`\
+https://nytimes.com/2025/03/22/dining/easy-lazy-daisy-cake.html
+
 **Kitty Dukakis, Wife of 1988 Presidential Nominee, Dies at 88**\
 `Married to Gov. Michael Dukakis of Massachusetts, she became a proponent of electroshock therapy after unsuccessful treatments for alcoholism and depression.`\
 https://nytimes.com/2025/03/22/us/politics/kitty-dukakis-dead.html
