@@ -1,3 +1,7 @@
+**Penn State wrestling dynasty wins fourth straight NCAA championship**\
+`This is Penn State’s 12th NCAA title under Sanderson and the program’s 13th overall. Penn State’s first wrestling championship came in 1953.`\
+https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-national-championship/
+
 **What Is Justice Roberts Getting At?**\
 `The repercussions of Trump v. United States may finally be hitting the chief justice.`\
 https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html

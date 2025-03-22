@@ -1,3 +1,7 @@
+**Penn State wrestling dynasty wins fourth straight NCAA championship**\
+`This is Penn State’s 12th NCAA title under Sanderson and the program’s 13th overall. Penn State’s first wrestling championship came in 1953.`\
+https://nytimes.com/athletic/6223135/2025/03/22/penn-state-wrestling-ncaa-national-championship/
+
 **What Is Justice Roberts Getting At?**\
 `The repercussions of Trump v. United States may finally be hitting the chief justice.`\
 https://nytimes.com/2025/03/22/opinion/john-roberts-trump-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/world/europe/heathrow-airport-london-travelers.ht
 **Joe Ingles started so his autistic son could see him play. Here's how the Wolves responded**\
 `"Sometimes you gotta do the human thing," Timberwolves coach Chris Finch said about the decision in a "must-win game."`\
 https://nytimes.com/athletic/6222598/2025/03/22/joe-ingles-son-autism-timberwolves/
-
-**In California, Confusion Abounds Over Status of 2 National Monuments**\
-`The White House removed all references to the Chuckwalla and Sáttítla monuments from a fact sheet outlining how the president would reverse some Biden-era environmental policies.`\
-https://nytimes.com/2025/03/22/us/politics/california-monuments-white-house-trump.html
 
