@@ -1,3 +1,7 @@
+**Jameis Winston is just a placeholder; the Giants' fate rests on their next QB decision**\
+`Signing Winston isn’t the end of the Giants' QB quest this offseason. In some ways, it's just the beginning. `\
+https://nytimes.com/athletic/6205320/2025/03/21/jameis-winston-giants-nfl-free-agency-nfl-draft/
+
 **Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
 `Gibson, 37, agreed to a one-year, $5.25 million contract with Baltimore.`\
 https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222495/2025/03/21/padres-darvish-injury-roster-bat
 **Why the Pentagon Scuttled Its Briefing of Musk on War Plans**\
 `“You wouldn’t show it to a businessman,” President Trump said in denying that Elon Musk was to be briefed on top-secret plans in the event of war with China.`\
 https://nytimes.com/2025/03/21/us/politics/musk-trump-pentagon-china.html
-
-**Trump Administration Dropped Policy Prohibiting Contractors From Having Segregated Facilities**\
-`The provision had been in place since the civil rights era.`\
-https://nytimes.com/2025/03/21/us/politics/trump-segregation.html
 
