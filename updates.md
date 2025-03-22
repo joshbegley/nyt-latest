@@ -1,3 +1,15 @@
+**Orioles sign free-agent right-hander Kyle Gibson to one-year deal**\
+`Gibson, 37, agreed to a one-year, $5 million contract with Baltimore.`\
+https://nytimes.com/athletic/6210398/2025/03/21/kyle-gibson-baltimore-orioles-signing/
+
+**John Calipari and Rick Pitino have stood the test of time, just not together**\
+`Pitino, coaching St. John’s, and Calipari, coaching Arkansas, will go head-to-head for the 24th time.`\
+https://nytimes.com/athletic/6222319/2025/03/21/john-calipari-rick-pitino-march-madness-st-johns-arkansas/
+
+**Police Recover Diamond Earrings Worth $769,500 That Thief Swallowed**\
+`The police in Orlando, Fla., said that a suspect spent time in a hospital while they waited for the stolen jewels to be “expelled from his system.”`\
+https://nytimes.com/2025/03/21/us/tiffany-diamond-theft-orlando.html
+
 **Police Recover Diamond Earrings Worth $769,500 That Thief Swallowed**\
 `The police in Orlando, Fla., said that a suspect spent time in a hospital while they waited for the stolen jewels to be “expelled from his system.’`\
 https://nytimes.com/2025/03/21/us/tiffany-diamond-theft-orlando.html
