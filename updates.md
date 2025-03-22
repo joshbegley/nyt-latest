@@ -1,3 +1,11 @@
+**How the Chinese Grand Prix came to resemble a Taylor Swift concert**\
+`The Shanghai fan zone is something completely different. The gift exchange is new, exhilarating and joyous`\
+https://nytimes.com/athletic/6222959/2025/03/22/chinese-grand-prix-2025-fans-taylor-swift/
+
+**Wisconsin's Casey O'Brien wins 2025 Patty Kazmaier Award**\
+`O’Brien won the 2025 Patty Kazmaier Award on Saturday after a historic final season at the University of Wisconsin.`\
+https://nytimes.com/athletic/6221575/2025/03/22/patty-kazmaier-casey-obrien-2025-ncaa-womens-hockey/
+
 **Reds' Spencer Steer to begin season on IL with shoulder injury**\
 `In his two-plus seasons with the Reds, Steer has played every defensive position other than pitcher, catcher or center field.`\
 https://nytimes.com/athletic/6223165/2025/03/22/reds-spencer-steer-injury/
