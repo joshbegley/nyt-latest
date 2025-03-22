@@ -1,3 +1,7 @@
+**George Foreman, Boxing Champion and Grilling Magnate, Dies at 76**\
+`He claimed a world title in his 20s and again in his 40s, and then made millions selling grills.`\
+https://nytimes.com/2025/03/21/sports/george-foreman-dead.html
+
 **George Foreman, Ageless Heavyweight Champion, Dies at 76**\
 `He claimed a world title in his 20s and again in his 40s, and then made millions selling grills.`\
 https://nytimes.com/2025/03/21/sports/george-foreman-dead.html
