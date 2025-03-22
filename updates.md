@@ -1,3 +1,7 @@
+**Venezuela Says It Will Resume Accepting U.S. Deportation Flights**\
+`The Venezuelan government attributed a willingness to receive the flights to the plight of Venezuelan migrants sent to notorious prisons in El Salvador with little to no due process.`\
+https://nytimes.com/2025/03/22/us/politics/trump-venezuela-deportations-migrants.html
+
 **1 Dead and 3 Are Missing After Boat Capsizes in Florida**\
 `One adult and two children are missing, and four others were rescued on the St. Johns River near Jacksonville, Fla. They were on the water to take pictures of the sunset, an official said.`\
 https://nytimes.com/2025/03/22/us/boat-capsized-st-johns-river-florida.html
