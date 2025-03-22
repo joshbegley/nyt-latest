@@ -1,3 +1,7 @@
+**The Sniper’s Nest**\
+`Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
+https://nytimes.com/2025/03/22/world/africa/the-snipers-nest.html
+
 **Men's March Madness projections 2025: Full NCAA Tournament bracket odds**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6222706/2025/03/21/blue-jackets-penguins-nhl-playof
 **Trump Revokes Security Clearances for Biden, Harris, Clinton and More**\
 `The tally of names read like President Trump’s enemies list, from Letitia James to Liz Cheney.`\
 https://nytimes.com/2025/03/21/us/politics/trump-security-clearances-biden-harris-clinton.html
-
-**George Foreman, legendary boxer and Muhammad Ali’s foe turned friend, dies at 76**\
-`The oldest world heavyweight boxing champion in history died Friday surrounded by loved ones, his family shared.`\
-https://nytimes.com/athletic/6222682/2025/03/21/george-foreman-boxer-obituary/
 
