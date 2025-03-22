@@ -1,3 +1,7 @@
+**The Sniper’s Nest**\
+`Exploring an image of Sgt. Maj. Ismail Hassan of the Sudanese Army at a sniper position in a luxury apartment block across the Blue Nile from Sudan’s presidential palace.`\
+https://nytimes.com/2025/03/22/world/africa/the-snipers-nest.html
+
 **UConn fights off Oklahoma to keep 3-peat hopes alive — for now**\
 `Next up for the Huskies? A date with No. 1 Florida, arguably the best team in America right now.`\
 https://nytimes.com/athletic/6222822/2025/03/22/uconn-oklahoma-ncaa-tournament/
