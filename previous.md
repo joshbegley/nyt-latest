@@ -1,3 +1,7 @@
+**The I.R.S. is preparing to help ICE locate immigrants targeted for deportation.**\
+`The tax agency is nearing an agreement to verify whether ICE officials have the right address for people they are trying to deport.`\
+https://nytimes.com/live/2025/03/22/us/trump-news/the-irs-is-preparing-to-help-ice-locate-immigrants-targeted-for-deportation
+
 **As schedule gets tougher, Wild getting the best of Filip Gustavsson at the perfect time**\
 `Gustavsson has been playing his best hockey and has been the backbone for Minnesota at the most important time of the year.`\
 https://nytimes.com/athletic/6223838/2025/03/22/wild-sabres-filip-gustavsson-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections
 **Canada coach Jesse Marsch says refereeing disrespect hinders his team**\
 `Controversial calls in Canada's Concacaf Nations League semifinal fueled Marsch's frustration.`\
 https://nytimes.com/athletic/6223677/2025/03/22/marsch-disrespect-canada-usmnt-nations-league/
-
-**Where’d You Go?**\
-`Andrew Colin Kirk makes a seductive New York Times puzzle debut.`\
-https://nytimes.com/2025/03/22/crosswords/daily-puzzle-2025-03-23.html
 
