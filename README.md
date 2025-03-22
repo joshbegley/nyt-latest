@@ -1,3 +1,7 @@
+**Filip Gustavsson stays hot, Justin Brazeau scores first goal with Wild: 3 takeaways**\
+`The trade-deadline pickup snapped a long drought and scored his first goal with Minnesota in a 4-1 win over Buffalo on Saturday.`\
+https://nytimes.com/athletic/6223427/2025/03/22/wild-sabres-justin-brazeau-filip-gustavsson/
+
 **How Canucks snatched defeat from the jaws of victory in Manhattan: 3 takeaways**\
 `Quinn Hughes did everything possible to will his team to a victory, but Vancouver still fell 5-3 in New York on Saturday.`\
 https://nytimes.com/athletic/6223516/2025/03/22/canucks-rangers-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223378/2025/03/22/yankees-roster-carlos-carrasco-o
 **Bayern hopeful that Neuer will be fit for Champions League quarter-final**\
 `Despite the setback, the German club remain hopeful that the 38-year-old will be fit to face Inter Milan in the Champions League on April 8.`\
 https://nytimes.com/athletic/6223499/2025/03/22/bayern-munich-manuel-neuer-injury-setback-update/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
