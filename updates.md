@@ -1,3 +1,11 @@
+**Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
+`Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
+https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
+
+**Could Will Wade’s honesty change how we talk about coaching moves?**\
+`CLEVELAND — It was a one-word answer, but in college basketball circles, it hit like switching from black-and-white to technicolor, like hearing the Beatles in stereo for the first time.`\
+https://nytimes.com/athletic/6223688/2025/03/22/will-wades-coaching-moves-college-sports/
+
 **Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
 `The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
 https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
