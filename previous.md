@@ -1,3 +1,7 @@
+**9 Months Pregnant, and Navigating the Apocalypse**\
+`Emma Pattee’s debut novel, “Tilt,” takes place in the 24 hours after “the really big one” devastates the Pacific Northwest.`\
+https://nytimes.com/2025/03/23/books/review/emma-pattee-tilt.html
+
 **Hovland beats JT for Valspar Championship; first win since 2023**\
 `Hovland birdied two of the most difficult holes on the Copperhead Course to come back against Thomas.`\
 https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-championship-thomas-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2
 **White House Invites a New Guest to Its Easter Event: Corporate Sponsors**\
 `The White House has moved to turn its Easter Egg Roll, a tradition that stretches back to Rutherford B. Hayes, into a chance to showcase brands.`\
 https://nytimes.com/2025/03/23/us/politics/trump-easter-egg-roll-sponsors.html
-
-**Phillies notes: The lineup(s), a new reliever, rotation plans and best defensive outfield**\
-`After thinking about it for months, manager Rob Thomson has settled on this: He will not have a settled batting order.`\
-https://nytimes.com/athletic/6225189/2025/03/23/phillies-news-lineup-rotation-outfield/
 

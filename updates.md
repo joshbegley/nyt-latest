@@ -1,3 +1,7 @@
+**9 Months Pregnant, and Navigating the Apocalypse**\
+`Emma Pattee’s debut novel, “Tilt,” takes place in the 24 hours after “the really big one” devastates the Pacific Northwest.`\
+https://nytimes.com/2025/03/23/books/review/emma-pattee-tilt.html
+
 **Hovland beats JT for Valspar Championship; first win since 2023**\
 `Hovland birdied two of the most difficult holes on the Copperhead Course to come back against Thomas.`\
 https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-championship-thomas-pga-tour/
