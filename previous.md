@@ -1,3 +1,7 @@
+**A defiant Schumer again defends his decision to avoid a shutdown.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2025/03/23/us/trump-news/chuck-schumer-democrats-meet-the-press
+
 **Canada’s Leader Calls Snap Federal Elections Amid Trump Threats**\
 `Mark Carney, who has only been prime minister for 10 days, has called for a general election to be held on April 28.`\
 https://nytimes.com/2025/03/23/world/canada/canada-election-carney-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/dining/perfect-salmon-recipe.html
 **With No-Confidence Vote, Israeli Cabinet Moves to Fire Attorney General**\
 `Benjamin Netanyahu, the Israeli prime minister, contends the top lawyer sought to undermine him. His critics in Israel call it part of a purge of those he considers disloyal.`\
 https://nytimes.com/2025/03/23/world/middleeast/israel-attorney-general.html
-
-**Max Frankel, Top Times Editor Who Led a Newspaper in Transition, Dies at 94**\
-`As executive editor from 1986 to 1994, he oversaw a period of financial, technological and journalistic change while lifting newsroom morale and diversifying the staff.`\
-https://nytimes.com/2025/03/23/obituaries/max-frankel-dead.html
 

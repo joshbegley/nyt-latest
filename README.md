@@ -1,9 +1,9 @@
 **A defiant Schumer again defends his decision to avoid a shutdown.**\
 `By Robert Jimison`\
-https://nytimes.com/live/2025/03/23/us/trump-news/chuck-schumer-democrats-meet-the-press
+https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
 
 **Canada’s Leader Calls Snap Federal Elections Amid Trump Threats**\
-`Mark Carney, who has only been prime minister for 10 days, has called for a general election to be held on April 28.`\
+`Mark Carney, who has been prime minister for only 10 days, has called for a general election to be held on April 28.`\
 https://nytimes.com/2025/03/23/world/canada/canada-election-carney-trump.html
 
 **Juventus sack head coach Motta, replaced by Tudor**\
