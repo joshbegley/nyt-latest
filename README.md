@@ -1,3 +1,7 @@
+**Thomas Tuchel says he will not do clubs favours as England head coach**\
+`Thomas Tuchel will not go out of his way to do favours to clubs when it comes to selecting his England team.`\
+https://nytimes.com/athletic/6224589/2025/03/23/thomas-tuchel-england-clubs-favours/
+
 **9 Months Pregnant, and Navigating the Apocalypse**\
 `Emma Pattee’s debut novel, “Tilt,” takes place in the 24 hours after “the really big one” devastates the Pacific Northwest.`\
 https://nytimes.com/2025/03/23/books/review/emma-pattee-tilt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225211/2025/03/23/jadon-sancho-chelsea-man-united-
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**White House Invites a New Guest to Its Easter Event: Corporate Sponsors**\
-`The White House has moved to turn its Easter Egg Roll, a tradition that stretches back to Rutherford B. Hayes, into a chance to showcase brands.`\
-https://nytimes.com/2025/03/23/us/politics/trump-easter-egg-roll-sponsors.html
 
