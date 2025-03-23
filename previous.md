@@ -1,3 +1,7 @@
+**Chinese Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the Chinese Grand Prix?`\
+https://nytimes.com/athletic/6224381/2025/03/23/f1-mailbag-chinese-grand-prix/
+
 **Russian Drone Attack Kills 3 in Kyiv Ahead of Cease-Fire Talks**\
 `The assault underscored the deep mistrust between Russia and Ukraine. U.S.-mediated talks about a partial cease-fire are set to begin in Saudi Arabia later on Sunday.`\
 https://nytimes.com/2025/03/23/world/europe/kyiv-ukraine-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/us/politics/aoc-sanders-democrats-2028.html
 **Why Does Big Bird Look So Sad?**\
 `Sesame Workshop, the nonprofit behind “Sesame Street,” is confronting what executives have described as a “perfect storm” of problems.`\
 https://nytimes.com/2025/03/23/business/media/sesame-street-layoffs-funding-cuts.html
-
-**A Doll That Gives Toddlers a Taste for Finer Things**\
-`Meghan, Duchess of Sussex, is a fan.`\
-https://nytimes.com/2025/03/23/style/meghan-markle-sussex-stella-al-fresco-doll.html
 
