@@ -1,3 +1,7 @@
+**A Novel Explores the Undersea Cables That Connect the World**\
+`The crew in Colum McCann’s new book makes complex repairs deep in the ocean. Human bonds prove harder to mend.`\
+https://nytimes.com/2025/03/23/books/review/colum-mccann-twist.html
+
 **Hamilton, Leclerc and Gasly disqualified from Chinese Grand Prix**\
 `The disqualifications are a massive blow to Ferrari, which had gained 18 points with Leclerc and Hamilton finishing in P5 and P6.`\
 https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-and-pierre-gasly-disqualified-from-chinese-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6204546/2025/03/23/nba-bad-march-league-changes/
 **Bring Back the Boycott**\
 `Church-led campaigns against businesses for retreating from D.E.I. promises are a form of pastoral ministry for those who feel ignored or forgotten.`\
 https://nytimes.com/2025/03/23/opinion/target-black-boycott.html
-
-**I Teach Memoir Writing. Don’t Outsource Your Life Story to A.I.**\
-`When we let computers write our stories, we lose something essential.`\
-https://nytimes.com/2025/03/23/opinion/ai-outsource-writing-memoir.html
 
