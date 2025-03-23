@@ -1,3 +1,7 @@
+**Blue Jays sign Alejandro Kirk to 5-year extension: Source**\
+`The Blue Jays inked Kirk, who is strong defensively and at the plate, to an extension worth $58 million. `\
+https://nytimes.com/athletic/6224154/2025/03/22/blue-jays-alejandro-kirk-contract-extension/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsu
 **Michigan made it clear vs. Texas A&M: Count out Wolverines at your own risk**\
 `No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
-
-**Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
-`Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
-https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
 
