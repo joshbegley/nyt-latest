@@ -1,3 +1,7 @@
+**Alex Eala stuns Australian Open champion Madison Keys in Miami for best career win**\
+`Eala's triumph over Keys was her second top-30 win of the tournament — and the second in the Philippines' history since WTA rankings began.`\
+https://nytimes.com/athletic/6225138/2025/03/23/tennis-alex-eala-madison-keys-result-analysis-miami/
+
 **Pope Makes First Public Appearance Since Falling Ill**\
 `Pope Francis made his first public appearance in Rome after being admitted to a hospital in mid-February with an acute respiratory insufficiency. Francis will continue recovery at the Vatican guesthouse where he lives.`\
 https://nytimes.com/video/world/europe/100000010068432/pope-francis-public-appearance-rome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6218906/2025/03/23/cardinals-opening-day-roster-vic
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Brian James, Pioneer of Punk Rock, Is Dead at 70**\
-`As the guitarist and main songwriter for the Damned, he helped spark an explosion on the British music scene in the 1970s.`\
-https://nytimes.com/2025/03/23/arts/music/brian-james-dead.html
 

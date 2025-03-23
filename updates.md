@@ -1,3 +1,7 @@
+**Alex Eala stuns Australian Open champion Madison Keys in Miami for best career win**\
+`Eala's triumph over Keys was her second top-30 win of the tournament — and the second in the Philippines' history since WTA rankings began.`\
+https://nytimes.com/athletic/6225138/2025/03/23/tennis-alex-eala-madison-keys-result-analysis-miami/
+
 **Pope Makes First Public Appearance Since Falling Ill**\
 `Pope Francis made his first public appearance in Rome after being admitted to a hospital in mid-February with an acute respiratory insufficiency. Francis will continue recovery at the Vatican guesthouse where he lives.`\
 https://nytimes.com/video/world/europe/100000010068432/pope-francis-public-appearance-rome.html
