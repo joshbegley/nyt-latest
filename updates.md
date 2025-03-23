@@ -1,3 +1,7 @@
+**Canada’s Leader Calls Snap Federal Elections Amid Trump Threats**\
+`Mark Carney, who has only been prime minister for 10 days, has called for a general election to be held on April 28.`\
+https://nytimes.com/2025/03/23/world/canada/canada-election-carney-trump.html
+
 **Juventus sack head coach Motta, replaced by Tudor**\
 `Motta was only appointed at Juventus at the start of the season, signing a contract until June 2027.`\
 https://nytimes.com/athletic/6189017/2025/03/23/thiago-motta-sacked-juventus/
