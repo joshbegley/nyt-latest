@@ -1,5 +1,5 @@
-**How Did a Fire Leave Heathrow Airport in Darkness, With No Backup?**\
-`As Europe’s busiest airport returned to a full schedule, the British authorities ordered an investigation into Friday’s blaze.`\
+**How Did a Fire Leave Heathrow Airport in Darkness, With Insufficient Backup?**\
+`The British authorities ordered an urgent investigation, but some experts said that any airport would be crippled by being cut from the electrical grid.`\
 https://nytimes.com/2025/03/23/world/europe/heathrow-airport-fire-infrastructure.html
 
 **Canadiens are thriving with an atypical shutdown pairing of Matheson and Carrier**\
