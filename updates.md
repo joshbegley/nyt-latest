@@ -1,3 +1,11 @@
+**Hovland beats JT for Valspar Championship; first win since 2023**\
+`Hovland birdied two of the most difficult holes on the Copperhead Course to come back against Thomas.`\
+https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-championship-thomas-pga-tour/
+
+**Fruit of the Palm**\
+`Victor Schmitt makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/03/23/crosswords/daily-puzzle-2025-03-24.html
+
 **Kentucky's Mark Pope gives fan ‘1 of 1’ experience, delivering on free gas pledge**\
 `Pope paid for a Kentucky student's gas money to go support the Wildcats in Milwaukee. It ended in a win, and a trip he'll 'always cherish.'`\
 https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-ncaa-tournament-milwaukee/
