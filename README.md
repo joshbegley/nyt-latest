@@ -1,3 +1,11 @@
+**The Lakers are finally whole. Now they must get 'reconnected' fast**\
+`Despite getting LeBron James and Rui Hachimura back, the Lakers were embarrassed by their worst defensive performance of the season.`\
+https://nytimes.com/athletic/6224242/2025/03/23/lakers-lebron-james-return-bulls-loss-nba/
+
+**Yoko Ono, Demonized No Longer**\
+`David Sheff’s new biography convincingly argues for John Lennon’s widow as a feminist, activist, avant-garde artist and world-class sass.`\
+https://nytimes.com/2025/03/23/books/review/yoko-ono-biography-david-sheff.html
+
 **Russia and Ukraine to Hold U.S.-Mediated Talks: What to Know**\
 `American envoys will meet with Ukrainian officials on Sunday and with Russian officials the following day. The discussions are expected to focus on halting attacks on energy facilities.`\
 https://nytimes.com/2025/03/23/world/europe/russia-ukraine-truce-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-a
 **Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
 `From a balcony, Francis greeted hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
 https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
-
-**The Price of a Show**\
-`Tickets for the hottest Broadway plays are now out of reach for many.`\
-https://nytimes.com/2025/03/23/briefing/broadway-ticket-prices.html
-
-**The unlikely rise of Joshua Ravensbergen, the 2025 draft's top goalie prospect**\
-`Ravensbergen is no secret anymore, and his talent as the best goalie in the 2025 draft class is undeniable.`\
-https://nytimes.com/athletic/6203505/2025/03/23/joshua-ravensbergen-2025-nhl-draft/
 
