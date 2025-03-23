@@ -1,3 +1,11 @@
+**Perfect Fish, Cooked Perfectly**\
+`Salmon roasted in butter, with some tender green herbs and thin rounds of lemon, is a memorable meal.`\
+https://nytimes.com/2025/03/23/dining/perfect-salmon-recipe.html
+
+**With No-Confidence Vote, Israeli Cabinet Moves to Fire Attorney General**\
+`Benjamin Netanyahu, the Israeli prime minister, contends the top lawyer sought to undermine him. His critics in Israel call it part of a purge of those he considers disloyal.`\
+https://nytimes.com/2025/03/23/world/middleeast/israel-attorney-general.html
+
 **Max Frankel, Top Times Editor Who Led a Newspaper in Transition, Dies at 94**\
 `As executive editor from 1986 to 1994, he oversaw a period of financial, technological and journalistic change while lifting newsroom morale and diversifying the staff.`\
 https://nytimes.com/2025/03/23/obituaries/max-frankel-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
 **Everton forward Madsen celebrates her first game in a year with surprise on-pitch proposal**\
 `The 27-year-old made her first appearance since March 2024 before her partner, Martin Thomsen, surprised her by proposing.`\
 https://nytimes.com/athletic/6224553/2025/03/23/everton-rikke-madsen-proposal/
-
-**Israel Expands Gaza Offensive and Issues Fresh Evacuation Orders**\
-`The Israeli military took control of more territory and said that operations had moved into additional areas in the north and south of the enclave.`\
-https://nytimes.com/2025/03/23/world/middleeast/gaza-israel-rafah.html
-
-**The Pulse: Finally, some good games**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6224224/2025/03/23/ncaa-sweet-16-mens-the-pulse/
 
