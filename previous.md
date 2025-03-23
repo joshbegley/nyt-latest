@@ -1,3 +1,7 @@
+**The Pulse: Finally, some good games**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6224224/2025/03/23/ncaa-sweet-16-mens-the-pulse/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224192/2025/03/23/auburn-sweet-16-dylan-cardwell-t
 **Inside Carter Starocci's path to 5 national championships for Penn State**\
 `Starocci's 4-3 win in the 184-pound class cemented his place in history as the first Division I wrestler to win five individual NCAA titles.`\
 https://nytimes.com/athletic/6223952/2025/03/23/carter-starocci-penn-state-wrestling-national-champion/
-
-**Liverpool's goalkeeper situation a 'luxury problem' as Alisson remains No 1 - Westerveld**\
-`The former Liverpool goalkeeper thinks a decision will have to be made in the summer over Alisson, Mamardashvili and Kelleher`\
-https://nytimes.com/athletic/6223755/2025/03/23/liverpool-alisson-mamardashvili-goalkeeper/
 
