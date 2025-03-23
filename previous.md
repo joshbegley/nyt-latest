@@ -1,3 +1,7 @@
+**Michigan surges past Texas A&M to keep Big Ten perfect in NCAA Tournament**\
+`No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
+
 **Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
 `Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
 https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223688/2025/03/22/will-wades-coaching-moves-colleg
 **Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
 `The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
 https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
-
-**'This can blow up fast': For Max Scherzer, the stuff is sharp but the thumb is troubling**\
-`Scherzer struck out four Twins over four scoreless innings on Saturday: "I know I can still pitch at a very high level."`\
-https://nytimes.com/athletic/6223709/2025/03/22/blue-jays-max-scherzer-thumb/
 

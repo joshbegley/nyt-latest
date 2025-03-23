@@ -1,3 +1,7 @@
+**Michigan surges past Texas A&M to keep Big Ten perfect in NCAA Tournament**\
+`No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
+
 **Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
 `Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
 https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
