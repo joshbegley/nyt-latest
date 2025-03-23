@@ -1,3 +1,7 @@
+**U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
+`Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
+https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html
+
 **'I'm not stupid' - Is time already running out for Liam Lawson at Red Bull?**\
 `Red Bull will analyse data from the first two races then decide what to do with the New Zealand driver ahead of Japan`\
 https://nytimes.com/athletic/6224632/2025/03/23/liam-lawson-red-bull-yuki-tsunoda-f1-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224512/2025/03/23/real-madrid-femenino-barcelona-f
 **Lowetide: Will Oilers' procurement style change under Stan Bowman?**\
 `The months ahead will be Bowman's first real chance to shape the roster and improve the prospect pool.`\
 https://nytimes.com/athletic/6223033/2025/03/23/edmonton-oilers-signings-stan-bowman-style/
-
-**Pacers, Pistons or Bucks? Who the Knicks should want to see in the NBA playoffs**\
-`The Knicks will face the Bucks, Pistons or Pacers in the first round. Which team should New York want most?`\
-https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-playoffs/
 
