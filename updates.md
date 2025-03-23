@@ -1,3 +1,15 @@
+**U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
+`Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
+https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html
+
+**'I'm not stupid' - Is time already running out for Liam Lawson at Red Bull?**\
+`Red Bull will analyse data from the first two races then decide what to do with the New Zealand driver ahead of Japan`\
+https://nytimes.com/athletic/6224632/2025/03/23/liam-lawson-red-bull-yuki-tsunoda-f1-analysis/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
 `The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
 https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
