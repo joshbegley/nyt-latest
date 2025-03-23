@@ -1,3 +1,7 @@
+**George Foreman: The five greatest moments of his career**\
+`His fights against Cepulis, Frazier, Ali, Lyle and Moorer`\
+https://nytimes.com/athletic/6224887/2025/03/23/george-foreman-the-five-greatest-moments-of-his-career/
+
 **Turkey Protests Continue After Jailing of Erdogan Rival**\
 `The mayor of Istanbul, Ekrem Imamoglu, was jailed pending his trial on corruption charges and removed from office on Sunday. Mr. Imamoglu and his party deny the accusations.`\
 https://nytimes.com/video/world/middleeast/100000010068400/istanbul-turkey-protests-imamoglu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/arts/music/brian-james-dead.html
 **Texas basketball coaching candidates: Who will Longhorns pursue?**\
 `A school and fan base with virtually unlimited resources are back to the drawing board in men's hoops — which may not be the worst thing.`\
 https://nytimes.com/athletic/6218345/2025/03/23/texas-basketball-coaching-candidates-who-will-longhorns-pursue-to-replace-rodney-terry/
-
-**Lindsey Vonn caps season with 138th World Cup podium; Lara Gut-Behrami wins super-G crown**\
-`Lindsey Vonn reached a new peak in her improbable comeback to the sport at age 40, taking a World Cup podium spot Sunday in Idaho.`\
-https://nytimes.com/athletic/6224897/2025/03/23/lindsey-vonn-world-cup-podium-super-g-sun-valley/
 
