@@ -1,5 +1,5 @@
-**Wildfires in South Korea Kill 4 and Injure 6**\
-`Firefighters confronted nearly 30 forest fires in the country’s southeast over the weekend. Most had been extinguished by Sunday, but dry and windy conditions persisted.`\
+**At Least 4 Die After Nearly 30 Wildfires Erupt in South Korea**\
+`Firefighters confronted the forest fires in the country’s southeast over the weekend. Most had been extinguished by Sunday, but dry and windy conditions persisted.`\
 https://nytimes.com/2025/03/23/world/asia/south-korea-wildfires.html
 
 **Wildfire in New Jersey State Park Burns 1,000 Acres**\
