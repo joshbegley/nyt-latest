@@ -1,3 +1,7 @@
+**Wyatt Hendrickson upsets Gable Steveson 5-4 in NCAA heavyweight final**\
+`Steveson previously wrestled Hendrickson in the 2021 NCAA tournament and won 18-2.`\
+https://nytimes.com/athletic/6224188/2025/03/23/wyatt-hendrickson-ohio-state-upset-gable-steveson-ncaa-championship/
+
 **As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
 `"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
 `\
