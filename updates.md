@@ -1,3 +1,19 @@
+**Russian Drone Attack Kills 3 in Kyiv Ahead of Cease-Fire Talks**\
+`The assault underscored the deep mistrust between Russia and Ukraine. U.S.-mediated talks about a partial cease-fire are set to begin in Saudi Arabia later on Sunday.`\
+https://nytimes.com/2025/03/23/world/europe/kyiv-ukraine-attack.html
+
+**How to watch No. 3 Kentucky vs. No. 6 Illinois in the men's NCAA Tournament**\
+`Kentucky is the higher seed, but Illinois is the slight favorite for Sunday's second-round game.`\
+https://nytimes.com/athletic/6223171/2025/03/23/kentucky-illinois-ncaa-tournament-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, March 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/23/todays-new-york-times-international-edition
+
+**How to watch No. 2 TCU vs. No. 7 Louisville: Odds, storylines for women's NCAA Tournament matchup**\
+`Hailey Van Lith leads her new team, TCU, against her old one, Louisville. The second-seeded Horned Frogs are favored Sunday.`\
+https://nytimes.com/athletic/6223101/2025/03/23/tcu-louisville-womens-ncaa-tournament-how-to-watch/
+
 **How to watch the men's March Madness second-round games on Sunday**\
 `Here's how to watch all of Sunday's second-round action, starring Duke, Florida, Alabama and Michigan State.`\
 https://nytimes.com/athletic/6223304/2025/03/23/ncaa-tournament-second-round-sunday-how-to-watch/
