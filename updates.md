@@ -1,3 +1,7 @@
+**Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
+`The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
+https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
+
 **24 most intriguing March Madness players to watch: JuJu Watkins, Ta'Niya Latson and more**\
 `What three duos should you keep an on during the tournament? `\
 https://nytimes.com/athletic/6214492/2025/03/23/womens-march-madness-most-intriguing-players/
