@@ -1,3 +1,11 @@
+**Inside Carter Starocci's path to 5 national championships for Penn State**\
+`Starocci's 4-3 win in the 184-pound class cemented his place in history as the first Division I wrestler to win five individual NCAA titles.`\
+https://nytimes.com/athletic/6223952/2025/03/23/carter-starocci-penn-state-wrestling-national-champion/
+
+**Liverpool's goalkeeper situation a 'luxury problem' as Alisson remains No 1 - Westerveld**\
+`The former Liverpool goalkeeper thinks a decision will have to be made in the summer over Alisson, Mamardashvili and Kelleher`\
+https://nytimes.com/athletic/6223755/2025/03/23/liverpool-alisson-mamardashvili-goalkeeper/
+
 **A Novel Explores the Undersea Cables That Connect the World**\
 `The crew in Colum McCann’s new book makes complex repairs deep in the ocean. Human bonds prove harder to mend.`\
 https://nytimes.com/2025/03/23/books/review/colum-mccann-twist.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/03/23/books/review/colum-mccann-twist.html
 https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-and-pierre-gasly-disqualified-from-chinese-grand-prix/
 
 **Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
-`Francis appeared on a balcony to greet hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
+`From a balcony, Francis greeted hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
 https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
 
 **The Price of a Show**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/opinion/trump-canada-ukraine.html
 **It’s Trump vs. the Courts, and It Won’t End Well for Trump**\
 `The judiciary will never surrender to the president its constitutional role to interpret the Constitution.`\
 https://nytimes.com/2025/03/23/opinion/trump-judge-venezuela-deportation.html
-
-**March badness: This month shows the worst of NBA, but would the league ever change that?**\
-`In March, because of attrition, rest and a quest to get great lottery odds, NBA fans are often paying to see an inferior product.`\
-https://nytimes.com/athletic/6204546/2025/03/23/nba-bad-march-league-changes/
-
-**Bring Back the Boycott**\
-`Church-led campaigns against businesses for retreating from D.E.I. promises are a form of pastoral ministry for those who feel ignored or forgotten.`\
-https://nytimes.com/2025/03/23/opinion/target-black-boycott.html
 
