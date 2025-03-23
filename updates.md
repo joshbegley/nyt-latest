@@ -1,3 +1,15 @@
+**Turkey Protests Continue After Jailing of Erdogan Rival**\
+`The mayor of Istanbul, Ekrem Imamoglu, was jailed pending his trial on corruption charges and removed from office on Sunday. Mr. Imamoglu and his party deny the accusations.`\
+https://nytimes.com/video/world/middleeast/100000010068400/istanbul-turkey-protests-imamoglu.html
+
+**The Foreman-Ali Rumble That Changed Their Careers, and Congo**\
+`Half a century ago, the “Rumble in the Jungle” became not just a fight between George Foreman and Muhammad Ali, but a cultural touchstone.`\
+https://nytimes.com/2025/03/23/world/africa/george-foreman-muhammad-ali-rumble-jungle.html
+
+**Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
+`Duke trailed by five at halftime before coming back. Notre Dame's Olivia Miles returns in victory.`\
+https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
+
 **Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
 `Duke trailed by five at halftime before coming back. Notre Dame gets 7-of-7 shooting from a starter for easy win.`\
 https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
