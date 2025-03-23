@@ -1,3 +1,11 @@
+**Pacers, Pistons or Bucks? Who the Knicks should want to see in the NBA playoffs**\
+`The Knicks will face the Bucks, Pistons or Pacers in the first round. Which team should New York want most?`\
+https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-playoffs/
+
+**For Sale: Pieces of Willie Brown’s Style**\
+`Mr. Brown, the former mayor of San Francisco, has stood out not just for his politics but also his style. Now, he has opened his closet to raise money for charity.`\
+https://nytimes.com/2025/03/23/us/willie-brown-clothes-auction.html
+
 **The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
 `It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
 https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/opinion/democrats-government-efficiency.html
 **The Lakers are finally whole. Now they must get 'reconnected' fast**\
 `Despite getting LeBron James and Rui Hachimura back, the Lakers were embarrassed by their worst defensive performance of the season.`\
 https://nytimes.com/athletic/6224242/2025/03/23/lakers-lebron-james-return-bulls-loss-nba/
-
-**Yoko Ono, Demonized No Longer**\
-`David Sheff’s new biography convincingly argues for John Lennon’s widow as a feminist, activist, avant-garde artist and world-class sass.`\
-https://nytimes.com/2025/03/23/books/review/yoko-ono-biography-david-sheff.html
-
-**Russia and Ukraine to Hold U.S.-Mediated Talks: What to Know**\
-`American envoys will meet with Ukrainian officials on Sunday and with Russian officials the following day. The discussions are expected to focus on halting attacks on energy facilities.`\
-https://nytimes.com/2025/03/23/world/europe/russia-ukraine-truce-talks.html
 
