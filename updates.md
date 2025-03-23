@@ -1,3 +1,11 @@
+**The Lakers are finally whole. Now they must get 'reconnected' fast**\
+`Despite getting LeBron James and Rui Hachimura back, the Lakers were embarrassed by their worst defensive performance of the season.`\
+https://nytimes.com/athletic/6224242/2025/03/23/lakers-lebron-james-return-bulls-loss-nba/
+
+**Yoko Ono, Demonized No Longer**\
+`David Sheff’s new biography convincingly argues for John Lennon’s widow as a feminist, activist, avant-garde artist and world-class sass.`\
+https://nytimes.com/2025/03/23/books/review/yoko-ono-biography-david-sheff.html
+
 **Russia and Ukraine to Hold U.S.-Mediated Talks: What to Know**\
 `American envoys will meet with Ukrainian officials on Sunday and with Russian officials the following day. The discussions are expected to focus on halting attacks on energy facilities.`\
 https://nytimes.com/2025/03/23/world/europe/russia-ukraine-truce-talks.html
