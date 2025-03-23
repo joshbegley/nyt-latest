@@ -1,3 +1,7 @@
+**Wildfire in New Jersey State Park Burns 1,000 Acres**\
+`Crews were working overnight to contain the fast-growing fire in the Wharton State Forest, southeast of Philadelphia. Two campgrounds had been evacuated.`\
+https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
+
 **Wrexham, Stockport County and a new rivalry for the ages**\
 `These two clubs have ascended from the National League to the League One promotion race, with familiarity fuelling on-field animosity`\
 https://nytimes.com/athletic/6215051/2025/03/23/wrexham-stockport-county-rivalry/

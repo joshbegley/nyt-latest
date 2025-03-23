@@ -1,3 +1,7 @@
+**Wildfire in New Jersey State Park Burns 1,000 Acres**\
+`Crews were working overnight to contain the fast-growing fire in the Wharton State Forest, southeast of Philadelphia. Two campgrounds had been evacuated.`\
+https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
+
 **Wrexham, Stockport County and a new rivalry for the ages**\
 `These two clubs have ascended from the National League to the League One promotion race, with familiarity fuelling on-field animosity`\
 https://nytimes.com/athletic/6215051/2025/03/23/wrexham-stockport-county-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221549/2025/03/23/linfield-jamie-mulgrew-title-cap
 **FC100,000: Why the man behind failed MyFootballClub experiment at Ebbsfleet is trying again**\
 `The original supporter-controlled football club experiment ran into problems but they say lessons have been learned`\
 https://nytimes.com/athletic/6210543/2025/03/23/fc100000-myfootballclub-ebsfleet-fan/
-
-**Chelsea have reasons behind doing their business in March - and want this to be a habit**\
-`Chelsea have already made two signings — but why are they moving so swiftly to snap up new additions?`\
-https://nytimes.com/athletic/6221841/2025/03/23/chelsea-transfer-business-march-why/
 
