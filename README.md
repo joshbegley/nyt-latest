@@ -1,3 +1,7 @@
+**Turkey Jails Istanbul Mayor Who Was Expected to Run for President**\
+`Supporters of the mayor, Ekrem Imamoglu, said that corruption charges against him were a ploy to sideline the main political rival of President Recep Tayyip Erdogan.`\
+https://nytimes.com/2025/03/23/world/middleeast/turkey-ekrem-imamoglu-istanbul.html
+
 **Saving the Paper, and Our Memory of the Pandemic**\
 `A print archive of 2020 preserves “what the editors were thinking” when the coronavirus pandemic erupted.`\
 https://nytimes.com/2025/03/23/pageoneplus/saving-the-paper-and-our-memory-of-the-pandemic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
 **Wrexham, Stockport County and a new rivalry for the ages**\
 `These two clubs have ascended from the National League to the League One promotion race, with familiarity fuelling on-field animosity`\
 https://nytimes.com/athletic/6215051/2025/03/23/wrexham-stockport-county-rivalry/
-
-**Clubs dream big on stadiums - but what do previous projects tell us about vision versus reality?**\
-`Manchester United have bold ambitions for their new stadium but it can be a long road to an artist's impression becoming reality`\
-https://nytimes.com/athletic/6218812/2025/03/23/football-stadiums-manchester-united-vision-reality/
 
