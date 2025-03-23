@@ -1,3 +1,11 @@
+**With Alexis Díaz starting season on IL, who closes for the Reds?**\
+`The Reds have a host of candidates, yet no obvious choices, to close out games this season. Let's break them down.`\
+https://nytimes.com/athletic/6224716/2025/03/23/with-alexis-diaz-starting-season-on-il-who-closes-for-the-reds/
+
+**Tigers signing veteran outfielder Manuel Margot to major-league deal**\
+`The Tigers are signing Margot to help an outfield that will be without Parker Meadows and Matt Vierling to begin the season.`\
+https://nytimes.com/athletic/6224833/2025/03/23/detroit-tigers-manuel-margot-contract/
+
 **Schumer Again Defends Decision to Avoid Shutdown Amid Calls to Resign**\
 `Senator Chuck Schumer of New York, the minority leader, said a government shutdown would have been “10 or 20 times worse” than the Republican stopgap spending bill`\
 https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections
 **Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
 `The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
 https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
-
-**Perfect Fish, Cooked Perfectly**\
-`Salmon roasted in butter, with some tender green herbs and thin rounds of lemon, is a memorable meal.`\
-https://nytimes.com/2025/03/23/dining/perfect-salmon-recipe.html
-
-**With No-Confidence Vote, Israeli Cabinet Moves to Fire Attorney General**\
-`Benjamin Netanyahu, the Israeli prime minister, contends the top lawyer sought to undermine him. His critics in Israel call it part of a purge of those he considers disloyal.`\
-https://nytimes.com/2025/03/23/world/middleeast/israel-attorney-general.html
 
