@@ -1,40 +1,40 @@
-**Oscar Piastri wins, McLaren dominates, positives for Lewis Hamilton - Chinese GP briefing**\
-`Oscar Piastri secures third career win as McLaren dominates Chinese Grand Prix`\
-https://nytimes.com/athletic/6224332/2025/03/23/chinese-grand-prix-results-recap-oscar-piastri/
+**Disney’s ‘Snow White’ Has a Sleepy Box Office Start**\
+`The polarizing remake was expected to collect $45 million, a weak result compared with openings for similar Disney films.`\
+https://nytimes.com/2025/03/23/business/disney-snow-white-box-office.html
 
-**Turkey Jails Istanbul Mayor Who Was Expected to Run for President**\
-`Supporters of the mayor, Ekrem Imamoglu, said that corruption charges against him were a ploy to sideline the main political rival of President Recep Tayyip Erdogan.`\
-https://nytimes.com/2025/03/23/world/middleeast/turkey-ekrem-imamoglu-istanbul.html
+**As the Left Looks to 2028, It Waits on Ocasio-Cortez’s Big Decision**\
+`With Bernie Sanders unlikely to run for president again and Democratic voters fuming at party leaders, many progressives see an open lane. But who will fill it?`\
+https://nytimes.com/2025/03/23/us/politics/aoc-sanders-democrats-2028.html
 
-**Saving the Paper, and Our Memory of the Pandemic**\
-`A print archive of 2020 preserves “what the editors were thinking” when the coronavirus pandemic erupted.`\
-https://nytimes.com/2025/03/23/pageoneplus/saving-the-paper-and-our-memory-of-the-pandemic.html
+**Why Does Big Bird Look So Sad?**\
+`Sesame Workshop, the nonprofit behind “Sesame Street,” is confronting what executives have described as a “perfect storm” of problems.`\
+https://nytimes.com/2025/03/23/business/media/sesame-street-layoffs-funding-cuts.html
 
-**Can Zohran Mamdani, a Socialist and TikTok Savant, Become N.Y.C. Mayor?**\
-`The progressive state assemblyman from Queens is building a new coalition of voters for his mayoral campaign, which has focused on the city’s lack of affordability.`\
-https://nytimes.com/2025/03/23/nyregion/zohran-mamdani-mayor.html
+**A Doll That Gives Toddlers a Taste for Finer Things**\
+`Meghan, Duchess of Sussex, is a fan.`\
+https://nytimes.com/2025/03/23/style/meghan-markle-sussex-stella-al-fresco-doll.html
 
-**‘I Told Her How Pretty Her Comb Was and Asked Where I Could Buy One’**\
-`A slow ride up Madison Avenue, a helping hand at the post office and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/03/23/nyregion/metropolitan-diary.html
+**How Are Democrats Responding to Trump?**\
+`The Democratic party is still grasping for a coherent response to the new Trump administration. Lisa Lerer, national politics correspondent for The New York Times, breaks Democrats into four categories to explain how to make sense of the fractured Democratic opposition.`\
+https://nytimes.com/video/us/politics/100000010059382/democrats-responding-to-trump.html
 
-**The Synagogue Massacre That Never Happened**\
-`They were two troubled young men, hurtling toward an atrocity. One was the grandson of a Holocaust survivor.`\
-https://nytimes.com/2025/03/23/nyregion/synagogue-shooting-plot.html
+**Taiwan President’s Gambit: Time for a Tougher Stance on China**\
+`Lai Ching-te, the president of Taiwan, may be betting that China’s appetite for retaliation will be limited by Beijing’s interest in containing tensions with the Trump administration.`\
+https://nytimes.com/2025/03/23/world/asia/taiwan-china-trump.html
 
-**Photos of Willem de Kooning, Unseen Until Now**\
-`Images from 1965 of the pre-eminent artist were stored in The Times’s archives and only recently developed.`\
-https://nytimes.com/2025/03/23/insider/photos-of-willem-de-kooning-unseen-until-now.html
+**A Hare, a Fox, an Owl, a Snail: Animal Memoirs Are Going Wild**\
+`Books about writers’ dogs and cats are a literary staple. Now there’s a booming subset of memoirs about writers’ relationships with less domestic creatures.`\
+https://nytimes.com/2025/03/23/books/memoir-wild-animals-raising-hare.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/23/crosswords/spelling-bee-forum.html
+**How to watch No. 1 Duke vs. No. 9 Baylor in the men's NCAA Tournament**\
+`Duke takes on Baylor in the second round of the men's NCAA Tournament. Cooper Flagg looks healthy. How far can Duke go?`\
+https://nytimes.com/athletic/6223161/2025/03/23/duke-baylor-ncaa-tournament-how-to-watch/
 
-**At Least 4 Die After Nearly 30 Wildfires Erupt in South Korea**\
-`Firefighters confronted the forest fires in the country’s southeast over the weekend. Most had been extinguished by Sunday, but dry and windy conditions persisted.`\
-https://nytimes.com/2025/03/23/world/asia/south-korea-wildfires.html
+**Migrants Deported to Panama Ask: ‘Where Am I Going to Go?’**\
+`Dozens of stranded migrants sleep on mattresses in a school gymnasium. In interviews, 25 deportees from around the world said they were stuck in limbo.`\
+https://nytimes.com/2025/03/23/world/americas/migrants-panama-trump-stranded.html
 
-**Wildfire in New Jersey State Park Burns 1,000 Acres**\
-`Crews were working overnight to contain the fast-growing fire in the Wharton State Forest, southeast of Philadelphia. Two campgrounds had been evacuated.`\
-https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
+**An American Helped Build Russia’s Economy. He Was Jailed on Bogus Charges.**\
+`As President Trump promotes renewed business ties with Russia, an American investor has a warning: Anyone there can become a pawn.`\
+https://nytimes.com/2025/03/23/world/europe/michael-calvey-russia-jailed.html
 
