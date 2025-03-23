@@ -1,3 +1,11 @@
+**9 Mayoral Candidates Unite to Attack Cuomo on Nursing Home Deaths**\
+`Nearly all the people running for New York City mayor appeared at a Covid memorial event with a shared message: Former Gov. Andrew M. Cuomo’s pandemic response is a reason not to support him.`\
+https://nytimes.com/2025/03/23/nyregion/cuomo-nursing-homes-nyc-mayoral-candidates.html
+
+**Sudan’s Military Sweeps Across Capital, Hoping to Turn the War**\
+`In the first visit by Western journalists to central Khartoum since the civil war broke out two years ago, the scale of how much has been lost was inescapable.`\
+https://nytimes.com/2025/03/23/world/africa/sudan-civil-war-khartoum.html
+
 **Thomas Tuchel says he will not do clubs favours as England head coach**\
 `Thomas Tuchel will not go out of his way to do favours to clubs when it comes to selecting his England team.`\
 https://nytimes.com/athletic/6224589/2025/03/23/thomas-tuchel-england-clubs-favours/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-nca
 **Venezuela Accepts Flight Carrying Deportees From U.S. for First Time in Weeks**\
 `The Venezuelan government had come under intense pressure from the Trump administration to resume accepting deportation flights.`\
 https://nytimes.com/2025/03/23/us/politics/venezuela-us-deportation-flight.html
-
-**Sancho: Chelsea to pay Man United £5m if they do not sign winger permanently**\
-`The 24-year-old winger had a positive start to life at Chelsea but has failed to maintain his early season form.`\
-https://nytimes.com/athletic/6225211/2025/03/23/jadon-sancho-chelsea-man-united-transfer-permanent/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

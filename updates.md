@@ -1,3 +1,11 @@
+**9 Mayoral Candidates Unite to Attack Cuomo on Nursing Home Deaths**\
+`Nearly all the people running for New York City mayor appeared at a Covid memorial event with a shared message: Former Gov. Andrew M. Cuomo’s pandemic response is a reason not to support him.`\
+https://nytimes.com/2025/03/23/nyregion/cuomo-nursing-homes-nyc-mayoral-candidates.html
+
+**Sudan’s Military Sweeps Across Capital, Hoping to Turn the War**\
+`In the first visit by Western journalists to central Khartoum since the civil war broke out two years ago, the scale of how much has been lost was inescapable.`\
+https://nytimes.com/2025/03/23/world/africa/sudan-civil-war-khartoum.html
+
 **Thomas Tuchel says he will not do clubs favours as England head coach**\
 `Thomas Tuchel will not go out of his way to do favours to clubs when it comes to selecting his England team.`\
 https://nytimes.com/athletic/6224589/2025/03/23/thomas-tuchel-england-clubs-favours/
