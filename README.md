@@ -1,3 +1,8 @@
+**As Pat Maroon announces plans to retire from NHL, Blues fans bid farewell to hometown hero**\
+`The St. Louis native, who won a Stanley Cup with the Blues in 2019, was emotional Saturday as he shared plans to retire after 14 seasons.
+`\
+https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
+
 **Canada roars to first in first day of San Francisco SailGP**\
 `The Canadians notched the most consistent performance of the 11-boat fleet, scoring 5, 1, 2, 1 across the four heats.`\
 https://nytimes.com/athletic/6224064/2025/03/22/san-francisco-sail-gp-canada-spain/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournamen
 **Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
 `Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
 https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
-
-**Blues call up top prospect Dalibor Dvorsky from AHL**\
-`The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
-https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
 

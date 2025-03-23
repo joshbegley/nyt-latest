@@ -1,3 +1,7 @@
+**Canada roars to first in first day of San Francisco SailGP**\
+`The Canadians notched the most consistent performance of the 11-boat fleet, scoring 5, 1, 2, 1 across the four heats.`\
+https://nytimes.com/athletic/6224064/2025/03/22/san-francisco-sail-gp-canada-spain/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
 **Blues call up top prospect Dalibor Dvorsky from AHL**\
 `The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
 https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
-
-**The I.R.S. is preparing to help ICE locate immigrants targeted for deportation.**\
-`The tax agency is nearing an agreement to verify whether ICE officials have the right address for people they are trying to deport.`\
-https://nytimes.com/live/2025/03/22/us/trump-news/the-irs-is-preparing-to-help-ice-locate-immigrants-targeted-for-deportation
 

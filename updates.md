@@ -1,3 +1,7 @@
+**Canada roars to first in first day of San Francisco SailGP**\
+`The Canadians notched the most consistent performance of the 11-boat fleet, scoring 5, 1, 2, 1 across the four heats.`\
+https://nytimes.com/athletic/6224064/2025/03/22/san-francisco-sail-gp-canada-spain/
+
 **Michigan made it clear vs. Texas A&M: Count out Wolverines at your own risk**\
 `No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
