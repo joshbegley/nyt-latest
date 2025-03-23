@@ -1,3 +1,11 @@
+**Finally at full strength in March, Houston puts on offensive clinic to reach Sweet 16**\
+`Houston is once again the best defensive team in the nation, but it's also the most efficient offensive team Kelvin Sampson has coached.`\
+https://nytimes.com/athletic/6224077/2025/03/22/houston-gonzaga-ncaa-tournament-result/
+
+**Maple Leafs report cards: Strong start erased by poor finish in Nashville**\
+`Toronto scored two goals in the first period but then allowed 5 unanswered to the Predators for a 5-2 loss.`\
+https://nytimes.com/athletic/6224126/2025/03/22/maple-leafs-predators-grades-analysis/
+
 **Blue Jays sign Alejandro Kirk to 5-year extension: Source**\
 `The Blue Jays inked Kirk, who is strong defensively and at the plate, to an extension worth $58 million. `\
 https://nytimes.com/athletic/6224154/2025/03/22/blue-jays-alejandro-kirk-contract-extension/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6224005/2025/03/22/st-johns-rick-pitino-arkansas-ma
 **Loss to Panama reveals USMNT's to-do list, starting with third-place game**\
 `There's a ways to go if the USMNT is to have a successful World Cup on home soil.`\
 https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations-league-pochettino/
-
-**Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
-`Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
-https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
-
-**Michigan made it clear vs. Texas A&M: Count out Wolverines at your own risk**\
-`No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
 
