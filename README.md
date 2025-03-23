@@ -1,4 +1,4 @@
-**Wisconsin defeats Ohio State to win NCAA women’s hockey national championship**\
+**Wisconsin defeats Ohio State to win NCAA women's hockey national championship**\
 `The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
 https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/
 
