@@ -1,3 +1,7 @@
+**Oscar Piastri wins Chinese Grand Prix as McLaren dominates with one-two finish**\
+`Oscar Piastri secures third career win as McLaren dominates Chinese Grand Prix`\
+https://nytimes.com/athletic/6224332/2025/03/23/chinese-grand-prix-results-recap-oscar-piastri/
+
 **Turkey Jails Istanbul Mayor Who Was Expected to Run for President**\
 `Supporters of the mayor, Ekrem Imamoglu, said that corruption charges against him were a ploy to sideline the main political rival of President Recep Tayyip Erdogan.`\
 https://nytimes.com/2025/03/23/world/middleeast/turkey-ekrem-imamoglu-istanbul.html
