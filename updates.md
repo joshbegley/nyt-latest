@@ -1,3 +1,11 @@
+**With Alexis Díaz starting season on IL, who closes for the Reds?**\
+`The Reds have a host of candidates, yet no obvious choices, to close out games this season. Let's break them down.`\
+https://nytimes.com/athletic/6224716/2025/03/23/with-alexis-diaz-starting-season-on-il-who-closes-for-the-reds/
+
+**Tigers signing veteran outfielder Manuel Margot to major-league deal**\
+`The Tigers are signing Margot to help an outfield that will be without Parker Meadows and Matt Vierling to begin the season.`\
+https://nytimes.com/athletic/6224833/2025/03/23/detroit-tigers-manuel-margot-contract/
+
 **Schumer Again Defends Decision to Avoid Shutdown Amid Calls to Resign**\
 `Senator Chuck Schumer of New York, the minority leader, said a government shutdown would have been “10 or 20 times worse” than the Republican stopgap spending bill`\
 https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
