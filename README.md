@@ -1,3 +1,7 @@
+**Clubs dream big on stadiums - but what do previous projects tell us about vision versus reality?**\
+`Manchester United have bold ambitions for their new stadium but it can be a long road to an artist's impression becoming reality`\
+https://nytimes.com/athletic/6218812/2025/03/23/football-stadiums-manchester-united-vision-reality/
+
 **Tkachuk's health under microscope in Senators win over Devils: 3 takeaways**\
 `The Sens also found success thanks to the play of Claude Giroux and Linus Ullmark. Plus, a look at Fabian Zetterlund's top-line fit so far. `\
 https://nytimes.com/athletic/6223945/2025/03/23/senators-hip-brady-tkachuk-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221841/2025/03/23/chelsea-transfer-business-march-
 **The New York Times in Print for Sunday, March 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/23/todays-new-york-times
-
-**Duterte Is Getting His Day in Court. His Victims Never Did.**\
-`In Duterte’s Philippines, due process was not a right, it was a privilege that was not extended to the victims of his drug war.`\
-https://nytimes.com/2025/03/23/opinion/duterte-icc-drugs-victims.html
 
