@@ -1,3 +1,7 @@
+**How to watch No. 3 Notre Dame vs. No. 6 Michigan in the women's NCAA Tournament**\
+`Notre Dame hosts Michigan in the second round of the women's NCAA Tournament. Will Hannah Hidalgo and the Fighting Irish advance?`\
+https://nytimes.com/athletic/6221888/2025/03/23/notre-dame-michigan-womens-ncaa-tournament-how-to-watch/
+
 **Disney’s ‘Snow White’ Has a Sleepy Box Office Start**\
 `The polarizing remake was expected to collect $45 million, a weak result compared with openings for similar Disney films.`\
 https://nytimes.com/2025/03/23/business/disney-snow-white-box-office.html
