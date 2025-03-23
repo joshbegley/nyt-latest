@@ -1,3 +1,7 @@
+**DoorDash Announces ‘Buy Now, Pay Later’ Partnership With Klarna**\
+`DoorDash said the arrangement with the financial tech service Klarna would allow customers to defer payments on orders such as takeout from restaurants, makeup and electronics.`\
+https://nytimes.com/2025/03/23/business/doordash-klarna-payments.html
+
 **Alex Eala stuns Australian Open champion Madison Keys in Miami for best career win**\
 `Eala's triumph over Keys was her second top-30 win of the tournament — and the second in the Philippines' history since WTA rankings began.`\
 https://nytimes.com/athletic/6225138/2025/03/23/tennis-alex-eala-madison-keys-result-analysis-miami/
