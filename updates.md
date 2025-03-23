@@ -1,3 +1,11 @@
+**A Trump-Friendly Crowd Shows Its Love. But Not for Musk.**\
+`President Trump and Elon Musk took in the Division I wrestling championship in Philadelphia on Saturday. But some of Mr. Trump’s supporters expressed complicated feelings about his billionaire adviser.`\
+https://nytimes.com/2025/03/23/us/politics/trump-musk-ncaa-wrestling-philadelphia.html
+
+**Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
+`Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
+https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
+
 **Women's March Madness second round takeaways: Duke survives for another Sweet 16 berth**\
 `Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
 https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
