@@ -1,3 +1,11 @@
+**Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
+`Francis appeared on a balcony to greet hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
+https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
+
+**The Price of a Show**\
+`Tickets for the hottest Broadway plays are now out of reach for many.`\
+https://nytimes.com/2025/03/23/briefing/broadway-ticket-prices.html
+
 **The unlikely rise of Joshua Ravensbergen, the 2025 draft's top goalie prospect**\
 `Ravensbergen is no secret anymore, and his talent as the best goalie in the 2025 draft class is undeniable.`\
 https://nytimes.com/athletic/6203505/2025/03/23/joshua-ravensbergen-2025-nhl-draft/

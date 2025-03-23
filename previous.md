@@ -1,3 +1,11 @@
+**Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
+`Francis appeared on a balcony to greet hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
+https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
+
+**The Price of a Show**\
+`Tickets for the hottest Broadway plays are now out of reach for many.`\
+https://nytimes.com/2025/03/23/briefing/broadway-ticket-prices.html
+
 **The unlikely rise of Joshua Ravensbergen, the 2025 draft's top goalie prospect**\
 `Ravensbergen is no secret anymore, and his talent as the best goalie in the 2025 draft class is undeniable.`\
 https://nytimes.com/athletic/6203505/2025/03/23/joshua-ravensbergen-2025-nhl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/opinion/ai-outsource-writing-memoir.html
 **Women's March Madness power rankings: UConn looks like a team on a mission**\
 `Hailey Van Lith is headed for a showdown vs. Louisville. Lauren Betts helps UCLA roll. Kansas State's Ayoka Lee returns. `\
 https://nytimes.com/athletic/6224245/2025/03/23/womens-march-madness-power-rankings/
-
-**Who Am I if the Mets Are Good?**\
-`My dedication to the Mets has always been defined by their status as lovable losers. What happens if they start winning?`\
-https://nytimes.com/2025/03/23/opinion/mets-baseball-new-york.html
-
-**Failed Conversion Therapy (With a Side of Ranch) at Hooters**\
-`Many fathers and grandfathers take their gay sons to the bar. It’s become a place of refuge — and how that happened is a curious story.`\
-https://nytimes.com/2025/03/23/opinion/hooters-gay-family.html
 
