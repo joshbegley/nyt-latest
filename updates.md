@@ -1,3 +1,11 @@
+**Lindsey Vonn caps season with 138th World Cup podium; Lara Gut-Behrami wins super-G crown**\
+`Lindsey Vonn reached a new peak in her improbable comeback to the sport at age 40, taking a World Cup podium spot Sunday in Idaho.`\
+https://nytimes.com/athletic/6224897/2025/03/23/lindsey-vonn-world-cup-podium-super-g-sun-valley/
+
+**Rodney Terry out as Texas men's basketball coach after First Four loss**\
+`Terry guided Texas to the Elite Eight as the interim head coach in 2023, but the Longhorns regressed the last two seasons.`\
+https://nytimes.com/athletic/6193726/2025/03/23/rodney-terry-fired-texas-basketball/
+
 **Blue Jackets Sunday Gathering: Waddell is open to long contracts for Fantilli, others**\
 `Columbus long has preferred "bridge" deals for younger players, but that could change.`\
 https://nytimes.com/athletic/6223940/2025/03/23/blue-jackets-contract-fantilli-sillinger/
