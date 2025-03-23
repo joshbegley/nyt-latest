@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blac
 `\
 https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
 
+**As Pat Maroon announces plans to retire from NHL, Blues fans bid farewell to hometown hero**\
+`The St. Louis native, who won a Stanley Cup with the Blues in 2019, was emotional Saturday as he shared plans to retire after 14 seasons.
+`\
+https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
+
 **Canada roars to first in first day of San Francisco SailGP**\
 `The Canadians notched the most consistent performance of the 11-boat fleet, scoring 5, 1, 2, 1 across the four heats.`\
 https://nytimes.com/athletic/6224064/2025/03/22/san-francisco-sail-gp-canada-spain/
