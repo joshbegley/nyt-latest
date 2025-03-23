@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2
 `The White House has moved to turn its Easter Egg Roll, a tradition that stretches back to Rutherford B. Hayes, into a chance to showcase brands.`\
 https://nytimes.com/2025/03/23/us/politics/trump-easter-egg-roll-sponsors.html
 
-**Phillies notes: The lineup(s), a new reliever, rotation plans, and best defensive outfield**\
+**Phillies notes: The lineup(s), a new reliever, rotation plans and best defensive outfield**\
 `After thinking about it for months, manager Rob Thomson has settled on this: He will not have a settled batting order.`\
 https://nytimes.com/athletic/6225189/2025/03/23/phillies-news-lineup-rotation-outfield/
 
