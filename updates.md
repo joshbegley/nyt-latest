@@ -1,3 +1,7 @@
+**Michigan made it clear vs. Texas A&M: Count out Wolverines at your own risk**\
+`No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
+
 **Auburn outlasts Creighton, heads to Sweet 16 for first time since 2019**\
 `Bruce Pearl has now won nine NCAA Tournament games at Auburn, tops in program history.`\
 https://nytimes.com/athletic/6224001/2025/03/22/auburn-creighton-sweet-16-ncaa-tournament/
