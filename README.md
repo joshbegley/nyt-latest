@@ -1,3 +1,7 @@
+**DoorDash Announces ‘Buy Now, Pay Later’ Partnership With Klarna**\
+`DoorDash said the arrangement with the financial tech service Klarna would allow customers to defer payments on orders such as takeout from restaurants, makeup and electronics.`\
+https://nytimes.com/2025/03/23/business/doordash-klarna-payments.html
+
 **Alex Eala stuns Australian Open champion Madison Keys in Miami for best career win**\
 `Eala's triumph over Keys was her second top-30 win of the tournament — and the second in the Philippines' history since WTA rankings began.`\
 https://nytimes.com/athletic/6225138/2025/03/23/tennis-alex-eala-madison-keys-result-analysis-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
 **Cardinals finalize Opening Day roster as Victor Scott II wins center-field job**\
 `The Cardinals will use a five-man rotation for the first three weeks of the season before switching to a six-man rotation on April 16.`\
 https://nytimes.com/athletic/6218906/2025/03/23/cardinals-opening-day-roster-victor-scott-ii/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
