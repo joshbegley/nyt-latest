@@ -1,3 +1,11 @@
+**Auburn outlasts Creighton, heads to Sweet 16 for first time since 2019**\
+`Bruce Pearl has now won nine NCAA Tournament games at Auburn, tops in program history.`\
+https://nytimes.com/athletic/6224001/2025/03/22/auburn-creighton-sweet-16-ncaa-tournament/
+
+**How Rick Pitino's magical season with St. John's came to an end vs. Arkansas**\
+`Rick Pitino's St. John’s revival carries more weight than one bad day, but the Red Storm's season came to an end vs. Arkansas.`\
+https://nytimes.com/athletic/6224005/2025/03/22/st-johns-rick-pitino-arkansas-march-madness/
+
 **Loss to Panama reveals USMNT's to-do list, starting with third-place game**\
 `There's a ways to go if the USMNT is to have a successful World Cup on home soil.`\
 https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations-league-pochettino/
