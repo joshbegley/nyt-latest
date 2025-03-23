@@ -1,3 +1,11 @@
+**Texas basketball coaching candidates: Who will Longhorns pursue?**\
+`A school and fan base with virtually unlimited resources are back to the drawing board in men's hoops — which may not be the worst thing.`\
+https://nytimes.com/athletic/6218345/2025/03/23/texas-basketball-coaching-candidates-who-will-longhorns-pursue-to-replace-rodney-terry/
+
+**Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
+`The family announced that Miller Gardner died in his sleep while on vacation on March 21.`\
+https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
+
 **Lindsey Vonn caps season with 138th World Cup podium; Lara Gut-Behrami wins super-G crown**\
 `Lindsey Vonn reached a new peak in her improbable comeback to the sport at age 40, taking a World Cup podium spot Sunday in Idaho.`\
 https://nytimes.com/athletic/6224897/2025/03/23/lindsey-vonn-world-cup-podium-super-g-sun-valley/
