@@ -1,3 +1,7 @@
+**Wildfires in South Korea Kill 4 and Injure 6**\
+`Firefighters confronted nearly 30 forest fires in the country’s southeast over the weekend. Most had been extinguished by Sunday, but dry and windy conditions persisted.`\
+https://nytimes.com/2025/03/23/world/asia/south-korea-wildfires.html
+
 **Wildfire in New Jersey State Park Burns 1,000 Acres**\
 `Crews were working overnight to contain the fast-growing fire in the Wharton State Forest, southeast of Philadelphia. Two campgrounds had been evacuated.`\
 https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221707/2025/03/23/chris-richards-usmnt-crystal-pal
 **Jamie Mulgrew, an 11th league title with Linfield and the thirst for further success**\
 `The midfielder has been a stalwart at the Belfast club for almost 20 years but was initially oblivious he had won his latest winner's medal`\
 https://nytimes.com/athletic/6221549/2025/03/23/linfield-jamie-mulgrew-title-captain/
-
-**FC100,000: Why the man behind failed MyFootballClub experiment at Ebbsfleet is trying again**\
-`The original supporter-controlled football club experiment ran into problems but they say lessons have been learned`\
-https://nytimes.com/athletic/6210543/2025/03/23/fc100000-myfootballclub-ebsfleet-fan/
 
