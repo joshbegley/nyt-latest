@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blac
 `\
 https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
 
+**As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
+`"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
+`\
+https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
+
 **Finally at full strength in March, Houston puts on offensive clinic to reach Sweet 16**\
 `Houston is once again the best defensive team in the nation, but it's also the most efficient offensive team Kelvin Sampson has coached.`\
 https://nytimes.com/athletic/6224077/2025/03/22/houston-gonzaga-ncaa-tournament-result/

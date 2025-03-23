@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Four Takeaways From Keir Starmer’s Conversations With The New York Times**\
 `The British prime minister said Putin would break any peace deal unless Ukraine gets robust security guarantees and that preserving the U.S.-British relationship was crucial.`\
 https://nytimes.com/2025/03/23/world/europe/keir-starmer-interview-takeaways.html
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/6224126/2025/03/22/maple-leafs-predators-grades-ana
 **Blue Jays sign Alejandro Kirk to 5-year extension: Source**\
 `The Blue Jays inked Kirk, who is strong defensively and at the plate, to an extension worth $58 million. `\
 https://nytimes.com/athletic/6224154/2025/03/22/blue-jays-alejandro-kirk-contract-extension/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
 `"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
