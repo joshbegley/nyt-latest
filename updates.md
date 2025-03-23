@@ -1,3 +1,7 @@
+**How to watch the men's March Madness second-round games on Sunday**\
+`Here's how to watch all of Sunday's second-round action, starring Duke, Florida, Alabama and Michigan State.`\
+https://nytimes.com/athletic/6223304/2025/03/23/ncaa-tournament-second-round-sunday-how-to-watch/
+
 **How to watch No. 3 Notre Dame vs. No. 6 Michigan in the women's NCAA Tournament**\
 `Notre Dame hosts Michigan in the second round of the women's NCAA Tournament. Will Hannah Hidalgo and the Fighting Irish advance?`\
 https://nytimes.com/athletic/6221888/2025/03/23/notre-dame-michigan-womens-ncaa-tournament-how-to-watch/

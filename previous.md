@@ -1,3 +1,7 @@
+**How to watch the men's March Madness second-round games on Sunday**\
+`Here's how to watch all of Sunday's second-round action, starring Duke, Florida, Alabama and Michigan State.`\
+https://nytimes.com/athletic/6223304/2025/03/23/ncaa-tournament-second-round-sunday-how-to-watch/
+
 **How to watch No. 3 Notre Dame vs. No. 6 Michigan in the women's NCAA Tournament**\
 `Notre Dame hosts Michigan in the second round of the women's NCAA Tournament. Will Hannah Hidalgo and the Fighting Irish advance?`\
 https://nytimes.com/athletic/6221888/2025/03/23/notre-dame-michigan-womens-ncaa-tournament-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/books/memoir-wild-animals-raising-hare.html
 **How to watch No. 1 Duke vs. No. 9 Baylor in the men's NCAA Tournament**\
 `Duke takes on Baylor in the second round of the men's NCAA Tournament. Cooper Flagg looks healthy. How far can Duke go?`\
 https://nytimes.com/athletic/6223161/2025/03/23/duke-baylor-ncaa-tournament-how-to-watch/
-
-**Migrants Deported to Panama Ask: ‘Where Am I Going to Go?’**\
-`Dozens of stranded migrants sleep on mattresses in a school gymnasium. In interviews, 25 deportees from around the world said they were stuck in limbo.`\
-https://nytimes.com/2025/03/23/world/americas/migrants-panama-trump-stranded.html
 
