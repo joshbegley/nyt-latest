@@ -1,40 +1,40 @@
-**How Did a Fire Leave Heathrow Airport in Darkness, With Insufficient Backup?**\
-`The British authorities ordered an urgent investigation, but some experts said that any airport would be crippled by being cut from the electrical grid.`\
-https://nytimes.com/2025/03/23/world/europe/heathrow-airport-fire-infrastructure.html
+**The unlikely rise of Joshua Ravensbergen, the 2025 draft's top goalie prospect**\
+`Ravensbergen is no secret anymore, and his talent as the best goalie in the 2025 draft class is undeniable.`\
+https://nytimes.com/athletic/6203505/2025/03/23/joshua-ravensbergen-2025-nhl-draft/
 
-**Canadiens are thriving with an atypical shutdown pairing of Matheson and Carrier**\
-`Matheson and Carrier have been tasked with extremely difficult defensive assignments and consistently give the Canadiens a chance to win.`\
-https://nytimes.com/athletic/6224287/2025/03/23/canadiens-thriving-with-matheson-carrier/
+**Kevin Willard 'loves' his job but is reluctant to commit until Maryland commits to basketball **\
+`Willard will soon sign a fat new contract littered with incentives. Will it be at Maryland or Villanova? `\
+https://nytimes.com/athletic/6223993/2025/03/23/kevin-willard-maryland-villanova-ncaa-tournament/
 
-**The Sunday Read: ‘What I Found on the 365-Mile Trail of a Lost Folk Hero’**\
-`The Old Leatherman, a sort of real-life Northeastern Sasquatch, gave me an excuse to step outside my own life.`\
-https://nytimes.com/2025/03/23/podcasts/the-daily/old-leatherman-walk-new-york-connecticut.html
+**Canada, May I Introduce You to Ukraine?**\
+`We already know what happens when great powers feel entitled to their zones of control, and the strong try to dominate the weak.`\
+https://nytimes.com/2025/03/23/opinion/trump-canada-ukraine.html
 
-**Mets' Brett Baty no longer a prospect, but hope remains: 'He's gotta go out and do it'**\
-`Scouts have seen similar versions of Baty before, but he's yet to translate success to the major leagues.`\
-https://nytimes.com/athletic/6223536/2025/03/23/mets-brett-baty-expectations/
+**It’s Trump vs. the Courts, and It Won’t End Well for Trump**\
+`The judiciary will never surrender to the president its constitutional role to interpret the Constitution.`\
+https://nytimes.com/2025/03/23/opinion/trump-judge-venezuela-deportation.html
 
-**Wordle Review No. 1,374**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 24, 2025.`\
-https://nytimes.com/2025/03/23/crosswords/wordle-review-1374.html
+**March badness: This month shows the worst of NBA, but would the league ever change that?**\
+`In March, because of attrition, rest and a quest to get great lottery odds, NBA fans are often paying to see an inferior product.`\
+https://nytimes.com/athletic/6204546/2025/03/23/nba-bad-march-league-changes/
 
-**Connections Companion No. 652**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 24, 2025.`\
-https://nytimes.com/2025/03/23/crosswords/connections-companion-652.html
+**Bring Back the Boycott**\
+`Church-led campaigns against businesses for retreating from D.E.I. promises are a form of pastoral ministry for those who feel ignored or forgotten.`\
+https://nytimes.com/2025/03/23/opinion/target-black-boycott.html
 
-**Chinese Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the Chinese Grand Prix?`\
-https://nytimes.com/athletic/6224381/2025/03/23/f1-mailbag-chinese-grand-prix/
+**I Teach Memoir Writing. Don’t Outsource Your Life Story to A.I.**\
+`When we let computers write our stories, we lose something essential.`\
+https://nytimes.com/2025/03/23/opinion/ai-outsource-writing-memoir.html
 
-**Russian Drone Attack Kills 3 in Kyiv Ahead of Cease-Fire Talks**\
-`The assault underscored the deep mistrust between Russia and Ukraine. U.S.-mediated talks about a partial cease-fire are set to begin in Saudi Arabia later on Sunday.`\
-https://nytimes.com/2025/03/23/world/europe/kyiv-ukraine-attack.html
+**Women's March Madness power rankings: UConn looks like a team on a mission**\
+`Hailey Van Lith is headed for a showdown vs. Louisville. Lauren Betts helps UCLA roll. Kansas State's Ayoka Lee returns. `\
+https://nytimes.com/athletic/6224245/2025/03/23/womens-march-madness-power-rankings/
 
-**How to watch No. 3 Kentucky vs. No. 6 Illinois in the men's NCAA Tournament**\
-`Kentucky is the higher seed, but Illinois is the slight favorite for Sunday's second-round game.`\
-https://nytimes.com/athletic/6223171/2025/03/23/kentucky-illinois-ncaa-tournament-how-to-watch/
+**Who Am I if the Mets Are Good?**\
+`My dedication to the Mets has always been defined by their status as lovable losers. What happens if they start winning?`\
+https://nytimes.com/2025/03/23/opinion/mets-baseball-new-york.html
 
-**The New York Times International Edition in Print for Monday, March 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/23/todays-new-york-times-international-edition
+**Failed Conversion Therapy (With a Side of Ranch) at Hooters**\
+`Many fathers and grandfathers take their gay sons to the bar. It’s become a place of refuge — and how that happened is a curious story.`\
+https://nytimes.com/2025/03/23/opinion/hooters-gay-family.html
 
