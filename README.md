@@ -1,3 +1,7 @@
+**Loss to Panama reveals USMNT's to-do list, starting with third-place game**\
+`There's a ways to go if the USMNT is to have a successful World Cup on home soil.`\
+https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations-league-pochettino/
+
 **Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
 `Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
 https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223838/2025/03/22/wild-sabres-filip-gustavsson-sch
 **Women’s Basketball Coach Is Fired After Pulling Player’s Ponytail**\
 `The coach of the women’s varsity team in Northville, N.Y., was caught yanking a player’s hair on a television broadcast of a championship game on Friday.`\
 https://nytimes.com/2025/03/22/nyregion/northville-basketball-coach-fired.html
-
-**Spirit owner: 'Important' to keep Trinity Rodman in NWSL for team, league**\
-`"We're going to do everything in our power to hopefully keep her here," Michele Kang said about Rodman's interest playing abroad.`\
-https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman-nwsl/
 
