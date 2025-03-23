@@ -1,3 +1,23 @@
+**‘Wolf Hall: The Mirror and the Light’ Review: No Century for Old Men**\
+`In the long-awaited sequel to “Wolf Hall,” Henry VIII’s royal fixer pays the price for success. (It’s his head.)`\
+https://nytimes.com/2025/03/23/arts/television/wolf-hall-the-mirror-and-the-light-review.html
+
+**Why reliever Dedniel Núñez won't make Mets Opening Day roster**\
+`Carlos Mendoza said reliever is healthy but needs to increase his workload before being ready to contribute fully out of the bullpen.`\
+https://nytimes.com/athletic/6225078/2025/03/23/dedniel-nunez-mets-opening-day-roster/
+
+**Monday Briefing: U.S.-Ukraine Talks**\
+`Plus, how scammers make money vanish.`\
+https://nytimes.com/2025/03/23/briefing/us-ukraine-talks-israel-gaza-starmer-profile.html
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**U.S. Lodges New Accusations Against Detained Columbia Protest Leader**\
+`The Trump administration is now accusing the Columbia University graduate and protest leader of having withheld information when he applied for permanent residency status.`\
+https://nytimes.com/2025/03/23/nyregion/mahmoud-khalil-trump-allegations.html
+
 **Head of Paul, Weiss Says Firm Would Not Have Survived Without Deal With Trump**\
 `Brad Karp, the managing partner of the elite New York law firm, sent an email to its lawyers defending a highly criticized arrangement reached with the Trump administration last week.`\
 https://nytimes.com/2025/03/23/us/politics/paul-weiss-firm-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/europe/100000010068432/pope-francis-public-appea
 **George Foreman: The five greatest moments of his career**\
 `His fights against Cepulis, Frazier, Ali, Lyle and Moorer`\
 https://nytimes.com/athletic/6224887/2025/03/23/george-foreman-the-five-greatest-moments-of-his-career/
-
-**Turkey Protests Continue After Jailing of Erdogan Rival**\
-`The mayor of Istanbul, Ekrem Imamoglu, was jailed pending his trial on corruption charges and removed from office on Sunday. Mr. Imamoglu and his party deny the accusations.`\
-https://nytimes.com/video/world/middleeast/100000010068400/istanbul-turkey-protests-imamoglu.html
-
-**The Foreman-Ali Rumble That Changed Their Careers, and Congo**\
-`Half a century ago, the “Rumble in the Jungle” became not just a fight between George Foreman and Muhammad Ali, but a cultural touchstone.`\
-https://nytimes.com/2025/03/23/world/africa/george-foreman-muhammad-ali-rumble-jungle.html
-
-**A Trump-Friendly Crowd Shows Its Love. But Not for Musk.**\
-`President Trump and Elon Musk took in the Division I wrestling championship in Philadelphia on Saturday. But some of Mr. Trump’s supporters expressed complicated feelings about his billionaire adviser.`\
-https://nytimes.com/2025/03/23/us/politics/trump-musk-ncaa-wrestling-philadelphia.html
-
-**Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
-`Duke trailed by five at halftime before coming back. Notre Dame's Olivia Miles returns in victory.`\
-https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
-
-**No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
-`UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
-https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
 
