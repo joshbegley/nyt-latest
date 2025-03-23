@@ -1,3 +1,11 @@
+**Hovland beats JT for Valspar Championship; first win since 2023**\
+`Hovland birdied two of the most difficult holes on the Copperhead Course to come back against Thomas.`\
+https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-championship-thomas-pga-tour/
+
+**Fruit of the Palm**\
+`Victor Schmitt makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/03/23/crosswords/daily-puzzle-2025-03-24.html
+
 **No. 1 Duke rolls into Sweet 16 with dominating win over Baylor**\
 `Cooper Flagg finished with 18 points, nine rebounds and six assists. Tyrese Proctor had a career-best 25 points, thanks to seven 3-pointers.`\
 https://nytimes.com/athletic/6225310/2025/03/23/duke-basketball-cooper-flagg-baylor-ncaa-tournament/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/us/politics/trump-easter-egg-roll-sponsors.html
 **Phillies notes: The lineup(s), a new reliever, rotation plans and best defensive outfield**\
 `After thinking about it for months, manager Rob Thomson has settled on this: He will not have a settled batting order.`\
 https://nytimes.com/athletic/6225189/2025/03/23/phillies-news-lineup-rotation-outfield/
-
-**‘Wolf Hall: The Mirror and the Light’ Review: No Century for Old Men**\
-`In the long-awaited sequel to “Wolf Hall,” Henry VIII’s royal fixer pays the price for success. (It’s his head.)`\
-https://nytimes.com/2025/03/23/arts/television/wolf-hall-the-mirror-and-the-light-review.html
-
-**Why reliever Dedniel Núñez won't make Mets Opening Day roster**\
-`Carlos Mendoza said the reliever is healthy but needs to increase his workload before being ready to contribute fully out of the bullpen.`\
-https://nytimes.com/athletic/6225078/2025/03/23/dedniel-nunez-mets-opening-day-roster/
 
