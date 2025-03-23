@@ -1,3 +1,7 @@
+**Wildfires in South Korea Kill 4 and Injure 6**\
+`Firefighters confronted nearly 30 forest fires in the country’s southeast over the weekend. Most had been extinguished by Sunday, but dry and windy conditions persisted.`\
+https://nytimes.com/2025/03/23/world/asia/south-korea-wildfires.html
+
 **Wildfire in New Jersey State Park Burns 1,000 Acres**\
 `Crews were working overnight to contain the fast-growing fire in the Wharton State Forest, southeast of Philadelphia. Two campgrounds had been evacuated.`\
 https://nytimes.com/2025/03/23/nyregion/new-jersey-wildfire-wharton-forest.html
