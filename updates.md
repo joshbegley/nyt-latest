@@ -1,3 +1,7 @@
+**Wrexham, Stockport County and a new rivalry for the ages**\
+`These two clubs have ascended from the National League to the League One promotion race, with familiarity fuelling on-field animosity`\
+https://nytimes.com/athletic/6215051/2025/03/23/wrexham-stockport-county-rivalry/
+
 **Clubs dream big on stadiums - but what do previous projects tell us about vision versus reality?**\
 `Manchester United have bold ambitions for their new stadium but it can be a long road to an artist's impression becoming reality`\
 https://nytimes.com/athletic/6218812/2025/03/23/football-stadiums-manchester-united-vision-reality/
