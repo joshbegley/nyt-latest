@@ -1,3 +1,15 @@
+**Canada coach Jesse Marsch sent off against USMNT after referee rant**\
+`Marsch let rip with a verbal outburst after Canada had a penalty claim denied in the Concacaf Nations League third-place game.`\
+https://nytimes.com/athletic/6225490/2025/03/23/canada-jesse-marsch-sent-off-usmnt-nations-league/
+
+**Donato's value, Bertuzzi's hot/cold meter, Bedard's instincts: 10 thoughts**\
+`Chicago pulled off a badly needed home win by putting seven goals past Flyers goalie Ivan Fedotov.`\
+https://nytimes.com/athletic/6225258/2025/03/23/blackhawks-donato-contract-bertuzzi-production-flyers/
+
+**Canada, Bayern star Alphonso Davies leaves injured vs. USMNT**\
+`The Canada and Bayern Munich star was hurt early vs. the USMNT in a Nations League third-place match.`\
+https://nytimes.com/athletic/6225509/2025/03/23/alphonso-davies-injury-canada-usmnt-bayern-munich/
+
 **Wisconsin defeats Ohio State to win NCAA women's hockey national championship**\
 `The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
 https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/

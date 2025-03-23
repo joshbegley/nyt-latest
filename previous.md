@@ -1,3 +1,15 @@
+**Canada coach Jesse Marsch sent off against USMNT after referee rant**\
+`Marsch let rip with a verbal outburst after Canada had a penalty claim denied in the Concacaf Nations League third-place game.`\
+https://nytimes.com/athletic/6225490/2025/03/23/canada-jesse-marsch-sent-off-usmnt-nations-league/
+
+**Donato's value, Bertuzzi's hot/cold meter, Bedard's instincts: 10 thoughts**\
+`Chicago pulled off a badly needed home win by putting seven goals past Flyers goalie Ivan Fedotov.`\
+https://nytimes.com/athletic/6225258/2025/03/23/blackhawks-donato-contract-bertuzzi-production-flyers/
+
+**Canada, Bayern star Alphonso Davies leaves injured vs. USMNT**\
+`The Canada and Bayern Munich star was hurt early vs. the USMNT in a Nations League third-place match.`\
+https://nytimes.com/athletic/6225509/2025/03/23/alphonso-davies-injury-canada-usmnt-bayern-munich/
+
 **Wisconsin defeats Ohio State to win NCAA women's hockey national championship**\
 `The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
 https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/23/books/review/emma-pattee-tilt.html
 **Hovland beats JT for Valspar Championship; first win since 2023**\
 `Hovland birdied two of the most difficult holes on the Copperhead Course to come back against Thomas.`\
 https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-championship-thomas-pga-tour/
-
-**Fruit of the Palm**\
-`Victor Schmitt makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/03/23/crosswords/daily-puzzle-2025-03-24.html
-
-**No. 1 Duke's blowout of Baylor shows why Blue Devils are capable of winning it all**\
-`Duke shot 64.4 percent overall, its best mark in an NCAA Tournament game in program history, never taking its foot off the gas.`\
-https://nytimes.com/athletic/6225310/2025/03/23/duke-basketball-cooper-flagg-baylor-ncaa-tournament/
-
-**Braves trade again with Angels, swapping Ian Anderson for José Suarez**\
-`Anderson walked 20 batters this spring, something the Braves didn't want to see in-season. Now he'll get a chance to rebound elsewhere.`\
-https://nytimes.com/athletic/6225269/2025/03/23/ian-anderson-jose-suarez-braves-angels-trade/
 
