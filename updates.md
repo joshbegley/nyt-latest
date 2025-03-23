@@ -1,3 +1,7 @@
+**Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
+`From a balcony, Francis greeted hundreds of people waiting outside the hospital where he had been treated for respiratory problems.`\
+https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
+
 **The Lakers are finally whole. Now they must get 'reconnected' fast**\
 `Despite getting LeBron James and Rui Hachimura back, the Lakers were embarrassed by their worst defensive performance of the season.`\
 https://nytimes.com/athletic/6224242/2025/03/23/lakers-lebron-james-return-bulls-loss-nba/
