@@ -1,3 +1,7 @@
+**The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
+`It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
+https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
+
 **Everton forward Madsen celebrates her first game in a year with surprise on-pitch proposal**\
 `The 27-year-old made her first appearance since March 2024 before her partner, Martin Thomsen, surprised her by proposing.`\
 https://nytimes.com/athletic/6224553/2025/03/23/everton-rikke-madsen-proposal/

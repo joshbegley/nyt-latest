@@ -1,3 +1,7 @@
+**The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
+`It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
+https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
+
 **Everton forward Madsen celebrates her first game in a year with surprise on-pitch proposal**\
 `The 27-year-old made her first appearance since March 2024 before her partner, Martin Thomsen, surprised her by proposing.`\
 https://nytimes.com/athletic/6224553/2025/03/23/everton-rikke-madsen-proposal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/books/review/yoko-ono-biography-david-sheff.html
 **Russia and Ukraine to Hold U.S.-Mediated Talks: What to Know**\
 `American envoys will meet with Ukrainian officials on Sunday and with Russian officials the following day. The discussions are expected to focus on halting attacks on energy facilities.`\
 https://nytimes.com/2025/03/23/world/europe/russia-ukraine-truce-talks.html
-
-**'He wouldn't be denied': Giannis Antetokounmpo's huge third quarter helps push Bucks past Kings**\
-`After another middling first half on offense, Antetokounmpo decided to "be aggressive" in the third quarter and put the Bucks on his back.`\
-https://nytimes.com/athletic/6224284/2025/03/23/giannis-antetokounmpo-bucks-kings/
 
