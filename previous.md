@@ -1,3 +1,7 @@
+**Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
+`Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
+https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
+
 **Blues expected to call up Dalibor Dvorsky from AHL: Source**\
 `The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
 https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-ha
 **'This can blow up fast': For Max Scherzer, the stuff is sharp but the thumb is troubling**\
 `Scherzer struck out four Twins over four scoreless innings on Saturday: "I know I can still pitch at a very high level."`\
 https://nytimes.com/athletic/6223709/2025/03/22/blue-jays-max-scherzer-thumb/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

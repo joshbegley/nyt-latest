@@ -1,3 +1,7 @@
+**Kennedy Instructs Anti-Vaccine Group to Remove Fake C.D.C. Page**\
+`Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
+https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
+
 **Blues expected to call up Dalibor Dvorsky from AHL: Source**\
 `The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
 https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
