@@ -1,3 +1,11 @@
+**Everton forward Madsen celebrates her first game in a year with surprise on-pitch proposal**\
+`The 27-year-old made her first appearance since March 2024 before her partner, Martin Thomsen, surprised her by proposing.`\
+https://nytimes.com/athletic/6224553/2025/03/23/everton-rikke-madsen-proposal/
+
+**Israel Expands Gaza Offensive and Issues Fresh Evacuation Orders**\
+`The Israeli military took control of more territory and said that operations had moved into additional areas in the north and south of the enclave.`\
+https://nytimes.com/2025/03/23/world/middleeast/gaza-israel-rafah.html
+
 **The Pulse: Finally, some good games**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6224224/2025/03/23/ncaa-sweet-16-mens-the-pulse/
