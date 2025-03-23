@@ -1,3 +1,11 @@
+**Wisconsin defeats Ohio State to win NCAA women’s hockey national championship**\
+`The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
+https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/
+
+**Murphy, Eagle Who Became a Foster Dad After Incubating a Rock, Has Died**\
+`The beloved eagle was found dead in his enclosure at the World Bird Sanctuary in Missouri after severe weather pounded the region on March 14, sanctuary officials said.`\
+https://nytimes.com/2025/03/23/us/murphy-bald-eagle-rock-dead.html
+
 **9 Mayoral Candidates Unite to Attack Cuomo on Nursing Home Deaths**\
 `Nearly all the people running for New York City mayor appeared at a Covid memorial event with a shared message: Former Gov. Andrew M. Cuomo’s pandemic response is a reason not to support him.`\
 https://nytimes.com/2025/03/23/nyregion/cuomo-nursing-homes-nyc-mayoral-candidates.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6225236/2025/03/23/viktor-hovland-valspar-champions
 `Victor Schmitt makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/03/23/crosswords/daily-puzzle-2025-03-24.html
 
-**No. 1 Duke rolls into Sweet 16 with dominating win over Baylor**\
-`Cooper Flagg finished with 18 points, nine rebounds and six assists. Tyrese Proctor had a career-best 25 points, thanks to seven 3-pointers.`\
+**No. 1 Duke's blowout of Baylor shows why Blue Devils are capable of winning it all**\
+`Duke shot 64.4 percent overall, its best mark in an NCAA Tournament game in program history, never taking its foot off the gas.`\
 https://nytimes.com/athletic/6225310/2025/03/23/duke-basketball-cooper-flagg-baylor-ncaa-tournament/
 
 **Braves trade again with Angels, swapping Ian Anderson for José Suarez**\
 `Anderson walked 20 batters this spring, something the Braves didn't want to see in-season. Now he'll get a chance to rebound elsewhere.`\
 https://nytimes.com/athletic/6225269/2025/03/23/ian-anderson-jose-suarez-braves-angels-trade/
-
-**Kentucky's Mark Pope gives fan ‘1 of 1’ experience, delivering on free gas pledge**\
-`Pope paid for a Kentucky student's gas money to go support the Wildcats in Milwaukee. It ended in a win, and a trip he'll 'always cherish.'`\
-https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-ncaa-tournament-milwaukee/
-
-**Venezuela Accepts Flight Carrying Deportees From U.S. for First Time in Weeks**\
-`The Venezuelan government had come under intense pressure from the Trump administration to resume accepting deportation flights.`\
-https://nytimes.com/2025/03/23/us/politics/venezuela-us-deportation-flight.html
 
