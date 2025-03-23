@@ -1,3 +1,7 @@
+**Loss to Panama reveals USMNT's to-do list, starting with third-place game**\
+`There's a ways to go if the USMNT is to have a successful World Cup on home soil.`\
+https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations-league-pochettino/
+
 **Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
 `Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
 https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
