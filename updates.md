@@ -1,3 +1,7 @@
+**Oscar Piastri wins, McLaren dominates, positives for Lewis Hamilton - Chinese GP briefing**\
+`Oscar Piastri secures third career win as McLaren dominates Chinese Grand Prix`\
+https://nytimes.com/athletic/6224332/2025/03/23/chinese-grand-prix-results-recap-oscar-piastri/
+
 **Oscar Piastri wins Chinese Grand Prix as McLaren dominates with one-two finish**\
 `Oscar Piastri secures third career win as McLaren dominates Chinese Grand Prix`\
 https://nytimes.com/athletic/6224332/2025/03/23/chinese-grand-prix-results-recap-oscar-piastri/
