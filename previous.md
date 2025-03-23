@@ -1,3 +1,11 @@
+**No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
+`UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
+https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
+
+**Cardinals finalize Opening Day roster as Victor Scott II wins center-field job**\
+`The Cardinals will use a five-man rotation for the first three weeks of the season before switching to a six-man rotation on April 16.`\
+https://nytimes.com/athletic/6218906/2025/03/23/cardinals-opening-day-roster-victor-scott-ii/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees
 **Wildfires Burn More Than 2,000 Acres in North Carolina**\
 `Forecasters posted an elevated fire-weather risk for an area from northern Georgia, through western portions of the Carolinas and into central Virginia.`\
 https://nytimes.com/2025/03/23/weather/wildfires-north-carolina-polk-county.html
-
-**Marty Callner, Director of Comedy Specials and Music Videos, Dies at 78**\
-`At HBO in the late 1970s, he established the template for presenting stand-up on the small screen. He then became a mainstay of MTV in its early days.`\
-https://nytimes.com/2025/03/23/arts/television/marty-callner-dead.html
-
-**With Alexis Díaz starting season on IL, who closes for the Reds?**\
-`The Reds have a host of candidates, yet no obvious choices, to close out games this season. Let's break them down.`\
-https://nytimes.com/athletic/6224716/2025/03/23/with-alexis-diaz-starting-season-on-il-who-closes-for-the-reds/
 

@@ -1,3 +1,11 @@
+**No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
+`UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
+https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
+
+**Cardinals finalize Opening Day roster as Victor Scott II wins center-field job**\
+`The Cardinals will use a five-man rotation for the first three weeks of the season before switching to a six-man rotation on April 16.`\
+https://nytimes.com/athletic/6218906/2025/03/23/cardinals-opening-day-roster-victor-scott-ii/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
