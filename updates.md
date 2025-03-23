@@ -1,3 +1,7 @@
+**Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
+`Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
+https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
