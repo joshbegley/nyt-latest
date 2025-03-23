@@ -1,3 +1,11 @@
+**Pacers, Pistons or Bucks? Who the Knicks should want to see in the NBA playoffs**\
+`The Knicks will face the Bucks, Pistons or Pacers in the first round. Which team should New York want most?`\
+https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-playoffs/
+
+**For Sale: Pieces of Willie Brown’s Style**\
+`Mr. Brown, the former mayor of San Francisco, has stood out not just for his politics but also his style. Now, he has opened his closet to raise money for charity.`\
+https://nytimes.com/2025/03/23/us/willie-brown-clothes-auction.html
+
 **The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
 `It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
 https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
