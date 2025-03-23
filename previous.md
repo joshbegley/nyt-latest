@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Waddell is open to long contracts for Fantilli, others**\
+`Columbus long has preferred "bridge" deals for younger players, but that could change.`\
+https://nytimes.com/athletic/6223940/2025/03/23/blue-jackets-contract-fantilli-sillinger/
+
 **Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
 `The family announced that Miller Gardner died in his sleep while on vacation on March 21st. `\
 https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6224833/2025/03/23/detroit-tigers-manuel-margot-con
 https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
 
 **Canada’s Leader Calls Snap Federal Elections Amid Trump Threats**\
-`Mark Carney, who has been prime minister for only 10 days, has called for a general election to be held on April 28.`\
+`Mark Carney, who has only been prime minister for 10 days, has called for a general election to be held on April 28.`\
 https://nytimes.com/2025/03/23/world/canada/canada-election-carney-trump.html
 
 **Juventus sack head coach Motta, replaced by Tudor**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6189017/2025/03/23/thiago-motta-sacked-juventus/
 **Newcastle Women set new attendance record for Championship game**\
 `A record crowd of 38,502 watched Newcastle Women beat Sunderland 1-0 at St James' Park.`\
 https://nytimes.com/athletic/6224786/2025/03/23/newcastle-united-women-sunderland-attendance-record-championship/
-
-**U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
-`Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
-https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html
 

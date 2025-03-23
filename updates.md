@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: Waddell is open to long contracts for Fantilli, others**\
+`Columbus long has preferred "bridge" deals for younger players, but that could change.`\
+https://nytimes.com/athletic/6223940/2025/03/23/blue-jackets-contract-fantilli-sillinger/
+
+**Canada’s Leader Calls Snap Federal Elections Amid Trump Threats**\
+`Mark Carney, who has only been prime minister for 10 days, has called for a general election to be held on April 28.`\
+https://nytimes.com/2025/03/23/world/canada/canada-election-carney-trump.html
+
 **Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
 `The family announced that Miller Gardner died in his sleep while on vacation on March 21st. `\
 https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
