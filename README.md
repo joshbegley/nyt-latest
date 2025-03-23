@@ -1,5 +1,9 @@
-**As Pat Maroon announces plans to retire from NHL, Blues fans bid farewell to hometown hero**\
-`The St. Louis native, who won a Stanley Cup with the Blues in 2019, was emotional Saturday as he shared plans to retire after 14 seasons.
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
+`"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
 `\
 https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
 
@@ -18,10 +22,6 @@ https://nytimes.com/athletic/6224001/2025/03/22/auburn-creighton-sweet-16-ncaa-t
 **How Rick Pitino's magical season with St. John's came to an end vs. Arkansas**\
 `Rick Pitino's St. John’s revival carries more weight than one bad day, but the Red Storm's season came to an end vs. Arkansas.`\
 https://nytimes.com/athletic/6224005/2025/03/22/st-johns-rick-pitino-arkansas-march-madness/
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **Loss to Panama reveals USMNT's to-do list, starting with third-place game**\
 `There's a ways to go if the USMNT is to have a successful World Cup on home soil.`\
