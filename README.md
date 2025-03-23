@@ -15,7 +15,7 @@ https://nytimes.com/2025/03/23/books/review/colum-mccann-twist.html
 https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-and-pierre-gasly-disqualified-from-chinese-grand-prix/
 
 **Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
-`Francis appeared on a balcony to greet hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
+`From a balcony, Francis greeted hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
 https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
 
 **The Price of a Show**\
