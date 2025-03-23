@@ -1,3 +1,11 @@
+**No. 1 Duke rolls into Sweet 16 with dominating win over Baylor**\
+`Cooper Flagg finished with 18 points, nine rebounds and six assists. Tyrese Proctor had a career-best 25 points, thanks to seven 3-pointers.`\
+https://nytimes.com/athletic/6225310/2025/03/23/duke-basketball-cooper-flagg-baylor-ncaa-tournament/
+
+**Braves trade again with Angels, swapping Ian Anderson for José Suarez**\
+`Anderson walked 20 batters this spring, something the Braves didn't want to see in-season. Now he'll get a chance to rebound elsewhere.`\
+https://nytimes.com/athletic/6225269/2025/03/23/ian-anderson-jose-suarez-braves-angels-trade/
+
 **Kentucky's Mark Pope delivers ‘1 of 1’ experience by helping fan to first NCAA tourney game**\
 `Pope paid for a Kentucky student's gas money to go support the Wildcats in Milwaukee. It ended in a win, and a trip he'll 'always cherish.'`\
 https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-ncaa-tournament-milwaukee/
