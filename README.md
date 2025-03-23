@@ -1,3 +1,7 @@
+**Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
+`Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
+https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/nyregion/northville-basketball-coach-fired.html
 **Spirit owner: 'Important' to keep Trinity Rodman in NWSL for team, league**\
 `"We're going to do everything in our power to hopefully keep her here," Michele Kang said about Rodman's interest playing abroad.`\
 https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman-nwsl/
-
-**Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
-`Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
-https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
 
