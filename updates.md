@@ -1,3 +1,7 @@
+**Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
+`Duke trailed by five at halftime before coming back. Notre Dame gets 7-of-7 shooting from a starter for easy win.`\
+https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
+
 **A Trump-Friendly Crowd Shows Its Love. But Not for Musk.**\
 `President Trump and Elon Musk took in the Division I wrestling championship in Philadelphia on Saturday. But some of Mr. Trump’s supporters expressed complicated feelings about his billionaire adviser.`\
 https://nytimes.com/2025/03/23/us/politics/trump-musk-ncaa-wrestling-philadelphia.html

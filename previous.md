@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/23/us/politics/trump-musk-ncaa-wrestling-philadelphia.html
 
 **Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
-`Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
+`Duke trailed by five at halftime before coming back. Notre Dame gets 7-of-7 shooting from a starter for easy win.`\
 https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
 
 **No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
