@@ -1,3 +1,27 @@
+**How Did a Fire Leave Heathrow Airport in Darkness, With No Backup?**\
+`As Europe’s busiest airport returned to a full schedule, the British authorities ordered an investigation into Friday’s blaze.`\
+https://nytimes.com/2025/03/23/world/europe/heathrow-airport-fire-infrastructure.html
+
+**Canadiens are thriving with an atypical shutdown pairing of Matheson and Carrier**\
+`Matheson and Carrier have been tasked with extremely difficult defensive assignments and consistently give the Canadiens a chance to win.`\
+https://nytimes.com/athletic/6224287/2025/03/23/canadiens-thriving-with-matheson-carrier/
+
+**The Sunday Read: ‘What I Found on the 365-Mile Trail of a Lost Folk Hero’**\
+`The Old Leatherman, a sort of real-life Northeastern Sasquatch, gave me an excuse to step outside my own life.`\
+https://nytimes.com/2025/03/23/podcasts/the-daily/old-leatherman-walk-new-york-connecticut.html
+
+**Mets' Brett Baty no longer a prospect, but hope remains: 'He's gotta go out and do it'**\
+`Scouts have seen similar versions of Baty before, but he's yet to translate success to the major leagues.`\
+https://nytimes.com/athletic/6223536/2025/03/23/mets-brett-baty-expectations/
+
+**Wordle Review No. 1,374**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 24, 2025.`\
+https://nytimes.com/2025/03/23/crosswords/wordle-review-1374.html
+
+**Connections Companion No. 652**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 24, 2025.`\
+https://nytimes.com/2025/03/23/crosswords/connections-companion-652.html
+
 **Chinese Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the Chinese Grand Prix?`\
 https://nytimes.com/athletic/6224381/2025/03/23/f1-mailbag-chinese-grand-prix/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6223171/2025/03/23/kentucky-illinois-ncaa-tournamen
 **The New York Times International Edition in Print for Monday, March 24, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/23/todays-new-york-times-international-edition
-
-**How to watch No. 2 TCU vs. No. 7 Louisville: Odds, storylines for women's NCAA Tournament matchup**\
-`Hailey Van Lith leads her new team, TCU, against her old one, Louisville. The second-seeded Horned Frogs are favored Sunday.`\
-https://nytimes.com/athletic/6223101/2025/03/23/tcu-louisville-womens-ncaa-tournament-how-to-watch/
-
-**How to watch the men's March Madness second-round games on Sunday**\
-`Here's how to watch all of Sunday's second-round action, starring Duke, Florida, Alabama and Michigan State.`\
-https://nytimes.com/athletic/6223304/2025/03/23/ncaa-tournament-second-round-sunday-how-to-watch/
-
-**How to watch No. 3 Notre Dame vs. No. 6 Michigan in the women's NCAA Tournament**\
-`Notre Dame hosts Michigan in the second round of the women's NCAA Tournament. Will Hannah Hidalgo and the Fighting Irish advance?`\
-https://nytimes.com/athletic/6221888/2025/03/23/notre-dame-michigan-womens-ncaa-tournament-how-to-watch/
-
-**Disney’s ‘Snow White’ Has a Sleepy Box Office Start**\
-`The polarizing remake was expected to collect $45 million, a weak result compared with openings for similar Disney films.`\
-https://nytimes.com/2025/03/23/business/disney-snow-white-box-office.html
-
-**As the Left Looks to 2028, It Waits on Ocasio-Cortez’s Big Decision**\
-`With Bernie Sanders unlikely to run for president again and Democratic voters fuming at party leaders, many progressives see an open lane. But who will fill it?`\
-https://nytimes.com/2025/03/23/us/politics/aoc-sanders-democrats-2028.html
-
-**Why Does Big Bird Look So Sad?**\
-`Sesame Workshop, the nonprofit behind “Sesame Street,” is confronting what executives have described as a “perfect storm” of problems.`\
-https://nytimes.com/2025/03/23/business/media/sesame-street-layoffs-funding-cuts.html
 
