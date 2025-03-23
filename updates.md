@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Venezuela Prepares to Accept Deportees After Reaching Deal with U.S.**\
+``\
+https://nytimes.com/live/2025/03/23/us/trump-news
+
+**Democrats: Still Under Construction**\
+`Readers respond to a column by Ezra Klein about the Democrats’ approach to government. Also: Domestic enemies.`\
+https://nytimes.com/2025/03/23/opinion/democrats-government-efficiency.html
+
 **Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
 `From a balcony, Francis greeted hundreds of people waiting outside the hospital where he had been treated for respiratory problems.`\
 https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html

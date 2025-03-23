@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Venezuela Prepares to Accept Deportees After Reaching Deal with U.S.**\
+``\
+https://nytimes.com/live/2025/03/23/us/trump-news
+
+**Democrats: Still Under Construction**\
+`Readers respond to a column by Ezra Klein about the Democrats’ approach to government. Also: Domestic enemies.`\
+https://nytimes.com/2025/03/23/opinion/democrats-government-efficiency.html
+
 **The Lakers are finally whole. Now they must get 'reconnected' fast**\
 `Despite getting LeBron James and Rui Hachimura back, the Lakers were embarrassed by their worst defensive performance of the season.`\
 https://nytimes.com/athletic/6224242/2025/03/23/lakers-lebron-james-return-bulls-loss-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223755/2025/03/23/liverpool-alisson-mamardashvili-
 **A Novel Explores the Undersea Cables That Connect the World**\
 `The crew in Colum McCann’s new book makes complex repairs deep in the ocean. Human bonds prove harder to mend.`\
 https://nytimes.com/2025/03/23/books/review/colum-mccann-twist.html
-
-**Hamilton, Leclerc and Gasly disqualified from Chinese Grand Prix**\
-`The disqualifications are a massive blow to Ferrari, which had gained 18 points with Leclerc and Hamilton finishing in P5 and P6.`\
-https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-and-pierre-gasly-disqualified-from-chinese-grand-prix/
-
-**Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
-`From a balcony, Francis greeted hundreds of people waiting outside the hospital where he had been treated for respiratory problems.`\
-https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
 
