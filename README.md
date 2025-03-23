@@ -2,7 +2,7 @@
 `As executive editor from 1986 to 1994, he oversaw a period of financial, technological and journalistic change while lifting newsroom morale and diversifying the staff.`\
 https://nytimes.com/2025/03/23/obituaries/max-frankel-dead.html
 
-**How Oilers' Jeff Skinner has finally earned opportunities and cashed in on them**\
+**How Oilers' Jeff Skinner finally earned opportunities and cashed in on them**\
 `With Connor McDavid and Leon Draisaitl out for the Oilers, Jeff Skinner can be a difference-maker in Edmonton's lineup.`\
 https://nytimes.com/athletic/6224309/2025/03/23/edmonton-oilers-jeff-skinner-2025/
 

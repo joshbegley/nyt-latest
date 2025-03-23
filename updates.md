@@ -1,3 +1,19 @@
+**Max Frankel, Top Times Editor Who Led a Newspaper in Transition, Dies at 94**\
+`As executive editor from 1986 to 1994, he oversaw a period of financial, technological and journalistic change while lifting newsroom morale and diversifying the staff.`\
+https://nytimes.com/2025/03/23/obituaries/max-frankel-dead.html
+
+**How Oilers' Jeff Skinner has finally earned opportunities and cashed in on them**\
+`With Connor McDavid and Leon Draisaitl out for the Oilers, Jeff Skinner can be a difference-maker in Edmonton's lineup.`\
+https://nytimes.com/athletic/6224309/2025/03/23/edmonton-oilers-jeff-skinner-2025/
+
+**Real Madrid Femenino beat Barcelona for first-ever Clasico win at 19th attempt**\
+`The 3-1 away victory saw Madrid close the gap to Barcelona at the top of the Liga F table to four points.`\
+https://nytimes.com/athletic/6224512/2025/03/23/real-madrid-femenino-barcelona-first-clasico/
+
+**Lowetide: Will Oilers' procurement style change under Stan Bowman?**\
+`The months ahead will be Bowman's first real chance to shape the roster and improve the prospect pool.`\
+https://nytimes.com/athletic/6223033/2025/03/23/edmonton-oilers-signings-stan-bowman-style/
+
 **Pacers, Pistons or Bucks? Who the Knicks should want to see in the NBA playoffs**\
 `The Knicks will face the Bucks, Pistons or Pacers in the first round. Which team should New York want most?`\
 https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-playoffs/
