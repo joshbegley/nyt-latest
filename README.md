@@ -1,3 +1,7 @@
+**Hamilton, Leclerc and Gasly disqualified from Chinese Grand Prix**\
+`The disqualifications are a massive blow to Ferrari, which had gained 18 points with Leclerc and Hamilton finishing in P5 and P6.`\
+https://nytimes.com/athletic/6224407/2025/03/23/lewis-hamilton-charles-leclerc-and-pierre-gasly-disqualified-from-chinese-grand-prix/
+
 **Pope Makes First Public Appearance Since Falling Ill Weeks Ago**\
 `Francis appeared on a balcony to greet hundreds of people waiting outside the hospital where he has been treated for respiratory problems.`\
 https://nytimes.com/2025/03/23/world/europe/pope-francis-rome.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/opinion/target-black-boycott.html
 **I Teach Memoir Writing. Don’t Outsource Your Life Story to A.I.**\
 `When we let computers write our stories, we lose something essential.`\
 https://nytimes.com/2025/03/23/opinion/ai-outsource-writing-memoir.html
-
-**Women's March Madness power rankings: UConn looks like a team on a mission**\
-`Hailey Van Lith is headed for a showdown vs. Louisville. Lauren Betts helps UCLA roll. Kansas State's Ayoka Lee returns. `\
-https://nytimes.com/athletic/6224245/2025/03/23/womens-march-madness-power-rankings/
 
