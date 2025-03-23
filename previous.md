@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-
 `Mr. Brown, the former mayor of San Francisco, has stood out not just for his politics but also his style. Now, he has opened his closet to raise money for charity.`\
 https://nytimes.com/2025/03/23/us/willie-brown-clothes-auction.html
 
+**24 most intriguing March Madness players to watch: JuJu Watkins, Ta'Niya Latson and more**\
+`What three duos should you keep an on during the tournament? `\
+https://nytimes.com/athletic/6214492/2025/03/23/womens-march-madness-most-intriguing-players/
+
 **The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
 `It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
 https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
-
-**Everton forward Madsen celebrates her first game in a year with surprise on-pitch proposal**\
-`The 27-year-old made her first appearance since March 2024 before her partner, Martin Thomsen, surprised her by proposing.`\
-https://nytimes.com/athletic/6224553/2025/03/23/everton-rikke-madsen-proposal/
 
