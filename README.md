@@ -1,3 +1,7 @@
+**Wyatt Hendrickson upsets Gable Steveson 5-4 in NCAA heavyweight final**\
+`Steveson previously wrestled Hendrickson in the 2021 NCAA tournament and won 18-2.`\
+https://nytimes.com/athletic/6224188/2025/03/23/wyatt-hendrickson-ohio-state-upset-gable-steveson-ncaa-championship/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6224126/2025/03/22/maple-leafs-predators-grades-ana
 **Blue Jays sign Alejandro Kirk to 5-year extension: Source**\
 `The Blue Jays inked Kirk, who is strong defensively and at the plate, to an extension worth $58 million. `\
 https://nytimes.com/athletic/6224154/2025/03/22/blue-jays-alejandro-kirk-contract-extension/
-
-**As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
-`"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
-`\
-https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
 
