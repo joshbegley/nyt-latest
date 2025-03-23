@@ -1,3 +1,7 @@
+**Thomas Tuchel says he will not do clubs favours as England head coach**\
+`Thomas Tuchel will not go out of his way to do favours to clubs when it comes to selecting his England team.`\
+https://nytimes.com/athletic/6224589/2025/03/23/thomas-tuchel-england-clubs-favours/
+
 **9 Months Pregnant, and Navigating the Apocalypse**\
 `Emma Pattee’s debut novel, “Tilt,” takes place in the 24 hours after “the really big one” devastates the Pacific Northwest.`\
 https://nytimes.com/2025/03/23/books/review/emma-pattee-tilt.html
