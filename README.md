@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations
 `Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
 https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
 
-**Michigan surges past Texas A&M to keep Big Ten perfect in NCAA Tournament**\
+**Michigan made it clear vs. Texas A&M: Count out Wolverines at your own risk**\
 `No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
 
