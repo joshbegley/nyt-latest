@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/23/nyregion/cuomo-nursing-homes-nyc-mayoral-candidates.html
 
 **Sudan’s Military Sweeps Across Capital, Hoping to Turn the War**\
-`In the first visit by Western journalists to central Khartoum since the civil war broke out two years ago, the scale of how much has been lost was inescapable.`\
+`A New York Times reporter and photographer were the first Western journalists to visit central Khartoum since the civil war broke out two years ago. The scale of how much has been lost was inescapable.`\
 https://nytimes.com/2025/03/23/world/africa/sudan-civil-war-khartoum.html
 
 **Thomas Tuchel says he will not do clubs favours as England head coach**\
