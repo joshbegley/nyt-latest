@@ -1,3 +1,32 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
+**Four Takeaways From Keir Starmer’s Conversations With The New York Times**\
+`The British prime minister said Putin would break any peace deal unless Ukraine gets robust security guarantees and that preserving the U.S.-British relationship was crucial.`\
+https://nytimes.com/2025/03/23/world/europe/keir-starmer-interview-takeaways.html
+
+**Keir Starmer on Putin, Trump and Europe’s Challenge: ‘We’ve Known This Moment Was Coming’**\
+`The British prime minister said in a series of conversations that the tectonic shifts in America’s relationship with Europe and Russia had to be a ‘galvanizing moment.’`\
+https://nytimes.com/2025/03/23/world/europe/keir-starmer-trump-interview-uk.html
+
+**The Scammer’s Manual: How to Launder Money and Get Away With It**\
+`Documents and insiders reveal how one of the world’s major money laundering networks operates.`\
+https://nytimes.com/2025/03/23/world/asia/cambodia-money-laundering-huione.html
+
+**How We Investigated Money Laundering, and What We Found**\
+`Our reporters went into a notorious refuge for scammers and fraudsters, and emerged with a how-to guide.`\
+https://nytimes.com/2025/03/23/world/asia/takeaways-money-laundering-investigation.html
+
+**Connections: Sports Edition Coach: Hints for March 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6224026/2025/03/23/connections-sports-edition-hints-for-march-23-2025/
+
+**As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
+`"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
+`\
+https://nytimes.com/athletic/6223497/2025/03/22/pat-maroon-retirement-blues-blackhawks-nhl/
+
 **As Pat Maroon announces plans to retire, Blues fans bid farewell to hometown hero**\
 `"I’ve given everything I have. I want to go out on my own terms," said Maroon, who won a Stanley Cup with the Blues in 2019.
 `\
