@@ -1,3 +1,15 @@
+**Wisconsin defeats Ohio State to win NCAA women's hockey national championship**\
+`The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
+https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/
+
+**Murphy, Eagle Who Became a Foster Dad After Incubating a Rock, Has Died**\
+`The beloved eagle was found dead in his enclosure at the World Bird Sanctuary in Missouri after severe weather pounded the region on March 14, sanctuary officials said.`\
+https://nytimes.com/2025/03/23/us/murphy-bald-eagle-rock-dead.html
+
+**No. 1 Duke's blowout of Baylor shows why Blue Devils are capable of winning it all**\
+`Duke shot 64.4 percent overall, its best mark in an NCAA Tournament game in program history, never taking its foot off the gas.`\
+https://nytimes.com/athletic/6225310/2025/03/23/duke-basketball-cooper-flagg-baylor-ncaa-tournament/
+
 **Sudan’s Military Sweeps Across Capital, Hoping to Turn the War**\
 `A New York Times reporter and photographer were the first Western journalists to visit central Khartoum since the civil war broke out two years ago. The scale of how much has been lost was inescapable.`\
 https://nytimes.com/2025/03/23/world/africa/sudan-civil-war-khartoum.html
