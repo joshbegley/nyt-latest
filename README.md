@@ -1,3 +1,7 @@
+**Pope Makes First Public Appearance Since Falling Ill**\
+`Pope Francis made his first public appearance in Rome after being admitted to a hospital in mid-February with an acute respiratory insufficiency. Francis will continue recovery at the Vatican guesthouse where he lives.`\
+https://nytimes.com/video/world/europe/100000010068432/pope-francis-public-appearance-rome.html
+
 **George Foreman: The five greatest moments of his career**\
 `His fights against Cepulis, Frazier, Ali, Lyle and Moorer`\
 https://nytimes.com/athletic/6224887/2025/03/23/george-foreman-the-five-greatest-moments-of-his-career/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2
 **Brian James, Pioneer of Punk Rock, Is Dead at 70**\
 `As the guitarist and main songwriter for the Damned, he helped spark an explosion on the British music scene in the 1970s.`\
 https://nytimes.com/2025/03/23/arts/music/brian-james-dead.html
-
-**Texas basketball coaching candidates: Who will Longhorns pursue?**\
-`A school and fan base with virtually unlimited resources are back to the drawing board in men's hoops — which may not be the worst thing.`\
-https://nytimes.com/athletic/6218345/2025/03/23/texas-basketball-coaching-candidates-who-will-longhorns-pursue-to-replace-rodney-terry/
 
