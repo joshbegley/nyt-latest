@@ -1,3 +1,11 @@
+**'I'm not stupid' - Is time already running out for Liam Lawson at Red Bull?**\
+`Red Bull will analyse data from the first two races then decide what to do with the New Zealand driver ahead of Japan`\
+https://nytimes.com/athletic/6224632/2025/03/23/liam-lawson-red-bull-yuki-tsunoda-f1-analysis/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
 `The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
 https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223033/2025/03/23/edmonton-oilers-signings-stan-bo
 **Pacers, Pistons or Bucks? Who the Knicks should want to see in the NBA playoffs**\
 `The Knicks will face the Bucks, Pistons or Pacers in the first round. Which team should New York want most?`\
 https://nytimes.com/athletic/6223113/2025/03/23/knicks-pacers-bucks-pistons-nba-playoffs/
-
-**For Sale: Pieces of Willie Brown’s Style**\
-`Mr. Brown, the former mayor of San Francisco, has stood out not just for his politics but also his style. Now, he has opened his closet to raise money for charity.`\
-https://nytimes.com/2025/03/23/us/willie-brown-clothes-auction.html
-
-**24 most intriguing March Madness players to watch: JuJu Watkins, Ta'Niya Latson and more**\
-`What three duos should you keep an on during the tournament? `\
-https://nytimes.com/athletic/6214492/2025/03/23/womens-march-madness-most-intriguing-players/
 
