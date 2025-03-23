@@ -1,3 +1,7 @@
+**Head of Paul, Weiss Says Firm Would Not Have Survived Without Deal With Trump**\
+`Brad Karp, the managing partner of the elite New York law firm, sent an email to its lawyers defending a highly criticized arrangement reached with the Trump administration last week.`\
+https://nytimes.com/2025/03/23/us/politics/paul-weiss-firm-trump.html
+
 **DoorDash Announces ‘Buy Now, Pay Later’ Partnership With Klarna**\
 `DoorDash said the arrangement with the financial tech service Klarna would allow customers to defer payments on orders such as takeout from restaurants, makeup and electronics.`\
 https://nytimes.com/2025/03/23/business/doordash-klarna-payments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-roun
 **No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
 `UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
 https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
-
-**Cardinals finalize Opening Day roster as Victor Scott II wins center-field job**\
-`The Cardinals will use a five-man rotation for the first three weeks of the season before switching to a six-man rotation on April 16.`\
-https://nytimes.com/athletic/6218906/2025/03/23/cardinals-opening-day-roster-victor-scott-ii/
 

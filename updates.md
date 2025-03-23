@@ -1,3 +1,7 @@
+**Head of Paul, Weiss Says Firm Would Not Have Survived Without Deal With Trump**\
+`Brad Karp, the managing partner of the elite New York law firm, sent an email to its lawyers defending a highly criticized arrangement reached with the Trump administration last week.`\
+https://nytimes.com/2025/03/23/us/politics/paul-weiss-firm-trump.html
+
 **DoorDash Announces ‘Buy Now, Pay Later’ Partnership With Klarna**\
 `DoorDash said the arrangement with the financial tech service Klarna would allow customers to defer payments on orders such as takeout from restaurants, makeup and electronics.`\
 https://nytimes.com/2025/03/23/business/doordash-klarna-payments.html
