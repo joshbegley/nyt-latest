@@ -1,3 +1,15 @@
+**Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
+`The family announced that Miller Gardner died in his sleep while on vacation on March 21st. `\
+https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
+
+**Wildfires Burn More Than 2,000 Acres in North Carolina**\
+`Forecasters posted an elevated fire-weather risk for an area from northern Georgia, through western portions of the Carolinas and into central Virginia.`\
+https://nytimes.com/2025/03/23/weather/wildfires-north-carolina-polk-county.html
+
+**Marty Callner, Director of Comedy Specials and Music Videos, Dies at 78**\
+`At HBO in the late 1970s, he established the template for presenting stand-up on the small screen. He then became a mainstay of MTV in its early days.`\
+https://nytimes.com/2025/03/23/arts/television/marty-callner-dead.html
+
 **With Alexis Díaz starting season on IL, who closes for the Reds?**\
 `The Reds have a host of candidates, yet no obvious choices, to close out games this season. Let's break them down.`\
 https://nytimes.com/athletic/6224716/2025/03/23/with-alexis-diaz-starting-season-on-il-who-closes-for-the-reds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6224786/2025/03/23/newcastle-united-women-sunderlan
 **U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
 `Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
 https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html
-
-**'I'm not stupid' - Is time already running out for Liam Lawson at Red Bull?**\
-`Red Bull will analyse data from the first two races then decide what to do with the New Zealand driver ahead of Japan`\
-https://nytimes.com/athletic/6224632/2025/03/23/liam-lawson-red-bull-yuki-tsunoda-f1-analysis/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
-`The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
-https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
 
