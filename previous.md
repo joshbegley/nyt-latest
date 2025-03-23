@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Michigan surges past Texas A&M to keep Big Ten perfect in NCAA Tournament**\
 `No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournament-score/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.htm
 **Could Will Wade’s honesty change how we talk about coaching moves?**\
 `CLEVELAND — It was a one-word answer, but in college basketball circles, it hit like switching from black-and-white to technicolor, like hearing the Beatles in stereo for the first time.`\
 https://nytimes.com/athletic/6223688/2025/03/22/will-wades-coaching-moves-college-sports/
-
-**Giants' Encarnación injured, Harrison optioned in roster shakeup before Opening Day**\
-`The last spot in the Giants' rotation will likely come down to Hayden Birdsong and Landen Roupp.`\
-https://nytimes.com/athletic/6223458/2025/03/22/giants-jerar-encarnacion-kyle-harrison-opening-day-roster/
 

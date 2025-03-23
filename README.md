@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/22/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6223920/2025/03/22/michigan-texas-am-ncaa-tournamen
 `Children’s Health Defense, founded by the health secretary, had published online a vaccine-safety page that looked like the agency’s but that suggested links to autism.`\
 https://nytimes.com/2025/03/22/health/cdc-kennedy-vaccine-disinformation.html
 
-**Blues expected to call up Dalibor Dvorsky from AHL: Source**\
+**Blues call up top prospect Dalibor Dvorsky from AHL**\
 `The 2023 No. 10 pick has 20 goals and 43 points in 57 games with the AHL's Springfield Thunderbirds this season.`\
 https://nytimes.com/athletic/6223892/2025/03/22/blues-dalibor-dvorsky-call-up-ahl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223806/2025/03/22/washington-spirit-trinity-rodman
 **Academia Confronts a Watershed Moment at Columbia, and the Right Revels**\
 `Threatened with losing $400 million in federal funding, the university agreed to overhaul its protest policies and security practices.`\
 https://nytimes.com/2025/03/22/nyregion/columbia-trump-concessions-watershed.html
-
-**Could Will Wade’s honesty change how we talk about coaching moves?**\
-`CLEVELAND — It was a one-word answer, but in college basketball circles, it hit like switching from black-and-white to technicolor, like hearing the Beatles in stereo for the first time.`\
-https://nytimes.com/athletic/6223688/2025/03/22/will-wades-coaching-moves-college-sports/
 
