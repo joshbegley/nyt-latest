@@ -1,3 +1,11 @@
+**Juventus sack head coach Motta, replaced by Tudor**\
+`Motta was only appointed at Juventus at the start of the season, signing a contract until June 2027.`\
+https://nytimes.com/athletic/6189017/2025/03/23/thiago-motta-sacked-juventus/
+
+**Newcastle Women set new attendance record for Championship game**\
+`A record crowd of 38,502 watched Newcastle Women beat Sunderland 1-0 at St James' Park.`\
+https://nytimes.com/athletic/6224786/2025/03/23/newcastle-united-women-sunderland-attendance-record-championship/
+
 **U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
 `Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
 https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html

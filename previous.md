@@ -1,3 +1,11 @@
+**Juventus sack head coach Motta, replaced by Tudor**\
+`Motta was only appointed at Juventus at the start of the season, signing a contract until June 2027.`\
+https://nytimes.com/athletic/6189017/2025/03/23/thiago-motta-sacked-juventus/
+
+**Newcastle Women set new attendance record for Championship game**\
+`A record crowd of 38,502 watched Newcastle Women beat Sunderland 1-0 at St James' Park.`\
+https://nytimes.com/athletic/6224786/2025/03/23/newcastle-united-women-sunderland-attendance-record-championship/
+
 **U.S. Officials to Visit Greenland Amid Trump’s Talk of a Takeover**\
 `Usha Vance, the second lady, will attend cultural events while Michael Waltz, the national security adviser, visits troops stationed on the island that President Trump has said the United States will get “one way or the other.”`\
 https://nytimes.com/2025/03/23/us/politics/usha-vance-trump-us-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/23/obituaries/max-frankel-dead.html
 **How Oilers' Jeff Skinner finally earned opportunities and cashed in on them**\
 `With Connor McDavid and Leon Draisaitl out for the Oilers, Jeff Skinner can be a difference-maker in Edmonton's lineup.`\
 https://nytimes.com/athletic/6224309/2025/03/23/edmonton-oilers-jeff-skinner-2025/
-
-**Real Madrid Femenino beat Barcelona for first-ever Clasico win at 19th attempt**\
-`The 3-1 away victory saw Madrid close the gap to Barcelona at the top of the Liga F table to four points.`\
-https://nytimes.com/athletic/6224512/2025/03/23/real-madrid-femenino-barcelona-first-clasico/
-
-**Lowetide: Will Oilers' procurement style change under Stan Bowman?**\
-`The months ahead will be Bowman's first real chance to shape the roster and improve the prospect pool.`\
-https://nytimes.com/athletic/6223033/2025/03/23/edmonton-oilers-signings-stan-bowman-style/
 
