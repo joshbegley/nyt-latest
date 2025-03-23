@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Trump Administration Live Updates: Venezuela Prepares to Accept Deportees After Reaching Deal with U.S.**\
 ``\
 https://nytimes.com/live/2025/03/23/us/trump-news
