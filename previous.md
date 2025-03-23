@@ -1,3 +1,19 @@
+**Chelsea have reasons behind doing their business in March - and want this to be a habit**\
+`Chelsea have already made two signings — but why are they moving so swiftly to snap up new additions?`\
+https://nytimes.com/athletic/6221841/2025/03/23/chelsea-transfer-business-march-why/
+
+**The New York Times in Print for Sunday, March 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/23/todays-new-york-times
+
+**Duterte Is Getting His Day in Court. His Victims Never Did.**\
+`In Duterte’s Philippines, due process was not a right, it was a privilege that was not extended to the victims of his drug war.`\
+https://nytimes.com/2025/03/23/opinion/duterte-icc-drugs-victims.html
+
+**In Gaza, a Ramadan Among the Ruins**\
+`Visuals by Saher Alghorra, Text by Eric Nagourney`\
+https://nytimes.com/card/2025/03/23/world/middleeast/gaza-israel-ramadan
+
 **BYU survives ejection, Wisconsin rally for long-awaited Sweet 16 trip**\
 `Wisconsin staged a late rally after Dawson Baker's ejection, but BYU held on for a dramatic 91-89 win in the NCAA Tournament's second round.`\
 https://nytimes.com/athletic/6224167/2025/03/23/byu-wisconsin-score-ejection-ncaa-tournament/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/23/world/europe/keir-starmer-interview-takeaways.htm
 **Keir Starmer on Putin, Trump and Europe’s Challenge: ‘We’ve Known This Moment Was Coming’**\
 `The British prime minister said in a series of conversations that the tectonic shifts in America’s relationship with Europe and Russia had to be a ‘galvanizing moment.’`\
 https://nytimes.com/2025/03/23/world/europe/keir-starmer-trump-interview-uk.html
-
-**The Scammer’s Manual: How to Launder Money and Get Away With It**\
-`Documents and insiders reveal how one of the world’s major money laundering networks operates.`\
-https://nytimes.com/2025/03/23/world/asia/cambodia-money-laundering-huione.html
-
-**How We Investigated Money Laundering, and What We Found**\
-`Our reporters went into a notorious refuge for scammers and fraudsters, and emerged with a how-to guide.`\
-https://nytimes.com/2025/03/23/world/asia/takeaways-money-laundering-investigation.html
-
-**Connections: Sports Edition Coach: Hints for March 23, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6224026/2025/03/23/connections-sports-edition-hints-for-march-23-2025/
-
-**Finally at full strength in March, Houston puts on offensive clinic to reach Sweet 16**\
-`Houston is once again the best defensive team in the nation, but it's also the most efficient offensive team Kelvin Sampson has coached.`\
-https://nytimes.com/athletic/6224077/2025/03/22/houston-gonzaga-ncaa-tournament-result/
 
