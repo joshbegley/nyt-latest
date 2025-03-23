@@ -1,3 +1,11 @@
+**Kentucky's Mark Pope delivers ‘1 of 1’ experience by helping fan to first NCAA tourney game**\
+`Pope paid for a Kentucky student's gas money to go support the Wildcats in Milwaukee. It ended in a win, and a trip he'll 'always cherish.'`\
+https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-ncaa-tournament-milwaukee/
+
+**Phillies notes: The lineup(s), a new reliever, rotation plans and best defensive outfield**\
+`After thinking about it for months, manager Rob Thomson has settled on this: He will not have a settled batting order.`\
+https://nytimes.com/athletic/6225189/2025/03/23/phillies-news-lineup-rotation-outfield/
+
 **Venezuela Accepts Flight Carrying Deportees From U.S. for First Time in Weeks**\
 `The Venezuelan government had come under intense pressure from the Trump administration to resume accepting deportation flights.`\
 https://nytimes.com/2025/03/23/us/politics/venezuela-us-deportation-flight.html
