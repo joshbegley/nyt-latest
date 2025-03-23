@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Auburn outlasts Creighton, heads to Sweet 16 for first time since 2019**\
 `Bruce Pearl has now won nine NCAA Tournament games at Auburn, tops in program history.`\
 https://nytimes.com/athletic/6224001/2025/03/22/auburn-creighton-sweet-16-ncaa-tournament/
@@ -17,10 +21,6 @@ https://nytimes.com/athletic/6223988/2025/03/22/usmnt-canada-third-place-nations
 **Mariah Carey Did Not Copy Her Christmas Hit From Another Song, Judge Rules**\
 `Two songwriters had filed a $20 million lawsuit accusing her of infringing on their copyright of a song with the same name: “All I Want for Christmas Is You.”`\
 https://nytimes.com/2025/03/22/arts/music/mariah-carey-christmas-copyright-lawsuit.html
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/22/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **Michigan surges past Texas A&M to keep Big Ten perfect in NCAA Tournament**\
 `No. 5 seed Michigan erased a 10-point deficit and pulled away to beat No. 4 seed Texas A&M 91-79 in the second round of the NCAA Tournament.`\
