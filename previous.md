@@ -1,3 +1,11 @@
+**BYU survives ejection, Wisconsin rally for long-awaited Sweet 16 trip**\
+`Wisconsin staged a late rally after Dawson Baker's ejection, but BYU held on for a dramatic 91-89 win in the NCAA Tournament's second round.`\
+https://nytimes.com/athletic/6224167/2025/03/23/byu-wisconsin-score-ejection-ncaa-tournament/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Wyatt Hendrickson upsets Gable Steveson 5-4 in NCAA heavyweight final**\
 `Steveson previously wrestled Hendrickson in the 2021 NCAA tournament and won 18-2.`\
 https://nytimes.com/athletic/6224188/2025/03/23/wyatt-hendrickson-ohio-state-upset-gable-steveson-ncaa-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6224026/2025/03/23/connections-sports-edition-hints
 **Finally at full strength in March, Houston puts on offensive clinic to reach Sweet 16**\
 `Houston is once again the best defensive team in the nation, but it's also the most efficient offensive team Kelvin Sampson has coached.`\
 https://nytimes.com/athletic/6224077/2025/03/22/houston-gonzaga-ncaa-tournament-result/
-
-**Maple Leafs report cards: Strong start erased by poor finish in Nashville**\
-`Toronto scored two goals in the first period but then allowed 5 unanswered to the Predators for a 5-2 loss.`\
-https://nytimes.com/athletic/6224126/2025/03/22/maple-leafs-predators-grades-analysis/
-
-**Blue Jays sign Alejandro Kirk to 5-year extension: Source**\
-`The Blue Jays inked Kirk, who is strong defensively and at the plate, to an extension worth $58 million. `\
-https://nytimes.com/athletic/6224154/2025/03/22/blue-jays-alejandro-kirk-contract-extension/
 
