@@ -1,3 +1,7 @@
+**Schumer Again Defends Decision to Avoid Shutdown Amid Calls to Resign**\
+`Senator Chuck Schumer of New York, the minority leader, said a government shutdown would have been “10 or 20 times worse” than the Republican stopgap spending bill`\
+https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
+
 **A defiant Schumer again defends his decision to avoid a shutdown.**\
 `By Robert Jimison`\
 https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
