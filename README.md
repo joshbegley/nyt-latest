@@ -1,3 +1,7 @@
+**Brian James, Pioneer of Punk Rock, Is Dead at 70**\
+`As the guitarist and main songwriter for the Damned, he helped spark an explosion on the British music scene in the 1970s.`\
+https://nytimes.com/2025/03/23/arts/music/brian-james-dead.html
+
 **Texas basketball coaching candidates: Who will Longhorns pursue?**\
 `A school and fan base with virtually unlimited resources are back to the drawing board in men's hoops — which may not be the worst thing.`\
 https://nytimes.com/athletic/6218345/2025/03/23/texas-basketball-coaching-candidates-who-will-longhorns-pursue-to-replace-rodney-terry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224716/2025/03/23/with-alexis-diaz-starting-season
 **Tigers signing veteran outfielder Manuel Margot to major-league deal**\
 `The Tigers are signing Margot to help an outfield that will be without Parker Meadows and Matt Vierling to begin the season.`\
 https://nytimes.com/athletic/6224833/2025/03/23/detroit-tigers-manuel-margot-contract/
-
-**Schumer Again Defends Decision to Avoid Shutdown Amid Calls to Resign**\
-`Senator Chuck Schumer of New York, the minority leader, said a government shutdown would have been “10 or 20 times worse” than the Republican stopgap spending bill`\
-https://nytimes.com/2025/03/23/us/politics/chuck-schumer-democrats-meet-the-press.html
 
