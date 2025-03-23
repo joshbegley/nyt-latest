@@ -1,3 +1,7 @@
+**Clubs dream big on stadiums - but what do previous projects tell us about vision versus reality?**\
+`Manchester United have bold ambitions for their new stadium but it can be a long road to an artist's impression becoming reality`\
+https://nytimes.com/athletic/6218812/2025/03/23/football-stadiums-manchester-united-vision-reality/
+
 **Tkachuk's health under microscope in Senators win over Devils: 3 takeaways**\
 `The Sens also found success thanks to the play of Claude Giroux and Linus Ullmark. Plus, a look at Fabian Zetterlund's top-line fit so far. `\
 https://nytimes.com/athletic/6223945/2025/03/23/senators-hip-brady-tkachuk-takeaways/
