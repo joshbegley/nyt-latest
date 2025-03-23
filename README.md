@@ -1,3 +1,7 @@
+**Auburn’s Sweet 16 run required Dylan Cardwell getting after the no-breakfast club**\
+`Every moment spent together at this time of year matters. This isn’t early February at a Fairfield in Starkville.`\
+https://nytimes.com/athletic/6224192/2025/03/23/auburn-sweet-16-dylan-cardwell-team-meeting/
+
 **Inside Carter Starocci's path to 5 national championships for Penn State**\
 `Starocci's 4-3 win in the 184-pound class cemented his place in history as the first Division I wrestler to win five individual NCAA titles.`\
 https://nytimes.com/athletic/6223952/2025/03/23/carter-starocci-penn-state-wrestling-national-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223993/2025/03/23/kevin-willard-maryland-villanova
 **Canada, May I Introduce You to Ukraine?**\
 `We already know what happens when great powers feel entitled to their zones of control, and the strong try to dominate the weak.`\
 https://nytimes.com/2025/03/23/opinion/trump-canada-ukraine.html
-
-**It’s Trump vs. the Courts, and It Won’t End Well for Trump**\
-`The judiciary will never surrender to the president its constitutional role to interpret the Constitution.`\
-https://nytimes.com/2025/03/23/opinion/trump-judge-venezuela-deportation.html
 
