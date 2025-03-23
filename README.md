@@ -1,3 +1,7 @@
+**Former top prospect Jon Singleton among Astros' final spring training roster cuts**\
+`The former top prospect’s comeback from three drug suspensions crescendoed last season. Now, he won’t make Houston’s Opening Day roster.`\
+https://nytimes.com/athletic/6224699/2025/03/23/astros-jon-singleton-roster-cuts-opening-day/
+
 **Perfect Fish, Cooked Perfectly**\
 `Salmon roasted in butter, with some tender green herbs and thin rounds of lemon, is a memorable meal.`\
 https://nytimes.com/2025/03/23/dining/perfect-salmon-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/us/willie-brown-clothes-auction.html
 **24 most intriguing March Madness players to watch: JuJu Watkins, Ta'Niya Latson and more**\
 `What three duos should you keep an on during the tournament? `\
 https://nytimes.com/athletic/6214492/2025/03/23/womens-march-madness-most-intriguing-players/
-
-**The Politics of Gratitude: How Trump Insists on Thanks From Foreign Leaders**\
-`It’s not unusual for presidents to want to hear some words of gratitude. But the friction usually happens behind closed doors.`\
-https://nytimes.com/2025/03/23/us/politics/trump-zelensky-foreign-diplomacy.html
 
