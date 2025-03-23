@@ -1,3 +1,7 @@
+**Turkey Jails Istanbul Mayor Who Was Expected to Run for President**\
+`Supporters of the mayor, Ekrem Imamoglu, said that corruption charges against him were a ploy to sideline the main political rival of President Recep Tayyip Erdogan.`\
+https://nytimes.com/2025/03/23/world/middleeast/turkey-ekrem-imamoglu-istanbul.html
+
 **Saving the Paper, and Our Memory of the Pandemic**\
 `A print archive of 2020 preserves “what the editors were thinking” when the coronavirus pandemic erupted.`\
 https://nytimes.com/2025/03/23/pageoneplus/saving-the-paper-and-our-memory-of-the-pandemic.html
