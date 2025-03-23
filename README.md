@@ -1,3 +1,7 @@
+**Kentucky's Mark Pope delivers ‘1 of 1’ experience by helping fan to first NCAA tourney game**\
+`Pope paid for a Kentucky student's gas money to go support the Wildcats in Milwaukee. It ended in a win, and a trip he'll 'always cherish.'`\
+https://nytimes.com/athletic/6225148/2025/03/23/mark-pope-kentucky-gas-money-ncaa-tournament-milwaukee/
+
 **Venezuela Accepts Flight Carrying Deportees From U.S. for First Time in Weeks**\
 `The Venezuelan government had come under intense pressure from the Trump administration to resume accepting deportation flights.`\
 https://nytimes.com/2025/03/23/us/politics/venezuela-us-deportation-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/briefing/us-ukraine-talks-israel-gaza-starmer-pro
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**U.S. Lodges New Accusations Against Detained Columbia Protest Leader**\
-`The Trump administration is now accusing the Columbia University graduate and protest leader of having withheld information when he applied for permanent residency status.`\
-https://nytimes.com/2025/03/23/nyregion/mahmoud-khalil-trump-allegations.html
 
