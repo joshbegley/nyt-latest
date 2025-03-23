@@ -1,3 +1,7 @@
+**Women's March Madness second round takeaways: Duke survives for another Sweet 16 berth**\
+`Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
+https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
+
 **No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
 `UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
 https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223940/2025/03/23/blue-jackets-contract-fantilli-s
 **Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
 `The family announced that Miller Gardner died in his sleep while on vacation on March 21.`\
 https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
-
-**Wildfires Burn More Than 2,000 Acres in North Carolina**\
-`Forecasters posted an elevated fire-weather risk for an area from northern Georgia, through western portions of the Carolinas and into central Virginia.`\
-https://nytimes.com/2025/03/23/weather/wildfires-north-carolina-polk-county.html
 

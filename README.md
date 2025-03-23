@@ -1,4 +1,8 @@
-**Women's March Madness second round takeaways: Duke survives for another Sweet 16 berth**\
+**A Trump-Friendly Crowd Shows Its Love. But Not for Musk.**\
+`President Trump and Elon Musk took in the Division I wrestling championship in Philadelphia on Saturday. But some of Mr. Trump’s supporters expressed complicated feelings about his billionaire adviser.`\
+https://nytimes.com/2025/03/23/us/politics/trump-musk-ncaa-wrestling-philadelphia.html
+
+**Women's March Madness second round takeaways: Notre Dame advances to fourth straight Sweet 16**\
 `Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
 https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6193726/2025/03/23/rodney-terry-fired-texas-basketb
 **Blue Jackets Sunday Gathering: Waddell is open to long contracts for Fantilli, others**\
 `Columbus long has preferred "bridge" deals for younger players, but that could change.`\
 https://nytimes.com/athletic/6223940/2025/03/23/blue-jackets-contract-fantilli-sillinger/
-
-**Miller Gardner, son of former Yankees outfielder Brett Gardner, dies at 14**\
-`The family announced that Miller Gardner died in his sleep while on vacation on March 21.`\
-https://nytimes.com/athletic/6224852/2025/03/23/miller-gardner-son-brett-yankees-dies/
 

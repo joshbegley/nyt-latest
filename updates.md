@@ -1,3 +1,7 @@
+**Women's March Madness second round takeaways: Duke survives for another Sweet 16 berth**\
+`Duke trailed by five at halftime before coming back. Will Notre Dame sail to victory against Michigan?`\
+https://nytimes.com/athletic/6224955/2025/03/23/womens-march-madness-second-round-takeaways-duke-notre-dame/
+
 **No. 1 Florida takes control late to end UConn's reign in heavyweight thriller**\
 `UConn's streak of 13 straight NCAA Tournament wins and two titles crashed under the second-half heroics of Walter Clayton Jr.`\
 https://nytimes.com/athletic/6224979/2025/03/23/florida-uconn-ncaa-tournament/
