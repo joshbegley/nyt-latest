@@ -1,3 +1,20 @@
+**Newcastle to have open-top bus parade to celebrate League Cup victory on March 29**\
+`The parade will mark Newcastle's first domestic trophy win in 70 years after their 2-1 League Cup final victory over Liverpool.`\
+https://nytimes.com/athletic/6227496/2025/03/24/newcastle-bus-parade-celebration/
+
+**Fred Eversley, Sculptor of Otherworldly Discs, Is Dead at 83**\
+`With his engineering background, he thought about his work differently from how other artists did. His abiding interest was in energy, in the scientific sense.`\
+https://nytimes.com/2025/03/24/arts/design/fred-eversley-dead.html
+
+**Submit your questions for Manny Navarro’s Miami Hurricanes mailbag**\
+`<p>Spring practice is underway. It&#8217;s time to talk Miami football. Submit your questions for Manny below. We will post his answers later in the week.</p>
+`\
+https://nytimes.com/athletic/6227525/2025/03/24/submit-your-questions-for-manny-navarros-miami-hurricanes-mailbag-5/
+
+**Ex-Michigan athletes suing school, Weiss over hacking allegations**\
+`The lawsuit says Michigan failed to monitor Weiss, who was fired in January 2023 after a report of suspicious computer activity.`\
+https://nytimes.com/athletic/6227453/2025/03/24/michigan-athletes-lawsuit-matt-weiss/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/03/24/opinion/thepoint
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-roun
 **Why Driving in Singapore Is Like ‘Wearing a Rolex’**\
 `The city-state, where it costs up to $84,000 just for the right to own a car, is one of the most expensive places to drive. That is by design.`\
 https://nytimes.com/2025/03/24/world/asia/car-certificate-singapore-luxury.html
-
-**Canada's most pressing questions ahead of the 2026 World Cup**\
-`A third-place finish wasn't fully satisfying, but it does set the agenda for what Canada needs to have answered before the World Cup.`\
-https://nytimes.com/athletic/6226455/2025/03/24/canada-questions-2026-world-cup-marsch-davies-larin-sigur/
-
-**De Jong in talks over new Barcelona contract**\
-`The 27-year-old's current deal runs until 2026 and he wants to stay at the La Liga club.`\
-https://nytimes.com/athletic/6227157/2025/03/24/barcelona-de-jong-contract-new/
-
-**Duke bypasses Florida as title favorite: Can anyone stop those two from meeting in final?**\
-`Entering the Sweet 16, it looks like it is Duke and Florida vs. the field in the national title odds.`\
-https://nytimes.com/athletic/6227181/2025/03/24/march-madness-national-title-odds-duke-florida/
-
-**Nadine and Bob Menendez Were ‘Partners in Crime,’ Prosecutor Says**\
-`But a lawyer for Ms. Menendez, the wife of former Senator Robert Menendez, told jurors at the start of her bribery trial that she lacked “knowledge and intent.”`\
-https://nytimes.com/2025/03/24/nyregion/nadine-menendez-corruption-trial.html
 
