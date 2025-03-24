@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6226446/2025/03/24/kristian-campbell-red-sox-openin
 `Assistant coach Marco Donadel will serve as interim head coach as the club looks for its next full-time leader.`\
 https://nytimes.com/athletic/6226695/2025/03/24/cf-montreal-fires-laurent-courtois/
 
-**Canada's Marsch on Nations League red card: I'd do it again**\
+**Canada's Marsch on Nations League red card: 'I'd do it again'**\
 `Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
 https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
 
