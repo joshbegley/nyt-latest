@@ -1,3 +1,7 @@
+**At the Kennedy Center, Conan O’Brien Gets Honored, and the Trump Jokes Are Plentiful**\
+`The star-studded Mark Twain Prize for American Humor ceremony was the most notable event at the Washington arts center since the president installed himself as its chairman.`\
+https://nytimes.com/2025/03/24/arts/conan-obrien-kennedy-center.html
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225870/2025/03/23/mexico-panama-concacaf-nations-l
 **Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
 `The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
 https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
-
-**Tom Izzo leads Michigan State to Sweet 16 for 16th time**\
-`A game that started entirely at New Mexico’s pace completely flipped in the Spartans’ favor over the final 25 minutes.`\
-https://nytimes.com/athletic/6225863/2025/03/23/tom-izzo-michigan-state-sweet-16-for-16th-time-as-michigan-state-new-mexico/
 
