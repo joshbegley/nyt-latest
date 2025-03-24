@@ -1,3 +1,7 @@
+**What I'm seeing in Twins camp: Injuries cause roster uncertainty before Opening Day**\
+`The Twins have four open spots with Opening Day nearly here. A look at the roster picture, along with TV developments and more from camp. `\
+https://nytimes.com/athletic/6225454/2025/03/23/twins-camp-observations-injuries/
+
 **Canada sends USMNT reeling to fourth-place Nations League finish**\
 `The Canadians had a point to prove, and they made it in securing victory in the third-place match.`\
 https://nytimes.com/athletic/6225419/2025/03/23/usmnt-canada-concacaf-nations-league-third-place/
