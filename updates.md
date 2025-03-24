@@ -1,3 +1,11 @@
+**Why Kyle Larson's win at Homestead was 'one of the coolest' of his NASCAR career**\
+`Homestead-Miami Speedway has taken so many wins away from Kyle Larson. On Sunday, he got one back.`\
+https://nytimes.com/athletic/6225830/2025/03/24/kyle-larson-nascar-homestead-win-career/
+
+**Canucks notebook: Daunting math, centre concerns and Thatcher Demko's return**\
+`The wild-card math is getting tough for the Canucks. How a lack of centre depth and Thatcher Demko's return could play out down the stretch`\
+https://nytimes.com/athletic/6225977/2025/03/24/canucks-thatcher-demko-elias-pettersson-injuries/
+
 **Cavaliers' have much needed 'fun practice' to as a break from the grind before win over Jazz**\
 `On Saturday, the Cavs played H-O-R-S-E and cracked jokes. On Sunday, they beat Utah. "It's something we ... needed," Donovan Mitchell said.`\
 https://nytimes.com/athletic/6226014/2025/03/24/cavaliers-jazz-donovan-mitchell/
