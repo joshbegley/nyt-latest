@@ -1,3 +1,11 @@
+**West Virginia Bans 7 Artificial Food Dyes, Citing Health Concerns**\
+`At least 20 other states are considering bills restricting the use of certain food dyes and additives.`\
+https://nytimes.com/2025/03/24/well/west-virginia-food-dye-ban.html
+
+**Columbia Faculty Protests as Trump Officials Hail University Concessions**\
+`While some professors rallied to criticize the changes, federal officials called the university’s actions a “positive first step” in maintaining a financial relationship.`\
+https://nytimes.com/2025/03/24/nyregion/columbia-trump-response.html
+
 **Trump Officials Disclosed Military Plans in a Group Chat**\
 `Also, paper bags might not be as green as you think. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/24/briefing/trump-officials-group-chat-paper-bags-vs-plastic.html

@@ -1,3 +1,19 @@
+**Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
+
+**College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
+`The portal will remain open until April 22, but there was a flurry of activity Monday.`\
+https://nytimes.com/athletic/6227756/2025/03/24/transfer-portal-ncaa-basketball-2025/
+
+**Coco Gauff upset at hometown Miami Open, defining recent struggles on serve**\
+`Gauff's double faults defined her defeat to the Polish world No. 34 in Florida.`\
+https://nytimes.com/athletic/6227861/2025/03/24/coco-gauff-miami-open-tennis-struggles/
+
+**Top Trump Campaign Aide Sues The Daily Beast for Defamation**\
+`The lawsuit accuses the news site of knowingly publishing false information about how much Chris LaCivita, a Trump campaign manager, was paid by the campaign.`\
+https://nytimes.com/2025/03/24/business/media/daily-beast-chris-lacivita-lawsuit-trump.html
+
 **West Virginia Bans 7 Artificial Food Dyes, Citing Health Concerns**\
 `At least 20 other states are considering bills restricting the use of certain food dyes and additives.`\
 https://nytimes.com/2025/03/24/well/west-virginia-food-dye-ban.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6226317/2025/03/24/england-latvia-tuchel-james-eze-
 **Read the lawsuit accusing the Trump administration of illegally targeting a second Columbia student for deportation.**\
 `The suit was filed by a legal permanent resident who has lived in the U.S. since she was 7 and who participated in pro-Palestinian demonstrations on campus.`\
 https://nytimes.com/interactive/2025/03/24/us/chung-lawsuit.html
-
-**A Landmark Climate Case, Where Kids Sued America, Comes to an End**\
-`The Supreme Court declined to hear an appeal in the long-running case, known as Juliana, which helped spawn legal strategies widely adapted to other lawsuits.`\
-https://nytimes.com/2025/03/24/climate/supreme-court-climate-lawsuit-juliana-children.html
-
-**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
-`Free agency is mostly past, and the Seahawks' roster has been overhauled. It's a great time to ask questions to Michael-Shawn Dugar.`\
-https://nytimes.com/athletic/6227908/2025/03/24/seahawks-mailbag-free-agency-trades/
-
-**NWSL, Gotham FC address 'incident involving hateful language' toward Banda**\
-`A Gotham season ticket holder reported via Reddit that fans targeted Banda with what the poster deemed “bigotry" during Sunday's game.`\
-https://nytimes.com/athletic/6227726/2025/03/24/nwsl-gotham-barbra-banda-pride/
-
-**Tuesday Briefing: Trump Threatens New Tariffs**\
-`Plus, the practical magic of “speedcubing.”`\
-https://nytimes.com/2025/03/24/briefing/trump-tariffs-hegseth-yemen-secrets-turkey-protests.html
 
