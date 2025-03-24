@@ -1,3 +1,11 @@
+**‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
+`The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
+https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
+
+**What Are Your Plans After Graduation?**\
+`As the Trump administration makes cuts and extends hiring freezes, career paths might look different.`\
+https://nytimes.com/2025/03/24/us/graduation-2025-callout.html
+
 **Heat Today: Kevin Love thinks Jimmy Butler will feel emotion in Miami return**\
 `What should be expected during Jimmy Butler's return to Miami on Tuesday? Kevin Love anticipates a bit of everything.`\
 https://nytimes.com/athletic/6226631/2025/03/24/jimmy-butler-warriors-heat-return-kevin-love-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/us/politics/hegseth-classified-war-plans-group-ch
 **Why Does Trump Want Greenland? Here’s What to Know.**\
 `President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
 https://nytimes.com/article/trump-greenland-why.html
-
-**Newcastle to have open-top bus parade to celebrate League Cup victory on March 29**\
-`The parade will mark Newcastle's first domestic trophy win in 70 years after their 2-1 League Cup final victory over Liverpool.`\
-https://nytimes.com/athletic/6227496/2025/03/24/newcastle-bus-parade-celebration/
-
-**Fred Eversley, Sculptor of Otherworldly Discs, Is Dead at 83**\
-`With his engineering background, he thought about his work differently from how other artists did. His abiding interest was in energy, in the scientific sense.`\
-https://nytimes.com/2025/03/24/arts/design/fred-eversley-dead.html
 
