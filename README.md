@@ -1,3 +1,15 @@
+**Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
+`Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
+https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/
+
+**Trump invites the Kansas City Chiefs to the White House, honoring a 2020 Super Bowl victory clouded by Covid.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-chiefs-to-the-white-house-honoring-a-2020-super-bowl-victory-clouded-by-covid
+
+**South Korea​n Court ​Reinstates Impeached Prime Minister**\
+`​Prime Minister Han Duck-soo was serving as the country’s acting president when the National Assembly impeached him in December, suspending him from office.`\
+https://nytimes.com/2025/03/23/world/asia/south-korea-reinstates-prime-minister.html
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/23/podcasts/invisible-made-visible-this-american-lif
 **Canada coach Jesse Marsch sent off against USMNT after referee rant**\
 `Marsch let rip with a verbal outburst after Canada had a penalty claim denied in the Concacaf Nations League third-place game.`\
 https://nytimes.com/athletic/6225490/2025/03/23/canada-jesse-marsch-sent-off-usmnt-nations-league/
-
-**Donato's value, Bertuzzi's hot/cold meter, Bedard's instincts: 10 thoughts**\
-`Chicago pulled off a badly needed home win by putting seven goals past Flyers goalie Ivan Fedotov.`\
-https://nytimes.com/athletic/6225258/2025/03/23/blackhawks-donato-contract-bertuzzi-production-flyers/
-
-**Canada, Bayern star Alphonso Davies leaves injured vs. USMNT**\
-`The Canada and Bayern Munich star was hurt early vs. the USMNT in a Nations League third-place match.`\
-https://nytimes.com/athletic/6225509/2025/03/23/alphonso-davies-injury-canada-usmnt-bayern-munich/
-
-**Wisconsin defeats Ohio State to win NCAA women's hockey national championship**\
-`The Wisconsin Badgers won their record eighth national championship in a come-from-behind 4-3 win over the Ohio State Buckeyes on Sunday.`\
-https://nytimes.com/athletic/6224952/2025/03/23/wisconsin-ohio-state-ncaa-womens-hockey-championship/
 
