@@ -1,3 +1,19 @@
+**Cavaliers' have much needed 'fun practice' to as a break from the grind before win over Jazz**\
+`On Saturday, the Cavs played H-O-R-S-E and cracked jokes. On Sunday, they beat Utah. "It's something we ... needed," Donovan Mitchell said.`\
+https://nytimes.com/athletic/6226014/2025/03/24/cavaliers-jazz-donovan-mitchell/
+
+**No Corrections: March 24, 2025**\
+`No corrections appeared in print on Monday, March 24, 2025.`\
+https://nytimes.com/2025/03/24/pageoneplus/no-corrections-march-24-2025.html
+
+**Canucks notebook: Daunting math, centre concerns and Thatcher Demko's return**\
+`The Wild Card math is getting tough for the Canucks. How a lack of centre depth and Thatcher Demko's return could play out down the stretch`\
+https://nytimes.com/athletic/6225977/2025/03/24/canucks-thatcher-demko-elias-pettersson-injuries/
+
+**Rockets can take valuable lessons from 'sloppy' home loss to the Nuggets**\
+`Getting outworked by a Denver team missing its superstar was a missed opportunity. But the Rockets have time to learn from it.`\
+https://nytimes.com/athletic/6225696/2025/03/24/rockets-nuggets-loss-lessons/
+
 **Bubba Wallace is off to a career-best start. Is that elusive third win coming soon?**\
 `With a new outlook, Bubba Wallace is off to the best start of his career. And that elusive victory feels closer than ever.`\
 https://nytimes.com/athletic/6226326/2025/03/24/bubba-wallace-nascar-homestead-charles-denike/
