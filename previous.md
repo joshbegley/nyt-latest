@@ -1,3 +1,7 @@
+**How to watch No. 3 LSU vs. No. 6 Florida State in the women's NCAA Tournament**\
+`LSU is a double-digit favorite at home against Florida State in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6224643/2025/03/24/lsu-florida-state-womens-ncaa-tournament-how-to-watch/
+
 **Yankees fans cry foul over limited access to players after Steinbrenner Field renovations**\
 `With a new building at the Yankees' spring training facility in a space fans used to frequent, some said they may not return.`\
 https://nytimes.com/athletic/6225019/2025/03/24/yankees-spring-training-renovations-fan-response/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/us/politics/x-date-debt-limit-treasury-republican
 **Trump Did What Castros Couldn’t: Take Radio Martí Off the Air**\
 `For four decades, a U.S.-financed broadcaster provoked the ire of the communist government in Cuba. President Trump dismantled it in a matter of days.`\
 https://nytimes.com/2025/03/24/world/americas/radio-marti-cuba-trump-castro.html
-
-**Sherrod Brown, Weighing a 2026 Senate Bid, Starts a Workers’ Group**\
-`Mr. Brown, the Ohio Democrat who lost his race for re-election last year, is forming the Dignity of Work Institute, which will highlight workers’ struggles.`\
-https://nytimes.com/2025/03/24/us/politics/sherrod-brown-2026-senate-ohio.html
 

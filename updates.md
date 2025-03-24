@@ -1,3 +1,7 @@
+**How to watch No. 3 LSU vs. No. 6 Florida State in the women's NCAA Tournament**\
+`LSU is a double-digit favorite at home against Florida State in the second round of the NCAA Tournament.`\
+https://nytimes.com/athletic/6224643/2025/03/24/lsu-florida-state-womens-ncaa-tournament-how-to-watch/
+
 **Yankees fans cry foul over limited access to players after Steinbrenner Field renovations**\
 `With a new building at the Yankees' spring training facility in a space fans used to frequent, some said they may not return.`\
 https://nytimes.com/athletic/6225019/2025/03/24/yankees-spring-training-renovations-fan-response/
