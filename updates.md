@@ -1,3 +1,11 @@
+**Iowa hiring Drake's Ben McCollum as four-time D-II champ's rise continues**\
+`McCollum led the Bulldogs to a school-record 31 wins in his first season after an incredible run at D-II Northwest Missouri State.`\
+https://nytimes.com/athletic/6224096/2025/03/24/iowa-coach-ben-mccollum-drake-ncaa-tournament/
+
+**NHL weekend rankings: A lot can change in 2 weeks, but I still believe in the Blue Jackets**\
+`With two weeks' worth of data instead of just one, the top five gets a shakeup and some races might not be as set in stone as we thought.`\
+https://nytimes.com/athletic/6225293/2025/03/24/nhl-weekend-rankings-storylines-islanders-blue-jackets/
+
 **The Vicious Cycle of Extreme Heat Leading to More Fossil Fuel Use**\
 `A new report illustrates a concerning dynamic: record heat last year pushed to countries to use more planet-warming fossil fuels to cool things down.`\
 https://nytimes.com/2025/03/24/climate/extreme-heat-emissions-energy-trends.html
