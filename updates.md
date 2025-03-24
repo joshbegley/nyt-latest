@@ -1,3 +1,11 @@
+**‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
+`The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
+https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
+
+**What Are Your Plans After Graduation?**\
+`As the Trump administration makes cuts and extends hiring freezes, career paths might look different.`\
+https://nytimes.com/2025/03/24/us/graduation-2025-callout.html
+
 **Heat Today: Kevin Love thinks Jimmy Butler will feel emotion in Miami return**\
 `What should be expected during Jimmy Butler's return to Miami on Tuesday? Kevin Love anticipates a bit of everything.`\
 https://nytimes.com/athletic/6226631/2025/03/24/jimmy-butler-warriors-heat-return-kevin-love-nba/

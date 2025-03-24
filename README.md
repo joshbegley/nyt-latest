@@ -10,7 +10,7 @@ https://nytimes.com/2025/03/24/us/graduation-2025-callout.html
 `What should be expected during Jimmy Butler's return to Miami on Tuesday? Kevin Love anticipates a bit of everything.`\
 https://nytimes.com/athletic/6226631/2025/03/24/jimmy-butler-warriors-heat-return-kevin-love-nba/
 
-**I Don’t Know How Pete Hegseth Can Look Service Members In the Eyes**\
+**I Don’t Know How Pete Hegseth Can Look Service Members in the Eye**\
 `A defense secretary intentionally using a civilian app to share sensitive war plans, without noticing a journalist was in the chat, would be egregious.`\
 https://nytimes.com/2025/03/24/opinion/atlantic-hegseth-vance-houthis.html
 
