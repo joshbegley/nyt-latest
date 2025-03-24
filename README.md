@@ -1,3 +1,23 @@
+**Amid losing streak, Tottenham Hotspur give head coach Robert Vilahamn time**\
+`Spurs promised a plan, but recent results beg the question: do they still have one?`\
+https://nytimes.com/athletic/6225388/2025/03/24/tottenham-hotspur-robert-vilahamn-time-losing/
+
+**‘Chaos and Confusion’ at the Crown Jewel of American Science**\
+`Senior scientists at the National Institutes of Health fear that research on conditions like obesity, heart disease and cancer will be undermined by President Trump’s policies.`\
+https://nytimes.com/2025/03/24/health/nih-doge-trump.html
+
+**Adams Uses Agency ‘Tracker’ to Control Messaging on Trump**\
+`Mayor Eric Adams has used a spreadsheet to flag agency statements that may cause potential problems with the Trump administration.`\
+https://nytimes.com/2025/03/24/nyregion/adams-trump-tracker.html
+
+**Hochul Backs Plan to Ease Evidence Requirements for Prosecutors**\
+`District attorneys say that a 2019 law ordering them to give reams of evidence to defense lawyers has resulted in thousands of scuttled cases.`\
+https://nytimes.com/2025/03/24/nyregion/hochul-prosecutors-discovery-evidence.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/24/crosswords/spelling-bee-forum.html
+
 **Somehow, the Portugal national team is still The Cristiano Ronaldo Show**\
 `Ronaldo's main character energy ensures he dominates proceedings — even when it's his team-mates doing most of the work`\
 https://nytimes.com/athletic/6225542/2025/03/24/cristiano-ronaldo-portugal-main-character/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6225155/2025/03/24/chelsea-manchester-city-wsl-erin
 **Word of the Day: repartee**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/24/learning/word-of-the-day-repartee.html
-
-**‘Don’t Think, Just Solve’**\
-`Max Park is a longtime speedcubing world record holder — for the 3x3x3 cube, his best official time is 3.13 seconds. Let's show you how he does it.`\
-https://nytimes.com/interactive/2025/03/24/science/max-park-rubiks-speedcube.html
-
-**Listen: The rise of Lewis-Skelly and Nwaneri — 'It's a beautiful thing they've come through together'**\
-`The Handbrake Off podcast discuss the remarkable rise of Lewis-Skelly and Nwaneri, and the impact they have had for Arsenal this season`\
-https://nytimes.com/athletic/6221621/2025/03/24/arsenal-myles-lewis-skelly-ethan-nwaneri/
-
-**Everton Stadium's latest test event: 'The train was too full for people to get on'**\
-`Overcrowded trains and a trespasser, but a cautious step forward`\
-https://nytimes.com/athletic/6224863/2025/03/24/everton-stadium-test-event/
-
-**How Bruno Guimaraes put the past tense behind him to become Newcastle's heartbeat**\
-`Earlier this season, Guimaraes struggled to shine while wearing the captain's armband. Now he's made history`\
-https://nytimes.com/athletic/6221522/2025/03/24/bruno-guimaraes-newcastle-united-captain-2/
-
-**How Real Madrid Femenino caused the biggest Clasico upset to keep Liga F alive**\
-`Real rode their luck but this wasn’t an undeserved victory. Despite playing their reserves, they defended solidly and broke with purpose`\
-https://nytimes.com/athletic/6224567/2025/03/24/real-madrid-clasico-barcelona-liga-f/
 
