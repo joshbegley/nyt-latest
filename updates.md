@@ -1,3 +1,7 @@
+**Chicago Cubs roster projection 3.0: On to the next Opening Day**\
+`With the second phase of spring training almost over, here's how the Cubs could regroup.`\
+https://nytimes.com/athletic/6225583/2025/03/23/chicago-cubs-roster-projection-3-0/
+
 **‘The White Lotus’ Season 3, Episode 6 Recap: The Morning After**\
 `Drinks were drunk, decisions were made. This week’s episode was all about the consequences.`\
 https://nytimes.com/2025/03/23/arts/television/the-white-lotus-recap-season-3-episode-6.html
