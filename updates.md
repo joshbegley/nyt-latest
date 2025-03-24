@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`Fury in Greenland over a Trump delegation.`\
+https://nytimes.com/2025/03/24/briefing/greenland-trump-gaza.html
+
+**‘Mid Century Modern,’ Plus 8 Things to Watch on TV this Week**\
+`A new comedy starring Nathan Lane and Matt Bomer comes to Hulu, and this season of “The Bachelor” wraps up.`\
+https://nytimes.com/2025/03/24/arts/television/mid-century-modern-plus-8-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, March 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/24/todays-new-york-times
+
+**A War Within the War: Ukraine’s Ill Children**\
+`In nearly three years of full-scale war, Ukrainian families of children with long-term illnesses have had to overcome countless challenges.`\
+https://nytimes.com/card/2025/03/24/world/europe/ukraine-children-illness
+
 **At the Kennedy Center, Conan O’Brien Gets Honored, and the Trump Jokes Are Plentiful**\
 `The star-studded Mark Twain Prize for American Humor ceremony was the most notable event at the Washington arts center since the president installed himself as its chairman.`\
 https://nytimes.com/2025/03/24/arts/conan-obrien-kennedy-center.html

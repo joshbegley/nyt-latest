@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`Fury in Greenland over a Trump delegation.`\
+https://nytimes.com/2025/03/24/briefing/greenland-trump-gaza.html
+
+**‘Mid Century Modern,’ Plus 8 Things to Watch on TV this Week**\
+`A new comedy starring Nathan Lane and Matt Bomer comes to Hulu, and this season of “The Bachelor” wraps up.`\
+https://nytimes.com/2025/03/24/arts/television/mid-century-modern-plus-8-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, March 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/24/todays-new-york-times
+
+**A War Within the War: Ukraine’s Ill Children**\
+`In nearly three years of full-scale war, Ukrainian families of children with long-term illnesses have had to overcome countless challenges.`\
+https://nytimes.com/card/2025/03/24/world/europe/ukraine-children-illness
+
 **At the Kennedy Center, Conan O’Brien Gets Honored, and the Trump Jokes Are Plentiful**\
 `The star-studded Mark Twain Prize for American Humor ceremony was the most notable event at the Washington arts center since the president installed himself as its chairman.`\
 https://nytimes.com/2025/03/24/arts/conan-obrien-kennedy-center.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/24/world/europe/trump-russia-putin-ukraine.html
 **Quote of the Day: After the L.A. Wildfires, a Race to Save the Tiles, and the Soul, of Altadena**\
 `Quotation of the Day for Monday, March 24, 2025`\
 https://nytimes.com/2025/03/24/pageoneplus/quote-of-the-day-after-the-la-wildfires-a-race-to-save-the-tiles-and-the-soul-of-altadena.html
-
-**Connections: Sports Edition Coach: Hints for March 24, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6225693/2025/03/24/connections-sports-edition-hints-for-march-24-2025/
-
-**‘Othello’ Review: Denzel Washington and Jake Gyllenhaal Are Prey and Predator**\
-`Shakespeare’s leanest tragedy gets a starry, headlong production that embraces the action but misses the mystery.`\
-https://nytimes.com/2025/03/23/theater/othello-broadway-review-washington-gyllenhaal.html
-
-**Mexico wins Concacaf Nations League title thanks to Jiménez, gifted PK**\
-`Mexico claimed its first Concacaf Nations League title after Raul Jiménez's stoppage-time PK.`\
-https://nytimes.com/athletic/6225870/2025/03/23/mexico-panama-concacaf-nations-league-title-jimenez/
-
-**Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
-`The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
-https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
 
