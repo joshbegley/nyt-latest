@@ -1,3 +1,7 @@
+**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
+`What's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/6227770/2025/03/24/notre-dame-football-mailbag-spring-practice-2/
+
 **Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
 `A winner of top awards in his country, he drew the attention of European and American critics. The prime minister said he “made us see Norway and the world in new ways.”`\
 https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/03/24/us/politics/trump-nobel-peace-prize.html
 https://nytimes.com/card/2025/03/24/style/cambridge-typewriter-company-party
 
 **Trump Says Hyundai’s New U.S. Investments Prove His Tariffs Work**\
-`Hyundai Motor, a South Korean conglomerate known for its automobiles and steel, announced on Monday it will make investments to expand manufacturing in the United States.`\
+`Hyundai Motor, a South Korean conglomerate known for its automobiles, announced on Monday that it would make investments to expand manufacturing in the United States.`\
 https://nytimes.com/video/us/politics/100000010070096/trump-tariffs-hyundai-steel-automobiles.html
 
 **NewJeans Had Planned a Rebirth. The Performance Ended in Tears.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/dining/eid-al-fitr-sheer-khorma.html
 **A ‘Life-Changing’ Child Care Program in New York Could Soon Collapse**\
 `Child care vouchers for low-income families have been a lifeline amid the city’s affordability crisis. They could vanish unless state lawmakers move quickly to fund the program.`\
 https://nytimes.com/2025/03/24/nyregion/nyc-child-care-day-care-vouchers.html
-
-**‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
-`The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
-https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
 
