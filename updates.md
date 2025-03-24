@@ -1,3 +1,7 @@
+**The Athletic FC: Red alert for Marsch, USMNT; Musiala's cheeky goal, Ronaldo Show rumbles on**\
+`Today in TAFC: Canada beat USMNT, Mexico win Nations League, Musiala scores clever goal from a corner, Ronaldo remains on centre stage.`\
+https://nytimes.com/athletic/6226181/2025/03/24/usmnt-marsch-nations-league-ronaldo-penalty/
+
 **Phillies 2025 season preview: Roster breakdown, projections, and bold prediction**\
 `The path to reclaiming a division title is arduous, but not impossible. Then again, all anyone in Philadelphia cares about is October.`\
 https://nytimes.com/athletic/6214481/2025/03/24/philadelphia-phillies-2025-season-preview-roster-breakdown-projections-and-bold-prediction/

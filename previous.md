@@ -1,3 +1,7 @@
+**The Athletic FC: Red alert for Marsch, USMNT; Musiala's cheeky goal, Ronaldo Show rumbles on**\
+`Today in TAFC: Canada beat USMNT, Mexico win Nations League, Musiala scores clever goal from a corner, Ronaldo remains on centre stage.`\
+https://nytimes.com/athletic/6226181/2025/03/24/usmnt-marsch-nations-league-ronaldo-penalty/
+
 **Phillies 2025 season preview: Roster breakdown, projections, and bold prediction**\
 `The path to reclaiming a division title is arduous, but not impossible. Then again, all anyone in Philadelphia cares about is October.`\
 https://nytimes.com/athletic/6214481/2025/03/24/philadelphia-phillies-2025-season-preview-roster-breakdown-projections-and-bold-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225650/2025/03/24/ncaa-tournament-sweet-16-the-pul
 **How to watch No. 2 UConn vs. No. 10 South Dakota State in the women's NCAA Tournament**\
 `UConn continues its journey through the NCAA Tournament as a massive home favorite against South Dakota State in the second round.`\
 https://nytimes.com/athletic/6224676/2025/03/24/uconn-south-dakota-state-womens-ncaa-tournament-how-to-watch/
-
-**23andMe Files for Bankruptcy Amid Concerns About Security of Customers’ Genetic Data**\
-`The company filed for Chapter 11 bankruptcy to “facilitate a sale process.” Its chief executive stepped down and said she would bid on it.`\
-https://nytimes.com/2025/03/24/business/23andme-bankruptcy.html
 
