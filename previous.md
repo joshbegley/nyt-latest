@@ -1,3 +1,7 @@
+**Women's March Madness second-round takeaways: Can NC State keep this offensive spurt going?**\
+`No. 2 seed UConn takes on No. 10 seed South Dakota State on Monday evening.`\
+https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-round-takeaways-texas-lsu-uconn/
+
 **Why Driving in Singapore Is Like ‘Wearing a Rolex’**\
 `The city-state, where it costs up to $84,000 just for the right to own a car, is one of the most expensive places to drive. That is by design.`\
 https://nytimes.com/2025/03/24/world/asia/car-certificate-singapore-luxury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/opinion/trump-boasberg-judges-constitution.html
 **Canadiens notebook: Hutson's shooting, Montembeault’s confidence**\
 `Also in this week's notebook: confidence-growing moments for Joshua Roy, Jayden Struble and some video of David Reinbacher in Laval.`\
 https://nytimes.com/athletic/6227225/2025/03/24/canadiens-lane-hutson-sam-montembeault/
-
-**gws-parker-posey-white-lotus**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
 
