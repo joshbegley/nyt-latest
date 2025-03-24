@@ -1,3 +1,11 @@
+**Canada's Marsch on Nations League red card: I'd do it again**\
+`Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
+https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
+
+**Trump’s Moves on Greenland Appear to Be Backfiring**\
+`The Greenlandic government is calling an upcoming visit by Trump officials “aggressive,” pushing the island further from the United States.`\
+https://nytimes.com/2025/03/24/world/europe/trump-greenland-us.html
+
 **The Windup: Sleeper pick in the NL Central?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/science/amber-fossils-synthetic.html
 **Lowetide: What we've learned about the Oilers since trade deadline**\
 `The Oilers' numbers since the deadline indicate incremental improvement ahead of the playoffs.`\
 https://nytimes.com/athletic/6224805/2025/03/24/nhl-oilers-stats-trade-deadline/
-
-**Affirmative Action Is Gone. Can Class-Based Admissions Replace It?**\
-`Richard D. Kahlenberg has long argued for colleges to weigh socioeconomic status to promote diversity. His position is more relevant than ever.`\
-https://nytimes.com/2025/03/24/books/review/james-traub-class-matters.html
-
-**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

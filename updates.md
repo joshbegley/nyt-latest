@@ -1,3 +1,11 @@
+**Canada's Marsch on Nations League red card: I'd do it again**\
+`Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
+https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
+
+**Trump’s Moves on Greenland Appear to Be Backfiring**\
+`The Greenlandic government is calling an upcoming visit by Trump officials “aggressive,” pushing the island further from the United States.`\
+https://nytimes.com/2025/03/24/world/europe/trump-greenland-us.html
+
 **The Windup: Sleeper pick in the NL Central?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-the-windup/
