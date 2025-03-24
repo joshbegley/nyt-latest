@@ -1,3 +1,7 @@
+**Immigrants and Freedom of Speech**\
+`President Trump is taking advantage of an unsettled aspect of the law.`\
+https://nytimes.com/2025/03/24/briefing/immigration-trump-constitution.html
+
 **The Pulse: Yes, we got a buzzer-beater**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6225650/2025/03/24/ncaa-tournament-sweet-16-the-pulse-2/
