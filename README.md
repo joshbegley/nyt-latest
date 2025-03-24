@@ -27,8 +27,8 @@ https://nytimes.com/live/2025/03/24/opinion/thepoint
 `Jeff Haverlack shares his first dynasty league rookie draft for 2025, with running backs dominating the top spots of his two-round mock.`\
 https://nytimes.com/athletic/6227121/2025/03/24/dynasty-fantasy-football-2025-rookie-mock-draft-superflex/
 
-**Concerns Grow Over a New Lab-Grown Blood Vessel**\
-`The F.D.A. approved an artificial vessel to restore blood flow in patients, despite its own scientists flagging questionable study results and potentially fatal ruptures of the product.`\
+**F.D.A. Approved Lab-Grown Blood Vessel DespiteWarnings**\
+`The agency OK’d an artificial vessel to restore blood flow in patients, even though its own scientists flagged questionable study results and potentially fatal ruptures of the product.`\
 https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
 
 **A Festival Displays the Expressive Power of Tuning in Music**\
