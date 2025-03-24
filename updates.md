@@ -1,3 +1,7 @@
+**As Clippers win streak ends, they hold their breath on status of James Harden**\
+`The Clippers were finally healthy and hoping for a sixth straight win. The Thunder prevailed and now Harden's health is an issue.`\
+https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-injured/
+
 **Mia Love, First Black Republican Woman Elected to Congress, Dies at 49**\
 `Ms. Love, who represented Utah in Congress from 2015 to 2019, was diagnosed with brain cancer in 2022.`\
 https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
