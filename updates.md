@@ -1,3 +1,7 @@
+**College baseball week in review: Time to panic at Texas A&M, Florida and Virginia?**\
+`The next Charlie Condon? Not quite, but Georgia has a new offensive star in Miami (Ohio) transfer Ryland Zaborowski.`\
+https://nytimes.com/athletic/6225601/2025/03/24/college-baseball-texas-am-florida-virginia/
+
 **Boehly suggests Chelsea co-owners will split if they disagree on stadium plan**\
 `"What’s been written and talked about is much more ‘drama’ than what’s actually happening," Boehly said on Chelsea's ownership structure.`\
 https://nytimes.com/athletic/6226419/2025/03/24/chelsea-stadium-boehly-stamford-bridge/

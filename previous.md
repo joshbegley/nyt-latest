@@ -1,3 +1,7 @@
+**College baseball week in review: Time to panic at Texas A&M, Florida and Virginia?**\
+`The next Charlie Condon? Not quite, but Georgia has a new offensive star in Miami (Ohio) transfer Ryland Zaborowski.`\
+https://nytimes.com/athletic/6225601/2025/03/24/college-baseball-texas-am-florida-virginia/
+
 **Boehly suggests Chelsea co-owners will split if they disagree on stadium plan**\
 `"What’s been written and talked about is much more ‘drama’ than what’s actually happening," Boehly said on Chelsea's ownership structure.`\
 https://nytimes.com/athletic/6226419/2025/03/24/chelsea-stadium-boehly-stamford-bridge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224920/2025/03/24/wild-zeev-buium-arena-prospect-u
 **The Maple Leafs’ pricey bet on Scott Laughton is floundering (so far)**\
 `In a seller's market, the price for Scott Laughton was not cheap. As the former Flyer struggles to adapt, what can the Leafs do?`\
 https://nytimes.com/athletic/6224809/2025/03/24/maple-leafs-scott-laughton-mcmann-predators/
-
-**How the Red Wings' top 12 prospects are performing ahead of crucial offseason**\
-`As its fan base faces another likely playoff-free postseason, the prospects within Detroit's system can provide some hope for the future.`\
-https://nytimes.com/athletic/6222268/2025/03/24/red-wings-top-prospects-update/
 
