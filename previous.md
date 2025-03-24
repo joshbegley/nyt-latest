@@ -1,3 +1,19 @@
+**Trump Asks Supreme Court to Block Ruling on Rehiring Fired Workers**\
+`An administration lawyer complained about what she said was a trend of lower court judges exceeding their authority in halting government programs.`\
+https://nytimes.com/2025/03/24/us/trump-supreme-court-probationary-workers.html
+
+**Judge Blocks Education Officials From Providing Sensitive Data to Musk’s Team**\
+`The ruling on Monday extended an earlier one barring Elon Musk and his associates from reviewing student loan data and other potentially sensitive records.`\
+https://nytimes.com/2025/03/24/us/politics/musk-privacy-education-department.html
+
+**Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
+`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Second Lady Usha Vance plans to attend.`\
+https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
+
+**Minnesota hiring Colorado State's Niko Medved as next men's hoops coach**\
+`Medved's Rams fell victim to a Derik Queen buzzer beater in a 72-71 loss to No. 4 seed Maryland on Sunday.`\
+https://nytimes.com/athletic/6206249/2025/03/24/minnesota-niko-medved-colorado-state-coach/
+
 **Trump Chooses His Former Lawyer as Interim U.S. Attorney for New Jersey**\
 `Alina Habba, who defended President Trump against E. Jean Carroll’s sexual abuse and defamation claims, will oversee the work of about 150 prosecutors.`\
 https://nytimes.com/2025/03/24/nyregion/trump-alina-habba-new-jersey-us-attorney.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
 **Mexico swings Concacaf's pendulum back its way with Nations League title**\
 `The Concacaf Nations League is not the most glamorous trophy, but for a Mexico side in need of a vibes shift, it serves a major purpose.`\
 https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-title-alvarez-aguirre-jimenez/
-
-**Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
-`For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
-https://nytimes.com/2025/03/24/world/middleeast/israel-turmoil-government.html
-
-**After a Brief Return Home, Palestinians Are Displaced Once Again**\
-`The Israeli military’s renewed drive into Gaza has pushed families to flee neighborhoods they had only recently returned to during a cease-fire.`\
-https://nytimes.com/2025/03/24/world/middleeast/israel-gaza-offensive-palestinians-displaced.html
-
-**Test Your Body Awareness**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/body-awareness-proprioception-tests
-
-**Why the NBA's tanking debate is about more than just losing games**\
-`Plus: As the Suns try to salvage their season, have they found a solution to their issues at center?`\
-https://nytimes.com/athletic/6226127/2025/03/24/nba-tanking-debate-oso-ighodaro-suns/
 

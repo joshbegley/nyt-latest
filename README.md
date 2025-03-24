@@ -1,3 +1,7 @@
+**Judge Maintains Block on Deportations of Venezuelans Under Wartime Law**\
+`Judge James E. Boasberg’s order says that the Venezuelan immigrants should have the opportunity to challenge the accusation by the Trump administration that they are members of a gang.`\
+https://nytimes.com/2025/03/24/us/judge-ruling-trump-deportations-alien-enemies-act.html
+
 **Trump Asks Supreme Court to Block Ruling on Rehiring Fired Workers**\
 `An administration lawyer complained about what she said was a trend of lower court judges exceeding their authority in halting government programs.`\
 https://nytimes.com/2025/03/24/us/trump-supreme-court-probationary-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
 **Bird Flu Found in Sheep in U.K., a World First**\
 `The H5N1 virus was detected in a single animal in Yorkshire, the British government said on Monday. It added that the risk to humans remained very low.`\
 https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
-
-**Mexico swings Concacaf's pendulum back its way with Nations League title**\
-`The Concacaf Nations League is not the most glamorous trophy, but for a Mexico side in need of a vibes shift, it serves a major purpose.`\
-https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-title-alvarez-aguirre-jimenez/
 
