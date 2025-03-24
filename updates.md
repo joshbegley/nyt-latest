@@ -1,3 +1,11 @@
+**Affirmative Action Is Gone. Can Class-Based Admissions Replace It?**\
+`Richard D. Kahlenberg has long argued for colleges to weigh socioeconomic status to promote diversity. His position is more relevant than ever.`\
+https://nytimes.com/2025/03/24/books/review/james-traub-class-matters.html
+
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Why Kyle Larson's win at Homestead was 'one of the coolest' of his NASCAR career**\
 `Homestead-Miami Speedway has taken so many wins away from Kyle Larson. On Sunday, he got one back.`\
 https://nytimes.com/athletic/6225830/2025/03/24/kyle-larson-nascar-homestead-win-career/

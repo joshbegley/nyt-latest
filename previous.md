@@ -1,3 +1,11 @@
+**Affirmative Action Is Gone. Can Class-Based Admissions Replace It?**\
+`Richard D. Kahlenberg has long argued for colleges to weigh socioeconomic status to promote diversity. His position is more relevant than ever.`\
+https://nytimes.com/2025/03/24/books/review/james-traub-class-matters.html
+
+**Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Why Kyle Larson's win at Homestead was 'one of the coolest' of his NASCAR career**\
 `Homestead-Miami Speedway has taken so many wins away from Kyle Larson. On Sunday, he got one back.`\
 https://nytimes.com/athletic/6225830/2025/03/24/kyle-larson-nascar-homestead-win-career/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6226205/2025/03/24/tennis-underarm-serve-shot-kosty
 **Iowa hiring Drake's Ben McCollum as four-time D-II champ's rise continues**\
 `McCollum led the Bulldogs to a school-record 31 wins in his first season after an incredible run at D-II Northwest Missouri State.`\
 https://nytimes.com/athletic/6224096/2025/03/24/iowa-coach-ben-mccollum-drake-ncaa-tournament/
-
-**NHL weekend rankings: A lot can change in 2 weeks, but I still believe in the Blue Jackets**\
-`With two weeks' worth of data instead of just one, the top five gets a shakeup and some races might not be as set in stone as we thought.`\
-https://nytimes.com/athletic/6225293/2025/03/24/nhl-weekend-rankings-storylines-islanders-blue-jackets/
-
-**The Vicious Cycle of Extreme Heat Leading to More Fossil Fuel Use**\
-`A new report illustrates a concerning dynamic: record heat last year pushed to countries to use more planet-warming fossil fuels to cool things down.`\
-https://nytimes.com/2025/03/24/climate/extreme-heat-emissions-energy-trends.html
 
