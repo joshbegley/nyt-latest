@@ -1,3 +1,15 @@
+**Read the lawsuit accusing the Trump administration of illegally targeting a second Columbia student for deportation.**\
+`The suit was filed by a legal permanent resident who has lived in the U.S. since she was 7 and who participated in pro-Palestinian demonstrations on campus.`\
+https://nytimes.com/interactive/2025/03/24/us/chung-lawsuit.html
+
+**A Landmark Climate Case, Where Kids Sued America, Comes to an End**\
+`The Supreme Court declined to hear an appeal in the long-running case, known as Juliana, which helped spawn legal strategies widely adapted to other lawsuits.`\
+https://nytimes.com/2025/03/24/climate/supreme-court-climate-lawsuit-juliana-children.html
+
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`Free agency is mostly past, and the Seahawks' roster has been overhauled. It's a great time to ask questions to Michael-Shawn Dugar.`\
+https://nytimes.com/athletic/6227908/2025/03/24/seahawks-mailbag-free-agency-trades/
+
 **NWSL, Gotham FC address 'incident involving hateful language' toward Banda**\
 `A Gotham season ticket holder reported via Reddit that fans targeted Banda with what the poster deemed “bigotry" during Sunday's game.`\
 https://nytimes.com/athletic/6227726/2025/03/24/nwsl-gotham-barbra-banda-pride/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/24/nyregion/columbia-student-ice-suit-yunseo-chung.h
 **Oilers' McDavid, Draisaitl remain sidelined for at least another week**\
 `Edmonton's two superstars are both expected to miss all three games this week due to injuries.`\
 https://nytimes.com/athletic/6227614/2025/03/24/oilers-injuries-mcdavid-draisaitl/
-
-**Social Security, Buffeted by Turmoil, Awaits a New Leader**\
-`The billionaire Elon Musk has become fixated on finding fraud inside the agency, which provides retirement, survivor and disability payments to 73 million Americans each month.`\
-https://nytimes.com/2025/03/24/us/politics/frank-bisignano-social-security-upheaval.html
-
-**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
-`What's on your mind about Notre Dame?`\
-https://nytimes.com/athletic/6227770/2025/03/24/notre-dame-football-mailbag-spring-practice-2/
-
-**Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
-`A winner of top awards in his country, he drew the attention of European and American critics. The prime minister said he “made us see Norway and the world in new ways.”`\
-https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
 
