@@ -1,3 +1,11 @@
+**Iowa hiring Drake's Ben McCollum as four-time D-II champ's rise continues**\
+`McCollum led the Bulldogs to a school-record 31 wins in his first season after an incredible run at D-II Northwest Missouri State.`\
+https://nytimes.com/athletic/6224096/2025/03/24/iowa-coach-ben-mccollum-drake-ncaa-tournament/
+
+**NHL weekend rankings: A lot can change in 2 weeks, but I still believe in the Blue Jackets**\
+`With two weeks' worth of data instead of just one, the top five gets a shakeup and some races might not be as set in stone as we thought.`\
+https://nytimes.com/athletic/6225293/2025/03/24/nhl-weekend-rankings-storylines-islanders-blue-jackets/
+
 **The Vicious Cycle of Extreme Heat Leading to More Fossil Fuel Use**\
 `A new report illustrates a concerning dynamic: record heat last year pushed to countries to use more planet-warming fossil fuels to cool things down.`\
 https://nytimes.com/2025/03/24/climate/extreme-heat-emissions-energy-trends.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6226344/2025/03/24/ncaa-tournament-upsets-sweet-16/
 **Trump, Big Law, and an ‘Existential Crisis’**\
 `The president’s clash with some of the nation’s biggest law firms appears to be far from over, potentially splintering the legal community even further.`\
 https://nytimes.com/2025/03/24/business/dealbook/trump-big-law-paul-weiss.html
-
-**Lewis Hamilton’s China disqualification caps off rollercoaster start with Ferrari**\
-`It hasn't been a dream beginning with Ferrari, but there are plenty of positives Hamilton can take from the season's first two races`\
-https://nytimes.com/athletic/6226258/2025/03/24/lewis-hamilton-china-f1-disqualification-ferrari-rollercoaster-analysis/
-
-**Nebraska spring storylines: Roster crunch, defensive reboot and more**\
-`Matt Rhule will learn a lot about his Huskers over the next month.`\
-https://nytimes.com/athletic/6224875/2025/03/24/nebraska-spring-football-defense-roster/
 

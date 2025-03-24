@@ -1,3 +1,11 @@
+**The Vicious Cycle of Extreme Heat Leading to More Fossil Fuel Use**\
+`A new report illustrates a concerning dynamic: record heat last year pushed to countries to use more planet-warming fossil fuels to cool things down.`\
+https://nytimes.com/2025/03/24/climate/extreme-heat-emissions-energy-trends.html
+
+**Gérard Depardieu Appears in Court Over Sexual Assault Allegations**\
+`The French actor faces charges in a case involving two women working on the set of a movie in which he starred.`\
+https://nytimes.com/2025/03/24/world/europe/gerard-depardieu-sexual-assault-trial.html
+
 **College baseball week in review: Time to panic at Texas A&M, Florida and Virginia?**\
 `The next Charlie Condon? Not quite, but Georgia has a new offensive star in Miami (Ohio) transfer Ryland Zaborowski.`\
 https://nytimes.com/athletic/6225601/2025/03/24/college-baseball-texas-am-florida-virginia/
