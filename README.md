@@ -1,3 +1,7 @@
+**Why Kyle Larson's win at Homestead was 'one of the coolest' of his NASCAR career**\
+`Homestead-Miami Speedway has taken so many wins away from Kyle Larson. On Sunday, he got one back.`\
+https://nytimes.com/athletic/6225830/2025/03/24/kyle-larson-nascar-homestead-win-career/
+
 **Cavaliers' have much needed 'fun practice' to as a break from the grind before win over Jazz**\
 `On Saturday, the Cavs played H-O-R-S-E and cracked jokes. On Sunday, they beat Utah. "It's something we ... needed," Donovan Mitchell said.`\
 https://nytimes.com/athletic/6226014/2025/03/24/cavaliers-jazz-donovan-mitchell/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6226014/2025/03/24/cavaliers-jazz-donovan-mitchell/
 https://nytimes.com/2025/03/24/pageoneplus/no-corrections-march-24-2025.html
 
 **Canucks notebook: Daunting math, centre concerns and Thatcher Demko's return**\
-`The Wild Card math is getting tough for the Canucks. How a lack of centre depth and Thatcher Demko's return could play out down the stretch`\
+`The wild-card math is getting tough for the Canucks. How a lack of centre depth and Thatcher Demko's return could play out down the stretch`\
 https://nytimes.com/athletic/6225977/2025/03/24/canucks-thatcher-demko-elias-pettersson-injuries/
 
 **Rockets can take valuable lessons from 'sloppy' home loss to the Nuggets**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225293/2025/03/24/nhl-weekend-rankings-storylines-
 **The Vicious Cycle of Extreme Heat Leading to More Fossil Fuel Use**\
 `A new report illustrates a concerning dynamic: record heat last year pushed to countries to use more planet-warming fossil fuels to cool things down.`\
 https://nytimes.com/2025/03/24/climate/extreme-heat-emissions-energy-trends.html
-
-**Gérard Depardieu Appears in Court Over Sexual Assault Allegations**\
-`The French actor faces charges in a case involving two women working on the set of a movie in which he starred.`\
-https://nytimes.com/2025/03/24/world/europe/gerard-depardieu-sexual-assault-trial.html
 
