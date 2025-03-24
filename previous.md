@@ -1,3 +1,7 @@
+**Tom Izzo leads Michigan State to Sweet 16 for 16th time**\
+`A game that started entirely at New Mexico’s pace completely flipped in the Spartans’ favor over the final 25 minutes.`\
+https://nytimes.com/athletic/6225863/2025/03/23/tom-izzo-michigan-state-sweet-16-for-16th-time-as-michigan-state-new-mexico/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
 **Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
 `Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
 https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/
-
-**Trump invites the Kansas City Chiefs to the White House, honoring a 2020 Super Bowl victory clouded by Covid.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-chiefs-to-the-white-house-honoring-a-2020-super-bowl-victory-clouded-by-covid
 

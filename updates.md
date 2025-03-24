@@ -1,3 +1,7 @@
+**Tom Izzo leads Michigan State to Sweet 16 for 16th time**\
+`A game that started entirely at New Mexico’s pace completely flipped in the Spartans’ favor over the final 25 minutes.`\
+https://nytimes.com/athletic/6225863/2025/03/23/tom-izzo-michigan-state-sweet-16-for-16th-time-as-michigan-state-new-mexico/
+
 **Pochettino says USMNT fans need patience after Nations League debacle**\
 `"We are going to find a way to perform," Pochettino said, after another demoralizing defeat.`\
 https://nytimes.com/athletic/6225822/2025/03/23/usmnt-pochettino-nations-league-canada-patience/
