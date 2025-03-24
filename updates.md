@@ -1,3 +1,7 @@
+**Trump Chooses His Former Lawyer as Interim U.S. Attorney for New Jersey**\
+`Alina Habba, who defended President Trump against E. Jean Carroll’s sexual abuse and defamation claims, will oversee the work of about 150 prosecutors.`\
+https://nytimes.com/2025/03/24/nyregion/trump-alina-habba-new-jersey-us-attorney.html
+
 **Yankees, Ryan Yarbrough agree to major-league deal**\
 `Yarbrough figures to be the second lefty out of the relief unit behind Tim Hill.`\
 https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agent-deal/
