@@ -1,3 +1,7 @@
+**Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
+`For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
+https://nytimes.com/2025/03/24/world/middleeast/israel-turmoil-government.html
+
 **Potatoes, Shrimp and Teslas: Exporters Vie to Shape Trump’s Tariffs**\
 `Makers of a vast array of American products are weighing the risks, and potential payoffs, of the sweeping tariffs the president has promised on April 2.`\
 https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
