@@ -1,3 +1,19 @@
+**Heat Today: Kevin Love thinks Jimmy Butler will feel emotion in Miami return**\
+`What should be expected during Jimmy Butler's return to Miami on Tuesday? Kevin Love anticipates a bit of everything.`\
+https://nytimes.com/athletic/6226631/2025/03/24/jimmy-butler-warriors-heat-return-kevin-love-nba/
+
+**I Don’t Know How Pete Hegseth Can Look Service Members In the Eyes**\
+`A defense secretary intentionally using a civilian app to share sensitive war plans, without noticing a journalist was in the chat, would be egregious.`\
+https://nytimes.com/2025/03/24/opinion/atlantic-hegseth-vance-houthis.html
+
+**In His Second Term, Trump Fuels a ‘Machinery’ of Misinformation**\
+`President Trump’s first four years in the White House were filled with falsehoods. Now he and those around him are using false claims to justify their policy changes.`\
+https://nytimes.com/2025/03/24/business/trump-misinformation-false-claims.html
+
+**Emboldened by Trump, A.I. Companies Lobby for Fewer Rules**\
+`After the president made A.I. dominance a top priority, tech companies changed course from a meeker approach under the Biden administration.`\
+https://nytimes.com/2025/03/24/technology/trump-ai-regulation.html
+
 **U.S. Lifts Millions in Bounties on Senior Taliban Officials**\
 `The move was a significant shift toward leaders of the Haqqani network, which was behind some of the deadliest attacks during the war in Afghanistan.`\
 https://nytimes.com/2025/03/24/world/asia/taliban-haqqani-bounties.html
