@@ -1,40 +1,40 @@
-**The Athletic FC: Red alert for Marsch, USMNT; Musiala's cheeky goal, Ronaldo Show rumbles on**\
-`Today in TAFC: Canada beat USMNT, Mexico win Nations League, Musiala scores clever goal from a corner, Ronaldo remains on centre stage.`\
-https://nytimes.com/athletic/6226181/2025/03/24/usmnt-marsch-nations-league-ronaldo-penalty/
+**Nebraska spring storylines: Roster crunch, defensive reboot and more**\
+`Matt Rhule will learn a lot about his Huskers over the next month.`\
+https://nytimes.com/athletic/6224875/2025/03/24/nebraska-spring-football-defense-roster/
 
-**Phillies 2025 season preview: Roster breakdown, projections, and bold prediction**\
-`The path to reclaiming a division title is arduous, but not impossible. Then again, all anyone in Philadelphia cares about is October.`\
-https://nytimes.com/athletic/6214481/2025/03/24/philadelphia-phillies-2025-season-preview-roster-breakdown-projections-and-bold-prediction/
+**Wild insider: Days before likely starting NHL career, Zeev Buium keeps focus on Denver**\
+`Buium and the Pioneers lost the NCHC title game in overtime Saturday and start NCAA Tournament play against Providence on Friday.`\
+https://nytimes.com/athletic/6224920/2025/03/24/wild-zeev-buium-arena-prospect-updates/
 
-**Luke Fickell's Wisconsin offensive coordinator search drew non-traditional candidates**\
-`Many of the publicly available applicants came from people whose football backgrounds were, shall we say, significantly limited.`\
-https://nytimes.com/athletic/6198181/2025/03/24/wisconsin-football-offensive-coordinator-candidates/
+**The Maple Leafs’ pricey bet on Scott Laughton is floundering (so far)**\
+`In a seller's market, the price for Scott Laughton was not cheap. As the former Flyer struggles to adapt, what can the Leafs do?`\
+https://nytimes.com/athletic/6224809/2025/03/24/maple-leafs-scott-laughton-mcmann-predators/
 
-**A New York-bred NBA assistant coach with an iconic namesake dribble has a deep impact**\
-`God Shammgod is more than just an assistant coach with the Mavericks. He is part of basketball culture with his famous namesake dribble.`\
-https://nytimes.com/athletic/6221895/2025/03/24/god-shammgod-mavericks-dribble-new-york-providence/
+**Red Wings prospect update: How Detroit's top 12 performed this season**\
+`As its fan base faces another likely playoff-free postseason, the prospects within Detroit's system can provide some hope for the future.`\
+https://nytimes.com/athletic/6222268/2025/03/24/red-wings-top-prospects-update/
 
-**A career night against LeBron James, Lakers has given Bulls rookie added confidence**\
-`"For his development, he's got to do that," Billy Donovan said of guarding LeBron James, which Buzelis did in Saturday's win.`\
-https://nytimes.com/athletic/6225709/2025/03/24/matas-buzelis-bulls-lebron-career-night-nba-rookie/
+**What we've heard and seen at Alabama spring practice during the past week**\
+`Here’s what was observed and heard through last week’s practices and where each position group is ahead of the spring's first scrimmage.`\
+https://nytimes.com/athletic/6225159/2025/03/24/alabama-spring-football-practice-storylines/
 
-**Who are the best FCS and Division II transfers heading to the Power 4 ranks?**\
-`Two of the most impactful players in college football in 2024 began their respective careers at the FCS level. Who's next? `\
-https://nytimes.com/athletic/6223038/2025/03/24/college-football-transfer-portal-fcs-division-ii/
+**Showpiece games in women's football are a joy but they hinder Champions League teams**\
+`Women's football games at large stadiums make for brilliant occasions but their timing does little to aid teams in European competition`\
+https://nytimes.com/athletic/6226165/2025/03/24/champions-league-super-chelsea-manchester-city-arsenal/
 
-**Democrat Who Is an Army Veteran Enters N.Y. House Race**\
-`Cait Conley, a former National Security Council official, will run against Mike Lawler, a second-term Republican.`\
-https://nytimes.com/2025/03/24/nyregion/cait-conley-lawler.html
+**Trump Administration Live Updates: Anger in Greenland Over Plans for U.S. Officials’ Visit**\
+``\
+https://nytimes.com/live/2025/03/24/us/trump-news
 
-**Immigrants and Freedom of Speech**\
-`President Trump is taking advantage of an unsettled aspect of the law.`\
-https://nytimes.com/2025/03/24/briefing/immigration-trump-constitution.html
+**USC football spring primer: Strengths and weaknesses of each position**\
+`With spring practice approaching, we’re taking a position-by-position look at USC and offering thoughts on where the team stands.`\
+https://nytimes.com/athletic/6224924/2025/03/24/usc-football-spring-practice-lincoln-riley/
 
-**The Pulse: Yes, we got a buzzer-beater**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6225650/2025/03/24/ncaa-tournament-sweet-16-the-pulse-2/
+**The New Lounge Play: Charge More, Offer Less**\
+`As airport lounges see increasing demand, United Airlines is changing how travelers can access its lounges, raising prices and cutting the amenities.`\
+https://nytimes.com/2025/03/24/travel/united-airlines-lounge-membership-price-increase.html
 
-**How to watch No. 2 UConn vs. No. 10 South Dakota State in the women's NCAA Tournament**\
-`UConn continues its journey through the NCAA Tournament as a massive home favorite against South Dakota State in the second round.`\
-https://nytimes.com/athletic/6224676/2025/03/24/uconn-south-dakota-state-womens-ncaa-tournament-how-to-watch/
+**Rallying Anti-Musk Donors, Liberal Judge Raises $24 Million in Key Court Contest**\
+`With Elon Musk backing her conservative opponent, a Wisconsin judge seeking a seat on the state’s top court has amassed what is believed to be a record war chest for a judicial campaign.`\
+https://nytimes.com/2025/03/24/us/politics/susan-crawford-wisconsin-supreme-court.html
 
