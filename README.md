@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Block Ruling on Rehiring Fired Workers**\
+`An administration lawyer complained about what she said was a trend of lower court judges exceeding their authority in halting government programs.`\
+https://nytimes.com/2025/03/24/us/trump-supreme-court-probationary-workers.html
+
 **Judge Blocks Education Officials From Providing Sensitive Data to Musk’s Team**\
 `The ruling on Monday extended an earlier one barring Elon Musk and his associates from reviewing student loan data and other potentially sensitive records.`\
 https://nytimes.com/2025/03/24/us/politics/musk-privacy-education-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
 **Mexico swings Concacaf's pendulum back its way with Nations League title**\
 `The Concacaf Nations League is not the most glamorous trophy, but for a Mexico side in need of a vibes shift, it serves a major purpose.`\
 https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-title-alvarez-aguirre-jimenez/
-
-**Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
-`For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
-https://nytimes.com/2025/03/24/world/middleeast/israel-turmoil-government.html
 
