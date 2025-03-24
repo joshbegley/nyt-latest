@@ -1,3 +1,7 @@
+**Why Does Trump Want Greenland? Here’s What to Know.**\
+`President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
+https://nytimes.com/article/trump-greenland-why.html
+
 **Newcastle to have open-top bus parade to celebrate League Cup victory on March 29**\
 `The parade will mark Newcastle's first domestic trophy win in 70 years after their 2-1 League Cup final victory over Liverpool.`\
 https://nytimes.com/athletic/6227496/2025/03/24/newcastle-bus-parade-celebration/

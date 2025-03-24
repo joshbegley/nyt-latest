@@ -1,3 +1,7 @@
+**Why Does Trump Want Greenland? Here’s What to Know.**\
+`President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
+https://nytimes.com/article/trump-greenland-why.html
+
 **Newcastle to have open-top bus parade to celebrate League Cup victory on March 29**\
 `The parade will mark Newcastle's first domestic trophy win in 70 years after their 2-1 League Cup final victory over Liverpool.`\
 https://nytimes.com/athletic/6227496/2025/03/24/newcastle-bus-parade-celebration/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/03/24/arts/music/wild-up-darkness-sounding-festival.htm
 **Women's March Madness second-round takeaways: Can NC State keep this offensive spurt going?**\
 `No. 2 seed UConn takes on No. 10 seed South Dakota State on Monday evening.`\
 https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-round-takeaways-texas-lsu-uconn/
-
-**Why Driving in Singapore Is Like ‘Wearing a Rolex’**\
-`The city-state, where it costs up to $84,000 just for the right to own a car, is one of the most expensive places to drive. That is by design.`\
-https://nytimes.com/2025/03/24/world/asia/car-certificate-singapore-luxury.html
 
