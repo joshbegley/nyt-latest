@@ -1,3 +1,7 @@
+**Pochettino says USMNT fans need patience after Nations League debacle**\
+`"We are going to find a way to perform," Pochettino said, after another demoralizing defeat.`\
+https://nytimes.com/athletic/6225822/2025/03/23/usmnt-pochettino-nations-league-canada-patience/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beat
 **Trump invites the Kansas City Chiefs to the White House, honoring a 2020 Super Bowl victory clouded by Covid.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-chiefs-to-the-white-house-honoring-a-2020-super-bowl-victory-clouded-by-covid
-
-**South Korea​n Court ​Reinstates Impeached Prime Minister**\
-`​Prime Minister Han Duck-soo was serving as the country’s acting president when the National Assembly impeached him in December, suspending him from office.`\
-https://nytimes.com/2025/03/23/world/asia/south-korea-reinstates-prime-minister.html
 

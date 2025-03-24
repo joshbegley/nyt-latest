@@ -1,3 +1,7 @@
+**Pochettino says USMNT fans need patience after Nations League debacle**\
+`"We are going to find a way to perform," Pochettino said, after another demoralizing defeat.`\
+https://nytimes.com/athletic/6225822/2025/03/23/usmnt-pochettino-nations-league-canada-patience/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
