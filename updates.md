@@ -1,3 +1,7 @@
+**How to watch No. 2 UConn vs. No. 10 South Dakota State in the women's NCAA Tournament**\
+`UConn continues its journey through the NCAA Tournament as a massive home favorite against South Dakota State in the second round.`\
+https://nytimes.com/athletic/6224676/2025/03/24/uconn-south-dakota-state-womens-ncaa-tournament-how-to-watch/
+
 **23andMe Files for Bankruptcy Amid Concerns About Security of Customers’ Genetic Data**\
 `The company filed for Chapter 11 bankruptcy to “facilitate a sale process.” Its chief executive stepped down and said she would bid on it.`\
 https://nytimes.com/2025/03/24/business/23andme-bankruptcy.html
