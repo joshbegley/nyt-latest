@@ -1,40 +1,40 @@
-**How to watch No. 1 Texas vs. No. 8 Illinois in the women's NCAA Tournament**\
-`Texas reached the peak of the AP poll for the first time since 2004, and is now pursuing its first national title since 1986.`\
-https://nytimes.com/athletic/6224647/2025/03/24/texas-illinois-womens-ncaa-tournament-how-to-watch/
+**With free agency filling many voids, what's the Vikings' plan for the draft?**\
+`Having addressed many of their biggest needs in free agency, how should the Vikings approach the draft? Is a trade down the wise move?`\
+https://nytimes.com/athletic/6217050/2025/03/24/vikings-2025-nfl-draft-free-agency/
 
-**NFL mock draft: Shedeur Sanders goes early, Giants add second first-round pick**\
-`Which QB-needy team takes a chance on Sanders? And where does RB Ashton Jeanty go in the first round?`\
-https://nytimes.com/athletic/6222241/2025/03/24/nfl-mock-draft-2025-shedeur-sanders-travis-hunter/
+**Bruins' Jeremy Swayman challenged Darcy Kuemper to a goalie fight — it wasn't endorsed**\
+`Referees stepped in before an actual fight took place, and Swayman's teammates were not enthusiastic about their goalie fighting.`\
+https://nytimes.com/athletic/6226008/2025/03/24/bruins-jeremy-swayman-darcy-kuemper-goalie-fight/
 
-**The New York Times International Edition in Print for Tuesday, March 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/24/todays-new-york-times-international-edition
+**Who will win the 2025 World Series? Predicting the MLB champions, MVP, ROY and Cy Young**\
+`The Los Angeles Dodgers may be preseason favorites to repeat — but the majority of our 33 writers picked other teams to win it all.`\
+https://nytimes.com/athletic/6222015/2025/03/24/mlb-predictions-2025-world-series/
 
-**How to watch No. 3 LSU vs. No. 6 Florida State in the women's NCAA Tournament**\
-`LSU is a double-digit favorite at home against Florida State in the second round of the NCAA Tournament.`\
-https://nytimes.com/athletic/6224643/2025/03/24/lsu-florida-state-womens-ncaa-tournament-how-to-watch/
+**Ranking all 30 MLB teams' Opening Day lineups: Dodgers, Braves lead way, Rangers power up**\
+`Here’s how I rank the Opening Day lineups for all 30 teams as an intriguing season gets underway. `\
+https://nytimes.com/athletic/6225735/2025/03/24/mlb-lineups-ranked-dodgers-braves-opening-day/
 
-**Yankees fans cry foul over limited access to players after Steinbrenner Field renovations**\
-`With a new building at the Yankees' spring training facility in a space fans used to frequent, some said they may not return.`\
-https://nytimes.com/athletic/6225019/2025/03/24/yankees-spring-training-renovations-fan-response/
+**Men’s NCAA Tournament Sweet 16 power rankings: Who's the frontrunner now?**\
+`Quite simply, this is not the year of the Cinderella squad. The silver lining: The second-weekend matchups are loaded.`\
+https://nytimes.com/athletic/6225597/2025/03/24/mens-ncaa-tournament-sweet-16-power-rankings/
 
-**The Trump Train Is Going Full Speed Ahead**\
-`This is certainly an administration that reminds us why the framers decided on separation of powers.`\
-https://nytimes.com/2025/03/24/opinion/trump-columbia-courts-law-firms.html
+**Trump’s Escalating War With Higher Education**\
+`How colleges are responding to pressure from the administration, and what it might mean for the future of America’s university system.`\
+https://nytimes.com/2025/03/24/podcasts/the-daily/trumps-escalating-war-with-higher-education.html
 
-**Will the Packers trade up for Arizona wide receiver Tetairoa McMillan? Mailbag**\
-`Brian Gutekunst reportedly was the only general manager to attend Tetairoa McMillan's private workout last week.`\
-https://nytimes.com/athletic/6225170/2025/03/24/packers-nfl-draft-mailbag-tetairoa-mcmillan/
+**Browns QB tracker: Pro day workouts begin for NFL Draft's top passing prospects**\
+`Under GM Andrew Berry, Cleveland has not been big on sending multiple executives or coaches to pro days. Expect that to change this year.`\
+https://nytimes.com/athletic/6225446/2025/03/24/browns-quarterback-tracker-pro-days/
 
-**Performa 2025 Biennial Announces New Commissions**\
-`Artists from around the world will converge in New York this fall for a program of live spectacles, combining music, sound, sculpture and commedia dell’arte.`\
-https://nytimes.com/2025/03/24/arts/design/performa-biennial-announces-new-commissions-henrot.html
+**An ‘Aggressive’ Trip to Greenland, and the Pope’s First Appearance Since Falling Ill**\
+`Plus, how George Foreman transformed American kitchens.`\
+https://nytimes.com/2025/03/24/podcasts/the-headlines/trump-greenland-pope-appearance.html
 
-**Bernie Sanders Is Tapping Into a Deep Vein of Anger in America**\
-`Struggling working class voters fear that the country they’ve always counted on is sliding away because of President Trump.`\
-https://nytimes.com/2025/03/24/opinion/bernie-sanders-rallies-anger.html
+**Connections Companion No. 653**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, March 25, 2025.`\
+https://nytimes.com/2025/03/24/crosswords/connections-companion-653.html
 
-**Law in Mahmoud Khalil’s Case Was Once Struck Down — by Trump’s Sister**\
-`Judge Maryanne Trump Barry ruled that the law invoked against Mr. Khalil violated the Constitution by giving unfettered discretion to the secretary of state.`\
-https://nytimes.com/2025/03/24/us/politics/mahmoud-khalil-trump-sister-law.html
+**Netflix’s Reed Hastings Gives $50 Million to Bowdoin for A.I. Program**\
+`The Netflix co-founder said he wanted his alma mater to become a leader in studying the consequences, and guiding beneficial uses, of artificial intelligence.`\
+https://nytimes.com/2025/03/24/technology/reed-hastings-bowdoin-ai.html
 
