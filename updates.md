@@ -1,3 +1,7 @@
+**Canadiens notebook: Hutson's shooting, Montembeault’s confidence**\
+`Also in this week's notebook: confidence-growing moments for Joshua Roy, Jayden Struble and some video of David Reinbacher in Laval.`\
+https://nytimes.com/athletic/6227225/2025/03/24/canadiens-lane-hutson-sam-montembeault/
+
 **gws-parker-posey-white-lotus**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
