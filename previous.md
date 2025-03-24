@@ -1,3 +1,11 @@
+**Boehly suggests Chelsea co-owners will split if they disagree on stadium plan**\
+`"What’s been written and talked about is much more ‘drama’ than what’s actually happening," Boehly said on Chelsea's ownership structure.`\
+https://nytimes.com/athletic/6226419/2025/03/24/chelsea-stadium-boehly-stamford-bridge/
+
+**Trump Criticizes His Portrait in Colorado’s Capitol: ‘Nobody Likes a Bad Picture’**\
+`President Trump claimed the portrait painted during his first term was “purposefully distorted” and called for it to be taken down.`\
+https://nytimes.com/2025/03/24/us/politics/trump-colorado-portrait-painting.html
+
 **NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
 `Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
 https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6224809/2025/03/24/maple-leafs-scott-laughton-mcman
 **How the Red Wings' top 12 prospects are performing ahead of crucial offseason**\
 `As its fan base faces another likely playoff-free postseason, the prospects within Detroit's system can provide some hope for the future.`\
 https://nytimes.com/athletic/6222268/2025/03/24/red-wings-top-prospects-update/
-
-**What we've heard and seen at Alabama spring practice during the past week**\
-`Here’s what was observed and heard through last week’s practices and where each position group is ahead of the spring's first scrimmage.`\
-https://nytimes.com/athletic/6225159/2025/03/24/alabama-spring-football-practice-storylines/
-
-**Showpiece games in women's football are a joy but they hinder Champions League teams**\
-`Women's football games at large stadiums make for brilliant occasions but their timing does little to aid teams in European competition`\
-https://nytimes.com/athletic/6226165/2025/03/24/champions-league-super-chelsea-manchester-city-arsenal/
 

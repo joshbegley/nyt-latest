@@ -1,3 +1,11 @@
+**Boehly suggests Chelsea co-owners will split if they disagree on stadium plan**\
+`"What’s been written and talked about is much more ‘drama’ than what’s actually happening," Boehly said on Chelsea's ownership structure.`\
+https://nytimes.com/athletic/6226419/2025/03/24/chelsea-stadium-boehly-stamford-bridge/
+
+**Trump Criticizes His Portrait in Colorado’s Capitol: ‘Nobody Likes a Bad Picture’**\
+`President Trump claimed the portrait painted during his first term was “purposefully distorted” and called for it to be taken down.`\
+https://nytimes.com/2025/03/24/us/politics/trump-colorado-portrait-painting.html
+
 **NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
 `Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
 https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
