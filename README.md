@@ -22,9 +22,9 @@ https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
 `A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
 https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
 
-**Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
+**Trump says ‘people from Greenland’ invited U.S. delegation. Greenland wants a word.**\
+`President Trump has vowed to make Greenland part of the United States “one way or the other.”`\
+https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-visits
 
 **College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
 `The portal will remain open until April 22, but there was a flurry of activity Monday.`\
