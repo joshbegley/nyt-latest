@@ -1,3 +1,11 @@
+**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
+`What's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/6227770/2025/03/24/notre-dame-football-mailbag-spring-practice-2/
+
+**Trump Says Hyundai’s New U.S. Investments Prove His Tariffs Work**\
+`Hyundai Motor, a South Korean conglomerate known for its automobiles, announced on Monday that it would make investments to expand manufacturing in the United States.`\
+https://nytimes.com/video/us/politics/100000010070096/trump-tariffs-hyundai-steel-automobiles.html
+
 **Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
 `A winner of top awards in his country, he drew the attention of European and American critics. The prime minister said he “made us see Norway and the world in new ways.”`\
 https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
