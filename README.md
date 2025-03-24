@@ -1,3 +1,19 @@
+**Potatoes, Shrimp and Teslas: Exporters Vie to Shape Trump’s Tariffs**\
+`Makers of a vast array of American products are weighing the risks, and potential payoffs, of the sweeping tariffs the president has promised on April 2.`\
+https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
+
+**Bird Flu Found in Sheep in U.K., a World First**\
+`The H5N1 virus was detected in a single animal in Yorkshire, the British government said on Monday. It added that the risk to humans remained very low.`\
+https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
+
+**Mexico swings Concacaf's pendulum back its way with Nations League title**\
+`The Concacaf Nations League is not the most glamorous trophy, but for a Mexico side in need of a vibes shift, it serves a major purpose.`\
+https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-title-alvarez-aguirre-jimenez/
+
+**Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
+`For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
+https://nytimes.com/2025/03/24/world/israel-turmoil-government.html
+
 **After a Brief Return Home, Palestinians Are Displaced Once Again**\
 `The Israeli military’s renewed drive into Gaza has pushed families to flee neighborhoods they had only recently returned to during a cease-fire.`\
 https://nytimes.com/2025/03/24/world/middleeast/israel-gaza-offensive-palestinians-displaced.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/03/24/books/review/animal-book-adaptations.
 **Miso Loves Grapefruit**\
 `Salty umami meets tangy sour in Ali Slagle’s new miso-butter chicken with grapefruit.`\
 https://nytimes.com/2025/03/24/dining/miso-chicken-grapefruit.html
-
-**The Bounce: Does Cooper Flagg need a deep March Madness run to stay atop 2025 NBA Draft?**\
-`March Madness is a chance for college prospects to grow their NBA Draft stock. Who stands out beyond Cooper Flagg?`\
-https://nytimes.com/athletic/6226502/2025/03/24/cooper-flagg-duke-march-madness-nba-draft-the-bounce/
-
-**Top prospect Kristian Campbell to make Red Sox's Opening Day roster**\
-`Campbell, MLB's No. 9 prospect and the Red Sox's No. 2 prospect, will make his major-league debut in Texas.`\
-https://nytimes.com/athletic/6226446/2025/03/24/kristian-campbell-red-sox-opening-day-roster/
-
-**CF Montréal fires coach Laurent Courtois 5 matches into 2nd season**\
-`Assistant coach Marco Donadel will serve as interim head coach as the club looks for its next full-time leader.`\
-https://nytimes.com/athletic/6226695/2025/03/24/cf-montreal-fires-laurent-courtois/
-
-**Canada's Marsch on Nations League red card: 'I'd do it again'**\
-`Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
-https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
 
