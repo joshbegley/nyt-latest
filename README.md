@@ -1,3 +1,7 @@
+**Lewis Hamilton’s China disqualification caps off rollercoaster start with Ferrari**\
+`It hasn't been a dream beginning with Ferrari, but there are plenty of positives Hamilton can take from the season's first two races`\
+https://nytimes.com/athletic/6226258/2025/03/24/lewis-hamilton-china-f1-disqualification-ferrari-rollercoaster-analysis/
+
 **Nebraska spring storylines: Roster crunch, defensive reboot and more**\
 `Matt Rhule will learn a lot about his Huskers over the next month.`\
 https://nytimes.com/athletic/6224875/2025/03/24/nebraska-spring-football-defense-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224924/2025/03/24/usc-football-spring-practice-lin
 **The New Lounge Play: Charge More, Offer Less**\
 `As airport lounges see increasing demand, United Airlines is changing how travelers can access its lounges, raising prices and cutting the amenities.`\
 https://nytimes.com/2025/03/24/travel/united-airlines-lounge-membership-price-increase.html
-
-**Rallying Anti-Musk Donors, Liberal Judge Raises $24 Million in Key Court Contest**\
-`With Elon Musk backing her conservative opponent, a Wisconsin judge seeking a seat on the state’s top court has amassed what is believed to be a record war chest for a judicial campaign.`\
-https://nytimes.com/2025/03/24/us/politics/susan-crawford-wisconsin-supreme-court.html
 
