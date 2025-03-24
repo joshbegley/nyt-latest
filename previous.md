@@ -1,3 +1,15 @@
+**NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
+`Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
+https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
+
+**This NCAA Tournament doesn’t need a Cinderella — it’s got monster leagues and matchups**\
+`It was not a vintage first weekend, yet it was nonstop fun, the mark of an untouchable sporting event.`\
+https://nytimes.com/athletic/6226344/2025/03/24/ncaa-tournament-upsets-sweet-16/
+
+**Trump, Big Law, and an ‘Existential Crisis’**\
+`The president’s clash with some of the nation’s biggest law firms appears to be far from over, potentially splintering the legal community even further.`\
+https://nytimes.com/2025/03/24/business/dealbook/trump-big-law-paul-weiss.html
+
 **Lewis Hamilton’s China disqualification caps off rollercoaster start with Ferrari**\
 `It hasn't been a dream beginning with Ferrari, but there are plenty of positives Hamilton can take from the season's first two races`\
 https://nytimes.com/athletic/6226258/2025/03/24/lewis-hamilton-china-f1-disqualification-ferrari-rollercoaster-analysis/
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6224920/2025/03/24/wild-zeev-buium-arena-prospect-u
 `In a seller's market, the price for Scott Laughton was not cheap. As the former Flyer struggles to adapt, what can the Leafs do?`\
 https://nytimes.com/athletic/6224809/2025/03/24/maple-leafs-scott-laughton-mcmann-predators/
 
-**Red Wings prospect update: How Detroit's top 12 performed this season**\
+**How the Red Wings' top 12 prospects are performing ahead of crucial offseason**\
 `As its fan base faces another likely playoff-free postseason, the prospects within Detroit's system can provide some hope for the future.`\
 https://nytimes.com/athletic/6222268/2025/03/24/red-wings-top-prospects-update/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6225159/2025/03/24/alabama-spring-football-practice
 **Showpiece games in women's football are a joy but they hinder Champions League teams**\
 `Women's football games at large stadiums make for brilliant occasions but their timing does little to aid teams in European competition`\
 https://nytimes.com/athletic/6226165/2025/03/24/champions-league-super-chelsea-manchester-city-arsenal/
-
-**Trump Administration Live Updates: Anger in Greenland Over Plans for U.S. Officials’ Visit**\
-``\
-https://nytimes.com/live/2025/03/24/us/trump-news
-
-**USC football spring primer: Strengths and weaknesses of each position**\
-`With spring practice approaching, we’re taking a position-by-position look at USC and offering thoughts on where the team stands.`\
-https://nytimes.com/athletic/6224924/2025/03/24/usc-football-spring-practice-lincoln-riley/
-
-**The New Lounge Play: Charge More, Offer Less**\
-`As airport lounges see increasing demand, United Airlines is changing how travelers can access its lounges, raising prices and cutting the amenities.`\
-https://nytimes.com/2025/03/24/travel/united-airlines-lounge-membership-price-increase.html
 

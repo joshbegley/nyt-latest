@@ -1,3 +1,19 @@
+**NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
+`Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
+https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
+
+**This NCAA Tournament doesn’t need a Cinderella — it’s got monster leagues and matchups**\
+`It was not a vintage first weekend, yet it was nonstop fun, the mark of an untouchable sporting event.`\
+https://nytimes.com/athletic/6226344/2025/03/24/ncaa-tournament-upsets-sweet-16/
+
+**Trump, Big Law, and an ‘Existential Crisis’**\
+`The president’s clash with some of the nation’s biggest law firms appears to be far from over, potentially splintering the legal community even further.`\
+https://nytimes.com/2025/03/24/business/dealbook/trump-big-law-paul-weiss.html
+
+**How the Red Wings' top 12 prospects are performing ahead of crucial offseason**\
+`As its fan base faces another likely playoff-free postseason, the prospects within Detroit's system can provide some hope for the future.`\
+https://nytimes.com/athletic/6222268/2025/03/24/red-wings-top-prospects-update/
+
 **Lewis Hamilton’s China disqualification caps off rollercoaster start with Ferrari**\
 `It hasn't been a dream beginning with Ferrari, but there are plenty of positives Hamilton can take from the season's first two races`\
 https://nytimes.com/athletic/6226258/2025/03/24/lewis-hamilton-china-f1-disqualification-ferrari-rollercoaster-analysis/
