@@ -1,3 +1,15 @@
+**Mavs' Anthony Davis nearing return after 6-week absence**\
+`Davis went down with a left adductor strain in the Mavericks’ Feb. 8 game against the Houston Rockets.`\
+https://nytimes.com/athletic/6227095/2025/03/24/anthony-davis-return-injury-update-mavericks/
+
+**Scoop City: Setting the table for the 2025 draft**\
+`Inside: A quick draft primer, plus Aaron Rodgers&#8217; time in Pittsburgh, Jerry Jones&#8217; status among owners and another potential first-round QB.`\
+https://nytimes.com/athletic/6227128/2025/03/24/nfl-draft-2025-most-picks-49ers-ravens-preview-scoop-city/
+
+**Trump Administration Cites Alien Enemies Act as It Plans New Extraditions**\
+`By citing the act, the administration seems to be highlighting its aggressive posture without taking steps that might be deemed to violate a temporary restraining order issued by a federal judge.`\
+https://nytimes.com/2025/03/24/us/politics/alien-enemies-act-extraditions.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Spring football is in full effect across the country. What&#8217;s on your mind this week?</p>
 <p>Leave your questions here. Please include your city.</p>
