@@ -22,6 +22,10 @@ https://nytimes.com/2025/03/24/arts/music/newjeans-njz-complexcon-hong-kong-hybe
 `Hyundai already makes cars in the United States, in Georgia and Alabama.`\
 https://nytimes.com/2025/03/24/business/hyundai-us-investment-tariffs.html
 
+**Bears free-agency tracker: Returner Devin Duvernay signs 1-year deal**\
+`After shoring up the offensive and defensive lines, GM Ryan Poles re-signed Stephen Carlson, Doug Kramer and Travis Homer.`\
+https://nytimes.com/athletic/6181354/2025/03/24/chicago-bears-2025-free-agency-tracker/
+
 **A Creamy Pudding Worthy of Celebration**\
 `When prepared from scratch, this cardamom-scented dessert and Eid delicacy is as delightful to make as it is to eat.`\
 https://nytimes.com/2025/03/24/dining/eid-al-fitr-sheer-khorma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/nyregion/nyc-child-care-day-care-vouchers.html
 **‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
 `The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
 https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
-
-**What Are Your Plans After Graduation?**\
-`As the Trump administration makes cuts and extends hiring freezes, career paths might look different.`\
-https://nytimes.com/2025/03/24/us/graduation-2025-callout.html
 
