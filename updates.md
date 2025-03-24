@@ -1,3 +1,11 @@
+**The Bounce: Does Cooper Flagg need a deep March Madness run to stay atop 2025 NBA Draft?**\
+`March Madness is a chance for college prospects to grow their NBA Draft stock. Who stands out beyond Cooper Flagg?`\
+https://nytimes.com/athletic/6226502/2025/03/24/cooper-flagg-duke-march-madness-nba-draft-the-bounce/
+
+**Canada's Marsch on Nations League red card: 'I'd do it again'**\
+`Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
+https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
+
 **Top prospect Kristian Campbell to make Red Sox Opening Day roster**\
 `Campbell, MLB's No. 9 prospect and the Red Sox's No. 2 prospect, will make his major-league debut in Texas.`\
 https://nytimes.com/athletic/6226446/2025/03/24/kristian-campbell-red-sox-opening-day-roster/

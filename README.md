@@ -1,3 +1,15 @@
+**A Driving Force Behind One Reporter’s Beat**\
+`Life has looked a little different for a New York Times journalist covering the U.S. auto industry — and the tech billionaire at its forefront.`\
+https://nytimes.com/2025/03/24/insider/elon-musk-tesla-coverage.html
+
+**Do You Know the Classic Works That Inspired These Popular Family Movies?**\
+`Try this quiz on beloved literature that was memorably adapted for the screen.`\
+https://nytimes.com/interactive/2025/03/24/books/review/animal-book-adaptations.html
+
+**Miso Loves Grapefruit**\
+`Salty umami meets tangy sour in Ali Slagle’s new miso-butter chicken with grapefruit.`\
+https://nytimes.com/2025/03/24/dining/miso-chicken-grapefruit.html
+
 **The Bounce: Does Cooper Flagg need a deep March Madness run to stay atop 2025 NBA Draft?**\
 `March Madness is a chance for college prospects to grow their NBA Draft stock. Who stands out beyond Cooper Flagg?`\
 https://nytimes.com/athletic/6226502/2025/03/24/cooper-flagg-duke-march-madness-nba-draft-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6119696/2025/03/24/2025-fantasy-baseball-cheat-shee
 **The Windup: Sleeper pick in the NL Central?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-the-windup/
-
-**The Athletic college baseball Top 25: Georgia powers into top 5 after sweeping Florida**\
-`Tennessee holds on to the top spot despite suffering its first two losses of the season. `\
-https://nytimes.com/athletic/6226538/2025/03/24/college-baseball-rankings-georgia-florida-tennessee/
-
-**2025 fantasy baseball draft sheet: Downloadable stats, auction values and ranks**\
-`Your 2025 fantasy baseball championship run starts by downloading Jake Ciely's cheat sheet, projections and auction values.`\
-https://nytimes.com/athletic/6127295/2025/03/24/2025-fantasy-baseball-draft-sheet-downloadable-stats-auction-values-ranks/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
