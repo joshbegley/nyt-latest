@@ -1,3 +1,7 @@
+**Listen: The rise of Lewis-Skelly and Nwaneri — 'It's a beautiful thing they've come through together'**\
+`The Handbrake Off podcast discuss the remarkable rise of Lewis-Skelly and Nwaneri, and the impact they have had for Arsenal this season`\
+https://nytimes.com/athletic/6221621/2025/03/24/arsenal-myles-lewis-skelly-ethan-nwaneri/
+
 **Everton Stadium's latest test event: 'The train was too full for people to get on'**\
 `Overcrowded trains and a trespasser, but a cautious step forward`\
 https://nytimes.com/athletic/6224863/2025/03/24/everton-stadium-test-event/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6212308/2025/03/24/premier-league-most-minutes/
 **Why Juventus sacked Thiago Motta and turned to Igor Tudor to save their season**\
 `Eighteen wins from 42 games left Motta with one of the lowest win ratios in Juventus’ history. The club will hope Tudor can steady the ship`\
 https://nytimes.com/athletic/6225070/2025/03/24/juventus-sack-motta-coach-tudor/
-
-**Antonio Nusa interview: 'There were so many questions about whether I was able to play. I had a point to prove'**\
-`The Norwegian was close to joining Brentford in January 2024 only for concerns that surfaced around a medical to see the deal collapse`\
-https://nytimes.com/athletic/6209318/2025/03/24/antonio-nusa-leipzig-brentford-belgium/
 
