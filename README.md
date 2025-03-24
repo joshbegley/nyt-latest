@@ -1,3 +1,11 @@
+**West Virginia Bans 7 Artificial Food Dyes, Citing Health Concerns**\
+`At least 20 other states are considering bills restricting the use of certain food dyes and additives.`\
+https://nytimes.com/2025/03/24/well/west-virginia-food-dye-ban.html
+
+**Columbia Faculty Protests as Trump Officials Hail University Concessions**\
+`While some professors rallied to criticize the changes, federal officials called the university’s actions a “positive first step” in maintaining a financial relationship.`\
+https://nytimes.com/2025/03/24/nyregion/columbia-trump-response.html
+
 **Trump Officials Disclosed Military Plans in a Group Chat**\
 `Also, paper bags might not be as green as you think. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/03/24/briefing/trump-officials-group-chat-paper-bags-vs-plastic.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6227726/2025/03/24/nwsl-gotham-barbra-banda-pride/
 **Tuesday Briefing: Trump Threatens New Tariffs**\
 `Plus, the practical magic of “speedcubing.”`\
 https://nytimes.com/2025/03/24/briefing/trump-tariffs-hegseth-yemen-secrets-turkey-protests.html
-
-**Trump Nominates Susan Monarez to Lead C.D.C.**\
-`Currently the agency’s acting director, Dr. Monarez would be the first nonphysician to head the agency in more than 50 years.`\
-https://nytimes.com/2025/03/24/health/cdc-director-monarez.html
-
-**Bill Belichick a no-show at UNC's pro day as he builds program**\
-`UNC alumni talk about the team's legendary new head coach, the start of his tenure and how long they expect him to be in Chapel Hill. `\
-https://nytimes.com/athletic/6227594/2025/03/24/bill-belichick-unc-pro-day-absence/
 
