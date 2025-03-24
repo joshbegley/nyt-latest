@@ -1,3 +1,7 @@
+**Canada's most pressing questions ahead of the 2026 World Cup**\
+`A third-place finish wasn't fully satisfying, but it does set the agenda for what Canada needs to have answered before the World Cup.`\
+https://nytimes.com/athletic/6226455/2025/03/24/canada-questions-2026-world-cup-marsch-davies-larin-sigur/
+
 **De Jong in talks over new Barcelona contract**\
 `The 27-year-old's current deal runs until 2026 and he wants to stay at the La Liga club.`\
 https://nytimes.com/athletic/6227157/2025/03/24/barcelona-de-jong-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
 **gws-jack-quaid-companion-novocaine**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/jack-quaid-companion-novocaine
-
-**gws-nomadic-life-airstream-trailer**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/nomadic-life-airstream-trailer
 
