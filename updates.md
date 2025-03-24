@@ -1,3 +1,11 @@
+**The Importance of Being SpaceX**\
+`Tesla might be suffering, but SpaceX is poised to profit off billions in new government contracts`\
+https://nytimes.com/2025/03/24/us/politics/musk-spacex.html
+
+**Chiefs' Xavier Worthy sues ex-fiancée, alleges stolen property, extortion**\
+`The lawsuit seeks between $250,000 and $1 million in monetary relief.`\
+https://nytimes.com/athletic/6228081/2025/03/24/xavier-worthy-lawsuit-fiancee-extortion-chiefs/
+
 **Craig Kimbrel's return could be boon for Braves' bullpen, if his body cooperates**\
 `Kimbrel, 36, was at least willing to share with a reporter that a balky back contributed to his struggles last season.`\
 https://nytimes.com/athletic/6227824/2025/03/24/craig-kimbrel-braves-return-bullpen/
