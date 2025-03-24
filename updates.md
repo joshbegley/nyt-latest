@@ -1,3 +1,23 @@
+**Potatoes, Shrimp and Teslas: Exporters Vie to Shape Trump’s Tariffs**\
+`Makers of a vast array of American products are weighing the risks, and potential payoffs, of the sweeping tariffs the president has promised on April 2.`\
+https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
+
+**Bird Flu Found in Sheep in U.K., a World First**\
+`The H5N1 virus was detected in a single animal in Yorkshire, the British government said on Monday. It added that the risk to humans remained very low.`\
+https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
+
+**Mexico swings Concacaf's pendulum back its way with Nations League title**\
+`The Concacaf Nations League is not the most glamorous trophy, but for a Mexico side in need of a vibes shift, it serves a major purpose.`\
+https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-title-alvarez-aguirre-jimenez/
+
+**Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
+`For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
+https://nytimes.com/2025/03/24/world/israel-turmoil-government.html
+
+**After a Brief Return Home, Palestinians Are Displaced Once Again**\
+`The Israeli military’s renewed drive into Gaza has pushed families to flee neighborhoods they had only recently returned to during a cease-fire.`\
+https://nytimes.com/2025/03/24/world/middleeast/israel-gaza-offensive-palestinians-displaced.html
+
 **Test Your Body Awareness**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/body-awareness-proprioception-tests

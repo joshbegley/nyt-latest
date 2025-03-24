@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6226816/2025/03/24/mexico-concacaf-nations-league-t
 
 **Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
 `For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
-https://nytimes.com/2025/03/24/world/israel-turmoil-government.html
+https://nytimes.com/2025/03/24/world/middleeast/israel-turmoil-government.html
 
 **After a Brief Return Home, Palestinians Are Displaced Once Again**\
 `The Israeli military’s renewed drive into Gaza has pushed families to flee neighborhoods they had only recently returned to during a cease-fire.`\
