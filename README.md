@@ -1,3 +1,7 @@
+**Trump Chooses His Former Lawyer as Interim U.S. Attorney for New Jersey**\
+`Alina Habba, who defended President Trump against E. Jean Carroll’s sexual abuse and defamation claims, will oversee the work of about 150 prosecutors.`\
+https://nytimes.com/2025/03/24/nyregion/trump-alina-habba-new-jersey-us-attorney.html
+
 **Yankees, Ryan Yarbrough agree to major-league deal**\
 `Yarbrough figures to be the second lefty out of the relief unit behind Tim Hill.`\
 https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agent-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/body-awareness-proprioception-tests
 **Why the NBA's tanking debate is about more than just losing games**\
 `Plus: As the Suns try to salvage their season, have they found a solution to their issues at center?`\
 https://nytimes.com/athletic/6226127/2025/03/24/nba-tanking-debate-oso-ighodaro-suns/
-
-**A Driving Force Behind One Reporter’s Beat**\
-`Life has looked a little different for a New York Times journalist covering the U.S. auto industry — and the tech billionaire at its forefront.`\
-https://nytimes.com/2025/03/24/insider/elon-musk-tesla-coverage.html
 

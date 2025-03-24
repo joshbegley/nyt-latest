@@ -1,3 +1,11 @@
+**Yankees, Ryan Yarbrough agree to major-league deal**\
+`Yarbrough figures to be the second lefty out of the relief unit behind Tim Hill.`\
+https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agent-deal/
+
+**Toyota Was Bullish on Trump. Then Came the Tariff Threats.**\
+`Japanese automakers, initially optimistic about some of President Trump’s policies, are reckoning with potentially devastating U.S. taxes on foreign-made cars.`\
+https://nytimes.com/2025/03/24/business/trump-tariffs-toyota-japan.html
+
 **Israel’s Perfect Storm: Fighting Enemies Abroad and Each Other at Home**\
 `For months, Israelis put aside their deep rifts to fight a common enemy. Now, amid a renewed government push for power, they are battling one another.`\
 https://nytimes.com/2025/03/24/world/middleeast/israel-turmoil-government.html
