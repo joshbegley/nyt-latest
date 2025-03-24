@@ -1,3 +1,11 @@
+**Coco Gauff upset at hometown Miami Open, defining recent struggles on serve**\
+`Gauff's double faults defined her defeat to the Polish world No. 34 in Florida.`\
+https://nytimes.com/athletic/6227861/2025/03/24/coco-gauff-miami-open-tennis-struggles/
+
+**Top Trump Campaign Aide Sues The Daily Beast for Defamation**\
+`The lawsuit accuses the news site of knowingly publishing false information about how much Chris LaCivita, a Trump campaign manager, was paid by the campaign.`\
+https://nytimes.com/2025/03/24/business/media/daily-beast-chris-lacivita-lawsuit-trump.html
+
 **West Virginia Bans 7 Artificial Food Dyes, Citing Health Concerns**\
 `At least 20 other states are considering bills restricting the use of certain food dyes and additives.`\
 https://nytimes.com/2025/03/24/well/west-virginia-food-dye-ban.html
