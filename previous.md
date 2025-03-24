@@ -1,3 +1,7 @@
+**Somehow, the Portugal national team is still The Cristiano Ronaldo Show**\
+`Ronaldo's main character energy ensures he dominates proceedings — even when it's his team-mates doing most of the work`\
+https://nytimes.com/athletic/6225542/2025/03/24/cristiano-ronaldo-portugal-main-character/
+
 **As Clippers win streak ends, they hold their breath on status of James Harden**\
 `The Clippers were finally healthy and hoping for a sixth straight win. The Thunder prevailed and now Harden's health is an issue.`\
 https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-injured/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221522/2025/03/24/bruno-guimaraes-newcastle-united
 **How Real Madrid Femenino caused the biggest Clasico upset to keep Liga F alive**\
 `Real rode their luck but this wasn’t an undeserved victory. Despite playing their reserves, they defended solidly and broke with purpose`\
 https://nytimes.com/athletic/6224567/2025/03/24/real-madrid-clasico-barcelona-liga-f/
-
-**Jakob Ingebrigtsen, the Olympic champion who will testify against the father he accuses of abuse**\
-`Gjert Ingebrigtsen, whose family have dominated middle-distance running, denies charges of abuse against two of his seven children`\
-https://nytimes.com/athletic/6215189/2025/03/24/ingebrigtsen-trial-jakob-olympic-champion/
 

@@ -1,3 +1,7 @@
+**Somehow, the Portugal national team is still The Cristiano Ronaldo Show**\
+`Ronaldo's main character energy ensures he dominates proceedings — even when it's his team-mates doing most of the work`\
+https://nytimes.com/athletic/6225542/2025/03/24/cristiano-ronaldo-portugal-main-character/
+
 **As Clippers win streak ends, they hold their breath on status of James Harden**\
 `The Clippers were finally healthy and hoping for a sixth straight win. The Thunder prevailed and now Harden's health is an issue.`\
 https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-injured/
