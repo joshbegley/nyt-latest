@@ -1,3 +1,11 @@
+**Spain clinches San Francisco SailGP victory, climbs season leaderboard**\
+`Spain's win makes Diego Botin's team the fifth victor in the five events we've seen so far in Season 5.`\
+https://nytimes.com/athletic/6225724/2025/03/23/san-francisco-sail-grand-prix-spain-australia/
+
+**Ryan McLeod's price going up and 5 other takeaways from Sabres' road trip**\
+`Plus updates on Senators-turned-Sabres, RFA contract discussions and the hockey gods' justice for Tyson Kozak.`\
+https://nytimes.com/athletic/6225763/2025/03/23/sabres-mcleod-rfa-bernard-docker/
+
 **Chicago Cubs roster projection 3.0: On to the next Opening Day**\
 `With the second phase of spring training almost over, here's how the Cubs could regroup.`\
 https://nytimes.com/athletic/6225583/2025/03/23/chicago-cubs-roster-projection-3-0/
