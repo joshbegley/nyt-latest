@@ -1,3 +1,7 @@
+**I Don’t Know How Pete Hegseth Can Look Service Members in the Eye**\
+`A defense secretary intentionally using a civilian app to share sensitive war plans, without noticing a journalist was in the chat, would be egregious.`\
+https://nytimes.com/2025/03/24/opinion/atlantic-hegseth-vance-houthis.html
+
 **‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
 `The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
 https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
