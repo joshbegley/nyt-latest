@@ -1,3 +1,11 @@
+**Top prospect Kristian Campbell to make Red Sox Opening Day roster**\
+`Campbell, MLB's No. 9 prospect and the Red Sox's No. 2 prospect, will make his major-league debut in Texas.`\
+https://nytimes.com/athletic/6226446/2025/03/24/kristian-campbell-red-sox-opening-day-roster/
+
+**CF Montréal fires coach Laurent Courtois 5 matches into 2nd season**\
+`Assistant coach Marco Donadel will serve as interim head coach as the club looks for its next full-time leader.`\
+https://nytimes.com/athletic/6226695/2025/03/24/cf-montreal-fires-laurent-courtois/
+
 **Canada's Marsch on Nations League red card: I'd do it again**\
 `Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
 https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nati
 **Trump’s Moves on Greenland Appear to Be Backfiring**\
 `The Greenlandic government is calling an upcoming visit by Trump officials “aggressive,” pushing the island further from the United States.`\
 https://nytimes.com/2025/03/24/world/europe/trump-greenland-us.html
+
+**2025 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
+`Jake Ciely provides his customizable 2025 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
+https://nytimes.com/athletic/6119696/2025/03/24/2025-fantasy-baseball-cheat-sheet-customizable-rankings-and-projections-tool/
 
 **The Windup: Sleeper pick in the NL Central?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
@@ -14,6 +26,10 @@ https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-
 `Tennessee holds on to the top spot despite suffering its first two losses of the season. `\
 https://nytimes.com/athletic/6226538/2025/03/24/college-baseball-rankings-georgia-florida-tennessee/
 
+**2025 fantasy baseball draft sheet: Downloadable stats, auction values and ranks**\
+`Your 2025 fantasy baseball championship run starts by downloading Jake Ciely's cheat sheet, projections and auction values.`\
+https://nytimes.com/athletic/6127295/2025/03/24/2025-fantasy-baseball-draft-sheet-downloadable-stats-auction-values-ranks/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections
 **What We Know About the Turmoil in Turkey**\
 `The arrest of Istanbul’s mayor on corruption charges has stoked worries that President Recep Tayyip Erdogan is becoming more authoritarian in seeking to sideline a top rival.`\
 https://nytimes.com/2025/03/24/world/europe/turkey-protests-istanbul-erdogan-imamoglu.html
-
-**Gotham signs Geyse on loan from Man Utd**\
-`The 26-year-old joined United from Barcelona in August 2023 for a club-record fee.`\
-https://nytimes.com/athletic/6226685/2025/03/24/geyse-gotham-fc-manchester-united/
-
-**Blumenthal Calls ‘Shadow Hearing’ on Trump Veterans Cuts**\
-`Doug Collins, the veterans affairs secretary, is unlikely to accept Senator Richard Blumenthal’s invitation to appear on Capitol Hill to discuss the Trump administration’s cuts on veterans and the agency that serves them.`\
-https://nytimes.com/2025/03/24/us/politics/blumenthal-calls-shadow-hearing-on-trump-veterans-cuts.html
-
-**You Can Make Amber Fossils in 24 Hours, Instead of Millions of Years**\
-`Paleontologists hope that an amber-like material, made with living tree resin, will shed light on the prehistoric fossilization of the real stuff.`\
-https://nytimes.com/2025/03/24/science/amber-fossils-synthetic.html
-
-**Lowetide: What we've learned about the Oilers since trade deadline**\
-`The Oilers' numbers since the deadline indicate incremental improvement ahead of the playoffs.`\
-https://nytimes.com/athletic/6224805/2025/03/24/nhl-oilers-stats-trade-deadline/
 
