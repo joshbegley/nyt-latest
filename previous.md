@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-
 **South Korea​n Court ​Reinstates Impeached Prime Minister**\
 `​Prime Minister Han Duck-soo was serving as the country’s acting president when the National Assembly impeached him in December, suspending him from office.`\
 https://nytimes.com/2025/03/23/world/asia/south-korea-reinstates-prime-minister.html
-
-**Canada sends USMNT reeling to fourth-place Nations League finish**\
-`The Canadians had a point to prove, and they made it in securing victory in the third-place match.`\
-https://nytimes.com/athletic/6225419/2025/03/23/usmnt-canada-concacaf-nations-league-third-place/
 

@@ -1,3 +1,7 @@
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/23/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Spain clinches San Francisco SailGP victory, climbs season leaderboard**\
 `Spain's win makes Diego Botin's team the fifth victor in the five events we've seen so far in Season 5.`\
 https://nytimes.com/athletic/6225724/2025/03/23/san-francisco-sail-grand-prix-spain-australia/
