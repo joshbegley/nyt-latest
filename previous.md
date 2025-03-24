@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Spring football is in full effect across the country. What&#8217;s on your mind this week?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6227120/2025/03/24/submit-a-question-for-stewart-mandels-college-football-mailbag-296/
+
+**Lionizing Mark Twain, Conan O’Brien Subtly Skewers Trump**\
+`In accepting the Mark Twain Prize for American Humor, the comedian mounted a bristling political attack artfully disguised as a tribute.`\
+https://nytimes.com/2025/03/24/arts/conan-obrien-twain-trump.html
+
+**Why is Jamie Carragher's son playing for Malta?**\
+`The English-born defender made his international debut for the Mediterranean island nation last weekend in a World Cup qualifier`\
+https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
+
 **Trump Administration Is Sued Over Push to Shut Education Department**\
 `The lawsuit accuses the government of dismantling the department by executive fiat without the required approval of Congress.`\
 https://nytimes.com/2025/03/24/us/trump-education-department-lawsuit.html
@@ -25,16 +39,4 @@ https://nytimes.com/2025/03/24/us/politics/musk-privacy-education-department.htm
 **Minnesota hiring Colorado State's Niko Medved as next men's hoops coach**\
 `Medved's Rams fell victim to a Derik Queen buzzer beater in a 72-71 loss to No. 4 seed Maryland on Sunday.`\
 https://nytimes.com/athletic/6206249/2025/03/24/minnesota-niko-medved-colorado-state-coach/
-
-**Trump Chooses His Former Lawyer as Interim U.S. Attorney for New Jersey**\
-`Alina Habba, who defended President Trump against E. Jean Carroll’s sexual abuse and defamation claims, will oversee the work of about 150 prosecutors.`\
-https://nytimes.com/2025/03/24/nyregion/trump-alina-habba-new-jersey-us-attorney.html
-
-**Yankees, Ryan Yarbrough agree to major-league deal**\
-`Yarbrough figures to be the second lefty out of the relief unit behind Tim Hill.`\
-https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agent-deal/
-
-**Toyota Was Bullish on Trump. Then Came the Tariff Threats.**\
-`Japanese automakers, initially optimistic about some of President Trump’s policies, are reckoning with potentially devastating U.S. taxes on foreign-made cars.`\
-https://nytimes.com/2025/03/24/business/trump-tariffs-toyota-japan.html
 
