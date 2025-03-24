@@ -1,3 +1,7 @@
+**Analysing Jamal Musiala's bizarre corner goal for Germany against Italy**\
+`A fatal lack of concentration from Italy's defence allowed Germany to score a goal that was unusual and memorable in equal measure`\
+https://nytimes.com/athletic/6225620/2025/03/24/musiala-germany-italy-weird-goal-corner/
+
 **Amid losing streak, Tottenham Hotspur give head coach Robert Vilahamn time**\
 `Spurs promised a plan, but recent results beg the question: do they still have one?`\
 https://nytimes.com/athletic/6225388/2025/03/24/tottenham-hotspur-robert-vilahamn-time-losing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
 **A late winner for Chelsea against City helps bring WSL title within reach**\
 `As Chelsea continues to battle a familiar foe in City, Cuthbert's late winner adds a much-needed energy boost`\
 https://nytimes.com/athletic/6225155/2025/03/24/chelsea-manchester-city-wsl-erin-cuthbert/
-
-**Word of the Day: repartee**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/24/learning/word-of-the-day-repartee.html
 

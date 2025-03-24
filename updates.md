@@ -1,3 +1,7 @@
+**Analysing Jamal Musiala's bizarre corner goal for Germany against Italy**\
+`A fatal lack of concentration from Italy's defence allowed Germany to score a goal that was unusual and memorable in equal measure`\
+https://nytimes.com/athletic/6225620/2025/03/24/musiala-germany-italy-weird-goal-corner/
+
 **Amid losing streak, Tottenham Hotspur give head coach Robert Vilahamn time**\
 `Spurs promised a plan, but recent results beg the question: do they still have one?`\
 https://nytimes.com/athletic/6225388/2025/03/24/tottenham-hotspur-robert-vilahamn-time-losing/
