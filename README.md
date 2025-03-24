@@ -1,3 +1,15 @@
+**No Corrections: March 24, 2025**\
+`No corrections appeared in print on Monday, March 24, 2025.`\
+https://nytimes.com/2025/03/24/pageoneplus/no-corrections-march-24-2025.html
+
+**Canucks notebook: Daunting math, centre concerns and Thatcher Demko's return**\
+`The Wild Card math is getting tough for the Canucks. How a lack of centre depth and Thatcher Demko's return could play out down the stretch`\
+https://nytimes.com/athletic/6225977/2025/03/24/canucks-thatcher-demko-elias-pettersson-injuries/
+
+**Rockets can take valuable lessons from 'sloppy' home loss to the Nuggets**\
+`Getting outworked by a Denver team missing its superstar was a missed opportunity. But the Rockets have time to learn from it.`\
+https://nytimes.com/athletic/6225696/2025/03/24/rockets-nuggets-loss-lessons/
+
 **Bubba Wallace is off to a career-best start. Is that elusive third win coming soon?**\
 `With a new outlook, Bubba Wallace is off to the best start of his career. And that elusive victory feels closer than ever.`\
 https://nytimes.com/athletic/6226326/2025/03/24/bubba-wallace-nascar-homestead-charles-denike/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/24/world/europe/gerard-depardieu-sexual-assault-tria
 **College baseball week in review: Time to panic at Texas A&M, Florida and Virginia?**\
 `The next Charlie Condon? Not quite, but Georgia has a new offensive star in Miami (Ohio) transfer Ryland Zaborowski.`\
 https://nytimes.com/athletic/6225601/2025/03/24/college-baseball-texas-am-florida-virginia/
-
-**Boehly suggests Chelsea co-owners will split if they disagree on stadium plan**\
-`"What’s been written and talked about is much more ‘drama’ than what’s actually happening," Boehly said on Chelsea's ownership structure.`\
-https://nytimes.com/athletic/6226419/2025/03/24/chelsea-stadium-boehly-stamford-bridge/
-
-**Trump Criticizes His Portrait in Colorado’s Capitol: ‘Nobody Likes a Bad Picture’**\
-`President Trump claimed the portrait painted during his first term was “purposefully distorted” and called for it to be taken down.`\
-https://nytimes.com/2025/03/24/us/politics/trump-colorado-portrait-painting.html
-
-**NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
-`Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
-https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
 
