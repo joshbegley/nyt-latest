@@ -1,3 +1,7 @@
+**Mexico wins Concacaf Nations League title thanks to Jiménez, gifted PK**\
+`Mexico claimed its first Concacaf Nations League title after Raul Jiménez's stoppage-time PK.`\
+https://nytimes.com/athletic/6225870/2025/03/23/mexico-panama-concacaf-nations-league-title-jimenez/
+
 **Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
 `The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
 https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
