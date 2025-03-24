@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/03/24/opinion/thepoint
+
+**Dynasty fantasy football rookie mock draft: Dearth at quarterback, wealth at running back**\
+`Jeff Haverlack shares his first dynasty league rookie draft for 2025, with running backs dominating the top spots of his two-round mock.`\
+https://nytimes.com/athletic/6227121/2025/03/24/dynasty-fantasy-football-2025-rookie-mock-draft-superflex/
+
 **Concerns Grow Over a New Lab-Grown Blood Vessel**\
 `The F.D.A. approved an artificial vessel to restore blood flow in patients, despite its own scientists flagging questionable study results and potentially fatal ruptures of the product.`\
 https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6227181/2025/03/24/march-madness-national-title-odd
 **Nadine and Bob Menendez Were ‘Partners in Crime,’ Prosecutor Says**\
 `But a lawyer for Ms. Menendez, the wife of former Senator Robert Menendez, told jurors at the start of her bribery trial that she lacked “knowledge and intent.”`\
 https://nytimes.com/2025/03/24/nyregion/nadine-menendez-corruption-trial.html
-
-**Patriots match Raiders' offer to LB Christian Elliss: Source**\
-`Elliss played a career-high 513 defensive snaps in 2024, holding his own in his first season with multiple defensive starts.`\
-https://nytimes.com/athletic/6227232/2025/03/24/patriots-match-raiders-offer-christian-elliss/
-
-**Submit a question for James Boyd's Indianapolis Colts mailbag**\
-`After signing Charvarius Ward and Cam Bynum, Indy looks much better on paper than it did a few weeks ago. What's next on the to-do list?`\
-https://nytimes.com/athletic/6227343/2025/03/24/colts-mailbag-nfl-draft-free-agency-chris-ballard/
 

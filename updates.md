@@ -1,3 +1,11 @@
+**Concerns Grow Over a New Lab-Grown Blood Vessel**\
+`The F.D.A. approved an artificial vessel to restore blood flow in patients, despite its own scientists flagging questionable study results and potentially fatal ruptures of the product.`\
+https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
+
+**A Festival Displays the Expressive Power of Tuning in Music**\
+`The Los Angeles collective Wild Up brought its Darkness Sounding festival to New York, with some of the event’s appeal lost in transit.`\
+https://nytimes.com/2025/03/24/arts/music/wild-up-darkness-sounding-festival.html
+
 **Women's March Madness second-round takeaways: Can NC State keep this offensive spurt going?**\
 `No. 2 seed UConn takes on No. 10 seed South Dakota State on Monday evening.`\
 https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-round-takeaways-texas-lsu-uconn/

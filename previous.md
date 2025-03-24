@@ -1,3 +1,11 @@
+**Concerns Grow Over a New Lab-Grown Blood Vessel**\
+`The F.D.A. approved an artificial vessel to restore blood flow in patients, despite its own scientists flagging questionable study results and potentially fatal ruptures of the product.`\
+https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
+
+**A Festival Displays the Expressive Power of Tuning in Music**\
+`The Los Angeles collective Wild Up brought its Darkness Sounding festival to New York, with some of the event’s appeal lost in transit.`\
+https://nytimes.com/2025/03/24/arts/music/wild-up-darkness-sounding-festival.html
+
 **Women's March Madness second-round takeaways: Can NC State keep this offensive spurt going?**\
 `No. 2 seed UConn takes on No. 10 seed South Dakota State on Monday evening.`\
 https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-round-takeaways-texas-lsu-uconn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6227232/2025/03/24/patriots-match-raiders-offer-chr
 **Submit a question for James Boyd's Indianapolis Colts mailbag**\
 `After signing Charvarius Ward and Cam Bynum, Indy looks much better on paper than it did a few weeks ago. What's next on the to-do list?`\
 https://nytimes.com/athletic/6227343/2025/03/24/colts-mailbag-nfl-draft-free-agency-chris-ballard/
-
-**When a President Defies a Judge’s Order**\
-`Readers react to President Trump’s refusal to follow Judge James E. Boasberg’s instructions to halt a deportation flight. Also: A plea from Gen Z.`\
-https://nytimes.com/2025/03/24/opinion/trump-boasberg-judges-constitution.html
-
-**Canadiens notebook: Hutson's shooting, Montembeault’s confidence**\
-`Also in this week's notebook: confidence-growing moments for Joshua Roy, Jayden Struble and some video of David Reinbacher in Laval.`\
-https://nytimes.com/athletic/6227225/2025/03/24/canadiens-lane-hutson-sam-montembeault/
 
