@@ -1,3 +1,7 @@
+**USMNT frustrations boiling over as World Cup clock keeps on ticking**\
+`Expectations of this U.S. group are growing, especially with a World Cup on home soil. So why does it feel like progress has been stunted?`\
+https://nytimes.com/athletic/6226004/2025/03/24/usmnt-nations-league-disappointment-world-cup-pochettino/
+
 **Analysing Jamal Musiala's bizarre corner goal for Germany against Italy**\
 `A fatal lack of concentration from Italy's defence allowed Germany to score a goal that was unusual and memorable in equal measure`\
 https://nytimes.com/athletic/6225620/2025/03/24/musiala-germany-italy-weird-goal-corner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-
 **Mia Love, First Black Republican Woman Elected to Congress, Dies at 49**\
 `Ms. Love, who represented Utah in Congress from 2015 to 2019, was diagnosed with brain cancer in 2022.`\
 https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
-
-**A late winner for Chelsea against City helps bring WSL title within reach**\
-`As Chelsea continues to battle a familiar foe in City, Cuthbert's late winner adds a much-needed energy boost`\
-https://nytimes.com/athletic/6225155/2025/03/24/chelsea-manchester-city-wsl-erin-cuthbert/
 
