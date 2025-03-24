@@ -1,3 +1,15 @@
+**gws-mel-robbins-let-them-profile**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mel-robbins-let-them-profile
+
+**Advocates Rally After Trump Targets Federal Support for Libraries**\
+`An executive order has demanded that the Institute for Museum and Library Services be eliminated to the maximum extent allowed by law.`\
+https://nytimes.com/2025/03/24/arts/trump-libraries-museums-archives.html
+
+**gws-things-to-do-guadalajara**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/travel-things-to-do-guadalajara
+
 **Trump plans to invite 2019 Chiefs to White House after pandemic prevented visit**\
 `No date has been set for the Chiefs' visit, and the team has not formally been invited, according to a team source.`\
 https://nytimes.com/athletic/6226973/2025/03/24/chiefs-super-bowl-white-house-visit-trump/
@@ -27,16 +39,4 @@ https://nytimes.com/2025/03/24/us/politics/alien-enemies-act-extraditions.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6227120/2025/03/24/submit-a-question-for-stewart-mandels-college-football-mailbag-296/
-
-**Lionizing Mark Twain, Conan O’Brien Subtly Skewers Trump**\
-`In accepting the Mark Twain Prize for American Humor, the comedian mounted a bristling political attack artfully disguised as a tribute.`\
-https://nytimes.com/2025/03/24/arts/conan-obrien-twain-trump.html
-
-**Why is Jamie Carragher's son playing for Malta?**\
-`The English-born defender made his international debut for the Mediterranean island nation last week in a World Cup qualifier`\
-https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
-
-**Trump Administration Is Sued Over Push to Shut Education Department**\
-`The lawsuit accuses the government of dismantling the department by executive fiat without the required approval of Congress.`\
-https://nytimes.com/2025/03/24/us/trump-education-department-lawsuit.html
 

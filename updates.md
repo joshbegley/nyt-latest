@@ -1,3 +1,15 @@
+**Trump plans to invite 2019 Chiefs to White House after pandemic prevented visit**\
+`No date has been set for the Chiefs' visit, and the team has not formally been invited, according to a team source.`\
+https://nytimes.com/athletic/6226973/2025/03/24/chiefs-super-bowl-white-house-visit-trump/
+
+**Rays' Shane McClanahan avoids 'worse' injury, will miss time with nerve issue**\
+`The Tampa Bay Rays' ace learned over the weekend that he’ll miss multiple weeks with nerve irritation in his left triceps. "We got lucky." `\
+https://nytimes.com/athletic/6227123/2025/03/24/shane-mcclanahan-triceps-injury-timeline/
+
+**gws-snl-photographer-mary-ellen-matthews**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/snl-photographer-mary-ellen-matthews
+
 **Why is Jamie Carragher's son playing for Malta?**\
 `The English-born defender made his international debut for the Mediterranean island nation last week in a World Cup qualifier`\
 https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
