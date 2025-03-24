@@ -1,40 +1,40 @@
-**USMNT frustrations boiling over as World Cup clock keeps on ticking**\
-`Expectations of this U.S. group are growing, especially with a World Cup on home soil. So why does it feel like progress has been stunted?`\
-https://nytimes.com/athletic/6226004/2025/03/24/usmnt-nations-league-disappointment-world-cup-pochettino/
+**Yankees fans cry foul over limited access to players after Steinbrenner Field renovations**\
+`With a new building at the Yankees' spring training facility in a space fans used to frequent, some said they may not return.`\
+https://nytimes.com/athletic/6225019/2025/03/24/yankees-spring-training-renovations-fan-response/
 
-**Analysing Jamal Musiala's bizarre corner goal for Germany against Italy**\
-`A fatal lack of concentration from Italy's defence allowed Germany to score a goal that was unusual and memorable in equal measure`\
-https://nytimes.com/athletic/6225620/2025/03/24/musiala-germany-italy-weird-goal-corner/
+**The Trump Train Is Going Full Speed Ahead**\
+`This is certainly an administration that reminds us why the framers decided on separation of powers.`\
+https://nytimes.com/2025/03/24/opinion/trump-columbia-courts-law-firms.html
 
-**Amid losing streak, Tottenham Hotspur give head coach Robert Vilahamn time**\
-`Spurs promised a plan, but recent results beg the question: do they still have one?`\
-https://nytimes.com/athletic/6225388/2025/03/24/tottenham-hotspur-robert-vilahamn-time-losing/
+**Will the Packers trade up for Arizona wide receiver Tetairoa McMillan? Mailbag**\
+`Brian Gutekunst reportedly was the only general manager to attend Tetairoa McMillan's private workout last week.`\
+https://nytimes.com/athletic/6225170/2025/03/24/packers-nfl-draft-mailbag-tetairoa-mcmillan/
 
-**‘Chaos and Confusion’ at the Crown Jewel of American Science**\
-`Senior scientists at the National Institutes of Health fear that research on conditions like obesity, heart disease and cancer will be undermined by President Trump’s policies.`\
-https://nytimes.com/2025/03/24/health/nih-doge-trump.html
+**Performa 2025 Biennial Announces New Commissions**\
+`Artists from around the world will converge in New York this fall for a program of live spectacles, combining music, sound, sculpture and commedia dell’arte.`\
+https://nytimes.com/2025/03/24/arts/design/performa-biennial-announces-new-commissions-henrot.html
 
-**Adams Uses Agency ‘Tracker’ to Control Messaging on Trump**\
-`Mayor Eric Adams has used a spreadsheet to flag agency statements that may cause potential problems with the Trump administration.`\
-https://nytimes.com/2025/03/24/nyregion/adams-trump-tracker.html
+**Bernie Sanders Is Tapping Into a Deep Vein of Anger in America**\
+`Struggling working class voters fear that the country they’ve always counted on is sliding away because of President Trump.`\
+https://nytimes.com/2025/03/24/opinion/bernie-sanders-rallies-anger.html
 
-**Hochul Backs Plan to Ease Evidence Requirements for Prosecutors**\
-`District attorneys say that a 2019 law ordering them to give reams of evidence to defense lawyers has resulted in thousands of scuttled cases.`\
-https://nytimes.com/2025/03/24/nyregion/hochul-prosecutors-discovery-evidence.html
+**Law in Mahmoud Khalil’s Case Was Once Struck Down — by Trump’s Sister**\
+`Judge Maryanne Trump Barry ruled that the law invoked against Mr. Khalil violated the Constitution by giving unfettered discretion to the secretary of state.`\
+https://nytimes.com/2025/03/24/us/politics/mahmoud-khalil-trump-sister-law.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/24/crosswords/spelling-bee-forum.html
+**Why I Got the Measles Vaccine at Age 63**\
+`Cases have now popped up in at least 19 states, including Kentucky and Georgia. That’s near enough to home for me to start worrying.`\
+https://nytimes.com/2025/03/24/opinion/measles-vaccine-babies.html
 
-**Somehow, the Portugal national team is still The Cristiano Ronaldo Show**\
-`Ronaldo's main character energy ensures he dominates proceedings — even when it's his team-mates doing most of the work`\
-https://nytimes.com/athletic/6225542/2025/03/24/cristiano-ronaldo-portugal-main-character/
+**U.S. Could Run Out of Cash by July, Analysis Finds**\
+`The Bipartisan Policy Center estimates that the so-called X-date could fall between mid-July and early October if Congress does not lift or suspend the nation’s debt limit.`\
+https://nytimes.com/2025/03/24/us/politics/x-date-debt-limit-treasury-republicans-trump.html
 
-**As Clippers win streak ends, they hold their breath on status of James Harden**\
-`The Clippers were finally healthy and hoping for a sixth straight win. The Thunder prevailed and now Harden's health is an issue.`\
-https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-injured/
+**Trump Did What Castros Couldn’t: Take Radio Martí Off the Air**\
+`For four decades, a U.S.-financed broadcaster provoked the ire of the communist government in Cuba. President Trump dismantled it in a matter of days.`\
+https://nytimes.com/2025/03/24/world/americas/radio-marti-cuba-trump-castro.html
 
-**Mia Love, First Black Republican Woman Elected to Congress, Dies at 49**\
-`Ms. Love, who represented Utah in Congress from 2015 to 2019, was diagnosed with brain cancer in 2022.`\
-https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
+**Sherrod Brown, Weighing a 2026 Senate Bid, Starts a Workers’ Group**\
+`Mr. Brown, the Ohio Democrat who lost his race for re-election last year, is forming the Dignity of Work Institute, which will highlight workers’ struggles.`\
+https://nytimes.com/2025/03/24/us/politics/sherrod-brown-2026-senate-ohio.html
 
