@@ -1,3 +1,15 @@
+**Mavs' Anthony Davis nearing return after 6-week absence**\
+`Davis went down with a left adductor strain in the Mavericks’ Feb. 8 game against the Houston Rockets.`\
+https://nytimes.com/athletic/6227095/2025/03/24/anthony-davis-return-injury-update-mavericks/
+
+**Scoop City: Setting the table for the 2025 draft**\
+`Inside: A quick draft primer, plus Aaron Rodgers&#8217; time in Pittsburgh, Jerry Jones&#8217; status among owners and another potential first-round QB.`\
+https://nytimes.com/athletic/6227128/2025/03/24/nfl-draft-2025-most-picks-49ers-ravens-preview-scoop-city/
+
+**Trump Administration Cites Alien Enemies Act as It Plans New Extraditions**\
+`By citing the act, the administration seems to be highlighting its aggressive posture without taking steps that might be deemed to violate a temporary restraining order issued by a federal judge.`\
+https://nytimes.com/2025/03/24/us/politics/alien-enemies-act-extraditions.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Spring football is in full effect across the country. What&#8217;s on your mind this week?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -27,16 +39,4 @@ https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
 **Judge Maintains Block on Deportations of Venezuelans Under Wartime Law**\
 `Judge James E. Boasberg’s order says that the Venezuelan immigrants should have the opportunity to challenge the accusation by the Trump administration that they are members of a gang.`\
 https://nytimes.com/2025/03/24/us/judge-ruling-trump-deportations-alien-enemies-act.html
-
-**Trump Asks Supreme Court to Block Ruling on Rehiring Fired Workers**\
-`An administration lawyer complained about what she said was a trend of lower court judges exceeding their authority in halting government programs.`\
-https://nytimes.com/2025/03/24/us/trump-supreme-court-probationary-workers.html
-
-**Judge Blocks Education Officials From Providing Sensitive Data to Musk’s Team**\
-`The ruling on Monday extended an earlier one barring Elon Musk and his associates from reviewing student loan data and other potentially sensitive records.`\
-https://nytimes.com/2025/03/24/us/politics/musk-privacy-education-department.html
-
-**Minnesota hiring Colorado State's Niko Medved as next men's hoops coach**\
-`Medved's Rams fell victim to a Derik Queen buzzer beater in a 72-71 loss to No. 4 seed Maryland on Sunday.`\
-https://nytimes.com/athletic/6206249/2025/03/24/minnesota-niko-medved-colorado-state-coach/
 
