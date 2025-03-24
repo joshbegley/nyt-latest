@@ -1,3 +1,11 @@
+**Craig Kimbrel's return could be boon for Braves' bullpen, if his body cooperates**\
+`Kimbrel, 36, was at least willing to share with a reporter that a balky back contributed to his struggles last season.`\
+https://nytimes.com/athletic/6227824/2025/03/24/craig-kimbrel-braves-return-bullpen/
+
+**Trump says ‘people from Greenland’ invited U.S. delegation. Greenland wants a word.**\
+`President Trump has vowed to make Greenland part of the United States “one way or the other.”`\
+https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-visits
+
 **Palestinian Director of Oscar-Winning ‘No Other Land’ Is Attacked, Witnesses Say**\
 `Hamdan Ballal was assaulted by masked attackers in his home village in the Israeli-occupied West Bank, witnesses said. The Israeli military said he had been detained for questioning.`\
 https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.html

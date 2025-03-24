@@ -1,3 +1,7 @@
+**Craig Kimbrel's return could be boon for Braves' bullpen, if his body cooperates**\
+`Kimbrel, 36, was at least willing to share with a reporter that a balky back contributed to his struggles last season.`\
+https://nytimes.com/athletic/6227824/2025/03/24/craig-kimbrel-braves-return-bullpen/
+
 **Palestinian Director of Oscar-Winning ‘No Other Land’ Is Attacked, Witnesses Say**\
 `Hamdan Ballal was assaulted by masked attackers in his home village in the Israeli-occupied West Bank, witnesses said. The Israeli military said he had been detained for questioning.`\
 https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.html
@@ -18,9 +22,9 @@ https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
 `A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
 https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
 
-**Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
+**Trump says ‘people from Greenland’ invited U.S. delegation. Greenland wants a word.**\
+`President Trump has vowed to make Greenland part of the United States “one way or the other.”`\
+https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-visits
 
 **College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
 `The portal will remain open until April 22, but there was a flurry of activity Monday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227861/2025/03/24/coco-gauff-miami-open-tennis-str
 **Top Trump Campaign Aide Sues The Daily Beast for Defamation**\
 `The lawsuit accuses the news site of knowingly publishing false information about how much Chris LaCivita, a Trump campaign manager, was paid by the campaign.`\
 https://nytimes.com/2025/03/24/business/media/daily-beast-chris-lacivita-lawsuit-trump.html
-
-**West Virginia Bans 7 Artificial Food Dyes, Citing Health Concerns**\
-`At least 20 other states are considering bills restricting the use of certain food dyes and additives.`\
-https://nytimes.com/2025/03/24/well/west-virginia-food-dye-ban.html
 
