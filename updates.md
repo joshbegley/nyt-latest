@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, March 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/24/todays-new-york-times-international-edition
+
 **How to watch No. 3 LSU vs. No. 6 Florida State in the women's NCAA Tournament**\
 `LSU is a double-digit favorite at home against Florida State in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6224643/2025/03/24/lsu-florida-state-womens-ncaa-tournament-how-to-watch/

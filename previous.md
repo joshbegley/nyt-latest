@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, March 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/24/todays-new-york-times-international-edition
+
 **How to watch No. 3 LSU vs. No. 6 Florida State in the women's NCAA Tournament**\
 `LSU is a double-digit favorite at home against Florida State in the second round of the NCAA Tournament.`\
 https://nytimes.com/athletic/6224643/2025/03/24/lsu-florida-state-womens-ncaa-tournament-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/opinion/measles-vaccine-babies.html
 **U.S. Could Run Out of Cash by July, Analysis Finds**\
 `The Bipartisan Policy Center estimates that the so-called X-date could fall between mid-July and early October if Congress does not lift or suspend the nation’s debt limit.`\
 https://nytimes.com/2025/03/24/us/politics/x-date-debt-limit-treasury-republicans-trump.html
-
-**Trump Did What Castros Couldn’t: Take Radio Martí Off the Air**\
-`For four decades, a U.S.-financed broadcaster provoked the ire of the communist government in Cuba. President Trump dismantled it in a matter of days.`\
-https://nytimes.com/2025/03/24/world/americas/radio-marti-cuba-trump-castro.html
 
