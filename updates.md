@@ -1,3 +1,11 @@
+**gws-parker-posey-white-lotus**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
+
+**gws-jack-quaid-companion-novocaine**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jack-quaid-companion-novocaine
+
 **gws-nomadic-life-airstream-trailer**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/nomadic-life-airstream-trailer

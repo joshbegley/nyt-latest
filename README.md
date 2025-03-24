@@ -1,3 +1,7 @@
+**Canadiens notebook: Hutson's shooting, Montembeault’s confidence**\
+`Also in this week's notebook: confidence-growing moments for Joshua Roy, Jayden Struble and some video of David Reinbacher in Laval.`\
+https://nytimes.com/athletic/6227225/2025/03/24/canadiens-lane-hutson-sam-montembeault/
+
 **gws-parker-posey-white-lotus**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/travel-things-to-do-guadalajara
 **Trump plans to invite 2019 Chiefs to White House after pandemic prevented visit**\
 `No date has been set for the Chiefs' visit, and the team has not formally been invited, according to a team source.`\
 https://nytimes.com/athletic/6226973/2025/03/24/chiefs-super-bowl-white-house-visit-trump/
-
-**Rays' Shane McClanahan avoids 'worse' injury, will miss time with nerve issue**\
-`The Tampa Bay Rays' ace learned over the weekend that he’ll miss multiple weeks with nerve irritation in his left triceps. "We got lucky." `\
-https://nytimes.com/athletic/6227123/2025/03/24/shane-mcclanahan-triceps-injury-timeline/
 
