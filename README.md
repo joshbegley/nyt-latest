@@ -1,3 +1,7 @@
+**Mexico wins Concacaf Nations League title thanks to Jiménez, gifted PK**\
+`Mexico claimed its first Concacaf Nations League title after Raul Jiménez's stoppage-time PK.`\
+https://nytimes.com/athletic/6225870/2025/03/23/mexico-panama-concacaf-nations-league-title-jimenez/
+
 **Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
 `The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
 https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225583/2025/03/23/chicago-cubs-roster-projection-3
 **‘The White Lotus’ Season 3, Episode 6 Recap: The Morning After**\
 `Drinks were drunk, decisions were made. This week’s episode was all about the consequences.`\
 https://nytimes.com/2025/03/23/arts/television/the-white-lotus-recap-season-3-episode-6.html
-
-**At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
-`Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
-https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
 
