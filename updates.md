@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3, Episode 6 Recap: The Morning After**\
+`Drinks were drunk, decisions were made. This week’s episode was all about the consequences.`\
+https://nytimes.com/2025/03/23/arts/television/the-white-lotus-recap-season-3-episode-6.html
+
 **At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
 `Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
 https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
