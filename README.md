@@ -1,3 +1,11 @@
+**A Creamy Pudding Worthy of Celebration**\
+`When prepared from scratch, this cardamom-scented dessert and Eid delicacy is as delightful to make as it is to eat.`\
+https://nytimes.com/2025/03/24/dining/eid-al-fitr-sheer-khorma.html
+
+**A ‘Life-Changing’ Child Care Program in New York Could Soon Collapse**\
+`Child care vouchers for low-income families have been a lifeline amid the city’s affordability crisis. They could vanish unless state lawmakers move quickly to fund the program.`\
+https://nytimes.com/2025/03/24/nyregion/nyc-child-care-day-care-vouchers.html
+
 **‘Adolescence’ Has People Talking. Its Writer Wants Lawmakers to Act.**\
 `The Netflix hit has touched off debates about smartphone use by children and, in Britain, fed into calls for a social media ban.`\
 https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/world/asia/taliban-haqqani-bounties.html
 **In a Sea of Political Change, Bernie Sanders Keeps Truckin’**\
 `An aging star playing to massive crowds of supporters in head-to-toe merch? It’s not the Grateful Dead, it’s the Fighting Oligarchy tour.`\
 https://nytimes.com/2025/03/24/style/bernie-sanders-fighting-oligarchy-fans.html
-
-**Hegseth Disclosed Secret War Plans in a Group Chat**\
-`The conversation among the defense secretary and other national security officials on a commercial messaging app mistakenly included the editor in chief of The Atlantic, Jeffrey Goldberg.`\
-https://nytimes.com/2025/03/24/us/politics/hegseth-classified-war-plans-group-chat.html
-
-**Why Does Trump Want Greenland? Here’s What to Know.**\
-`President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
-https://nytimes.com/article/trump-greenland-why.html
 
