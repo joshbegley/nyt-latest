@@ -1,3 +1,7 @@
+**Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
+`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Second Lady Usha Vance plans to attend.`\
+https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
+
 **Judge Maintains Block on Deportations of Venezuelans Under Wartime Law**\
 `Judge James E. Boasberg’s order says that the Venezuelan immigrants should have the opportunity to challenge the accusation by the Trump administration that they are members of a gang.`\
 https://nytimes.com/2025/03/24/us/judge-ruling-trump-deportations-alien-enemies-act.html
@@ -9,10 +13,6 @@ https://nytimes.com/2025/03/24/us/trump-supreme-court-probationary-workers.html
 **Judge Blocks Education Officials From Providing Sensitive Data to Musk’s Team**\
 `The ruling on Monday extended an earlier one barring Elon Musk and his associates from reviewing student loan data and other potentially sensitive records.`\
 https://nytimes.com/2025/03/24/us/politics/musk-privacy-education-department.html
-
-**Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
-`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Second Lady Usha Vance plans to attend.`\
-https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
 
 **Minnesota hiring Colorado State's Niko Medved as next men's hoops coach**\
 `Medved's Rams fell victim to a Derik Queen buzzer beater in a 72-71 loss to No. 4 seed Maryland on Sunday.`\
