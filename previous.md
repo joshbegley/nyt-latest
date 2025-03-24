@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
+`The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
+https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
+
 **Tom Izzo leads Michigan State to Sweet 16 for 16th time**\
 `A game that started entirely at New Mexico’s pace completely flipped in the Spartans’ favor over the final 25 minutes.`\
 https://nytimes.com/athletic/6225863/2025/03/23/tom-izzo-michigan-state-sweet-16-for-16th-time-as-michigan-state-new-mexico/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/23/arts/television/the-white-lotus-recap-season-3-ep
 **At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
 `Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
 https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
-
-**Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
-`Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
-https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/
 

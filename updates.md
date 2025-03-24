@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Valiant Penguins fall in shootout against Panthers**\
+`The Penguins outplayed the defending champions for most of the game Sunday, continuing a run of improved play since the deadline.`\
+https://nytimes.com/athletic/6224725/2025/03/23/penguins-rust-crosby-shootout-panthers/
+
 **Tom Izzo leads Michigan State to Sweet 16 for 16th time**\
 `A game that started entirely at New Mexico’s pace completely flipped in the Spartans’ favor over the final 25 minutes.`\
 https://nytimes.com/athletic/6225863/2025/03/23/tom-izzo-michigan-state-sweet-16-for-16th-time-as-michigan-state-new-mexico/
