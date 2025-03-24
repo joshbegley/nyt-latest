@@ -1,3 +1,15 @@
+**Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
+`Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
+https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/
+
+**Trump invites the Kansas City Chiefs to the White House, honoring a 2020 Super Bowl victory clouded by Covid.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-chiefs-to-the-white-house-honoring-a-2020-super-bowl-victory-clouded-by-covid
+
+**South Korea​n Court ​Reinstates Impeached Prime Minister**\
+`​Prime Minister Han Duck-soo was serving as the country’s acting president when the National Assembly impeached him in December, suspending him from office.`\
+https://nytimes.com/2025/03/23/world/asia/south-korea-reinstates-prime-minister.html
+
 **What I'm seeing in Twins camp: Injuries cause roster uncertainty before Opening Day**\
 `The Twins have four open spots with Opening Day nearly here. A look at the roster picture, along with TV developments and more from camp. `\
 https://nytimes.com/athletic/6225454/2025/03/23/twins-camp-observations-injuries/
