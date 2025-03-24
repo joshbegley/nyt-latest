@@ -1,3 +1,15 @@
+**Trump Officials Disclosed Military Plans in a Group Chat**\
+`Also, paper bags might not be as green as you think. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/03/24/briefing/trump-officials-group-chat-paper-bags-vs-plastic.html
+
+**What I'm hearing about the Guardians: Tanner Bibee, Nolan Jones, Triston McKenzie**\
+`Insights on a slew of recent Cleveland Guardians developments.`\
+https://nytimes.com/athletic/6226965/2025/03/24/what-im-hearing-guardians-tanner-bibee-nolan-jones-triston-mckenzie/
+
+**The Briefing: England 3 Latvia 0 - Eze and James off the mark, and what has Tuchel learned?**\
+`The first meeting of these sides ended in a comfortable victory for the hosts as Thomas Tuchel maintained his winning start with England`\
+https://nytimes.com/athletic/6226317/2025/03/24/england-latvia-tuchel-james-eze-rogers/
+
 **Trump Nominates Susan Monarez to Lead C.D.C.**\
 `Currently the agency’s acting director, Dr. Monarez would be the first nonphysician to head the agency in more than 50 years.`\
 https://nytimes.com/2025/03/24/health/cdc-director-monarez.html
