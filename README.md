@@ -1,3 +1,7 @@
+**Bill Belichick a no-show at UNC's pro day as he builds program**\
+`UNC alumni talk about the team's legendary new head coach, the start of his tenure and how long they expect him to be in Chapel Hill. `\
+https://nytimes.com/athletic/6227594/2025/03/24/bill-belichick-unc-pro-day-absence/
+
 **Conan O’Brien Receives Mark Twain Prize at the Kennedy Center**\
 `The ceremony honoring Conan O’Brien with the Mark Twain Prize for American Humor was the first high-profile event at the Kennedy Center since President Trump ousted its top leaders and installed himself as chairman.`\
 https://nytimes.com/video/arts/100000010069234/conan-obrien-trump-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/03/24/style/cambridge-typewriter-company-party
 **Trump Says Hyundai’s New U.S. Investments Prove His Tariffs Work**\
 `Hyundai Motor, a South Korean conglomerate known for its automobiles, announced on Monday that it would make investments to expand manufacturing in the United States.`\
 https://nytimes.com/video/us/politics/100000010070096/trump-tariffs-hyundai-steel-automobiles.html
-
-**NewJeans Had Planned a Rebirth. The Performance Ended in Tears.**\
-`K-pop’s most imaginative group has been battling its powerhouse label. Our critic watched as its first concert in months was upended by a court ruling.`\
-https://nytimes.com/2025/03/24/arts/music/newjeans-njz-complexcon-hong-kong-hybe.html
 
