@@ -1,3 +1,15 @@
+**23andMe Files for Bankruptcy Amid Concerns About Security of Customers’ Genetic Data**\
+`The company filed for Chapter 11 bankruptcy to “facilitate a sale process.” Its chief executive stepped down and said she would bid on it.`\
+https://nytimes.com/2025/03/24/business/23andme-bankruptcy.html
+
+**What we learned from MLB's spring robot-umpire test: Players, managers and execs weigh in**\
+`What did we learn from watching the robot umps — and talking to people throughout the game about ABS — this spring? Let's discuss! `\
+https://nytimes.com/athletic/6224826/2025/03/24/mlb-automated-ball-strike-system-spring-training/
+
+**Viktor Hovland and the case for perfectionism**\
+`"We are here to win tournaments. So if you're not going to try to get better, what are you doing?"`\
+https://nytimes.com/athletic/6225566/2025/03/24/viktor-hovland-pga-tour-golf/
+
 **With free agency filling many voids, what's the Vikings' plan for the draft?**\
 `Having addressed many of their biggest needs in free agency, how should the Vikings approach the draft? Is a trade down the wise move?`\
 https://nytimes.com/athletic/6217050/2025/03/24/vikings-2025-nfl-draft-free-agency/
