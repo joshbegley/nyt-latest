@@ -1,3 +1,15 @@
+**Trump plans to invite 2019 Chiefs to White House after pandemic prevented visit**\
+`No date has been set for the Chiefs' visit, and the team has not formally been invited, according to a team source.`\
+https://nytimes.com/athletic/6226973/2025/03/24/chiefs-super-bowl-white-house-visit-trump/
+
+**Rays' Shane McClanahan avoids 'worse' injury, will miss time with nerve issue**\
+`The Tampa Bay Rays' ace learned over the weekend that he’ll miss multiple weeks with nerve irritation in his left triceps. "We got lucky." `\
+https://nytimes.com/athletic/6227123/2025/03/24/shane-mcclanahan-triceps-injury-timeline/
+
+**gws-snl-photographer-mary-ellen-matthews**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/snl-photographer-mary-ellen-matthews
+
 **Mavs' Anthony Davis nearing return after 6-week absence**\
 `Davis went down with a left adductor strain in the Mavericks’ Feb. 8 game against the Houston Rockets.`\
 https://nytimes.com/athletic/6227095/2025/03/24/anthony-davis-return-injury-update-mavericks/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
 **Trump Administration Is Sued Over Push to Shut Education Department**\
 `The lawsuit accuses the government of dismantling the department by executive fiat without the required approval of Congress.`\
 https://nytimes.com/2025/03/24/us/trump-education-department-lawsuit.html
-
-**Listen: How Abramovich's Chelsea takeover changed English football overnight**\
-`Straight Outta Cobham discuss Roman Abramovic's takeover of Chelsea and his impact on English and European football`\
-https://nytimes.com/athletic/6226279/2025/03/24/straight-outta-cobham-chelsea-podcast-abramovich-takeover/
-
-**Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
-`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Usha Vance, the second lady, plans to attend.`\
-https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
-
-**Judge Maintains Block on Deportations of Venezuelans Under Wartime Law**\
-`Judge James E. Boasberg’s order says that the Venezuelan immigrants should have the opportunity to challenge the accusation by the Trump administration that they are members of a gang.`\
-https://nytimes.com/2025/03/24/us/judge-ruling-trump-deportations-alien-enemies-act.html
 
