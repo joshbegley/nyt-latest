@@ -1,3 +1,7 @@
+**F.D.A. Approved Lab-Grown Blood Vessel DespiteWarnings**\
+`The agency OK’d an artificial vessel to restore blood flow in patients, even though its own scientists flagged questionable study results and potentially fatal ruptures of the product.`\
+https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
+
 **Why Does Trump Want Greenland? Here’s What to Know.**\
 `President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
 https://nytimes.com/article/trump-greenland-why.html

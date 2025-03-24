@@ -1,3 +1,15 @@
+**U.S. Lifts Millions in Bounties on Senior Taliban Officials**\
+`The move was a significant shift toward leaders of the Haqqani network, which was behind some of the deadliest attacks during the war in Afghanistan.`\
+https://nytimes.com/2025/03/24/world/asia/taliban-haqqani-bounties.html
+
+**In a Sea of Political Change, Bernie Sanders Keeps Truckin’**\
+`An aging star playing to massive crowds of supporters in head-to-toe merch? It’s not the Grateful Dead, it’s the Fighting Oligarchy tour.`\
+https://nytimes.com/2025/03/24/style/bernie-sanders-fighting-oligarchy-fans.html
+
+**Hegseth Disclosed Secret War Plans in a Group Chat**\
+`The conversation among the defense secretary and other national security officials on a commercial messaging app mistakenly included the editor in chief of The Atlantic, Jeffrey Goldberg.`\
+https://nytimes.com/2025/03/24/us/politics/hegseth-classified-war-plans-group-chat.html
+
 **Why Does Trump Want Greenland? Here’s What to Know.**\
 `President Trump has made no secret of his designs on Greenland, repeating threats to acquire the territory through a financial transaction or military force.`\
 https://nytimes.com/article/trump-greenland-why.html
@@ -26,16 +38,4 @@ https://nytimes.com/live/2025/03/24/opinion/thepoint
 **Dynasty fantasy football rookie mock draft: Dearth at quarterback, wealth at running back**\
 `Jeff Haverlack shares his first dynasty league rookie draft for 2025, with running backs dominating the top spots of his two-round mock.`\
 https://nytimes.com/athletic/6227121/2025/03/24/dynasty-fantasy-football-2025-rookie-mock-draft-superflex/
-
-**F.D.A. Approved Lab-Grown Blood Vessel DespiteWarnings**\
-`The agency OK’d an artificial vessel to restore blood flow in patients, even though its own scientists flagged questionable study results and potentially fatal ruptures of the product.`\
-https://nytimes.com/2025/03/24/health/fda-artificial-blood-vessel-trauma-humacyte.html
-
-**A Festival Displays the Expressive Power of Tuning in Music**\
-`The Los Angeles collective Wild Up brought its Darkness Sounding festival to New York, with some of the event’s appeal lost in transit.`\
-https://nytimes.com/2025/03/24/arts/music/wild-up-darkness-sounding-festival.html
-
-**Women's March Madness second-round takeaways: Can NC State keep this offensive spurt going?**\
-`No. 2 seed UConn takes on No. 10 seed South Dakota State on Monday evening.`\
-https://nytimes.com/athletic/6227434/2025/03/24/womens-march-madness-second-round-takeaways-texas-lsu-uconn/
 
