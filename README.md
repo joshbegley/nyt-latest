@@ -1,3 +1,27 @@
+**Phillies 2025 season preview: Roster breakdown, projections, and bold prediction**\
+`The path to reclaiming a division title is arduous, but not impossible. Then again, all anyone in Philadelphia cares about is October.`\
+https://nytimes.com/athletic/6214481/2025/03/24/philadelphia-phillies-2025-season-preview-roster-breakdown-projections-and-bold-prediction/
+
+**Luke Fickell's Wisconsin offensive coordinator search drew non-traditional candidates**\
+`Many of the publicly available applicants came from people whose football backgrounds were, shall we say, significantly limited.`\
+https://nytimes.com/athletic/6198181/2025/03/24/wisconsin-football-offensive-coordinator-candidates/
+
+**A New York-bred NBA assistant coach with an iconic namesake dribble has a deep impact**\
+`God Shammgod is more than just an assistant coach with the Mavericks. He is part of basketball culture with his famous namesake dribble.`\
+https://nytimes.com/athletic/6221895/2025/03/24/god-shammgod-mavericks-dribble-new-york-providence/
+
+**A career night against LeBron James, Lakers has given Bulls rookie added confidence**\
+`"For his development, he's got to do that," Billy Donovan said of guarding LeBron James, which Buzelis did in Saturday's win.`\
+https://nytimes.com/athletic/6225709/2025/03/24/matas-buzelis-bulls-lebron-career-night-nba-rookie/
+
+**Who are the best FCS and Division II transfers heading to the Power 4 ranks?**\
+`Two of the most impactful players in college football in 2024 began their respective careers at the FCS level. Who's next? `\
+https://nytimes.com/athletic/6223038/2025/03/24/college-football-transfer-portal-fcs-division-ii/
+
+**Democrat Who Is an Army Veteran Enters N.Y. House Race**\
+`Cait Conley, a former National Security Council official, will run against Mike Lawler, a second-term Republican.`\
+https://nytimes.com/2025/03/24/nyregion/cait-conley-lawler.html
+
 **Immigrants and Freedom of Speech**\
 `President Trump is taking advantage of an unsettled aspect of the law.`\
 https://nytimes.com/2025/03/24/briefing/immigration-trump-constitution.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6224676/2025/03/24/uconn-south-dakota-state-womens-
 **23andMe Files for Bankruptcy Amid Concerns About Security of Customers’ Genetic Data**\
 `The company filed for Chapter 11 bankruptcy to “facilitate a sale process.” Its chief executive stepped down and said she would bid on it.`\
 https://nytimes.com/2025/03/24/business/23andme-bankruptcy.html
-
-**What we learned from MLB's spring robot-umpire test: Players, managers and execs weigh in**\
-`What did we learn from watching the robot umps — and talking to people throughout the game about ABS — this spring? Let's discuss! `\
-https://nytimes.com/athletic/6224826/2025/03/24/mlb-automated-ball-strike-system-spring-training/
-
-**With free agency filling many voids, what's the Vikings' plan for the draft?**\
-`Having addressed many of their biggest needs in free agency, how should the Vikings approach the draft? Is a trade down the wise move?`\
-https://nytimes.com/athletic/6217050/2025/03/24/vikings-2025-nfl-draft-free-agency/
-
-**Bruins' Jeremy Swayman challenged Darcy Kuemper to a goalie fight — it wasn't endorsed**\
-`Referees stepped in before an actual fight took place, and Swayman's teammates were not enthusiastic about their goalie fighting.`\
-https://nytimes.com/athletic/6226008/2025/03/24/bruins-jeremy-swayman-darcy-kuemper-goalie-fight/
-
-**Who will win the 2025 World Series? Predicting the MLB champions, MVP, ROY and Cy Young**\
-`The Los Angeles Dodgers may be preseason favorites to repeat — but the majority of our 33 writers picked other teams to win it all.`\
-https://nytimes.com/athletic/6222015/2025/03/24/mlb-predictions-2025-world-series/
-
-**Ranking all 30 MLB teams' Opening Day lineups: Dodgers, Braves lead way, Rangers power up**\
-`Here’s how I rank the Opening Day lineups for all 30 teams as an intriguing season gets underway. `\
-https://nytimes.com/athletic/6225735/2025/03/24/mlb-lineups-ranked-dodgers-braves-opening-day/
-
-**Men’s NCAA Tournament Sweet 16 power rankings: Who's the frontrunner now?**\
-`Quite simply, this is not the year of the Cinderella squad. The silver lining: The second-weekend matchups are loaded.`\
-https://nytimes.com/athletic/6225597/2025/03/24/mens-ncaa-tournament-sweet-16-power-rankings/
 
