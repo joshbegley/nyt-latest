@@ -1,3 +1,7 @@
+**After a Brief Return Home, Palestinians Are Displaced Once Again**\
+`The Israeli military’s renewed drive into Gaza has pushed families to flee neighborhoods they had only recently returned to during a cease-fire.`\
+https://nytimes.com/2025/03/24/world/middleeast/israel-gaza-offensive-palestinians-displaced.html
+
 **Test Your Body Awareness**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/body-awareness-proprioception-tests
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226695/2025/03/24/cf-montreal-fires-laurent-courto
 **Canada's Marsch on Nations League red card: 'I'd do it again'**\
 `Canada manager Jesse Marsch explains his thinking after his emotions boiled over in a third-place match vs. the USMNT.`\
 https://nytimes.com/athletic/6226778/2025/03/24/canadas-marsch-explains-his-nations-league-red-card-id-do-it-again/
-
-**Trump’s Moves on Greenland Appear to Be Backfiring**\
-`The Greenlandic government is calling an upcoming visit by Trump officials “aggressive,” pushing the island further from the United States.`\
-https://nytimes.com/2025/03/24/world/europe/trump-greenland-us.html
 
