@@ -1,3 +1,11 @@
+**The Importance of Being SpaceX**\
+`Tesla might be suffering, but SpaceX is poised to profit off billions in new government contracts`\
+https://nytimes.com/2025/03/24/us/politics/musk-spacex.html
+
+**Chiefs' Xavier Worthy sues ex-fiancée, alleges stolen property, extortion**\
+`The lawsuit seeks between $250,000 and $1 million in monetary relief.`\
+https://nytimes.com/athletic/6228081/2025/03/24/xavier-worthy-lawsuit-fiancee-extortion-chiefs/
+
 **Craig Kimbrel's return could be boon for Braves' bullpen, if his body cooperates**\
 `Kimbrel, 36, was at least willing to share with a reporter that a balky back contributed to his struggles last season.`\
 https://nytimes.com/athletic/6227824/2025/03/24/craig-kimbrel-braves-return-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-vi
 **College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
 `The portal will remain open until April 22, but there was a flurry of activity Monday.`\
 https://nytimes.com/athletic/6227756/2025/03/24/transfer-portal-ncaa-basketball-2025/
-
-**Coco Gauff upset at hometown Miami Open, defining recent struggles on serve**\
-`Gauff's double faults defined her straight-sets defeat to Magda Linette, the Polish world No. 34.`\
-https://nytimes.com/athletic/6227861/2025/03/24/coco-gauff-miami-open-tennis-struggles/
-
-**Top Trump Campaign Aide Sues The Daily Beast for Defamation**\
-`The lawsuit accuses the news site of knowingly publishing false information about how much Chris LaCivita, a Trump campaign manager, was paid by the campaign.`\
-https://nytimes.com/2025/03/24/business/media/daily-beast-chris-lacivita-lawsuit-trump.html
 
