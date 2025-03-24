@@ -1,3 +1,15 @@
+**The Windup: Sleeper pick in the NL Central?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-the-windup/
+
+**The Athletic college baseball Top 25: Georgia powers into top 5 after sweeping Florida**\
+`Tennessee holds on to the top spot despite suffering its first two losses of the season. `\
+https://nytimes.com/athletic/6226538/2025/03/24/college-baseball-rankings-georgia-florida-tennessee/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **What We Know About the Turmoil in Turkey**\
 `The arrest of Istanbul’s mayor on corruption charges has stoked worries that President Recep Tayyip Erdogan is becoming more authoritarian in seeking to sideline a top rival.`\
 https://nytimes.com/2025/03/24/world/europe/turkey-protests-istanbul-erdogan-imamoglu.html
