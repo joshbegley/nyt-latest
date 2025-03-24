@@ -1,3 +1,15 @@
+**The Windup: Sleeper pick in the NL Central?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6225953/2025/03/24/mlb-division-preview-nl-central-the-windup/
+
+**The Athletic college baseball Top 25: Georgia powers into top 5 after sweeping Florida**\
+`Tennessee holds on to the top spot despite suffering its first two losses of the season. `\
+https://nytimes.com/athletic/6226538/2025/03/24/college-baseball-rankings-georgia-florida-tennessee/
+
+**Women's March Madness projections 2025: Does UConn have the advantage?**\
+`What's your team's chance of winning? Find out here. `\
+https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **What We Know About the Turmoil in Turkey**\
 `The arrest of Istanbul’s mayor on corruption charges has stoked worries that President Recep Tayyip Erdogan is becoming more authoritarian in seeking to sideline a top rival.`\
 https://nytimes.com/2025/03/24/world/europe/turkey-protests-istanbul-erdogan-imamoglu.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/24/books/review/james-traub-class-matters.html
 **Men's March Madness projections 2025: Which Sweet 16 teams have the best odds to advance?**\
 `How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
 https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Why Kyle Larson's win at Homestead was 'one of the coolest' of his NASCAR career**\
-`Homestead-Miami Speedway has taken so many wins away from Kyle Larson. On Sunday, he got one back.`\
-https://nytimes.com/athletic/6225830/2025/03/24/kyle-larson-nascar-homestead-win-career/
-
-**Cavaliers have much needed 'fun practice' to as a break from the grind before win over Jazz**\
-`On Saturday, the Cavs played H-O-R-S-E and cracked jokes. On Sunday, they beat Utah. "It's something we ... needed," Donovan Mitchell said.`\
-https://nytimes.com/athletic/6226014/2025/03/24/cavaliers-jazz-donovan-mitchell/
-
-**No Corrections: March 24, 2025**\
-`No corrections appeared in print on Monday, March 24, 2025.`\
-https://nytimes.com/2025/03/24/pageoneplus/no-corrections-march-24-2025.html
 
