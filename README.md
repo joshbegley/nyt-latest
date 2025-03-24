@@ -1,3 +1,7 @@
+**Immigrants and Freedom of Speech**\
+`President Trump is taking advantage of an unsettled aspect of the law.`\
+https://nytimes.com/2025/03/24/briefing/immigration-trump-constitution.html
+
 **The Pulse: Yes, we got a buzzer-beater**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6225650/2025/03/24/ncaa-tournament-sweet-16-the-pulse-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225735/2025/03/24/mlb-lineups-ranked-dodgers-brave
 **Men’s NCAA Tournament Sweet 16 power rankings: Who's the frontrunner now?**\
 `Quite simply, this is not the year of the Cinderella squad. The silver lining: The second-weekend matchups are loaded.`\
 https://nytimes.com/athletic/6225597/2025/03/24/mens-ncaa-tournament-sweet-16-power-rankings/
-
-**Viktor Hovland and the case for perfectionism**\
-`"We are here to win tournaments. So if you're not going to try to get better, what are you doing?"`\
-https://nytimes.com/athletic/6225566/2025/03/24/viktor-hovland-pga-tour-golf/
 
