@@ -1,3 +1,11 @@
+**Yankees, Ryan Yarbrough agree to major-league deal**\
+`Yarbrough figures to be the second lefty out of the relief unit behind Tim Hill.`\
+https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agent-deal/
+
+**Toyota Was Bullish on Trump. Then Came the Tariff Threats.**\
+`Japanese automakers, initially optimistic about some of President Trump’s policies, are reckoning with potentially devastating U.S. taxes on foreign-made cars.`\
+https://nytimes.com/2025/03/24/business/trump-tariffs-toyota-japan.html
+
 **Potatoes, Shrimp and Teslas: Exporters Vie to Shape Trump’s Tariffs**\
 `Makers of a vast array of American products are weighing the risks, and potential payoffs, of the sweeping tariffs the president has promised on April 2.`\
 https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6226127/2025/03/24/nba-tanking-debate-oso-ighodaro-
 **A Driving Force Behind One Reporter’s Beat**\
 `Life has looked a little different for a New York Times journalist covering the U.S. auto industry — and the tech billionaire at its forefront.`\
 https://nytimes.com/2025/03/24/insider/elon-musk-tesla-coverage.html
-
-**Do You Know the Classic Works That Inspired These Popular Family Movies?**\
-`Try this quiz on beloved literature that was memorably adapted for the screen.`\
-https://nytimes.com/interactive/2025/03/24/books/review/animal-book-adaptations.html
-
-**Miso Loves Grapefruit**\
-`Salty umami meets tangy sour in Ali Slagle’s new miso-butter chicken with grapefruit.`\
-https://nytimes.com/2025/03/24/dining/miso-chicken-grapefruit.html
 
