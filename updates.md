@@ -1,3 +1,15 @@
+**Read the lawsuit accusing the Trump administration of illegally targeting a second Columbia student for deportation.**\
+`The suit was filed by a legal permanent resident who has lived in the U.S. since she was 7 and who participated in pro-Palestinian demonstrations on campus.`\
+https://nytimes.com/interactive/2025/03/24/us/chung-lawsuit.html
+
+**A Landmark Climate Case, Where Kids Sued America, Comes to an End**\
+`The Supreme Court declined to hear an appeal in the long-running case, known as Juliana, which helped spawn legal strategies widely adapted to other lawsuits.`\
+https://nytimes.com/2025/03/24/climate/supreme-court-climate-lawsuit-juliana-children.html
+
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`Free agency is mostly past, and the Seahawks' roster has been overhauled. It's a great time to ask questions to Michael-Shawn Dugar.`\
+https://nytimes.com/athletic/6227908/2025/03/24/seahawks-mailbag-free-agency-trades/
+
 **NWSL, Gotham FC address 'incident involving hateful language' toward Banda**\
 `A Gotham season ticket holder reported via Reddit that fans targeted Banda with what the poster deemed “bigotry" during Sunday's game.`\
 https://nytimes.com/athletic/6227726/2025/03/24/nwsl-gotham-barbra-banda-pride/
