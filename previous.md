@@ -21,7 +21,7 @@ https://nytimes.com/athletic/6227120/2025/03/24/submit-a-question-for-stewart-ma
 https://nytimes.com/2025/03/24/arts/conan-obrien-twain-trump.html
 
 **Why is Jamie Carragher's son playing for Malta?**\
-`The English-born defender made his international debut for the Mediterranean island nation last weekend in a World Cup qualifier`\
+`The English-born defender made his international debut for the Mediterranean island nation last week in a World Cup qualifier`\
 https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
 
 **Trump Administration Is Sued Over Push to Shut Education Department**\

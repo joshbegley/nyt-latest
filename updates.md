@@ -1,3 +1,7 @@
+**Why is Jamie Carragher's son playing for Malta?**\
+`The English-born defender made his international debut for the Mediterranean island nation last week in a World Cup qualifier`\
+https://nytimes.com/athletic/6226636/2025/03/24/james-carragher-malta-jamie/
+
 **Mavs' Anthony Davis nearing return after 6-week absence**\
 `Davis went down with a left adductor strain in the Mavericks’ Feb. 8 game against the Houston Rockets.`\
 https://nytimes.com/athletic/6227095/2025/03/24/anthony-davis-return-injury-update-mavericks/
