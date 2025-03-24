@@ -1,3 +1,31 @@
+**Wildfires Burn Across South Korea’s Southeast**\
+`Thousands of firefighters battled dozens of forest fires over the weekend. At least four people were killed.`\
+https://nytimes.com/video/world/asia/100000010068830/south-korea-wildfires.html
+
+**Jadon Sancho is struggling for form. Will it have an impact on his Chelsea future?**\
+`Chelsea can pay a penalty clause to not sign Sancho permanently — but will they want to?`\
+https://nytimes.com/athletic/6224837/2025/03/24/jadon-sancho-chelsea-manchester-united-transfer-latest/
+
+**Who has played most Premier League minutes at each club and what does that tell us?**\
+`Who is key to a manager's system? Who is the standout player? And who has avoided injuries while the rest of the squad have struggled?`\
+https://nytimes.com/athletic/6212308/2025/03/24/premier-league-most-minutes/
+
+**Why Juventus sacked Thiago Motta and turned to Igor Tudor to save their season**\
+`Eighteen wins from 42 games left Motta with one of the lowest win ratios in Juventus’ history. The club will hope Tudor can steady the ship`\
+https://nytimes.com/athletic/6225070/2025/03/24/juventus-sack-motta-coach-tudor/
+
+**Antonio Nusa interview: 'There were so many questions about whether I was able to play. I had a point to prove'**\
+`The Norwegian was close to joining Brentford in January 2024 only for concerns that surfaced around a medical to see the deal collapse`\
+https://nytimes.com/athletic/6209318/2025/03/24/antonio-nusa-leipzig-brentford-belgium/
+
+**Will Blues try to incorporate Dalibor Dvorsky and Jimmy Snuggerud? Or keep their mojo going?**\
+`The Blues won their sixth straight game Sunday. They have two prospects ready to play, but will they keep their successful lineup intact?`\
+https://nytimes.com/athletic/6225257/2025/03/24/blues-win-sixth-straight/
+
+**Justin Cochrane: The Brentford coach's path to England, via Spurs and Manchester United**\
+`Cochrane has spent the last three seasons as Brentford’s assistant coach, but he will now also be a member of Thomas Tuchel's England setup`\
+https://nytimes.com/athletic/6219577/2025/03/24/justin-cochrane-england-brentford-spurs-man-utd/
+
 **Monday Briefing**\
 `Fury in Greenland over a Trump delegation.`\
 https://nytimes.com/2025/03/24/briefing/greenland-trump-gaza.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/24/arts/television/mid-century-modern-plus-8-things-
 **The New York Times in Print for Monday, March 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/24/todays-new-york-times
-
-**A War Within the War: Ukraine’s Ill Children**\
-`In nearly three years of full-scale war, Ukrainian families of children with long-term illnesses have had to overcome countless challenges.`\
-https://nytimes.com/card/2025/03/24/world/europe/ukraine-children-illness
-
-**At the Kennedy Center, Conan O’Brien Gets Honored, and the Trump Jokes Are Plentiful**\
-`The star-studded Mark Twain Prize for American Humor ceremony was the most notable event at the Washington arts center since the president installed himself as its chairman.`\
-https://nytimes.com/2025/03/24/arts/conan-obrien-kennedy-center.html
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/24/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**Ron Holland II shows 'understanding of how to impact winning' vs. Pelicans**\
-`"I'm here to play hard every single night," Holland said. "I just want them to know that I've got their backs as much as they've got mine."`\
-https://nytimes.com/athletic/6225739/2025/03/24/pistons-pelicans-rookie-ron-holland/
-
-**For Russia, Trump Has a Lot to Offer, Even Without a Ukraine Deal**\
-`Moscow sees economic and geopolitical benefits in humoring President Trump’s push for a cease-fire in Ukraine. But the Kremlin’s war aims haven’t shifted.`\
-https://nytimes.com/2025/03/24/world/europe/trump-russia-putin-ukraine.html
-
-**Quote of the Day: After the L.A. Wildfires, a Race to Save the Tiles, and the Soul, of Altadena**\
-`Quotation of the Day for Monday, March 24, 2025`\
-https://nytimes.com/2025/03/24/pageoneplus/quote-of-the-day-after-the-la-wildfires-a-race-to-save-the-tiles-and-the-soul-of-altadena.html
 

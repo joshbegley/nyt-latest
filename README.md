@@ -1,5 +1,25 @@
+**Everton Stadium's latest test event: 'The train was too full for people to get on'**\
+`Overcrowded trains and a trespasser, but a cautious step forward`\
+https://nytimes.com/athletic/6224863/2025/03/24/everton-stadium-test-event/
+
+**How Bruno Guimaraes put the past tense behind him to become Newcastle's heartbeat**\
+`Earlier this season, Guimaraes struggled to shine while wearing the captain's armband. Now he's made history`\
+https://nytimes.com/athletic/6221522/2025/03/24/bruno-guimaraes-newcastle-united-captain-2/
+
+**How Real Madrid Femenino caused the biggest Clasico upset to keep Liga F alive**\
+`Real rode their luck but this wasn’t an undeserved victory. Despite playing their reserves, they defended solidly and broke with purpose`\
+https://nytimes.com/athletic/6224567/2025/03/24/real-madrid-clasico-barcelona-liga-f/
+
+**Jakob Ingebrigtsen, the Olympic champion who will testify against the father he accuses of abuse**\
+`Gjert Ingebrigtsen, whose family have dominated middle-distance running, denies charges of abuse against two of his seven children`\
+https://nytimes.com/athletic/6215189/2025/03/24/ingebrigtsen-trial-jakob-olympic-champion/
+
+**Philipp Lahm: Thomas Tuchel is a good tactician - but his tendency towards conflict could be damaging**\
+`An international head coach needs a very particular set of skills — does the new England manager have them?`\
+https://nytimes.com/athletic/6221877/2025/03/24/philipp-lahm-thomas-tuchel-england-column/
+
 **Wildfires Burn Across South Korea’s Southeast**\
-`Thousands of firefighters battled dozens of forest fires over the weekend. At least four people were killed.`\
+`Thousands of firefighters battled dozens of forest fires over the weekend.`\
 https://nytimes.com/video/world/asia/100000010068830/south-korea-wildfires.html
 
 **Jadon Sancho is struggling for form. Will it have an impact on his Chelsea future?**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6225070/2025/03/24/juventus-sack-motta-coach-tudor/
 **Antonio Nusa interview: 'There were so many questions about whether I was able to play. I had a point to prove'**\
 `The Norwegian was close to joining Brentford in January 2024 only for concerns that surfaced around a medical to see the deal collapse`\
 https://nytimes.com/athletic/6209318/2025/03/24/antonio-nusa-leipzig-brentford-belgium/
-
-**Will Blues try to incorporate Dalibor Dvorsky and Jimmy Snuggerud? Or keep their mojo going?**\
-`The Blues won their sixth straight game Sunday. They have two prospects ready to play, but will they keep their successful lineup intact?`\
-https://nytimes.com/athletic/6225257/2025/03/24/blues-win-sixth-straight/
-
-**Justin Cochrane: The Brentford coach's path to England, via Spurs and Manchester United**\
-`Cochrane has spent the last three seasons as Brentford’s assistant coach, but he will now also be a member of Thomas Tuchel's England setup`\
-https://nytimes.com/athletic/6219577/2025/03/24/justin-cochrane-england-brentford-spurs-man-utd/
-
-**Monday Briefing**\
-`Fury in Greenland over a Trump delegation.`\
-https://nytimes.com/2025/03/24/briefing/greenland-trump-gaza.html
-
-**‘Mid Century Modern,’ Plus 8 Things to Watch on TV this Week**\
-`A new comedy starring Nathan Lane and Matt Bomer comes to Hulu, and this season of “The Bachelor” wraps up.`\
-https://nytimes.com/2025/03/24/arts/television/mid-century-modern-plus-8-things-to-watch-on-tv-this-week.html
-
-**The New York Times in Print for Monday, March 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/03/24/todays-new-york-times
 
