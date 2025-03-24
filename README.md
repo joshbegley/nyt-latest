@@ -1,3 +1,7 @@
+**‘The White Lotus’ Season 3, Episode 6 Recap: The Morning After**\
+`Drinks were drunk, decisions were made. This week’s episode was all about the consequences.`\
+https://nytimes.com/2025/03/23/arts/television/the-white-lotus-recap-season-3-episode-6.html
+
 **At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
 `Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
 https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225539/2025/03/23/kentucky-illinois-ncaa-tournamen
 **After horrific weekend, Ivan Fedotov's future with Flyers seems greatly in doubt**\
 `After getting pulled against Dallas and giving up seven goals to Chicago, Fedotov's runway is running out fast.`\
 https://nytimes.com/athletic/6225482/2025/03/23/flyers-ivan-fedotov-nhl-future/
-
-**Invisible Made Visible**\
-`An episode from 2012 performed live onstage, featuring David Sedaris, Tig Notaro and more.`\
-https://nytimes.com/2025/03/23/podcasts/invisible-made-visible-this-american-life-nyt-audio.html
 

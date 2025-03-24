@@ -1,3 +1,7 @@
+**At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
+`Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
+https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
+
 **Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
 `Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
 https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/

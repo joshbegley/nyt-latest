@@ -1,3 +1,7 @@
+**At third school, Hailey Van Lith remains a perennial winner, leading TCU to a program first**\
+`Van Lith had to lead the Horned Frogs past Louisville, her former school, to make history.`\
+https://nytimes.com/athletic/6225707/2025/03/23/hailey-van-lith-tcu-sweet-16/
+
 **Finally, a buzzer beater: Maryland, Derik Queen stun Colorado State**\
 `Maryland's last four losses had come on the game's final possession. The Terps were due for some good luck.`\
 https://nytimes.com/athletic/6225713/2025/03/23/maryland-derik-queen-buzzer-beater-colorado-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6225482/2025/03/23/flyers-ivan-fedotov-nhl-future/
 **Invisible Made Visible**\
 `An episode from 2012 performed live onstage, featuring David Sedaris, Tig Notaro and more.`\
 https://nytimes.com/2025/03/23/podcasts/invisible-made-visible-this-american-life-nyt-audio.html
-
-**Canada coach Jesse Marsch sent off against USMNT after referee rant**\
-`Marsch let rip with a verbal outburst after Canada had a penalty claim denied in the Concacaf Nations League third-place game.`\
-https://nytimes.com/athletic/6225490/2025/03/23/canada-jesse-marsch-sent-off-usmnt-nations-league/
 
