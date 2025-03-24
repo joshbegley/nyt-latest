@@ -1,3 +1,11 @@
+**Spain clinches San Francisco SailGP victory, climbs season leaderboard**\
+`Spain's win makes Diego Botin's team the fifth victor in the five events we've seen so far in Season 5.`\
+https://nytimes.com/athletic/6225724/2025/03/23/san-francisco-sail-grand-prix-spain-australia/
+
+**Ryan McLeod's price going up and 5 other takeaways from Sabres' road trip**\
+`Plus updates on Senators-turned-Sabres, RFA contract discussions and the hockey gods' justice for Tyson Kozak.`\
+https://nytimes.com/athletic/6225763/2025/03/23/sabres-mcleod-rfa-bernard-docker/
+
 **Chicago Cubs roster projection 3.0: On to the next Opening Day**\
 `With the second phase of spring training almost over, here's how the Cubs could regroup.`\
 https://nytimes.com/athletic/6225583/2025/03/23/chicago-cubs-roster-projection-3-0/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2
 **Canada sends USMNT reeling to fourth-place Nations League finish**\
 `The Canadians had a point to prove, and they made it in securing victory in the third-place match.`\
 https://nytimes.com/athletic/6225419/2025/03/23/usmnt-canada-concacaf-nations-league-third-place/
-
-**What I'm seeing in Twins camp: Injuries cause roster uncertainty before Opening Day**\
-`The Twins have four open spots with Opening Day nearly here. A look at the roster picture, along with TV developments and more from camp. `\
-https://nytimes.com/athletic/6225454/2025/03/23/twins-camp-observations-injuries/
-
-**How Kentucky flipped its roster, earned first Sweet 16 trip since 2019**\
-`Kentucky is joining John Calipari in the Sweet 16 for the first time since 2019 after beating Illinois. How did Mark Pope flip the roster?`\
-https://nytimes.com/athletic/6225539/2025/03/23/kentucky-illinois-ncaa-tournament-score-recap/
 
