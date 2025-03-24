@@ -1,3 +1,11 @@
+**Intelligence Assessment Warns Against Conflating Legal Musk Protests With Vandalism**\
+`Law enforcement agencies were encouraged to pursue vandals but should not investigate “constitutionally protected activity” directed at Elon Musk, the assessment found.`\
+https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
+
+**Teen Who Set Off Avalanche Is Fourth Person Killed on Alaska Slopes This Month**\
+`A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
+https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
+
 **Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
