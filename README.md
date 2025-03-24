@@ -1,3 +1,19 @@
+**Mia Love, First Black Republican Woman Elected to Congress, Dies at 49**\
+`Ms. Love, who represented Utah in Congress from 2015 to 2019, was diagnosed with brain cancer in 2022.`\
+https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
+
+**A late winner for Chelsea against City helps bring WSL title within reach**\
+`As Chelsea continues to battle a familiar foe in City, Cuthbert's late winner adds a much-needed energy boost`\
+https://nytimes.com/athletic/6225155/2025/03/24/chelsea-manchester-city-wsl-erin-cuthbert/
+
+**Word of the Day: repartee**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/24/learning/word-of-the-day-repartee.html
+
+**‘Don’t Think, Just Solve’**\
+`Max Park is a longtime speedcubing world record holder — for the 3x3x3 cube, his best official time is 3.13 seconds. Let's show you how he does it.`\
+https://nytimes.com/interactive/2025/03/24/science/max-park-rubiks-speedcube.html
+
 **Listen: The rise of Lewis-Skelly and Nwaneri — 'It's a beautiful thing they've come through together'**\
 `The Handbrake Off podcast discuss the remarkable rise of Lewis-Skelly and Nwaneri, and the impact they have had for Arsenal this season`\
 https://nytimes.com/athletic/6221621/2025/03/24/arsenal-myles-lewis-skelly-ethan-nwaneri/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6215189/2025/03/24/ingebrigtsen-trial-jakob-olympic
 **Philipp Lahm: Thomas Tuchel is a good tactician - but his tendency towards conflict could be damaging**\
 `An international head coach needs a very particular set of skills — does the new England manager have them?`\
 https://nytimes.com/athletic/6221877/2025/03/24/philipp-lahm-thomas-tuchel-england-column/
-
-**Wildfires Burn Across South Korea’s Southeast**\
-`Thousands of firefighters battled dozens of forest fires over the weekend.`\
-https://nytimes.com/video/world/asia/100000010068830/south-korea-wildfires.html
-
-**Jadon Sancho is struggling for form. Will it have an impact on his Chelsea future?**\
-`Chelsea can pay a penalty clause to not sign Sancho permanently — but will they want to?`\
-https://nytimes.com/athletic/6224837/2025/03/24/jadon-sancho-chelsea-manchester-united-transfer-latest/
-
-**Who has played most Premier League minutes at each club and what does that tell us?**\
-`Who is key to a manager's system? Who is the standout player? And who has avoided injuries while the rest of the squad have struggled?`\
-https://nytimes.com/athletic/6212308/2025/03/24/premier-league-most-minutes/
-
-**Why Juventus sacked Thiago Motta and turned to Igor Tudor to save their season**\
-`Eighteen wins from 42 games left Motta with one of the lowest win ratios in Juventus’ history. The club will hope Tudor can steady the ship`\
-https://nytimes.com/athletic/6225070/2025/03/24/juventus-sack-motta-coach-tudor/
 
