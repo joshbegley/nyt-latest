@@ -1,3 +1,7 @@
+**The Pulse: Yes, we got a buzzer-beater**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6225650/2025/03/24/ncaa-tournament-sweet-16-the-pulse-2/
+
 **How to watch No. 2 UConn vs. No. 10 South Dakota State in the women's NCAA Tournament**\
 `UConn continues its journey through the NCAA Tournament as a massive home favorite against South Dakota State in the second round.`\
 https://nytimes.com/athletic/6224676/2025/03/24/uconn-south-dakota-state-womens-ncaa-tournament-how-to-watch/
