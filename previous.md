@@ -1,5 +1,5 @@
 **Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
-`He won the Norwegian Critics Prize for Literature three times. The prime minister said he “made us see Norway and the world in new ways.”`\
+`A winner of top awards in his country, he drew the attention of European and American critics. The prime minister said he “made us see Norway and the world in new ways.”`\
 https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
 
 **Trump’s Nobel Prize Obsession Is About More Than World Peace**\

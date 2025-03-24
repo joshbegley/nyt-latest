@@ -1,3 +1,7 @@
+**Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
+`A winner of top awards in his country, he drew the attention of European and American critics. The prime minister said he “made us see Norway and the world in new ways.”`\
+https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
+
 **Bears free-agency tracker: Returner Devin Duvernay signs 1-year deal**\
 `After shoring up the offensive and defensive lines, GM Ryan Poles re-signed Stephen Carlson, Doug Kramer and Travis Homer.`\
 https://nytimes.com/athletic/6181354/2025/03/24/chicago-bears-2025-free-agency-tracker/
