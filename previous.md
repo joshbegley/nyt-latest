@@ -1,3 +1,7 @@
+**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
+`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
+https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
+
 **Spain clinches San Francisco SailGP victory, climbs season leaderboard**\
 `Spain's win makes Diego Botin's team the fifth victor in the five events we've seen so far in Season 5.`\
 https://nytimes.com/athletic/6225724/2025/03/23/san-francisco-sail-grand-prix-spain-australia/
@@ -29,10 +33,6 @@ https://nytimes.com/live/2025/03/23/us/trump-news/trump-invites-the-kansas-city-
 **South Korea​n Court ​Reinstates Impeached Prime Minister**\
 `​Prime Minister Han Duck-soo was serving as the country’s acting president when the National Assembly impeached him in December, suspending him from office.`\
 https://nytimes.com/2025/03/23/world/asia/south-korea-reinstates-prime-minister.html
-
-**Men's March Madness projections 2025: Odds to advance to the Sweet 16 and beyond**\
-`How should you fill out your men's NCAA Tournament bracket? Here are every team's odds to advance through each round of March Madness.`\
-https://nytimes.com/athletic/6198047/2025/03/23/mens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 
 **Canada sends USMNT reeling to fourth-place Nations League finish**\
 `The Canadians had a point to prove, and they made it in securing victory in the third-place match.`\
