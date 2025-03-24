@@ -1,3 +1,27 @@
+**Everton Stadium's latest test event: 'The train was too full for people to get on'**\
+`Overcrowded trains and a trespasser, but a cautious step forward`\
+https://nytimes.com/athletic/6224863/2025/03/24/everton-stadium-test-event/
+
+**How Bruno Guimaraes put the past tense behind him to become Newcastle's heartbeat**\
+`Earlier this season, Guimaraes struggled to shine while wearing the captain's armband. Now he's made history`\
+https://nytimes.com/athletic/6221522/2025/03/24/bruno-guimaraes-newcastle-united-captain-2/
+
+**How Real Madrid Femenino caused the biggest Clasico upset to keep Liga F alive**\
+`Real rode their luck but this wasn’t an undeserved victory. Despite playing their reserves, they defended solidly and broke with purpose`\
+https://nytimes.com/athletic/6224567/2025/03/24/real-madrid-clasico-barcelona-liga-f/
+
+**Jakob Ingebrigtsen, the Olympic champion who will testify against the father he accuses of abuse**\
+`Gjert Ingebrigtsen, whose family have dominated middle-distance running, denies charges of abuse against two of his seven children`\
+https://nytimes.com/athletic/6215189/2025/03/24/ingebrigtsen-trial-jakob-olympic-champion/
+
+**Philipp Lahm: Thomas Tuchel is a good tactician - but his tendency towards conflict could be damaging**\
+`An international head coach needs a very particular set of skills — does the new England manager have them?`\
+https://nytimes.com/athletic/6221877/2025/03/24/philipp-lahm-thomas-tuchel-england-column/
+
+**Wildfires Burn Across South Korea’s Southeast**\
+`Thousands of firefighters battled dozens of forest fires over the weekend.`\
+https://nytimes.com/video/world/asia/100000010068830/south-korea-wildfires.html
+
 **Wildfires Burn Across South Korea’s Southeast**\
 `Thousands of firefighters battled dozens of forest fires over the weekend. At least four people were killed.`\
 https://nytimes.com/video/world/asia/100000010068830/south-korea-wildfires.html
