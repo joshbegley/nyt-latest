@@ -1,3 +1,11 @@
+**Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
+
+**College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
+`The portal will remain open until April 22, but there was a flurry of activity Monday.`\
+https://nytimes.com/athletic/6227756/2025/03/24/transfer-portal-ncaa-basketball-2025/
+
 **Coco Gauff upset at hometown Miami Open, defining recent struggles on serve**\
 `Gauff's double faults defined her defeat to the Polish world No. 34 in Florida.`\
 https://nytimes.com/athletic/6227861/2025/03/24/coco-gauff-miami-open-tennis-struggles/

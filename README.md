@@ -1,3 +1,11 @@
+**Intelligence Assessment Warns Against Conflating Legal Musk Protests With Vandalism**\
+`Law enforcement agencies were encouraged to pursue vandals but should not investigate “constitutionally protected activity” directed at Elon Musk, the assessment found.`\
+https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
+
+**Teen Who Set Off Avalanche Is Fourth Person Killed on Alaska Slopes This Month**\
+`A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
+https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
+
 **Trump says ‘people from Greenland’ invited members of his administration to visit. Greenland wants a word.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/03/24/us/trump-news/trump-says-people-from-greenland-invited-members-of-his-administration-to-visit-greenland-wants-a-word
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/briefing/trump-officials-group-chat-paper-bags-vs
 **What I'm hearing about the Guardians: Tanner Bibee, Nolan Jones, Triston McKenzie**\
 `Insights on a slew of recent Cleveland Guardians developments.`\
 https://nytimes.com/athletic/6226965/2025/03/24/what-im-hearing-guardians-tanner-bibee-nolan-jones-triston-mckenzie/
-
-**The Briefing: England 3 Latvia 0 - Eze and James off the mark, and what has Tuchel learned?**\
-`The first meeting of these sides ended in a comfortable victory for the hosts as Thomas Tuchel maintained his winning start with England`\
-https://nytimes.com/athletic/6226317/2025/03/24/england-latvia-tuchel-james-eze-rogers/
-
-**Read the lawsuit accusing the Trump administration of illegally targeting a second Columbia student for deportation.**\
-`The suit was filed by a legal permanent resident who has lived in the U.S. since she was 7 and who participated in pro-Palestinian demonstrations on campus.`\
-https://nytimes.com/interactive/2025/03/24/us/chung-lawsuit.html
 
