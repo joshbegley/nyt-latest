@@ -1,3 +1,7 @@
+**As Clippers win streak ends, they hold their breath on status of James Harden**\
+`The Clippers were finally healthy and hoping for a sixth straight win. The Thunder prevailed and now Harden's health is an issue.`\
+https://nytimes.com/athletic/6226013/2025/03/24/clippers-win-streak-ends-harden-injured/
+
 **Mia Love, First Black Republican Woman Elected to Congress, Dies at 49**\
 `Ms. Love, who represented Utah in Congress from 2015 to 2019, was diagnosed with brain cancer in 2022.`\
 https://nytimes.com/2025/03/24/us/politics/mia-love-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224567/2025/03/24/real-madrid-clasico-barcelona-li
 **Jakob Ingebrigtsen, the Olympic champion who will testify against the father he accuses of abuse**\
 `Gjert Ingebrigtsen, whose family have dominated middle-distance running, denies charges of abuse against two of his seven children`\
 https://nytimes.com/athletic/6215189/2025/03/24/ingebrigtsen-trial-jakob-olympic-champion/
-
-**Philipp Lahm: Thomas Tuchel is a good tactician - but his tendency towards conflict could be damaging**\
-`An international head coach needs a very particular set of skills — does the new England manager have them?`\
-https://nytimes.com/athletic/6221877/2025/03/24/philipp-lahm-thomas-tuchel-england-column/
 
