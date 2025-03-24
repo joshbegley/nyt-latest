@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6227726/2025/03/24/nwsl-gotham-barbra-banda-pride/
 `Plus, the practical magic of “speedcubing.”`\
 https://nytimes.com/2025/03/24/briefing/trump-tariffs-hegseth-yemen-secrets-turkey-protests.html
 
-**Trump to Nominate Susan Monarez to Lead C.D.C.**\
+**Trump Nominates Susan Monarez to Lead C.D.C.**\
 `Currently the agency’s acting director, Dr. Monarez would be the first nonphysician to head the agency in more than 50 years.`\
 https://nytimes.com/2025/03/24/health/cdc-director-monarez.html
 

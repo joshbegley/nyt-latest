@@ -1,3 +1,7 @@
+**Trump Nominates Susan Monarez to Lead C.D.C.**\
+`Currently the agency’s acting director, Dr. Monarez would be the first nonphysician to head the agency in more than 50 years.`\
+https://nytimes.com/2025/03/24/health/cdc-director-monarez.html
+
 **Read the lawsuit accusing the Trump administration of illegally targeting a second Columbia student for deportation.**\
 `The suit was filed by a legal permanent resident who has lived in the U.S. since she was 7 and who participated in pro-Palestinian demonstrations on campus.`\
 https://nytimes.com/interactive/2025/03/24/us/chung-lawsuit.html
