@@ -1,3 +1,27 @@
+**Dag Solstad, 83, Dies; His Novels of Alienation Delighted Norwegians**\
+`He won the Norwegian Critics Prize for Literature three times. The prime minister said he “made us see Norway and the world in new ways.”`\
+https://nytimes.com/2025/03/24/books/dag-solstad-dead.html
+
+**Trump’s Nobel Prize Obsession Is About More Than World Peace**\
+`In his inaugural address, President Trump said his “proudest legacy will be that of a peacemaker and unifier.” But critics have accused him of siding with the aggressor when it comes to Russia and Ukraine.`\
+https://nytimes.com/2025/03/24/us/politics/trump-nobel-peace-prize.html
+
+**A Type-In to Say Goodbye to a New England Institution**\
+`After 45 years at Cambridge Typewriter Company, Tom Furrier is retiring and closing the shop. Friends, family and customers celebrated him at the local library.`\
+https://nytimes.com/card/2025/03/24/style/cambridge-typewriter-company-party
+
+**Trump Says Hyundai’s New U.S. Investments Prove His Tariffs Work**\
+`Hyundai Motor, a South Korean conglomerate known for its automobiles and steel, announced on Monday it will make investments to expand manufacturing in the United States.`\
+https://nytimes.com/video/us/politics/100000010070096/trump-tariffs-hyundai-steel-automobiles.html
+
+**NewJeans Had Planned a Rebirth. The Performance Ended in Tears.**\
+`K-pop’s most imaginative group has been battling its powerhouse label. Our critic watched as its first concert in months was upended by a court ruling.`\
+https://nytimes.com/2025/03/24/arts/music/newjeans-njz-complexcon-hong-kong-hybe.html
+
+**Hyundai to Invest $21 Billion in U.S. in Bid to Avoid Trump’s Tariffs**\
+`Hyundai already makes cars in the United States, in Georgia and Alabama.`\
+https://nytimes.com/2025/03/24/business/hyundai-us-investment-tariffs.html
+
 **A Creamy Pudding Worthy of Celebration**\
 `When prepared from scratch, this cardamom-scented dessert and Eid delicacy is as delightful to make as it is to eat.`\
 https://nytimes.com/2025/03/24/dining/eid-al-fitr-sheer-khorma.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/24/arts/television/adolescence-netflix-smartphones.h
 **What Are Your Plans After Graduation?**\
 `As the Trump administration makes cuts and extends hiring freezes, career paths might look different.`\
 https://nytimes.com/2025/03/24/us/graduation-2025-callout.html
-
-**Heat Today: Kevin Love thinks Jimmy Butler will feel emotion in Miami return**\
-`What should be expected during Jimmy Butler's return to Miami on Tuesday? Kevin Love anticipates a bit of everything.`\
-https://nytimes.com/athletic/6226631/2025/03/24/jimmy-butler-warriors-heat-return-kevin-love-nba/
-
-**I Don’t Know How Pete Hegseth Can Look Service Members in the Eye**\
-`A defense secretary intentionally using a civilian app to share sensitive war plans, without noticing a journalist was in the chat, would be egregious.`\
-https://nytimes.com/2025/03/24/opinion/atlantic-hegseth-vance-houthis.html
-
-**In His Second Term, Trump Fuels a ‘Machinery’ of Misinformation**\
-`President Trump’s first four years in the White House were filled with falsehoods. Now he and those around him are using false claims to justify their policy changes.`\
-https://nytimes.com/2025/03/24/business/trump-misinformation-false-claims.html
-
-**Emboldened by Trump, A.I. Companies Lobby for Fewer Rules**\
-`After the president made A.I. dominance a top priority, tech companies changed course from a meeker approach under the Biden administration.`\
-https://nytimes.com/2025/03/24/technology/trump-ai-regulation.html
-
-**U.S. Lifts Millions in Bounties on Senior Taliban Officials**\
-`The move was a significant shift toward leaders of the Haqqani network, which was behind some of the deadliest attacks during the war in Afghanistan.`\
-https://nytimes.com/2025/03/24/world/asia/taliban-haqqani-bounties.html
-
-**In a Sea of Political Change, Bernie Sanders Keeps Truckin’**\
-`An aging star playing to massive crowds of supporters in head-to-toe merch? It’s not the Grateful Dead, it’s the Fighting Oligarchy tour.`\
-https://nytimes.com/2025/03/24/style/bernie-sanders-fighting-oligarchy-fans.html
 
