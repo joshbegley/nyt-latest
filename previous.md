@@ -1,3 +1,11 @@
+**Bubba Wallace is off to a career-best start. Is that elusive third win coming soon?**\
+`With a new outlook, Bubba Wallace is off to the best start of his career. And that elusive victory feels closer than ever.`\
+https://nytimes.com/athletic/6226326/2025/03/24/bubba-wallace-nascar-homestead-charles-denike/
+
+**Tennis Briefing: The underarm serve returns with a vengeance in Miami**\
+`Marta Kostyuk ended a convincing win with an underarm ace — but this tennis mic-drop is also just a good tactic.`\
+https://nytimes.com/athletic/6226205/2025/03/24/tennis-underarm-serve-shot-kostyuk-blinkova/
+
 **Iowa hiring Drake's Ben McCollum as four-time D-II champ's rise continues**\
 `McCollum led the Bulldogs to a school-record 31 wins in his first season after an incredible run at D-II Northwest Missouri State.`\
 https://nytimes.com/athletic/6224096/2025/03/24/iowa-coach-ben-mccollum-drake-ncaa-tournament/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/us/politics/trump-colorado-portrait-painting.html
 **NBA Rewind: Where do the $6 billion Boston Celtics go from here?**\
 `Plus, the latest NBA stock report, and closer look at the battle for the No. 6 seed in the West.`\
 https://nytimes.com/athletic/6221520/2025/03/24/nba-rewind-celtics-sale-playoff-races/
-
-**This NCAA Tournament doesn’t need a Cinderella — it’s got monster leagues and matchups**\
-`It was not a vintage first weekend, yet it was nonstop fun, the mark of an untouchable sporting event.`\
-https://nytimes.com/athletic/6226344/2025/03/24/ncaa-tournament-upsets-sweet-16/
-
-**Trump, Big Law, and an ‘Existential Crisis’**\
-`The president’s clash with some of the nation’s biggest law firms appears to be far from over, potentially splintering the legal community even further.`\
-https://nytimes.com/2025/03/24/business/dealbook/trump-big-law-paul-weiss.html
 
