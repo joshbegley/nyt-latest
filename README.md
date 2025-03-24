@@ -1,3 +1,7 @@
+**Why Driving in Singapore Is Like ‘Wearing a Rolex’**\
+`The city-state, where it costs up to $84,000 just for the right to own a car, is one of the most expensive places to drive. That is by design.`\
+https://nytimes.com/2025/03/24/world/asia/car-certificate-singapore-luxury.html
+
 **Canada's most pressing questions ahead of the 2026 World Cup**\
 `A third-place finish wasn't fully satisfying, but it does set the agenda for what Canada needs to have answered before the World Cup.`\
 https://nytimes.com/athletic/6226455/2025/03/24/canada-questions-2026-world-cup-marsch-davies-larin-sigur/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227225/2025/03/24/canadiens-lane-hutson-sam-montem
 **gws-parker-posey-white-lotus**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
-
-**gws-jack-quaid-companion-novocaine**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/jack-quaid-companion-novocaine
 
