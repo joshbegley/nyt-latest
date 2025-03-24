@@ -1,3 +1,11 @@
+**How to watch No. 1 Texas vs. No. 8 Illinois in the women's NCAA Tournament**\
+`Texas reached the peak of the AP poll for the first time since 2004, and is now pursuing its first national title since 1986.`\
+https://nytimes.com/athletic/6224647/2025/03/24/texas-illinois-womens-ncaa-tournament-how-to-watch/
+
+**NFL mock draft: Shedeur Sanders goes early, Giants add second first-round pick**\
+`Which QB-needy team takes a chance on Sanders? And where does RB Ashton Jeanty go in the first round?`\
+https://nytimes.com/athletic/6222241/2025/03/24/nfl-mock-draft-2025-shedeur-sanders-travis-hunter/
+
 **The New York Times International Edition in Print for Tuesday, March 25, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/24/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/opinion/bernie-sanders-rallies-anger.html
 **Law in Mahmoud Khalil’s Case Was Once Struck Down — by Trump’s Sister**\
 `Judge Maryanne Trump Barry ruled that the law invoked against Mr. Khalil violated the Constitution by giving unfettered discretion to the secretary of state.`\
 https://nytimes.com/2025/03/24/us/politics/mahmoud-khalil-trump-sister-law.html
-
-**Why I Got the Measles Vaccine at Age 63**\
-`Cases have now popped up in at least 19 states, including Kentucky and Georgia. That’s near enough to home for me to start worrying.`\
-https://nytimes.com/2025/03/24/opinion/measles-vaccine-babies.html
-
-**U.S. Could Run Out of Cash by July, Analysis Finds**\
-`The Bipartisan Policy Center estimates that the so-called X-date could fall between mid-July and early October if Congress does not lift or suspend the nation’s debt limit.`\
-https://nytimes.com/2025/03/24/us/politics/x-date-debt-limit-treasury-republicans-trump.html
 
