@@ -1,5 +1,5 @@
 **Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
-`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Second Lady Usha Vance plans to attend.`\
+`The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Usha Vance, the second lady, plans to attend.`\
 https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
 
 **Judge Maintains Block on Deportations of Venezuelans Under Wartime Law**\

@@ -1,3 +1,11 @@
+**Trump Administration Is Sued Over Push to Shut Education Department**\
+`The lawsuit accuses the government of dismantling the department by executive fiat without the required approval of Congress.`\
+https://nytimes.com/2025/03/24/us/trump-education-department-lawsuit.html
+
+**Listen: How Abramovich's Chelsea takeover changed English football overnight**\
+`Straight Outta Cobham discuss Roman Abramovic's takeover of Chelsea and his impact on English and European football`\
+https://nytimes.com/athletic/6226279/2025/03/24/straight-outta-cobham-chelsea-podcast-abramovich-takeover/
+
 **Greenland’s Main Dog Sledding Race Finds an Uncomfortable Spotlight**\
 `The Avannaata Qimussersua, which organizers call “a challenging event that highlights the bond between humans and their dogs,” is getting attention because Usha Vance, the second lady, plans to attend.`\
 https://nytimes.com/2025/03/24/world/usha-vance-dogsled-race-greenland.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6226830/2025/03/24/yankees-ryan-yarbrough-free-agen
 **Toyota Was Bullish on Trump. Then Came the Tariff Threats.**\
 `Japanese automakers, initially optimistic about some of President Trump’s policies, are reckoning with potentially devastating U.S. taxes on foreign-made cars.`\
 https://nytimes.com/2025/03/24/business/trump-tariffs-toyota-japan.html
-
-**Potatoes, Shrimp and Teslas: Exporters Vie to Shape Trump’s Tariffs**\
-`Makers of a vast array of American products are weighing the risks, and potential payoffs, of the sweeping tariffs the president has promised on April 2.`\
-https://nytimes.com/2025/03/24/business/economy/trump-tariffs-us-exporters.html
-
-**Bird Flu Found in Sheep in U.K., a World First**\
-`The H5N1 virus was detected in a single animal in Yorkshire, the British government said on Monday. It added that the risk to humans remained very low.`\
-https://nytimes.com/2025/03/24/world/europe/bird-flu-sheep-england.html
 
