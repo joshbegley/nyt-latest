@@ -1,3 +1,7 @@
+**USMNT frustrations boiling over as World Cup clock keeps on ticking**\
+`Expectations of this U.S. group are growing, especially with a World Cup on home soil. So why does it feel like progress has been stunted?`\
+https://nytimes.com/athletic/6226004/2025/03/24/usmnt-nations-league-disappointment-world-cup-pochettino/
+
 **Analysing Jamal Musiala's bizarre corner goal for Germany against Italy**\
 `A fatal lack of concentration from Italy's defence allowed Germany to score a goal that was unusual and memorable in equal measure`\
 https://nytimes.com/athletic/6225620/2025/03/24/musiala-germany-italy-weird-goal-corner/
