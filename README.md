@@ -1,3 +1,11 @@
+**gws-parker-posey-white-lotus**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/parker-posey-white-lotus
+
+**gws-jack-quaid-companion-novocaine**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jack-quaid-companion-novocaine
+
 **gws-nomadic-life-airstream-trailer**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/nomadic-life-airstream-trailer
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6226973/2025/03/24/chiefs-super-bowl-white-house-vi
 **Rays' Shane McClanahan avoids 'worse' injury, will miss time with nerve issue**\
 `The Tampa Bay Rays' ace learned over the weekend that he’ll miss multiple weeks with nerve irritation in his left triceps. "We got lucky." `\
 https://nytimes.com/athletic/6227123/2025/03/24/shane-mcclanahan-triceps-injury-timeline/
-
-**gws-snl-photographer-mary-ellen-matthews**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/snl-photographer-mary-ellen-matthews
-
-**Mavs' Anthony Davis nearing return after 6-week absence**\
-`Davis went down with a left adductor strain in the Mavericks’ Feb. 8 game against the Houston Rockets.`\
-https://nytimes.com/athletic/6227095/2025/03/24/anthony-davis-return-injury-update-mavericks/
 

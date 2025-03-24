@@ -1,3 +1,19 @@
+**gws-nomadic-life-airstream-trailer**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nomadic-life-airstream-trailer
+
+**Trump Threatens Tariffs Against Countries That Buy Venezuelan Oil**\
+`The president threatened to wield tariffs like financial sanctions, saying that countries that buy Venezuelan oil would see tariffs put on their exports to the United States.`\
+https://nytimes.com/2025/03/24/us/politics/trump-threatens-tariffs-against-countries-that-buy-venezuelan-oil.html
+
+**gws-pitt-doctors-noah-wyle**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tv-pitt-doctors-noah-wyle
+
+**Library Advocates Rally as Trump Targets Federal Funding**\
+`An executive order has demanded that the Institute for Museum and Library Services be eliminated to the maximum extent allowed by law.`\
+https://nytimes.com/2025/03/24/arts/trump-libraries-museums-archives.html
+
 **gws-mel-robbins-let-them-profile**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mel-robbins-let-them-profile
