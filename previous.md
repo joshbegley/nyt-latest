@@ -1,3 +1,19 @@
+**Story Time**\
+`What is your favorite memory of someone reading to you?`\
+https://nytimes.com/2025/03/25/learning/story-time.html
+
+**Spring Break for the Teens of New York’s Elite: Sun, Fun and Networking**\
+`Seniors from some of the nation’s most expensive high schools travel each year to a luxury resort in the Bahamas — trips that make school administrators cringe.`\
+https://nytimes.com/2025/03/25/nyregion/spring-break-paradise-island-bahamas.html
+
+**Salty Suburban Roads Are Clouding the Future of N.Y.C. Drinking Water**\
+`A new environmental report finds that rising salt levels in New York City’s water supply could make some of it undrinkable by the turn of the century.`\
+https://nytimes.com/2025/03/25/nyregion/nyc-drinking-water-salt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/25/crosswords/spelling-bee-forum.html
+
 **A Fungi Pioneer’s Lifelong Work on Exhibit**\
 `Mushrooms in 19th-century watercolors: The paintings of a self-taught female mycologist are featured at the New York State Museum.`\
 https://nytimes.com/2025/03/25/science/mushrooms-fungi-new-york-state-museum.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
 **Trump Officials Texted War Plans on Signal App**\
 `Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. attack plans using a messaging app.`\
 https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
-
-**Villa have taken a patient approach with Ian Maatsen - is it starting to pay off?**\
-`Unai Emery and his staff have been working overtime to improve the left-back's defensive awareness - will he be trusted further in future?`\
-https://nytimes.com/athletic/6221386/2025/03/25/ian-maatsen-aston-villa-netherlands-unai-emery/
-
-**Jeremy Doku is a star dribbler - but his output is a problem for Manchester City**\
-`Very few players are as good at Jeremy Doku at dribbling into dangerous positions, but his output does not match that`\
-https://nytimes.com/athletic/6226894/2025/03/25/jeremy-doku-dribbling-manchester-city/
-
-**Why is there a cocktail bar in Milan called 'Nottingham Forest'?**\
-`There is a bar in Milan called Nottingham Forest that sells (often very strong) cocktails. But it has no connection to the football club....`\
-https://nytimes.com/athletic/6226878/2025/03/25/nottingham-forest-cocktail-bar-milan/
-
-**Why Andre Onana has started going long more often for United**\
-`Personnel and problems when playing the ball out of the back are both factors for Onana's recent change in passing style`\
-https://nytimes.com/athletic/6221546/2025/03/25/andre-onana-long-passes-manchester-united/
 

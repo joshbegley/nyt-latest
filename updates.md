@@ -1,3 +1,19 @@
+**Story Time**\
+`What is your favorite memory of someone reading to you?`\
+https://nytimes.com/2025/03/25/learning/story-time.html
+
+**Spring Break for the Teens of New York’s Elite: Sun, Fun and Networking**\
+`Seniors from some of the nation’s most expensive high schools travel each year to a luxury resort in the Bahamas — trips that make school administrators cringe.`\
+https://nytimes.com/2025/03/25/nyregion/spring-break-paradise-island-bahamas.html
+
+**Salty Suburban Roads Are Clouding the Future of N.Y.C. Drinking Water**\
+`A new environmental report finds that rising salt levels in New York City’s water supply could make some of it undrinkable by the turn of the century.`\
+https://nytimes.com/2025/03/25/nyregion/nyc-drinking-water-salt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/25/crosswords/spelling-bee-forum.html
+
 **A Fungi Pioneer’s Lifelong Work on Exhibit**\
 `Mushrooms in 19th-century watercolors: The paintings of a self-taught female mycologist are featured at the New York State Museum.`\
 https://nytimes.com/2025/03/25/science/mushrooms-fungi-new-york-state-museum.html
