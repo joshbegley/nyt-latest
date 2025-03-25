@@ -1,3 +1,11 @@
+**DaShawn Keirsey Jr., Mickey Gasper secure final spots on Twins roster as camp winds down**\
+`"That's the news that guys dream of getting," Rocco Baldelli said. Edouard Julien made the cut, too.`\
+https://nytimes.com/athletic/6228560/2025/03/24/dashawn-keirsey-jr-mickey-gasper-twins-roster-spots/
+
+**Why shorthanded Canucks showed guts scrapping out a win vs. Devils: 3 takeaways**\
+`An excellent performance from Pius Suter and a concerted offensive push from the blue line helped Vancouver pick up two key points.`\
+https://nytimes.com/athletic/6228538/2025/03/24/canucks-pius-suter-defence-lekkerimaki-devils/
+
 **USC's JuJu Watkins exits vs. Mississippi State with apparent knee injury**\
 `Watkins was running the floor in transition and knocked into a Bulldogs player as she was driving to the basket in the first quarter.`\
 https://nytimes.com/athletic/6228552/2025/03/24/juju-watkins-injury-usc-march-madness-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
 **Is Russia an Adversary or a Future Partner? Trump’s Aides May Have to Decide.**\
 `On Tuesday, America’s top intelligence officials will release their current assessment of Russia. They are caught between what their analysts say and what President Trump wants to hear.`\
 https://nytimes.com/2025/03/24/us/politics/trump-witkoff-russia-putin.html
-
-**Pohlads seeking at least $1.7B for Twins, have more than $425M in debt on books: Sources**\
-`The Twins are starting to renew the sale process. In talks with one interested group, they deemed a $1.5 billion valuation a non-starter.`\
-https://nytimes.com/athletic/6228151/2025/03/24/minnesota-twins-sale-pohlads-valuation-debt/
-
-**With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
-`With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
-https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
 
