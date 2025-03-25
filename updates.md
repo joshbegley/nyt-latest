@@ -1,3 +1,24 @@
+**Leaked War Plans, and the Trouble with Off-channel Messaging**\
+`Revelations that President Trump’s inner circle discussed sensitive military details on Signal has jolted Washington. What comes next could also be closely watched by Wall Street.`\
+https://nytimes.com/2025/03/25/business/dealbook/signal-yemen-leak-atlantic-hegseth.html
+
+**Argentina vs Brazil: Best bets for international football’s greatest grudge match**\
+`Sam Tighe outlines the best betting markets to wager on ahead of this evening’s CONMEBOL grudge match between Argentina and Brazil. 
+`\
+https://nytimes.com/athletic/6228981/2025/03/25/argentina-brazil-conmebol-betting-preview-odds-predictions/
+
+**Weekly Student News Quiz: Deportations, Columbia University, Happiness Report**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/03/25/learning/25StudentNewsQuiz.html
+
+**2025 Davis Cup Finals confirmed for Bologna, Italy will host until 2028**\
+`The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
+https://nytimes.com/athletic/5963156/2025/03/25/davis-cup-finals-dates-bologna-italy-host/
+
+**Mead, Kirby back in England squad for Nations League games vs Belgium**\
+`Sarina Wiegman's side face Belgium on Friday, April 4 at Bristol City’s Ashton Gate before they travel to Leuven on Tuesday, April 8.`\
+https://nytimes.com/athletic/6228960/2025/03/25/england-women-squad-belgium-nations-league/
+
 **The Athletic FC: How to become an international team; who should join the Club World Cup?**\
 `Today in TAFC: How to become an international team, why there is apathy in Brazil and who should take the spare spot at the Club World Cup`\
 https://nytimes.com/athletic/6228886/2025/03/25/how-to-become-an-international-team-who-should-join-the-club-world-cup/
