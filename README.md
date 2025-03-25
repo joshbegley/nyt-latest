@@ -1,3 +1,7 @@
+**Former Spurs defender Vertonghen to retire at end of 2024-25**\
+`Vertonghen made 315 appearances for Spurs between 2012 and 2020, helping the club reach the Champions League final in 2019.`\
+https://nytimes.com/athletic/6229049/2025/03/25/jan-vertonghen-tottenham-retiring/
+
 **Drance: Why Canucks' survival instinct is a weapon in the wild-card race**\
 `The playoff odds aren't in the Canucks' favour, but if the task is to survive, it sure helps to be tough to kill.`\
 https://nytimes.com/athletic/6228800/2025/03/25/vancouver-canucks-nhl-wild-card-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219226/2025/03/25/penn-state-football-james-franki
 **Seahawks mock draft: How Seattle might use its extra picks to make a splash**\
 `The Seahawks now have five picks in the top 92, allowing them to be aggressive while still hitting on several key needs.`\
 https://nytimes.com/athletic/6228563/2025/03/25/seahawks-nfl-mock-draft-matthew-golden/
-
-**What will Blackhawks decide as Artyom Levshunov approaches 10 NHL games?**\
-`To slide or not to slide? That's the question for Levshunov and his contract after a promising start to his NHL career.`\
-https://nytimes.com/athletic/6227952/2025/03/25/blackhawks-artyom-levshunov-contract-slide-options/
 
