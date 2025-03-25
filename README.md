@@ -1,3 +1,7 @@
+**J.J. McCarthy: Vikings 'haven't told me' I'm the starting QB**\
+`Minnesota has been linked to four-time NFL MVP Aaron Rodgers this offseason a year after using the No. 10 pick on McCarthy.`\
+https://nytimes.com/athletic/6229386/2025/03/25/jj-mccarthy-vikings-starting-qb-aaron-rodgers/
+
 **The White House claims the Signal chat did not include war plans, despite it containing specific Yemen strike details.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/white-house-claims-the-signal-chat-did-not-include-war-plans-despite-it-containing-specific-yemen-strike-details
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/dining/a-go-to-protein-for-economical-meals.html
 **Foie Gras That Skips the Force-Feeding Is Developed by Physicists**\
 `While not sparing the lives of ducks and geese, the technique lets the birds eat and grow normally.`\
 https://nytimes.com/2025/03/25/science/foie-gras-ducks-geese-physics.html
-
-**5 Books on Healing From Trauma**\
-`Neuroscientists, psychologists and other experts share the titles they recommend most.`\
-https://nytimes.com/2025/03/25/well/trauma-books.html
 
