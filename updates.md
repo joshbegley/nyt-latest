@@ -1,3 +1,7 @@
+**The Joao Fonseca tennis carnival has left Miami – but it's about to go global**\
+`The support for Fonseca turned the Miami Open into a carnival. Many more tournaments can expect a similar phenomenon.`\
+https://nytimes.com/athletic/6228661/2025/03/25/tennis-joao-fonseca-brazil-fans/
+
 **Why did Dick's Sporting Goods buy a Paul Skenes card? History shows it can pay off**\
 `Dick's Sporting Goods raised eyebrows by buying the Paul Skenes MLB Debut Patch card for $1.11 million last week`\
 https://nytimes.com/athletic/6223281/2025/03/25/skenes-debut-patch-dicks-sporting-goods/

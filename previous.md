@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6228681/2025/03/25/nikola-jokic-jamal-murray-nugget
 `Witnesses said that Hamdan Ballal was assaulted by masked settlers in his home village. The Israeli military said he was detained on suspicion of throwing stones, which he denies.`\
 https://nytimes.com/2025/03/25/world/middleeast/israel-police-hamdan-ballal-palestinian.html
 
-**The Joao Fonseca tennis festival has left Miami - but it's about to go global**\
+**The Joao Fonseca tennis carnival has left Miami – but it's about to go global**\
 `The support for Fonseca turned the Miami Open into a carnival. Many more tournaments can expect a similar phenomenon.`\
 https://nytimes.com/athletic/6228661/2025/03/25/tennis-joao-fonseca-brazil-fans/
 
