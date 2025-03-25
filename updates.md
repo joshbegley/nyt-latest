@@ -1,3 +1,11 @@
+**She Was Released. Now She’s Campaigning for Her Partner Still in Gaza.**\
+`Trepidation over the fate of other captives has left Ilana Gritzewsky little time for self-healing after her own violent abduction.`\
+https://nytimes.com/2025/03/25/world/middleeast/israeli-hostage-gaza-campaign.html
+
+**ESPN analyst Jay Williams wears many hats. Here are his 5 tips for juggling a busy schedule**\
+`Williams is trying to best juggle the many hats he wears these days: ESPN analyst, co-founder of a media company, dad and husband.`\
+https://nytimes.com/athletic/6227327/2025/03/25/espn-analyst-jay-williams-wears-many-hats-here-are-his-5-tips-for-juggling-a-busy-schedule/
+
 **The New York Times International Edition in Print for Wednesday, March 26, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/03/25/todays-new-york-times-international-edition
