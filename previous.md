@@ -1,3 +1,7 @@
+**Crew Propellers**\
+`Bob Benson makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/03/24/crosswords/daily-puzzle-2025-03-25.html
+
 **Corrections: March 25, 2025**\
 `Corrections that appeared in print on Tuesday, March 25, 2025.`\
 https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227824/2025/03/24/craig-kimbrel-braves-return-bull
 **A Palestinian Director of ‘No Other Land’ Is Attacked and Detained, Witnesses Say**\
 `Hamdan Ballal was assaulted by masked attackers in his home village in the Israeli-occupied West Bank, witnesses said. The Israeli military said he had been detained for questioning.`\
 https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.html
-
-**Women's March Madness projections 2025: Does UConn have the advantage?**\
-`What's your team's chance of winning? Find out here. `\
-https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
 

@@ -1,3 +1,7 @@
+**Crew Propellers**\
+`Bob Benson makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/03/24/crosswords/daily-puzzle-2025-03-25.html
+
 **Corrections: March 25, 2025**\
 `Corrections that appeared in print on Tuesday, March 25, 2025.`\
 https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
