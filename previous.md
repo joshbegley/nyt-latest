@@ -1,3 +1,7 @@
+**Trump Pardons Former Business Partner of Hunter Biden Who Testified About the Bidens**\
+`Devon Archer had won fans on the right for cooperating with congressional Republicans investigating the Biden family.`\
+https://nytimes.com/2025/03/25/us/politics/trump-pardons-former-business-partner-of-hunter-biden-who-testified-about-the-bidens.html
+
 **Russell Wilson to join Giants on 1-year, $21 million deal: Source**\
 `Wilson's hot-and-cold 2024 run made him the No. 4 quarterback and No. 43 overall free agent in The Athletic's top 150 rankings. `\
 https://nytimes.com/athletic/6178482/2025/03/25/russell-wilson-free-agency-signing-2025-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/us/iowa-books-ruling.html
 **Declaring Their Party ‘Spineless,’ Democrats Try an Economic Populist Pitch**\
 `A group of House Democrats calling themselves the New Economic Patriots introduced themselves on Capitol Hill promising to lead their party out of its funk. It wasn’t clear how they planned to do so.`\
 https://nytimes.com/2025/03/25/us/politics/new-economic-patriots-house-democrats.html
-
-**Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
-`Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
-https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html
 
