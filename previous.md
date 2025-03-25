@@ -1,3 +1,11 @@
+**How will Celtics owner Bill Chisholm handle spotlight? And more questions for new boss**\
+`What new Celtics owner Bill Chisholm does this summer should send a clear message to fans.`\
+https://nytimes.com/athletic/6228040/2025/03/25/celtics-sale-owner-bill-chisholm-questions/
+
+**Sarris: 10 bold predictions for the 2025 MLB season**\
+`After getting half of the bold predictions correct last season, it's time to get bolder and spicier this time around.`\
+https://nytimes.com/athletic/6191684/2025/03/25/sarris-ten-bold-predictions-2025-mlb-season/
+
 **Despite key injuries and questions, there are reasons to feel good about the Yankees**\
 `Gerrit Cole is out for the year. Juan Soto is with the Mets. Giancarlo Stanton's return is unknown. Yet it's not all doom in the Bronx.`\
 https://nytimes.com/athletic/6227991/2025/03/25/new-york-yankees-2025-expectations-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6228637/2025/03/25/anthony-davis-mavericks-nba-retu
 **Los Angeles Angels 2025 season preview: roster breakdown, projections, and bold prediction**\
 `Here's how the 2025 Angels stack up, with projected lineups, rotation and individual stats.`\
 https://nytimes.com/athletic/6219066/2025/03/25/mlb-los-angeles-angels-2025-season-preview/
-
-**The worst-case scenario for the 2025 Giants**\
-`The Giants' worst-case scenario would be if the young players on their roster disappoint so badly they are no longer building blocks.`\
-https://nytimes.com/athletic/6228379/2025/03/25/sf-giants-2025-worst-case-scenario/
-
-**Players brace for the oddities, anxieties of final cuts: 'I'm trying to keep the reaper away'**\
-`This time of year is harrowing for players on the roster bubble, who are often competing against close friends for precious spots.`\
-https://nytimes.com/athletic/6227587/2025/03/25/mlb-players-spring-training-final-cuts/
 

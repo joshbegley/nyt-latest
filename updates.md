@@ -1,3 +1,11 @@
+**How will Celtics owner Bill Chisholm handle spotlight? And more questions for new boss**\
+`What new Celtics owner Bill Chisholm does this summer should send a clear message to fans.`\
+https://nytimes.com/athletic/6228040/2025/03/25/celtics-sale-owner-bill-chisholm-questions/
+
+**Sarris: 10 bold predictions for the 2025 MLB season**\
+`After getting half of the bold predictions correct last season, it's time to get bolder and spicier this time around.`\
+https://nytimes.com/athletic/6191684/2025/03/25/sarris-ten-bold-predictions-2025-mlb-season/
+
 **Despite key injuries and questions, there are reasons to feel good about the Yankees**\
 `Gerrit Cole is out for the year. Juan Soto is with the Mets. Giancarlo Stanton's return is unknown. Yet it's not all doom in the Bronx.`\
 https://nytimes.com/athletic/6227991/2025/03/25/new-york-yankees-2025-expectations-questions/
