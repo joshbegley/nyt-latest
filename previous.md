@@ -1,3 +1,7 @@
+**Corrections: March 25, 2025**\
+`Corrections that appeared in print on Tuesday, March 25, 2025.`\
+https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
+
 **U.N. to Pull International Workers From Gaza Amid Israeli Strikes**\
 `The United Nations is withdrawing about one-third of its international work force in Gaza, with the reduction coming after an Israeli tank shell hit a U.N. compound.`\
 https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.ht
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
-
-**After trade, Senators' Dylan Cozens has 'a lot to prove' in Buffalo return**\
-`Eighteen days after arriving in Ottawa, the young center has fit in seamlessly — thanks in part to the help of an old friend.`\
-https://nytimes.com/athletic/6223073/2025/03/24/dylan-cozens-senators-sabres-trade-batherson/
 

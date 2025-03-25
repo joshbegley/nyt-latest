@@ -1,3 +1,7 @@
+**Corrections: March 25, 2025**\
+`Corrections that appeared in print on Tuesday, March 25, 2025.`\
+https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
+
 **U.N. to Pull International Workers From Gaza Amid Israeli Strikes**\
 `The United Nations is withdrawing about one-third of its international work force in Gaza, with the reduction coming after an Israeli tank shell hit a U.N. compound.`\
 https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
