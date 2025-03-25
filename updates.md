@@ -1,3 +1,11 @@
+**What Is the Secrecy Power Trump’s Aides Are Using to Stonewall a Federal Judge?**\
+`The administration is invoking an extraordinary national security power, the state secrets privilege, under highly unusual circumstances.`\
+https://nytimes.com/2025/03/25/us/politics/trump-state-secrets-privilege-explained.html
+
+**Lions mailbag: Submit your questions to Colton Pouncy**\
+`Send your Lions questions to Colton Pouncy.`\
+https://nytimes.com/athletic/6230491/2025/03/25/lions-mailbag-questions-colton-pouncy/
+
 **Consumer Confidence Is Tumbling as Financial Concerns Mount**\
 `The level in the Conference Board’s latest monthly survey was the lowest since January 2021.`\
 https://nytimes.com/2025/03/25/business/consumer-confidence-trump.html
