@@ -1,3 +1,11 @@
+**Josh Norris is still hoping to get his Sabres career started after leaving Senators**\
+`A mid-body injury is the latest setback for Norris, who has two points in three games for the Sabres since the deadline.`\
+https://nytimes.com/athletic/6230164/2025/03/25/josh-norris-sabres-senators-tkachuk/
+
+**Patriots, Stefon Diggs agree to 3-year deal: Source**\
+`Diggs was the third-best available WR and No. 14 overall player on The Athletic's updated top 150 NFL free-agent rankings.`\
+https://nytimes.com/athletic/6172801/2025/03/25/stefon-diggs-free-agency-signing-2025-patriots/
+
 **Trump Pardons Former Business Partner of Hunter Biden Who Testified About the Bidens**\
 `Devon Archer had won fans on the right for cooperating with congressional Republicans investigating the Biden family.`\
 https://nytimes.com/2025/03/25/us/politics/trump-pardons-former-business-partner-of-hunter-biden-who-testified-about-the-bidens.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup
 **The Worst Part of Pete Hegseth’s Group Chat Debacle**\
 `And why the careless secretary of defense should resign.`\
 https://nytimes.com/2025/03/25/opinion/pete-hegseth-security-breach-resign.html
-
-**Federal Judge Blocks Iowa Law Restricting Sexually Explicit School Books**\
-`The ruling is a victory for the publishers and free speech advocates who challenged the law, but the judge’s decision is far from final.`\
-https://nytimes.com/2025/03/25/us/iowa-books-ruling.html
-
-**Declaring Their Party ‘Spineless,’ Democrats Try an Economic Populist Pitch**\
-`A group of House Democrats calling themselves the New Economic Patriots introduced themselves on Capitol Hill promising to lead their party out of its funk. It wasn’t clear how they planned to do so.`\
-https://nytimes.com/2025/03/25/us/politics/new-economic-patriots-house-democrats.html
 
