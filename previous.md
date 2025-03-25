@@ -1,3 +1,7 @@
+**Islanders feel they got robbed in shootout loss: 'To me it's just unacceptable'**\
+`A controversial disallowed goal put a dent in the Islanders' playoff hopes, and Kyle Palmieri made no secret of his opinion.`\
+https://nytimes.com/athletic/6228567/2025/03/24/islanders-palmieri-goaltender-interference-blue-jackets/
+
 **DaShawn Keirsey Jr., Mickey Gasper secure final spots on Twins roster as camp winds down**\
 `"That's the news that guys dream of getting," Rocco Baldelli said. Edouard Julien made the cut, too.`\
 https://nytimes.com/athletic/6228560/2025/03/24/dashawn-keirsey-jr-mickey-gasper-twins-roster-spots/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
 **U.N. to Pull International Workers From Gaza Amid Israeli Strikes**\
 `The United Nations is withdrawing about one-third of its international work force in Gaza, with the reduction coming after an Israeli tank shell hit a U.N. compound.`\
 https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
-
-**Is Russia an Adversary or a Future Partner? Trump’s Aides May Have to Decide.**\
-`On Tuesday, America’s top intelligence officials will release their current assessment of Russia. They are caught between what their analysts say and what President Trump wants to hear.`\
-https://nytimes.com/2025/03/24/us/politics/trump-witkoff-russia-putin.html
 
