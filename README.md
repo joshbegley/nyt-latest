@@ -1,3 +1,15 @@
+**Trump’s Crypto Venture Introduces New Digital Currency**\
+`World Liberty Financial, the crypto business created by President Trump and his sons, unveiled a cryptocurrency called a stablecoin, furthering his ties to an industry his administration regulates.`\
+https://nytimes.com/2025/03/25/technology/trump-crypto-stablecoin.html
+
+**Washington Nationals City Connect uniforms, round two: What does our panel think?**\
+`Washington's first City Connect uniform landed high on our rankings. How will the latest set fare with our uniform-obsessed panel?`\
+https://nytimes.com/athletic/6225756/2025/03/25/mlb-nationals-city-connect-uniforms/
+
+**Read the Justice Department’s filing in the Adams case.**\
+`The filing contained messages exchanged by federal prosecutors in Manhattan about the Justice Department’s order to seek the dismissal of corruption charges against Mayor Eric Adams of New York.`\
+https://nytimes.com/interactive/2025/03/25/nyregion/x175-1-exhibits-filed.html
+
 **Coby White erupts again in Bulls road win at Denver, shares rare air with Michael Jordan**\
 `“He’s evolved into a great player, all the way around,” Bulls coach Billy Donovan said of White, who had another huge scoring night Monday.`\
 https://nytimes.com/athletic/6228777/2025/03/25/coby-white-michael-jordan-bulls-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6229366/2025/03/25/unlv-hires-josh-pastner-espn-geo
 **What to Know About the Fallout From the Signal Group Chat Leak**\
 `President Trump is defending his national security adviser, Michael Waltz, after the extraordinary disclosure.`\
 https://nytimes.com/2025/03/25/us/politics/war-plans-signal-chat-what-to-know.html
-
-**‘Being Maria’ Review: The Muse’s Side of the Story**\
-`Starring Anamaria Vartolomei and Matt Dillon, this French drama chronicles the life of the actress Maria Schneider after her traumatic experience on the set of “Last Tango in Paris.”`\
-https://nytimes.com/2025/03/25/movies/being-maria-review.html
-
-**Now Europe Knows What Trump’s Team Calls It Behind Its Back: ‘Pathetic’**\
-`Trump officials have demanded more European military spending and questioned the continent’s values. Leaked messages show the depth of the rift.`\
-https://nytimes.com/2025/03/25/world/europe/signal-jeffrey-goldberg-message-hegseth.html
-
-**NBA Power Rankings: Thunder on top, Pacers make move as we spin through rotations**\
-`Golden State climbs into the top contenders tier, while the Lakers and Nuggets drop.`\
-https://nytimes.com/athletic/6228926/2025/03/25/nba-power-rankings-thunder-pacers-bulls-lakers-warriors/
 
