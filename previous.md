@@ -1,3 +1,27 @@
+**The Athletic FC: How to become an international team; who should join the Club World Cup?**\
+`Today in TAFC: How to become an international team, why there is apathy in Brazil and who should take the spare spot at the Club World Cup`\
+https://nytimes.com/athletic/6228886/2025/03/25/how-to-become-an-international-team-who-should-join-the-club-world-cup/
+
+**The ascendant Jackson Merrill is a crucial link between the Padres' present and future**\
+`In 2024, no player swung the Padres’ fortunes as dramatically as then-rookie Merrill. This season, he appears poised to make another leap.`\
+https://nytimes.com/athletic/6228531/2025/03/25/jackson-merrill-padres-opening-day-mlb/
+
+**In Year 1 of the post-Caitlin Clark era, Iowa women's basketball took a positive step**\
+`“I think the year was pivotal,” Iowa coach Jan Jensen said. “I think it was successful.`\
+https://nytimes.com/athletic/6228792/2025/03/25/iowa-oklahoma-tournament-caitlin-clark/
+
+**Mead, Kirby return to England squad for Nations League double header with Belgium**\
+`Sarina Wiegman's side face Belgium on Friday, April 4 at Bristol City’s Ashton Gate before they travel to Leuven on Tuesday, April 8.`\
+https://nytimes.com/athletic/6228960/2025/03/25/england-women-squad-belgium-nations-league/
+
+**'You're not scouting anymore': Astros GM Dana Brown working to curb 'straight shooter' tendencies**\
+`Brown has had to adjust as Houston's lead spokesperson: "I wear my emotions on my sleeves at times, especially being from the Northeast."`\
+https://nytimes.com/athletic/6227940/2025/03/25/astros-gm-dana-brown-straight-shooter/
+
+**Madrid working to close deal to sign Alexander-Arnold as free agent**\
+`The Liverpool vice-captain's contract runs out in June, while Madrid have been monitoring his situation for two years.`\
+https://nytimes.com/athletic/5657716/2025/03/25/alexander-arnold-real-madrid-liverpool/
+
 **How will Celtics owner Bill Chisholm handle spotlight? And more questions for new boss**\
 `What new Celtics owner Bill Chisholm does this summer should send a clear message to fans.`\
 https://nytimes.com/athletic/6228040/2025/03/25/celtics-sale-owner-bill-chisholm-questions/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6227991/2025/03/25/new-york-yankees-2025-expectatio
 **Twins 2025 season preview: Roster breakdown, projections, and bold prediction**\
 `Here's how the 2025 Twins stack up, with projected lineup, rotation and individual stats.`\
 https://nytimes.com/athletic/6218691/2025/03/25/mlb-minnesota-twins-2025-season-preview/
-
-**Who has the edge in the women's Sweet 16: Can USC beat Kansas State without JuJu Watkins?**\
-`Can Notre Dame beat TCU? Texas or Tennessee? `\
-https://nytimes.com/athletic/6228719/2025/03/25/womens-sweet-16-matchups-picks/
-
-**Atlanta Braves 2025 season preview: Roster breakdown, projections and bold prediction**\
-`After a pretty quiet offseason, the Braves hope to return to the top of the AL East. Better luck with health will be a major key.`\
-https://nytimes.com/athletic/6218678/2025/03/25/mlb-atlanta-braves-2025-season-preview/
-
-**Cincinnati Reds 2025 season preview: roster breakdown, projections, and bold prediction**\
-`Here's how the 2025 Reds stack up, with projected lineups, rotation and individual stats.`\
-https://nytimes.com/athletic/6225871/2025/03/25/mlb-cincinnati-reds-season-preview-2025/
-
-**Detroit Tigers 2025 season preview: Roster breakdown, projections and bold prediction**\
-`The 2025 Detroit Tigers begin the season with heightened expectations but real questions after last year's surprise playoff run. `\
-https://nytimes.com/athletic/6219451/2025/03/25/mlb-detroit-tigers-2025-season-preview/
-
-**Anthony Davis returns for Mavs: 'There was no doubt I was going to come back and play'**\
-`Monday, the Mavericks saw Davis return to their lineup after an 18-game absence due to a left adductor strain.`\
-https://nytimes.com/athletic/6228637/2025/03/25/anthony-davis-mavericks-nba-return/
-
-**Los Angeles Angels 2025 season preview: roster breakdown, projections, and bold prediction**\
-`Here's how the 2025 Angels stack up, with projected lineups, rotation and individual stats.`\
-https://nytimes.com/athletic/6219066/2025/03/25/mlb-los-angeles-angels-2025-season-preview/
 
