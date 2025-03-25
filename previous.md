@@ -1,3 +1,23 @@
+**Angels release former No. 1 draft pick Mickey Moniak**\
+`The top pick in 2016 had won his arbitration case against the Angels this offseason, and was set to make $2 million this year.`\
+https://nytimes.com/athletic/6230058/2025/03/25/mickey-moniak-angels-release/
+
+**Aaliyah Chavez, No. 1 recruit in 2025 class, commits to Oklahoma**\
+`Chavez was the sole uncommitted player left in ESPN’s HoopGurlz top-100 ranking.`\
+https://nytimes.com/athletic/6230187/2025/03/25/aaliyah-chavez-commit-2025-class-oklahoma/
+
+**Ravens free-agency tracker: CB Chidobe Awuzie signs 1-year deal**\
+`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
+https://nytimes.com/athletic/6188842/2025/03/25/ravens-free-agency-tracker-signings-trades/
+
+**Mob Descends on a Comedy Club After a Comic Jokes About a Politician**\
+`Prime Minister Narendra Modi has said criticism is “the soul” of Indian democracy. But his allies unleashed vigilantes after a comic who called a politician a “traitor.”`\
+https://nytimes.com/2025/03/25/world/asia/india-habitat-mumbai-comedy.html
+
+**SpaceX Rocket Launch Creates a Glowing Spiral in Night Sky**\
+`Frozen fuel from the SpaceX Falcon 9 rocket created a luminous swirl that lasted for several minutes and could be seen from Britain and much of Europe.`\
+https://nytimes.com/video/science/space/100000010071627/space-x-rocket-creates-glowing-spiral.html
+
 **George Clooney Play Breaks a Broadway Box Office Record**\
 `“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
 https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6228883/2025/03/25/tuchel-club-world-cup/
 **OpenAI Unveils New Image Generator for ChatGPT**\
 `The company’s chatbot can now create elaborate and unusual images.`\
 https://nytimes.com/2025/03/25/technology/chatgpt-image-generator.html
-
-**6 (Up-tempo) New Songs You Should Hear Now**\
-`Get your blood pumping with the latest tracks from Chappell Roan, J Noa, Illuminati Hotties and more.`\
-https://nytimes.com/2025/03/25/arts/music/amplifier-newsletter-uptempo-new-songs.html
-
-**Message for some workers who sent emails justifying their jobs: The mailbox is full.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2025/03/25/us/trump-administration-updates/message-for-some-workers-who-sent-emails-justifying-their-jobs-the-mailbox-is-full
-
-**Watch: How the Pistons have turned their season around**\
-`NBA Daily discuss the Detroit Pistons' turnaround this season and who they would matchup best with in a first-round series.`\
-https://nytimes.com/athletic/6229372/2025/03/25/cade-cunningham-detroit-pistons-playoffs-nba-daily/
-
-**Cain Velasquez sentenced to 5 years in prison for attempted murder**\
-`In 2022, Velasquez engaged in a high-speed car chase and fired rounds at a man accused of molesting his young son.`\
-https://nytimes.com/athletic/6229429/2025/03/25/cain-velasquez-prison-sentence-shooting-ufc/
-
-**Saint Francis announces plans to reclassify to DIII after NCAA tourney loss**\
-`The university cited the transfer portal, pay-for-play and "other shifts that move athletics away from love of the game" for the move.`\
-https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa/
 
