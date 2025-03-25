@@ -1,3 +1,7 @@
+**Gaza’s Return to War**\
+`We explore how the cease-fire collapsed — and what might happen next.`\
+https://nytimes.com/2025/03/25/briefing/gaza-israel-hamas-ceasefire.html
+
 **Column: JuJu Watkins' absence from March Madness hurts USC and pains women's basketball**\
 `Watkins' suffered a season-ending knee injury in the second round. The ramifications extend beyond the Trojans.`\
 https://nytimes.com/athletic/6228752/2025/03/25/juju-watkins-injury-usc-sweet-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227644/2025/03/25/wnba-scouts-march-madness-guards
 **James Dolan vs. the NBA: Why the Knicks owner is at odds with the league**\
 `Over the last two years; Dolan’s grievances with the NBA and its commissioner Adam Silver have continued to mount. What could come next?`\
 https://nytimes.com/athletic/6226872/2025/03/25/james-dolan-adam-silver-owner-commissioner-nba/
-
-**2025 NHL Draft ranking: Scott Wheeler’s March top 64 list**\
-`Schaefer and Misa have cemented their place as the top two players in the 2025 draft class in Wheeler's latest update.`\
-https://nytimes.com/athletic/6194607/2025/03/25/nhl-draft-prospects-2025-rankings-top-64/
 

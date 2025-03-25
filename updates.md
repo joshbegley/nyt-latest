@@ -1,3 +1,7 @@
+**Gaza’s Return to War**\
+`We explore how the cease-fire collapsed — and what might happen next.`\
+https://nytimes.com/2025/03/25/briefing/gaza-israel-hamas-ceasefire.html
+
 **Column: JuJu Watkins' absence from March Madness hurts USC and pains women's basketball**\
 `Watkins' suffered a season-ending knee injury in the second round. The ramifications extend beyond the Trojans.`\
 https://nytimes.com/athletic/6228752/2025/03/25/juju-watkins-injury-usc-sweet-16/
