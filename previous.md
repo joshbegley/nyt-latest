@@ -1,3 +1,7 @@
+**George Clooney Play Breaks a Broadway Box Office Record**\
+`“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
+https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
+
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers landed DK Metcalf but still don't have a starting quarterback. Got questions? Mike is here to answer them.`\
 https://nytimes.com/athletic/6230167/2025/03/25/steelers-mailbag-nfl-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229429/2025/03/25/cain-velasquez-prison-sentence-s
 **Saint Francis announces plans to reclassify to DIII after NCAA tourney loss**\
 `The university cited the transfer portal, pay-for-play and "other shifts that move athletics away from love of the game" for the move.`\
 https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa/
-
-**The Duty of Law Firms Under Attack**\
-`Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
-https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
 

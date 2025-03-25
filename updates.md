@@ -1,3 +1,7 @@
+**George Clooney Play Breaks a Broadway Box Office Record**\
+`“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
+https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
+
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers landed DK Metcalf but still don't have a starting quarterback. Got questions? Mike is here to answer them.`\
 https://nytimes.com/athletic/6230167/2025/03/25/steelers-mailbag-nfl-free-agency/
