@@ -1,3 +1,7 @@
+**U.N. to Pull International Workers From Gaza Amid Israeli Strikes**\
+`The United Nations is withdrawing about one-third of its international work force in Gaza, with the reduction coming after an Israeli tank shell hit a U.N. compound.`\
+https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
+
 **Is Russia an Adversary or a Future Partner? Trump’s Aides May Have to Decide.**\
 `On Tuesday, America’s top intelligence officials will release their current assessment of Russia. They are caught between what their analysts say and what President Trump wants to hear.`\
 https://nytimes.com/2025/03/24/us/politics/trump-witkoff-russia-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6198041/2025/03/24/womens-march-madness-projections
 **After trade, Senators' Dylan Cozens has 'a lot to prove' in Buffalo return**\
 `Eighteen days after arriving in Ottawa, the young center has fit in seamlessly — thanks in part to the help of an old friend.`\
 https://nytimes.com/athletic/6223073/2025/03/24/dylan-cozens-senators-sabres-trade-batherson/
-
-**Intelligence Assessment Warns Against Conflating Legal Musk Protests With Vandalism**\
-`Law enforcement agencies were encouraged to pursue vandals but should not investigate “constitutionally protected activity” directed at Elon Musk, the assessment found.`\
-https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
 
