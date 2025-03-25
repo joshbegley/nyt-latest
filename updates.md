@@ -1,3 +1,11 @@
+**Kylian Mbappe, the France captain who came in from the cold**\
+`Mbappe didn't score in the games against Croatia, but after an unusual six months away, the Real Madrid star is a France player again`\
+https://nytimes.com/athletic/6226256/2025/03/25/mbappe-france-return-deschamps-nations-league/
+
+**Steve Bruce on loss, grief, football and looking forward again**\
+`Last year, his daughter and son-in-law lost their son, Madison - Bruce speaks about the effects and how management is helping him cope.`\
+https://nytimes.com/athletic/6224426/2025/03/25/steve-bruce-interview/
+
 **From Club America to Al Nassr: Who should replace Club Leon at the FIFA Club World Cup?**\
 `There is an argument for LAFC or Alajuelense to step up, but the tournament might benefit more from a dose of Cristiano Ronaldo or Deadpool`\
 https://nytimes.com/athletic/6226267/2025/03/25/fifa-club-world-cup-leon-replacements-manchester-united-leeds-ronaldo/
