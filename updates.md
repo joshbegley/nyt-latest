@@ -1,3 +1,7 @@
+**Goalie duel, fizzling power play and balancing Jonas Brodin's injury: Wild takeaways**\
+`The Wild put together a mighty effort but couldn't crack Dallas' Jake Oettinger in a 3-0 loss.`\
+https://nytimes.com/athletic/6228296/2025/03/25/wild-oettinger-brodin-power-play-stars/
+
 **Wolves' work starts now if they are to escape the cycle of relegation battles**\
 `Being in a position of relative safety means the club can now plan early for next season, but will they make the most of it?`\
 https://nytimes.com/athletic/6221630/2025/03/25/wolves-summer-planning-relegation-battles/

@@ -1,3 +1,7 @@
+**Goalie duel, fizzling power play and balancing Jonas Brodin's injury: Wild takeaways**\
+`The Wild put together a mighty effort but couldn't crack Dallas' Jake Oettinger in a 3-0 loss.`\
+https://nytimes.com/athletic/6228296/2025/03/25/wild-oettinger-brodin-power-play-stars/
+
 **Wolves' work starts now if they are to escape the cycle of relegation battles**\
 `Being in a position of relative safety means the club can now plan early for next season, but will they make the most of it?`\
 https://nytimes.com/athletic/6221630/2025/03/25/wolves-summer-planning-relegation-battles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6228599/2025/03/25/tgl-finals-atlanta-drive-new-yor
 **China Frees Employees of U.S. Consulting Firm After 2-Year Detention**\
 `The release of the five employees, detained during a crackdown on foreign due diligence, comes as Beijing is trying to bring back overseas investment.`\
 https://nytimes.com/2025/03/24/world/asia/china-mintz-release-us.html
-
-**Islanders feel they got robbed in shootout loss: 'To me it's just unacceptable'**\
-`A controversial disallowed goal put a dent in the Islanders' playoff hopes, and Kyle Palmieri made no secret of his opinion.`\
-https://nytimes.com/athletic/6228567/2025/03/24/islanders-palmieri-goaltender-interference-blue-jackets/
 
