@@ -1,3 +1,7 @@
+**Cam Ward impresses at pro day, feels his standing as No. 1 pick should be solidified**\
+`Ward left his workout believing he left "no doubt" the Titans should take him first when the NFL Draft begins April 24. `\
+https://nytimes.com/athletic/6228419/2025/03/24/cam-ward-pro-day-nfl-draft/
+
 **Has LSU women's basketball redefined its ceiling as it enters the Sweet 16?**\
 `“We weren't talked about at all when we won it two years ago,” Kim Mulkey said. “So let's go see what we can do.”`\
 https://nytimes.com/athletic/6228450/2025/03/24/lsu-sweet-16-florida-state/
