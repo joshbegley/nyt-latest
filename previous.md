@@ -1,3 +1,15 @@
+**Falcons mailbag: What's going to happen with Kirk Cousins and the NFL Draft?**\
+`This week's Falcons mailbag covers everything from possible draft picks to Matthew Judon's possible return to succession plans.`\
+https://nytimes.com/athletic/6226903/2025/03/25/falcons-mailbag-kirk-cousins-nfl-draft/
+
+**As Trump’s Policies Worry Scientists, France and Others Put Out a Welcome Mat**\
+`European universities have begun recruiting researchers who lost their jobs in the administration’s cost-cutting efforts, or are anxious over perceived threats to academic freedom.`\
+https://nytimes.com/2025/03/25/europe-trump-science-research.html
+
+**The Patriots should trade down from No. 4. Here's why it'll be so difficult**\
+`If Abdul Carter and Travis Hunter are off the board by the time the Pats go on the clock for the fourth pick, is a trade their best option?`\
+https://nytimes.com/athletic/6227300/2025/03/25/patriots-nfl-draft-trade-down/
+
 **What is DOGE’s Real Goal?**\
 `Santi Ruiz, a senior editor at the Institute for Progress, examines what DOGE has been trying to accomplish in its first few months.`\
 https://nytimes.com/2025/03/25/opinion/ezra-klein-podcast-santi-ruiz.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/25/opinion/bird-flu-america-death.html
 **PBS and NPR Prepare for Showdown With Congress**\
 `Top executives from the public media networks are bracing for a hearing on Wednesday organized by Representative Marjorie Taylor Greene.`\
 https://nytimes.com/2025/03/25/business/media/pbs-npr-congressional-hearing.html
-
-**A Figure Skating Star That Breaks the Mold**\
-`Amber Glenn jumps like a pole-vaulter, collects lightsabers, is pansexual and, at 25, has blossomed at an age when many peers have retired.`\
-https://nytimes.com/2025/03/25/style/amber-glenn-us-figure-skating.html
-
-**Where will the Cowboys find Dak Prescott's backup? Exploring the options**\
-`Will Grier is the only QB on the roster besides Dak Prescott. Will Dallas go with him or try to find someone else to compete?`\
-https://nytimes.com/athletic/6227912/2025/03/25/cowboys-backup-quarterback-options-dak-prescott/
-
-**As Crises Grip Colleges, More Students Than Ever Are Set to Enroll**\
-`The largest-ever class of high school seniors is about to graduate, just as colleges are facing massive upheaval. Here’s what they could face as they head to campus.`\
-https://nytimes.com/2025/03/25/us/colleges-students-financial-crisis-politics-affirmative-action.html
 
