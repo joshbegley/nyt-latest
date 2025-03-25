@@ -1,3 +1,11 @@
+**Columbia Planned Tighter Protest Rules Even Before Trump Demanded Them**\
+`Students sued to stop Columbia from giving their disciplinary records to the federal government, which has demanded that the university rein in demonstrations.`\
+https://nytimes.com/2025/03/25/nyregion/columbia-campus-rules-khalil-lawsuit.html
+
+**Pennsylvania State Legislature Special Election Results**\
+`Get live results and maps from the 2025 Pennsylvania state senate and state house special elections.`\
+https://nytimes.com/interactive/2025/03/25/us/elections/results-pennsylvania-special-elections.html
+
 **Trump Signs Order Requiring Citizenship Proof to Vote in Federal Elections**\
 `Administration officials cited cracking down on immigrants illegally on voter rolls as one of the executive order’s main goals, amplifying Mr. Trump’s grievances about electoral integrity.`\
 https://nytimes.com/2025/03/25/us/politics/trump-elections-executive-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/us/politics/trump-executive-order-law-firm-jenner
 **Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
 `The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
 https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html
-
-**99 Degrees? In March?! Phoenix Shatters a Heat Record.**\
-`Much of the West and Southwest faced unseasonably warm temperatures this week. But it won’t last long.`\
-https://nytimes.com/2025/03/25/weather/phoenix-heat-temperature.html
-
-**Argentina qualify for 2026 World Cup after Bolivia draw with Uruguay**\
-`Argentina join the three host nations alongside Japan, New Zealand and Iran in the 48-team competition.`\
-https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup/
 
