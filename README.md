@@ -1,3 +1,7 @@
+**25 MLB predictions for 2025 season: Vlad Jr. extended? Cease to O's? Phillies sign Tucker?**\
+`Baseball is back, so let’s have some fun with it. Here are my 25 predictions for the 2025 season and subsequent offseason.`\
+https://nytimes.com/athletic/6228831/2025/03/25/mlb-predictions-2025-vladimir-guerrero-extension-kyle-tucker-phillies/
+
 **Bears pre-draft, post-free agency depth chart: More needed in the trenches**\
 `What positions could use some help from the draft? How much has free agency changed the roster? Our analysis of the Bears' depth chart.`\
 https://nytimes.com/athletic/6227056/2025/03/25/bears-2025-depth-chart-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226629/2025/03/25/world-series-walkoff-grand-slam-
 **Blue Jackets snap six-game losing streak with comeback win over Islanders**\
 `Sean Monahan and Erik Gudbranson returned from lengthy absences in a win dominated by two goaltender interference reviews.`\
 https://nytimes.com/athletic/6228554/2025/03/25/blue-jackets-goaltender-interference-fantilli-islanders/
-
-**McLaren's perfect F1 problem: Dual title contenders, and a fast car difficult to tame**\
-`With Piastri's China win and Norris' Australia victory, McLaren leads both standings despite its drivers battling a "difficult" car.`\
-https://nytimes.com/athletic/6227650/2025/03/25/mclaren-f1-lando-norris-oscar-piastri/
 
