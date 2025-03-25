@@ -1,3 +1,11 @@
+**Once Germany’s New Parliament Is Sworn In, Women Will Be a Rarer Sight**\
+`The class of lawmakers taking office is noticeably more male and less diverse than the constituents it will represent.`\
+https://nytimes.com/2025/03/25/world/europe/germany-women-politics.html
+
+**Arsenal's Ethan Nwaneri has a signature goal already at age 18**\
+`A curling shot from the edge of the D, Nwaneri scored his trademark goal for England Under-21s on Monday - it's a skill he continues to hone`\
+https://nytimes.com/athletic/6227929/2025/03/25/ethan-nwaneri-goal-england-arsenal/
+
 **Arsenal's Ethan Nwaneri has a signature goal already**\
 `A curling shot from the edge of the D, Nwaneri scored his trademark goal for England's under-21s - it's a skill he continues to hone`\
 https://nytimes.com/athletic/6227929/2025/03/25/ethan-nwaneri-goal-england-arsenal/
