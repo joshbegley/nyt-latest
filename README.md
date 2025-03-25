@@ -1,3 +1,7 @@
+**Wide players will be key to Thomas Tuchel's England - and he cannot squeeze them all in**\
+`Marcus Rashford and Jarrod Bowen were effective against Latvia - but Tuchel also has Bukayo Saka, Phil Foden, Eberechi Eze and more `\
+https://nytimes.com/athletic/6222562/2025/03/25/england-thomas-tuchel-rashford-foden-bowen-eze/
+
 **Story Time**\
 `What is your favorite memory of someone reading to you?`\
 https://nytimes.com/2025/03/25/learning/story-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodiso
 **Word of the Day: talisman**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
-
-**Trump Officials Texted War Plans on Signal App**\
-`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. attack plans using a messaging app.`\
-https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
 
