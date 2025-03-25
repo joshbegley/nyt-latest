@@ -1,3 +1,11 @@
+**DaShawn Keirsey Jr., Mickey Gasper secure final spots on Twins roster as camp winds down**\
+`"That's the news that guys dream of getting," Rocco Baldelli said. Edouard Julien made the cut, too.`\
+https://nytimes.com/athletic/6228560/2025/03/24/dashawn-keirsey-jr-mickey-gasper-twins-roster-spots/
+
+**Why shorthanded Canucks showed guts scrapping out a win vs. Devils: 3 takeaways**\
+`An excellent performance from Pius Suter and a concerted offensive push from the blue line helped Vancouver pick up two key points.`\
+https://nytimes.com/athletic/6228538/2025/03/24/canucks-pius-suter-defence-lekkerimaki-devils/
+
 **USC's JuJu Watkins exits vs. Mississippi State with apparent knee injury**\
 `Watkins was running the floor in transition and knocked into a Bulldogs player as she was driving to the basket in the first quarter.`\
 https://nytimes.com/athletic/6228552/2025/03/24/juju-watkins-injury-usc-march-madness-2025/
