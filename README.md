@@ -1,3 +1,15 @@
+**'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
+`The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
+https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
+
+**Jon Stewart Thinks He May Be in the ‘Bomb Yemen’ Chat Group**\
+`The “Daily Show” host suspects that he, too, might have been invited to a discussion of secret war plans by a bumbling official in the Trump administration.`\
+https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
+
+**Word of the Day: talisman**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
+
 **Trump Officials Texted War Plans on Signal App**\
 `Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. plans to attack Yemen using a commercial messaging app.`\
 https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6223568/2025/03/25/arsenal-lewis-skelly-nwaneri-cal
 **Brazil are trapped in a cycle of apathy - just as rivals Argentina thrive**\
 `Brazil look certain to qualify for the 2026 World Cup but scratch beneath the surface and you'll find a team drifting aimlessly yet again`\
 https://nytimes.com/athletic/6226921/2025/03/25/brazil-argentina-world-cup-2026/
-
-**Kylian Mbappe, the France captain who came in from the cold**\
-`Mbappe didn't score in the games against Croatia, but after an unusual six months away, the Real Madrid star is a France player again`\
-https://nytimes.com/athletic/6226256/2025/03/25/mbappe-france-return-deschamps-nations-league/
-
-**Steve Bruce on loss, grief, football and looking forward again**\
-`Last year, his daughter and son-in-law lost their son, Madison - Bruce speaks about the effects and how management is helping him cope.`\
-https://nytimes.com/athletic/6224426/2025/03/25/steve-bruce-interview/
-
-**From Club America to Al Nassr: Who should replace Club Leon at the FIFA Club World Cup?**\
-`There is an argument for LAFC or Alajuelense to step up, but the tournament might benefit more from a dose of Cristiano Ronaldo or Deadpool`\
-https://nytimes.com/athletic/6226267/2025/03/25/fifa-club-world-cup-leon-replacements-manchester-united-leeds-ronaldo/
 
