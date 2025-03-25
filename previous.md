@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodiso
 https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
 
 **Trump Officials Texted War Plans on Signal App**\
-`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. plans to attack Yemen using a commercial messaging app.`\
+`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. attack plans using a messaging app.`\
 https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
 
 **Villa have taken a patient approach with Ian Maatsen - is it starting to pay off?**\

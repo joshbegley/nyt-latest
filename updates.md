@@ -1,3 +1,7 @@
+**Trump Officials Texted War Plans on Signal App**\
+`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. attack plans using a messaging app.`\
+https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
+
 **Red Wings thoughts: What can be learned from an 'ugly' win in Utah?**\
 `The Red Wings' win in Utah wasn't pretty, but it pulled them back within 3 points of a playoff spot and showed some key developments.`\
 https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
