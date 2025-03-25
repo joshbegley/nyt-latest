@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6228981/2025/03/25/argentina-brazil-conmebol-betting-preview-odds-predictions/
 
+**Argentina vs Brazil: Best bets for international football’s greatest grudge match**\
+`Sam Tighe outlines the best betting markets to wager on ahead of this evening’s CONMEBOL grudge match between Argentina and Brazil. 
+`\
+https://nytimes.com/athletic/6228981/2025/03/25/argentina-brazil-conmebol-betting-preview-odds-predictions/
+
 **Leaked War Plans, and the Trouble with Off-channel Messaging**\
 `Revelations that President Trump’s inner circle discussed sensitive military details on Signal has jolted Washington. What comes next could also be closely watched by Wall Street.`\
 https://nytimes.com/2025/03/25/business/dealbook/signal-yemen-leak-atlantic-hegseth.html
