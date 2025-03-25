@@ -1,3 +1,19 @@
+**Capitals, Jakob Chychrun agree to 8-year, $72-million extension**\
+`Chychrun joined the Capitals last July as part of a trade and has matched his career-high with 18 goals this season`\
+https://nytimes.com/athletic/6229474/2025/03/25/capitals-jakob-chychrun-extension/
+
+**March Madness best bets: 2 Sweet 16 spreads plus national title, Final Four picks**\
+`Austin Mock has two picks against the spread for the Sweet 16 as well a few teams showing value to make the Final Four.`\
+https://nytimes.com/athletic/6229486/2025/03/25/mens-sweet-16-bets-alabama-michigan-state/
+
+**Alexander-Arnold's contract saga has benefited nobody**\
+`The full-back's future seems closer to reaching a resolution, and not a moment too soon`\
+https://nytimes.com/athletic/6229335/2025/03/25/trent-alexander-arnold-liverpool-contract-saga/
+
+**Trump to Name Right-Wing Media Critic Ambassador to South Africa**\
+`L. Brent Bozell III, who must be confirmed by the Senate, would be stepping into the role at a time when relations between South Africa and the United States are at a low point.`\
+https://nytimes.com/2025/03/25/us/politics/trump-bozell-ambassador-south-africa.html
+
 **With a U.S. Ban Looming, TikTok Portrays Itself as a Force for Good**\
 `The popular video app, which could be banned in the United States next month if it is not sold to a non-Chinese owner, is portraying itself as a savior of Americans and a champion of small businesses in a new campaign.`\
 https://nytimes.com/2025/03/25/technology/tiktok-ban-ads.html

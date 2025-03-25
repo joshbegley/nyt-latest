@@ -1,3 +1,19 @@
+**Capitals, Jakob Chychrun agree to 8-year, $72-million extension**\
+`Chychrun joined the Capitals last July as part of a trade and has matched his career-high with 18 goals this season`\
+https://nytimes.com/athletic/6229474/2025/03/25/capitals-jakob-chychrun-extension/
+
+**March Madness best bets: 2 Sweet 16 spreads plus national title, Final Four picks**\
+`Austin Mock has two picks against the spread for the Sweet 16 as well a few teams showing value to make the Final Four.`\
+https://nytimes.com/athletic/6229486/2025/03/25/mens-sweet-16-bets-alabama-michigan-state/
+
+**Alexander-Arnold's contract saga has benefited nobody**\
+`The full-back's future seems closer to reaching a resolution, and not a moment too soon`\
+https://nytimes.com/athletic/6229335/2025/03/25/trent-alexander-arnold-liverpool-contract-saga/
+
+**Trump to Name Right-Wing Media Critic Ambassador to South Africa**\
+`L. Brent Bozell III, who must be confirmed by the Senate, would be stepping into the role at a time when relations between South Africa and the United States are at a low point.`\
+https://nytimes.com/2025/03/25/us/politics/trump-bozell-ambassador-south-africa.html
+
 **With a U.S. Ban Looming, TikTok Portrays Itself as a Force for Good**\
 `The popular video app, which could be banned in the United States next month if it is not sold to a non-Chinese owner, is portraying itself as a savior of Americans and a champion of small businesses in a new campaign.`\
 https://nytimes.com/2025/03/25/technology/tiktok-ban-ads.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6229386/2025/03/25/jj-mccarthy-vikings-starting-qb-
 **The White House claims the Signal chat did not include war plans, despite it containing specific Yemen strike details.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/white-house-claims-the-signal-chat-did-not-include-war-plans-despite-it-containing-specific-yemen-strike-details
-
-**Rodman included in Hayes' USWNT roster for Olympic rematch games against Brazil**\
-`Notable absences from the U.S. squad include Naomi Girma, Rose Lavelle and Mallory Swanson`\
-https://nytimes.com/athletic/6229169/2025/03/25/uswnt-brazil-roster-emma-hayes/
-
-**The Winnipeg Jets are still Stanley Cup contenders, even as adversity strikes**\
-`Even as the Jets' points pace has fallen from best in the league to average, Winnipeg still looks good by a lot of indicators.`\
-https://nytimes.com/athletic/6227718/2025/03/25/winnipeg-jets-remain-stankley-cup-contenders/
-
-**Trump’s Crypto Venture Introduces New Digital Currency**\
-`World Liberty Financial, the crypto business created by President Trump and his sons, unveiled a cryptocurrency called a stablecoin, furthering his ties to an industry his administration regulates.`\
-https://nytimes.com/2025/03/25/technology/trump-crypto-stablecoin.html
-
-**Washington Nationals City Connect uniforms, round two: What does our panel think?**\
-`Washington's first City Connect uniform landed high on our rankings. How will the latest set fare with our uniform-obsessed panel?`\
-https://nytimes.com/athletic/6225756/2025/03/25/mlb-nationals-city-connect-uniforms/
 
