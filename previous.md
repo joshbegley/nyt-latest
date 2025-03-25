@@ -1,3 +1,19 @@
+**Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
+`Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
+https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html
+
+**With the Signal Snafu, Michael Waltz Is Thrust Into the Spotlight**\
+`The national security adviser, already embattled, is taking the brunt of the criticism.`\
+https://nytimes.com/2025/03/25/us/politics/signal-michael-waltz-trump-goldberg.html
+
+**A judge blocked the Trump administration from rescinding grants for fair housing groups.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2025/03/25/us/trump-administration-updates/a-judge-blocked-the-trump-administration-from-rescinding-grants-for-fair-housing-groups
+
+**Lions free agency tracker: Depth a priority for team devastated by injuries last season**\
+`The Lions don't have a lot needs to fill this offseason.`\
+https://nytimes.com/athletic/6189041/2025/03/25/lions-free-agency-signings-depth/
+
 **What’s the American Base on Greenland? Here’s What to Know.**\
 `Since World War II, American forces have been stationed on the island. Today, from a remote outpost, they watch the skies.`\
 https://nytimes.com/2025/03/25/world/europe/greenland-us-space-base.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6230699/2025/03/25/mcneese-bill-armstrong-mens-bask
 **Lou Nasti, Who Brought Christmas Displays to Extravagant Life, Dies at 79**\
 `A robotics specialist, he animated puppets and dolls for displays worldwide. His “Toyland,” with a two-story-high Santa, drew sightseers to a Brooklyn home for years.`\
 https://nytimes.com/2025/03/25/nyregion/lou-nasti-dead.html
-
-**Can anyone pry the MOP award away from Duke's Cooper Flagg?**\
-`Odds for the Most Outstanding Player award are out, and Brad Evans has you covered with who you should sprinkle some bucks on.`\
-https://nytimes.com/athletic/6229360/2025/03/25/most-outstanding-player-odds-picks-cooper-flagg-walter-clayton-jr/
-
-**Jeffries Calls on Trump to Fire Hegseth**\
-`The House minority leader became the highest-ranking Democrat to demand the defense secretary be terminated, saying he was “unqualified” and a national security risk.`\
-https://nytimes.com/2025/03/25/us/jeffries-fire-hegseth.html
-
-**Wednesday Briefing: A Cease-Fire Deal for the Black Sea**\
-`Plus, the hit series “Adolescence.”`\
-https://nytimes.com/2025/03/25/briefing/black-sea-deal-signal-leak-west-bank-director.html
-
-**Remedy Supported by Kennedy Leaves Some Measles Patients More Ill**\
-`After the health secretary promoted vitamin A as a cure, parents in West Texas began giving their children high doses, sometimes to prevent infection.`\
-https://nytimes.com/2025/03/25/health/measles-kennedy-vitamin-a.html
 
