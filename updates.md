@@ -1,3 +1,7 @@
+**With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
+`With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
+https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
+
 **A Palestinian Director of ‘No Other Land’ Is Attacked and Detained, Witnesses Say**\
 `Hamdan Ballal was assaulted by masked attackers in his home village in the Israeli-occupied West Bank, witnesses said. The Israeli military said he had been detained for questioning.`\
 https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.html
