@@ -1,3 +1,11 @@
+**A Queens Bar Becomes a Beacon for Inspired Mexican American Food**\
+`Like the big cat that presides over this Ridgewood restaurant, Hellbender knows how to stretch — mixing late-night vibes with polished cooking.`\
+https://nytimes.com/2025/03/25/dining/hellbender-nyc-restaurant-review.html
+
+**In JuJu Watkins' absence, who will step up for USC in the Sweet 16?**\
+`Can Kiki Iriafen explode again for the Trojans? They'll need her best efforts against Kansas State`\
+https://nytimes.com/athletic/6230300/2025/03/25/juju-watkins-injury-usc-sweet-16-2/
+
 **Four Top Trump Officials Are Set to Brief G.O.P. Donors in April**\
 `A donor network co-founded by Vice President JD Vance is set to host Robert F. Kennedy Jr., Scott Bessent, Tulsi Gabbard and Steve Witkoff.`\
 https://nytimes.com/2025/03/25/us/politics/vance-rockbridge-rfk-gabbard-bessent-witkoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/world/europe/paddington-bear-statue-stolen-raf-en
 **Intelligence officials acknowledge the sensitivity of the military strike information.**\
 `Under questioning from senators, the C.I.A. chief and the director of national intelligence pointed to the defense secretary to determine what was appropriate to share.`\
 https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/ratcliffe-gabbard-signal-leak
-
-**Three tactical issues behind the USMNT defeats to Panama and Canada**\
-`Mauricio Pochettino has some urgent problems to fix as World Cup 2026 creeps ever closer  `\
-https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochettino-panama-canada/
-
-**Who Is Michael Waltz?**\
-`The national security adviser has been walking a tightrope even before the disclosure of the group chat.`\
-https://nytimes.com/2025/03/25/us/who-is-michael-waltz.html
 
