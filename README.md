@@ -1,3 +1,7 @@
+**Is Russia an Adversary or a Future Partner? Trump’s Aides May Have to Decide.**\
+`On Tuesday, America’s top intelligence officials will release their current assessment of Russia. They are caught between what their analysts say and what President Trump wants to hear.`\
+https://nytimes.com/2025/03/24/us/politics/trump-witkoff-russia-putin.html
+
 **Pohlads seeking at least $1.7B for Twins, have more than $425M in debt on books: Sources**\
 `The Twins are starting to renew the sale process. In talks with one interested group, they deemed a $1.5 billion valuation a non-starter.`\
 https://nytimes.com/athletic/6228151/2025/03/24/minnesota-twins-sale-pohlads-valuation-debt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6223073/2025/03/24/dylan-cozens-senators-sabres-tra
 **Intelligence Assessment Warns Against Conflating Legal Musk Protests With Vandalism**\
 `Law enforcement agencies were encouraged to pursue vandals but should not investigate “constitutionally protected activity” directed at Elon Musk, the assessment found.`\
 https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
-
-**Teen Who Set Off Avalanche Is Fourth Person Killed on Alaska Slopes This Month**\
-`A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
-https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
 
