@@ -1,3 +1,23 @@
+**Jeffries Calls on Trump to Fire Hegseth**\
+`The House minority leader became the highest-ranking Democrat to demand the defense secretary be terminated, saying he was “unqualified” and a national security risk.`\
+https://nytimes.com/2025/03/25/us/jeffries-fire-hegseth.html
+
+**Wednesday Briefing: A Cease-Fire Deal for the Black Sea**\
+`Plus, the hit series “Adolescence.”`\
+https://nytimes.com/2025/03/25/briefing/black-sea-deal-signal-leak-west-bank-director.html
+
+**Remedy Supported by Kennedy Leaves Some Measles Patients More Ill**\
+`After the health secretary promoted vitamin A as a cure, parents in West Texas began giving their children high doses, sometimes to prevent infection.`\
+https://nytimes.com/2025/03/25/health/measles-kennedy-vitamin-a.html
+
+**Who Was in the Signal Group Chat?**\
+`The list of members of the chat aligned with some of the most senior members of the Trump administration.`\
+https://nytimes.com/2025/03/25/us/signal-group-chat-key-figures.html
+
+**After Signal Leak, Vance Focuses on Proving His Loyalty to Trump**\
+`After the revelation that he was part of a secret chat, Vice President JD Vance’s focus wasn’t on the security breach. Instead, it seemed to be concern that he had questioned his boss.`\
+https://nytimes.com/2025/03/25/us/signal-leak-vance-trump.html
+
 **U.S. Intelligence Report Says Russia Remains Enduring Threat**\
 `On the day the report was released, Tulsi Gabbard, the director of national intelligence, told lawmakers that Moscow was a “formidable competitor.”`\
 https://nytimes.com/2025/03/25/us/politics/us-intelligence-report-russia-threat.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/03/25/arts/design/trump-portrait-colorado-sarah-boardma
 **Court Lets Trump Pause New Refugee Admissions but Thousands Must Be Let In**\
 `A court order requires thousands of refugees to be admitted to the United States. But funding for organizations that assist them after arrival remains uncertain.`\
 https://nytimes.com/2025/03/25/us/politics/trump-refugees.html
-
-**Man and 2 Children Are Found Alive After Plane Crash Into an Alaska Lake**\
-`A volunteer pilot found the three on Monday morning after they had been missing all night, the authorities said. They were taken to a hospital.`\
-https://nytimes.com/2025/03/25/us/alaska-plane-crash-rescue.html
-
-**Trump Downplays Signal Leak, Backing Waltz and Pointing Finger at Journalist**\
-`Democrats denounced the country’s top intelligence officials for “sloppy, careless, incompetent behavior” for discussing secret military plans in a group chat.`\
-https://nytimes.com/2025/03/25/us/politics/trump-signal-leak-war-plans.html
-
-**Judge Orders U.S. to Stop Attempts to Deport Columbia Undergraduate**\
-`The administration has been seeking to arrest and deport Yunseo Chung, who immigrated from South Korea as a child, after she participated in pro-Palestinian demonstrations.`\
-https://nytimes.com/2025/03/25/nyregion/columbia-university-protester-chung-deportation.html
-
-**Sudan Military Bombing Kills Dozens in Attack on Market in Darfur**\
-`The bombing in a crowded market, which monitors called a likely war crime, was a grim reminder of the brutal toll caused by both sides in the two-year civil war.`\
-https://nytimes.com/2025/03/25/world/africa/sudan-military-bombing-darfur.html
-
-**What Is the Secrecy Power Trump’s Aides Are Using to Stonewall a Federal Judge?**\
-`The administration is invoking an extraordinary national security power, the state secrets privilege, under highly unusual circumstances.`\
-https://nytimes.com/2025/03/25/us/politics/trump-state-secrets-privilege-explained.html
 

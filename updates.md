@@ -1,3 +1,11 @@
+**U.S. Intelligence Report Says Russia Remains Enduring Threat**\
+`On the day the report was released, Tulsi Gabbard, the director of national intelligence, told lawmakers that Moscow was a “formidable competitor.”`\
+https://nytimes.com/2025/03/25/us/politics/us-intelligence-report-russia-threat.html
+
+**In Rare Protest, Gazans Voice Frustration With Hamas**\
+`One Gazan who attended the rally said the protesters wanted Hamas to end the war and leave the enclave.`\
+https://nytimes.com/2025/03/25/world/middleeast/gaza-protests-hamas.html
+
 **Senators Question Intelligence Officials on Leaked Signal Chat**\
 `C.I.A. Director John Ratcliffe and Director of National Intelligence Tulsi Gabbard rejected that any classified information was shared in a Signal chat discussing a U.S. strike in Yemen that a journalist was mistakenly included in.`\
 https://nytimes.com/video/us/politics/100000010071376/signal-chat-gabbard-ratcliffe-yemen.html

@@ -1,3 +1,11 @@
+**U.S. Intelligence Report Says Russia Remains Enduring Threat**\
+`On the day the report was released, Tulsi Gabbard, the director of national intelligence, told lawmakers that Moscow was a “formidable competitor.”`\
+https://nytimes.com/2025/03/25/us/politics/us-intelligence-report-russia-threat.html
+
+**In Rare Protest, Gazans Voice Frustration With Hamas**\
+`One Gazan who attended the rally said the protesters wanted Hamas to end the war and leave the enclave.`\
+https://nytimes.com/2025/03/25/world/middleeast/gaza-protests-hamas.html
+
 **Senators Question Intelligence Officials on Leaked Signal Chat**\
 `C.I.A. Director John Ratcliffe and Director of National Intelligence Tulsi Gabbard rejected that any classified information was shared in a Signal chat discussing a U.S. strike in Yemen that a journalist was mistakenly included in.`\
 https://nytimes.com/video/us/politics/100000010071376/signal-chat-gabbard-ratcliffe-yemen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/world/africa/sudan-military-bombing-darfur.html
 **What Is the Secrecy Power Trump’s Aides Are Using to Stonewall a Federal Judge?**\
 `The administration is invoking an extraordinary national security power, the state secrets privilege, under highly unusual circumstances.`\
 https://nytimes.com/2025/03/25/us/politics/trump-state-secrets-privilege-explained.html
-
-**Lions mailbag: Submit your questions to Colton Pouncy**\
-`Send your Lions questions to Colton Pouncy.`\
-https://nytimes.com/athletic/6230491/2025/03/25/lions-mailbag-questions-colton-pouncy/
-
-**Consumer Confidence Is Tumbling as Financial Concerns Mount**\
-`The level in the Conference Board’s latest monthly survey was the lowest since January 2021.`\
-https://nytimes.com/2025/03/25/business/consumer-confidence-trump.html
 
