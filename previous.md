@@ -1,40 +1,40 @@
-**Once Germany’s New Parliament Is Sworn In, Women Will Be a Rarer Sight**\
-`The class of lawmakers taking office is noticeably more male and less diverse than the constituents it will represent.`\
-https://nytimes.com/2025/03/25/world/europe/germany-women-politics.html
+**What is DOGE’s Real Goal?**\
+`Santi Ruiz, a senior editor at the Institute for Progress, examines what DOGE has been trying to accomplish in its first few months.`\
+https://nytimes.com/2025/03/25/opinion/ezra-klein-podcast-santi-ruiz.html
 
-**Arsenal's Ethan Nwaneri has a signature goal already at age 18**\
-`A curling shot from the edge of the D, Nwaneri scored his trademark goal for England Under-21s on Monday - it's a skill he continues to hone`\
-https://nytimes.com/athletic/6227929/2025/03/25/ethan-nwaneri-goal-england-arsenal/
+**America’s Most Powerful Law Firms Are Acting Like Cowards**\
+`Bowing to Trump won’t protect their businesses and clients.`\
+https://nytimes.com/2025/03/25/opinion/trump-law-firms.html
 
-**Wide players will be key to Thomas Tuchel's England - and he cannot squeeze them all in**\
-`Marcus Rashford and Jarrod Bowen were effective against Latvia but the new coach also has Bukayo Saka, Phil Foden, Eberechi Eze and more `\
-https://nytimes.com/athletic/6222562/2025/03/25/england-thomas-tuchel-rashford-foden-bowen-eze/
+**What Is DOGE’s Real Goal?**\
+`Santi Ruiz examines what DOGE is trying to do to the federal government.`\
+https://nytimes.com/video/opinion/100000010070122/what-is-doges-real-goal.html
 
-**Story Time**\
-`What is your favorite memory of someone reading to you?`\
-https://nytimes.com/2025/03/25/learning/story-time.html
+**‘It Is Hard to Imagine a More Sweeping Agenda to Make Americans Less Healthy’**\
+`Trump says one thing about toxins — and does another.`\
+https://nytimes.com/2025/03/25/opinion/trump-toxins-cancer-environment.html
 
-**Spring Break for the Teens of New York’s Elite: Sun, Fun and Networking**\
-`Seniors from some of the nation’s most expensive high schools travel each year to a luxury resort in the Bahamas — trips that make school administrators cringe.`\
-https://nytimes.com/2025/03/25/nyregion/spring-break-paradise-island-bahamas.html
+**Among the Innies**\
+`“Severance” fans enjoyed waffles and Lumon Industries cosplay at a watch party hosted by two restaurants that appeared in the series.`\
+https://nytimes.com/2025/03/25/arts/television/severance-season-2-finale-watch-party.html
 
-**Salty Suburban Roads Are Clouding the Future of N.Y.C. Drinking Water**\
-`A new environmental report finds that rising salt levels in New York City’s water supply could make some of it undrinkable by the turn of the century.`\
-https://nytimes.com/2025/03/25/nyregion/nyc-drinking-water-salt.html
+**America Has Been Lucky on Bird Flu — So Far**\
+`The death rate in the U.S. has been much lower than expected.`\
+https://nytimes.com/2025/03/25/opinion/bird-flu-america-death.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/25/crosswords/spelling-bee-forum.html
+**PBS and NPR Prepare for Showdown With Congress**\
+`Top executives from the public media networks are bracing for a hearing on Wednesday organized by Representative Marjorie Taylor Greene.`\
+https://nytimes.com/2025/03/25/business/media/pbs-npr-congressional-hearing.html
 
-**A Fungi Pioneer’s Lifelong Work on Exhibit**\
-`Mushrooms in 19th-century watercolors: The paintings of a self-taught female mycologist are featured at the New York State Museum.`\
-https://nytimes.com/2025/03/25/science/mushrooms-fungi-new-york-state-museum.html
+**A Figure Skating Star That Breaks the Mold**\
+`Amber Glenn jumps like a pole-vaulter, collects lightsabers, is pansexual and, at 25, has blossomed at an age when many peers have retired.`\
+https://nytimes.com/2025/03/25/style/amber-glenn-us-figure-skating.html
 
-**Red Wings thoughts: What can be learned from an 'ugly' win in Utah?**\
-`The Red Wings' win in Utah wasn't pretty, but it pulled them back within 3 points of a playoff spot and showed some key developments.`\
-https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
+**Where will the Cowboys find Dak Prescott's backup? Exploring the options**\
+`Will Grier is the only QB on the roster besides Dak Prescott. Will Dallas go with him or try to find someone else to compete?`\
+https://nytimes.com/athletic/6227912/2025/03/25/cowboys-backup-quarterback-options-dak-prescott/
 
-**Jon Stewart Thinks He May Be in the ‘Bomb Yemen’ Chat Group**\
-`The “Daily Show” host suspects that he, too, might have been invited to a discussion of secret war plans by a bumbling official in the Trump administration.`\
-https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
+**As Crises Grip Colleges, More Students Than Ever Are Set to Enroll**\
+`The largest-ever class of high school seniors is about to graduate, just as colleges are facing massive upheaval. Here’s what they could face as they head to campus.`\
+https://nytimes.com/2025/03/25/us/colleges-students-financial-crisis-politics-affirmative-action.html
 
