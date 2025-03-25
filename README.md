@@ -1,3 +1,15 @@
+**Darcy Kuemper's career hit a low last season. Now he deserves to be on Vezina ballots**\
+`At age 34, Kuemper has returned to a comfortable place in L.A., and his play shows it.`\
+https://nytimes.com/athletic/6227615/2025/03/25/darcy-kuemper-kings-vezina/
+
+**Manchester City mailbag: Pose your questions to Sam Lee as the season's final stretch begins**\
+`City mailbag: Post your questions to Sam Lee on the season so far and the club's prospects in the next couple of months`\
+https://nytimes.com/athletic/6227215/2025/03/25/manchester-city-mailbag-pose-your-questions-to-sam-lee-as-final-stretch-of-2024-25-begins/
+
+**Sisters With ‘Ketchup and Mustard’ Shoes**\
+`Bright yellow and red footwear went together like classic condiments.`\
+https://nytimes.com/2025/03/25/style/street-style-look-colorful-shoes.html
+
 **Aston Villa's Mings expected to take role on FA's board of directors for Euro 2028**\
 `The FA wanted a current player on the board to help with the tournament's preparations and Mings is now set be appointed.`\
 https://nytimes.com/athletic/6225198/2025/03/25/tyrone-mings-euro-2028-fa-board/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/03/25/us/trump-administration-updates/democrats-an
 **A Swayman turnaround is non-negotiable for the Bruins next year**\
 `A second-half collapse against the Kings on Sunday led to an unflattering stat line for the fourth highest-paid goalie in the NHL.`\
 https://nytimes.com/athletic/6228155/2025/03/25/bruins-jeremy-swayman-turnaround-korpisalo/
-
-**Trump Administration Live Updates: Security Breach May Dominate Intelligence Hearing**\
-``\
-https://nytimes.com/live/2025/03/25/us/trump-administration-updates
-
-**Yohe: The remarkable Sidney Crosby continues to defy description at age 37**\
-`Crosby is worth the price of admission every night at the moment as he turns back time.`\
-https://nytimes.com/athletic/6227949/2025/03/25/sidney-crosby-record-penguins-playoffs/
-
-**How the Cubs are building their pitchers back up after a non-traditional spring**\
-`Every team faces challenges over the course of the season. The Cubs will get one right out of the gate.`\
-https://nytimes.com/athletic/6227685/2025/03/25/chicago-cubs-pitcher-development/
 
