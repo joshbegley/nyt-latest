@@ -1,5 +1,5 @@
 **Wide players will be key to Thomas Tuchel's England - and he cannot squeeze them all in**\
-`Marcus Rashford and Jarrod Bowen were effective against Latvia - but Tuchel also has Bukayo Saka, Phil Foden, Eberechi Eze and more `\
+`Marcus Rashford and Jarrod Bowen were effective against Latvia but the new coach also has Bukayo Saka, Phil Foden, Eberechi Eze and more `\
 https://nytimes.com/athletic/6222562/2025/03/25/england-thomas-tuchel-rashford-foden-bowen-eze/
 
 **Story Time**\
