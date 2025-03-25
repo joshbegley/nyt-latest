@@ -1,3 +1,7 @@
+**Letter Raises Questions About Justice Official’s Testimony on Adams Case**\
+`The nominee for deputy attorney general had testified that he had no direct knowledge of administration officials’ decision to abandon the case against New York’s mayor.`\
+https://nytimes.com/2025/03/25/nyregion/todd-blanche-eric-adams-case.html
+
 **Funding Cuts at Columbia Create ‘Chilling Effect,’ Faculty Lawsuit Says**\
 `The Trump administration’s cancellation of $400 million in aid violates the Constitution, a teachers’ union and a faculty group allege.`\
 https://nytimes.com/2025/03/25/nyregion/columbia-faculty-lawsuit-funding-cuts.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/03/25/nyregion/columbia-faculty-lawsuit-funding-cuts.ht
 https://nytimes.com/athletic/6230057/2025/03/25/will-wade-nc-state-hired-until-saturday/
 
 **Who Is Jeffrey Goldberg?**\
-`Mr. Goldberg, who was included on a private text thread discussing war plans, was a longtime national security report who became editor of The Atlantic in 2016.`\
+`Mr. Goldberg, who was included on a private text thread discussing war plans, was a longtime national security reporter who became editor of The Atlantic in 2016.`\
 https://nytimes.com/2025/03/25/business/media/who-is-jeffrey-goldberg.html
 
 **In Aurora, Colo., a Split Over the Biggest Threat to the City: Migrants or Trump?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/theater/wine-in-the-wilderness-review.html
 **Track and Field to Be First Olympic Sport Requiring DNA Sex Tests for Women**\
 `The change affects women with atypical genetics who have been able to compete if they suppressed their testosterone levels.`\
 https://nytimes.com/2025/03/25/sports/olympic-track-female-sex-tests.html
-
-**Azzi Fudd returning to UConn next season for final year of eligibility**\
-`Fudd, the No. 1 recruit in the 2021 class, has had both an impressive and injury-riddled career with the Huskies.`\
-https://nytimes.com/athletic/6229837/2025/03/25/azzi-fudd-uconn-eligibility-back/
 

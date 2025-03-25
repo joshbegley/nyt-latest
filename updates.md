@@ -1,3 +1,11 @@
+**Letter Raises Questions About Justice Official’s Testimony on Adams Case**\
+`The nominee for deputy attorney general had testified that he had no direct knowledge of administration officials’ decision to abandon the case against New York’s mayor.`\
+https://nytimes.com/2025/03/25/nyregion/todd-blanche-eric-adams-case.html
+
+**Who Is Jeffrey Goldberg?**\
+`Mr. Goldberg, who was included on a private text thread discussing war plans, was a longtime national security reporter who became editor of The Atlantic in 2016.`\
+https://nytimes.com/2025/03/25/business/media/who-is-jeffrey-goldberg.html
+
 **Funding Cuts at Columbia Create ‘Chilling Effect,’ Faculty Lawsuit Says**\
 `The Trump administration’s cancellation of $400 million in aid violates the Constitution, a teachers’ union and a faculty group allege.`\
 https://nytimes.com/2025/03/25/nyregion/columbia-faculty-lawsuit-funding-cuts.html
