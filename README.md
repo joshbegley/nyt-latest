@@ -1,3 +1,7 @@
+**Saint Francis announces plans to reclassify to DIII after NCAA tourney loss**\
+`The university cited the transfer portal, pay-for-play and "other shifts that move athletics away from love of the game" for the move.`\
+https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa/
+
 **The Duty of Law Firms Under Attack**\
 `Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
 https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/us/politics/trump-aurora-migrants.html
 **Ingebrigtsen tells court he was slapped, kicked by father Gjert**\
 `The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
 https://nytimes.com/athletic/6229890/2025/03/25/jakob-ingebrigtsen-trial-father-gjert/
-
-**Women's national title odds: UConn emerges as favorite after JuJu's injury**\
-`UConn has catapulted to the top of the betting board after JuJu Watkins' unfortunate injury. Read for the latest title odds.`\
-https://nytimes.com/athletic/6229662/2025/03/25/womens-march-madness-national-title-odds-uconn-juju-watkins-injury/
 

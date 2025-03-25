@@ -1,3 +1,15 @@
+**The Duty of Law Firms Under Attack**\
+`Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
+https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
+
+**The Atlantic’s editor says the Signal chat contained classified material, contradicting White House denials.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/the-atlantics-editor-says-the-signal-chat-contained-classified-material-contradicting-white-house-denials
+
+**Joey Barton found guilty of assaulting his wife**\
+`The court was told how Barton pushed his wife, Georgia, to the ground before kicking her in the head at their home in 2021.`\
+https://nytimes.com/athletic/6229973/2025/03/25/joey-barton-guilty-assault-wife/
+
 **Letter Raises Questions About Justice Official’s Testimony on Adams Case**\
 `The nominee for deputy attorney general had testified that he had no direct knowledge of administration officials’ decision to abandon the case against New York’s mayor.`\
 https://nytimes.com/2025/03/25/nyregion/todd-blanche-eric-adams-case.html

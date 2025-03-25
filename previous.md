@@ -1,3 +1,15 @@
+**The Duty of Law Firms Under Attack**\
+`Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
+https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
+
+**The Atlantic’s editor says the Signal chat contained classified material, contradicting White House denials.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/the-atlantics-editor-says-the-signal-chat-contained-classified-material-contradicting-white-house-denials
+
+**Joey Barton found guilty of assaulting his wife**\
+`The court was told how Barton pushed his wife, Georgia, to the ground before kicking her in the head at their home in 2021.`\
+https://nytimes.com/athletic/6229973/2025/03/25/joey-barton-guilty-assault-wife/
+
 **Letter Raises Questions About Justice Official’s Testimony on Adams Case**\
 `The nominee for deputy attorney general had testified that he had no direct knowledge of administration officials’ decision to abandon the case against New York’s mayor.`\
 https://nytimes.com/2025/03/25/nyregion/todd-blanche-eric-adams-case.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6229890/2025/03/25/jakob-ingebrigtsen-trial-father-
 **Women's national title odds: UConn emerges as favorite after JuJu's injury**\
 `UConn has catapulted to the top of the betting board after JuJu Watkins' unfortunate injury. Read for the latest title odds.`\
 https://nytimes.com/athletic/6229662/2025/03/25/womens-march-madness-national-title-odds-uconn-juju-watkins-injury/
-
-**Severance**\
-``\
-https://nytimes.com/spotlight/severance-apple-tv
-
-**‘Wine in the Wilderness’ Review: Beauty in Blackness**\
-`Written by Alice Childress in 1969, the play feels just as revelatory more than 50 years later in a new production from Classic Stage Company.`\
-https://nytimes.com/2025/03/25/theater/wine-in-the-wilderness-review.html
-
-**Track and Field to Be First Olympic Sport Requiring DNA Sex Tests for Women**\
-`The change affects women with atypical genetics who have been able to compete if they suppressed their testosterone levels.`\
-https://nytimes.com/2025/03/25/sports/olympic-track-female-sex-tests.html
 
