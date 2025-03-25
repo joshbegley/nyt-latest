@@ -1,3 +1,19 @@
+**At Kabawa, Paul Carmichael Takes a Local Approach to Caribbean Cuisine**\
+`Laliko serves traditional Georgian food in an intimate setting, Sal Lamboglia steps in for Ferdinando’s Focacceria and more restaurant news.`\
+https://nytimes.com/2025/03/25/dining/nyc-restaurant-news.html
+
+**Prime Tire: A trip inside F1's coolest fan zone. Plus: The climb ahead for Lewis Hamilton**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6229676/2025/03/25/lewis-hamilton-ferrari-f1-liam-lawson-prime-tire/
+
+**What I’m Hearing in China This Week About Our Shared Future**\
+`We need the two superpowers to get serious about devising a regulatory and technological framework that keeps A.I. under human control.`\
+https://nytimes.com/2025/03/25/opinion/trump-china-ai.html
+
+**Officials in Leaked Chat Had Criticized Clinton’s Use of Private Email Server**\
+`Defense Secretary Pete Hegseth, who disclosed war plans in a Signal group with a journalist, condemned Mrs. Clinton’s actions in November 2016.`\
+https://nytimes.com/2025/03/25/us/politics/trump-officials-signal-chat-hillary-clinton.html
+
 **Q&A with White Sox GM Chris Getz: 'We're going to win more games than we did last year'**\
 `Getz goes into his second full season with no money to spend and no hope for the present, and yet he’s optimistic.`\
 https://nytimes.com/athletic/6227833/2025/03/25/chicago-white-sox-general-manager-chris-getz/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6229486/2025/03/25/mens-sweet-16-bets-alabama-michi
 **Alexander-Arnold's contract saga has benefited nobody**\
 `The full-back's future seems closer to reaching a resolution, and not a moment too soon`\
 https://nytimes.com/athletic/6229335/2025/03/25/trent-alexander-arnold-liverpool-contract-saga/
-
-**Trump to Name Right-Wing Media Critic Ambassador to South Africa**\
-`L. Brent Bozell III, who must be confirmed by the Senate, would be stepping into the role at a time when relations between South Africa and the United States are at a low point.`\
-https://nytimes.com/2025/03/25/us/politics/trump-bozell-ambassador-south-africa.html
-
-**With a U.S. Ban Looming, TikTok Portrays Itself as a Force for Good**\
-`The popular video app, which could be banned in the United States next month if it is not sold to a non-Chinese owner, is portraying itself as a savior of Americans and a champion of small businesses in a new campaign.`\
-https://nytimes.com/2025/03/25/technology/tiktok-ban-ads.html
-
-**White House Says Russia and Ukraine Agree to Stop Fighting in Black Sea**\
-`The agreement announced after parallel sets of talks in Riyadh would be the first significant step toward the full cease-fire the Trump Administration had been pushing, but it still would fall short.`\
-https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
-
-**Complete Your Mornings by Dunking Your Face Into Cold Water**\
-`Ashton Hall’s unconventional morning routine has drawn close to a billion views, and scores of copycat videos.`\
-https://nytimes.com/2025/03/25/style/ashton-hall-morning-routine-saratoga-water.html
 
