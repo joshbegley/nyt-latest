@@ -1,3 +1,7 @@
+**TCU's Hailey Van Lith opens up about past mental health struggles**\
+`Van Lith told reporters Sunday she had previously been suicidal but has now arrived at a "moment of loving life."`\
+https://nytimes.com/athletic/6229300/2025/03/25/tcu-hailey-van-lith-mental-health/
+
 **J.J. McCarthy: Vikings 'haven't told me' I'm the starting QB**\
 `Minnesota has been linked to four-time NFL MVP Aaron Rodgers this offseason a year after using the No. 10 pick on McCarthy.`\
 https://nytimes.com/athletic/6229386/2025/03/25/jj-mccarthy-vikings-starting-qb-aaron-rodgers/
