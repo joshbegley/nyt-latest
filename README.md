@@ -1,3 +1,11 @@
+**Funding Cuts at Columbia Create ‘Chilling Effect,’ Faculty Lawsuit Says**\
+`The Trump administration’s cancellation of $400 million in aid violates the Constitution, a teachers’ union and a faculty group allege.`\
+https://nytimes.com/2025/03/25/nyregion/columbia-faculty-lawsuit-funding-cuts.html
+
+**Until Saturday: The FBI-wiretap coach is back**\
+`Until Saturday is The Athletic's college sports newsletter.`\
+https://nytimes.com/athletic/6230057/2025/03/25/will-wade-nc-state-hired-until-saturday/
+
 **Who Is Jeffrey Goldberg?**\
 `Mr. Goldberg, who was included on a private text thread discussing war plans, was a longtime national security report who became editor of The Atlantic in 2016.`\
 https://nytimes.com/2025/03/25/business/media/who-is-jeffrey-goldberg.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/sports/olympic-track-female-sex-tests.html
 **Azzi Fudd returning to UConn next season for final year of eligibility**\
 `Fudd, the No. 1 recruit in the 2021 class, has had both an impressive and injury-riddled career with the Huskies.`\
 https://nytimes.com/athletic/6229837/2025/03/25/azzi-fudd-uconn-eligibility-back/
-
-**Stanford fires coach Troy Taylor following investigations into bullying behavior**\
-`New Stanford general manager Andrew Luck made the decision Tuesday to terminate Taylor.`\
-https://nytimes.com/athletic/6219705/2025/03/25/stanford-fires-troy-taylor-andrew-luck/
-
-**Professors Sue Trump Administration Over Arrests of Campus Protesters**\
-`The lawsuit says the detention of noncitizen students and faculty members deprives U.S. citizens of their right to engage with foreign-born peers.`\
-https://nytimes.com/2025/03/25/nyregion/professors-sue-trump.html
 
