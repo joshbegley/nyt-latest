@@ -1,3 +1,7 @@
+**Pohlads seeking at least $1.7B for Twins, have more than $425M in debt on books: Sources**\
+`The Twins are starting to renew the sale process. In talks with one interested group, they deemed a $1.5 billion valuation a non-starter.`\
+https://nytimes.com/athletic/6228151/2025/03/24/minnesota-twins-sale-pohlads-valuation-debt/
+
 **With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
 `With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
 https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/us/politics/tesla-protests-vandalism-musk.html
 **Teen Who Set Off Avalanche Is Fourth Person Killed on Alaska Slopes This Month**\
 `A 16-year-old was riding a snowmobile in the Kenai Mountains when he was swept away and buried, officials said.`\
 https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
-
-**Trump says ‘people from Greenland’ invited U.S. delegation. Greenland wants a word.**\
-`President Trump has vowed to make Greenland part of the United States “one way or the other.”`\
-https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-visits
 
