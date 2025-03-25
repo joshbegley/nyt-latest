@@ -1,3 +1,19 @@
+**Severance**\
+``\
+https://nytimes.com/spotlight/severance-apple-tv
+
+**‘Wine in the Wilderness’ Review: Beauty in Blackness**\
+`Written by Alice Childress in 1969, the play feels just as revelatory more than 50 years later in a new production from Classic Stage Company.`\
+https://nytimes.com/2025/03/25/theater/wine-in-the-wilderness-review.html
+
+**Track and Field to Be First Olympic Sport Requiring DNA Sex Tests for Women**\
+`The change affects women with atypical genetics who have been able to compete if they suppressed their testosterone levels.`\
+https://nytimes.com/2025/03/25/sports/olympic-track-female-sex-tests.html
+
+**Azzi Fudd returning to UConn next season for final year of eligibility**\
+`Fudd, the No. 1 recruit in the 2021 class, has had both an impressive and injury-riddled career with the Huskies.`\
+https://nytimes.com/athletic/6229837/2025/03/25/azzi-fudd-uconn-eligibility-back/
+
 **Stanford fires coach Troy Taylor following investigations into bullying behavior**\
 `New Stanford general manager Andrew Luck made the decision Tuesday to terminate Taylor.`\
 https://nytimes.com/athletic/6219705/2025/03/25/stanford-fires-troy-taylor-andrew-luck/
