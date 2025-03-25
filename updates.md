@@ -1,3 +1,11 @@
+**Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
+`The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
+https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html
+
+**99 Degrees? In March?! Phoenix Shatters a Heat Record.**\
+`Much of the West and Southwest faced unseasonably warm temperatures this week. But it won’t last long.`\
+https://nytimes.com/2025/03/25/weather/phoenix-heat-temperature.html
+
 **Argentina qualify for 2026 World Cup after Bolivia draw with Uruguay**\
 `Argentina join the three host nations alongside Japan, New Zealand and Iran in the 48-team competition.`\
 https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup/
