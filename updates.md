@@ -1,3 +1,11 @@
+**Q&A with White Sox GM Chris Getz: 'We're going to win more games than we did last year'**\
+`Getz goes into his second full season with no money to spend and no hope for the present, and yet he’s optimistic.`\
+https://nytimes.com/athletic/6227833/2025/03/25/chicago-white-sox-general-manager-chris-getz/
+
+**‘The Studio’ Review: He Is Decades Too Late for His Close-Up**\
+`Seth Rogen plays a stressed-out movie bigwig in a satire of an industry in decline.`\
+https://nytimes.com/2025/03/25/arts/television/the-studio-review-seth-rogen.html
+
 **Bournemouth pledge to match Andoni Iraola's coaching ambitions**\
 `Iraola's side are currently 10th in the Premier League but five points off fifth and possible Champions League qualification.`\
 https://nytimes.com/athletic/6229096/2025/03/25/andoni-iraola-bournemouth-future/
