@@ -1,6 +1,6 @@
 **Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
 `Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
-https://nytimes.com/2025/03/25/us/politics/will-doj-fbi-investigate-signal-leak.html
+https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html
 
 **With the Signal Snafu, Michael Waltz Is Thrust Into the Spotlight**\
 `The national security adviser, already embattled, is taking the brunt of the criticism.`\
