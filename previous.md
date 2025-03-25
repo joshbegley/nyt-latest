@@ -1,3 +1,11 @@
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`The Steelers landed DK Metcalf but still don't have a starting quarterback. Got questions? Mike is here to answer them.`\
+https://nytimes.com/athletic/6230167/2025/03/25/steelers-mailbag-nfl-free-agency/
+
+**Full Time: Instant reaction to the USWNT's April roster**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6230112/2025/03/25/uswnt-april-roster-brazil-full-time/
+
 **Tuchel concerned by Club World Cup reducing players' rest period**\
 `The month-long tournament commences on June 14 in the United States and will include some of the biggest clubs in world football,`\
 https://nytimes.com/athletic/6228883/2025/03/25/tuchel-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa
 **The Duty of Law Firms Under Attack**\
 `Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
 https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
-
-**The Atlantic’s editor says the Signal chat contained classified material, contradicting White House denials.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/the-atlantics-editor-says-the-signal-chat-contained-classified-material-contradicting-white-house-denials
-
-**Joey Barton found guilty of assaulting his wife**\
-`The court was told how Barton pushed his wife, Georgia, to the ground before kicking her in the head at their home in 2021.`\
-https://nytimes.com/athletic/6229973/2025/03/25/joey-barton-guilty-assault-wife/
 
