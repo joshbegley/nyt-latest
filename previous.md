@@ -1,5 +1,5 @@
 **Red Wings thoughts: What can be learned from an 'ugly' win in Utah?**\
-`The Red Wings' win in Utah wasn't pretty, but it pulled them back within three points of a playoff spot, and showed some key developments.`\
+`The Red Wings' win in Utah wasn't pretty, but it pulled them back within 3 points of a playoff spot and showed some key developments.`\
 https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
 
 **'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
