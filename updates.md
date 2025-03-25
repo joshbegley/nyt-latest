@@ -1,3 +1,11 @@
+**Japanese Court Disbands Unification Church in Wake of Abe Killing**\
+`The assassination in 2022 of Shinzo Abe, the country’s former prime minister, led to an investigation into the group’s political ties and manipulation of its followers to raise funds.`\
+https://nytimes.com/2025/03/25/world/asia/japanese-court-church-disband.html
+
+**Former Spurs defender Vertonghen to retire at end of 2024-25**\
+`Vertonghen made 315 appearances for Spurs between 2012 and 2020, helping the club reach the Champions League final in 2019.`\
+https://nytimes.com/athletic/6229049/2025/03/25/jan-vertonghen-tottenham-retiring/
+
 **Drance: Why Canucks' survival instinct is a weapon in the wild-card race**\
 `The playoff odds aren't in the Canucks' favour, but if the task is to survive, it sure helps to be tough to kill.`\
 https://nytimes.com/athletic/6228800/2025/03/25/vancouver-canucks-nhl-wild-card-race/
