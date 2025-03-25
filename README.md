@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6229049/2025/03/25/jan-vertonghen-tottenham-retirin
 https://nytimes.com/athletic/6228800/2025/03/25/vancouver-canucks-nhl-wild-card-race/
 
 **Giannis unplugged: On MVP slights, Bucks' struggles and what's 'better than intimacy'**\
-`The Milwaukee superstar's metronomic brilliance may be getting overlooked in the MVP race, but he says all he cares about is winning.`\
+`The Milwaukee superstar's metronomic brilliance might be getting overlooked in the MVP race, but he says all he cares about is winning.`\
 https://nytimes.com/athletic/6228798/2025/03/25/giannis-antetokounmpo-bucks-mvp-interview/
 
 **Democrats and some Republicans say the sharing of war plans with a journalist was a serious error.**\
