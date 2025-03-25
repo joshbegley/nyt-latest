@@ -1,3 +1,11 @@
+**Federal Judge Blocks Iowa Law Restricting Sexually Explicit School Books**\
+`The ruling is a victory for the publishers and free speech advocates who challenged the law, but the judge’s decision is far from final.`\
+https://nytimes.com/2025/03/25/us/iowa-books-ruling.html
+
+**Declaring Their Party ‘Spineless,’ Democrats Try an Economic Populist Pitch**\
+`A group of House Democrats calling themselves the New Economic Patriots introduced themselves on Capitol Hill promising to lead their party out of its funk. It wasn’t clear how they planned to do so.`\
+https://nytimes.com/2025/03/25/us/politics/new-economic-patriots-house-democrats.html
+
 **Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
 `Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
 https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html

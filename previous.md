@@ -1,3 +1,11 @@
+**Federal Judge Blocks Iowa Law Restricting Sexually Explicit School Books**\
+`The ruling is a victory for the publishers and free speech advocates who challenged the law, but the judge’s decision is far from final.`\
+https://nytimes.com/2025/03/25/us/iowa-books-ruling.html
+
+**Declaring Their Party ‘Spineless,’ Democrats Try an Economic Populist Pitch**\
+`A group of House Democrats calling themselves the New Economic Patriots introduced themselves on Capitol Hill promising to lead their party out of its funk. It wasn’t clear how they planned to do so.`\
+https://nytimes.com/2025/03/25/us/politics/new-economic-patriots-house-democrats.html
+
 **Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
 `Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
 https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/us/democrats-hegseth-waltz-resign-signal.html
 **JD Vance to Lead High-Powered U.S. Visit to Greenland**\
 `Amid President Trump’s push to take over the world’s largest island, the administration says it is sending the vice president to visit a military base there.`\
 https://nytimes.com/2025/03/25/world/americas/jd-vance-greenland-visit.html
-
-**McNeese MBB hires Bill Armstrong to replace Will Wade**\
-`Armstrong, who has a reputation for being a talented recruiter, spent this past season at Baylor under head coach Scott Drew.`\
-https://nytimes.com/athletic/6230699/2025/03/25/mcneese-bill-armstrong-mens-basketball-hire/
-
-**Lou Nasti, Who Brought Christmas Displays to Extravagant Life, Dies at 79**\
-`A robotics specialist, he animated puppets and dolls for displays worldwide. His “Toyland,” with a two-story-high Santa, drew sightseers to a Brooklyn home for years.`\
-https://nytimes.com/2025/03/25/nyregion/lou-nasti-dead.html
 
