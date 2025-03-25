@@ -1,3 +1,15 @@
+**'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
+`The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
+https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
+
+**Jon Stewart Thinks He May Be in the ‘Bomb Yemen’ Chat Group**\
+`The “Daily Show” host suspects that he, too, might have been invited to a discussion of secret war plans by a bumbling official in the Trump administration.`\
+https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
+
+**Word of the Day: talisman**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
+
 **Trump Officials Texted War Plans on Signal App**\
 `Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. plans to attack Yemen using a commercial messaging app.`\
 https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html

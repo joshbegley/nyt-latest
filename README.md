@@ -1,3 +1,7 @@
+**Red Wings thoughts: What can be learned from an 'ugly' win in Utah?**\
+`The Red Wings' win in Utah wasn't pretty, but it pulled them back within three points of a playoff spot, and showed some key developments.`\
+https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
+
 **'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
 `The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
 https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6221546/2025/03/25/andre-onana-long-passes-manchest
 **Lewis-Skelly, Nwaneri futures? Saka to face Real? Calafiori - Arsenal writers discuss your queries**\
 `Our club writers discuss some of the talking points subscribers have raised in the past week`\
 https://nytimes.com/athletic/6223568/2025/03/25/arsenal-lewis-skelly-nwaneri-calafiori/
-
-**Brazil are trapped in a cycle of apathy - just as rivals Argentina thrive**\
-`Brazil look certain to qualify for the 2026 World Cup but scratch beneath the surface and you'll find a team drifting aimlessly yet again`\
-https://nytimes.com/athletic/6226921/2025/03/25/brazil-argentina-world-cup-2026/
 
