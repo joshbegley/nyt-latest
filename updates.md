@@ -1,3 +1,15 @@
+**Without Nikola Jokić and Aaron Gordon, 'dead tired' Nuggets lose at home to Bulls**\
+`With two of their better players out and playing their third game in four nights, the Nuggets couldn't keep pace with the running Bulls. `\
+https://nytimes.com/athletic/6228681/2025/03/25/nikola-jokic-jamal-murray-nuggets-bulls/
+
+**Israeli Police Question Palestinian Oscar Winner Who Witnesses Said Was Beaten**\
+`Witnesses said that Hamdan Ballal was assaulted by masked settlers in his home village. The Israeli military said he was detained on suspicion of throwing stones, which he denies.`\
+https://nytimes.com/2025/03/25/world/middleeast/israel-police-hamdan-ballal-palestinian.html
+
+**The Joao Fonseca tennis festival has left Miami - but it's about to go global**\
+`The support for Fonseca turned the Miami Open into a carnival. Many more tournaments can expect a similar phenomenon.`\
+https://nytimes.com/athletic/6228661/2025/03/25/tennis-joao-fonseca-brazil-fans/
+
 **Listen: Will it ever happen for Phil Foden with England?**\
 `The Totally Football Show discussed whether Phil Foden will ever be able to replicate his Manchester City form in an England shirt`\
 https://nytimes.com/athletic/6226905/2025/03/25/totally-football-show-england-phil-foden/
