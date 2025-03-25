@@ -1,3 +1,7 @@
+**Mariners, Cal Raleigh agree to 6-year, $105 million extension: Source**\
+`Raleigh, 28, won his first Gold Glove last season while leading Seattle with a career-high 34 home runs and 100 RBI.`\
+https://nytimes.com/athletic/6230302/2025/03/25/mainers-cal-raleigh-contract-extension/
+
 **How Secure Is Signal, Anyway?**\
 `The app, which was introduced in 2014 and has hundreds of millions of users, is widely viewed as the safest messaging tool because of its encryption technology.`\
 https://nytimes.com/2025/03/25/technology/signal-app-security-leak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/world/asia/canada-election-india-china.html
 **Michael Boudin, Independent Judge From a Family on the Left, Dies at 85**\
 `His rulings on the U.S. bench might have rankled his father, a civil liberties lawyer; his uncle, a muckraking journalist; and his sister, an imprisoned radical.`\
 https://nytimes.com/2025/03/25/obituaries/michael-boudin-dead.html
-
-**Horace Hale Harvey III, a Pioneer in Providing Abortions, Dies at 93**\
-`A religious organization recruited him to help open New York City’s first independent abortion clinic, though it was unaware that Louisiana had taken away his license.`\
-https://nytimes.com/2025/03/25/health/horace-hale-harvey-dead.html
 

@@ -1,3 +1,7 @@
+**Mariners, Cal Raleigh agree to 6-year, $105 million extension: Source**\
+`Raleigh, 28, won his first Gold Glove last season while leading Seattle with a career-high 34 home runs and 100 RBI.`\
+https://nytimes.com/athletic/6230302/2025/03/25/mainers-cal-raleigh-contract-extension/
+
 **How Secure Is Signal, Anyway?**\
 `The app, which was introduced in 2014 and has hundreds of millions of users, is widely viewed as the safest messaging tool because of its encryption technology.`\
 https://nytimes.com/2025/03/25/technology/signal-app-security-leak.html
