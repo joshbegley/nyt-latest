@@ -1,3 +1,7 @@
+**Inside A.I.’s Super Bowl: Nvidia Dreams of a Robot Future**\
+`Nvidia showcased robots that could work in warehouses, pedal around like ‘Star Wars’ droids and manipulate surgical equipment at its weeklong A.I. conference`\
+https://nytimes.com/2025/03/25/technology/nvidia-ai-robots.html
+
 **Trump’s Crypto Venture Introduces New Digital Currency**\
 `World Liberty Financial, the crypto business created by President Trump and his sons, unveiled a cryptocurrency called a stablecoin, furthering his ties to an industry his administration regulates.`\
 https://nytimes.com/2025/03/25/technology/trump-crypto-stablecoin.html
