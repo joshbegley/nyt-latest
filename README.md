@@ -1,3 +1,7 @@
+**Four Top Trump Officials Are Set to Brief G.O.P. Donors in April**\
+`A donor network co-founded by Vice President JD Vance is set to host Robert F. Kennedy Jr., Scott Bessent, Tulsi Gabbard and Steve Witkoff.`\
+https://nytimes.com/2025/03/25/us/politics/vance-rockbridge-rfk-gabbard-bessent-witkoff.html
+
 **Republicans in Congress React to Signal Chat Leak With Collective Shrug**\
 `A few G.O.P. lawmakers said they would look into the breach, but party leaders largely tempered their criticism of the Trump administration.`\
 https://nytimes.com/2025/03/25/us/politics/republicans-congress-signal-leak.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochetti
 **Who Is Michael Waltz?**\
 `The national security adviser has been walking a tightrope even before the disclosure of the group chat.`\
 https://nytimes.com/2025/03/25/us/who-is-michael-waltz.html
-
-**Watch: If both quarterbacks get drafted, is Travis Hunter the best fit for the Giants?**\
-`"The Athletic Football Show" discusses why the Giants should select Travis Hunter at three and why he can play both sides of the ball.`\
-https://nytimes.com/athletic/6228955/2025/03/25/athletic-football-show-new-york-giants-draft-travis-hunter/
 
