@@ -1,3 +1,7 @@
+**Blatter, Platini cleared of corruption at Swiss court**\
+`Blatter and Platini had initially been cleared of fraud in July 2022, before this case was heard at a Swiss appeals court.`\
+https://nytimes.com/athletic/6228938/2025/03/25/blatter-platini-trial-corruption-fifa/
+
 **Women's March Madness projections 2025: Does UConn have the advantage?**\
 `What's your team's chance of winning? Find out here. `\
 https://nytimes.com/athletic/6198041/2025/03/25/womens-march-madness-projections-2025-full-ncaa-tournament-bracket-odds/
