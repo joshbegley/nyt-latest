@@ -1,3 +1,15 @@
+**Column: JuJu Watkins' absence from March Madness hurts USC and pains women's basketball**\
+`Watkins' suffered a season-ending knee injury in the second round. The ramifications extend beyond the Trojans.`\
+https://nytimes.com/athletic/6228752/2025/03/25/juju-watkins-injury-usc-sweet-16/
+
+**Alec Bohm's offseason bubble: After a winter without social media — and trade rumors — he's still here**\
+`Given how the 2024 season ended, Bohm needed to breathe. He found his refuge in Texas and constructed a bubble from the rest of the world. `\
+https://nytimes.com/athletic/6227834/2025/03/25/alec-bohm-offseason-social-media-phillies-trade-rumors/
+
+**The Pulse: A superstar goes down**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6227319/2025/03/25/juju-watkins-injury-ncaa-the-pulse/
+
 **25 MLB predictions for 2025 season: Vlad Jr. extended? Cease to O's? Phillies sign Tucker?**\
 `Baseball is back, so let’s have some fun with it. Here are my 25 predictions for the 2025 season and subsequent offseason.`\
 https://nytimes.com/athletic/6228831/2025/03/25/mlb-predictions-2025-vladimir-guerrero-extension-kyle-tucker-phillies/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6226872/2025/03/25/james-dolan-adam-silver-owner-co
 **2025 NHL Draft ranking: Scott Wheeler’s March top 64 list**\
 `Schaefer and Misa have cemented their place as the top two players in the 2025 draft class in Wheeler's latest update.`\
 https://nytimes.com/athletic/6194607/2025/03/25/nhl-draft-prospects-2025-rankings-top-64/
-
-**How BYU's NCAA Tournament run is improving Egor Demin's once-falling NBA Draft stock**\
-`Demin saw his draft stock slip this year, but he has been the catalyst for the Cougars in this NCAA Tournament.`\
-https://nytimes.com/athletic/6227562/2025/03/25/byu-sweet-16-egor-demin-nba-draft/
-
-**Five months later, the inside story of Freddie Freeman's World Series walk-off grand slam**\
-`An account of the stunning turn of events — the leadup, the moment and the aftermath — told mostly in the words of those involved.`\
-https://nytimes.com/athletic/6226629/2025/03/25/world-series-walkoff-grand-slam-freddie-freeman-mlb-history/
-
-**Blue Jackets snap six-game losing streak with comeback win over Islanders**\
-`Sean Monahan and Erik Gudbranson returned from lengthy absences in a win dominated by two goaltender interference reviews.`\
-https://nytimes.com/athletic/6228554/2025/03/25/blue-jackets-goaltender-interference-fantilli-islanders/
 
