@@ -1,3 +1,19 @@
+**What to Know About the Fallout From the Signal Group Chat Leak**\
+`President Trump is defending his national security adviser, Michael Waltz, after the extraordinary disclosure.`\
+https://nytimes.com/2025/03/25/us/politics/war-plans-signal-chat-what-to-know.html
+
+**‘Being Maria’ Review: The Muse’s Side of the Story**\
+`Starring Anamaria Vartolomei and Matt Dillon, this French drama chronicles the life of the actress Maria Schneider after her traumatic experience on the set of “Last Tango in Paris.”`\
+https://nytimes.com/2025/03/25/movies/being-maria-review.html
+
+**Now Europe Knows What Trump’s Team Calls It Behind Its Back: ‘Pathetic’**\
+`Trump officials have demanded more European military spending and questioned the continent’s values. Leaked messages show the depth of the rift.`\
+https://nytimes.com/2025/03/25/world/europe/signal-jeffrey-goldberg-message-hegseth.html
+
+**NBA Power Rankings: Thunder on top, Pacers make move as we spin through rotations**\
+`Golden State climbs into the top contenders tier, while the Lakers and Nuggets drop.`\
+https://nytimes.com/athletic/6228926/2025/03/25/nba-power-rankings-thunder-pacers-bulls-lakers-warriors/
+
 **The Joao Fonseca tennis carnival has left Miami – but it's about to go global**\
 `The support for Fonseca turned the Miami Open into a carnival. Many more tournaments can expect a similar phenomenon.`\
 https://nytimes.com/athletic/6228661/2025/03/25/tennis-joao-fonseca-brazil-fans/
