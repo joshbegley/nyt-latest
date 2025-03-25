@@ -1,3 +1,11 @@
+**Drance: Why Canucks' survival instinct is a weapon in the wild-card race**\
+`The playoff odds aren't in the Canucks' favour, but if the task is to survive, it sure helps to be tough to kill.`\
+https://nytimes.com/athletic/6228800/2025/03/25/vancouver-canucks-nhl-wild-card-race/
+
+**Giannis unplugged: On MVP slights, Bucks' struggles and what's 'better than intimacy'**\
+`The Milwaukee superstar's metronomic brilliance may be getting overlooked in the MVP race, but he says all he cares about is winning.`\
+https://nytimes.com/athletic/6228798/2025/03/25/giannis-antetokounmpo-bucks-mvp-interview/
+
 **Democrats and some Republicans say the sharing of war plans with a journalist was a serious error.**\
 `By Enjoli Liston`\
 https://nytimes.com/live/2025/03/25/us/trump-administration-updates/democrats-and-some-republicans-say-the-sharing-of-war-plans-with-a-journalist-was-a-serious-error
