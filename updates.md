@@ -1,3 +1,15 @@
+**Stanford fires coach Troy Taylor following investigations into bullying behavior**\
+`New Stanford general manager Andrew Luck made the decision Tuesday to terminate Taylor.`\
+https://nytimes.com/athletic/6219705/2025/03/25/stanford-fires-troy-taylor-andrew-luck/
+
+**Professors Sue Trump Administration Over Arrests of Campus Protesters**\
+`The lawsuit says the detention of noncitizen students and faculty members deprives U.S. citizens of their right to engage with foreign-born peers.`\
+https://nytimes.com/2025/03/25/nyregion/professors-sue-trump.html
+
+**Depardieu Admits Grabbing a Female Colleague but Denies Sexual Assault**\
+`The French actor testified in court for first time against accusations that he groped a co-worker, after years of serious allegations over his behavior.`\
+https://nytimes.com/2025/03/25/gerard-depardieu-trial-sexual-assault-france.html
+
 **At Kabawa, Paul Carmichael Takes a Local Approach to Caribbean Cuisine**\
 `Laliko serves traditional Georgian food in an intimate setting, Sal Lamboglia steps in for Ferdinando’s Focacceria and more restaurant news.`\
 https://nytimes.com/2025/03/25/dining/nyc-restaurant-news.html
