@@ -1,3 +1,7 @@
+**Bournemouth pledge to match Andoni Iraola's coaching ambitions**\
+`Iraola's side are currently 10th in the Premier League but five points off fifth and possible Champions League qualification.`\
+https://nytimes.com/athletic/6229096/2025/03/25/andoni-iraola-bournemouth-future/
+
 **Capitals, Jakob Chychrun agree to 8-year, $72-million extension**\
 `Chychrun joined the Capitals last July as part of a trade and has matched his career-high with 18 goals this season`\
 https://nytimes.com/athletic/6229474/2025/03/25/capitals-jakob-chychrun-extension/

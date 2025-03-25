@@ -1,3 +1,7 @@
+**Bournemouth pledge to match Andoni Iraola's coaching ambitions**\
+`Iraola's side are currently 10th in the Premier League but five points off fifth and possible Champions League qualification.`\
+https://nytimes.com/athletic/6229096/2025/03/25/andoni-iraola-bournemouth-future/
+
 **Capitals, Jakob Chychrun agree to 8-year, $72-million extension**\
 `Chychrun joined the Capitals last July as part of a trade and has matched his career-high with 18 goals this season`\
 https://nytimes.com/athletic/6229474/2025/03/25/capitals-jakob-chychrun-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229300/2025/03/25/tcu-hailey-van-lith-mental-healt
 **J.J. McCarthy: Vikings 'haven't told me' I'm the starting QB**\
 `Minnesota has been linked to four-time NFL MVP Aaron Rodgers this offseason a year after using the No. 10 pick on McCarthy.`\
 https://nytimes.com/athletic/6229386/2025/03/25/jj-mccarthy-vikings-starting-qb-aaron-rodgers/
-
-**The White House claims the Signal chat did not include war plans, despite it containing specific Yemen strike details.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/white-house-claims-the-signal-chat-did-not-include-war-plans-despite-it-containing-specific-yemen-strike-details
 
