@@ -1,3 +1,19 @@
+**From Club America to Al Nassr: Who should replace Club Leon at the FIFA Club World Cup?**\
+`There is an argument for LAFC or Alajuelense to step up, but the tournament might benefit more from a dose of Cristiano Ronaldo or Deadpool`\
+https://nytimes.com/athletic/6226267/2025/03/25/fifa-club-world-cup-leon-replacements-manchester-united-leeds-ronaldo/
+
+**Tuesday Briefing**\
+`An extraordinary security breach.`\
+https://nytimes.com/2025/03/25/briefing/signal-strikes-israel.html
+
+**The New York Times in Print for Tuesday, March 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/25/todays-new-york-times
+
+**Trump Has Broken the West in Two**\
+`Large global powers set the tectonic shifts of geopolitics in motion. Small players have always had to figure out how to survive in the cracks in between.`\
+https://nytimes.com/2025/03/25/opinion/trump-foreign-policy-west.html
+
 **Goalie duel, fizzling power play and balancing Jonas Brodin's injury: Wild takeaways**\
 `The Wild put together a mighty effort but couldn't crack Dallas' Jake Oettinger in a 3-0 loss.`\
 https://nytimes.com/athletic/6228296/2025/03/25/wild-oettinger-brodin-power-play-stars/

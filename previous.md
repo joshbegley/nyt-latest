@@ -1,3 +1,19 @@
+**From Club America to Al Nassr: Who should replace Club Leon at the FIFA Club World Cup?**\
+`There is an argument for LAFC or Alajuelense to step up, but the tournament might benefit more from a dose of Cristiano Ronaldo or Deadpool`\
+https://nytimes.com/athletic/6226267/2025/03/25/fifa-club-world-cup-leon-replacements-manchester-united-leeds-ronaldo/
+
+**Tuesday Briefing**\
+`An extraordinary security breach.`\
+https://nytimes.com/2025/03/25/briefing/signal-strikes-israel.html
+
+**The New York Times in Print for Tuesday, March 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/25/todays-new-york-times
+
+**Trump Has Broken the West in Two**\
+`Large global powers set the tectonic shifts of geopolitics in motion. Small players have always had to figure out how to survive in the cracks in between.`\
+https://nytimes.com/2025/03/25/opinion/trump-foreign-policy-west.html
+
 **Goalie duel, fizzling power play and balancing Jonas Brodin's injury: Wild takeaways**\
 `The Wild put together a mighty effort but couldn't crack Dallas' Jake Oettinger in a 3-0 loss.`\
 https://nytimes.com/athletic/6228296/2025/03/25/wild-oettinger-brodin-power-play-stars/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/25/business/economy/us-infrastructure-federal-cuts.h
 **What Makes Sydney’s New Beach Different? It’s 50 Miles Inland.**\
 `It’s no Bondi Beach, but Pondi, or Penrith Beach, has been a welcome relief to the city’s sweltering western suburbs.`\
 https://nytimes.com/2025/03/25/world/australia/sydney-pondi-beach.html
-
-**Dressing Like an Artist? There’s an Art to That.**\
-`An exhibition at the Louvre-Lens in France examines centuries of interplay between art and fashion, including what the sartorial choices of artists revealed about their place in society.`\
-https://nytimes.com/2025/03/25/arts/design/art-of-dressing-louvre-lens-museum-exhibition.html
-
-**Connections: Sports Edition Coach: Hints for March 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6228388/2025/03/25/connections-sports-edition-hints-for-march-25-2025/
-
-**Atlanta Drive beats New York Golf Club 6-5 in Match 1 of TGL championship**\
-`Patrick Cantlay sank the winning putt but Billy Horschel put on a show in the SoFi Center against New York.`\
-https://nytimes.com/athletic/6228599/2025/03/25/tgl-finals-atlanta-drive-new-york-match-one/
-
-**China Frees Employees of U.S. Consulting Firm After 2-Year Detention**\
-`The release of the five employees, detained during a crackdown on foreign due diligence, comes as Beijing is trying to bring back overseas investment.`\
-https://nytimes.com/2025/03/24/world/asia/china-mintz-release-us.html
 
