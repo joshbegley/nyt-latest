@@ -1,3 +1,7 @@
+**A Palestinian Director of ‘No Other Land’ Is Attacked and Detained, Witnesses Say**\
+`Hamdan Ballal was assaulted by masked attackers in his home village in the Israeli-occupied West Bank, witnesses said. The Israeli military said he had been detained for questioning.`\
+https://nytimes.com/2025/03/24/world/middleeast/no-other-land-director-attack.html
+
 **The Importance of Being SpaceX**\
 `Tesla might be suffering, but SpaceX is poised to profit off billions in new government contracts`\
 https://nytimes.com/2025/03/24/us/politics/musk-spacex.html

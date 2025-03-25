@@ -1,3 +1,7 @@
+**With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
+`With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
+https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
+
 **The Importance of Being SpaceX**\
 `Tesla might be suffering, but SpaceX is poised to profit off billions in new government contracts`\
 https://nytimes.com/2025/03/24/us/politics/musk-spacex.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/24/us/alaska-avalanche-teen-killed.html
 **Trump says ‘people from Greenland’ invited U.S. delegation. Greenland wants a word.**\
 `President Trump has vowed to make Greenland part of the United States “one way or the other.”`\
 https://nytimes.com/live/2025/03/24/us/trump-news/trump-vance-waltz-greenland-visits
-
-**College basketball's transfer portal is open: Which big names jumped in on Day 1?**\
-`The portal will remain open until April 22, but there was a flurry of activity Monday.`\
-https://nytimes.com/athletic/6227756/2025/03/24/transfer-portal-ncaa-basketball-2025/
 
