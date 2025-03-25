@@ -1,3 +1,7 @@
+**With a U.S. Ban Looming, TikTok Portrays Itself as a Force for Good**\
+`The popular video app, which could be banned in the United States next month if it is not sold to a non-Chinese owner, is portraying itself as a savior of Americans and a champion of small businesses in a new campaign.`\
+https://nytimes.com/2025/03/25/technology/tiktok-ban-ads.html
+
 **White House Says Russia and Ukraine Agree to Stop Fighting in Black Sea**\
 `The agreement announced after parallel sets of talks in Riyadh would be the first significant step toward the full cease-fire the Trump Administration had been pushing, but it still would fall short.`\
 https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
