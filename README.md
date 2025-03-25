@@ -1,3 +1,11 @@
+**The White House claims the Signal chat did not include war plans, despite it containing specific Yemen strike details.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/white-house-claims-the-signal-chat-did-not-include-war-plans-despite-it-containing-specific-yemen-strike-details
+
+**Rodman included in Hayes' USWNT roster for Olympic rematch games against Brazil**\
+`Notable absences from the U.S. squad include Naomi Girma, Rose Lavelle and Mallory Swanson`\
+https://nytimes.com/athletic/6229169/2025/03/25/uswnt-brazil-roster-emma-hayes/
+
 **The Winnipeg Jets are still Stanley Cup contenders, even as adversity strikes**\
 `Even as the Jets' points pace has fallen from best in the league to average, Winnipeg still looks good by a lot of indicators.`\
 https://nytimes.com/athletic/6227718/2025/03/25/winnipeg-jets-remain-stankley-cup-contenders/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/science/foie-gras-ducks-geese-physics.html
 **5 Books on Healing From Trauma**\
 `Neuroscientists, psychologists and other experts share the titles they recommend most.`\
 https://nytimes.com/2025/03/25/well/trauma-books.html
-
-**Inside A.I.’s Super Bowl: Nvidia Dreams of a Robot Future**\
-`Nvidia showcased robots that could work in warehouses, pedal around like ‘Star Wars’ droids and manipulate surgical equipment at its weeklong A.I. conference`\
-https://nytimes.com/2025/03/25/technology/nvidia-ai-robots.html
-
-**UNLV to hire Josh Pastner as next basketball coach: Source**\
-`Pastner is the second high-profile coach UNLV athletic director Erick Harper has hired away from ESPN.`\
-https://nytimes.com/athletic/6229366/2025/03/25/unlv-hires-josh-pastner-espn-georgia/
 
