@@ -1,3 +1,7 @@
+**Arsenal's Ethan Nwaneri has a signature goal already**\
+`A curling shot from the edge of the D, Nwaneri scored his trademark goal for England's under-21s - it's a skill he continues to hone`\
+https://nytimes.com/athletic/6227929/2025/03/25/ethan-nwaneri-goal-england-arsenal/
+
 **Wide players will be key to Thomas Tuchel's England - and he cannot squeeze them all in**\
 `Marcus Rashford and Jarrod Bowen were effective against Latvia but the new coach also has Bukayo Saka, Phil Foden, Eberechi Eze and more `\
 https://nytimes.com/athletic/6222562/2025/03/25/england-thomas-tuchel-rashford-foden-bowen-eze/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
 **'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
 `The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
 https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
-
-**Word of the Day: talisman**\
-`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/25/learning/word-of-the-day-talisman.html
 
