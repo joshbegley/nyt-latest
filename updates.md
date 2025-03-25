@@ -1,3 +1,11 @@
+**Why did Dick's Sporting Goods buy a Paul Skenes card? History shows it can pay off**\
+`Dick's Sporting Goods raised eyebrows by buying the Paul Skenes MLB Debut Patch card for $1.11 million last week`\
+https://nytimes.com/athletic/6223281/2025/03/25/skenes-debut-patch-dicks-sporting-goods/
+
+**Girls to the Front: Punk Pioneers Are Coming to Lincoln Center**\
+`The institution’s annual American Songbook series honors “singer outsiders” including Fanny and Poly Styrene in events curated by Kathleen Hanna and Tamar-kali.`\
+https://nytimes.com/2025/03/25/arts/music/lincoln-center-american-songbook-punk-women.html
+
 **Without Nikola Jokić and Aaron Gordon, 'dead tired' Nuggets lose at home to Bulls**\
 `With two of their better players out and playing their third game in four nights, the Nuggets couldn't keep pace with the running Bulls. `\
 https://nytimes.com/athletic/6228681/2025/03/25/nikola-jokic-jamal-murray-nuggets-bulls/
