@@ -1,3 +1,16 @@
+**Leaked War Plans, and the Trouble with Off-channel Messaging**\
+`Revelations that President Trump’s inner circle discussed sensitive military details on Signal has jolted Washington. What comes next could also be closely watched by Wall Street.`\
+https://nytimes.com/2025/03/25/business/dealbook/signal-yemen-leak-atlantic-hegseth.html
+
+**Argentina vs Brazil: Best bets for international football’s greatest grudge match**\
+`Sam Tighe outlines the best betting markets to wager on ahead of this evening’s CONMEBOL grudge match between Argentina and Brazil. 
+`\
+https://nytimes.com/athletic/6228981/2025/03/25/argentina-brazil-conmebol-betting-preview-odds-predictions/
+
+**Weekly Student News Quiz: Deportations, Columbia University, Happiness Report**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/03/25/learning/25StudentNewsQuiz.html
+
 **The Athletic FC: How to become an international team; who should join the Club World Cup?**\
 `Today in TAFC: How to become an international team, why there is apathy in Brazil and who should take the spare spot at the Club World Cup`\
 https://nytimes.com/athletic/6228886/2025/03/25/how-to-become-an-international-team-who-should-join-the-club-world-cup/
@@ -6,11 +19,15 @@ https://nytimes.com/athletic/6228886/2025/03/25/how-to-become-an-international-t
 `In 2024, no player swung the Padres’ fortunes as dramatically as then-rookie Merrill. This season, he appears poised to make another leap.`\
 https://nytimes.com/athletic/6228531/2025/03/25/jackson-merrill-padres-opening-day-mlb/
 
+**2025 Davis Cup Finals confirmed for Bologna, Italy will host until 2028**\
+`The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
+https://nytimes.com/athletic/5963156/2025/03/25/davis-cup-finals-dates-bologna-italy-host/
+
 **In Year 1 of the post-Caitlin Clark era, Iowa women's basketball took a positive step**\
 `“I think the year was pivotal,” Iowa coach Jan Jensen said. “I think it was successful.`\
 https://nytimes.com/athletic/6228792/2025/03/25/iowa-oklahoma-tournament-caitlin-clark/
 
-**Mead, Kirby return to England squad for Nations League double header with Belgium**\
+**Mead, Kirby back in England squad for Nations League games vs Belgium**\
 `Sarina Wiegman's side face Belgium on Friday, April 4 at Bristol City’s Ashton Gate before they travel to Leuven on Tuesday, April 8.`\
 https://nytimes.com/athletic/6228960/2025/03/25/england-women-squad-belgium-nations-league/
 
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6227940/2025/03/25/astros-gm-dana-brown-straight-sh
 **Madrid working to close deal to sign Alexander-Arnold as free agent**\
 `The Liverpool vice-captain's contract runs out in June, while Madrid have been monitoring his situation for two years.`\
 https://nytimes.com/athletic/5657716/2025/03/25/alexander-arnold-real-madrid-liverpool/
-
-**How will Celtics owner Bill Chisholm handle spotlight? And more questions for new boss**\
-`What new Celtics owner Bill Chisholm does this summer should send a clear message to fans.`\
-https://nytimes.com/athletic/6228040/2025/03/25/celtics-sale-owner-bill-chisholm-questions/
-
-**Sarris: 10 bold predictions for the 2025 MLB season**\
-`After getting half of the bold predictions correct last season, it's time to get bolder and spicier this time around.`\
-https://nytimes.com/athletic/6191684/2025/03/25/sarris-ten-bold-predictions-2025-mlb-season/
-
-**Despite key injuries and questions, there are reasons to feel good about the Yankees**\
-`Gerrit Cole is out for the year. Juan Soto is with the Mets. Giancarlo Stanton's return is unknown. Yet it's not all doom in the Bronx.`\
-https://nytimes.com/athletic/6227991/2025/03/25/new-york-yankees-2025-expectations-questions/
-
-**Twins 2025 season preview: Roster breakdown, projections, and bold prediction**\
-`Here's how the 2025 Twins stack up, with projected lineup, rotation and individual stats.`\
-https://nytimes.com/athletic/6218691/2025/03/25/mlb-minnesota-twins-2025-season-preview/
 
