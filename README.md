@@ -1,3 +1,7 @@
+**SpaceX Rocket Launch Creates a Glowing Spiral in Night Sky**\
+`Frozen fuel from the SpaceX Falcon 9 rocket created a luminous swirl that lasted for several minutes and could be seen from Britain and much of Europe.`\
+https://nytimes.com/video/science/space/100000010071627/space-x-rocket-creates-glowing-spiral.html
+
 **George Clooney Play Breaks a Broadway Box Office Record**\
 `“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
 https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229372/2025/03/25/cade-cunningham-detroit-pistons-
 **Cain Velasquez sentenced to 5 years in prison for attempted murder**\
 `In 2022, Velasquez engaged in a high-speed car chase and fired rounds at a man accused of molesting his young son.`\
 https://nytimes.com/athletic/6229429/2025/03/25/cain-velasquez-prison-sentence-shooting-ufc/
-
-**Saint Francis announces plans to reclassify to DIII after NCAA tourney loss**\
-`The university cited the transfer portal, pay-for-play and "other shifts that move athletics away from love of the game" for the move.`\
-https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa/
 
