@@ -1,3 +1,15 @@
+**SpaceX Rocket Leaves a Glowing Spiral in the Sky, Visible Across Europe**\
+`Frozen fuel from the Falcon 9 rocket launched Monday created a luminous display for several minutes, and was seen by people from England to Eastern Europe.`\
+https://nytimes.com/2025/03/25/science/sky-spiral-spacex-rocket-launch-musk.html
+
+**A Curious Blue Swirl of Light Captivates Sky Watchers in Europe**\
+`The Met Office, Britain’s weather service, said the light was most likely caused by a SpaceX rocket launch.`\
+https://nytimes.com/video/science/100000010071202/swirl-blue-light-sky-spacex.html
+
+**Online Harm Groups Pose ‘Unprecedented Risk’ to Teens, Says U.K. Crime Agency**\
+`Sadistic online gangs are recruiting teenagers in Britain, according to the National Crime Agency, which warned that young men were being targeted with misogynistic material.`\
+https://nytimes.com/2025/03/25/world/europe/online-harm-teens-risk-uk.html
+
 **Blatter, Platini cleared of corruption at Swiss court**\
 `Blatter and Platini had initially been cleared of fraud in July 2022, before this case was heard at a Swiss appeals court.`\
 https://nytimes.com/athletic/6228938/2025/03/25/blatter-platini-trial-corruption-fifa/

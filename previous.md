@@ -1,3 +1,15 @@
+**SpaceX Rocket Leaves a Glowing Spiral in the Sky, Visible Across Europe**\
+`Frozen fuel from the Falcon 9 rocket launched Monday created a luminous display for several minutes, and was seen by people from England to Eastern Europe.`\
+https://nytimes.com/2025/03/25/science/sky-spiral-spacex-rocket-launch-musk.html
+
+**A Curious Blue Swirl of Light Captivates Sky Watchers in Europe**\
+`The Met Office, Britain’s weather service, said the light was most likely caused by a SpaceX rocket launch.`\
+https://nytimes.com/video/science/100000010071202/swirl-blue-light-sky-spacex.html
+
+**Online Harm Groups Pose ‘Unprecedented Risk’ to Teens, Says U.K. Crime Agency**\
+`Sadistic online gangs are recruiting teenagers in Britain, according to the National Crime Agency, which warned that young men were being targeted with misogynistic material.`\
+https://nytimes.com/2025/03/25/world/europe/online-harm-teens-risk-uk.html
+
 **Blatter, Platini cleared of corruption at Swiss court**\
 `Blatter and Platini had initially been cleared of fraud in July 2022, before this case was heard at a Swiss appeals court.`\
 https://nytimes.com/athletic/6228938/2025/03/25/blatter-platini-trial-corruption-fifa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6225198/2025/03/25/tyrone-mings-euro-2028-fa-board/
 **Japanese Court Disbands Unification Church in Wake of Abe Killing**\
 `The assassination in 2022 of Shinzo Abe, the country’s former prime minister, led to an investigation into the group’s political ties and manipulation of its followers to raise funds.`\
 https://nytimes.com/2025/03/25/world/asia/japanese-court-church-disband.html
-
-**Former Spurs defender Vertonghen to retire at end of 2024-25**\
-`Vertonghen made 315 appearances for Spurs between 2012 and 2020, helping the club reach the Champions League final in 2019.`\
-https://nytimes.com/athletic/6229049/2025/03/25/jan-vertonghen-tottenham-retiring/
-
-**Drance: Why Canucks' survival instinct is a weapon in the wild-card race**\
-`The playoff odds aren't in the Canucks' favour, but if the task is to survive, it sure helps to be tough to kill.`\
-https://nytimes.com/athletic/6228800/2025/03/25/vancouver-canucks-nhl-wild-card-race/
-
-**Giannis unplugged: On MVP slights, Bucks' struggles and what's 'better than intimacy'**\
-`The Milwaukee superstar's metronomic brilliance might be getting overlooked in the MVP race, but he says all he cares about is winning.`\
-https://nytimes.com/athletic/6228798/2025/03/25/giannis-antetokounmpo-bucks-mvp-interview/
 
