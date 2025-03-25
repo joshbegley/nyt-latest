@@ -1,3 +1,27 @@
+**U.S. Infrastructure Improves, but Cuts May Imperil Progress, Report Says**\
+`A report card from an engineering group found that American roads, ports and other infrastructure got better last year but could be hurt if federal funding is reduced.`\
+https://nytimes.com/2025/03/25/business/economy/us-infrastructure-federal-cuts.html
+
+**What Makes Sydney’s New Beach Different? It’s 50 Miles Inland.**\
+`It’s no Bondi Beach, but Pondi, or Penrith Beach, has been a welcome relief to the city’s sweltering western suburbs.`\
+https://nytimes.com/2025/03/25/world/australia/sydney-pondi-beach.html
+
+**Dressing Like an Artist? There’s an Art to That.**\
+`An exhibition at the Louvre-Lens in France examines centuries of interplay between art and fashion, including what the sartorial choices of artists revealed about their place in society.`\
+https://nytimes.com/2025/03/25/arts/design/art-of-dressing-louvre-lens-museum-exhibition.html
+
+**Connections: Sports Edition Coach: Hints for March 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6228388/2025/03/25/connections-sports-edition-hints-for-march-25-2025/
+
+**Atlanta Drive beats New York Golf Club 6-5 in Match 1 of TGL championship**\
+`Patrick Cantlay sank the winning putt but Billy Horschel put on a show in the SoFi Center against New York.`\
+https://nytimes.com/athletic/6228599/2025/03/25/tgl-finals-atlanta-drive-new-york-match-one/
+
+**China Frees Employees of U.S. Consulting Firm After 2-Year Detention**\
+`The release of the five employees, detained during a crackdown on foreign due diligence, comes as Beijing is trying to bring back overseas investment.`\
+https://nytimes.com/2025/03/24/world/asia/china-mintz-release-us.html
+
 **Islanders feel they got robbed in shootout loss: 'To me it's just unacceptable'**\
 `A controversial disallowed goal put a dent in the Islanders' playoff hopes, and Kyle Palmieri made no secret of his opinion.`\
 https://nytimes.com/athletic/6228567/2025/03/24/islanders-palmieri-goaltender-interference-blue-jackets/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6228538/2025/03/24/canucks-pius-suter-defence-lekke
 **USC's JuJu Watkins exits vs. Mississippi State with apparent knee injury**\
 `Watkins was running the floor in transition and knocked into a Bulldogs player as she was driving to the basket in the first quarter.`\
 https://nytimes.com/athletic/6228552/2025/03/24/juju-watkins-injury-usc-march-madness-2025/
-
-**Samsung Electronics Executive Han Jong-Hee Dies at 63**\
-`Mr. Han, a longtime Samsung executive, oversaw the company’s consumer electronics business since 2021.`\
-https://nytimes.com/2025/03/24/business/han-jong-hee-dead.html
-
-**Cam Ward impresses at pro day, feels his standing as No. 1 pick should be solidified**\
-`Ward finished his workout believing he left "no doubt" the Titans should take him first when the NFL Draft begins April 24. `\
-https://nytimes.com/athletic/6228419/2025/03/24/cam-ward-pro-day-nfl-draft/
-
-**Has LSU women's basketball redefined its ceiling as it enters the Sweet 16?**\
-`“We weren't talked about at all when we won it two years ago,” Kim Mulkey said. “So let's go see what we can do.”`\
-https://nytimes.com/athletic/6228450/2025/03/24/lsu-sweet-16-florida-state/
-
-**Crew Propellers**\
-`Bob Benson makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/03/24/crosswords/daily-puzzle-2025-03-25.html
-
-**Corrections: March 25, 2025**\
-`Corrections that appeared in print on Tuesday, March 25, 2025.`\
-https://nytimes.com/2025/03/24/pageoneplus/corrections-march-25-2025.html
-
-**U.N. to Pull International Workers From Gaza Amid Israeli Strikes**\
-`The United Nations is withdrawing about one-third of its international work force in Gaza, with the reduction coming after an Israeli tank shell hit a U.N. compound.`\
-https://nytimes.com/2025/03/24/world/middleeast/un-workers-gaza-israel.html
 
