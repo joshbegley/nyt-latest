@@ -1,3 +1,19 @@
+**Trump Downplayed the Leak of Military Plans**\
+`Also, Ukraine and Russia agreed to stop fighting in the Black Sea. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/25/briefing/trump-signal-leak-cease-fire-black-sea.html
+
+**Democrats Call for Hegseth and Waltz to Resign**\
+`Some Republican lawmakers have called for an investigation, but most have shied away from criticizing the Trump administration.`\
+https://nytimes.com/2025/03/25/us/democrats-call-for-hegseth-and-waltz-to-resign.html
+
+**JD Vance to Lead High-Powered U.S. Visit to Greenland**\
+`Amid President Trump’s push to take over the world’s largest island, the administration says it is sending the vice president to visit a military base there.`\
+https://nytimes.com/2025/03/25/world/americas/jd-vance-greenland-visit.html
+
+**McNeese MBB hires Bill Armstrong to replace Will Wade**\
+`Armstrong, who has a reputation for being a talented recruiter, spent this past season at Baylor under head coach Scott Drew.`\
+https://nytimes.com/athletic/6230699/2025/03/25/mcneese-bill-armstrong-mens-basketball-hire/
+
 **Lou Nasti, Who Brought Christmas Displays to Extravagant Life, Dies at 79**\
 `A robotics specialist, he animated puppets and dolls for displays worldwide. His “Toyland,” with a two-story-high Santa, drew sightseers to a Brooklyn home for years.`\
 https://nytimes.com/2025/03/25/nyregion/lou-nasti-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/25/health/measles-kennedy-vitamin-a.html
 **Who Was in the Signal Group Chat?**\
 `The list of members of the chat aligned with some of the most senior members of the Trump administration.`\
 https://nytimes.com/2025/03/25/us/signal-group-chat-key-figures.html
-
-**After Signal Leak, Vance Focuses on Proving His Loyalty to Trump**\
-`After the revelation that he was part of a secret chat, Vice President JD Vance’s focus wasn’t on the security breach. Instead, it seemed to be concern that he had questioned his boss.`\
-https://nytimes.com/2025/03/25/us/signal-leak-vance-trump.html
-
-**U.S. Intelligence Report Says Russia Remains Enduring Threat**\
-`On the day the report was released, Tulsi Gabbard, the director of national intelligence, told lawmakers that Moscow was a “formidable competitor.”`\
-https://nytimes.com/2025/03/25/us/politics/us-intelligence-report-russia-threat.html
-
-**In Rare Protest, Gazans Voice Frustration With Hamas**\
-`One Gazan who attended the rally said the protesters wanted Hamas to end the war and leave the enclave.`\
-https://nytimes.com/2025/03/25/world/middleeast/gaza-protests-hamas.html
-
-**Senators Question Intelligence Officials on Leaked Signal Chat**\
-`C.I.A. Director John Ratcliffe and Director of National Intelligence Tulsi Gabbard rejected that any classified information was shared in a Signal chat discussing a U.S. strike in Yemen that a journalist was mistakenly included in.`\
-https://nytimes.com/video/us/politics/100000010071376/signal-chat-gabbard-ratcliffe-yemen.html
 

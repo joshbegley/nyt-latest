@@ -1,3 +1,19 @@
+**Trump Downplayed the Leak of Military Plans**\
+`Also, Ukraine and Russia agreed to stop fighting in the Black Sea. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/03/25/briefing/trump-signal-leak-cease-fire-black-sea.html
+
+**Democrats Call for Hegseth and Waltz to Resign**\
+`Some Republican lawmakers have called for an investigation, but most have shied away from criticizing the Trump administration.`\
+https://nytimes.com/2025/03/25/us/democrats-call-for-hegseth-and-waltz-to-resign.html
+
+**JD Vance to Lead High-Powered U.S. Visit to Greenland**\
+`Amid President Trump’s push to take over the world’s largest island, the administration says it is sending the vice president to visit a military base there.`\
+https://nytimes.com/2025/03/25/world/americas/jd-vance-greenland-visit.html
+
+**McNeese MBB hires Bill Armstrong to replace Will Wade**\
+`Armstrong, who has a reputation for being a talented recruiter, spent this past season at Baylor under head coach Scott Drew.`\
+https://nytimes.com/athletic/6230699/2025/03/25/mcneese-bill-armstrong-mens-basketball-hire/
+
 **Lou Nasti, Who Brought Christmas Displays to Extravagant Life, Dies at 79**\
 `A robotics specialist, he animated puppets and dolls for displays worldwide. His “Toyland,” with a two-story-high Santa, drew sightseers to a Brooklyn home for years.`\
 https://nytimes.com/2025/03/25/nyregion/lou-nasti-dead.html
