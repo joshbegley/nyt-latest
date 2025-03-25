@@ -1,3 +1,19 @@
+**Republicans in Congress React to Signal Chat Leak With Collective Shrug**\
+`A few G.O.P. lawmakers said they would look into the breach, but party leaders largely tempered their criticism of the Trump administration.`\
+https://nytimes.com/2025/03/25/us/politics/republicans-congress-signal-leak.html
+
+**India Said to Have Meddled in Canadian Party Election**\
+`Indian agents and proxies raised money and helped organize support in 2022 for Pierre Poilievre, the Conservative leader who is the main challenger to Prime Minister Mark Carney.`\
+https://nytimes.com/2025/03/25/world/asia/canada-election-india-china.html
+
+**Michael Boudin, Independent Judge From a Family on the Left, Dies at 85**\
+`His rulings on the U.S. bench might have rankled his father, a civil liberties lawyer; his uncle, a muckraking journalist; and his sister, an imprisoned radical.`\
+https://nytimes.com/2025/03/25/obituaries/michael-boudin-dead.html
+
+**Horace Hale Harvey III, a Pioneer in Providing Abortions, Dies at 93**\
+`A religious organization recruited him to help open New York City’s first independent abortion clinic, though it was unaware that Louisiana had taken away his license.`\
+https://nytimes.com/2025/03/25/health/horace-hale-harvey-dead.html
+
 **Pennsylvania State Legislature Special Election Results**\
 `Get live results and maps from the 2025 Pennsylvania state senate and state house special elections.`\
 https://nytimes.com/interactive/2025/03/25/us/elections/results-pennsylvania-special-elections.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/25/us/who-is-michael-waltz.html
 **Watch: If both quarterbacks get drafted, is Travis Hunter the best fit for the Giants?**\
 `"The Athletic Football Show" discusses why the Giants should select Travis Hunter at three and why he can play both sides of the ball.`\
 https://nytimes.com/athletic/6228955/2025/03/25/athletic-football-show-new-york-giants-draft-travis-hunter/
-
-**Sacramento State hires Mike Bibby as men's basketball coach**\
-`Bibby spent seven seasons with the Sacramento Kings and has experience as an assistant coach with the Puerto Rican national team.`\
-https://nytimes.com/athletic/6230107/2025/03/25/mike-bibby-head-coach-sacamento-state-basketball/
-
-**Angels release former No. 1 draft pick Mickey Moniak**\
-`The top pick in 2016 had won his arbitration case against the Angels this offseason, and was set to make $2 million this year.`\
-https://nytimes.com/athletic/6230058/2025/03/25/mickey-moniak-angels-release/
-
-**Aaliyah Chavez, No. 1 recruit in 2025 class, commits to Oklahoma**\
-`Chavez was the sole uncommitted player left in ESPN’s HoopGurlz top-100 ranking.`\
-https://nytimes.com/athletic/6230187/2025/03/25/aaliyah-chavez-commit-2025-class-oklahoma/
-
-**Ravens free-agency tracker: CB Chidobe Awuzie signs 1-year deal**\
-`Analyzing all of Baltimore's moves as the 2025 league year begins. `\
-https://nytimes.com/athletic/6188842/2025/03/25/ravens-free-agency-tracker-signings-trades/
 
