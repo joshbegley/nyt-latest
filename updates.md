@@ -1,3 +1,15 @@
+**Three tactical issues behind the USMNT defeats to Panama and Canada**\
+`Mauricio Pochettino has some urgent problems to fix as World Cup 2026 creeps ever closer  `\
+https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochettino-panama-canada/
+
+**Who Is Michael Waltz?**\
+`The national security adviser has been walking a tightrope even before the disclosure of the group chat.`\
+https://nytimes.com/2025/03/25/us/who-is-michael-waltz.html
+
+**Watch: If both quarterbacks get drafted, is Travis Hunter the best fit for the Giants?**\
+`"The Athletic Football Show" discusses why the Giants should select Travis Hunter at three and why he can play both sides of the ball.`\
+https://nytimes.com/athletic/6228955/2025/03/25/athletic-football-show-new-york-giants-draft-travis-hunter/
+
 **Sacramento State hires Mike Bibby as men's basketball coach**\
 `Bibby spent seven seasons with the Sacramento Kings and has experience as an assistant coach with the Puerto Rican national team.`\
 https://nytimes.com/athletic/6230107/2025/03/25/mike-bibby-head-coach-sacamento-state-basketball/
