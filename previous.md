@@ -1,10 +1,14 @@
+**What’s the American Base on Greenland? Here’s What to Know.**\
+`Since World War II, American forces have been stationed on the island. Today, from a remote outpost, they watch the skies.`\
+https://nytimes.com/2025/03/25/world/europe/greenland-us-space-base.html
+
 **Trump Downplayed the Leak of Military Plans**\
 `Also, Ukraine and Russia agreed to stop fighting in the Black Sea. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/03/25/briefing/trump-signal-leak-cease-fire-black-sea.html
 
 **Democrats Call for Hegseth and Waltz to Resign**\
 `Some Republican lawmakers have called for an investigation, but most have shied away from criticizing the Trump administration.`\
-https://nytimes.com/2025/03/25/us/democrats-call-for-hegseth-and-waltz-to-resign.html
+https://nytimes.com/2025/03/25/us/democrats-hegseth-waltz-resign-signal.html
 
 **JD Vance to Lead High-Powered U.S. Visit to Greenland**\
 `Amid President Trump’s push to take over the world’s largest island, the administration says it is sending the vice president to visit a military base there.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/briefing/black-sea-deal-signal-leak-west-bank-dir
 **Remedy Supported by Kennedy Leaves Some Measles Patients More Ill**\
 `After the health secretary promoted vitamin A as a cure, parents in West Texas began giving their children high doses, sometimes to prevent infection.`\
 https://nytimes.com/2025/03/25/health/measles-kennedy-vitamin-a.html
-
-**Who Was in the Signal Group Chat?**\
-`The list of members of the chat aligned with some of the most senior members of the Trump administration.`\
-https://nytimes.com/2025/03/25/us/signal-group-chat-key-figures.html
 

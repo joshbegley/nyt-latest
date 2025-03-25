@@ -1,3 +1,11 @@
+**What’s the American Base on Greenland? Here’s What to Know.**\
+`Since World War II, American forces have been stationed on the island. Today, from a remote outpost, they watch the skies.`\
+https://nytimes.com/2025/03/25/world/europe/greenland-us-space-base.html
+
+**Democrats Call for Hegseth and Waltz to Resign**\
+`Some Republican lawmakers have called for an investigation, but most have shied away from criticizing the Trump administration.`\
+https://nytimes.com/2025/03/25/us/democrats-hegseth-waltz-resign-signal.html
+
 **Trump Downplayed the Leak of Military Plans**\
 `Also, Ukraine and Russia agreed to stop fighting in the Black Sea. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/03/25/briefing/trump-signal-leak-cease-fire-black-sea.html
