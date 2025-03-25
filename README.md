@@ -1,3 +1,7 @@
+**Trump Signs Order Requiring Citizenship Proof to Vote in Federal Elections**\
+`Administration officials cited cracking down on immigrants illegally on voter rolls as one of the executive order’s main goals, amplifying Mr. Trump’s grievances about electoral integrity.`\
+https://nytimes.com/2025/03/25/us/politics/trump-elections-executive-order.html
+
 **Josh Norris is still hoping to get his Sabres career started after leaving Senators**\
 `A mid-body injury is the latest setback for Norris, who has two points in three games for the Sabres since the deadline.`\
 https://nytimes.com/athletic/6230164/2025/03/25/josh-norris-sabres-senators-tkachuk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/weather/phoenix-heat-temperature.html
 **Argentina qualify for 2026 World Cup after Bolivia draw with Uruguay**\
 `Argentina join the three host nations alongside Japan, New Zealand and Iran in the 48-team competition.`\
 https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup/
-
-**The Worst Part of Pete Hegseth’s Group Chat Debacle**\
-`And why the careless secretary of defense should resign.`\
-https://nytimes.com/2025/03/25/opinion/pete-hegseth-security-breach-resign.html
 
