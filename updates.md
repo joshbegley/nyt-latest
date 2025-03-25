@@ -1,3 +1,7 @@
+**Trump’s Old Grudge Fuels Swipe at a New Law Firm**\
+`An executive order underscored the extent to which the president, who faced four indictments after he left office, aims to exact a price from anyone associated with past investigations of him.`\
+https://nytimes.com/2025/03/25/us/politics/trump-executive-order-law-firm-jenner-block.html
+
 **Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
 `The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
 https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html

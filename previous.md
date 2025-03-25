@@ -1,3 +1,7 @@
+**Trump’s Old Grudge Fuels Swipe at a New Law Firm**\
+`An executive order underscored the extent to which the president, who faced four indictments after he left office, aims to exact a price from anyone associated with past investigations of him.`\
+https://nytimes.com/2025/03/25/us/politics/trump-executive-order-law-firm-jenner-block.html
+
 **Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
 `The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
 https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/us/politics/signal-michael-waltz-trump-goldberg.h
 **A judge blocked the Trump administration from rescinding grants for fair housing groups.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2025/03/25/us/trump-administration-updates/a-judge-blocked-the-trump-administration-from-rescinding-grants-for-fair-housing-groups
-
-**Lions free agency tracker: Depth a priority for team devastated by injuries last season**\
-`The Lions don't have a lot needs to fill this offseason.`\
-https://nytimes.com/athletic/6189041/2025/03/25/lions-free-agency-signings-depth/
 

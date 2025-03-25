@@ -1,3 +1,11 @@
+**Russell Wilson to join Giants on 1-year, $21 million deal: Source**\
+`Wilson's hot-and-cold 2024 run made him the No. 4 quarterback and No. 43 overall free agent in The Athletic's top 150 rankings. `\
+https://nytimes.com/athletic/6178482/2025/03/25/russell-wilson-free-agency-signing-2025-giants/
+
+**Senate Confirms Bhattacharya to Lead N.I.H.**\
+`Dr. Jay Bhattacharya gained prominence during the pandemic as an opponent of widespread lockdowns.`\
+https://nytimes.com/2025/03/25/health/trump-nih-fda-bhattacharya.html
+
 **Trump’s Old Grudge Fuels Swipe at a New Law Firm**\
 `An executive order underscored the extent to which the president, who faced four indictments after he left office, aims to exact a price from anyone associated with past investigations of him.`\
 https://nytimes.com/2025/03/25/us/politics/trump-executive-order-law-firm-jenner-block.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/us/politics/new-economic-patriots-house-democrats
 **Leak of Signal Chat Poses Early Test for F.B.I. and Justice Dept.**\
 `Whether the agencies open an investigation will bring into sharp relief the intended approach of their leaders, Kash Patel and Pam Bondi, who promised to administer impartial justice.`\
 https://nytimes.com/2025/03/25/us/politics/doj-fbi-signal-leak.html
-
-**With the Signal Snafu, Michael Waltz Is Thrust Into the Spotlight**\
-`The national security adviser, already embattled, is taking the brunt of the criticism.`\
-https://nytimes.com/2025/03/25/us/politics/signal-michael-waltz-trump-goldberg.html
-
-**A judge blocked the Trump administration from rescinding grants for fair housing groups.**\
-`By Debra Kamin`\
-https://nytimes.com/live/2025/03/25/us/trump-administration-updates/a-judge-blocked-the-trump-administration-from-rescinding-grants-for-fair-housing-groups
 
