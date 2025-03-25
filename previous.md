@@ -1,40 +1,40 @@
-**Ornstein named British Sportswriter of the Year**\
-`It is the second year in a row The Athletic has scooped the prestigious John Bromley Trophy, following Adam Crafton's success in March 2024.`\
-https://nytimes.com/athletic/6228852/2025/03/25/british-sports-journalism-awards-david-ornstein/
+**Bears pre-draft, post-free agency depth chart: More needed in the trenches**\
+`What positions could use some help from the draft? How much has free agency changed the roster? Our analysis of the Bears' depth chart.`\
+https://nytimes.com/athletic/6227056/2025/03/25/bears-2025-depth-chart-nfl-draft/
 
-**She Was Released. Now She’s Campaigning for Her Partner Still in Gaza.**\
-`Trepidation over the fate of other captives has left Ilana Gritzewsky little time for self-healing after her own violent abduction.`\
-https://nytimes.com/2025/03/25/world/middleeast/israeli-hostage-gaza-campaign.html
+**Charting Cam Ward: What numbers say about star's 2025 NFL Draft prospects**\
+`Ward is a slight step down from the elite prospects in the 2024 class, but he's still a top-10 pick in his own right.`\
+https://nytimes.com/athletic/6218236/2025/03/25/cam-ward-2025-nfl-draft-stats-film-numbers/
 
-**ESPN analyst Jay Williams wears many hats. Here are his 5 tips for juggling a busy schedule**\
-`Williams is trying to best juggle the many hats he wears these days: ESPN analyst, co-founder of a media company, dad and husband.`\
-https://nytimes.com/athletic/6227327/2025/03/25/espn-analyst-jay-williams-wears-many-hats-here-are-his-5-tips-for-juggling-a-busy-schedule/
+**Commanders big board 2.0: Hunting for edge rushers, cornerbacks, playmakers**\
+`Thanks to three significant trades since November, Washington currently holds only five selections after drafting nine players in 2024.`\
+https://nytimes.com/athletic/6225222/2025/03/25/commanders-2025-nfl-draft-big-board/
 
-**The New York Times International Edition in Print for Wednesday, March 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/25/todays-new-york-times-international-edition
+**WNBA GMs anonymously scout Paige Bueckers and more NCAA Tournament guards**\
+`One scout called Bueckers "the most sure thing today in this draft.”`\
+https://nytimes.com/athletic/6227644/2025/03/25/wnba-scouts-march-madness-guards-2025/
 
-**Japanese Court Awards $1.4 Million to Exonerated Man**\
-`Iwao Hakamada, 89, who is believed to have been the world’s longest-serving death row inmate, was exonerated last year of a 1966 murder conviction.`\
-https://nytimes.com/2025/03/25/us/japan-death-row-inmate-payout.html
+**James Dolan vs. the NBA: Why the Knicks owner is at odds with the league**\
+`Over the last two years; Dolan’s grievances with the NBA and its commissioner Adam Silver have continued to mount. What could come next?`\
+https://nytimes.com/athletic/6226872/2025/03/25/james-dolan-adam-silver-owner-commissioner-nba/
 
-**Falcons mailbag: What's going to happen with Kirk Cousins and the NFL Draft?**\
-`This week's Falcons mailbag covers everything from possible draft picks to Matthew Judon's possible return to succession plans.`\
-https://nytimes.com/athletic/6226903/2025/03/25/falcons-mailbag-kirk-cousins-nfl-draft/
+**2025 NHL Draft ranking: Scott Wheeler’s March top 64 list**\
+`Schaefer and Misa have cemented their place as the top two players in the 2025 draft class in Wheeler's latest update.`\
+https://nytimes.com/athletic/6194607/2025/03/25/nhl-draft-prospects-2025-rankings-top-64/
 
-**As Trump’s Policies Worry Scientists, France and Others Put Out a Welcome Mat**\
-`European universities have begun recruiting researchers who lost their jobs in the administration’s cost-cutting efforts, or are anxious over perceived threats to academic freedom.`\
-https://nytimes.com/2025/03/25/europe-trump-science-research.html
+**How BYU's NCAA Tournament run is improving Egor Demin's once-falling NBA Draft stock**\
+`Demin saw his draft stock slip this year, but he has been the catalyst for the Cougars in this NCAA Tournament.`\
+https://nytimes.com/athletic/6227562/2025/03/25/byu-sweet-16-egor-demin-nba-draft/
 
-**The Patriots should trade down from No. 4. Here's why it'll be so difficult**\
-`If Abdul Carter and Travis Hunter are off the board by the time the Pats go on the clock for the fourth pick, is a trade their best option?`\
-https://nytimes.com/athletic/6227300/2025/03/25/patriots-nfl-draft-trade-down/
+**Five months later, the inside story of Freddie Freeman's World Series walk-off grand slam**\
+`An account of the stunning turn of events — the leadup, the moment and the aftermath — told mostly in the words of those involved.`\
+https://nytimes.com/athletic/6226629/2025/03/25/world-series-walkoff-grand-slam-freddie-freeman-mlb-history/
 
-**What is DOGE’s Real Goal?**\
-`Santi Ruiz, a senior editor at the Institute for Progress, examines what DOGE has been trying to accomplish in its first few months.`\
-https://nytimes.com/2025/03/25/opinion/ezra-klein-podcast-santi-ruiz.html
+**Blue Jackets snap six-game losing streak with comeback win over Islanders**\
+`Sean Monahan and Erik Gudbranson returned from lengthy absences in a win dominated by two goaltender interference reviews.`\
+https://nytimes.com/athletic/6228554/2025/03/25/blue-jackets-goaltender-interference-fantilli-islanders/
 
-**America’s Most Powerful Law Firms Are Acting Like Cowards**\
-`Bowing to Trump won’t protect their businesses and clients.`\
-https://nytimes.com/2025/03/25/opinion/trump-law-firms.html
+**McLaren's perfect F1 problem: Dual title contenders, and a fast car difficult to tame**\
+`With Piastri's China win and Norris' Australia victory, McLaren leads both standings despite its drivers battling a "difficult" car.`\
+https://nytimes.com/athletic/6227650/2025/03/25/mclaren-f1-lando-norris-oscar-piastri/
 
