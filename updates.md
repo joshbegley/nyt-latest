@@ -1,3 +1,11 @@
+**Aston Villa's Mings expected to take role on FA's board of directors for Euro 2028**\
+`The FA wanted a current player on the board to help with the tournament's preparations and Mings is now set be appointed.`\
+https://nytimes.com/athletic/6225198/2025/03/25/tyrone-mings-euro-2028-fa-board/
+
+**Giannis unplugged: On MVP slights, Bucks' struggles and what's 'better than intimacy'**\
+`The Milwaukee superstar's metronomic brilliance might be getting overlooked in the MVP race, but he says all he cares about is winning.`\
+https://nytimes.com/athletic/6228798/2025/03/25/giannis-antetokounmpo-bucks-mvp-interview/
+
 **Japanese Court Disbands Unification Church in Wake of Abe Killing**\
 `The assassination in 2022 of Shinzo Abe, the country’s former prime minister, led to an investigation into the group’s political ties and manipulation of its followers to raise funds.`\
 https://nytimes.com/2025/03/25/world/asia/japanese-court-church-disband.html
