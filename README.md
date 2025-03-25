@@ -1,3 +1,11 @@
+**Lou Nasti, Who Brought Christmas Displays to Life, Dies at 79**\
+`He animated puppets and dolls for holiday displays around the world, and his extravagant, illuminated display at a Brooklyn home was a sightseeing fixture.`\
+https://nytimes.com/2025/03/25/obituaries/lou-nasti-dead.html
+
+**Can anyone pry the MOP award away from Duke's Cooper Flagg?**\
+`Odds for the Most Outstanding Player award are out, and Brad Evans has you covered with who you should sprinkle some bucks on.`\
+https://nytimes.com/athletic/6229360/2025/03/25/most-outstanding-player-odds-picks-cooper-flagg-walter-clayton-jr/
+
 **Jeffries Calls on Trump to Fire Hegseth**\
 `The House minority leader became the highest-ranking Democrat to demand the defense secretary be terminated, saying he was “unqualified” and a national security risk.`\
 https://nytimes.com/2025/03/25/us/jeffries-fire-hegseth.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/world/middleeast/gaza-protests-hamas.html
 **Senators Question Intelligence Officials on Leaked Signal Chat**\
 `C.I.A. Director John Ratcliffe and Director of National Intelligence Tulsi Gabbard rejected that any classified information was shared in a Signal chat discussing a U.S. strike in Yemen that a journalist was mistakenly included in.`\
 https://nytimes.com/video/us/politics/100000010071376/signal-chat-gabbard-ratcliffe-yemen.html
-
-**Who Is the Artist Behind the Portrait Trump Hates?**\
-`The portrait of President Trump that he criticized as “truly the worst” was swiftly removed from the Colorado Capitol. The woman who painted it has remained silent.`\
-https://nytimes.com/2025/03/25/arts/design/trump-portrait-colorado-sarah-boardman.html
-
-**Court Lets Trump Pause New Refugee Admissions but Thousands Must Be Let In**\
-`A court order requires thousands of refugees to be admitted to the United States. But funding for organizations that assist them after arrival remains uncertain.`\
-https://nytimes.com/2025/03/25/us/politics/trump-refugees.html
 
