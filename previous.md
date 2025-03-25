@@ -1,3 +1,7 @@
+**The Winnipeg Jets are still Stanley Cup contenders, even as adversity strikes**\
+`Even as the Jets' points pace has fallen from best in the league to average, Winnipeg still looks good by a lot of indicators.`\
+https://nytimes.com/athletic/6227718/2025/03/25/winnipeg-jets-remain-stankley-cup-contenders/
+
 **Trump’s Crypto Venture Introduces New Digital Currency**\
 `World Liberty Financial, the crypto business created by President Trump and his sons, unveiled a cryptocurrency called a stablecoin, furthering his ties to an industry his administration regulates.`\
 https://nytimes.com/2025/03/25/technology/trump-crypto-stablecoin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/technology/nvidia-ai-robots.html
 **UNLV to hire Josh Pastner as next basketball coach: Source**\
 `Pastner is the second high-profile coach UNLV athletic director Erick Harper has hired away from ESPN.`\
 https://nytimes.com/athletic/6229366/2025/03/25/unlv-hires-josh-pastner-espn-georgia/
-
-**What to Know About the Fallout From the Signal Group Chat Leak**\
-`President Trump is defending his national security adviser, Michael Waltz, after the extraordinary disclosure.`\
-https://nytimes.com/2025/03/25/us/politics/war-plans-signal-chat-what-to-know.html
 

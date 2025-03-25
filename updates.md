@@ -1,3 +1,7 @@
+**The Winnipeg Jets are still Stanley Cup contenders, even as adversity strikes**\
+`Even as the Jets' points pace has fallen from best in the league to average, Winnipeg still looks good by a lot of indicators.`\
+https://nytimes.com/athletic/6227718/2025/03/25/winnipeg-jets-remain-stankley-cup-contenders/
+
 **Inside A.I.’s Super Bowl: Nvidia Dreams of a Robot Future**\
 `Nvidia showcased robots that could work in warehouses, pedal around like ‘Star Wars’ droids and manipulate surgical equipment at its weeklong A.I. conference`\
 https://nytimes.com/2025/03/25/technology/nvidia-ai-robots.html
