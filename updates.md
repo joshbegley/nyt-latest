@@ -1,4 +1,8 @@
 **Cam Ward impresses at pro day, feels his standing as No. 1 pick should be solidified**\
+`Ward finished his workout believing he left "no doubt" the Titans should take him first when the NFL Draft begins April 24. `\
+https://nytimes.com/athletic/6228419/2025/03/24/cam-ward-pro-day-nfl-draft/
+
+**Cam Ward impresses at pro day, feels his standing as No. 1 pick should be solidified**\
 `Ward left his workout believing he left "no doubt" the Titans should take him first when the NFL Draft begins April 24. `\
 https://nytimes.com/athletic/6228419/2025/03/24/cam-ward-pro-day-nfl-draft/
 
