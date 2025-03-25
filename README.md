@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Wednesday, March 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/25/todays-new-york-times-international-edition
+
+**Japanese Court Awards $1.4 Million to Exonerated Man**\
+`Iwao Hakamada, 89, who is believed to have been the world’s longest-serving death row inmate, was exonerated last year of a 1966 murder conviction.`\
+https://nytimes.com/2025/03/25/us/japan-death-row-inmate-payout.html
+
 **Falcons mailbag: What's going to happen with Kirk Cousins and the NFL Draft?**\
 `This week's Falcons mailbag covers everything from possible draft picks to Matthew Judon's possible return to succession plans.`\
 https://nytimes.com/athletic/6226903/2025/03/25/falcons-mailbag-kirk-cousins-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/opinion/trump-toxins-cancer-environment.html
 **Among the Innies**\
 `“Severance” fans enjoyed waffles and Lumon Industries cosplay at a watch party hosted by two restaurants that appeared in the series.`\
 https://nytimes.com/2025/03/25/arts/television/severance-season-2-finale-watch-party.html
-
-**America Has Been Lucky on Bird Flu — So Far**\
-`The death rate in the U.S. has been much lower than expected.`\
-https://nytimes.com/2025/03/25/opinion/bird-flu-america-death.html
-
-**PBS and NPR Prepare for Showdown With Congress**\
-`Top executives from the public media networks are bracing for a hearing on Wednesday organized by Representative Marjorie Taylor Greene.`\
-https://nytimes.com/2025/03/25/business/media/pbs-npr-congressional-hearing.html
 
