@@ -1,3 +1,7 @@
+**Trump Officials Texted War Plans on Signal App**\
+`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. plans to attack Yemen using a commercial messaging app.`\
+https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
+
 **Villa have taken a patient approach with Ian Maatsen - is it starting to pay off?**\
 `Unai Emery and his staff have been working overtime to improve the left-back's defensive awareness - will he be trusted further in future?`\
 https://nytimes.com/athletic/6221386/2025/03/25/ian-maatsen-aston-villa-netherlands-unai-emery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6224426/2025/03/25/steve-bruce-interview/
 **From Club America to Al Nassr: Who should replace Club Leon at the FIFA Club World Cup?**\
 `There is an argument for LAFC or Alajuelense to step up, but the tournament might benefit more from a dose of Cristiano Ronaldo or Deadpool`\
 https://nytimes.com/athletic/6226267/2025/03/25/fifa-club-world-cup-leon-replacements-manchester-united-leeds-ronaldo/
-
-**Tuesday Briefing**\
-`An extraordinary security breach.`\
-https://nytimes.com/2025/03/25/briefing/signal-strikes-israel.html
 

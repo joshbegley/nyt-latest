@@ -1,3 +1,7 @@
+**Trump Officials Texted War Plans on Signal App**\
+`Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. plans to attack Yemen using a commercial messaging app.`\
+https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
+
 **Villa have taken a patient approach with Ian Maatsen - is it starting to pay off?**\
 `Unai Emery and his staff have been working overtime to improve the left-back's defensive awareness - will he be trusted further in future?`\
 https://nytimes.com/athletic/6221386/2025/03/25/ian-maatsen-aston-villa-netherlands-unai-emery/
