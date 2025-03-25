@@ -1,3 +1,7 @@
+**Saint Francis announces plans to reclassify to DIII after NCAA tourney loss**\
+`The university cited the transfer portal, pay-for-play and "other shifts that move athletics away from love of the game" for the move.`\
+https://nytimes.com/athletic/6229794/2025/03/25/saint-francis-division-move-ncaa/
+
 **The Duty of Law Firms Under Attack**\
 `Readers weigh in on the capitulation of the law firm Paul, Weiss to the Trump administration’s demands. Also: Beyond campus stereotypes; analog parenting.`\
 https://nytimes.com/2025/03/25/opinion/trump-paul-weiss-lawyers.html
