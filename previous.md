@@ -2,13 +2,13 @@
 `The Red Wings' win in Utah wasn't pretty, but it pulled them back within 3 points of a playoff spot and showed some key developments.`\
 https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
 
-**'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
-`The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
-https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
-
 **Jon Stewart Thinks He May Be in the ‘Bomb Yemen’ Chat Group**\
 `The “Daily Show” host suspects that he, too, might have been invited to a discussion of secret war plans by a bumbling official in the Trump administration.`\
 https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
+
+**'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
+`The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
+https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
 
 **Word of the Day: talisman**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
