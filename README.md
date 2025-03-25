@@ -1,5 +1,9 @@
-**Arsenal's Ethan Nwaneri has a signature goal already**\
-`A curling shot from the edge of the D, Nwaneri scored his trademark goal for England's under-21s - it's a skill he continues to hone`\
+**Once Germany’s New Parliament Is Sworn In, Women Will Be a Rarer Sight**\
+`The class of lawmakers taking office is noticeably more male and less diverse than the constituents it will represent.`\
+https://nytimes.com/2025/03/25/world/europe/germany-women-politics.html
+
+**Arsenal's Ethan Nwaneri has a signature goal already at age 18**\
+`A curling shot from the edge of the D, Nwaneri scored his trademark goal for England Under-21s on Monday - it's a skill he continues to hone`\
 https://nytimes.com/athletic/6227929/2025/03/25/ethan-nwaneri-goal-england-arsenal/
 
 **Wide players will be key to Thomas Tuchel's England - and he cannot squeeze them all in**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
 **Jon Stewart Thinks He May Be in the ‘Bomb Yemen’ Chat Group**\
 `The “Daily Show” host suspects that he, too, might have been invited to a discussion of secret war plans by a bumbling official in the Trump administration.`\
 https://nytimes.com/2025/03/25/arts/television/jon-stewart-yemen-chat-group.html
-
-**'I was conscious that I was American - I dove deep into history of Goodison and the city'**\
-`The American architect behind Everton’s new stadium was emotional as he returned to the site — he says the anguish has all been worth it `\
-https://nytimes.com/athletic/6226937/2025/03/25/everton-stadium-dan-meis-goodison/
 
