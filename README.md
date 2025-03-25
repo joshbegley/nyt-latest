@@ -1,3 +1,7 @@
+**With a U.S. Ban Looming, TikTok Portrays Itself as a Force for Good**\
+`The popular video app, which could be banned in the United States next month if it is not sold to a non-Chinese owner, is portraying itself as a savior of Americans and a champion of small businesses in a new campaign.`\
+https://nytimes.com/2025/03/25/technology/tiktok-ban-ads.html
+
 **White House Says Russia and Ukraine Agree to Stop Fighting in Black Sea**\
 `The agreement announced after parallel sets of talks in Riyadh would be the first significant step toward the full cease-fire the Trump Administration had been pushing, but it still would fall short.`\
 https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/technology/trump-crypto-stablecoin.html
 **Washington Nationals City Connect uniforms, round two: What does our panel think?**\
 `Washington's first City Connect uniform landed high on our rankings. How will the latest set fare with our uniform-obsessed panel?`\
 https://nytimes.com/athletic/6225756/2025/03/25/mlb-nationals-city-connect-uniforms/
-
-**Read the Justice Department’s filing in the Adams case.**\
-`The filing contained messages exchanged by federal prosecutors in Manhattan about the Justice Department’s order to seek the dismissal of corruption charges against Mayor Eric Adams of New York.`\
-https://nytimes.com/interactive/2025/03/25/nyregion/x175-1-exhibits-filed.html
 

@@ -1,3 +1,11 @@
+**White House Says Russia and Ukraine Agree to Stop Fighting in Black Sea**\
+`The agreement announced after parallel sets of talks in Riyadh would be the first significant step toward the full cease-fire the Trump Administration had been pushing, but it still would fall short.`\
+https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
+
+**Complete Your Mornings by Dunking Your Face Into Cold Water**\
+`Ashton Hall’s unconventional morning routine has drawn close to a billion views, and scores of copycat videos.`\
+https://nytimes.com/2025/03/25/style/ashton-hall-morning-routine-saratoga-water.html
+
 **TCU's Hailey Van Lith opens up about past mental health struggles**\
 `Van Lith told reporters Sunday she had previously been suicidal but has now arrived at a "moment of loving life."`\
 https://nytimes.com/athletic/6229300/2025/03/25/tcu-hailey-van-lith-mental-health/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6225756/2025/03/25/mlb-nationals-city-connect-unifo
 **Read the Justice Department’s filing in the Adams case.**\
 `The filing contained messages exchanged by federal prosecutors in Manhattan about the Justice Department’s order to seek the dismissal of corruption charges against Mayor Eric Adams of New York.`\
 https://nytimes.com/interactive/2025/03/25/nyregion/x175-1-exhibits-filed.html
-
-**Coby White erupts again in Bulls road win at Denver, shares rare air with Michael Jordan**\
-`“He’s evolved into a great player, all the way around,” Bulls coach Billy Donovan said of White, who had another huge scoring night Monday.`\
-https://nytimes.com/athletic/6228777/2025/03/25/coby-white-michael-jordan-bulls-nba/
-
-**A Go-To Protein for Economical Meals**\
-`Ground meat is the easy-to-prep foundation for meatballs, curries, nachos, burgers and more must-have dinners.`\
-https://nytimes.com/2025/03/25/dining/a-go-to-protein-for-economical-meals.html
 

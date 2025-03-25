@@ -1,3 +1,11 @@
+**White House Says Russia and Ukraine Agree to Stop Fighting in Black Sea**\
+`The agreement announced after parallel sets of talks in Riyadh would be the first significant step toward the full cease-fire the Trump Administration had been pushing, but it still would fall short.`\
+https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
+
+**Complete Your Mornings by Dunking Your Face Into Cold Water**\
+`Ashton Hall’s unconventional morning routine has drawn close to a billion views, and scores of copycat videos.`\
+https://nytimes.com/2025/03/25/style/ashton-hall-morning-routine-saratoga-water.html
+
 **TCU's Hailey Van Lith opens up about past mental health struggles**\
 `Van Lith told reporters Sunday she had previously been suicidal but has now arrived at a "moment of loving life."`\
 https://nytimes.com/athletic/6229300/2025/03/25/tcu-hailey-van-lith-mental-health/
