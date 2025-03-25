@@ -1,3 +1,11 @@
+**Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
+`The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
+https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html
+
+**99 Degrees? In March?! Phoenix Shatters a Heat Record.**\
+`Much of the West and Southwest faced unseasonably warm temperatures this week. But it won’t last long.`\
+https://nytimes.com/2025/03/25/weather/phoenix-heat-temperature.html
+
 **Argentina qualify for 2026 World Cup after Bolivia draw with Uruguay**\
 `Argentina join the three host nations alongside Japan, New Zealand and Iran in the 48-team competition.`\
 https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/25/us/trump-administration-updates/a-judge-bloc
 **Lions free agency tracker: Depth a priority for team devastated by injuries last season**\
 `The Lions don't have a lot needs to fill this offseason.`\
 https://nytimes.com/athletic/6189041/2025/03/25/lions-free-agency-signings-depth/
-
-**What’s the American Base on Greenland? Here’s What to Know.**\
-`Since World War II, American forces have been stationed on the island. Today, from a remote outpost, they watch the skies.`\
-https://nytimes.com/2025/03/25/world/europe/greenland-us-space-base.html
-
-**Trump Downplayed the Leak of Military Plans**\
-`Also, Ukraine and Russia agreed to stop fighting in the Black Sea. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/03/25/briefing/trump-signal-leak-cease-fire-black-sea.html
 

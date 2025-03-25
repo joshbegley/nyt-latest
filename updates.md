@@ -1,3 +1,11 @@
+**Argentina qualify for 2026 World Cup after Bolivia draw with Uruguay**\
+`Argentina join the three host nations alongside Japan, New Zealand and Iran in the 48-team competition.`\
+https://nytimes.com/athletic/6230848/2025/03/25/argentina-qualify-2026-world-cup/
+
+**The Worst Part of Pete Hegseth’s Group Chat Debacle**\
+`And why the careless secretary of defense should resign.`\
+https://nytimes.com/2025/03/25/opinion/pete-hegseth-security-breach-resign.html
+
 **Federal Judge Blocks Iowa Law Restricting Sexually Explicit School Books**\
 `The ruling is a victory for the publishers and free speech advocates who challenged the law, but the judge’s decision is far from final.`\
 https://nytimes.com/2025/03/25/us/iowa-books-ruling.html
