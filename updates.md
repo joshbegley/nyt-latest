@@ -1,3 +1,7 @@
+**Sacramento State hires Mike Bibby as men's basketball coach**\
+`Bibby spent seven seasons with the Sacramento Kings and has experience as an assistant coach with the Puerto Rican national team.`\
+https://nytimes.com/athletic/6230107/2025/03/25/mike-bibby-head-coach-sacamento-state-basketball/
+
 **Angels release former No. 1 draft pick Mickey Moniak**\
 `The top pick in 2016 had won his arbitration case against the Angels this offseason, and was set to make $2 million this year.`\
 https://nytimes.com/athletic/6230058/2025/03/25/mickey-moniak-angels-release/

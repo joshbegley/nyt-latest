@@ -1,3 +1,7 @@
+**Sacramento State hires Mike Bibby as men's basketball coach**\
+`Bibby spent seven seasons with the Sacramento Kings and has experience as an assistant coach with the Puerto Rican national team.`\
+https://nytimes.com/athletic/6230107/2025/03/25/mike-bibby-head-coach-sacamento-state-basketball/
+
 **Angels release former No. 1 draft pick Mickey Moniak**\
 `The top pick in 2016 had won his arbitration case against the Angels this offseason, and was set to make $2 million this year.`\
 https://nytimes.com/athletic/6230058/2025/03/25/mickey-moniak-angels-release/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230112/2025/03/25/uswnt-april-roster-brazil-full-t
 **Tuchel concerned by Club World Cup reducing players' rest period**\
 `The month-long tournament commences on June 14 in the United States and will include some of the biggest clubs in world football,`\
 https://nytimes.com/athletic/6228883/2025/03/25/tuchel-club-world-cup/
-
-**OpenAI Unveils New Image Generator for ChatGPT**\
-`The company’s chatbot can now create elaborate and unusual images.`\
-https://nytimes.com/2025/03/25/technology/chatgpt-image-generator.html
 

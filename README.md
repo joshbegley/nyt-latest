@@ -1,3 +1,15 @@
+**Three tactical issues behind the USMNT defeats to Panama and Canada**\
+`Mauricio Pochettino has some urgent problems to fix as World Cup 2026 creeps ever closer  `\
+https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochettino-panama-canada/
+
+**Who Is Michael Waltz?**\
+`The national security adviser has been walking a tightrope even before the disclosure of the group chat.`\
+https://nytimes.com/2025/03/25/us/who-is-michael-waltz.html
+
+**Watch: If both quarterbacks get drafted, is Travis Hunter the best fit for the Giants?**\
+`"The Athletic Football Show" discusses why the Giants should select Travis Hunter at three and why he can play both sides of the ball.`\
+https://nytimes.com/athletic/6228955/2025/03/25/athletic-football-show-new-york-giants-draft-travis-hunter/
+
 **Sacramento State hires Mike Bibby as men's basketball coach**\
 `Bibby spent seven seasons with the Sacramento Kings and has experience as an assistant coach with the Puerto Rican national team.`\
 https://nytimes.com/athletic/6230107/2025/03/25/mike-bibby-head-coach-sacamento-state-basketball/
@@ -25,16 +37,4 @@ https://nytimes.com/video/science/space/100000010071627/space-x-rocket-creates-g
 **George Clooney Play Breaks a Broadway Box Office Record**\
 `“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
 https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
-
-**Submit your questions for Mike DeFabo's Steelers mailbag**\
-`The Steelers landed DK Metcalf but still don't have a starting quarterback. Got questions? Mike is here to answer them.`\
-https://nytimes.com/athletic/6230167/2025/03/25/steelers-mailbag-nfl-free-agency/
-
-**Full Time: Instant reaction to the USWNT's April roster**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6230112/2025/03/25/uswnt-april-roster-brazil-full-time/
-
-**Tuchel concerned by Club World Cup reducing players' rest period**\
-`The month-long tournament commences on June 14 in the United States and will include some of the biggest clubs in world football,`\
-https://nytimes.com/athletic/6228883/2025/03/25/tuchel-club-world-cup/
 
