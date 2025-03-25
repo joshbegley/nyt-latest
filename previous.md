@@ -1,3 +1,27 @@
+**Funding Cuts at Columbia Create ‘Chilling Effect,’ Faculty Lawsuit Says**\
+`The Trump administration’s cancellation of $400 million in aid violates the Constitution, a teachers’ union and a faculty group allege.`\
+https://nytimes.com/2025/03/25/nyregion/columbia-faculty-lawsuit-funding-cuts.html
+
+**Until Saturday: The FBI-wiretap coach is back**\
+`Until Saturday is The Athletic's college sports newsletter.`\
+https://nytimes.com/athletic/6230057/2025/03/25/will-wade-nc-state-hired-until-saturday/
+
+**Who Is Jeffrey Goldberg?**\
+`Mr. Goldberg, who was included on a private text thread discussing war plans, was a longtime national security report who became editor of The Atlantic in 2016.`\
+https://nytimes.com/2025/03/25/business/media/who-is-jeffrey-goldberg.html
+
+**In Aurora, Colo., a Split Over the Biggest Threat to the City: Migrants or Trump?**\
+`President Trump has made Colorado’s third-largest city synonymous with the supposed scourge of Venezuelan gangs, but some wonder if his immigration raids are damaging the city more than the migrants ever did.`\
+https://nytimes.com/2025/03/25/us/politics/trump-aurora-migrants.html
+
+**Ingebrigtsen tells court he was slapped, kicked by father Gjert**\
+`The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
+https://nytimes.com/athletic/6229890/2025/03/25/jakob-ingebrigtsen-trial-father-gjert/
+
+**Women's national title odds: UConn emerges as favorite after JuJu's injury**\
+`UConn has catapulted to the top of the betting board after JuJu Watkins' unfortunate injury. Read for the latest title odds.`\
+https://nytimes.com/athletic/6229662/2025/03/25/womens-march-madness-national-title-odds-uconn-juju-watkins-injury/
+
 **Severance**\
 ``\
 https://nytimes.com/spotlight/severance-apple-tv
@@ -13,28 +37,4 @@ https://nytimes.com/2025/03/25/sports/olympic-track-female-sex-tests.html
 **Azzi Fudd returning to UConn next season for final year of eligibility**\
 `Fudd, the No. 1 recruit in the 2021 class, has had both an impressive and injury-riddled career with the Huskies.`\
 https://nytimes.com/athletic/6229837/2025/03/25/azzi-fudd-uconn-eligibility-back/
-
-**Stanford fires coach Troy Taylor following investigations into bullying behavior**\
-`New Stanford general manager Andrew Luck made the decision Tuesday to terminate Taylor.`\
-https://nytimes.com/athletic/6219705/2025/03/25/stanford-fires-troy-taylor-andrew-luck/
-
-**Professors Sue Trump Administration Over Arrests of Campus Protesters**\
-`The lawsuit says the detention of noncitizen students and faculty members deprives U.S. citizens of their right to engage with foreign-born peers.`\
-https://nytimes.com/2025/03/25/nyregion/professors-sue-trump.html
-
-**Depardieu Admits Grabbing a Female Colleague but Denies Sexual Assault**\
-`The French actor testified in court for first time against accusations that he groped a co-worker, after years of serious allegations over his behavior.`\
-https://nytimes.com/2025/03/25/gerard-depardieu-trial-sexual-assault-france.html
-
-**At Kabawa, Paul Carmichael Takes a Local Approach to Caribbean Cuisine**\
-`Laliko serves traditional Georgian food in an intimate setting, Sal Lamboglia steps in for Ferdinando’s Focacceria and more restaurant news.`\
-https://nytimes.com/2025/03/25/dining/nyc-restaurant-news.html
-
-**Prime Tire: A trip inside F1's coolest fan zone. Plus: The climb ahead for Lewis Hamilton**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6229676/2025/03/25/lewis-hamilton-ferrari-f1-liam-lawson-prime-tire/
-
-**What I’m Hearing in China This Week About Our Shared Future**\
-`We need the two superpowers to get serious about devising a regulatory and technological framework that keeps A.I. under human control.`\
-https://nytimes.com/2025/03/25/opinion/trump-china-ai.html
 
