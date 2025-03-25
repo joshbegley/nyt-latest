@@ -1,3 +1,11 @@
+**What Is the Secrecy Power Trump’s Aides Are Using to Stonewall a Federal Judge?**\
+`The administration is invoking an extraordinary national security power, the state secrets privilege, under highly unusual circumstances.`\
+https://nytimes.com/2025/03/25/us/politics/trump-state-secrets-privilege-explained.html
+
+**Lions mailbag: Submit your questions to Colton Pouncy**\
+`Send your Lions questions to Colton Pouncy.`\
+https://nytimes.com/athletic/6230491/2025/03/25/lions-mailbag-questions-colton-pouncy/
+
 **Consumer Confidence Is Tumbling as Financial Concerns Mount**\
 `The level in the Conference Board’s latest monthly survey was the lowest since January 2021.`\
 https://nytimes.com/2025/03/25/business/consumer-confidence-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/03/24/opinion/thepoint/no-other-land-director-west
 **A Queens Bar Becomes a Beacon for Inspired Mexican American Food**\
 `Like the big cat that presides over this Ridgewood restaurant, Hellbender knows how to stretch — mixing late-night vibes with polished cooking.`\
 https://nytimes.com/2025/03/25/dining/hellbender-nyc-restaurant-review.html
-
-**In JuJu Watkins' absence, who will step up for USC in the Sweet 16?**\
-`Can Kiki Iriafen explode again for the Trojans? They'll need her best efforts against Kansas State`\
-https://nytimes.com/athletic/6230300/2025/03/25/juju-watkins-injury-usc-sweet-16-2/
-
-**Four Top Trump Officials Are Set to Brief G.O.P. Donors in April**\
-`A donor network co-founded by Vice President JD Vance is set to host Robert F. Kennedy Jr., Scott Bessent, Tulsi Gabbard and Steve Witkoff.`\
-https://nytimes.com/2025/03/25/us/politics/vance-rockbridge-rfk-gabbard-bessent-witkoff.html
 

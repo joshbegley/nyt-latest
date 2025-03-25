@@ -1,3 +1,15 @@
+**Consumer Confidence Is Tumbling as Financial Concerns Mount**\
+`The level in the Conference Board’s latest monthly survey was the lowest since January 2021.`\
+https://nytimes.com/2025/03/25/business/consumer-confidence-trump.html
+
+**Prospect Cam Smith makes Astros' Opening Day roster after just 32 minor-league games**\
+`Only two players in MLB's draft era played fewer games than Smith before making their big-league debuts.`\
+https://nytimes.com/athletic/6228494/2025/03/25/astros-cam-smith-opening-day-roster/
+
+**Jordan Montgomery set to have second elbow surgery, likely ending ugly Arizona tenure**\
+`An MRI revealed the worst for Montgomery, whose career has taken a turn since his role in helping Texas win the 2023 World Series. `\
+https://nytimes.com/athletic/6230450/2025/03/25/jordan-montgomery-arizona-tommy-john-surgery/
+
 **Mariners, Cal Raleigh agree to 6-year, $105 million extension: Source**\
 `Raleigh, 28, won his first Gold Glove last season while leading Seattle with a career-high 34 home runs and 100 RBI.`\
 https://nytimes.com/athletic/6230302/2025/03/25/mainers-cal-raleigh-contract-extension/
