@@ -1,3 +1,7 @@
+**Q&A with White Sox GM Chris Getz: 'We're going to win more games than we did last year'**\
+`Getz goes into his second full season with no money to spend and no hope for the present, and yet he’s optimistic.`\
+https://nytimes.com/athletic/6227833/2025/03/25/chicago-white-sox-general-manager-chris-getz/
+
 **‘The Studio’ Review: He Is Decades Too Late for His Close-Up**\
 `Seth Rogen plays a stressed-out movie bigwig in a satire of an industry in decline.`\
 https://nytimes.com/2025/03/25/arts/television/the-studio-review-seth-rogen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/world/europe/russia-ukraine-deal-black-sea.html
 **Complete Your Mornings by Dunking Your Face Into Cold Water**\
 `Ashton Hall’s unconventional morning routine has drawn close to a billion views, and scores of copycat videos.`\
 https://nytimes.com/2025/03/25/style/ashton-hall-morning-routine-saratoga-water.html
-
-**TCU's Hailey Van Lith opens up about past mental health struggles**\
-`Van Lith told reporters Sunday she had previously been suicidal but has now arrived at a "moment of loving life."`\
-https://nytimes.com/athletic/6229300/2025/03/25/tcu-hailey-van-lith-mental-health/
 
