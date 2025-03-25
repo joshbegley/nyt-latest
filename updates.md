@@ -1,3 +1,7 @@
+**Lou Nasti, Who Brought Christmas Displays to Extravagant Life, Dies at 79**\
+`A robotics specialist, he animated puppets and dolls for displays worldwide. His “Toyland,” with a two-story-high Santa, drew sightseers to a Brooklyn home for years.`\
+https://nytimes.com/2025/03/25/nyregion/lou-nasti-dead.html
+
 **Lou Nasti, Who Brought Christmas Displays to Life, Dies at 79**\
 `He animated puppets and dolls for holiday displays around the world, and his extravagant, illuminated display at a Brooklyn home was a sightseeing fixture.`\
 https://nytimes.com/2025/03/25/obituaries/lou-nasti-dead.html
