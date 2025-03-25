@@ -1,3 +1,7 @@
+**Has LSU women's basketball redefined its ceiling as it enters the Sweet 16?**\
+`“We weren't talked about at all when we won it two years ago,” Kim Mulkey said. “So let's go see what we can do.”`\
+https://nytimes.com/athletic/6228450/2025/03/24/lsu-sweet-16-florida-state/
+
 **Crew Propellers**\
 `Bob Benson makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/03/24/crosswords/daily-puzzle-2025-03-25.html
