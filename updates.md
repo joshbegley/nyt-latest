@@ -1,3 +1,15 @@
+**Column: JuJu Watkins' absence from March Madness hurts USC and pains women's basketball**\
+`Watkins' suffered a season-ending knee injury in the second round. The ramifications extend beyond the Trojans.`\
+https://nytimes.com/athletic/6228752/2025/03/25/juju-watkins-injury-usc-sweet-16/
+
+**Alec Bohm's offseason bubble: After a winter without social media — and trade rumors — he's still here**\
+`Given how the 2024 season ended, Bohm needed to breathe. He found his refuge in Texas and constructed a bubble from the rest of the world. `\
+https://nytimes.com/athletic/6227834/2025/03/25/alec-bohm-offseason-social-media-phillies-trade-rumors/
+
+**The Pulse: A superstar goes down**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6227319/2025/03/25/juju-watkins-injury-ncaa-the-pulse/
+
 **25 MLB predictions for 2025 season: Vlad Jr. extended? Cease to O's? Phillies sign Tucker?**\
 `Baseball is back, so let’s have some fun with it. Here are my 25 predictions for the 2025 season and subsequent offseason.`\
 https://nytimes.com/athletic/6228831/2025/03/25/mlb-predictions-2025-vladimir-guerrero-extension-kyle-tucker-phillies/
