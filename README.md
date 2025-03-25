@@ -27,7 +27,7 @@ https://nytimes.com/2025/03/25/science/foie-gras-ducks-geese-physics.html
 https://nytimes.com/2025/03/25/well/trauma-books.html
 
 **Inside A.I.’s Super Bowl: Nvidia Dreams of a Robot Future**\
-`Nvidia, the world’s largest maker of artificial intelligence chips, brought the robots together as part of its annual developer conference.`\
+`Nvidia showcased robots that could work in warehouses, pedal around like ‘Star Wars’ droids and manipulate surgical equipment at its weeklong A.I. conference`\
 https://nytimes.com/2025/03/25/technology/nvidia-ai-robots.html
 
 **UNLV to hire Josh Pastner as next basketball coach: Source**\
