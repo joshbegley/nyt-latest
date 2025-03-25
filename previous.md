@@ -1,3 +1,15 @@
+**Pennsylvania State Legislature Special Election Results**\
+`Get live results and maps from the 2025 Pennsylvania state senate and state house special elections.`\
+https://nytimes.com/interactive/2025/03/25/us/elections/results-pennsylvania-special-elections.html
+
+**Vandals of Paddington Statue Were ‘Antithesis’ of Beloved Bear, Judge Says**\
+`A jurist in England scolded two members of the British Royal Air Force who damaged the bear, saying their actions “lacked respect and integrity.”`\
+https://nytimes.com/2025/03/25/world/europe/paddington-bear-statue-stolen-raf-engineers.html
+
+**Intelligence officials acknowledge the sensitivity of the military strike information.**\
+`Under questioning from senators, the C.I.A. chief and the director of national intelligence pointed to the defense secretary to determine what was appropriate to share.`\
+https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/ratcliffe-gabbard-signal-leak
+
 **Three tactical issues behind the USMNT defeats to Panama and Canada**\
 `Mauricio Pochettino has some urgent problems to fix as World Cup 2026 creeps ever closer  `\
 https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochettino-panama-canada/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6230187/2025/03/25/aaliyah-chavez-commit-2025-class
 **Ravens free-agency tracker: CB Chidobe Awuzie signs 1-year deal**\
 `Analyzing all of Baltimore's moves as the 2025 league year begins. `\
 https://nytimes.com/athletic/6188842/2025/03/25/ravens-free-agency-tracker-signings-trades/
-
-**Mob Descends on a Comedy Club After a Comic Jokes About a Politician**\
-`Prime Minister Narendra Modi has said criticism is “the soul” of Indian democracy. But his allies unleashed vigilantes after a comic who called a politician a “traitor.”`\
-https://nytimes.com/2025/03/25/world/asia/india-habitat-mumbai-comedy.html
-
-**SpaceX Rocket Launch Creates a Glowing Spiral in Night Sky**\
-`Frozen fuel from the SpaceX Falcon 9 rocket created a luminous swirl that lasted for several minutes and could be seen from Britain and much of Europe.`\
-https://nytimes.com/video/science/space/100000010071627/space-x-rocket-creates-glowing-spiral.html
-
-**George Clooney Play Breaks a Broadway Box Office Record**\
-`“Good Night, and Good Luck” grossed $3.3 million last week, breaking a record that was set earlier this month by Denzel Washington’s “Othello.”`\
-https://nytimes.com/2025/03/25/theater/george-clooney-broadway-record.html
 

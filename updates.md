@@ -1,3 +1,15 @@
+**Pennsylvania State Legislature Special Election Results**\
+`Get live results and maps from the 2025 Pennsylvania state senate and state house special elections.`\
+https://nytimes.com/interactive/2025/03/25/us/elections/results-pennsylvania-special-elections.html
+
+**Vandals of Paddington Statue Were ‘Antithesis’ of Beloved Bear, Judge Says**\
+`A jurist in England scolded two members of the British Royal Air Force who damaged the bear, saying their actions “lacked respect and integrity.”`\
+https://nytimes.com/2025/03/25/world/europe/paddington-bear-statue-stolen-raf-engineers.html
+
+**Intelligence officials acknowledge the sensitivity of the military strike information.**\
+`Under questioning from senators, the C.I.A. chief and the director of national intelligence pointed to the defense secretary to determine what was appropriate to share.`\
+https://nytimes.com/live/2025/03/25/us/trump-hegseth-war-plans-leak-signal/ratcliffe-gabbard-signal-leak
+
 **Three tactical issues behind the USMNT defeats to Panama and Canada**\
 `Mauricio Pochettino has some urgent problems to fix as World Cup 2026 creeps ever closer  `\
 https://nytimes.com/athletic/6229960/2025/03/25/usmnt-tactical-problems-pochettino-panama-canada/
