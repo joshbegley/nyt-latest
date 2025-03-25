@@ -1,40 +1,40 @@
-**Gaza’s Return to War**\
-`We explore how the cease-fire collapsed — and what might happen next.`\
-https://nytimes.com/2025/03/25/briefing/gaza-israel-hamas-ceasefire.html
+**Despite key injuries and questions, there are reasons to feel good about the Yankees**\
+`Gerrit Cole is out for the year. Juan Soto is with the Mets. Giancarlo Stanton's return is unknown. Yet it's not all doom in the Bronx.`\
+https://nytimes.com/athletic/6227991/2025/03/25/new-york-yankees-2025-expectations-questions/
 
-**Column: JuJu Watkins' absence from March Madness hurts USC and pains women's basketball**\
-`Watkins' suffered a season-ending knee injury in the second round. The ramifications extend beyond the Trojans.`\
-https://nytimes.com/athletic/6228752/2025/03/25/juju-watkins-injury-usc-sweet-16/
+**Twins 2025 season preview: Roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Twins stack up, with projected lineup, rotation and individual stats.`\
+https://nytimes.com/athletic/6218691/2025/03/25/mlb-minnesota-twins-2025-season-preview/
 
-**Alec Bohm's offseason bubble: After a winter without social media — and trade rumors — he's still here**\
-`Given how the 2024 season ended, Bohm needed to breathe. He found his refuge in Texas and constructed a bubble from the rest of the world. `\
-https://nytimes.com/athletic/6227834/2025/03/25/alec-bohm-offseason-social-media-phillies-trade-rumors/
+**Who has the edge in the women's Sweet 16: Can USC beat Kansas State without JuJu Watkins?**\
+`Can Notre Dame beat TCU? Texas or Tennessee? `\
+https://nytimes.com/athletic/6228719/2025/03/25/womens-sweet-16-matchups-picks/
 
-**The Pulse: A superstar goes down**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6227319/2025/03/25/juju-watkins-injury-ncaa-the-pulse/
+**Atlanta Braves 2025 season preview: Roster breakdown, projections and bold prediction**\
+`After a pretty quiet offseason, the Braves hope to return to the top of the AL East. Better luck with health will be a major key.`\
+https://nytimes.com/athletic/6218678/2025/03/25/mlb-atlanta-braves-2025-season-preview/
 
-**25 MLB predictions for 2025 season: Vlad Jr. extended? Cease to O's? Phillies sign Tucker?**\
-`Baseball is back, so let’s have some fun with it. Here are my 25 predictions for the 2025 season and subsequent offseason.`\
-https://nytimes.com/athletic/6228831/2025/03/25/mlb-predictions-2025-vladimir-guerrero-extension-kyle-tucker-phillies/
+**Cincinnati Reds 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Reds stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6225871/2025/03/25/mlb-cincinnati-reds-season-preview-2025/
 
-**Bears pre-draft, post-free agency depth chart: More needed in the trenches**\
-`What positions could use some help from the draft? How much has free agency changed the roster? Our analysis of the Bears' depth chart.`\
-https://nytimes.com/athletic/6227056/2025/03/25/bears-2025-depth-chart-nfl-draft/
+**Detroit Tigers 2025 season preview: Roster breakdown, projections and bold prediction**\
+`The 2025 Detroit Tigers begin the season with heightened expectations but real questions after last year's surprise playoff run. `\
+https://nytimes.com/athletic/6219451/2025/03/25/mlb-detroit-tigers-2025-season-preview/
 
-**Charting Cam Ward: What numbers say about star's 2025 NFL Draft prospects**\
-`Ward is a slight step down from the elite prospects in the 2024 class, but he's still a top-10 pick in his own right.`\
-https://nytimes.com/athletic/6218236/2025/03/25/cam-ward-2025-nfl-draft-stats-film-numbers/
+**Anthony Davis returns for Mavs: 'There was no doubt I was going to come back and play'**\
+`Monday, the Mavericks saw Davis return to their lineup after an 18-game absence due to a left adductor strain.`\
+https://nytimes.com/athletic/6228637/2025/03/25/anthony-davis-mavericks-nba-return/
 
-**Commanders big board 2.0: Hunting for edge rushers, cornerbacks, playmakers**\
-`Thanks to three significant trades since November, Washington currently holds only five selections after drafting nine players in 2024.`\
-https://nytimes.com/athletic/6225222/2025/03/25/commanders-2025-nfl-draft-big-board/
+**Los Angeles Angels 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Angels stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6219066/2025/03/25/mlb-los-angeles-angels-2025-season-preview/
 
-**WNBA GMs anonymously scout Paige Bueckers and more NCAA Tournament guards**\
-`One scout called Bueckers "the most sure thing today in this draft.”`\
-https://nytimes.com/athletic/6227644/2025/03/25/wnba-scouts-march-madness-guards-2025/
+**The worst-case scenario for the 2025 Giants**\
+`The Giants' worst-case scenario would be if the young players on their roster disappoint so badly they are no longer building blocks.`\
+https://nytimes.com/athletic/6228379/2025/03/25/sf-giants-2025-worst-case-scenario/
 
-**James Dolan vs. the NBA: Why the Knicks owner is at odds with the league**\
-`Over the last two years; Dolan’s grievances with the NBA and its commissioner Adam Silver have continued to mount. What could come next?`\
-https://nytimes.com/athletic/6226872/2025/03/25/james-dolan-adam-silver-owner-commissioner-nba/
+**Players brace for the oddities, anxieties of final cuts: 'I'm trying to keep the reaper away'**\
+`This time of year is harrowing for players on the roster bubble, who are often competing against close friends for precious spots.`\
+https://nytimes.com/athletic/6227587/2025/03/25/mlb-players-spring-training-final-cuts/
 
