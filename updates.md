@@ -1,3 +1,11 @@
+**Is Russia an Adversary or a Future Partner? Trump’s Aides May Have to Decide.**\
+`On Tuesday, America’s top intelligence officials will release their current assessment of Russia. They are caught between what their analysts say and what President Trump wants to hear.`\
+https://nytimes.com/2025/03/24/us/politics/trump-witkoff-russia-putin.html
+
+**Pohlads seeking at least $1.7B for Twins, have more than $425M in debt on books: Sources**\
+`The Twins are starting to renew the sale process. In talks with one interested group, they deemed a $1.5 billion valuation a non-starter.`\
+https://nytimes.com/athletic/6228151/2025/03/24/minnesota-twins-sale-pohlads-valuation-debt/
+
 **With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
 `With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
 https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
