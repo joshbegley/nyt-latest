@@ -1,3 +1,15 @@
+**Trump’s Pick to Lead Social Security Administration Faces Senators**\
+`Frank Bisignano is expected to face questions about the White House’s plans for the agency, which supplies monthly benefits to 73 million people and normally moves slowly.`\
+https://nytimes.com/2025/03/25/us/politics/social-security-frank-bisignano-confirmation.html
+
+**Mookie Betts has ‘turned a corner’ in long ordeal with mystery illness**\
+`Betts, who said his blood work and other testing has come back normal, worked out on Monday.`\
+https://nytimes.com/athletic/6229184/2025/03/25/dodgers-mookie-betts-illness-weight/
+
+**The Bounce: Jimmy Butler vs. Heat is chance for Warriors star to add to revenge-game history**\
+`Jimmy Butler has a history of revenge games against former teams. How will his return to Miami go?`\
+https://nytimes.com/athletic/6229064/2025/03/25/jimmy-butler-warriors-heat-revenge-game-doc-rivers-bucks-nba-the-bounce/
+
 **SpaceX Rocket Leaves a Glowing Spiral in the Sky, Visible Across Europe**\
 `Frozen fuel from the Falcon 9 rocket launched Monday created a luminous display for several minutes, and was seen by people from England to Eastern Europe.`\
 https://nytimes.com/2025/03/25/science/sky-spiral-spacex-rocket-launch-musk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6227615/2025/03/25/darcy-kuemper-kings-vezina/
 **Manchester City mailbag: Pose your questions to Sam Lee as the season's final stretch begins**\
 `City mailbag: Post your questions to Sam Lee on the season so far and the club's prospects in the next couple of months`\
 https://nytimes.com/athletic/6227215/2025/03/25/manchester-city-mailbag-pose-your-questions-to-sam-lee-as-final-stretch-of-2024-25-begins/
-
-**Sisters With ‘Ketchup and Mustard’ Shoes**\
-`Bright yellow and red footwear went together like classic condiments.`\
-https://nytimes.com/2025/03/25/style/street-style-look-colorful-shoes.html
-
-**Aston Villa's Mings expected to take role on FA's board of directors for Euro 2028**\
-`The FA wanted a current player on the board to help with the tournament's preparations and Mings is now set be appointed.`\
-https://nytimes.com/athletic/6225198/2025/03/25/tyrone-mings-euro-2028-fa-board/
-
-**Japanese Court Disbands Unification Church in Wake of Abe Killing**\
-`The assassination in 2022 of Shinzo Abe, the country’s former prime minister, led to an investigation into the group’s political ties and manipulation of its followers to raise funds.`\
-https://nytimes.com/2025/03/25/world/asia/japanese-court-church-disband.html
 

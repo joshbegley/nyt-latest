@@ -1,3 +1,15 @@
+**Trump’s Pick to Lead Social Security Administration Faces Senators**\
+`Frank Bisignano is expected to face questions about the White House’s plans for the agency, which supplies monthly benefits to 73 million people and normally moves slowly.`\
+https://nytimes.com/2025/03/25/us/politics/social-security-frank-bisignano-confirmation.html
+
+**Mookie Betts has ‘turned a corner’ in long ordeal with mystery illness**\
+`Betts, who said his blood work and other testing has come back normal, worked out on Monday.`\
+https://nytimes.com/athletic/6229184/2025/03/25/dodgers-mookie-betts-illness-weight/
+
+**The Bounce: Jimmy Butler vs. Heat is chance for Warriors star to add to revenge-game history**\
+`Jimmy Butler has a history of revenge games against former teams. How will his return to Miami go?`\
+https://nytimes.com/athletic/6229064/2025/03/25/jimmy-butler-warriors-heat-revenge-game-doc-rivers-bucks-nba-the-bounce/
+
 **SpaceX Rocket Leaves a Glowing Spiral in the Sky, Visible Across Europe**\
 `Frozen fuel from the Falcon 9 rocket launched Monday created a luminous display for several minutes, and was seen by people from England to Eastern Europe.`\
 https://nytimes.com/2025/03/25/science/sky-spiral-spacex-rocket-launch-musk.html
