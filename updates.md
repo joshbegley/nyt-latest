@@ -1,3 +1,7 @@
+**25 MLB predictions for 2025 season: Vlad Jr. extended? Cease to O's? Phillies sign Tucker?**\
+`Baseball is back, so let’s have some fun with it. Here are my 25 predictions for the 2025 season and subsequent offseason.`\
+https://nytimes.com/athletic/6228831/2025/03/25/mlb-predictions-2025-vladimir-guerrero-extension-kyle-tucker-phillies/
+
 **Bears pre-draft, post-free agency depth chart: More needed in the trenches**\
 `What positions could use some help from the draft? How much has free agency changed the roster? Our analysis of the Bears' depth chart.`\
 https://nytimes.com/athletic/6227056/2025/03/25/bears-2025-depth-chart-nfl-draft/
