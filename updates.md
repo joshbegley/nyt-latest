@@ -1,3 +1,15 @@
+**A Queens Bar Becomes a Beacon for Inspired Mexican American Food**\
+`Like the big cat that presides over this Ridgewood restaurant, Hellbender knows how to stretch — mixing late-night vibes with polished cooking.`\
+https://nytimes.com/2025/03/25/dining/hellbender-nyc-restaurant-review.html
+
+**In JuJu Watkins' absence, who will step up for USC in the Sweet 16?**\
+`Can Kiki Iriafen explode again for the Trojans? They'll need her best efforts against Kansas State`\
+https://nytimes.com/athletic/6230300/2025/03/25/juju-watkins-injury-usc-sweet-16-2/
+
+**Four Top Trump Officials Are Set to Brief G.O.P. Donors in April**\
+`A donor network co-founded by Vice President JD Vance is set to host Robert F. Kennedy Jr., Scott Bessent, Tulsi Gabbard and Steve Witkoff.`\
+https://nytimes.com/2025/03/25/us/politics/vance-rockbridge-rfk-gabbard-bessent-witkoff.html
+
 **Republicans in Congress React to Signal Chat Leak With Collective Shrug**\
 `A few G.O.P. lawmakers said they would look into the breach, but party leaders largely tempered their criticism of the Trump administration.`\
 https://nytimes.com/2025/03/25/us/politics/republicans-congress-signal-leak.html
