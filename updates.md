@@ -1,3 +1,7 @@
+**Ornstein named British Sportswriter of the Year**\
+`It is the second year in a row The Athletic has scooped the prestigious John Bromley Trophy, following Adam Crafton's success in March 2024.`\
+https://nytimes.com/athletic/6228852/2025/03/25/british-sports-journalism-awards-david-ornstein/
+
 **She Was Released. Now She’s Campaigning for Her Partner Still in Gaza.**\
 `Trepidation over the fate of other captives has left Ilana Gritzewsky little time for self-healing after her own violent abduction.`\
 https://nytimes.com/2025/03/25/world/middleeast/israeli-hostage-gaza-campaign.html
