@@ -1,3 +1,11 @@
+**USC's JuJu Watkins exits vs. Mississippi State with apparent knee injury**\
+`Watkins was running the floor in transition and knocked into a Bulldogs player as she was driving to the basket in the first quarter.`\
+https://nytimes.com/athletic/6228552/2025/03/24/juju-watkins-injury-usc-march-madness-2025/
+
+**Samsung Electronics Executive Han Jong-Hee Dies at 63**\
+`Mr. Han, a longtime Samsung executive, oversaw the company’s consumer electronics business since 2021.`\
+https://nytimes.com/2025/03/24/business/han-jong-hee-dead.html
+
 **Cam Ward impresses at pro day, feels his standing as No. 1 pick should be solidified**\
 `Ward finished his workout believing he left "no doubt" the Titans should take him first when the NFL Draft begins April 24. `\
 https://nytimes.com/athletic/6228419/2025/03/24/cam-ward-pro-day-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6228151/2025/03/24/minnesota-twins-sale-pohlads-val
 **With Wenceel Pérez hurt, the Tigers weigh imperfect center-field options**\
 `With Pérez injured, the Tigers are down three center fielders. Even new signing Manuel Margot might not be the end-all solution. `\
 https://nytimes.com/athletic/6228197/2025/03/24/tigers-center-field-options-wenceel-perez-injury/
-
-**The Importance of Being SpaceX**\
-`Tesla might be suffering, but SpaceX is poised to profit off billions in new government contracts`\
-https://nytimes.com/2025/03/24/us/politics/musk-spacex.html
-
-**Chiefs' Xavier Worthy sues ex-fiancée, alleges stolen property, extortion**\
-`The lawsuit seeks between $250,000 and $1 million in monetary relief.`\
-https://nytimes.com/athletic/6228081/2025/03/24/xavier-worthy-lawsuit-fiancee-extortion-chiefs/
 
