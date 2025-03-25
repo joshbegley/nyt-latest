@@ -1,3 +1,7 @@
+**A Fungi Pioneer’s Lifelong Work on Exhibit**\
+`Mushrooms in 19th-century watercolors: The paintings of a self-taught female mycologist are featured at the New York State Museum.`\
+https://nytimes.com/2025/03/25/science/mushrooms-fungi-new-york-state-museum.html
+
 **Red Wings thoughts: What can be learned from an 'ugly' win in Utah?**\
 `The Red Wings' win in Utah wasn't pretty, but it pulled them back within 3 points of a playoff spot and showed some key developments.`\
 https://nytimes.com/athletic/6228683/2025/03/25/red-wings-utah-hockey-alex-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226878/2025/03/25/nottingham-forest-cocktail-bar-m
 **Why Andre Onana has started going long more often for United**\
 `Personnel and problems when playing the ball out of the back are both factors for Onana's recent change in passing style`\
 https://nytimes.com/athletic/6221546/2025/03/25/andre-onana-long-passes-manchester-united/
-
-**Lewis-Skelly, Nwaneri futures? Saka to face Real? Calafiori - Arsenal writers discuss your queries**\
-`Our club writers discuss some of the talking points subscribers have raised in the past week`\
-https://nytimes.com/athletic/6223568/2025/03/25/arsenal-lewis-skelly-nwaneri-calafiori/
 
