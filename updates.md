@@ -1,3 +1,7 @@
+**A Fungi Pioneer’s Lifelong Work on Exhibit**\
+`Mushrooms in 19th-century watercolors: The paintings of a self-taught female mycologist are featured at the New York State Museum.`\
+https://nytimes.com/2025/03/25/science/mushrooms-fungi-new-york-state-museum.html
+
 **Trump Officials Texted War Plans on Signal App**\
 `Defense Secretary Pete Hegseth said “nobody was texting” classified U.S. attack plans using a messaging app.`\
 https://nytimes.com/video/us/politics/100000010070987/hegseth-classified-war-plans-group-chat.html
