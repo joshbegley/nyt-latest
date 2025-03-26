@@ -1,3 +1,7 @@
+**U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
+`The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
+https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
+
 **How Well Do You Know Your Own Group Chats?**\
 `A journalist’s inclusion in a national security discussion served as a reminder that you might not know every number in the chat — and that could be a big problem.`\
 https://nytimes.com/2025/03/25/style/group-chat-security-signal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230970/2025/03/25/bruins-charlie-mcavoy-injury-inf
 **After winning fifth starter job, Ben Brown can bring something unique to Cubs rotation**\
 `In a rotation that averaged 92.1 mph on its four-seam fastballs last season, Brown brings a different energy.`\
 https://nytimes.com/athletic/6230910/2025/03/25/ben-brown-cubs-rotation-fifth-starter/
-
-**Columbia Planned Tighter Protest Rules Even Before Trump Demanded Them**\
-`Students sued to stop Columbia from giving their disciplinary records to the federal government, which has demanded that the university rein in demonstrations.`\
-https://nytimes.com/2025/03/25/nyregion/columbia-campus-rules-khalil-lawsuit.html
 
