@@ -1,3 +1,7 @@
+**As Rafael Devers prepares to DH full-time, his move stands out in baseball history**\
+`For a player of Devers' age, caliber and injury history, a full-time move to DH is exceedingly rare. `\
+https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-path/
+
 **U.S. to End Vaccine Funds for Poor Countries**\
 `A 281-page spreadsheet obtained by The Times lists the Trump administration’s plans for thousands of foreign aid programs.`\
 https://nytimes.com/2025/03/26/health/usaid-cuts-gavi-bird-flu.html

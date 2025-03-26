@@ -1,3 +1,7 @@
+**As Rafael Devers prepares to DH full-time, his move stands out in baseball history**\
+`For a player of Devers' age, caliber and injury history, a full-time move to DH is exceedingly rare. `\
+https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-path/
+
 **Supreme Court Upholds Biden Administration’s Limits on ‘Ghost Guns’**\
 `The administration had tightened regulations on kits that can be easily assembled into nearly untraceable firearms.`\
 https://nytimes.com/2025/03/26/us/politics/supreme-court-ghost-guns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/world/europe/sudan-khartoum-war-rsf-withdrawal.ht
 **Submit questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
 `Have a draft, prospects or scouting question for The Athletic's Scott Wheeler? Submit them here for his next mailbag.`\
 https://nytimes.com/athletic/6232252/2025/03/26/nhl-draft-2025-mailbag-wheeler/
-
-**Amazon Gets Into the LeBron James Business**\
-`The basketball star has signed a podcasting deal with Wondery, furthering Amazon’s wider push into sports.`\
-https://nytimes.com/2025/03/26/business/media/lebron-james-podcast-amazon-wondery.html
 
