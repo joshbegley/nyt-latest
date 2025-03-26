@@ -1,3 +1,15 @@
+**Intelligence Officials Face a Fresh Round of Questions About Signal Leak**\
+`Democrats on a House committee appeared in lock step as they confronted one of the most notable blunders of the Trump administration.`\
+https://nytimes.com/2025/03/26/us/politics/intelligence-officials-signal-leak.html
+
+**Gazans Protest and Call for an End to the War**\
+`Frustrated and angry over the collapse of a cease-fire with Israel, Palestinians took to the streets of northern Gaza to protest against the war. Many chanted anti-Hamas slogans, calling for the group to “get out.”`\
+https://nytimes.com/video/world/middleeast/100000010074101/war-protest-in-gaza-day-two.html
+
+**Surveillance Footage Shows Arrest of Tufts University Student**\
+`Rumeysa Ozturk, a Turkish citizen and a Muslim, was heading out to break her Ramadan fast with friends Tuesday night when she was detained by agents from the Department of Homeland Security.`\
+https://nytimes.com/video/us/100000010075008/tufts-student-ice-arrest.html
+
 **New Giants QB Russell Wilson: 'I expect to be the starter'**\
 `The 13-year NFL veteran is ready to help the Giants turn things following the team's 3-14 season in 2024. `\
 https://nytimes.com/athletic/6233808/2025/03/26/russell-wilson-giants-qb-starter-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/us/kermit-the-frog-commencement-speech-maryland.h
 **Mets close to settling Opening Day roster: Baty, Kranick, Senger all make team**\
 `With one day to go before the start of the season, the Mets have decided all but one spot on their Opening Day roster.`\
 https://nytimes.com/athletic/6233856/2025/03/26/mets-opening-day-roster-baty-kranick-senger/
-
-**H.H.S. Scraps Studies of Vaccines and Treatments for Future Pandemics**\
-`Federal officials cited the end of the Covid-19 pandemic in halting the research. But much of the work was focused on preventing outbreaks of other pathogens.`\
-https://nytimes.com/2025/03/26/health/future-pandemics-vaccines-funding.html
-
-**The Rise of the Statement Sock**\
-`Designers are giving the often-overlooked accessory plenty of personality with bold colors and textures. Here are some of our favorites.`\
-https://nytimes.com/2025/03/26/t-magazine/statement-socks.html
-
-**House Republicans Hold Hearing Accusing PBS and NPR of Bias**\
-`Republicans accused the nation’s two largest public media networks of institutional bias. Democrats dismissed the hearing as an excuse for Republicans to air a familiar list of grievances against the news media.`\
-https://nytimes.com/video/us/politics/100000010073664/npr-pbs-house-hearing.html
 
