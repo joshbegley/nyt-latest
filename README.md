@@ -1,3 +1,15 @@
+**The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
+`If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
+https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
+
+**Measles Cases in Kansas May Be Linked to Texas Outbreak**\
+`State health officials worry that declining vaccination rates have left many communities vulnerable nationwide.`\
+https://nytimes.com/2025/03/26/health/measles-kansas-ohio-texas.html
+
+**Brad Stevens expecting 'business as usual' amid Celtics' ownership transition**\
+`Stevens first met incoming Celtics owner Bill Chisholm a couple of weeks ago but hasn't had much communication with his new boss yet.`\
+https://nytimes.com/athletic/6233932/2025/03/26/brad-stevens-celtics-sale-ownership-change/
+
 **Intelligence Officials Face a Fresh Round of Questions About Signal Leak**\
 `Democrats on a House committee appeared in lock step as they confronted one of the most notable blunders of the Trump administration.`\
 https://nytimes.com/2025/03/26/us/politics/intelligence-officials-signal-leak.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/judges-threats-task-force-trump.html
 **Newly Released Signal Chats Showed What Was at Stake**\
 `Also, the U.S. said it will end vaccine funds for poor countries. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/03/26/briefing/more-signal-chats-trump-tariffs-cars.html
-
-**Vikings GM Kwesi Adofo-Mensah talks Aaron Rodgers, J.J. McCarthy: What we learned**\
-`The Vikings general manager spoke about the state of the QB position, his hopes for McCarthy and the chance he could still pursue Rodgers.`\
-https://nytimes.com/athletic/6233821/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers-jj-mccarthy/
-
-**Kermit the Frog Will Deliver Commencement Speech at U. of Maryland**\
-`The world’s most famous green frog will most likely give some encouraging words to the class of 2025.`\
-https://nytimes.com/2025/03/26/us/kermit-the-frog-commencement-speech-maryland.html
-
-**Mets close to settling Opening Day roster: Baty, Kranick, Senger all make team**\
-`With one day to go before the start of the season, the Mets have decided all but one spot on their Opening Day roster.`\
-https://nytimes.com/athletic/6233856/2025/03/26/mets-opening-day-roster-baty-kranick-senger/
 
