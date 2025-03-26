@@ -1,3 +1,11 @@
+**Trump’s auto tariffs are just one part of his trade strategy.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
+
+**Oleg Gordievsky, K.G.B. Officer Turned Double Agent, Dies at 86**\
+`While climbing the ranks of the Soviet spy agency, he spent more than a decade working for British intelligence as one of its most highly placed moles.`\
+https://nytimes.com/2025/03/26/world/europe/oleg-gordievsky-dead.html
+
 **Stocks slump ahead of Trump’s expected auto tariffs.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/stocks-slump-ahead-of-trumps-expected-auto-tariffs
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/style/tiny-modern-love-stories-i-asked-him-back-t
 **Reds to place OF Austin Hays on IL; Spencer Steer to start on active roster**\
 `Last season, Hays spent time on the IL with the Orioles with a similar calf injury.`\
 https://nytimes.com/athletic/6233303/2025/03/26/reds-austin-hays-il-spencer-steer-roster/
-
-**4 MLB teams that should outperform their win totals this year**\
-`Austin Mock digs into his projection model to identify five teams that could outperform win total odds this season.`\
-https://nytimes.com/athletic/6233112/2025/03/26/mlb-win-totals-best-bets-futures/
-
-**We’re All Conspiracy Theorists Now. Why?**\
-`We are caught up in a vast web. But the strands are visible.`\
-https://nytimes.com/2025/03/26/opinion/kennedy-epstein-conspiracy.html
 

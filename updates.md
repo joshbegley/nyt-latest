@@ -1,3 +1,11 @@
+**Trump’s auto tariffs are just one part of his trade strategy.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
+
+**Oleg Gordievsky, K.G.B. Officer Turned Double Agent, Dies at 86**\
+`While climbing the ranks of the Soviet spy agency, he spent more than a decade working for British intelligence as one of its most highly placed moles.`\
+https://nytimes.com/2025/03/26/world/europe/oleg-gordievsky-dead.html
+
 **Stocks slump ahead of Trump’s expected auto tariffs.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/stocks-slump-ahead-of-trumps-expected-auto-tariffs
