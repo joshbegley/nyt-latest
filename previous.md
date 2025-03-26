@@ -1,3 +1,7 @@
+**Thursday Briefing: More Signal Texts Released**\
+`Plus, a train trip between two worlds.`\
+https://nytimes.com/2025/03/26/briefing/signal-texts-security-sudan-war-south-korea-fires.html
+
 **In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
 `In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
 https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/03/26/us/politics/rubio-signal-chat-mistake.html
 https://nytimes.com/video/us/politics/100000010074825/intelligence-officials-hearing-house-signal.html
 
 **Alabama lands Jorden Edmonds, Tide's first 5-star commit in 2026 class**\
-`Edmonds — the No. 27 player nationally, according to the 247Sports Composite — is the No. 1-ranked cornerback in the country`\
+`Edmonds — the No. 27 player nationally, according to the 247Sports Composite — is the No. 1-ranked cornerback in the country.`\
 https://nytimes.com/athletic/6233658/2025/03/26/alabama-jorden-edmonds-commitment/
 
 **4 Shattering Romance Novels With Glorious Payoffs**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/business/media/taylor-tomlinson-after-midnight-ca
 **Kevin Willard responds to job speculation at Sweet 16 by discussing Walter Clayton, crab cake**\
 `Willard refused to talk about his job situation. But he was happy to share his thoughts on Florida's best player and eating crab.`\
 https://nytimes.com/athletic/6233664/2025/03/26/kevin-willard-maryland-job-villanova/
-
-**Vikings GM Adofo-Mensah: Team has had conversations with Aaron Rodgers**\
-`Adofo-Mensah left the door open a crack for conversations with Rodgers to continue.`\
-https://nytimes.com/athletic/6233354/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers/
 

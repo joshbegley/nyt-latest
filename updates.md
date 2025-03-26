@@ -1,3 +1,11 @@
+**Thursday Briefing: More Signal Texts Released**\
+`Plus, a train trip between two worlds.`\
+https://nytimes.com/2025/03/26/briefing/signal-texts-security-sudan-war-south-korea-fires.html
+
+**Alabama lands Jorden Edmonds, Tide's first 5-star commit in 2026 class**\
+`Edmonds — the No. 27 player nationally, according to the 247Sports Composite — is the No. 1-ranked cornerback in the country.`\
+https://nytimes.com/athletic/6233658/2025/03/26/alabama-jorden-edmonds-commitment/
+
 **In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
 `In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
 https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
