@@ -1,3 +1,7 @@
+**Corrections: March 26, 2025**\
+`Corrections that appeared in print on Wednesday, March 26, 2025.`\
+https://nytimes.com/2025/03/25/pageoneplus/corrections-march-26-2025.html
+
 **Art Expert Accused of Duping Prince and Palace of Versailles Stands Trial**\
 `A connoisseur of 18th-century French furniture fooled buyers into purchasing chairs with fake royal pedigrees, authorities say. The distinct taste of licorice helped give him away.`\
 https://nytimes.com/2025/03/25/world/europe/france-fake-furniture-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/climate/50-states-fixes.html
 **U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
 `The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
 https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
-
-**Steelers free-agency tracker: Russell Wilson joins Giants, all eyes turn to Aaron Rodgers**\
-`We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
-https://nytimes.com/athletic/6185212/2025/03/25/steelers-free-agent-tracker-news-grades-2025/
 
