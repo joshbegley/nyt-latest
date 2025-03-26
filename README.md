@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Second line stupendous in rout of Flyers**\
+`The Flyers scored first, but the Leafs struck back quickly and often in a dominant display.`\
+https://nytimes.com/athletic/6231298/2025/03/25/maple-leafs-report-cards-nylander-mcmann-flyers/
+
 **Knicks make history as Towns, Hart both notch triple-doubles**\
 `New York duo is first in franchise history, 20th in NBA history, to accomplish feat. Hart also set a Knicks mark with ninth of the season.`\
 https://nytimes.com/athletic/6231284/2025/03/25/knicks-triple-doubles-history-towns-hart/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229321/2025/03/25/bucks-damian-lillard-blood-clot/
 **Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
 `The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
 https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
-
-**Submit questions for Ben Standig's Commanders mailbag**\
-`Standig will consider your questions for his upcoming mailbag following a busy free-agency period for Washington. `\
-https://nytimes.com/athletic/6231142/2025/03/25/commanders-mailbag-free-agency-nfl-draft/
 
