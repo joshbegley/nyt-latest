@@ -26,6 +26,10 @@ https://nytimes.com/interactive/2025/climate/50-states-fixes.html
 `The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
 https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
 
+**Steelers free-agency tracker: Russell Wilson joins Giants, all eyes turn to Aaron Rodgers**\
+`We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
+https://nytimes.com/athletic/6185212/2025/03/25/steelers-free-agent-tracker-news-grades-2025/
+
 **How Well Do You Know Your Own Group Chats?**\
 `A journalist’s inclusion in a national security discussion served as a reminder that you might not know every number in the chat — and that could be a big problem.`\
 https://nytimes.com/2025/03/25/style/group-chat-security-signal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/style/group-chat-security-signal.html
 **Care About Food Waste? In Massachusetts, You Can Be a Compost Consultant.**\
 `It’s a dirty job, and someone gets to do it.`\
 https://nytimes.com/2025/03/25/climate/food-waste-compost-massachusetts.html
-
-**Living Car-Free in Arizona, on Purpose and Happily**\
-`One community near Phoenix is taking a “completely different” approach to development.`\
-https://nytimes.com/2025/03/25/climate/car-free-arizona.html
 
