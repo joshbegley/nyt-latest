@@ -1,3 +1,7 @@
+**Chelsea risk falling inexorably behind while the future of Stamford Bridge remains unresolved**\
+`Everton will bump Chelsea's home of 120 years down from ninth to 10th in the ranking of the division’s largest stadiums next season`\
+https://nytimes.com/athletic/6229780/2025/03/26/chelsea-stamford-bridge-boehly-clearlake-eghbali/
+
 **South Korea Battles Some of Its Worst-Ever Wildfires**\
 `At least 18 people are dead after six days of fires fueled by dry weather conditions. Among the scorched buildings: two 1,000-year-old Buddhist temples.`\
 https://nytimes.com/2025/03/26/world/asia/south-korea-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6228896/2025/03/26/liverpool-anfield-expansion-rede
 **A cold, windy night in Stoke: How does weather really impact the Premier League?**\
 `We investigate how wind, rain and extreme temperatures have impacted Premier League players and teams down the years`\
 https://nytimes.com/athletic/6220896/2025/03/26/premier-league-weather-analysis-cold-stoke/
-
-**Wrexham's nervous hunt for third consecutive promotion: Fine margins, 1-0 wins and squeaky bums**\
-`After the weekend victory over Stockport County, it was the fourth time in five league outings that Phil Parkinson's side had won 1-0`\
-https://nytimes.com/athletic/6226210/2025/03/26/wrexham-1-0-wins-promotion-charge-league-one/
 
