@@ -2,7 +2,7 @@
 `As the old adage goes, you can never have too much starting pitching. So with Opening Day here, how does each team's starting rotation rate?`\
 https://nytimes.com/athletic/6231108/2025/03/26/mlb-opening-day-starting-rotation-rankings/
 
-**Malik Beasley, Ty Jerome and 16 more reliable pickups for your fantasy basketball title push**\
+**Malik Beasley, Ty Jerome and 16 more reliable pickups for a fantasy basketball title push**\
 `With precious few games left in fantasy basketball leagues, Eric Wong identifies the players you can count on from the waiver wire.`\
 https://nytimes.com/athletic/6232540/2025/03/26/fantasy-basketball-waiver-wire-winners-pickups/
 
