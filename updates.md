@@ -1,3 +1,19 @@
+**Ranking all 30 MLB teams' Opening Day starting rotations: Dodgers, Phillies, Mariners lead way**\
+`As the old adage goes, you can never have too much starting pitching. So with Opening Day here, how does each team's starting rotation rate?`\
+https://nytimes.com/athletic/6231108/2025/03/26/mlb-opening-day-starting-rotation-rankings/
+
+**Malik Beasley, Ty Jerome and 16 more reliable pickups for a fantasy basketball title push**\
+`With precious few games left in fantasy basketball leagues, Eric Wong identifies the players you can count on from the waiver wire.`\
+https://nytimes.com/athletic/6232540/2025/03/26/fantasy-basketball-waiver-wire-winners-pickups/
+
+**Voice of America Director Sues Trump Officials Over Shutdown**\
+`The lawsuit by the director and journalists is the latest legal challenge to the administration’s bid to dismantle the government-funded broadcaster.`\
+https://nytimes.com/2025/03/26/business/voice-of-america-lawsuit-trump.html
+
+**Hegseth’s Leak Would Have Warned the Enemy. The White House Is Using Semantics to Obscure That.**\
+`War plan or battle plan? Classified or not? The answers to those questions amount to a distinction without much of a difference.`\
+https://nytimes.com/2025/03/26/us/politics/hegseth-signal-war-plan-leak-white-house.html
+
 **A British University Is Given a Record Fine Over Free Speech on Campus**\
 `A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
 https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
