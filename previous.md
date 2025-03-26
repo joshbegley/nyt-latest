@@ -6,9 +6,9 @@ https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto
 `While climbing the ranks of the Soviet spy agency, he spent more than a decade working for British intelligence as one of its most highly placed moles.`\
 https://nytimes.com/2025/03/26/world/europe/oleg-gordievsky-dead.html
 
-**Stocks slump ahead of Trump’s expected auto tariffs.**\
-`By Danielle Kaye`\
-https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/stocks-slump-ahead-of-trumps-expected-auto-tariffs
+**Stocks Slump Ahead of Trump’s Expected Auto Tariffs**\
+`The downturn was fueled by Mr. Trump’s whiplash on trade policies and concern among investors that sweeping tariffs could reignite inflation and prompt a slowdown in the U.S. economy.`\
+https://nytimes.com/2025/03/26/us/politics/stock-market-trump-auto-tariffs.html
 
 **Online ‘Pedophile Hunters’ Are Growing More Violent — and Going Viral**\
 `With the rise of loosely moderated social media platforms, a fringe vigilante movement is experiencing a dangerous evolution.`\

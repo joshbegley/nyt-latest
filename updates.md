@@ -1,3 +1,7 @@
+**Stocks Slump Ahead of Trump’s Expected Auto Tariffs**\
+`The downturn was fueled by Mr. Trump’s whiplash on trade policies and concern among investors that sweeping tariffs could reignite inflation and prompt a slowdown in the U.S. economy.`\
+https://nytimes.com/2025/03/26/us/politics/stock-market-trump-auto-tariffs.html
+
 **Trump’s auto tariffs are just one part of his trade strategy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
