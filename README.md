@@ -1,3 +1,19 @@
+**Russia Is Winning Concessions and Buying Time in Cease-fire Talks**\
+`Moscow’s demands are slowing the process and giving it the advantage in talks with a deal-hungry United States, experts said.`\
+https://nytimes.com/2025/03/26/world/europe/russia-ukraine-us-peace-talks.html
+
+**Tiny Love Stories: ‘I Asked Him Back to My Place’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/26/style/tiny-modern-love-stories-i-asked-him-back-to-my-place.html
+
+**Reds to place OF Austin Hays on IL; Spencer Steer to start on active roster**\
+`Last season, Hays spent time on the IL with the Orioles with a similar calf injury.`\
+https://nytimes.com/athletic/6233303/2025/03/26/reds-austin-hays-il-spencer-steer-roster/
+
+**4 MLB teams that should outperform their win totals this year**\
+`Austin Mock digs into his projection model to identify five teams that could outperform win total odds this season.`\
+https://nytimes.com/athletic/6233112/2025/03/26/mlb-win-totals-best-bets-futures/
+
 **We’re All Conspiracy Theorists Now. Why?**\
 `We are caught up in a vast web. But the strands are visible.`\
 https://nytimes.com/2025/03/26/opinion/kennedy-epstein-conspiracy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6233133/2025/03/26/psg-malaga-qsi-stake-ownership/
 **BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
 `Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
 https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
-
-**Live Updates: Trump to Announce Tariffs on Foreign Cars**\
-`The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
-https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars
-
-**L.J. Smith, Author of ‘Vampire Diaries’ Book Series, Dies at 66**\
-`She wrote seven books in a series that went on to be a hit TV show. After she was replaced by ghostwriters, she reclaimed her characters online in fan fiction.`\
-https://nytimes.com/2025/03/26/books/lj-smith-dead.html
-
-**What’s in Our Queue? ‘Bridgerton’ and More **\
-`Text by Shayla Colon`\
-https://nytimes.com/card/2025/03/26/arts/editors-recommendations-bridgerton
-
-**Can the St. Louis Cardinals overcome their lowest projected win total in 17 years?**\
-`The St. Louis Cardinals have their lowest win total line in 17 years. Is this a new era for the team or a chance to surpass expectations?`\
-https://nytimes.com/athletic/6232931/2025/03/26/st-louis-cardinals-win-total/
 
