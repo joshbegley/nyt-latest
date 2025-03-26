@@ -1,3 +1,7 @@
+**Trump’s Tariffs on Autos Would Hit Europe Hard**\
+`The levies could hurt European automakers when the industry is already struggling, especially in Germany, Europe’s biggest economy.`\
+https://nytimes.com/2025/03/26/business/trump-auto-tariffs-europe.html
+
 **Will Howard says he has what it takes to be an NFL QB1 following pro day workout**\
 `Howard threw at Ohio State’s pro day in front of a crowd that included five NFL GMs and six head coaches.`\
 https://nytimes.com/athletic/6233745/2025/03/26/will-howard-ohio-state-pro-day-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010074825/intelligence-officials-hea
 **Alabama lands Jorden Edmonds, Tide's first 5-star commit in 2026 class**\
 `Edmonds — the No. 27 player nationally, according to the 247Sports Composite — is the No. 1-ranked cornerback in the country.`\
 https://nytimes.com/athletic/6233658/2025/03/26/alabama-jorden-edmonds-commitment/
-
-**4 Shattering Romance Novels With Glorious Payoffs**\
-`Our critic on the month’s best new releases.`\
-https://nytimes.com/2025/03/26/books/review/new-romannce-novels.html
 

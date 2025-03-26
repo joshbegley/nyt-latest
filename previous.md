@@ -1,3 +1,11 @@
+**Will Howard says he has what it takes to be an NFL QB1 following pro day workout**\
+`Howard threw at Ohio State’s pro day in front of a crowd that included five NFL GMs and six head coaches.`\
+https://nytimes.com/athletic/6233745/2025/03/26/will-howard-ohio-state-pro-day-nfl-draft/
+
+**Stanford football coaching candidates: Who could be next for the Cardinal?**\
+`Who could the Cardinal turn toward? The timing puts Stanford in a tough spot with candidate pool that doesn't feel deep.`\
+https://nytimes.com/athletic/6233666/2025/03/26/stanford-cardinal-football-coaching-search-candidates/
+
 **Thursday Briefing: More Signal Texts Released**\
 `Plus, a train trip between two worlds.`\
 https://nytimes.com/2025/03/26/briefing/signal-texts-security-sudan-war-south-korea-fires.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6233658/2025/03/26/alabama-jorden-edmonds-commitmen
 **4 Shattering Romance Novels With Glorious Payoffs**\
 `Our critic on the month’s best new releases.`\
 https://nytimes.com/2025/03/26/books/review/new-romannce-novels.html
-
-**CBS Canceling ‘After Midnight,’ in Another Blow to Late-Night TV**\
-`The show’s host, Taylor Tomlinson, said she wanted to go back to doing stand-up comedy full time.`\
-https://nytimes.com/2025/03/26/business/media/taylor-tomlinson-after-midnight-canceled.html
-
-**Kevin Willard responds to job speculation at Sweet 16 by discussing Walter Clayton, crab cake**\
-`Willard refused to talk about his job situation. But he was happy to share his thoughts on Florida's best player and eating crab.`\
-https://nytimes.com/athletic/6233664/2025/03/26/kevin-willard-maryland-job-villanova/
 

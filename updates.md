@@ -1,3 +1,11 @@
+**Will Howard says he has what it takes to be an NFL QB1 following pro day workout**\
+`Howard threw at Ohio State’s pro day in front of a crowd that included five NFL GMs and six head coaches.`\
+https://nytimes.com/athletic/6233745/2025/03/26/will-howard-ohio-state-pro-day-nfl-draft/
+
+**Stanford football coaching candidates: Who could be next for the Cardinal?**\
+`Who could the Cardinal turn toward? The timing puts Stanford in a tough spot with candidate pool that doesn't feel deep.`\
+https://nytimes.com/athletic/6233666/2025/03/26/stanford-cardinal-football-coaching-search-candidates/
+
 **Thursday Briefing: More Signal Texts Released**\
 `Plus, a train trip between two worlds.`\
 https://nytimes.com/2025/03/26/briefing/signal-texts-security-sudan-war-south-korea-fires.html
