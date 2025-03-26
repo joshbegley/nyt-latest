@@ -1,3 +1,7 @@
+**A Hiring Binge Abroad**\
+`We cover a new kind of offshore office park.`\
+https://nytimes.com/2025/03/26/briefing/india-american-companies-hiring.html
+
 **The Pulse: The new evil empire in baseball**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6229438/2025/03/26/dodgers-mlb-season-preview-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227200/2025/03/26/nazir-stackhouse-nfl-draft-georg
 **The Conversion Generation: Why some relievers are now morphing into shutdown starters**\
 `It used to be that starters would head to the pen if they couldn't cut it. Now high-octane relievers are blossoming into capable starters.`\
 https://nytimes.com/athletic/6226615/2025/03/26/mlb-relievers-becoming-starters/
-
-**His buzzer-beater lifted Maryland to the Sweet 16. But so did Derik Queen's 'infectious' spirit**\
-`The Baltimore native is doing his hometown proud during the NCAA Tournament. Maryland faces No. 1 Florida on Thursday in the Sweet 16.`\
-https://nytimes.com/athletic/6231449/2025/03/26/derik-queen-maryland-basketball-ncaa-tournament/
 

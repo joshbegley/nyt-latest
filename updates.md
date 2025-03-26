@@ -1,3 +1,7 @@
+**A Hiring Binge Abroad**\
+`We cover a new kind of offshore office park.`\
+https://nytimes.com/2025/03/26/briefing/india-american-companies-hiring.html
+
 **The Pulse: The new evil empire in baseball**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6229438/2025/03/26/dodgers-mlb-season-preview-the-pulse/
