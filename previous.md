@@ -1,3 +1,19 @@
+**After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
+`When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
+https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
+
+**Submit your Blackhawks questions for Scott Powers' mailbag**\
+`Send in your questions, and Scott Powers may answer them in an upcoming Blackhawks mailbag.`\
+https://nytimes.com/athletic/6233651/2025/03/26/blackhawks-scott-powers-mailbag-submissions/
+
+**U.S. Military Provides Few Details on Daily Strikes in Yemen**\
+`The Pentagon has refused to disclose how many targets have been hit in Yemen, or identify the Houthi militia commanders killed in the campaign.`\
+https://nytimes.com/2025/03/26/us/politics/us-military-houthis-yemen.html
+
+**A New Collection of Minimal Men’s Clothes That Nod to ’90s Sportswear**\
+`The designer Zane Li’s first men’s line combines bright colors with sharp silhouettes.`\
+https://nytimes.com/2025/03/26/t-magazine/lii-mens-fashion.html
+
 **Trump Administration Abruptly Cuts Billions From State Health Services**\
 `States were told Monday that they could no longer use grants that were funding infectious disease management and addiction services.`\
 https://nytimes.com/2025/03/26/health/trump-state-health-grants-cuts.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6233033/2025/03/26/dan-hurley-video-uconn-apology/
 **Trump’s auto tariffs are just one part of his trade strategy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
-
-**Oleg Gordievsky, K.G.B. Officer Turned Double Agent, Dies at 86**\
-`While climbing the ranks of the Soviet spy agency, he spent more than a decade working for British intelligence as one of its most highly placed moles.`\
-https://nytimes.com/2025/03/26/world/europe/oleg-gordievsky-dead.html
-
-**Stocks Slump Ahead of Trump’s Expected Auto Tariffs**\
-`The drop reflected market volatility fueled by President Trump’s whiplash on trade and concern that sweeping tariffs could reignite inflation and slow the economy.`\
-https://nytimes.com/2025/03/26/us/politics/stock-market-trump-auto-tariffs.html
-
-**Online ‘Pedophile Hunters’ Are Growing More Violent — and Going Viral**\
-`With the rise of loosely moderated social media platforms, a fringe vigilante movement is experiencing a dangerous evolution.`\
-https://nytimes.com/interactive/2025/03/26/us/pedophile-hunting-violence.html
-
-**Bon Iver Is Happy Now. It Took a Lot of Work.**\
-`The singer and songwriter Justin Vernon’s surprise success led to unexpected opportunities — including collaborations with Taylor Swift, Kanye West, Zach Bryan and more — and then emotional depletion. His new album, “Sable, Fable,” is a moment of reinvention.`\
-https://nytimes.com/video/podcasts/100000010068575/bon-iver-is-happy-now-it-took-a-lot-of-work.html
 

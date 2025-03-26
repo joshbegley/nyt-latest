@@ -1,3 +1,19 @@
+**After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
+`When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
+https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
+
+**Submit your Blackhawks questions for Scott Powers' mailbag**\
+`Send in your questions, and Scott Powers may answer them in an upcoming Blackhawks mailbag.`\
+https://nytimes.com/athletic/6233651/2025/03/26/blackhawks-scott-powers-mailbag-submissions/
+
+**U.S. Military Provides Few Details on Daily Strikes in Yemen**\
+`The Pentagon has refused to disclose how many targets have been hit in Yemen, or identify the Houthi militia commanders killed in the campaign.`\
+https://nytimes.com/2025/03/26/us/politics/us-military-houthis-yemen.html
+
+**A New Collection of Minimal Men’s Clothes That Nod to ’90s Sportswear**\
+`The designer Zane Li’s first men’s line combines bright colors with sharp silhouettes.`\
+https://nytimes.com/2025/03/26/t-magazine/lii-mens-fashion.html
+
 **Trump Administration Abruptly Cuts Billions From State Health Services**\
 `States were told Monday that they could no longer use grants that were funding infectious disease management and addiction services.`\
 https://nytimes.com/2025/03/26/health/trump-state-health-grants-cuts.html
