@@ -1,3 +1,7 @@
+**How Artificial Intelligence Reasons**\
+`Companies like OpenAI and China’s DeepSeek offer chatbots designed to take their time with an answer. Here’s how they work.`\
+https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html
+
 **Are You Smarter Than A.I.?**\
 `Some experts predict that A.I. will surpass human intelligence within the next few years. Play this puzzle to see how far the machines have to go.`\
 https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligence-puzzle.html
