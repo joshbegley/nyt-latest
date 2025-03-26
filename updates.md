@@ -1,3 +1,7 @@
+**Prince Harry Steps Down as Patron of Charity He Founded**\
+`The prince and his fellow patron, the prince of Lesotho, said they had resigned in solidarity with trustees at the charity, Sentebale.`\
+https://nytimes.com/2025/03/26/world/europe/prince-harry-resigns-charity-sentebale.html
+
 **Jakob Ingebrigtsen: 'I was clearly a victim of manipulation' by father Gjert**\
 `The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
 https://nytimes.com/athletic/6232369/2025/03/26/jakob-ingebrigtsen-trial-gjert/

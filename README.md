@@ -1,3 +1,11 @@
+**Review: Can Hubbard Street Dance Chicago Find a New Voice?**\
+`On a program with three New York premieres, the company seems stuck in an international style, though there are flickers of something more distinctive.`\
+https://nytimes.com/2025/03/26/arts/dance/review-hubbard-street-dance-chicago.html
+
+**Trump Asks Supreme Court to Let Him Cancel Grants to Teachers**\
+`In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
+https://nytimes.com/2025/03/26/us/politics/trump-supreme-court-teacher-grants.html
+
 **Prince Harry Steps Down as Patron of Charity He Founded**\
 `The prince and his fellow patron, the prince of Lesotho, said they had resigned in solidarity with trustees at the charity, Sentebale.`\
 https://nytimes.com/2025/03/26/world/europe/prince-harry-resigns-charity-sentebale.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/movies/no-other-land-box-office.html
 **A U.K. University Is Given a Record Fine Over Free Speech on Campus**\
 `A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
 https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
-
-**When the Wild Child Egon Schiele Grew Up**\
-`Some of the artist’s most psychologically insightful work came in the final years of his life — a mature period cut short by a pandemic.`\
-https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museum.html
-
-**Those Are Definitely ‘War Plans’**\
-`What members of the administration can no longer effectively do is pretend that their incompetent and reckless actions didn’t happen. It’s right there on the page.`\
-https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
 
