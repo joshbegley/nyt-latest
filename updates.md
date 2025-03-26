@@ -1,3 +1,7 @@
+**Chelsea risk falling inexorably behind while the future of Stamford Bridge remains unresolved**\
+`Everton will bump Chelsea's home of 120 years down from ninth to 10th in the ranking of the division’s largest stadiums next season`\
+https://nytimes.com/athletic/6229780/2025/03/26/chelsea-stamford-bridge-boehly-clearlake-eghbali/
+
 **South Korea Battles Some of Its Worst-Ever Wildfires**\
 `At least 18 people are dead after six days of fires fueled by dry weather conditions. Among the scorched buildings: two 1,000-year-old Buddhist temples.`\
 https://nytimes.com/2025/03/26/world/asia/south-korea-wildfires.html
