@@ -1,3 +1,15 @@
+**Nottingham Forest optimistic Wood has avoided serious injury**\
+`The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
+https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
+
+**Dollar Tree Is Selling Family Dollar for $1 Billion**\
+`Nearly 10 years after buying Family Dollar for about $9 billion, Dollar Tree announced it would sell the retailer to two private equity firms.`\
+https://nytimes.com/2025/03/26/business/dollar-tree-family-dollar-sale.html
+
+**Can the Blues catch the Wild for top wild card? 'That's definitely the goal'**\
+`After a 6-1 win over the Montreal Canadiens on Thursday, the Blues are now just two points behind the Minnesota Wild for the top wild card.`\
+https://nytimes.com/athletic/6231489/2025/03/26/st-louis-blues-nhl-wild-card-race/
+
 **Who Are Katherine Maher and Paula Kerger, the C.E.O.s of PBS and NPR?**\
 `The two public media organizations will be represented before Congress by executives with very different résumés.`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/npr-pbs-katherine-maher-paula-kerger
