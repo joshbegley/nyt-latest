@@ -1,3 +1,15 @@
+**The Leaked Signal Chat, Annotated**\
+`The chat’s contents, which were obtained by The Atlantic after its editor in chief was added to the Signal group, provide a revealing look at private conversations between top Trump administration officials.`\
+https://nytimes.com/interactive/2025/03/25/us/signal-group-chat-text-annotations.html
+
+**Bucks' Damian Lillard diagnosed with blood clots in calf, out indefinitely**\
+`The 34-year-old point guard is on blood-thinners. A league source told The Athletic that there is optimism he will return this season.`\
+https://nytimes.com/athletic/6229321/2025/03/25/bucks-damian-lillard-blood-clot/
+
+**Steelers free-agency tracker: Russell Wilson joins Giants, all eyes turn to Aaron Rodgers**\
+`We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
+https://nytimes.com/athletic/6185212/2025/03/25/steelers-free-agent-tracker-news-grades-2025/
+
 **Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
 `The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
 https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
