@@ -1,3 +1,7 @@
+**3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
+`The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
+https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html
+
 **Herb Greene, 82, Dies; His Photographs Captured the San Francisco Sound**\
 `One of the first to shoot the Grateful Dead, he also memorably chronicled many of the other bands that were on the scene in the late 1960s.`\
 https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/intelligence-officials-signal-leak.ht
 **Gazans Protest and Call for an End to the War**\
 `Frustrated and angry over the collapse of a cease-fire with Israel, Palestinians took to the streets of northern Gaza to protest against the war. Many chanted anti-Hamas slogans, calling for the group to “get out.”`\
 https://nytimes.com/video/world/middleeast/100000010074101/war-protest-in-gaza-day-two.html
-
-**Surveillance Footage Shows Arrest of Tufts University Student**\
-`Rumeysa Ozturk, a Turkish citizen and a Muslim, was heading out to break her Ramadan fast with friends Tuesday night when she was detained by agents from the Department of Homeland Security.`\
-https://nytimes.com/video/us/100000010075008/tufts-student-ice-arrest.html
 

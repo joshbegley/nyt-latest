@@ -1,3 +1,7 @@
+**3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
+`The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
+https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html
+
 **Herb Greene, 82, Dies; His Photographs Captured the San Francisco Sound**\
 `One of the first to shoot the Grateful Dead, he also memorably chronicled many of the other bands that were on the scene in the late 1960s.`\
 https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
