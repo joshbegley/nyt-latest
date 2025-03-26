@@ -1,3 +1,11 @@
+**Trump Administration Considers Money for Pardoned Jan. 6 Rioters**\
+`President Trump said there was “a lot of talk about” creating a compensation fund because they had lost wages and other opportunities because they were prosecuted for storming the Capitol.`\
+https://nytimes.com/2025/03/26/us/politics/trumo-jan6-rioters-compensation.html
+
+**PBS and NPR Have Faced Pressure From Congress Before**\
+`Republicans in Congress have made several attempts to defund NPR and PBS over the last half-century.`\
+https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-funding.html
+
 **Nottingham Forest optimistic Wood has avoided serious injury**\
 `The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
 https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
