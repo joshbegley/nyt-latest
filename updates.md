@@ -1,3 +1,7 @@
+**Reporter who captured Hurley officiating rant gets apology from UConn SID**\
+`A reporter captured a viral video of Hurley's profanity-laced rant following the Huskies' NCAA Tournament loss on Sunday.`\
+https://nytimes.com/athletic/6233033/2025/03/26/dan-hurley-video-uconn-apology/
+
 **Stocks Slump Ahead of Trump’s Expected Auto Tariffs**\
 `The downturn was fueled by Mr. Trump’s whiplash on trade policies and concern among investors that sweeping tariffs could reignite inflation and prompt a slowdown in the U.S. economy.`\
 https://nytimes.com/2025/03/26/us/politics/stock-market-trump-auto-tariffs.html

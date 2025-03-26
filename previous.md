@@ -1,3 +1,7 @@
+**Reporter who captured Hurley officiating rant gets apology from UConn SID**\
+`A reporter captured a viral video of Hurley's profanity-laced rant following the Huskies' NCAA Tournament loss on Sunday.`\
+https://nytimes.com/athletic/6233033/2025/03/26/dan-hurley-video-uconn-apology/
+
 **Trump’s auto tariffs are just one part of his trade strategy.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/world/europe/russia-ukraine-us-peace-talks.html
 **Tiny Love Stories: ‘I Asked Him Back to My Place’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/03/26/style/tiny-modern-love-stories-i-asked-him-back-to-my-place.html
-
-**Reds to place OF Austin Hays on IL; Spencer Steer to start on active roster**\
-`Last season, Hays spent time on the IL with the Orioles with a similar calf injury.`\
-https://nytimes.com/athletic/6233303/2025/03/26/reds-austin-hays-il-spencer-steer-roster/
 
