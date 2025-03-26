@@ -1,3 +1,7 @@
+**Jimmy Butler's return to Miami was all hype, very little drama**\
+`We wanted a clash. We wanted drama. But the Heat had other ideas for Jimmy Butler's return to Miami.`\
+https://nytimes.com/athletic/6231651/2025/03/26/jimmy-butler-miami-return-warriors-heat-nba/
+
 **San Francisco Giants 2025 season preview: roster breakdown, projections, and bold prediction**\
 `Here's how the 2025 San Francisco Giants stack up, with projected lineups, rotation and individual stats.`\
 https://nytimes.com/athletic/6214079/2025/03/26/mlb-san-francisco-giants-season-preview-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6219555/2025/03/26/mlb-st-louis-cardinals-2025-seas
 **NHL faces in new places: How players traded at the deadline are faring with their teams**\
 `Now that the dust has settled from the fallout of the trade deadline, let's examine five big-name players in their new surroundings.`\
 https://nytimes.com/athletic/6230635/2025/03/26/nhl-trade-deadline-2025-players-new-teams/
-
-**Ranking 12 of the greatest record-breaking goals in NHL history, from worst to best**\
-`A look at a dozen historic goals that broke an important record in style, just as Alex Ovechkin will hopefully do over the next few weeks.`\
-https://nytimes.com/athletic/6227371/2025/03/26/nhl-greatest-goals-record-ranking-history/
 
