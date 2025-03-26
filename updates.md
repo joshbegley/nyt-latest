@@ -1,3 +1,19 @@
+**West Virginia hiring North Texas basketball coach Ross Hodge**\
+`Hodge, 44, has a close connection with WVU athletic director Wren Baker, who was previously the AD at North Texas from 2016 to 2022.`\
+https://nytimes.com/athletic/6232768/2025/03/26/west-virginia-ross-hodge-mens-basketball-hire/
+
+**Elmo and Elon Musk Are Cited as G.O.P. Lawmakers Grill PBS and NPR**\
+`Dark pronouncements by Republicans about a “communist agenda” espoused by public media were intercut with lighter references to “Sesame Street” and “Curious George.”`\
+https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-hearing-republicans.html
+
+**Dennis McDougal, True-Crime Writer and Hollywood Muckraker, Dies at 77**\
+`The author of more than a dozen books and an award-winning documentary, he died in a car crash in Southern California.`\
+https://nytimes.com/2025/03/26/books/dennis-mcdougal-dead.html
+
+**NFL rule change proposals: Expanded replay, making dynamic kickoff permanent**\
+`Also among the proposed changes is an expanded use for when trailing teams are allowed to declare an onside kick.`\
+https://nytimes.com/athletic/6232958/2025/03/26/nfl-competition-competition-2025-rule-proposals-expanded-replay/
+
 **Mangione Was Sent Socks With Heart-Shaped Notes Inside, Prosecutors Say**\
 `In filings, lawyers for the man accused of assassinating a health care executive argued with prosecutors over special treatment and his access to evidence.`\
 https://nytimes.com/2025/03/26/nyregion/luigi-mangione-laptop-evidence.html
