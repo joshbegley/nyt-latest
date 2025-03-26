@@ -1,3 +1,11 @@
+**‘Common Side Effects’ Is a Stylish and Trippy Animated Thriller**\
+`Filled with smart dialogue, specificity and visual wonder, this Max series is a good choice to help fill the “Severance”-shaped hole in your heart.`\
+https://nytimes.com/2025/03/26/arts/television/common-side-effects-max.html
+
+**Russia and Ukraine Agree to Stop Black Sea Attacks. What Does That Mean?**\
+`It remains unclear if a deal to ensure safe shipping in the Black Sea, which came with many caveats, could come into effect soon.`\
+https://nytimes.com/2025/03/26/world/europe/russia-ukraine-black-sea-cease-fire.html
+
 **A Hiring Binge Abroad**\
 `We cover a new kind of offshore office park.`\
 https://nytimes.com/2025/03/26/briefing/india-american-companies-hiring.html

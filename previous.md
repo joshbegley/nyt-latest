@@ -1,3 +1,11 @@
+**‘Common Side Effects’ Is a Stylish and Trippy Animated Thriller**\
+`Filled with smart dialogue, specificity and visual wonder, this Max series is a good choice to help fill the “Severance”-shaped hole in your heart.`\
+https://nytimes.com/2025/03/26/arts/television/common-side-effects-max.html
+
+**Russia and Ukraine Agree to Stop Black Sea Attacks. What Does That Mean?**\
+`It remains unclear if a deal to ensure safe shipping in the Black Sea, which came with many caveats, could come into effect soon.`\
+https://nytimes.com/2025/03/26/world/europe/russia-ukraine-black-sea-cease-fire.html
+
 **A Hiring Binge Abroad**\
 `We cover a new kind of offshore office park.`\
 https://nytimes.com/2025/03/26/briefing/india-american-companies-hiring.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6230825/2025/03/26/jase-richardson-michigan-state-m
 **Austin Dillon on his drama-filled 2024 NASCAR season, fatherhood and more: 12 Questions**\
 `Austin Dillon talks about his costly penalty in 2024, his eventual transition out of driving, the lessons of a parent and more.`\
 https://nytimes.com/athletic/6228295/2025/03/26/austin-dillon-nascar-2024-drama-12-questions/
-
-**An NFL prospect and his long struggle with narcolepsy**\
-`Stackhouse was diagnosed with narcolepsy during his first year at Georgia, where he started 42 games and won two national titles.`\
-https://nytimes.com/athletic/6227200/2025/03/26/nazir-stackhouse-nfl-draft-georgia-football/
-
-**The Conversion Generation: Why some relievers are now morphing into shutdown starters**\
-`It used to be that starters would head to the pen if they couldn't cut it. Now high-octane relievers are blossoming into capable starters.`\
-https://nytimes.com/athletic/6226615/2025/03/26/mlb-relievers-becoming-starters/
 
