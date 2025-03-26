@@ -1,3 +1,7 @@
+**Trump Administration Abruptly Cuts Billions From State Health Services**\
+`States were told Monday that they could no longer use grants that were funding infectious disease management and addiction services.`\
+https://nytimes.com/2025/03/26/health/trump-state-health-grants-cuts.html
+
 **Alphonso Davies' ACL injury calls Canada, his agent's actions into question**\
 `Whether Davies should have played in Canada's Nations League third-place match and how his agent responded are up for intense scrutiny.`\
 https://nytimes.com/athletic/6233226/2025/03/26/alphonso-davies-injury-acl-canada-agent-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/26/us/pedophile-hunting-violence.html
 **Bon Iver Is Happy Now. It Took a Lot of Work.**\
 `The singer and songwriter Justin Vernon’s surprise success led to unexpected opportunities — including collaborations with Taylor Swift, Kanye West, Zach Bryan and more — and then emotional depletion. His new album, “Sable, Fable,” is a moment of reinvention.`\
 https://nytimes.com/video/podcasts/100000010068575/bon-iver-is-happy-now-it-took-a-lot-of-work.html
-
-**LeBron James defends confronting Stephen A. Smith**\
-`The Los Angeles Lakers superstar shared his thoughts on the ESPN commentator during Wednesday's episode of "The Pat McAfee Show."`\
-https://nytimes.com/athletic/6233224/2025/03/26/lebron-james-stephen-a-smith-confrontation/
 
