@@ -1,3 +1,11 @@
+**Alex Ovechkin 6 goals from breaking Wayne Gretzky's record with No. 889**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6223108/2025/03/25/ovechkin-record-goal-gretzky-889/
+
+**Jimmy Butler's return to Miami falls flat as GSW drop second straight**\
+`Butler finished with 11 points and two assists, making five of his 12 shots in a 112-86 loss to his former team.`\
+https://nytimes.com/athletic/6231275/2025/03/25/jimmy-butler-miami-return-warriors-heat/
+
 **Maple Leafs report cards: Second line stupendous in rout of Flyers**\
 `The Flyers scored first, but the Leafs struck back quickly and often in a dominant display.`\
 https://nytimes.com/athletic/6231298/2025/03/25/maple-leafs-report-cards-nylander-mcmann-flyers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6231196/2025/03/25/angels-ryan-johnson-opening-day-
 **The Leaked Signal Chat, Annotated**\
 `The chat’s contents, which were obtained by The Atlantic after its editor in chief was added to the Signal group, provide a revealing look at private conversations between top Trump administration officials.`\
 https://nytimes.com/interactive/2025/03/25/us/signal-group-chat-text-annotations.html
-
-**Bucks' Damian Lillard diagnosed with blood clots in calf, out indefinitely**\
-`The 34-year-old point guard is on blood-thinners. A league source told The Athletic that there is optimism he will return this season.`\
-https://nytimes.com/athletic/6229321/2025/03/25/bucks-damian-lillard-blood-clot/
-
-**Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
-`The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
-https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
 

@@ -1,3 +1,11 @@
+**Alex Ovechkin 6 goals from breaking Wayne Gretzky's record with No. 889**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6223108/2025/03/25/ovechkin-record-goal-gretzky-889/
+
+**Jimmy Butler's return to Miami falls flat as GSW drop second straight**\
+`Butler finished with 11 points and two assists, making five of his 12 shots in a 112-86 loss to his former team.`\
+https://nytimes.com/athletic/6231275/2025/03/25/jimmy-butler-miami-return-warriors-heat/
+
 **Maple Leafs report cards: Second line stupendous in rout of Flyers**\
 `The Flyers scored first, but the Leafs struck back quickly and often in a dominant display.`\
 https://nytimes.com/athletic/6231298/2025/03/25/maple-leafs-report-cards-nylander-mcmann-flyers/
