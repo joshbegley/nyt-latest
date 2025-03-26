@@ -1,3 +1,7 @@
+**Federal Judge Blocks Trump’s Push to Shut Down Radio Free Europe**\
+`The judge’s temporary restraining order will allow the federally funded broadcaster to stay open at least until March 28.`\
+https://nytimes.com/2025/03/26/us/politics/trump-radio-free-europe.html
+
 **The former Man City coach aspiring to be the next Graham Potter via 'difficult circumstances' in Turkey**\
 `'All these challenges will benefit me' — an interview with Kieron Lovelady`\
 https://nytimes.com/athletic/6216337/2025/03/26/kieron-lovelady-adana-demirspor-manchester-city-southport/
