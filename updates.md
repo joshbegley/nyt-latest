@@ -1,3 +1,7 @@
+**Trump to Announce Tariffs on Foreign Cars**\
+`The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
+https://nytimes.com/2025/03/26/us/politics/trump-tariffs-auto-cars.html
+
 **Gazans Protest Against Hamas and War for a Second Day**\
 `The rare dissent, some directed against the territory’s Hamas rulers, reflects deep frustration and anger at the breakdown of a cease-fire with Israel. “We want to live,” said one supporter.`\
 https://nytimes.com/2025/03/26/world/middleeast/gaza-hamas-protests.html
