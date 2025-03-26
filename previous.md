@@ -1,3 +1,7 @@
+**Supreme Court Upholds Biden Administration’s Limits on ‘Ghost Guns’**\
+`The administration had tightened regulations on kits that can be easily assembled into nearly untraceable firearms.`\
+https://nytimes.com/2025/03/26/us/politics/supreme-court-ghost-guns.html
+
 **U.S. to End Vaccine Funds for Poor Countries but Continue Some H.I.V. and TB Aid**\
 `A 281-page spreadsheet obtained by The Times lists the Trump administration’s plans for thousands of foreign aid programs.`\
 https://nytimes.com/2025/03/26/health/usaid-cuts-gavi-bird-flu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232252/2025/03/26/nhl-draft-2025-mailbag-wheeler/
 **Amazon Gets Into the LeBron James Business**\
 `The basketball star has signed a podcasting deal with Wondery, furthering Amazon’s wider push into sports.`\
 https://nytimes.com/2025/03/26/business/media/lebron-james-podcast-amazon-wondery.html
-
-**Navigating 20 rounds of a high-stakes, head-to-head fantasy baseball draft**\
-`Michael Salfino shares his team-building process for a high stakes H-2-H league with a unique format that allows for little margin of error.`\
-https://nytimes.com/athletic/6231155/2025/03/26/fantasy-baseball-draft-2025-strategy-picks/
 

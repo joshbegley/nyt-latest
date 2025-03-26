@@ -1,3 +1,7 @@
+**Supreme Court Upholds Biden Administration’s Limits on ‘Ghost Guns’**\
+`The administration had tightened regulations on kits that can be easily assembled into nearly untraceable firearms.`\
+https://nytimes.com/2025/03/26/us/politics/supreme-court-ghost-guns.html
+
 **U.S. to End Vaccine Funds for Poor Countries but Continue Some H.I.V. and TB Aid**\
 `A 281-page spreadsheet obtained by The Times lists the Trump administration’s plans for thousands of foreign aid programs.`\
 https://nytimes.com/2025/03/26/health/usaid-cuts-gavi-bird-flu.html
