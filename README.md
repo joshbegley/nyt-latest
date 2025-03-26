@@ -1,3 +1,7 @@
+**Judge Extends Pause on Firings of Probationary Workers for 5 Days**\
+`The judge said he needed more time to determine whether a longer-term halt should apply to the entire country or be restricted to certain states while the case proceeds.`\
+https://nytimes.com/2025/03/26/us/politics/judge-pause-firings.html
+
 **What the data from MLB’s spring robot-umpire test says about baseball's future**\
 `Was the Automated Ball-Strike (ABS) system novel? Yes, though maybe not to Max Scherzer. Effective? According to the data, also, yes.`\
 https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testing-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligenc
 **The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
 `If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
 https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
-
-**Measles Cases in Kansas May Be Linked to Texas Outbreak**\
-`State health officials worry that declining vaccination rates have left many communities vulnerable nationwide.`\
-https://nytimes.com/2025/03/26/health/measles-kansas-ohio-texas.html
 
