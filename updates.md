@@ -1,3 +1,7 @@
+**J.J. Watt to become NFL analyst, per sources; Gary Danielson to retire**\
+`Watt had been in CBS’ NFL Today studio, but got the game bug after calling the Christmas Day game with Eagle for Netflix.`\
+https://nytimes.com/athletic/6233031/2025/03/26/cbs-sports-college-football-nfl-gary-danielson-jj-watt/
+
 **Trump to Announce Tariffs on Foreign Cars**\
 `The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
 https://nytimes.com/2025/03/26/us/politics/trump-tariffs-auto-cars.html

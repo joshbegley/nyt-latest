@@ -1,3 +1,15 @@
+**Mangione Was Sent Socks With Heart-Shaped Notes Inside, Prosecutors Say**\
+`In filings, lawyers for the man accused of assassinating a health care executive argued with prosecutors over special treatment and his access to evidence.`\
+https://nytimes.com/2025/03/26/nyregion/luigi-mangione-laptop-evidence.html
+
+**An ‘Unthinkable’ Security Breach**\
+`Readers react to the security lapse that allowed the editor of The Atlantic into a group chat about a U.S. military operation in Yemen.`\
+https://nytimes.com/2025/03/26/opinion/us-signal-security-breach.html
+
+**Democrat Notches an Upset in Pennsylvania State Senate Race**\
+`James Andrew Malone, a small-town mayor, won a special election on Tuesday, narrowly defeating a county commissioner in a district the G.O.P. held for decades.`\
+https://nytimes.com/2025/03/26/us/politics/special-election-pennsylvania-state-senate-trump-malone-parsons.html
+
 **Gazans Protest Against Hamas and War for a Second Day**\
 `The rare dissent, some directed against the territory’s Hamas rulers, reflects deep frustration and anger at the breakdown of a cease-fire with Israel. “We want to live,” said one supporter.`\
 https://nytimes.com/2025/03/26/world/middleeast/gaza-hamas-protests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/arts/music/eddie-adcock-dead.html
 **Iga Światek receives additional security at Miami Open after harassment during practice**\
 `Świątek's team had reported an incident in which a man shouted at her during a practice session to the Miami Open and WTA Tour.`\
 https://nytimes.com/athletic/6231941/2025/03/26/iga-swiatek-harassment-miami-open-security/
-
-**Ranking all 30 MLB teams' Opening Day starting rotations: Dodgers, Phillies, Mariners lead way**\
-`As the old adage goes, you can never have too much starting pitching. So with Opening Day here, how does each team's starting rotation rate?`\
-https://nytimes.com/athletic/6231108/2025/03/26/mlb-opening-day-starting-rotation-rankings/
-
-**Malik Beasley, Ty Jerome and 16 more reliable pickups for a fantasy basketball title push**\
-`With precious few games left in fantasy basketball leagues, Eric Wong identifies the players you can count on from the waiver wire.`\
-https://nytimes.com/athletic/6232540/2025/03/26/fantasy-basketball-waiver-wire-winners-pickups/
-
-**Voice of America Director Sues Trump Officials Over Shutdown**\
-`The lawsuit by the director and journalists is the latest legal challenge to the administration’s bid to dismantle the government-funded broadcaster.`\
-https://nytimes.com/2025/03/26/business/voice-of-america-lawsuit-trump.html
 
