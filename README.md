@@ -1,3 +1,7 @@
+**Carmakers have been preparing for tariffs but will still be hit hard.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/carmakers-have-been-preparing-for-tariffs-but-will-still-be-hit-hard
+
 **Russia Is Winning Concessions and Buying Time in Cease-fire Talks**\
 `Moscow’s demands are slowing the process and giving it the advantage in talks with a deal-hungry United States, experts said.`\
 https://nytimes.com/2025/03/26/world/europe/russia-ukraine-us-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/auto-tariff
 **PSG owners exploring deal for Spanish side Malaga**\
 `QSI already own stakes in PSG and Braga but are interested in acquiring the Spanish second division side.`\
 https://nytimes.com/athletic/6233133/2025/03/26/psg-malaga-qsi-stake-ownership/
-
-**BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
-`Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
-https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
 
