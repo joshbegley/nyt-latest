@@ -1,3 +1,7 @@
+**Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
+`The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
+https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
+
 **How Artificial Intelligence Reasons**\
 `Companies like OpenAI and China’s DeepSeek offer chatbots designed to take their time with an answer. Here’s how they work.`\
 https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html

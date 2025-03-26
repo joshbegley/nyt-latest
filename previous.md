@@ -1,3 +1,7 @@
+**Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
+`The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
+https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
+
 **How Artificial Intelligence Reasons**\
 `Companies like OpenAI and China’s DeepSeek offer chatbots designed to take their time with an answer. Here’s how they work.`\
 https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010075008/tufts-student-ice-arrest.html
 **New Giants QB Russell Wilson: 'I expect to be the starter'**\
 `The 13-year NFL veteran is ready to help the Giants turn things following the team's 3-14 season in 2024. `\
 https://nytimes.com/athletic/6233808/2025/03/26/russell-wilson-giants-qb-starter-2025/
-
-**Arsenal Women beat Real Madrid 3-0 to reach Champions League semi-final**\
-`Arsenal recovered from a 2-0 defeat in the first leg to beat Real Madrid 3-0 and set up a semi-final with eight-time winners Lyon.`\
-https://nytimes.com/athletic/6233363/2025/03/26/arsenal-women-real-madrid-champions-league/
 
