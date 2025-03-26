@@ -1,3 +1,7 @@
+**What the data from MLB’s spring robot-umpire test says about baseball's future**\
+`Was the Automated Ball-Strike (ABS) system novel? Yes, though maybe not to Max Scherzer. Effective? According to the data, also, yes.`\
+https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testing-2025/
+
 **Elon Musk’s Wisconsin Problem**\
 `A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
 https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
