@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6231732/2025/03/26/montreal-canadiens-nhl-playoffs-
 `By Enjoli Liston`\
 https://nytimes.com/live/2025/03/26/us/trump-news/spy-chiefs-questions-signal-leak
 
-**Trump Administration Live Updates: Spy Chiefs to Face Lawmakers as Criticism Mounts Over Signal Leak**\
+**Trump Administration Live Updates: Transcript of Signal Chat Is Published as Criticism Mounts Over Leak**\
 ``\
 https://nytimes.com/live/2025/03/26/us/trump-news
 

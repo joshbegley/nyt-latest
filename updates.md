@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Transcript of Signal Chat Is Published as Criticism Mounts Over Leak**\
+``\
+https://nytimes.com/live/2025/03/26/us/trump-news
+
 **San Diego Padres 2025 season preview: roster breakdown, projections, and bold prediction**\
 `Here's how the 2025 Padres stack up, with projected lineups, rotation and individual stats.`\
 https://nytimes.com/athletic/6218445/2025/03/26/mlb-padres-season-preview-2025/

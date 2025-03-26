@@ -1,3 +1,11 @@
+**Israel’s New Spending Plan Is a Win for Netanyahu**\
+`A budget approved by Israel’s Parliament cements Prime Minister Benjamin Netanyahu’s power and includes significant military spending.`\
+https://nytimes.com/2025/03/26/world/middleeast/israel-budget-netanyahu.html
+
+**Vinicius Jr: Brazil must 'rethink everything' after Argentina defeat**\
+`Vinicius said his side are “trying to find our way of playing” after falling to a heavy 4-1 defeat against South American rivals Argentina.`\
+https://nytimes.com/athletic/6232000/2025/03/26/vinicius-junior-brazil-argentina-defeat/
+
 **San Diego Padres 2025 season preview: roster breakdown, projections, and bold prediction**\
 `Here's how the 2025 Padres stack up, with projected lineups, rotation and individual stats.`\
 https://nytimes.com/athletic/6218445/2025/03/26/mlb-padres-season-preview-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6223965/2025/03/26/raiders-nfl-draft-prospects-big-
 **How will the 49ers use their 4 draft picks in the top 100? Here are 6 scenarios**\
 `The 49ers are counting on their first four draft picks to replenish their roster. So how should they use them?`\
 https://nytimes.com/athletic/6227610/2025/03/26/49ers-nfl-draft-top-100-scenarios/
-
-**Four narratives Nebraska football wants to dispel as spring practice begins**\
-`Despite shifting winds in college football, Nebraska is not yet cutting names this spring from its oversized roster.`\
-https://nytimes.com/athletic/6230809/2025/03/26/nebraska-football-spring-practice-narratives/
-
-**Iowa has chance to deal with apathy, become the program Ben McCollum remembers so fondly**\
-`Every coach and athletic director wants to win news conferences, but McCollum pushed it to another level.`\
-https://nytimes.com/athletic/6231354/2025/03/26/ben-mccollum-iowa-basketball/
 
