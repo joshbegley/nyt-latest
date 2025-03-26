@@ -1,3 +1,15 @@
+**Connections Companion No. 655**\
+`Scroll down for hints and conversation about the puzzle for Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/crosswords/connections-companion-655.html
+
+**NPR and PBS in the Hot Seat, and a Rare Protest in Gaza**\
+`Plus, fraud at Versailles.`\
+https://nytimes.com/2025/03/26/podcasts/the-headlines/npr-pbs-gaza-versailles-trump.html
+
+**Wordle Review No. 1,377**\
+`Scroll down for hints and conversation about the puzzle for Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/crosswords/wordle-review-1377.html
+
 **With favorites filling the Sweet 16 bracket, will bettors break up with Cinderella?**\
 `Bettors are loving the SEC, but can you blame them? Bookmakers break down Sweet 16 betting action.`\
 https://nytimes.com/athletic/6230219/2025/03/26/bettors-love-the-sec-money-pouring-in-on-arkansas-kentucky-ahead-of-sweet-16/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6226146/2025/03/26/alphonso-davies-acl-injury/
 **Europe Talks Tough on Military Spending, but Unity Is Fracturing**\
 `European leaders are struggling to find the money and the political will to replace the bulk of the U.S. contribution to Ukraine and to their own defense.`\
 https://nytimes.com/2025/03/26/world/europe/ukraine-us-nato-eu-defense.html
-
-**Rams big board 2.0: After free agency opens, they still could draft WR, CB, RT, QB**\
-`The Rams checked off key boxes in free agency. But they could target another receiver in the draft as well as a backup QB.`\
-https://nytimes.com/athletic/6210931/2025/03/26/rams-nfl-draft-big-board-player-needs/
-
-**TikTok Appears to Be Here to Stay. What Does That Mean for Us?**\
-`With a national ban unlikely, let’s reflect on how the app both sparks joy among users and raises mental health concerns.`\
-https://nytimes.com/2025/03/26/technology/personaltech/tiktok-ban-deadline.html
-
-**I Love ‘Severance.’ Now End It.**\
-`It’s OK to love a TV show. It’s also OK to say goodbye without answers to every single question.`\
-https://nytimes.com/2025/03/26/opinion/severance-finale-ending.html
 
