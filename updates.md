@@ -1,3 +1,7 @@
+**Herb Greene, 82, Dies; His Photographs Captured the San Francisco Sound**\
+`One of the first to shoot the Grateful Dead, he also memorably chronicled many of the other bands that were on the scene in the late 1960s.`\
+https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
+
 **Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
 `The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
 https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
