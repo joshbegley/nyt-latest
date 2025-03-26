@@ -1,3 +1,7 @@
+**Xavier hires Richard Pitino: Why he fits the Big East, just like his father**\
+`The Pitino bloodlines were apparent at New Mexico, and they should continue at a school that puts basketball first.`\
+https://nytimes.com/athletic/6231394/2025/03/25/xavier-hires-richard-pitino-as-mens-basketball-coach/
+
 **Billy Horschel's clutch putt powers Atlanta Drive to inaugural TGL title**\
 `Horschel, Patrick Cantlay and Justin Thomas launched a come-from-behind charge to snatch the championship from NY Golf Club.`\
 https://nytimes.com/athletic/6231444/2025/03/25/tgl-golf-billy-horschel-atlanta-drive-champions/

@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6231438/2025/03/25/argentina-brazil-2026-world-cup-
 `Betts played five innings in the field in an exhibition against the Angels after a gnarly stomach virus kept him out for weeks.`\
 https://nytimes.com/athletic/6231361/2025/03/25/mookie-betts-return-dodgers-home-opener/
 
-**Xavier hires Richard Pitino as men's basketball coach**\
-`Pitino, who has led New Mexico to consecutive NCAA Tournament appearances, will replace Sean Miller with Musketeers.`\
+**Xavier hires Richard Pitino: Why he fits the Big East, just like his father**\
+`The Pitino bloodlines were apparent at New Mexico, and they should continue at a school that puts basketball first.`\
 https://nytimes.com/athletic/6231394/2025/03/25/xavier-hires-richard-pitino-as-mens-basketball-coach/
 
 **Yohe's 10 observations: Lethargic Penguins get smoked in Tampa Bay**\
