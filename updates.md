@@ -1,3 +1,19 @@
+**Stocks slump ahead of Trump’s expected auto tariffs.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/stocks-slump-ahead-of-trumps-expected-auto-tariffs
+
+**Online ‘Pedophile Hunters’ Are Growing More Violent — and Going Viral**\
+`With the rise of loosely moderated social media platforms, a fringe vigilante movement is experiencing a dangerous evolution.`\
+https://nytimes.com/interactive/2025/03/26/us/pedophile-hunting-violence.html
+
+**Bon Iver Is Happy Now. It Took a Lot of Work.**\
+`The singer and songwriter Justin Vernon’s surprise success led to unexpected opportunities — including collaborations with Taylor Swift, Kanye West, Zach Bryan and more — and then emotional depletion. His new album, “Sable, Fable,” is a moment of reinvention.`\
+https://nytimes.com/video/podcasts/100000010068575/bon-iver-is-happy-now-it-took-a-lot-of-work.html
+
+**LeBron James defends confronting Stephen A. Smith**\
+`The Los Angeles Lakers superstar shared his thoughts on the ESPN commentator during Wednesday's episode of "The Pat McAfee Show."`\
+https://nytimes.com/athletic/6233224/2025/03/26/lebron-james-stephen-a-smith-confrontation/
+
 **Carmakers have been preparing for tariffs but will still be hit hard.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/carmakers-have-been-preparing-for-tariffs-but-will-still-be-hit-hard
