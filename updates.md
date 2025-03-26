@@ -1,3 +1,7 @@
+**Alex Ovechkin 6 goals from breaking Wayne Gretzky's record with No. 889**\
+`The Washington Capitals superstar continues to close in on Gretzky’s longstanding record of 894 career NHL goals.`\
+https://nytimes.com/athletic/6223108/2025/03/25/ovechkin-record-goal-gretzky-889/
+
 **Bucks' Damian Lillard diagnosed with blood clots in calf, out indefinitely**\
 `The 34-year-old point guard is on blood-thinners. A league source told The Athletic that there is optimism he will return this season.`\
 https://nytimes.com/athletic/6229321/2025/03/25/bucks-damian-lillard-blood-clot/
