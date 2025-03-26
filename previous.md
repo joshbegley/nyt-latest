@@ -1,3 +1,19 @@
+**U.S. to End Vaccine Funds for Poor Countries but Continue Some H.I.V. and TB Aid**\
+`A 281-page spreadsheet obtained by The Times lists the Trump administration’s plans for thousands of foreign aid programs.`\
+https://nytimes.com/2025/03/26/health/usaid-cuts-gavi-bird-flu.html
+
+**Federal Government Detains International Student at Tufts**\
+`The university was told that the student’s visa had been terminated, its president said in a late-night email to students and faculty members.`\
+https://nytimes.com/2025/03/26/us/ice-tufts-student-detained-rumeysa-ozturk.html
+
+**U.K. Boosts Military Spending and Cuts Welfare in ‘Uncertain World’**\
+`The changes come as President Trump’s tariff threats have disrupted global trade and added pressure to the British government’s already strained budget.`\
+https://nytimes.com/2025/03/26/business/britain-economy-budget.html
+
+**Listen: Which of the NHL's bottom 10 teams is most likely to win the Stanley Cup in 10 years?**\
+`The Athletic Hockey Show discuss which of the bottom ten teams from last season are most likely to lift a Stanley Cup in the next decade.`\
+https://nytimes.com/athletic/6230134/2025/03/26/athletic-hockey-show-nhl-bottom-ten-stanley-cup/
+
 **U.S. Could Run Out of Cash by May, Budget Office Predicts**\
 `The Congressional Budget Office said that the so-called X-date could occur as early as spring if Congress does not lift or suspend the nation’s debt limit.`\
 https://nytimes.com/2025/03/26/business/us-debt-limit.html
@@ -16,25 +32,9 @@ https://nytimes.com/athletic/6232252/2025/03/26/nhl-draft-2025-mailbag-wheeler/
 
 **Amazon Gets Into the LeBron James Business**\
 `The basketball star has signed a podcasting deal with Wondery, furthering Amazon’s wider push into sports.`\
-https://nytimes.com/2025/03/26/business/media/amazon-gets-into-the-lebron-james-business.html
+https://nytimes.com/2025/03/26/business/media/lebron-james-podcast-amazon-wondery.html
 
 **Navigating 20 rounds of a high-stakes, head-to-head fantasy baseball draft**\
 `Michael Salfino shares his team-building process for a high stakes H-2-H league with a unique format that allows for little margin of error.`\
 https://nytimes.com/athletic/6231155/2025/03/26/fantasy-baseball-draft-2025-strategy-picks/
-
-**Why signing Stefon Diggs — drama and all — was the right move for the Patriots**\
-`Many see Diggs as the prototypical "diva" receiver. But there's a lot more to the veteran than that, and he should make the Patriots better.`\
-https://nytimes.com/athletic/6231282/2025/03/26/stefon-diggs-patriots-signing-drama/
-
-**Trump Administration Considers Money for Pardoned Jan. 6 Rioters**\
-`President Trump said there was “a lot of talk about” creating a compensation fund because they had lost wages and other opportunities because they were prosecuted for storming the Capitol.`\
-https://nytimes.com/2025/03/26/us/politics/trumo-jan6-rioters-compensation.html
-
-**PBS and NPR Have Faced Pressure From Congress Before**\
-`Republicans in Congress have made several attempts to defund NPR and PBS over the last half-century.`\
-https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-funding.html
-
-**Nottingham Forest optimistic Wood has avoided serious injury**\
-`The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
-https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
 
