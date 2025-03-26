@@ -1,3 +1,7 @@
+**'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
+`“I’m not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
+https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
+
 **Argentina celebrates World Cup qualification with thrashing of Brazil**\
 `The reigning World Cup champions still look the part, while Brazil has some soul searching to do before qualifying continues.`\
 https://nytimes.com/athletic/6231438/2025/03/25/argentina-brazil-2026-world-cup-qualifier-score-report/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6231284/2025/03/25/knicks-triple-doubles-history-to
 **Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at right time**\
 `The catcher agreed to a six-year, $105 million deal with the team Tuesday.`\
 https://nytimes.com/athletic/6231233/2025/03/25/seattle-mariners-cal-raleigh-extension/
-
-**You Might Have One to Pick**\
-`Nathan Hale’s puzzle is fully loaded with fun.`\
-https://nytimes.com/2025/03/25/crosswords/daily-puzzle-2025-03-26.html
 

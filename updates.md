@@ -1,3 +1,7 @@
+**'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
+`“I’m not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
+https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
+
 **Mookie Betts returns to game action, expects to play in Dodgers home opener**\
 `Betts played five innings in the field in an exhibition against the Angels after a gnarly stomach virus kept him out for weeks.`\
 https://nytimes.com/athletic/6231361/2025/03/25/mookie-betts-return-dodgers-home-opener/
