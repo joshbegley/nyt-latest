@@ -1,3 +1,7 @@
+**Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
+`The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
+https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/
+
 **Former Chelsea Women executive to lead World Sevens Football**\
 `Jacob spent 11 years at Chelsea during a period of incredible success - he joins W7F as head of football.`\
 https://nytimes.com/athletic/6230692/2025/03/26/chelsea-women-adrian-jacob-world-sevens-football/
