@@ -2,7 +2,7 @@
 `Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
 https://nytimes.com/video/world/asia/100000010073300/south-korea-wildfires-historic-landmarks.html
 
-**What is World Sevens Football? The new women's seven-a-side tournament with $5M prize**\
+**What is World Sevens Football? The new women's seven-a-side tournament with $5m prize**\
 `The eight inaugural teams have yet to be announced, but organisers have shared what they hope the series becomes`\
 https://nytimes.com/athletic/6230521/2025/03/26/womens-soccer-world-sevens-football-explained/
 
