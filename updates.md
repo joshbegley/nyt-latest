@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Second line stupendous in rout of Flyers**\
+`The Flyers scored first, but the Leafs struck back quickly and often in a dominant display.`\
+https://nytimes.com/athletic/6231298/2025/03/25/maple-leafs-report-cards-nylander-mcmann-flyers/
+
 **Knicks make history as Towns, Hart both notch triple-doubles**\
 `New York duo is first in franchise history, 20th in NBA history, to accomplish feat. Hart also set a Knicks mark with ninth of the season.`\
 https://nytimes.com/athletic/6231284/2025/03/25/knicks-triple-doubles-history-towns-hart/
