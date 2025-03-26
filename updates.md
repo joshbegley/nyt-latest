@@ -1,3 +1,23 @@
+**Carmakers have been preparing for tariffs but will still be hit hard.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/carmakers-have-been-preparing-for-tariffs-but-will-still-be-hit-hard
+
+**Russia Is Winning Concessions and Buying Time in Cease-fire Talks**\
+`Moscow’s demands are slowing the process and giving it the advantage in talks with a deal-hungry United States, experts said.`\
+https://nytimes.com/2025/03/26/world/europe/russia-ukraine-us-peace-talks.html
+
+**Tiny Love Stories: ‘I Asked Him Back to My Place’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/03/26/style/tiny-modern-love-stories-i-asked-him-back-to-my-place.html
+
+**Reds to place OF Austin Hays on IL; Spencer Steer to start on active roster**\
+`Last season, Hays spent time on the IL with the Orioles with a similar calf injury.`\
+https://nytimes.com/athletic/6233303/2025/03/26/reds-austin-hays-il-spencer-steer-roster/
+
+**4 MLB teams that should outperform their win totals this year**\
+`Austin Mock digs into his projection model to identify five teams that could outperform win total odds this season.`\
+https://nytimes.com/athletic/6233112/2025/03/26/mlb-win-totals-best-bets-futures/
+
 **We’re All Conspiracy Theorists Now. Why?**\
 `We are caught up in a vast web. But the strands are visible.`\
 https://nytimes.com/2025/03/26/opinion/kennedy-epstein-conspiracy.html
