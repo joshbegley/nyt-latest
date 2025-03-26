@@ -1,3 +1,15 @@
+**Mangione Was Sent Socks With Heart-Shaped Notes Inside, Prosecutors Say**\
+`In filings, lawyers for the man accused of assassinating a health care executive argued with prosecutors over special treatment and his access to evidence.`\
+https://nytimes.com/2025/03/26/nyregion/luigi-mangione-laptop-evidence.html
+
+**An ‘Unthinkable’ Security Breach**\
+`Readers react to the security lapse that allowed the editor of The Atlantic into a group chat about a U.S. military operation in Yemen.`\
+https://nytimes.com/2025/03/26/opinion/us-signal-security-breach.html
+
+**Democrat Notches an Upset in Pennsylvania State Senate Race**\
+`James Andrew Malone, a small-town mayor, won a special election on Tuesday, narrowly defeating a county commissioner in a district the G.O.P. held for decades.`\
+https://nytimes.com/2025/03/26/us/politics/special-election-pennsylvania-state-senate-trump-malone-parsons.html
+
 **J.J. Watt to become NFL analyst, per sources; Gary Danielson to retire**\
 `Watt had been in CBS’ NFL Today studio, but got the game bug after calling the Christmas Day game with Eagle for Netflix.`\
 https://nytimes.com/athletic/6233031/2025/03/26/cbs-sports-college-football-nfl-gary-danielson-jj-watt/
