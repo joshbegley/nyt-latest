@@ -1,3 +1,15 @@
+**Trump to Announce Tariffs on Foreign Cars**\
+`The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
+https://nytimes.com/2025/03/26/business/economy/trump-to-announce-tariffs-on-foreign-cars.html
+
+**In surprise move, Ohio State's Cotie McMahon enters transfer portal**\
+`Through three seasons at Ohio State, McMahon averaged 15.3 points, 5.5 rebounds and 2.2 assists per game.`\
+https://nytimes.com/athletic/6233053/2025/03/26/ohio-state-cotie-mcmahon-transfer-portal/
+
+**J.J. Watt becoming NFL analyst with CBS, teaming with Ian Eagle: Sources**\
+`Watt had been in CBS’ NFL Today studio, but got the game bug after calling the Christmas Day game with Eagle for Netflix.`\
+https://nytimes.com/athletic/6233031/2025/03/26/cbs-sports-college-football-nfl-gary-danielson-jj-watt/
+
 **Eddie Adcock, Virtuoso Who Pushed Bluegrass Forward, Dies at 86**\
 `A master improviser on banjo, he understood the genre’s roots but was also in the forefront of the later “newgrass” movement.`\
 https://nytimes.com/2025/03/26/arts/music/eddie-adcock-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/hegseth-signal-war-plan-leak-white-ho
 **Review: Can Hubbard Street Dance Chicago Find a New Voice?**\
 `On a program with three New York premieres, the company seems stuck in an international style, though there are flickers of something more distinctive.`\
 https://nytimes.com/2025/03/26/arts/dance/review-hubbard-street-dance-chicago.html
-
-**Trump Asks Supreme Court to Let Him Cancel Grants to Teachers**\
-`In boilerplate letters, the administration told recipients that the grants supported diversity efforts and were wasteful.`\
-https://nytimes.com/2025/03/26/us/politics/trump-supreme-court-teacher-grants.html
-
-**Prince Harry Steps Down as Patron of Charity He Founded**\
-`The prince and his fellow patron, the prince of Lesotho, said they had resigned in solidarity with trustees at the charity, Sentebale.`\
-https://nytimes.com/2025/03/26/world/europe/prince-harry-resigns-charity-sentebale.html
-
-**Jakob Ingebrigtsen: 'I was clearly a victim of manipulation' by father Gjert**\
-`The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
-https://nytimes.com/athletic/6232369/2025/03/26/jakob-ingebrigtsen-trial-gjert/
 

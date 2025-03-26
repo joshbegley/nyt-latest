@@ -1,3 +1,7 @@
+**Eddie Adcock, Virtuoso Who Pushed Bluegrass Forward, Dies at 86**\
+`A master improviser on banjo, he understood the genre’s roots but was also in the forefront of the later “newgrass” movement.`\
+https://nytimes.com/2025/03/26/arts/music/eddie-adcock-dead.html
+
 **Iga Światek receives additional security at Miami Open after harassment during practice**\
 `Świątek's team had reported an incident in which a man shouted at her during a practice session to the Miami Open and WTA Tour.`\
 https://nytimes.com/athletic/6231941/2025/03/26/iga-swiatek-harassment-miami-open-security/

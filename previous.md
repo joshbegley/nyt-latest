@@ -1,3 +1,7 @@
+**Eddie Adcock, Virtuoso Who Pushed Bluegrass Forward, Dies at 86**\
+`A master improviser on banjo, he understood the genre’s roots but was also in the forefront of the later “newgrass” movement.`\
+https://nytimes.com/2025/03/26/arts/music/eddie-adcock-dead.html
+
 **Iga Światek receives additional security at Miami Open after harassment during practice**\
 `Świątek's team had reported an incident in which a man shouted at her during a practice session to the Miami Open and WTA Tour.`\
 https://nytimes.com/athletic/6231941/2025/03/26/iga-swiatek-harassment-miami-open-security/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/world/europe/prince-harry-resigns-charity-senteba
 **Jakob Ingebrigtsen: 'I was clearly a victim of manipulation' by father Gjert**\
 `The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
 https://nytimes.com/athletic/6232369/2025/03/26/jakob-ingebrigtsen-trial-gjert/
-
-**Women's Sweet 16 best bets: 5 games with value including USC-Kansas State without JuJu**\
-`Austin Mock has five games in the women's Sweet 16 lined up for best bets based on his model's numbers.`\
-https://nytimes.com/athletic/6232504/2025/03/26/womens-sweet-16-best-bets-ncaa-tournament/
 
