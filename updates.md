@@ -1,3 +1,7 @@
+**Talks progressing for Tsunoda to replace Lawson at Red Bull**\
+`Tsunoda, 24, looks set to make his Red Bull debut at the Japanese Grand Prix next weekend, with plans still to be finalized.`\
+https://nytimes.com/athletic/6231797/2025/03/26/yuki-tsunoda-liam-lawson-red-bull/
+
 **What is World Sevens Football? The new women's seven-a-side tournament with $5m prize**\
 `The eight inaugural teams have yet to be announced, but organisers have shared what they hope the series becomes`\
 https://nytimes.com/athletic/6230521/2025/03/26/womens-soccer-world-sevens-football-explained/

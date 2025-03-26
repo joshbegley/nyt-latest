@@ -1,3 +1,7 @@
+**Talks progressing for Tsunoda to replace Lawson at Red Bull**\
+`Tsunoda, 24, looks set to make his Red Bull debut at the Japanese Grand Prix next weekend, with plans still to be finalized.`\
+https://nytimes.com/athletic/6231797/2025/03/26/yuki-tsunoda-liam-lawson-red-bull/
+
 **Deadly Wildfires Destroy Historic Landmarks in South Korea**\
 `Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
 https://nytimes.com/video/world/asia/100000010073300/south-korea-wildfires-historic-landmarks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/arts/television/late-night-signal-chat-leak.html
 **J. Bennett Johnston, Who Helped Shape U.S. Energy Policy, Dies at 92**\
 `A four-term Democratic senator from Louisiana, he pushed for nuclear power and ending the nation’s reliance on foreign oil.`\
 https://nytimes.com/2025/03/26/us/politics/j-bennett-johnston-jr-dead.html
-
-**Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
-`The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
-https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/
 
