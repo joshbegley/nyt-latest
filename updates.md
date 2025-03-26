@@ -1,15 +1,3 @@
-**World Series champion Dodgers accept President Trump's invitation to visit White House**\
-`ANAHEIM, Calif.`\
-https://nytimes.com/athletic/6231054/2025/03/25/dodgers-accept-president-trump-white-house-invite/
-
-**After 'scary' infection, Charlie McAvoy back on ice with team he barely recognizes**\
-`McAvoy has been recovering from a serious infection after getting injured at the 4 Nations. It's unknown whether he will play this season.`\
-https://nytimes.com/athletic/6230970/2025/03/25/bruins-charlie-mcavoy-injury-infection/
-
-**After winning fifth starter job, Ben Brown can bring something unique to Cubs rotation**\
-`In a rotation that averaged 92.1 mph on its four-seam fastballs last season, Brown brings a different energy.`\
-https://nytimes.com/athletic/6230910/2025/03/25/ben-brown-cubs-rotation-fifth-starter/
-
 **Columbia Planned Tighter Protest Rules Even Before Trump Demanded Them**\
 `Students sued to stop Columbia from giving their disciplinary records to the federal government, which has demanded that the university rein in demonstrations.`\
 https://nytimes.com/2025/03/25/nyregion/columbia-campus-rules-khalil-lawsuit.html
@@ -37,4 +25,16 @@ https://nytimes.com/2025/03/25/us/politics/trump-pardons-former-business-partner
 **Russell Wilson to join Giants on 1-year, $21 million deal: Source**\
 `Wilson's hot-and-cold 2024 run made him the No. 4 quarterback and No. 43 overall free agent in The Athletic's top 150 rankings. `\
 https://nytimes.com/athletic/6178482/2025/03/25/russell-wilson-free-agency-signing-2025-giants/
+
+**Senate Confirms Bhattacharya to Lead N.I.H.**\
+`Dr. Jay Bhattacharya gained prominence during the pandemic as an opponent of widespread lockdowns.`\
+https://nytimes.com/2025/03/25/health/trump-nih-fda-bhattacharya.html
+
+**Trump’s Old Grudge Fuels Swipe at a New Law Firm**\
+`An executive order underscored the extent to which the president, who faced four indictments after he left office, aims to exact a price from anyone associated with past investigations of him.`\
+https://nytimes.com/2025/03/25/us/politics/trump-executive-order-law-firm-jenner-block.html
+
+**Inside Pete Hegseth’s Rocky First Months at the Pentagon**\
+`The disclosure of battle plans on a chat app created a new predicament for the defense secretary.`\
+https://nytimes.com/2025/03/25/us/politics/pete-hegseth-signal-chat-pentagon.html
 
