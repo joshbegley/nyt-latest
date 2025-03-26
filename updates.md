@@ -1,3 +1,15 @@
+**The likeliest scenario for the 2025 Giants**\
+`The likeliest scenario is that you're better off following the Giants than half the teams in baseball. Will that be good enough for fans?`\
+https://nytimes.com/athletic/6230515/2025/03/26/sf-giants-2025-season-likeliest-outcome/
+
+**The Windup: The real race in the NL West**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6231680/2025/03/26/nl-west-preview-prediction-the-windup/
+
+**MoneyCall: Is college 🏀 broken? Is Cinderella 💀?!**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6231464/2025/03/26/college-basketball-ncaa-tournament-business-moneycall-newsletter/
+
 **A Plane Crash in 1961 Devastated the Boston Skating Club. Then It Happened Again.**\
 `Two months after the D.C. plane crash killed 67, including six people affiliated with the Boston club, the members had to prepare for the world championships. Unfathomably, they had a blueprint.`\
 https://nytimes.com/2025/03/26/us/boston-skating-club-dc-plane-crash-1961.html

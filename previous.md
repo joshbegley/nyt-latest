@@ -1,3 +1,15 @@
+**The likeliest scenario for the 2025 Giants**\
+`The likeliest scenario is that you're better off following the Giants than half the teams in baseball. Will that be good enough for fans?`\
+https://nytimes.com/athletic/6230515/2025/03/26/sf-giants-2025-season-likeliest-outcome/
+
+**The Windup: The real race in the NL West**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6231680/2025/03/26/nl-west-preview-prediction-the-windup/
+
+**MoneyCall: Is college 🏀 broken? Is Cinderella 💀?!**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6231464/2025/03/26/college-basketball-ncaa-tournament-business-moneycall-newsletter/
+
 **A Plane Crash in 1961 Devastated the Boston Skating Club. Then It Happened Again.**\
 `Two months after the D.C. plane crash killed 67, including six people affiliated with the Boston club, the members had to prepare for the world championships. Unfathomably, they had a blueprint.`\
 https://nytimes.com/2025/03/26/us/boston-skating-club-dc-plane-crash-1961.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/theater/patsy-ferran-streetcar-named-desire.html
 **Three Great Documentaries to Stream**\
 `In this month’s picks, sheep, shirkers and coup d’état soundtracks.`\
 https://nytimes.com/2025/03/26/movies/great-documentaries-streaming.html
-
-**Why Elon Musk and Tesla Have a Legal Bone to Pick With Wisconsin**\
-`As the billionaire and his allied groups pour more than $20 million into a race for the state’s top court, his car company is suing Wisconsin over a law restricting vehicle sales.`\
-https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin.html
-
-**The Bounce: How did Jimmy Butler fare in revenge game vs. Heat? Plus, about Damian Lillard's absence**\
-`Jimmy Butler's highly anticipated return to Miami has come and gone. What are the reviews?`\
-https://nytimes.com/athletic/6232032/2025/03/26/jimmy-butler-heat-warriors-damian-lillard-blood-clots-bucks-nba-the-bounce/
-
-**As Rafael Devers prepares to DH full-time, his move stands out in baseball history**\
-`For a player of Devers' age, caliber and injury history, a full-time move to DH is exceedingly rare. `\
-https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-path/
 
