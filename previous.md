@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, March 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/03/26/todays-new-york-times
+
+**Mats Zuccarello sounds alarm on Wild's playoff situation: 'We gotta worry about getting there'**\
+`A once-comfortable cushion in the wild-card race is starting to look precarious for the injured Wild.`\
+https://nytimes.com/athletic/6231150/2025/03/26/wild-playoff-chase-zuccarello-golden-knights/
+
 **Federal Judge Blocks Trump’s Push to Shut Down Radio Free Europe**\
 `The judge’s temporary restraining order will allow the federally funded broadcaster to stay open at least until March 28.`\
 https://nytimes.com/2025/03/26/us/politics/trump-radio-free-europe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/business/egg-prices-restaurants.html
 **Quote of the Day: Trump’s Team Bares Disdain Toward Europe**\
 `Quotation of the Day for Wednesday, March 26, 2025.`\
 https://nytimes.com/2025/03/25/pageoneplus/quote-of-the-day-trumps-team-bares-disdain-toward-europe.html
-
-**Quote of the Day: MUSK IN POSITION TO REAP BILLIONS IN U.S. CONTRACTS**\
-`Quotation of the Day for Tuesday, March 25, 2025.`\
-https://nytimes.com/2025/03/25/pageoneplus/quote-of-the-day-musk-in-position-to-reap-billions-in-us-contracts.html
-
-**Billy Horschel's clutch putt powers Atlanta Drive to inaugural TGL title**\
-`Horschel, Patrick Cantlay and Justin Thomas launched a come-from-behind charge to snatch the championship from NY Golf Club.`\
-https://nytimes.com/athletic/6231444/2025/03/25/tgl-golf-billy-horschel-atlanta-drive-champions/
 
