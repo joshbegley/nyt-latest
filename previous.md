@@ -1,3 +1,11 @@
+**Elon Musk’s Wisconsin Problem**\
+`A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
+https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
+
+**Tariffs Could Give Tesla and Musk a Leg Up on Rivals**\
+`The company led by President Trump’s confidant Elon Musk builds all the cars it sells in the United States domestically and will be exempt from tariffs on finished vehicles.`\
+https://nytimes.com/2025/03/26/business/trump-tariffs-tesla-musk.html
+
 **3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
 `The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
 https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/health/measles-kansas-ohio-texas.html
 **Brad Stevens expecting 'business as usual' amid Celtics' ownership transition**\
 `Stevens first met incoming Celtics owner Bill Chisholm a couple of weeks ago but hasn't had much communication with his new boss yet.`\
 https://nytimes.com/athletic/6233932/2025/03/26/brad-stevens-celtics-sale-ownership-change/
-
-**Intelligence Officials Face a Fresh Round of Questions About Signal Leak**\
-`Democrats on a House committee appeared in lock step as they confronted one of the most notable blunders of the Trump administration.`\
-https://nytimes.com/2025/03/26/us/politics/intelligence-officials-signal-leak.html
-
-**Gazans Protest and Call for an End to the War**\
-`Frustrated and angry over the collapse of a cease-fire with Israel, Palestinians took to the streets of northern Gaza to protest against the war. Many chanted anti-Hamas slogans, calling for the group to “get out.”`\
-https://nytimes.com/video/world/middleeast/100000010074101/war-protest-in-gaza-day-two.html
 

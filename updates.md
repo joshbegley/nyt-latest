@@ -1,3 +1,11 @@
+**Elon Musk’s Wisconsin Problem**\
+`A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
+https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
+
+**Tariffs Could Give Tesla and Musk a Leg Up on Rivals**\
+`The company led by President Trump’s confidant Elon Musk builds all the cars it sells in the United States domestically and will be exempt from tariffs on finished vehicles.`\
+https://nytimes.com/2025/03/26/business/trump-tariffs-tesla-musk.html
+
 **3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
 `The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
 https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html

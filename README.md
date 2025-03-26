@@ -1,3 +1,7 @@
+**What the data from MLB’s spring robot-umpire test says about baseball's future**\
+`Was the Automated Ball-Strike (ABS) system novel? Yes, though maybe not to Max Scherzer. Effective? According to the data, also, yes.`\
+https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testing-2025/
+
 **Elon Musk’s Wisconsin Problem**\
 `A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
 https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
 **Measles Cases in Kansas May Be Linked to Texas Outbreak**\
 `State health officials worry that declining vaccination rates have left many communities vulnerable nationwide.`\
 https://nytimes.com/2025/03/26/health/measles-kansas-ohio-texas.html
-
-**Brad Stevens expecting 'business as usual' amid Celtics' ownership transition**\
-`Stevens first met incoming Celtics owner Bill Chisholm a couple of weeks ago but hasn't had much communication with his new boss yet.`\
-https://nytimes.com/athletic/6233932/2025/03/26/brad-stevens-celtics-sale-ownership-change/
 
