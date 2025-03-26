@@ -1,3 +1,11 @@
+**A Plane Crash in 1961 Devastated the Boston Skating Club. Then It Happened Again.**\
+`Two months after the D.C. plane crash killed 67, including six people affiliated with the Boston club, the members had to prepare for the world championships. Unfathomably, they had a blueprint.`\
+https://nytimes.com/2025/03/26/us/boston-skating-club-dc-plane-crash-1961.html
+
+**FIFA faces fresh calls to recognise Afghanistan women's football team**\
+`The Afghan team have been absent from FIFA tournaments since the second Taliban takeover of the nation in 2021.`\
+https://nytimes.com/athletic/6231972/2025/03/26/afghanistan-women-fifa-world-cup/
+
 **Senate Democrats Seek Answers on Firing of Justice Dept. Official**\
 `After a disagreement about giving gun rights back to the actor Mel Gibson, a pardon attorney was fired. Senate Democrats are asking for details, including records or emails, that relate to the decision.`\
 https://nytimes.com/2025/03/26/us/politics/senate-democrats-justice-department-attorney.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232032/2025/03/26/jimmy-butler-heat-warriors-damia
 **As Rafael Devers prepares to DH full-time, his move stands out in baseball history**\
 `For a player of Devers' age, caliber and injury history, a full-time move to DH is exceedingly rare. `\
 https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-path/
-
-**Supreme Court Upholds Biden Administration’s Limits on ‘Ghost Guns’**\
-`The administration had tightened regulations on kits that can be easily assembled into nearly untraceable firearms.`\
-https://nytimes.com/2025/03/26/us/politics/supreme-court-ghost-guns.html
-
-**Big3 to feature 8 city-based teams for 2025, a new twist to the 3-on-3 basketball league**\
-`Eight cities will have host teams for the Big3 starting in June. It's a feat that league co-founder Ice Cube calls “a labor of love."`\
-https://nytimes.com/athletic/6230446/2025/03/26/big3-teams-ice-cube-3x3-basketball/
 

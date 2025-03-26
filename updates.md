@@ -1,3 +1,11 @@
+**A Plane Crash in 1961 Devastated the Boston Skating Club. Then It Happened Again.**\
+`Two months after the D.C. plane crash killed 67, including six people affiliated with the Boston club, the members had to prepare for the world championships. Unfathomably, they had a blueprint.`\
+https://nytimes.com/2025/03/26/us/boston-skating-club-dc-plane-crash-1961.html
+
+**FIFA faces fresh calls to recognise Afghanistan women's football team**\
+`The Afghan team have been absent from FIFA tournaments since the second Taliban takeover of the nation in 2021.`\
+https://nytimes.com/athletic/6231972/2025/03/26/afghanistan-women-fifa-world-cup/
+
 **Senate Democrats Seek Answers on Firing of Justice Dept. Official**\
 `After a disagreement about giving gun rights back to the actor Mel Gibson, a pardon attorney was fired. Senate Democrats are asking for details, including records or emails, that relate to the decision.`\
 https://nytimes.com/2025/03/26/us/politics/senate-democrats-justice-department-attorney.html
