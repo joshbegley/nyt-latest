@@ -1,3 +1,15 @@
+**4 U.S. Soldiers Go Missing During a Lithuanian Training Mission**\
+`The U.S. military said it was searching for the soldiers, who were training in eastern Lithuania, near the border with Belarus.`\
+https://nytimes.com/2025/03/26/world/europe/us-army-soldiers-missing-lithuania.html
+
+**How ‘No Other Land’ Became an Unlikely Box Office Success**\
+`The Oscar-winning documentary has surpassed $2 million at the box office despite the lack of a traditional distribution deal.`\
+https://nytimes.com/2025/03/26/movies/no-other-land-box-office.html
+
+**A U.K. University Is Given a Record Fine Over Free Speech on Campus**\
+`A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
+https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
+
 **When the Wild Child Egon Schiele Grew Up**\
 `Some of the artist’s most psychologically insightful work came in the final years of his life — a mature period cut short by a pandemic.`\
 https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museum.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/what-are-ghost-guns.html
 **Watch: How worried should the Warriors be about their playoff chances?**\
 `NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
 https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
-
-**Scoop City: A top-five mock draft after Wilson and Diggs sign**\
-`Inside: Why the Giants signed Wilson, Patriots added Diggs and mocking the top five picks of the 2025 draft.`\
-https://nytimes.com/athletic/6232572/2025/03/26/stefon-diggs-russell-wilson-mock-draft-nfl-scoop-city/
-
-**How Argentina produced their best performance for years - and without Lionel Messi**\
-`Argentina's seriously special performance against Brazil on Tuesday was a hint at how football's next tactical era might look`\
-https://nytimes.com/athletic/6231884/2025/03/26/argentina-brazil-tactical-evolution-lionel-messi/
-
-**The likeliest scenario for the 2025 Giants**\
-`The likeliest scenario is that you're better off following the Giants than half the teams in baseball. Will that be good enough for fans?`\
-https://nytimes.com/athletic/6230515/2025/03/26/sf-giants-2025-season-likeliest-outcome/
 
