@@ -1,5 +1,21 @@
+**Jakob Ingebrigtsen: 'I was clearly a victim of manipulation' by father Gjert**\
+`The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
+https://nytimes.com/athletic/6232369/2025/03/26/jakob-ingebrigtsen-trial-gjert/
+
+**Women's Sweet 16 best bets: 5 games with value including USC-Kansas State without JuJu**\
+`Austin Mock has five games in the women's Sweet 16 lined up for best bets based on his model's numbers.`\
+https://nytimes.com/athletic/6232504/2025/03/26/womens-sweet-16-best-bets-ncaa-tournament/
+
+**PBS rejects Marjorie Taylor Greene’s assertions about drag queen programming.**\
+`Rep. Marjorie Taylor Greene criticized PBS for featuring a drag queen named Lil Miss Hot Mess in its programming. But the broadcaster did not feature her.`\
+https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/pbs-rejects-marjorie-taylor-greenes-assertions-about-drag-queen-programming
+
+**Foreign Spies to Team Trump: 👊🇺🇸🔥**\
+`Help yourself. The door is open.`\
+https://nytimes.com/2025/03/26/opinion/americas-security-blunder-is-the-gift-of-a-lifetime.html
+
 **4 U.S. Soldiers Go Missing During a Lithuanian Training Mission**\
-`The U.S. military said it was searching for the soldiers, who were training in eastern Lithuania, near the border with Belarus.`\
+`A U.S. military official said the soldiers were in a heavy vehicle, which may have sunk in a swamp in eastern Lithuania, near the border with Belarus.`\
 https://nytimes.com/2025/03/26/world/europe/us-army-soldiers-missing-lithuania.html
 
 **How ‘No Other Land’ Became an Unlikely Box Office Success**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
 **Chelsea fans demand action over Boehly's connection to ticket resale site**\
 `A CST spokesperson described Boehly’s connection to Vivid Seats as a “breach of trust” and a “clear conflict of interest”.`\
 https://nytimes.com/athletic/6232453/2025/03/26/chelsea-fans-boehly-vivid-seats/
-
-**Jair Bolsonaro Ordered to Face Trial in Brazil for Attempting a Coup**\
-`Brazil’s top court ruled that the former president will be tried over his role in a vast plot to cling to power after his 2022 election loss.`\
-https://nytimes.com/2025/03/26/world/americas/brazil-bolsonaro-trial-coup-2022-elections.html
-
-**Can I Hold Stock in a Company if I Loathe the C.E.O.’s Politics?**\
-`The magazine’s Ethicist columnist on investing your money ethically.`\
-https://nytimes.com/2025/03/26/magazine/ethicist-ethics-investing.html
-
-**‘Ghost Guns’: What They Are and Why There Has Been a Fight Over Them**\
-`A rule regulating the firearm kits was a centerpiece of President Joseph R. Biden Jr.’s gun control initiative. The Supreme Court has upheld the regulation, issued in 2022.`\
-https://nytimes.com/2025/03/26/us/politics/what-are-ghost-guns.html
-
-**Watch: How worried should the Warriors be about their playoff chances?**\
-`NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
-https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
 
