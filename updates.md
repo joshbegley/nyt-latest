@@ -1,3 +1,7 @@
+**The Pulse: The new evil empire in baseball**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6229438/2025/03/26/dodgers-mlb-season-preview-the-pulse/
+
 **A Fire Plunged Heathrow Into Darkness. A Nearby Data Center Kept Humming. Why?**\
 `It could cost $100 million and take years to install the backup generators to prevent another hourslong power loss like the one at Britain’s biggest airport last week.`\
 https://nytimes.com/2025/03/26/world/europe/heathrow-fire-power-outage-explained.html
