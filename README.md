@@ -1,3 +1,7 @@
+**NFL rule change proposals: Expanded replay, making dynamic kickoff permanent**\
+`Also among the proposed changes is an expanded use for when trailing teams are allowed to declare an onside kick.`\
+https://nytimes.com/athletic/6232958/2025/03/26/nfl-competition-competition-2025-rule-proposals-expanded-replay/
+
 **Mangione Was Sent Socks With Heart-Shaped Notes Inside, Prosecutors Say**\
 `In filings, lawyers for the man accused of assassinating a health care executive argued with prosecutors over special treatment and his access to evidence.`\
 https://nytimes.com/2025/03/26/nyregion/luigi-mangione-laptop-evidence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233031/2025/03/26/cbs-sports-college-football-nfl-
 **Eddie Adcock, Virtuoso Who Pushed Bluegrass Forward, Dies at 86**\
 `A master improviser on banjo, he understood the genre’s roots but was also in the forefront of the later “newgrass” movement.`\
 https://nytimes.com/2025/03/26/arts/music/eddie-adcock-dead.html
-
-**Iga Światek receives additional security at Miami Open after harassment during practice**\
-`Świątek's team had reported an incident in which a man shouted at her during a practice session to the Miami Open and WTA Tour.`\
-https://nytimes.com/athletic/6231941/2025/03/26/iga-swiatek-harassment-miami-open-security/
 
