@@ -1,3 +1,19 @@
+**Ranking all 30 MLB teams' Opening Day starting rotations: Dodgers, Phillies, Mariners lead way**\
+`As the old adage goes, you can never have too much starting pitching. So with Opening Day here, how does each team's starting rotation rate?`\
+https://nytimes.com/athletic/6231108/2025/03/26/mlb-opening-day-starting-rotation-rankings/
+
+**Malik Beasley, Ty Jerome and 16 more reliable pickups for your fantasy basketball title push**\
+`With precious few games left in fantasy basketball leagues, Eric Wong identifies the players you can count on from the waiver wire.`\
+https://nytimes.com/athletic/6232540/2025/03/26/fantasy-basketball-waiver-wire-winners-pickups/
+
+**Voice of America Director Sues Trump Officials Over Shutdown**\
+`The lawsuit by the director and journalists is the latest legal challenge to the administration’s bid to dismantle the government-funded broadcaster.`\
+https://nytimes.com/2025/03/26/business/voice-of-america-lawsuit-trump.html
+
+**Hegseth’s Leak Would Have Warned the Enemy. The White House Is Using Semantics to Obscure That.**\
+`War plan or battle plan? Classified or not? The answers to those questions amount to a distinction without much of a difference.`\
+https://nytimes.com/2025/03/26/us/politics/hegseth-signal-war-plan-leak-white-house.html
+
 **Review: Can Hubbard Street Dance Chicago Find a New Voice?**\
 `On a program with three New York premieres, the company seems stuck in an international style, though there are flickers of something more distinctive.`\
 https://nytimes.com/2025/03/26/arts/dance/review-hubbard-street-dance-chicago.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6232504/2025/03/26/womens-sweet-16-best-bets-ncaa-t
 **PBS rejects Marjorie Taylor Greene’s assertions about drag queen programming.**\
 `Rep. Marjorie Taylor Greene criticized PBS for featuring a drag queen named Lil Miss Hot Mess in its programming. But the broadcaster did not feature her.`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/pbs-rejects-marjorie-taylor-greenes-assertions-about-drag-queen-programming
-
-**Foreign Spies to Team Trump: 👊🇺🇸🔥**\
-`Help yourself. The door is open.`\
-https://nytimes.com/2025/03/26/opinion/americas-security-blunder-is-the-gift-of-a-lifetime.html
-
-**4 U.S. Soldiers Go Missing During a Lithuanian Training Mission**\
-`A U.S. military official said the soldiers were in a heavy vehicle, which may have sunk in a swamp in eastern Lithuania, near the border with Belarus.`\
-https://nytimes.com/2025/03/26/world/europe/us-army-soldiers-missing-lithuania.html
-
-**How ‘No Other Land’ Became an Unlikely Box Office Success**\
-`The Oscar-winning documentary has surpassed $2 million at the box office despite the lack of a traditional distribution deal.`\
-https://nytimes.com/2025/03/26/movies/no-other-land-box-office.html
-
-**A British University Is Given a Record Fine Over Free Speech on Campus**\
-`A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
-https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
 
