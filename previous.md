@@ -1,3 +1,7 @@
+**Art Expert Accused of Duping Prince and Palace of Versailles Stands Trial**\
+`A connoisseur of 18th-century French furniture fooled buyers into purchasing chairs with fake royal pedigrees, authorities say. The distinct taste of licorice helped give him away.`\
+https://nytimes.com/2025/03/25/world/europe/france-fake-furniture-trial.html
+
 **Angels prospect Ryan Johnson makes Opening Day roster, skipping minors in 'surreal' move**\
 `Johnson, drafted last summer, was one of the most prolific college pitchers during his last two seasons at Dallas Baptist. `\
 https://nytimes.com/athletic/6231196/2025/03/25/angels-ryan-johnson-opening-day-roster-no-minors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-s
 **Steelers free-agency tracker: Russell Wilson joins Giants, all eyes turn to Aaron Rodgers**\
 `We're tracking every Steelers move in free agency, from the quarterback situation to DK Metcalf and much, much more.`\
 https://nytimes.com/athletic/6185212/2025/03/25/steelers-free-agent-tracker-news-grades-2025/
-
-**How Well Do You Know Your Own Group Chats?**\
-`A journalist’s inclusion in a national security discussion served as a reminder that you might not know every number in the chat — and that could be a big problem.`\
-https://nytimes.com/2025/03/25/style/group-chat-security-signal.html
 

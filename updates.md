@@ -1,3 +1,7 @@
+**Art Expert Accused of Duping Prince and Palace of Versailles Stands Trial**\
+`A connoisseur of 18th-century French furniture fooled buyers into purchasing chairs with fake royal pedigrees, authorities say. The distinct taste of licorice helped give him away.`\
+https://nytimes.com/2025/03/25/world/europe/france-fake-furniture-trial.html
+
 **Angels prospect Ryan Johnson makes Opening Day roster, skipping minors in 'surreal' move**\
 `Johnson, drafted last summer, was one of the most prolific college pitchers during his last two seasons at Dallas Baptist. `\
 https://nytimes.com/athletic/6231196/2025/03/25/angels-ryan-johnson-opening-day-roster-no-minors/
