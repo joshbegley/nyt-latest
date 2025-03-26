@@ -1,3 +1,7 @@
+**Herb Greene, 82, Dies; His Photographs Captured the San Francisco Sound**\
+`One of the first to shoot the Grateful Dead, he also memorably chronicled many of the other bands that were on the scene in the late 1960s.`\
+https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
+
 **Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
 `The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
 https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010074101/war-protest-in-gaza-d
 **Surveillance Footage Shows Arrest of Tufts University Student**\
 `Rumeysa Ozturk, a Turkish citizen and a Muslim, was heading out to break her Ramadan fast with friends Tuesday night when she was detained by agents from the Department of Homeland Security.`\
 https://nytimes.com/video/us/100000010075008/tufts-student-ice-arrest.html
-
-**New Giants QB Russell Wilson: 'I expect to be the starter'**\
-`The 13-year NFL veteran is ready to help the Giants turn things following the team's 3-14 season in 2024. `\
-https://nytimes.com/athletic/6233808/2025/03/26/russell-wilson-giants-qb-starter-2025/
 
