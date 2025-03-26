@@ -1,3 +1,11 @@
+**With Red Wings' outlook growing bleak, Steve Yzerman's imperative comes into view**\
+`With each game down the Red Wings' home stretch, it's becoming clear what a big offseason this is for GM Steve Yzerman.`\
+https://nytimes.com/athletic/6231647/2025/03/26/red-wings-steve-yzerman-offseason-imperative/
+
+**Late Night Is Still Reeling Over the Government’s ‘War by Emoji’**\
+`“Signal might be a good app for you and me and our local drug dealer, but it’s not for the Pentagon to plan wars on,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2025/03/26/arts/television/late-night-signal-chat-leak.html
+
 **J. Bennett Johnston, Who Shaped U.S. Energy Policy, Dies at 92**\
 `A four-term Democratic senator from Louisiana, he pushed for nuclear power and ending the nation’s reliance on foreign oil.`\
 https://nytimes.com/2025/03/26/us/politics/j-bennett-johnston-jr-dead.html
@@ -23,18 +31,10 @@ https://nytimes.com/2025/03/26/learning/word-of-the-day-spacewalk.html
 https://nytimes.com/athletic/6229780/2025/03/26/chelsea-stamford-bridge-boehly-clearlake-eghbali/
 
 **South Korea Battles Some of Its Worst-Ever Wildfires**\
-`At least 18 people are dead after six days of fires fueled by dry weather conditions. Among the scorched buildings: two 1,000-year-old Buddhist temples.`\
+`At least 19 people are dead, including the pilot of a helicopter that crashed during efforts to contain fires fueled by strong winds.`\
 https://nytimes.com/2025/03/26/world/asia/south-korea-wildfires.html
 
 **Everton mailbag: Moyes' summer plans, stadium naming rights, pre-season in the U.S.**\
 `The Athletic asked for your Everton questions - and they piled in. Patrick Boyland attempts to provide the answers... `\
 https://nytimes.com/athletic/6228984/2025/03/26/everton-mailbag-moyes-transfers-stadium/
-
-**Nico Gonzalez: How is Man City's 'mini Rodri' adapting to Premier League life?**\
-`Why it's worth remembering that even the benchmark for City's holding midfielders needed to brush up on a few things early on `\
-https://nytimes.com/athletic/6227849/2025/03/26/nico-gonzalez-manchester-city-adaption/
-
-**What's going on with Crysencio Summerville's hamstring injury?**\
-`Graham Potter has barely been able to call on the former Leeds man — but he should be back in action soon`\
-https://nytimes.com/athletic/6217863/2025/03/26/crysencio-summerville-west-ham-hamstring-injury/
 
