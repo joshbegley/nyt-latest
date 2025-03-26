@@ -1,3 +1,15 @@
+**Senate Democrats Press Trump for Answers on Security Breach**\
+`Top lawmakers say the White House must provide a full accounting of actions surrounding sensitive military information shared on a text chain that included a journalist.`\
+https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html
+
+**The New York Times International Edition in Print for Thursday, March 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/26/todays-new-york-times-international-edition
+
+**Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
+`Eala has been setting tennis records for the Philippines for some time. For her, it might be the simplest part of being a rising star.`\
+https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
+
 **Alphonso Davies set for lengthy absence with cruciate ligament injury**\
 `Davies was substituted only 12 minutes into Canada’s 2-1 win over the United States in Concacaf Nations League third-place match.`\
 https://nytimes.com/athletic/6226146/2025/03/26/alphonso-davies-acl-injury/
