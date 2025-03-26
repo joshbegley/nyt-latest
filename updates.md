@@ -1,3 +1,15 @@
+**With favorites filling the Sweet 16 bracket, will bettors break up with Cinderella?**\
+`Bettors are loving the SEC, but can you blame them? Bookmakers break down Sweet 16 betting action.`\
+https://nytimes.com/athletic/6230219/2025/03/26/bettors-love-the-sec-money-pouring-in-on-arkansas-kentucky-ahead-of-sweet-16/
+
+**Asencio set to renew Real Madrid contract**\
+`The 22-year-old's existing deal was set to expire in 2026 but Madrid have triggered a pre-agreed contract option to extend his terms.`\
+https://nytimes.com/athletic/6231843/2025/03/26/raul-asencio-real-madrid-contract/
+
+**Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
+`Alexandra Eala continues on her history-making run for tennis in the Philippines at the Miami Open.`\
+https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
+
 **Senate Democrats Press Trump for Answers on Security Breach**\
 `Top lawmakers say the White House must provide a full accounting of actions surrounding sensitive military information shared on a text chain that included a journalist.`\
 https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html

@@ -1,3 +1,11 @@
+**With favorites filling the Sweet 16 bracket, will bettors break up with Cinderella?**\
+`Bettors are loving the SEC, but can you blame them? Bookmakers break down Sweet 16 betting action.`\
+https://nytimes.com/athletic/6230219/2025/03/26/bettors-love-the-sec-money-pouring-in-on-arkansas-kentucky-ahead-of-sweet-16/
+
+**Asencio set to renew Real Madrid contract**\
+`The 22-year-old's existing deal was set to expire in 2026 but Madrid have triggered a pre-agreed contract option to extend his terms.`\
+https://nytimes.com/athletic/6231843/2025/03/26/raul-asencio-real-madrid-contract/
+
 **Senate Democrats Press Trump for Answers on Security Breach**\
 `Top lawmakers say the White House must provide a full accounting of actions surrounding sensitive military information shared on a text chain that included a journalist.`\
 https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html
 https://nytimes.com/issue/todaysinyt/2025/03/26/todays-new-york-times-international-edition
 
 **Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
-`Eala has been setting tennis records for the Philippines for some time. For her, it might be the simplest part of being a rising star.`\
+`Alexandra Eala continues on her history-making run for tennis in the Philippines at the Miami Open.`\
 https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
 
 **Alphonso Davies set for lengthy absence with cruciate ligament injury**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/technology/personaltech/tiktok-ban-deadline.html
 **I Love ‘Severance.’ Now End It.**\
 `It’s OK to love a TV show. It’s also OK to say goodbye without answers to every single question.`\
 https://nytimes.com/2025/03/26/opinion/severance-finale-ending.html
-
-**Pacific Northwest Could See Rare Thunderstorms on Wednesday**\
-`Severe weather could knock Oregon and Washington with winds over 60 miles per hour and hail larger than golf balls.`\
-https://nytimes.com/2025/03/26/weather/seattle-oregon-rain-storm.html
-
-**At Paul Weiss, Panic, Poachers and a Fight for the Bottom Line**\
-`Fears that competitors could take its top rainmaking talent added to the law firm’s worries about a Trump executive order that targeted it.`\
-https://nytimes.com/2025/03/26/business/paul-weiss-trump-deal.html
 
