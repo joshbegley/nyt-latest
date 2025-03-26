@@ -1,3 +1,31 @@
+**U.S. Could Run Out of Cash by May, Budget Office Predicts**\
+`The Congressional Budget Office said that the so-called X-date could occur as early as spring if Congress does not lift or suspend the nation’s debt limit.`\
+https://nytimes.com/2025/03/26/business/us-debt-limit.html
+
+**The Mystery of Melania Trump’s Wedding Dress and an eBay Sale**\
+`Is the first lady’s 2005 Dior couture gown really available for resale? Or is this a hoax?`\
+https://nytimes.com/2025/03/26/style/melania-trump-wedding-dress-ebay.html
+
+**Paramilitary Fighters Flee Sudan’s Capital, a Major Shift in Civil War**\
+`In dramatic scenes that appear to mark a turning point in nearly two years of civil war, Sudan’s military is driving fighters of its rival, the Rapid Support Forces, out of Khartoum.`\
+https://nytimes.com/2025/03/26/world/europe/sudan-khartoum-war-rsf-withdrawal.html
+
+**Submit questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
+`Have a draft, prospects or scouting question for The Athletic's Scott Wheeler? Submit them here for his next mailbag.`\
+https://nytimes.com/athletic/6232252/2025/03/26/nhl-draft-2025-mailbag-wheeler/
+
+**Amazon Gets Into the LeBron James Business**\
+`The basketball star has signed a podcasting deal with Wondery, furthering Amazon’s wider push into sports.`\
+https://nytimes.com/2025/03/26/business/media/amazon-gets-into-the-lebron-james-business.html
+
+**Navigating 20 rounds of a high-stakes, head-to-head fantasy baseball draft**\
+`Michael Salfino shares his team-building process for a high stakes H-2-H league with a unique format that allows for little margin of error.`\
+https://nytimes.com/athletic/6231155/2025/03/26/fantasy-baseball-draft-2025-strategy-picks/
+
+**Why signing Stefon Diggs — drama and all — was the right move for the Patriots**\
+`Many see Diggs as the prototypical "diva" receiver. But there's a lot more to the veteran than that, and he should make the Patriots better.`\
+https://nytimes.com/athletic/6231282/2025/03/26/stefon-diggs-patriots-signing-drama/
+
 **Trump Administration Considers Money for Pardoned Jan. 6 Rioters**\
 `President Trump said there was “a lot of talk about” creating a compensation fund because they had lost wages and other opportunities because they were prosecuted for storming the Capitol.`\
 https://nytimes.com/2025/03/26/us/politics/trumo-jan6-rioters-compensation.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-funding.html
 **Nottingham Forest optimistic Wood has avoided serious injury**\
 `The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
 https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
-
-**Dollar Tree Is Selling Family Dollar for $1 Billion**\
-`Nearly 10 years after buying Family Dollar for about $9 billion, Dollar Tree announced it would sell the retailer to two private equity firms.`\
-https://nytimes.com/2025/03/26/business/dollar-tree-family-dollar-sale.html
-
-**Who Are Katherine Maher and Paula Kerger, the C.E.O.s of PBS and NPR?**\
-`The two public media organizations will be represented before Congress by executives with very different résumés.`\
-https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/npr-pbs-katherine-maher-paula-kerger
-
-**Heat Today: Andrew Wiggins on leaving Warriors and how adjusting was 'new chapter in life'**\
-`Andrew Wiggins will always look back on his Warriors stint with fond memories. Steve Kerr wants Wiggins to know the feeling is mutual.`\
-https://nytimes.com/athletic/6231658/2025/03/26/andrew-wiggins-heat-jimmy-butler-warriors-nba/
-
-**What we're hearing about rising prices, revenue sharing and college hoops' transfer portal**\
-`The price of building a contender has ballooned to well above what most men’s basketball programs will have to work with in revenue sharing.`\
-https://nytimes.com/athletic/6232076/2025/03/26/college-basketball-transfer-portal-prices/
-
-**The ringmaster spotlighting NPR and PBS: Marjorie Taylor Greene.**\
-`Ms. Greene organized Wednesday’s hearing on American public media, ominously titled “Anti-American Airwaves.”`\
-https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/the-ringmaster-spotlighting-npr-and-pbs-marjorie-taylor-greene
-
-**Here’s the latest.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2025/03/26/us/trump-news/heres-the-latest
-
-**Can the Blues catch the Wild for top wild card? 'That's definitely the goal'**\
-`After a 6-1 win over the Montreal Canadiens on Thursday, the Blues are now just two points behind the Minnesota Wild for the top wild card.`\
-https://nytimes.com/athletic/6231489/2025/03/26/st-louis-blues-nhl-wild-card-race/
 
