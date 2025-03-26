@@ -1,3 +1,11 @@
+**Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
+`The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
+https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
+
+**Submit questions for Ben Standig's Commanders mailbag**\
+`Standig will consider your questions for his upcoming mailbag following a busy free-agency period for Washington. `\
+https://nytimes.com/athletic/6231142/2025/03/25/commanders-mailbag-free-agency-nfl-draft/
+
 **Texas Prosecutors Will No Longer Pursue Death Penalty in El Paso Shooting**\
 `The gunman, who killed 23 people at a Walmart in 2019, was previously sentenced to 90 consecutive life terms after pleading guilty to federal hate crimes.`\
 https://nytimes.com/2025/03/25/us/el-paso-mass-shooting-death-penalty.html
