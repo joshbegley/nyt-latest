@@ -1,3 +1,19 @@
+**4 U.S. Soldiers Go Missing During a Lithuanian Training Mission**\
+`The U.S. military said it was searching for the soldiers, who were training in eastern Lithuania, near the border with Belarus.`\
+https://nytimes.com/2025/03/26/world/europe/us-army-soldiers-missing-lithuania.html
+
+**How ‘No Other Land’ Became an Unlikely Box Office Success**\
+`The Oscar-winning documentary has surpassed $2 million at the box office despite the lack of a traditional distribution deal.`\
+https://nytimes.com/2025/03/26/movies/no-other-land-box-office.html
+
+**A U.K. University Is Given a Record Fine Over Free Speech on Campus**\
+`A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
+https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
+
+**Those Are Definitely ‘War Plans’**\
+`What members of the administration can no longer effectively do is pretend that their incompetent and reckless actions didn’t happen. It’s right there on the page.`\
+https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
+
 **When the Wild Child Egon Schiele Grew Up**\
 `Some of the artist’s most psychologically insightful work came in the final years of his life — a mature period cut short by a pandemic.`\
 https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museum.html
