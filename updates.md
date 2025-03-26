@@ -1,3 +1,11 @@
+**What we're hearing about rising prices, revenue sharing and college hoops' transfer portal**\
+`The price of building a contender has ballooned to well above what most men’s basketball programs will have to work with in revenue sharing.`\
+https://nytimes.com/athletic/6232076/2025/03/26/college-basketball-transfer-portal-prices/
+
+**The ringmaster spotlighting NPR and PBS: Marjorie Taylor Greene.**\
+`Ms. Greene organized Wednesday’s hearing on American public media, ominously titled “Anti-American Airwaves.”`\
+https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/the-ringmaster-spotlighting-npr-and-pbs-marjorie-taylor-greene
+
 **Here’s the latest.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2025/03/26/us/trump-news/heres-the-latest
