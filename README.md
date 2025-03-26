@@ -1,3 +1,7 @@
+**U.S. Could Run Out of Cash by May, Budget Office Predicts**\
+`The Congressional Budget Office said that the so-called X-date could occur as early as spring if Congress does not lift or suspend the nation’s debt limit.`\
+https://nytimes.com/2025/03/26/business/us-debt-limit.html
+
 **The Mystery of Melania Trump’s Wedding Dress and an eBay Sale**\
 `Is the first lady’s 2005 Dior couture gown really available for resale? Or is this a hoax?`\
 https://nytimes.com/2025/03/26/style/melania-trump-wedding-dress-ebay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-funding.html
 **Nottingham Forest optimistic Wood has avoided serious injury**\
 `The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
 https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
-
-**Dollar Tree Is Selling Family Dollar for $1 Billion**\
-`Nearly 10 years after buying Family Dollar for about $9 billion, Dollar Tree announced it would sell the retailer to two private equity firms.`\
-https://nytimes.com/2025/03/26/business/dollar-tree-family-dollar-sale.html
 
