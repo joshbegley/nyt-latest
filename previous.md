@@ -1,3 +1,7 @@
+**BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
+`Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
+https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
+
 **Live Updates: Trump to Announce Tariffs on Foreign Cars**\
 `The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232768/2025/03/26/west-virginia-ross-hodge-mens-ba
 **Elmo and Elon Musk Are Cited as G.O.P. Lawmakers Grill PBS and NPR**\
 `Dark pronouncements by Republicans about a “communist agenda” espoused by public media were intercut with lighter references to “Sesame Street” and “Curious George.”`\
 https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-hearing-republicans.html
-
-**Dennis McDougal, True-Crime Writer and Hollywood Muckraker, Dies at 77**\
-`The author of more than a dozen books and an award-winning documentary, he died in a car crash in Southern California.`\
-https://nytimes.com/2025/03/26/books/dennis-mcdougal-dead.html
 

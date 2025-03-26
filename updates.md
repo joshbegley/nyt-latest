@@ -1,3 +1,7 @@
+**BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
+`Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
+https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
+
 **Live Updates: Trump to Announce Tariffs on Foreign Cars**\
 `The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars

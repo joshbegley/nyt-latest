@@ -1,3 +1,7 @@
+**PSG owners exploring deal for Spanish side Malaga**\
+`QSI already own stakes in PSG and Braga but are interested in acquiring the Spanish second division side.`\
+https://nytimes.com/athletic/6233133/2025/03/26/psg-malaga-qsi-stake-ownership/
+
 **BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
 `Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
 https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/us/classified-information-signal-chat.html
 **West Virginia hiring North Texas basketball coach Ross Hodge**\
 `Hodge, 44, is still coaching the Mean Green in the NIT. They play in the semifinals on April 1 in Indianapolis.`\
 https://nytimes.com/athletic/6232768/2025/03/26/west-virginia-ross-hodge-mens-basketball-hire/
-
-**Elmo and Elon Musk Are Cited as G.O.P. Lawmakers Grill PBS and NPR**\
-`Dark pronouncements by Republicans about a “communist agenda” espoused by public media were intercut with lighter references to “Sesame Street” and “Curious George.”`\
-https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-hearing-republicans.html
 
