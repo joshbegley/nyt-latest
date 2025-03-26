@@ -1,3 +1,7 @@
+**A Fire Plunged Heathrow Into Darkness. A Nearby Data Center Kept Humming. Why?**\
+`It could cost $100 million and take years to install the backup generators to prevent another hourslong power loss like the one at Britain’s biggest airport last week.`\
+https://nytimes.com/2025/03/26/world/europe/heathrow-fire-power-outage-explained.html
+
 **World’s Largest ‘Baby Exporter’ Admits to Adoption Fraud**\
 `A South Korean truth commission called for the country to apologize to those who were sent abroad “like luggage” so that adoption agencies could profit.`\
 https://nytimes.com/2025/03/26/world/asia/south-korea-adoption-fraud.html
