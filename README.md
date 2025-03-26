@@ -1,3 +1,7 @@
+**Angels prospect Ryan Johnson makes Opening Day roster, skipping minors in 'surreal' move**\
+`Johnson, drafted last summer, was one of the most prolific college pitchers during his last two seasons at Dallas Baptist. `\
+https://nytimes.com/athletic/6231196/2025/03/25/angels-ryan-johnson-opening-day-roster-no-minors/
+
 **The Leaked Signal Chat, Annotated**\
 `The chat’s contents, which were obtained by The Atlantic after its editor in chief was added to the Signal group, provide a revealing look at private conversations between top Trump administration officials.`\
 https://nytimes.com/interactive/2025/03/25/us/signal-group-chat-text-annotations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6185212/2025/03/25/steelers-free-agent-tracker-news
 **How Well Do You Know Your Own Group Chats?**\
 `A journalist’s inclusion in a national security discussion served as a reminder that you might not know every number in the chat — and that could be a big problem.`\
 https://nytimes.com/2025/03/25/style/group-chat-security-signal.html
-
-**Care About Food Waste? In Massachusetts, You Can Be a Compost Consultant.**\
-`It’s a dirty job, and someone gets to do it.`\
-https://nytimes.com/2025/03/25/climate/food-waste-compost-massachusetts.html
 
