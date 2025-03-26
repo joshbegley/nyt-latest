@@ -1,3 +1,7 @@
+**A British University Is Given a Record Fine Over Free Speech on Campus**\
+`A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
+https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
+
 **Review: Can Hubbard Street Dance Chicago Find a New Voice?**\
 `On a program with three New York premieres, the company seems stuck in an international style, though there are flickers of something more distinctive.`\
 https://nytimes.com/2025/03/26/arts/dance/review-hubbard-street-dance-chicago.html
