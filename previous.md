@@ -1,3 +1,7 @@
+**Arsenal Women beat Real Madrid 3-0 to reach Champions League semi-final**\
+`Arsenal recovered from a 2-0 defeat in the first leg to beat Real Madrid 3-0 and set up a semi-final with eight-time winners Lyon.`\
+https://nytimes.com/athletic/6233363/2025/03/26/arsenal-women-real-madrid-champions-league/
+
 **Federal Judiciary Creates New Task Force With Threats on the Rise**\
 `The panel will be led by a federal judge from Maryland, seeking to protect against threats as President Trump and his allies single out judges that have blocked parts of his agenda.`\
 https://nytimes.com/2025/03/26/us/politics/judges-threats-task-force-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010073664/npr-pbs-house-hearing.html
 **Auroras Are Spotted on Neptune for the First Time, and Lead to a New Mystery**\
 `The James Webb Space Telescope identified the lights in the distant planet’s atmosphere, which could not be seen by earlier telescopes or spacecraft.`\
 https://nytimes.com/2025/03/26/science/neptune-aurora-nasa-webb-telescope.html
-
-**Appeals Court Maintains Block on Deportation Flights Under Wartime Power**\
-`The panel said that while further argument was needed, lawyers for the migrants would likely succeed in their claims that the Venezuelans had been denied due process.`\
-https://nytimes.com/2025/03/26/us/trump-deportations-flight-block-alien-enemies-act.html
 
