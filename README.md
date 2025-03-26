@@ -1,3 +1,7 @@
+**Prince Harry Steps Down as Patron of Charity He Founded**\
+`The prince and his fellow patron, the prince of Lesotho, said they had resigned in solidarity with trustees at the charity, Sentebale.`\
+https://nytimes.com/2025/03/26/world/europe/prince-harry-resigns-charity-sentebale.html
+
 **Jakob Ingebrigtsen: 'I was clearly a victim of manipulation' by father Gjert**\
 `The 59-year-old Gjert Ingebrigtsen denies charges of abuse against two of his seven children.`\
 https://nytimes.com/athletic/6232369/2025/03/26/jakob-ingebrigtsen-trial-gjert/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museu
 **Those Are Definitely ‘War Plans’**\
 `What members of the administration can no longer effectively do is pretend that their incompetent and reckless actions didn’t happen. It’s right there on the page.`\
 https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
-
-**Chelsea fans demand action over Boehly's connection to ticket resale site**\
-`A CST spokesperson described Boehly’s connection to Vivid Seats as a “breach of trust” and a “clear conflict of interest”.`\
-https://nytimes.com/athletic/6232453/2025/03/26/chelsea-fans-boehly-vivid-seats/
 
