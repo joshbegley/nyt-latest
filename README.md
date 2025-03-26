@@ -1,3 +1,11 @@
+**Senate Democrats Press Trump for Answers on Security Breach**\
+`Top lawmakers say the White House must provide a full accounting of actions surrounding sensitive military information shared on a text chain that included a journalist.`\
+https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html
+
+**The New York Times International Edition in Print for Thursday, March 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/26/todays-new-york-times-international-edition
+
 **Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
 `Eala has been setting tennis records for the Philippines for some time. For her, it might be the simplest part of being a rising star.`\
 https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/weather/seattle-oregon-rain-storm.html
 **At Paul Weiss, Panic, Poachers and a Fight for the Bottom Line**\
 `Fears that competitors could take its top rainmaking talent added to the law firm’s worries about a Trump executive order that targeted it.`\
 https://nytimes.com/2025/03/26/business/paul-weiss-trump-deal.html
-
-**‘Trump Slump’ Looms as Foreign Visitors Rethink Travel to U.S.**\
-`A growing number of travelers say they are worried about feeling unwelcome or unsafe in America and are reluctant to support the economy of a country that may be destabilizing other nations.`\
-https://nytimes.com/2025/03/26/travel/foreign-travel-to-united-states-trump.html
-
-**What Happens if Fannie Mae and Freddie Mac Go Private?**\
-`Privatizing the government-sponsored mortgage giants could be a windfall for investors and raise interest rates for home buyers.`\
-https://nytimes.com/2025/03/26/realestate/fannie-mae-freddie-mac-loans-pulte.html
 
