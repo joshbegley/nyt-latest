@@ -1,3 +1,7 @@
+**World’s Largest ‘Baby Exporter’ Admits to Adoption Fraud**\
+`A South Korean truth commission called for the country to apologize to those who were sent abroad “like luggage” so that adoption agencies could profit.`\
+https://nytimes.com/2025/03/26/world/asia/south-korea-adoption-fraud.html
+
 **Vikings big board: 10 players who make sense in each round of the NFL Draft**\
 `Trading back in the first round could make sense for the Vikings considering their lack of draft capital. They have just four picks.`\
 https://nytimes.com/athletic/6230264/2025/03/26/minnesota-vikings-nfl-draft-big-board-3/
