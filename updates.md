@@ -1,3 +1,7 @@
+**Iga Światek receives additional security at Miami Open after harassment during practice**\
+`Świątek's team had reported an incident in which a man shouted at her during a practice session to the Miami Open and WTA Tour.`\
+https://nytimes.com/athletic/6231941/2025/03/26/iga-swiatek-harassment-miami-open-security/
+
 **Ranking all 30 MLB teams' Opening Day starting rotations: Dodgers, Phillies, Mariners lead way**\
 `As the old adage goes, you can never have too much starting pitching. So with Opening Day here, how does each team's starting rotation rate?`\
 https://nytimes.com/athletic/6231108/2025/03/26/mlb-opening-day-starting-rotation-rankings/
