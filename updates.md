@@ -1,3 +1,7 @@
+**'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
+`"I'm not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
+https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
+
 **Xavier hires Richard Pitino: Why he fits the Big East, just like his father**\
 `The Pitino bloodlines were apparent at New Mexico, and they should continue at a school that puts basketball first.`\
 https://nytimes.com/athletic/6231394/2025/03/25/xavier-hires-richard-pitino-as-mens-basketball-coach/
