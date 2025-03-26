@@ -1,3 +1,7 @@
+**Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
+`Eala has been setting tennis records for the Philippines for some time. For her, it might be the simplest part of being a rising star.`\
+https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
+
 **Alphonso Davies set for lengthy absence with cruciate ligament injury**\
 `Davies was substituted only 12 minutes into Canada’s 2-1 win over the United States in Concacaf Nations League third-place match.`\
 https://nytimes.com/athletic/6226146/2025/03/26/alphonso-davies-acl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/travel/foreign-travel-to-united-states-trump.html
 **What Happens if Fannie Mae and Freddie Mac Go Private?**\
 `Privatizing the government-sponsored mortgage giants could be a windfall for investors and raise interest rates for home buyers.`\
 https://nytimes.com/2025/03/26/realestate/fannie-mae-freddie-mac-loans-pulte.html
-
-**Senator Schumer, Maybe It’s Time**\
-`Instead of clinging to power, he could step down honorably from his leadership role, setting an example for his party and the country.`\
-https://nytimes.com/2025/03/26/opinion/schumer-trump-hegseth-pelosi.html
 
