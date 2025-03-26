@@ -1,3 +1,15 @@
+**San Diego Padres 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Padres stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6218445/2025/03/26/mlb-padres-season-preview-2025/
+
+**Big Law Splinters Under a Trump Onslaught**\
+`The president’s repeated clashes with the nation’s most prestigious law firms has had a destabilizing business effect.`\
+https://nytimes.com/2025/03/26/business/dealbook/big-law-trump-onslaught.html
+
+**After 6-1 drubbing, Canadiens have to fix bad habits at most meaningful time of year**\
+`The Canadiens seem to be at a tipping point in their playoff push, and the need to correct themselves quickly is extremely urgent. `\
+https://nytimes.com/athletic/6231732/2025/03/26/montreal-canadiens-nhl-playoffs-push/
+
 **Spy chiefs will face questions in the House after Waltz takes responsibility for the Signal leak.**\
 `By Enjoli Liston`\
 https://nytimes.com/live/2025/03/26/us/trump-news/spy-chiefs-questions-signal-leak

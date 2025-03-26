@@ -1,3 +1,15 @@
+**San Diego Padres 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Padres stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6218445/2025/03/26/mlb-padres-season-preview-2025/
+
+**Big Law Splinters Under a Trump Onslaught**\
+`The president’s repeated clashes with the nation’s most prestigious law firms has had a destabilizing business effect.`\
+https://nytimes.com/2025/03/26/business/dealbook/big-law-trump-onslaught.html
+
+**After 6-1 drubbing, Canadiens have to fix bad habits at most meaningful time of year**\
+`The Canadiens seem to be at a tipping point in their playoff push, and the need to correct themselves quickly is extremely urgent. `\
+https://nytimes.com/athletic/6231732/2025/03/26/montreal-canadiens-nhl-playoffs-push/
+
 **Spy chiefs will face questions in the House after Waltz takes responsibility for the Signal leak.**\
 `By Enjoli Liston`\
 https://nytimes.com/live/2025/03/26/us/trump-news/spy-chiefs-questions-signal-leak
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6230809/2025/03/26/nebraska-football-spring-practic
 **Iowa has chance to deal with apathy, become the program Ben McCollum remembers so fondly**\
 `Every coach and athletic director wants to win news conferences, but McCollum pushed it to another level.`\
 https://nytimes.com/athletic/6231354/2025/03/26/ben-mccollum-iowa-basketball/
-
-**Choudhury on a 'surreal' hero's welcome in Bangladesh: 'Fans followed me on motorbikes'**\
-`The Leicester midfielder became the first Premier League player to represent Bangladesh and got a overwhelming reception when he arrived.`\
-https://nytimes.com/athletic/6230470/2025/03/26/hamza-choudhury-bangladesh-hero/
-
-**Thoughts, observations from Penn State's first spring practice  **\
-`Here's what stood out during the first day of Penn State's spring practice.`\
-https://nytimes.com/athletic/6231127/2025/03/26/penn-state-football-spring-practice-jim-knowles/
-
-**Ryan Williams, wide receivers are key to unlocking Alabama's offense this season**\
-`Williams has added considerable muscle, one of the facets of his game that he has focused on improving.`\
-https://nytimes.com/athletic/6230881/2025/03/26/alabama-football-wide-receivers-ryan-williams/
 
