@@ -1,5 +1,5 @@
-**Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at the right time**\
-`The catcher agreed to a six-year, $105 million deal with the team on Tuesday.`\
+**Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at right time**\
+`The catcher agreed to a six-year, $105 million deal with the team Tuesday.`\
 https://nytimes.com/athletic/6231233/2025/03/25/seattle-mariners-cal-raleigh-extension/
 
 **You Might Have One to Pick**\

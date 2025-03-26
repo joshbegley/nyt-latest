@@ -1,3 +1,11 @@
+**Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at the right time**\
+`The catcher agreed to a six-year, $105 million deal with the team on Tuesday.`\
+https://nytimes.com/athletic/6231233/2025/03/25/seattle-mariners-cal-raleigh-extension/
+
+**You Might Have One to Pick**\
+`Nathan Hale’s puzzle is fully loaded with fun.`\
+https://nytimes.com/2025/03/25/crosswords/daily-puzzle-2025-03-26.html
+
 **Corrections: March 26, 2025**\
 `Corrections that appeared in print on Wednesday, March 26, 2025.`\
 https://nytimes.com/2025/03/25/pageoneplus/corrections-march-26-2025.html
