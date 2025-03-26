@@ -1,3 +1,31 @@
+**Federal Judiciary Creates New Task Force With Threats on the Rise**\
+`The panel will be led by a federal judge from Maryland, seeking to protect against threats as President Trump and his allies single out judges that have blocked parts of his agenda.`\
+https://nytimes.com/2025/03/26/us/politics/judges-threats-task-force-trump.html
+
+**Newly Released Signal Chats Showed What Was at Stake**\
+`Also, the U.S. said it will end vaccine funds for poor countries. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/03/26/briefing/more-signal-chats-trump-tariffs-cars.html
+
+**Vikings GM Kwesi Adofo-Mensah talks Aaron Rodgers, J.J. McCarthy: What we learned**\
+`The Vikings general manager spoke about the state of the QB position, his hopes for McCarthy and the chance he could still pursue Rodgers.`\
+https://nytimes.com/athletic/6233821/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers-jj-mccarthy/
+
+**Kermit the Frog Will Deliver Commencement Speech at U. of Maryland**\
+`The world’s most famous green frog will most likely give some encouraging words to the class of 2025.`\
+https://nytimes.com/2025/03/26/us/kermit-the-frog-commencement-speech-maryland.html
+
+**Mets close to settling Opening Day roster: Baty, Kranick, Senger all make team**\
+`With one day to go before the start of the season, the Mets have decided all but one spot on their Opening Day roster.`\
+https://nytimes.com/athletic/6233856/2025/03/26/mets-opening-day-roster-baty-kranick-senger/
+
+**H.H.S. Scraps Studies of Vaccines and Treatments for Future Pandemics**\
+`Federal officials cited the end of the Covid-19 pandemic in halting the research. But much of the work was focused on preventing outbreaks of other pathogens.`\
+https://nytimes.com/2025/03/26/health/future-pandemics-vaccines-funding.html
+
+**The Rise of the Statement Sock**\
+`Designers are giving the often-overlooked accessory plenty of personality with bold colors and textures. Here are some of our favorites.`\
+https://nytimes.com/2025/03/26/t-magazine/statement-socks.html
+
 **House Republicans Hold Hearing Accusing PBS and NPR of Bias**\
 `Republicans accused the nation’s two largest public media networks of institutional bias. Democrats dismissed the hearing as an excuse for Republicans to air a familiar list of grievances against the news media.`\
 https://nytimes.com/video/us/politics/100000010073664/npr-pbs-house-hearing.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/03/26/science/neptune-aurora-nasa-webb-telescope.html
 **Appeals Court Maintains Block on Deportation Flights Under Wartime Power**\
 `The panel said that while further argument was needed, lawyers for the migrants would likely succeed in their claims that the Venezuelans had been denied due process.`\
 https://nytimes.com/2025/03/26/us/trump-deportations-flight-block-alien-enemies-act.html
-
-**Trump Is Trying to Gain More Power Over Elections. Is His Effort Legal?**\
-`A far-reaching executive order aims to reshape the country’s voting laws, is sure to be challenged in court and reflects the president’s concerted push to expand his power.`\
-https://nytimes.com/2025/03/26/us/politics/trump-elections-voting-executive-order.html
-
-**Trump’s Tariffs on Autos Would Hit Europe Hard**\
-`The levies could hurt European automakers when the industry is already struggling, especially in Germany, Europe’s biggest economy.`\
-https://nytimes.com/2025/03/26/business/trump-auto-tariffs-europe.html
-
-**Will Howard says he has what it takes to be an NFL QB1 following pro day workout**\
-`Howard threw at Ohio State’s pro day in front of a crowd that included five NFL GMs and six head coaches.`\
-https://nytimes.com/athletic/6233745/2025/03/26/will-howard-ohio-state-pro-day-nfl-draft/
-
-**Stanford football coaching candidates: Who could be next for the Cardinal?**\
-`Who could the Cardinal turn toward? The timing puts Stanford in a tough spot with candidate pool that doesn't feel deep.`\
-https://nytimes.com/athletic/6233666/2025/03/26/stanford-cardinal-football-coaching-search-candidates/
-
-**Thursday Briefing: More Signal Texts Released**\
-`Plus, a train trip between two worlds.`\
-https://nytimes.com/2025/03/26/briefing/signal-texts-security-sudan-war-south-korea-fires.html
-
-**In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
-`In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
-https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
-
-**Brazil resume talks to hire Ancelotti for 2026 World Cup**\
-`The Brazilian Football Confederation (CBF) have been in touch with Ancelotti about becoming their coach for next summer's tournament.`\
-https://nytimes.com/athletic/6233452/2025/03/26/carlo-ancelotti-brazil-2026-world-cup/
 
