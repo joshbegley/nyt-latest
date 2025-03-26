@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/03/26/us/trump-news/heres-the-latest
+
+**Can the Blues catch the Wild for top wild card? 'That's definitely the goal'**\
+`After a 6-1 win over the Montreal Canadiens Thursday, the Blues are now just two points behind the Minnesota Wild for the top wild card.`\
+https://nytimes.com/athletic/6231489/2025/03/26/st-louis-blues-nhl-wild-card-race/
+
 **Pressure on NPR and PBS is also coming from the F.C.C.**\
 `In January, Brendan Carr, the agency’s chair, opened into investigate underwriting — paid messages similar to advertising — at the media organizations.`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/pressure-on-npr-and-pbs-is-also-coming-from-the-fcc
