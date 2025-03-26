@@ -1,3 +1,19 @@
+**Stocks slump ahead of Trump’s expected auto tariffs.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/stocks-slump-ahead-of-trumps-expected-auto-tariffs
+
+**Online ‘Pedophile Hunters’ Are Growing More Violent — and Going Viral**\
+`With the rise of loosely moderated social media platforms, a fringe vigilante movement is experiencing a dangerous evolution.`\
+https://nytimes.com/interactive/2025/03/26/us/pedophile-hunting-violence.html
+
+**Bon Iver Is Happy Now. It Took a Lot of Work.**\
+`The singer and songwriter Justin Vernon’s surprise success led to unexpected opportunities — including collaborations with Taylor Swift, Kanye West, Zach Bryan and more — and then emotional depletion. His new album, “Sable, Fable,” is a moment of reinvention.`\
+https://nytimes.com/video/podcasts/100000010068575/bon-iver-is-happy-now-it-took-a-lot-of-work.html
+
+**LeBron James defends confronting Stephen A. Smith**\
+`The Los Angeles Lakers superstar shared his thoughts on the ESPN commentator during Wednesday's episode of "The Pat McAfee Show."`\
+https://nytimes.com/athletic/6233224/2025/03/26/lebron-james-stephen-a-smith-confrontation/
+
 **Carmakers have been preparing for tariffs but will still be hit hard.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/carmakers-have-been-preparing-for-tariffs-but-will-still-be-hit-hard
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6233112/2025/03/26/mlb-win-totals-best-bets-futures
 **We’re All Conspiracy Theorists Now. Why?**\
 `We are caught up in a vast web. But the strands are visible.`\
 https://nytimes.com/2025/03/26/opinion/kennedy-epstein-conspiracy.html
-
-**Alex Eala beats Iga Swiatek to continue stunning Miami Open run**\
-`It is Eala's third consecutive win over a Grand Slam champion in Miami.`\
-https://nytimes.com/athletic/6233327/2025/03/26/alex-eala-iga-swiatek-miami-open-result-analysis/
-
-**What to Know About the Turmoil in Turkey**\
-`Turkey was plunged into a political crisis after the authorities arrested Ekrem Imamoglu, mayor of Istanbul and a top rival to President Recep Tayyip Erdogan, on accusations of corruption. Ben Hubbard, Istanbul bureau chief for The New York Times, explains the tumult.`\
-https://nytimes.com/video/world/middleeast/100000010069896/what-to-know-about-the-turmoil-in-turkey.html
-
-**Auto tariffs are likely to lead to much higher car prices.**\
-`By Jack Ewing`\
-https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/auto-tariffs-are-likely-to-lead-to-much-higher-car-prices
-
-**PSG owners exploring deal for Spanish side Malaga**\
-`QSI already own stakes in PSG and Braga but are interested in acquiring the Spanish second division side.`\
-https://nytimes.com/athletic/6233133/2025/03/26/psg-malaga-qsi-stake-ownership/
 
