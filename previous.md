@@ -1,3 +1,7 @@
+**Are You Smarter Than A.I.?**\
+`Some experts predict that A.I. will surpass human intelligence within the next few years. Play this puzzle to see how far the machines have to go.`\
+https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligence-puzzle.html
+
 **The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
 `If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
 https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233363/2025/03/26/arsenal-women-real-madrid-champi
 **Federal Judiciary Creates New Task Force With Threats on the Rise**\
 `The panel will be led by a federal judge from Maryland, seeking to protect against threats as President Trump and his allies single out judges that have blocked parts of his agenda.`\
 https://nytimes.com/2025/03/26/us/politics/judges-threats-task-force-trump.html
-
-**Newly Released Signal Chats Showed What Was at Stake**\
-`Also, the U.S. said it will end vaccine funds for poor countries. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/03/26/briefing/more-signal-chats-trump-tariffs-cars.html
 

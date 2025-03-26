@@ -1,3 +1,7 @@
+**How Artificial Intelligence Reasons**\
+`Companies like OpenAI and China’s DeepSeek offer chatbots designed to take their time with an answer. Here’s how they work.`\
+https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html
+
 **Are You Smarter Than A.I.?**\
 `Some experts predict that A.I. will surpass human intelligence within the next few years. Play this puzzle to see how far the machines have to go.`\
 https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligence-puzzle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233808/2025/03/26/russell-wilson-giants-qb-starter
 **Arsenal Women beat Real Madrid 3-0 to reach Champions League semi-final**\
 `Arsenal recovered from a 2-0 defeat in the first leg to beat Real Madrid 3-0 and set up a semi-final with eight-time winners Lyon.`\
 https://nytimes.com/athletic/6233363/2025/03/26/arsenal-women-real-madrid-champions-league/
-
-**Federal Judiciary Creates New Task Force With Threats on the Rise**\
-`The panel will be led by a federal judge from Maryland, seeking to protect against threats as President Trump and his allies single out judges that have blocked parts of his agenda.`\
-https://nytimes.com/2025/03/26/us/politics/judges-threats-task-force-trump.html
 

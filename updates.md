@@ -1,3 +1,7 @@
+**Are You Smarter Than A.I.?**\
+`Some experts predict that A.I. will surpass human intelligence within the next few years. Play this puzzle to see how far the machines have to go.`\
+https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligence-puzzle.html
+
 **The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
 `If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
 https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
