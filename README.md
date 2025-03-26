@@ -1,3 +1,7 @@
+**Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
+`The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
+https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/
+
 **Former Chelsea Women executive to lead World Sevens Football**\
 `Jacob spent 11 years at Chelsea during a period of incredible success - he joins W7F as head of football.`\
 https://nytimes.com/athletic/6230692/2025/03/26/chelsea-women-adrian-jacob-world-sevens-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6217863/2025/03/26/crysencio-summerville-west-ham-h
 **'I'm the first one to laugh at myself. Fun is really key in how I live my life' - Mary Fowler**\
 `The Australia international knows City have a job to do in the Champions League against Chelsea`\
 https://nytimes.com/athletic/6229679/2025/03/26/mary-fowler-manchester-city-australia/
-
-**Habib Habibou played just 79 minutes for Leeds but represents a wild era: 'I still love the fans'**\
-`The club left an impression on the striker, who still interacts with fans, despite his brief stay`\
-https://nytimes.com/athletic/6229760/2025/03/26/habib-habibou-leeds-lidor-cohen-viral-goal/
 
