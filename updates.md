@@ -1,3 +1,11 @@
+**Who Are Katherine Maher and Paula Kerger, the C.E.O.s of PBS and NPR?**\
+`The two public media organizations will be represented before Congress by executives with very different résumés.`\
+https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/npr-pbs-katherine-maher-paula-kerger
+
+**Heat Today: Andrew Wiggins on leaving Warriors and how adjusting was 'new chapter in life'**\
+`Andrew Wiggins will always look back on his Warriors stint with fond memories. Steve Kerr wants Wiggins to know the feeling is mutual.`\
+https://nytimes.com/athletic/6231658/2025/03/26/andrew-wiggins-heat-jimmy-butler-warriors-nba/
+
 **What we're hearing about rising prices, revenue sharing and college hoops' transfer portal**\
 `The price of building a contender has ballooned to well above what most men’s basketball programs will have to work with in revenue sharing.`\
 https://nytimes.com/athletic/6232076/2025/03/26/college-basketball-transfer-portal-prices/
