@@ -1,3 +1,11 @@
+**Israel’s New Spending Plan Is a Win for Netanyahu**\
+`A budget approved by Israel’s Parliament cements Prime Minister Benjamin Netanyahu’s power and includes significant military spending.`\
+https://nytimes.com/2025/03/26/world/middleeast/israel-budget-netanyahu.html
+
+**Vinicius Jr: Brazil must 'rethink everything' after Argentina defeat**\
+`Vinicius said his side are “trying to find our way of playing” after falling to a heavy 4-1 defeat against South American rivals Argentina.`\
+https://nytimes.com/athletic/6232000/2025/03/26/vinicius-junior-brazil-argentina-defeat/
+
 **Trump Administration Live Updates: Transcript of Signal Chat Is Published as Criticism Mounts Over Leak**\
 ``\
 https://nytimes.com/live/2025/03/26/us/trump-news
