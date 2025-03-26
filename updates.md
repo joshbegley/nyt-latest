@@ -1,3 +1,11 @@
+**50 States, 50 Fixes**\
+`A series about local solutions, and the people behind them, to environmental problems.`\
+https://nytimes.com/interactive/2025/climate/50-states-fixes.html
+
+**World Series champion Dodgers accept President Trump's invitation to visit White House**\
+`"The Dodgers look forward to visiting the White House and celebrating our title,” the team said.`\
+https://nytimes.com/athletic/6231054/2025/03/25/dodgers-accept-president-trump-white-house-invite/
+
 **U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
 `The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
 https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
