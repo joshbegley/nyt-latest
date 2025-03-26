@@ -1,3 +1,11 @@
+**Who Are Katherine Maher and Paula Kerger, the C.E.O.s of PBS and NPR?**\
+`The two public media organizations will be represented before Congress by executives with very different résumés.`\
+https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/npr-pbs-katherine-maher-paula-kerger
+
+**Heat Today: Andrew Wiggins on leaving Warriors and how adjusting was 'new chapter in life'**\
+`Andrew Wiggins will always look back on his Warriors stint with fond memories. Steve Kerr wants Wiggins to know the feeling is mutual.`\
+https://nytimes.com/athletic/6231658/2025/03/26/andrew-wiggins-heat-jimmy-butler-warriors-nba/
+
 **What we're hearing about rising prices, revenue sharing and college hoops' transfer portal**\
 `The price of building a contender has ballooned to well above what most men’s basketball programs will have to work with in revenue sharing.`\
 https://nytimes.com/athletic/6232076/2025/03/26/college-basketball-transfer-portal-prices/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6229893/2025/03/26/f1-engine-debate-v10-v6-analysis
 **Live Updates: NPR and PBS to Face Tough Questions From Congress**\
 `The chief executives of the biggest public media networks in the United States are expected to defend their funding and push back against accusations of media bias.`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing
-
-**What to expect during the hearing.**\
-`The chief executives of`\
-https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/what-to-expect-hearing-pbs-and-npr-marjorie-taylor-greene
-
-**Mets predictions: Who surges, who fades, and which prospects will make an impact?**\
-`Tim Britton and Will Sammon look into their crystal balls for the 2025 season. Who will win the World Series?`\
-https://nytimes.com/athletic/6231258/2025/03/26/mets-predictions-mlb-2025/
 
