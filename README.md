@@ -1,3 +1,11 @@
+**The Leaked Signal Chat, Annotated**\
+`The chat’s contents, which were obtained by The Atlantic after its editor in chief was added to the Signal group, provide a revealing look at private conversations between top Trump administration officials.`\
+https://nytimes.com/interactive/2025/03/25/us/signal-group-chat-text-annotations.html
+
+**Bucks' Damian Lillard diagnosed with blood clots in calf, out indefinitely**\
+`The 34-year-old point guard is on blood-thinners. A league source told The Athletic that there is optimism he will return this season.`\
+https://nytimes.com/athletic/6229321/2025/03/25/bucks-damian-lillard-blood-clot/
+
 **Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
 `The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
 https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/climate/food-waste-compost-massachusetts.html
 **Living Car-Free in Arizona, on Purpose and Happily**\
 `One community near Phoenix is taking a “completely different” approach to development.`\
 https://nytimes.com/2025/03/25/climate/car-free-arizona.html
-
-**They’re in Hot Water in Idaho. Here’s Why That’s a Good Thing.**\
-`Nearly 500 buildings in the state capital get their heat from a clean, renewable source located deep in the ground.`\
-https://nytimes.com/2025/03/25/climate/boise-idaho-geothermal.html
-
-**Bridges and Tunnels in Colorado Are Helping Animals Commute**\
-`The state has emerged as a leader in building wildlife crossings that save animals, money and human lives.`\
-https://nytimes.com/2025/03/25/climate/wildlife-crossings-colorado.html
 
