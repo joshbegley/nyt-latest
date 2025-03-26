@@ -1,40 +1,40 @@
-**Rockets' jumbo lineup can be an X-factor in the NBA playoffs: The IkoSystem**\
-`Playing two centers who don't space the floor isn't supposed to work in the modern NBA. But Houston is finding success with it.`\
-https://nytimes.com/athletic/6231493/2025/03/26/rockets-steven-adams-alperen-sengun-lineups/
+**Spy chiefs will face questions in the House after Waltz takes responsibility for the Signal leak.**\
+`By Enjoli Liston`\
+https://nytimes.com/live/2025/03/26/us/trump-news/spy-chiefs-questions-signal-leak
 
-**FIFA Club World Cup winners to receive $125m as prize money revealed**\
-`Almost half of the total prize pot — $475m — will be shared based on sporting performance. `\
-https://nytimes.com/athletic/6231956/2025/03/26/club-world-cup-prize-money-fifa/
+**Trump Administration Live Updates: Spy Chiefs to Face Lawmakers as Criticism Mounts Over Signal Leak**\
+``\
+https://nytimes.com/live/2025/03/26/us/trump-news
 
-**Will the real Novak Djokovic please stand up? Not even he knows**\
-`Watching Djokovic has become a live-action demonstration of a tennis player figuring out his limits from match to match and week to week.`\
-https://nytimes.com/athletic/6231505/2025/03/26/novak-djokovic-tennis-form-evolution/
+**Why Blackhawks chose Mark Eaton to lead IceHogs without any coaching experience**\
+`When Anders Sörensen was promoted to Blackhawks head coach in December, his replacement on the IceHogs came from an unusual background.`\
+https://nytimes.com/athletic/6230739/2025/03/26/mark-eaton-blackhawks-icehogs-coach/
 
-**Bucks' plan to stay competitive without Damian Lillard: 'Muck up the game'**\
-`No one player can replace Damian Lillard's offensive production. So Milwaukee will likely lean into its defense with two young guards.`\
-https://nytimes.com/athletic/6229307/2025/03/26/bucks-damian-lillard-dvt-ryan-rollins-kevin-porter/
+**Raiders NFL Draft big board: 20 prospects to watch in first round and beyond**\
+`The Raiders' trade for Geno Smith makes a quarterback not as urgent of a need, but don't be surprised if Pete Carroll's team still adds one.`\
+https://nytimes.com/athletic/6223965/2025/03/26/raiders-nfl-draft-prospects-big-board-2025/
 
-**Cowboys draft big board: Dallas should improve roster with 2 of these top-40 prospects**\
-`The Cowboys have plenty of needs on both sides of the ball and have the No. 12 and 44 overall picks to find impact players.`\
-https://nytimes.com/athletic/6231701/2025/03/26/cowboys-nfl-draft-big-board-receiver-running-back/
+**How will the 49ers use their 4 draft picks in the top 100? Here are 6 scenarios**\
+`The 49ers are counting on their first four draft picks to replenish their roster. So how should they use them?`\
+https://nytimes.com/athletic/6227610/2025/03/26/49ers-nfl-draft-top-100-scenarios/
 
-**Jimmy Butler's return to Miami was all hype, very little drama**\
-`We wanted a clash. We wanted drama. But the Heat had other ideas for Jimmy Butler's return to Miami.`\
-https://nytimes.com/athletic/6231651/2025/03/26/jimmy-butler-miami-return-warriors-heat-nba/
+**Four narratives Nebraska football wants to dispel as spring practice begins**\
+`Despite shifting winds in college football, Nebraska is not yet cutting names this spring from its oversized roster.`\
+https://nytimes.com/athletic/6230809/2025/03/26/nebraska-football-spring-practice-narratives/
 
-**Houston Astros 2025 season preview: Roster breakdown, projections and bold prediction**\
-`The Astros will try to win their fifth consecutive division title after trading their best player and losing an icon via free agency.`\
-https://nytimes.com/athletic/6217186/2025/03/26/mlb-houston-astros-2025-season-preview/
+**Iowa has chance to deal with apathy, become the program Ben McCollum remembers so fondly**\
+`Every coach and athletic director wants to win news conferences, but McCollum pushed it to another level.`\
+https://nytimes.com/athletic/6231354/2025/03/26/ben-mccollum-iowa-basketball/
 
-**San Francisco Giants 2025 season preview: roster breakdown, projections, and bold prediction**\
-`Here's how the 2025 San Francisco Giants stack up, with projected lineups, rotation and individual stats.`\
-https://nytimes.com/athletic/6214079/2025/03/26/mlb-san-francisco-giants-season-preview-2025/
+**Choudhury on a 'surreal' hero's welcome in Bangladesh: 'Fans followed me on motorbikes'**\
+`The Leicester midfielder became the first Premier League player to represent Bangladesh and got a overwhelming reception when he arrived.`\
+https://nytimes.com/athletic/6230470/2025/03/26/hamza-choudhury-bangladesh-hero/
 
-**Cardinals must develop talent quickly: Meet the coaches behind the overhaul**\
-`The next era of Cardinals baseball hinges largely on teaching "all the way down to the earliest levels of the minor leagues."`\
-https://nytimes.com/athletic/6229363/2025/03/26/cardinals-player-development-staff/
+**Thoughts, observations from Penn State's first spring practice  **\
+`Here's what stood out during the first day of Penn State's spring practice.`\
+https://nytimes.com/athletic/6231127/2025/03/26/penn-state-football-spring-practice-jim-knowles/
 
-**The Angels are establishing a young core. Why haven't they locked up anybody long-term?**\
-`Some teams look to sign young, ascending players to extensions before they hit free agency. Will Arte Moreno go that route?`\
-https://nytimes.com/athletic/6227026/2025/03/26/angels-young-core-extensions/
+**Ryan Williams, wide receivers are key to unlocking Alabama's offense this season**\
+`Williams has added considerable muscle, one of the facets of his game that he has focused on improving.`\
+https://nytimes.com/athletic/6230881/2025/03/26/alabama-football-wide-receivers-ryan-williams/
 
