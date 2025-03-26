@@ -1,3 +1,7 @@
+**New Giants QB Russell Wilson: 'I expect to be the starter'**\
+`The 13-year NFL veteran is ready to help the Giants turn things following the team's 3-14 season in 2024. `\
+https://nytimes.com/athletic/6233808/2025/03/26/russell-wilson-giants-qb-starter-2025/
+
 **Arsenal Women beat Real Madrid 3-0 to reach Champions League semi-final**\
 `Arsenal recovered from a 2-0 defeat in the first leg to beat Real Madrid 3-0 and set up a semi-final with eight-time winners Lyon.`\
 https://nytimes.com/athletic/6233363/2025/03/26/arsenal-women-real-madrid-champions-league/
