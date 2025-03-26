@@ -1,3 +1,7 @@
+**Mookie Betts returns to game action, expects to play in Dodgers home opener**\
+`Betts played five innings in the field in an exhibition against the Angels after a gnarly stomach virus kept him out for weeks.`\
+https://nytimes.com/athletic/6231361/2025/03/25/mookie-betts-return-dodgers-home-opener/
+
 **Argentina celebrates World Cup qualification with thrashing of Brazil**\
 `The reigning World Cup champions still look the part, while Brazil has some soul searching to do before qualifying continues.`\
 https://nytimes.com/athletic/6231438/2025/03/25/argentina-brazil-2026-world-cup-qualifier-score-report/
