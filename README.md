@@ -1,3 +1,11 @@
+**Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at the right time**\
+`The catcher agreed to a six-year, $105 million deal with the team on Tuesday.`\
+https://nytimes.com/athletic/6231233/2025/03/25/seattle-mariners-cal-raleigh-extension/
+
+**You Might Have One to Pick**\
+`Nathan Hale’s puzzle is fully loaded with fun.`\
+https://nytimes.com/2025/03/25/crosswords/daily-puzzle-2025-03-26.html
+
 **Corrections: March 26, 2025**\
 `Corrections that appeared in print on Wednesday, March 26, 2025.`\
 https://nytimes.com/2025/03/25/pageoneplus/corrections-march-26-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6231142/2025/03/25/commanders-mailbag-free-agency-n
 **Texas Prosecutors Will No Longer Pursue Death Penalty in El Paso Shooting**\
 `The gunman, who killed 23 people at a Walmart in 2019, was previously sentenced to 90 consecutive life terms after pleading guilty to federal hate crimes.`\
 https://nytimes.com/2025/03/25/us/el-paso-mass-shooting-death-penalty.html
-
-**50 States, 50 Fixes**\
-`A series about local solutions, and the people behind them, to environmental problems.`\
-https://nytimes.com/interactive/2025/climate/50-states-fixes.html
-
-**U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
-`The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
-https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
 
