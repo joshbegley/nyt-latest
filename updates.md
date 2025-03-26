@@ -1,3 +1,19 @@
+**Liverpool's Anfield plans: Can it expand again and do new grounds pose a threat?**\
+`What is FSG's plan for Liverpool's historic home as Premier League rivals reveal and complete their own grand designs?`\
+https://nytimes.com/athletic/6228896/2025/03/26/liverpool-anfield-expansion-redevelopment-plans/
+
+**A cold, windy night in Stoke: How does weather really impact the Premier League?**\
+`We investigate how wind, rain and extreme temperatures have impacted Premier League players and teams down the years`\
+https://nytimes.com/athletic/6220896/2025/03/26/premier-league-weather-analysis-cold-stoke/
+
+**Wrexham's nervous hunt for third consecutive promotion: Fine margins, 1-0 wins and squeaky bums**\
+`After the weekend victory over Stockport County, it was the fourth time in five league outings that Phil Parkinson's side had won 1-0`\
+https://nytimes.com/athletic/6226210/2025/03/26/wrexham-1-0-wins-promotion-charge-league-one/
+
+**Wednesday Briefing**\
+`Fallout from the Trump administration’s Signal chat leak.`\
+https://nytimes.com/2025/03/26/briefing/trump-signal-russia.html
+
 **The New York Times in Print for Wednesday, March 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/26/todays-new-york-times

@@ -1,3 +1,19 @@
+**Liverpool's Anfield plans: Can it expand again and do new grounds pose a threat?**\
+`What is FSG's plan for Liverpool's historic home as Premier League rivals reveal and complete their own grand designs?`\
+https://nytimes.com/athletic/6228896/2025/03/26/liverpool-anfield-expansion-redevelopment-plans/
+
+**A cold, windy night in Stoke: How does weather really impact the Premier League?**\
+`We investigate how wind, rain and extreme temperatures have impacted Premier League players and teams down the years`\
+https://nytimes.com/athletic/6220896/2025/03/26/premier-league-weather-analysis-cold-stoke/
+
+**Wrexham's nervous hunt for third consecutive promotion: Fine margins, 1-0 wins and squeaky bums**\
+`After the weekend victory over Stockport County, it was the fourth time in five league outings that Phil Parkinson's side had won 1-0`\
+https://nytimes.com/athletic/6226210/2025/03/26/wrexham-1-0-wins-promotion-charge-league-one/
+
+**Wednesday Briefing**\
+`Fallout from the Trump administration’s Signal chat leak.`\
+https://nytimes.com/2025/03/26/briefing/trump-signal-russia.html
+
 **The New York Times in Print for Wednesday, March 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/03/26/todays-new-york-times
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6231541/2025/03/26/sabres-lindy-ruff-dylan-cozens/
 **Dolphin Hunting Is Their Tradition. Rising Seas Have Made It a Lifeline.**\
 `The residents of Fanalei Island, in the Solomon Islands, say the lucrative hunts will help them buy land elsewhere and move off their sinking home.`\
 https://nytimes.com/2025/03/26/world/asia/dolphin-hunters-global-warming-solomon-islands.html
-
-**India Is on a Hiring Binge That Trump’s Tariffs Can’t Stop**\
-`An abundance of motivated young professionals is luring American businesses to base their global operations in Indian cities.`\
-https://nytimes.com/2025/03/26/business/india-jobs-global-capability-center.html
-
-**Connections: Sports Edition Coach: Hints for March 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6230624/2025/03/26/connections-sports-edition-hints-for-march-26-2025/
-
-**Shell Shocked: How Small Eateries Are Dealing With Record Egg Prices**\
-`Mom-and-pop businesses are trying to adapt to the soaring cost of eggs. The owners of four egg-centric restaurants across the country show how they are coping with this threat to their livelihoods.`\
-https://nytimes.com/2025/03/26/business/egg-prices-restaurants.html
-
-**Quote of the Day: Trump’s Team Bares Disdain Toward Europe**\
-`Quotation of the Day for Wednesday, March 26, 2025.`\
-https://nytimes.com/2025/03/25/pageoneplus/quote-of-the-day-trumps-team-bares-disdain-toward-europe.html
 
