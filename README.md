@@ -3,7 +3,7 @@
 https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museum.html
 
 **Those Are Definitely ‘War Plans’**\
-`By David Firestone`\
+`What members of the administration can no longer effectively do is pretend that their incompetent and reckless actions didn’t happen. It’s right there on the page.`\
 https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
 
 **Chelsea fans demand action over Boehly's connection to ticket resale site**\

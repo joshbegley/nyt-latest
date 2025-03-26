@@ -1,3 +1,19 @@
+**When the Wild Child Egon Schiele Grew Up**\
+`Some of the artist’s most psychologically insightful work came in the final years of his life — a mature period cut short by a pandemic.`\
+https://nytimes.com/2025/03/26/arts/design/egon-schiele-last-years-leopold-museum.html
+
+**Those Are Definitely ‘War Plans’**\
+`By David Firestone`\
+https://nytimes.com/2025/03/26/opinion/atlantic-war-plans-signal-group-chat.html
+
+**Chelsea fans demand action over Boehly's connection to ticket resale site**\
+`A CST spokesperson described Boehly’s connection to Vivid Seats as a “breach of trust” and a “clear conflict of interest”.`\
+https://nytimes.com/athletic/6232453/2025/03/26/chelsea-fans-boehly-vivid-seats/
+
+**Jair Bolsonaro Ordered to Face Trial in Brazil for Attempting a Coup**\
+`Brazil’s top court ruled that the former president will be tried over his role in a vast plot to cling to power after his 2022 election loss.`\
+https://nytimes.com/2025/03/26/world/americas/brazil-bolsonaro-trial-coup-2022-elections.html
+
 **Can I Hold Stock in a Company if I Loathe the C.E.O.’s Politics?**\
 `The magazine’s Ethicist columnist on investing your money ethically.`\
 https://nytimes.com/2025/03/26/magazine/ethicist-ethics-investing.html
