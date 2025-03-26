@@ -1,3 +1,7 @@
+**Kevin Willard responds to job speculation at Sweet 16 by discussing Walter Clayton, crab cake**\
+`Willard refused to talk about his job situation. But he was happy to share his thoughts on Florida's best player and eating crab.`\
+https://nytimes.com/athletic/6233664/2025/03/26/kevin-willard-maryland-job-villanova/
+
 **Vikings GM Adofo-Mensah: Team has had conversations with Aaron Rodgers**\
 `Adofo-Mensah left the door open a crack for conversations with Rodgers to continue.`\
 https://nytimes.com/athletic/6233354/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/03/26/us/politics/us-military-houthis-yemen.html
 https://nytimes.com/2025/03/26/t-magazine/lii-mens-fashion.html
 
 **Trump Administration Abruptly Cuts Billions From State Health Services**\
-`States were told Monday that they could no longer use grants that were funding infectious disease management and addiction services.`\
+`States have been told that they can no longer use grants that were funding infectious disease management and addiction services.`\
 https://nytimes.com/2025/03/26/health/trump-state-health-grants-cuts.html
 
 **Alphonso Davies' ACL injury calls Canada, his agent's actions into question**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233226/2025/03/26/alphonso-davies-injury-acl-canad
 **The Rangers need Carson Soucy to bounce back. How can they make it happen?**\
 `After arriving in a deadline deal from Vancouver, the 30-year-old defenseman is still trying to solidify his role in New York's bottom six.`\
 https://nytimes.com/athletic/6232645/2025/03/26/rangers-carson-soucy-canucks-trade/
-
-**Watch: What would the Panthers be getting if they draft Shemar Stewart?**\
-`"The Athletic Football Show" discusses why the Texas A&M edge rusher has great upside despite his flaws.`\
-https://nytimes.com/athletic/6231842/2025/03/26/athletic-football-show-carolina-panthers-shemar-stewart/
 
