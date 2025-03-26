@@ -1,3 +1,11 @@
+**Vikings GM Adofo-Mensah: Team has had conversations with Aaron Rodgers**\
+`Adofo-Mensah left the door open a crack for conversations with Rodgers to continue.`\
+https://nytimes.com/athletic/6233354/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers/
+
+**Duke University Wants No Part of the ‘The White Lotus’**\
+`In a show that features an array of disturbing story lines, the actions — and wardrobe — of a character have gone “too far” for the university.`\
+https://nytimes.com/2025/03/26/style/white-lotus-duke-crimes-suicide.html
+
 **After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
 `When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
 https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232645/2025/03/26/rangers-carson-soucy-canucks-tra
 **Watch: What would the Panthers be getting if they draft Shemar Stewart?**\
 `"The Athletic Football Show" discusses why the Texas A&M edge rusher has great upside despite his flaws.`\
 https://nytimes.com/athletic/6231842/2025/03/26/athletic-football-show-carolina-panthers-shemar-stewart/
-
-**Reporter who captured Hurley officiating rant gets apology from UConn SID**\
-`A reporter captured a viral video of Hurley's profanity-laced rant following the Huskies' NCAA Tournament loss on Sunday.`\
-https://nytimes.com/athletic/6233033/2025/03/26/dan-hurley-video-uconn-apology/
-
-**Trump’s auto tariffs are just one part of his trade strategy.**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/trumps-auto-tariffs-are-just-one-part-of-his-trade-strategy
 
