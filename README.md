@@ -1,3 +1,7 @@
+**Bucks' plan to stay competitive without Damian Lillard: 'Muck up the game'**\
+`No one player can replace Damian Lillard's offensive production. So Milwaukee will likely lean into its defense with two young guards.`\
+https://nytimes.com/athletic/6229307/2025/03/26/bucks-damian-lillard-dvt-ryan-rollins-kevin-porter/
+
 **Cowboys draft big board: Dallas should improve roster with 2 of these top-40 prospects**\
 `The Cowboys have plenty of needs on both sides of the ball and have the No. 12 and 44 overall picks to find impact players.`\
 https://nytimes.com/athletic/6231701/2025/03/26/cowboys-nfl-draft-big-board-receiver-running-back/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230020/2025/03/26/dodgers-season-preview-dynasty/
 **For first-year Michigan coach Dusty May, being the favorite was a new experience**\
 `May is a household name among college basketball fans. He's come a long way since his days coaching an underdog.`\
 https://nytimes.com/athletic/6229911/2025/03/26/dusty-may-michigan-march-madness/
-
-**Tigers ace Tarik Skubal's life has changed. His pursuit of excellence is just beginning**\
-`“I just think there’s a slight difference in the mentality of being an underdog versus just being a dog," said the 2024 AL Cy Young winner.`\
-https://nytimes.com/athletic/6229972/2025/03/26/tarik-skubal-cy-young-2025-emergence/
 
