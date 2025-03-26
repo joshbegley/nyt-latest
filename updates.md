@@ -1,3 +1,7 @@
+**Bucks' plan to stay competitive without Damian Lillard: 'Muck up the game'**\
+`No one player can replace Damian Lillard's offensive production. So Milwaukee will likely lean into its defense with two young guards.`\
+https://nytimes.com/athletic/6229307/2025/03/26/bucks-damian-lillard-dvt-ryan-rollins-kevin-porter/
+
 **Cowboys draft big board: Dallas should improve roster with 2 of these top-40 prospects**\
 `The Cowboys have plenty of needs on both sides of the ball and have the No. 12 and 44 overall picks to find impact players.`\
 https://nytimes.com/athletic/6231701/2025/03/26/cowboys-nfl-draft-big-board-receiver-running-back/
