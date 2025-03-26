@@ -1,3 +1,7 @@
+**We’re All Conspiracy Theorists Now. Why?**\
+`We are caught up in a vast web. But the strands are visible.`\
+https://nytimes.com/2025/03/26/opinion/kennedy-epstein-conspiracy.html
+
 **Alex Eala beats Iga Swiatek to continue stunning Miami Open run**\
 `It is Eala's third consecutive win over a Grand Slam champion in Miami.`\
 https://nytimes.com/athletic/6233327/2025/03/26/alex-eala-iga-swiatek-miami-open-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/03/26/arts/editors-recommendations-bridgerton
 **Can the St. Louis Cardinals overcome their lowest projected win total in 17 years?**\
 `The St. Louis Cardinals have their lowest win total line in 17 years. Is this a new era for the team or a chance to surpass expectations?`\
 https://nytimes.com/athletic/6232931/2025/03/26/st-louis-cardinals-win-total/
-
-**Energy Transfer vs. Greenpeace Verdict**\
-`The damages for defamation claims are laid out on pages 11-13 and 27-29. Punitive, or exemplary, damages are addressed on pages 16 and 32.`\
-https://nytimes.com/interactive/2025/03/26/climate/greenpeace-verdict-form.html
 

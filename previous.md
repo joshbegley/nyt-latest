@@ -1,3 +1,19 @@
+**Alex Eala beats Iga Swiatek to continue stunning Miami Open run**\
+`It is Eala's third consecutive win over a Grand Slam champion in Miami.`\
+https://nytimes.com/athletic/6233327/2025/03/26/alex-eala-iga-swiatek-miami-open-result-analysis/
+
+**What to Know About the Turmoil in Turkey**\
+`Turkey was plunged into a political crisis after the authorities arrested Ekrem Imamoglu, mayor of Istanbul and a top rival to President Recep Tayyip Erdogan, on accusations of corruption. Ben Hubbard, Istanbul bureau chief for The New York Times, explains the tumult.`\
+https://nytimes.com/video/world/middleeast/100000010069896/what-to-know-about-the-turmoil-in-turkey.html
+
+**Auto tariffs are likely to lead to much higher car prices.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2025/03/26/business/trump-tariffs-auto-cars/auto-tariffs-are-likely-to-lead-to-much-higher-car-prices
+
+**PSG owners exploring deal for Spanish side Malaga**\
+`QSI already own stakes in PSG and Braga but are interested in acquiring the Spanish second division side.`\
+https://nytimes.com/athletic/6233133/2025/03/26/psg-malaga-qsi-stake-ownership/
+
 **BYU leading scorer draws on Ore-Ida family ties for tourney tater tots NIL deal**\
 `Saunders’ great-grandfather, F. Nephi Grigg, founded Ore-Ida along with his brother Golden T. Grigg in 1952.`\
 https://nytimes.com/athletic/6233243/2025/03/26/byu-richie-saunders-ore-ida-tater-tots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6232931/2025/03/26/st-louis-cardinals-win-total/
 **Energy Transfer vs. Greenpeace Verdict**\
 `The damages for defamation claims are laid out on pages 11-13 and 27-29. Punitive, or exemplary, damages are addressed on pages 16 and 32.`\
 https://nytimes.com/interactive/2025/03/26/climate/greenpeace-verdict-form.html
-
-**Turkey’s Opposition Calls for Boycott and Mass Rally After Istanbul Mayor’s Arrest**\
-`To pressure President Recep Tayyip Erdogan over the jailing of his top rival, the opposition wants Turks to boycott companies that back Mr. Erdogan and plans to organize a protest this weekend.`\
-https://nytimes.com/2025/03/26/world/europe/turkey-istanbul-mayor-protests.html
-
-**Here’s What Determines Whether Information Is Classified**\
-`The often bureaucratic nature of classified information is complicated, with different levels of secrecy and different potential punishments for its disclosure.`\
-https://nytimes.com/2025/03/26/us/classified-information-signal-chat.html
-
-**West Virginia hiring North Texas basketball coach Ross Hodge**\
-`Hodge, 44, is still coaching the Mean Green in the NIT. They play in the semifinals on April 1 in Indianapolis.`\
-https://nytimes.com/athletic/6232768/2025/03/26/west-virginia-ross-hodge-mens-basketball-hire/
-
-**Elmo and Elon Musk Are Cited as G.O.P. Lawmakers Grill PBS and NPR**\
-`Dark pronouncements by Republicans about a “communist agenda” espoused by public media were intercut with lighter references to “Sesame Street” and “Curious George.”`\
-https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-hearing-republicans.html
 
