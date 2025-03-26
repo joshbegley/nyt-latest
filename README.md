@@ -1,3 +1,15 @@
+**Watch: How worried should the Warriors be about their playoff chances?**\
+`NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
+https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
+
+**Scoop City: A top-five mock draft after Wilson and Diggs sign**\
+`Inside: Why the Giants signed Wilson, Patriots added Diggs and mocking the top five picks of the 2025 draft.`\
+https://nytimes.com/athletic/6232572/2025/03/26/stefon-diggs-russell-wilson-mock-draft-nfl-scoop-city/
+
+**How Argentina produced their best performance for years - and without Lionel Messi**\
+`Argentina's seriously special performance against Brazil on Tuesday was a hint at how football's next tactical era might look`\
+https://nytimes.com/athletic/6231884/2025/03/26/argentina-brazil-tactical-evolution-lionel-messi/
+
 **The likeliest scenario for the 2025 Giants**\
 `The likeliest scenario is that you're better off following the Giants than half the teams in baseball. Will that be good enough for fans?`\
 https://nytimes.com/athletic/6230515/2025/03/26/sf-giants-2025-season-likeliest-outcome/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/senate-democrats-justice-department-a
 **Grilling PBS and NPR is the latest attack from Washington on the press.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/grilling-pbs-and-npr-is-the-latest-attack-from-washington-on-the-press
-
-**A Pantry Pasta Built for Early Spring**\
-`Melissa Clark’s pasta with green puttanesca is a lovely showcase for spring’s tender greens and green garlic (though plain old garlic is great, too).`\
-https://nytimes.com/2025/03/26/dining/puttanesca-spring.html
-
-**In ‘Streetcar,’ Patsy Ferran Gives Blanche a Nervy New Read**\
-`The London-based actress has been heralded as one of the most talented of her generation. Still, she worried audiences would balk at her “very unconventional Blanche.”`\
-https://nytimes.com/2025/03/26/theater/patsy-ferran-streetcar-named-desire.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, sheep, shirkers and coup d’état soundtracks.`\
-https://nytimes.com/2025/03/26/movies/great-documentaries-streaming.html
 
