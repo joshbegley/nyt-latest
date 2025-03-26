@@ -1,3 +1,15 @@
+**Watch: How worried should the Warriors be about their playoff chances?**\
+`NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
+https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
+
+**Scoop City: A top-five mock draft after Wilson and Diggs sign**\
+`Inside: Why the Giants signed Wilson, Patriots added Diggs and mocking the top five picks of the 2025 draft.`\
+https://nytimes.com/athletic/6232572/2025/03/26/stefon-diggs-russell-wilson-mock-draft-nfl-scoop-city/
+
+**How Argentina produced their best performance for years - and without Lionel Messi**\
+`Argentina's seriously special performance against Brazil on Tuesday was a hint at how football's next tactical era might look`\
+https://nytimes.com/athletic/6231884/2025/03/26/argentina-brazil-tactical-evolution-lionel-messi/
+
 **The likeliest scenario for the 2025 Giants**\
 `The likeliest scenario is that you're better off following the Giants than half the teams in baseball. Will that be good enough for fans?`\
 https://nytimes.com/athletic/6230515/2025/03/26/sf-giants-2025-season-likeliest-outcome/
