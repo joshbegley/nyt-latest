@@ -1,5 +1,9 @@
 **Trump to Announce Tariffs on Foreign Cars**\
 `The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
+https://nytimes.com/2025/03/26/business/economy/trump-tariffs-auto-cars.html
+
+**Trump to Announce Tariffs on Foreign Cars**\
+`The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
 https://nytimes.com/2025/03/26/business/economy/trump-to-announce-tariffs-on-foreign-cars.html
 
 **In surprise move, Ohio State's Cotie McMahon enters transfer portal**\

@@ -1,3 +1,11 @@
+**Gazans Protest Against Hamas and War for a Second Day**\
+`The rare dissent, some directed against the territory’s Hamas rulers, reflects deep frustration and anger at the breakdown of a cease-fire with Israel. “We want to live,” said one supporter.`\
+https://nytimes.com/2025/03/26/world/middleeast/gaza-hamas-protests.html
+
+**The Fallout From The Leaked Signal Chat, Explained**\
+`Will the F.`\
+https://nytimes.com/video/us/100000010072631/the-fallout-from-the-leaked-signal-chat-explained.html
+
 **Trump to Announce Tariffs on Foreign Cars**\
 `The president is expected to announce tariffs on foreign cars on Wednesday, a measure that could bring car factories to the United States but raise prices for consumers.`\
 https://nytimes.com/2025/03/26/business/economy/trump-tariffs-auto-cars.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232540/2025/03/26/fantasy-basketball-waiver-wire-w
 **Voice of America Director Sues Trump Officials Over Shutdown**\
 `The lawsuit by the director and journalists is the latest legal challenge to the administration’s bid to dismantle the government-funded broadcaster.`\
 https://nytimes.com/2025/03/26/business/voice-of-america-lawsuit-trump.html
-
-**Hegseth’s Leak Would Have Warned the Enemy. The White House Is Using Semantics to Obscure That.**\
-`War plan or battle plan? Classified or not? The answers to those questions amount to a distinction without much of a difference.`\
-https://nytimes.com/2025/03/26/us/politics/hegseth-signal-war-plan-leak-white-house.html
-
-**Review: Can Hubbard Street Dance Chicago Find a New Voice?**\
-`On a program with three New York premieres, the company seems stuck in an international style, though there are flickers of something more distinctive.`\
-https://nytimes.com/2025/03/26/arts/dance/review-hubbard-street-dance-chicago.html
 
