@@ -1,3 +1,11 @@
+**In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
+`In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
+https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
+
+**Brazil resume talks to hire Ancelotti for 2026 World Cup**\
+`The Brazilian Football Confederation (CBF) have been in touch with Ancelotti about becoming their coach for next summer's tournament.`\
+https://nytimes.com/athletic/6233452/2025/03/26/carlo-ancelotti-brazil-2026-world-cup/
+
 **How close friends pieced together they had been traded for each other**\
 `Two friends sitting in trade limbo had, in fact, been dealt for each other.`\
 https://nytimes.com/athletic/6233644/2025/03/26/nolan-jones-tyler-freeman-trade-guardians-rockies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6233664/2025/03/26/kevin-willard-maryland-job-villa
 **Vikings GM Adofo-Mensah: Team has had conversations with Aaron Rodgers**\
 `Adofo-Mensah left the door open a crack for conversations with Rodgers to continue.`\
 https://nytimes.com/athletic/6233354/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers/
-
-**Duke University Wants No Part of the ‘The White Lotus’**\
-`In a show that features an array of disturbing story lines, the actions — and wardrobe — of a character have gone “too far” for the university.`\
-https://nytimes.com/2025/03/26/style/white-lotus-duke-crimes-suicide.html
-
-**After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
-`When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
-https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
 
