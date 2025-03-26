@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2025/03/26/us/trump-news/heres-the-latest
+
+**Can the Blues catch the Wild for top wild card? 'That's definitely the goal'**\
+`After a 6-1 win over the Montreal Canadiens Thursday, the Blues are now just two points behind the Minnesota Wild for the top wild card.`\
+https://nytimes.com/athletic/6231489/2025/03/26/st-louis-blues-nhl-wild-card-race/
+
 **Pressure on NPR and PBS is also coming from the F.C.C.**\
 `In January, Brendan Carr, the agency’s chair, opened into investigate underwriting — paid messages similar to advertising — at the media organizations.`\
 https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/pressure-on-npr-and-pbs-is-also-coming-from-the-fcc
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6230067/2025/03/26/boston-legacy-fc-nwsl-expansion-
 **My Partner Won’t Let My Young Adult Children Stay With Us. Help!**\
 `After nine years of regular visits from his children, now 19 and 23, a father is steamed by his partner’s suggestion that he book a short-term rental for future get-togethers.`\
 https://nytimes.com/2025/03/26/style/co-parenting-young-adult-children.html
-
-**Israel’s New Spending Plan Is a Win for Netanyahu**\
-`A budget approved by Israel’s Parliament cements Prime Minister Benjamin Netanyahu’s power and includes significant military spending.`\
-https://nytimes.com/2025/03/26/world/middleeast/israel-budget-netanyahu.html
-
-**Vinicius Jr: Brazil must 'rethink everything' after Argentina defeat**\
-`Vinicius said his side are “trying to find our way of playing” after falling to a heavy 4-1 defeat against South American rivals Argentina.`\
-https://nytimes.com/athletic/6232000/2025/03/26/vinicius-junior-brazil-argentina-defeat/
 
