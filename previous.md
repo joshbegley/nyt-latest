@@ -1,40 +1,40 @@
-**‘Common Side Effects’ Is a Stylish and Trippy Animated Thriller**\
-`Filled with smart dialogue, specificity and visual wonder, this Max series is a good choice to help fill the “Severance”-shaped hole in your heart.`\
-https://nytimes.com/2025/03/26/arts/television/common-side-effects-max.html
+**San Francisco Giants 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 San Francisco Giants stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6214079/2025/03/26/mlb-san-francisco-giants-season-preview-2025/
 
-**Russia and Ukraine Agree to Stop Black Sea Attacks. What Does That Mean?**\
-`It remains unclear if a deal to ensure safe shipping in the Black Sea, which came with many caveats, could come into effect soon.`\
-https://nytimes.com/2025/03/26/world/europe/russia-ukraine-black-sea-cease-fire.html
+**Cardinals must develop talent quickly: Meet the coaches behind the overhaul**\
+`The next era of Cardinals baseball hinges largely on teaching "all the way down to the earliest levels of the minor leagues."`\
+https://nytimes.com/athletic/6229363/2025/03/26/cardinals-player-development-staff/
 
-**A Hiring Binge Abroad**\
-`We cover a new kind of offshore office park.`\
-https://nytimes.com/2025/03/26/briefing/india-american-companies-hiring.html
+**The Angels are establishing a young core. Why haven't they locked up anybody long-term?**\
+`Some teams look to sign young, ascending players to extensions before they hit free agency. Will Arte Moreno go that route?`\
+https://nytimes.com/athletic/6227026/2025/03/26/angels-young-core-extensions/
 
-**The Pulse: The new evil empire in baseball**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6229438/2025/03/26/dodgers-mlb-season-preview-the-pulse/
+**What's an expected recovery timeline for JuJu Watkins' season-ending injury?**\
+`Will the USC star be back in time for the 2026 NCAA Tournament?`\
+https://nytimes.com/athletic/6230803/2025/03/26/juju-watkins-injury-timeline-acl-usc/
 
-**A Fire Plunged Heathrow Into Darkness. A Nearby Data Center Kept Humming. Why?**\
-`It could cost $100 million and take years to install the backup generators to prevent another hourslong power loss like the one at Britain’s biggest airport last week.`\
-https://nytimes.com/2025/03/26/world/europe/heathrow-fire-power-outage-explained.html
+**Dodgers set sights on back-to-back titles and beyond: ‘Make their mark in baseball history’**\
+`No team has repeated as champs in 25 years, but the Dodgers embrace talk of a potential dynasty. `\
+https://nytimes.com/athletic/6230020/2025/03/26/dodgers-season-preview-dynasty/
 
-**World’s Largest ‘Baby Exporter’ Admits to Adoption Fraud**\
-`A South Korean truth commission called for the country to apologize to those who were sent abroad “like luggage” so that adoption agencies could profit.`\
-https://nytimes.com/2025/03/26/world/asia/south-korea-adoption-fraud.html
+**For first-year Michigan coach Dusty May, being the favorite was a new experience**\
+`May is a household name among college basketball fans. He's come a long way since his days coaching an underdog.`\
+https://nytimes.com/athletic/6229911/2025/03/26/dusty-may-michigan-march-madness/
 
-**Vikings big board: 10 players who make sense in each round of the NFL Draft**\
-`Trading back in the first round could make sense for the Vikings considering their lack of draft capital. They have just four picks.`\
-https://nytimes.com/athletic/6230264/2025/03/26/minnesota-vikings-nfl-draft-big-board-3/
+**Tigers ace Tarik Skubal's life has changed. His pursuit of excellence is just beginning**\
+`“I just think there’s a slight difference in the mentality of being an underdog versus just being a dog," said the 2024 AL Cy Young winner.`\
+https://nytimes.com/athletic/6229972/2025/03/26/tarik-skubal-cy-young-2025-emergence/
 
-**Leafs' Nylander makes exceptional play look like just another day on the job**\
-`Teammates new to playing with Nylander offer perspective on how the three-time 40-goal scorer helps the Leafs win.`\
-https://nytimes.com/athletic/6231518/2025/03/26/william-nylander-maple-leafs-goals/
+**St. Louis Cardinals 2025 season preview: Roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Cardinals stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6219555/2025/03/26/mlb-st-louis-cardinals-2025-season-preview/
 
-**Jase Richardson is made for March**\
-`What began this season as a nice story of lineage is now approaching bizarre levels of serendipity.`\
-https://nytimes.com/athletic/6230825/2025/03/26/jase-richardson-michigan-state-march-madness-legacy/
+**NHL faces in new places: How players traded at the deadline are faring with their teams**\
+`Now that the dust has settled from the fallout of the trade deadline, let's examine five big-name players in their new surroundings.`\
+https://nytimes.com/athletic/6230635/2025/03/26/nhl-trade-deadline-2025-players-new-teams/
 
-**Austin Dillon on his drama-filled 2024 NASCAR season, fatherhood and more: 12 Questions**\
-`Austin Dillon talks about his costly penalty in 2024, his eventual transition out of driving, the lessons of a parent and more.`\
-https://nytimes.com/athletic/6228295/2025/03/26/austin-dillon-nascar-2024-drama-12-questions/
+**Ranking 12 of the greatest record-breaking goals in NHL history, from worst to best**\
+`A look at a dozen historic goals that broke an important record in style, just as Alex Ovechkin will hopefully do over the next few weeks.`\
+https://nytimes.com/athletic/6227371/2025/03/26/nhl-greatest-goals-record-ranking-history/
 

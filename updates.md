@@ -1,3 +1,43 @@
+**San Francisco Giants 2025 season preview: roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 San Francisco Giants stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6214079/2025/03/26/mlb-san-francisco-giants-season-preview-2025/
+
+**Cardinals must develop talent quickly: Meet the coaches behind the overhaul**\
+`The next era of Cardinals baseball hinges largely on teaching "all the way down to the earliest levels of the minor leagues."`\
+https://nytimes.com/athletic/6229363/2025/03/26/cardinals-player-development-staff/
+
+**The Angels are establishing a young core. Why haven't they locked up anybody long-term?**\
+`Some teams look to sign young, ascending players to extensions before they hit free agency. Will Arte Moreno go that route?`\
+https://nytimes.com/athletic/6227026/2025/03/26/angels-young-core-extensions/
+
+**What's an expected recovery timeline for JuJu Watkins' season-ending injury?**\
+`Will the USC star be back in time for the 2026 NCAA Tournament?`\
+https://nytimes.com/athletic/6230803/2025/03/26/juju-watkins-injury-timeline-acl-usc/
+
+**Dodgers set sights on back-to-back titles and beyond: ‘Make their mark in baseball history’**\
+`No team has repeated as champs in 25 years, but the Dodgers embrace talk of a potential dynasty. `\
+https://nytimes.com/athletic/6230020/2025/03/26/dodgers-season-preview-dynasty/
+
+**For first-year Michigan coach Dusty May, being the favorite was a new experience**\
+`May is a household name among college basketball fans. He's come a long way since his days coaching an underdog.`\
+https://nytimes.com/athletic/6229911/2025/03/26/dusty-may-michigan-march-madness/
+
+**Tigers ace Tarik Skubal's life has changed. His pursuit of excellence is just beginning**\
+`“I just think there’s a slight difference in the mentality of being an underdog versus just being a dog," said the 2024 AL Cy Young winner.`\
+https://nytimes.com/athletic/6229972/2025/03/26/tarik-skubal-cy-young-2025-emergence/
+
+**St. Louis Cardinals 2025 season preview: Roster breakdown, projections, and bold prediction**\
+`Here's how the 2025 Cardinals stack up, with projected lineups, rotation and individual stats.`\
+https://nytimes.com/athletic/6219555/2025/03/26/mlb-st-louis-cardinals-2025-season-preview/
+
+**NHL faces in new places: How players traded at the deadline are faring with their teams**\
+`Now that the dust has settled from the fallout of the trade deadline, let's examine five big-name players in their new surroundings.`\
+https://nytimes.com/athletic/6230635/2025/03/26/nhl-trade-deadline-2025-players-new-teams/
+
+**Ranking 12 of the greatest record-breaking goals in NHL history, from worst to best**\
+`A look at a dozen historic goals that broke an important record in style, just as Alex Ovechkin will hopefully do over the next few weeks.`\
+https://nytimes.com/athletic/6227371/2025/03/26/nhl-greatest-goals-record-ranking-history/
+
 **‘Common Side Effects’ Is a Stylish and Trippy Animated Thriller**\
 `Filled with smart dialogue, specificity and visual wonder, this Max series is a good choice to help fill the “Severance”-shaped hole in your heart.`\
 https://nytimes.com/2025/03/26/arts/television/common-side-effects-max.html
