@@ -1,3 +1,11 @@
+**How close friends pieced together they had been traded for each other**\
+`Two friends sitting in trade limbo had, in fact, been dealt for each other.`\
+https://nytimes.com/athletic/6233644/2025/03/26/nolan-jones-tyler-freeman-trade-guardians-rockies/
+
+**Rubio Says Someone Made ‘Big Mistake’ in Adding Journalist to Group Chat on Airstrikes**\
+`Secretary of State Marco Rubio said no “war plans” had been divulged in the group chat in which he took part. Chat texts published by The Atlantic show detailed information on the planned strikes in Yemen.`\
+https://nytimes.com/2025/03/26/us/politics/rubio-signal-chat-mistake.html
+
 **Intelligence Officials Face New Round of Scrutiny in House**\
 `Top intelligence officials gave their testimonies hours after The Atlantic published more messages from a Signal group chat discussing military plans in Yemen.`\
 https://nytimes.com/video/us/politics/100000010074825/intelligence-officials-hearing-house-signal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/style/white-lotus-duke-crimes-suicide.html
 **After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
 `When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
 https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
-
-**Submit your Blackhawks questions for Scott Powers' mailbag**\
-`Send in your questions, and Scott Powers may answer them in an upcoming Blackhawks mailbag.`\
-https://nytimes.com/athletic/6233651/2025/03/26/blackhawks-scott-powers-mailbag-submissions/
-
-**U.S. Military Provides Few Details on Daily Strikes in Yemen**\
-`The Pentagon has refused to disclose how many targets have been hit in Yemen, or identify the Houthi militia commanders killed in the campaign.`\
-https://nytimes.com/2025/03/26/us/politics/us-military-houthis-yemen.html
 
