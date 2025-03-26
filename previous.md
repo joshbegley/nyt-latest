@@ -1,3 +1,7 @@
+**Deadly Wildfires Destroy Historic Landmarks in South Korea**\
+`Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
+https://nytimes.com/video/world/asia/100000010073300/south-korea-wildfires-historic-landmarks.html
+
 **What is World Sevens Football? The new women's seven-a-side tournament with $5M prize**\
 `The eight inaugural teams have yet to be announced, but organisers have shared what they hope the series becomes`\
 https://nytimes.com/athletic/6230521/2025/03/26/womens-soccer-world-sevens-football-explained/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6231647/2025/03/26/red-wings-steve-yzerman-offseaso
 `“Signal might be a good app for you and me and our local drug dealer, but it’s not for the Pentagon to plan wars on,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2025/03/26/arts/television/late-night-signal-chat-leak.html
 
-**J. Bennett Johnston, Who Shaped U.S. Energy Policy, Dies at 92**\
+**J. Bennett Johnston, Who Helped Shape U.S. Energy Policy, Dies at 92**\
 `A four-term Democratic senator from Louisiana, he pushed for nuclear power and ending the nation’s reliance on foreign oil.`\
 https://nytimes.com/2025/03/26/us/politics/j-bennett-johnston-jr-dead.html
 
 **Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
 `The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
 https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/
-
-**Former Chelsea Women executive to lead World Sevens Football**\
-`Jacob spent 11 years at Chelsea during a period of incredible success - he joins W7F as head of football.`\
-https://nytimes.com/athletic/6230692/2025/03/26/chelsea-women-adrian-jacob-world-sevens-football/
 
