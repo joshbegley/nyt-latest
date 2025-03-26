@@ -1,3 +1,7 @@
+**J. Bennett Johnston, Who Shaped U.S. Energy Policy, Dies at 92**\
+`A four-term Democratic senator from Louisiana, he pushed for nuclear power and ending the nation’s reliance on foreign oil.`\
+https://nytimes.com/2025/03/26/us/politics/j-bennett-johnston-jr-dead.html
+
 **Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
 `The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
 https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/

@@ -1,3 +1,7 @@
+**J. Bennett Johnston, Who Shaped U.S. Energy Policy, Dies at 92**\
+`A four-term Democratic senator from Louisiana, he pushed for nuclear power and ending the nation’s reliance on foreign oil.`\
+https://nytimes.com/2025/03/26/us/politics/j-bennett-johnston-jr-dead.html
+
 **Rangers offense fizzles again, New York remains outside East playoff picture: 4 takeaways**\
 `The Rangers' penalty kill gave up two power-play goals that made the difference in a 3-1 loss to the Kings.`\
 https://nytimes.com/athletic/6231696/2025/03/26/rangers-offense-kings-east-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6227849/2025/03/26/nico-gonzalez-manchester-city-ad
 **What's going on with Crysencio Summerville's hamstring injury?**\
 `Graham Potter has barely been able to call on the former Leeds man — but he should be back in action soon`\
 https://nytimes.com/athletic/6217863/2025/03/26/crysencio-summerville-west-ham-hamstring-injury/
-
-**'I'm the first one to laugh at myself. Fun is really key in how I live my life' - Mary Fowler**\
-`The Australia international knows City have a job to do in the Champions League against Chelsea`\
-https://nytimes.com/athletic/6229679/2025/03/26/mary-fowler-manchester-city-australia/
 
