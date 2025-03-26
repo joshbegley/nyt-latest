@@ -1,3 +1,11 @@
+**U.K. Boosts Military Spending and Cuts Welfare in ‘Uncertain World’**\
+`The changes come as President Trump’s tariff threats have disrupted global trade and added pressure to the British government’s already strained budget.`\
+https://nytimes.com/2025/03/26/business/britain-economy-budget.html
+
+**Listen: Which of the NHL's bottom 10 teams is most likely to win the Stanley Cup in 10 years?**\
+`The Athletic Hockey Show discuss which of the bottom ten teams from last season are most likely to lift a Stanley Cup in the next decade.`\
+https://nytimes.com/athletic/6230134/2025/03/26/athletic-hockey-show-nhl-bottom-ten-stanley-cup/
+
 **U.S. Could Run Out of Cash by May, Budget Office Predicts**\
 `The Congressional Budget Office said that the so-called X-date could occur as early as spring if Congress does not lift or suspend the nation’s debt limit.`\
 https://nytimes.com/2025/03/26/business/us-debt-limit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6231282/2025/03/26/stefon-diggs-patriots-signing-dr
 **Trump Administration Considers Money for Pardoned Jan. 6 Rioters**\
 `President Trump said there was “a lot of talk about” creating a compensation fund because they had lost wages and other opportunities because they were prosecuted for storming the Capitol.`\
 https://nytimes.com/2025/03/26/us/politics/trumo-jan6-rioters-compensation.html
-
-**PBS and NPR Have Faced Pressure From Congress Before**\
-`Republicans in Congress have made several attempts to defund NPR and PBS over the last half-century.`\
-https://nytimes.com/2025/03/26/business/media/pbs-npr-congress-funding.html
-
-**Nottingham Forest optimistic Wood has avoided serious injury**\
-`The club will assess the striker when he returns to the Nigel Doughty Academy from international duty with New Zealand.`\
-https://nytimes.com/athletic/6228895/2025/03/26/chris-wood-nottingham-forest-injury-update/
 
