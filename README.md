@@ -34,7 +34,7 @@ https://nytimes.com/2025/03/26/world/europe/us-army-soldiers-missing-lithuania.h
 `The Oscar-winning documentary has surpassed $2 million at the box office despite the lack of a traditional distribution deal.`\
 https://nytimes.com/2025/03/26/movies/no-other-land-box-office.html
 
-**A U.K. University Is Given a Record Fine Over Free Speech on Campus**\
+**A British University Is Given a Record Fine Over Free Speech on Campus**\
 `A regulator penalized the school three years after a professor quit in response to what she said was a campaign of harassment over her views on gender identity.`\
 https://nytimes.com/2025/03/26/world/europe/uk-university-sussex-free-speech-transgender.html
 
