@@ -1,3 +1,19 @@
+**In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
+`In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
+https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
+
+**Brazil resume talks to hire Ancelotti for 2026 World Cup**\
+`The Brazilian Football Confederation (CBF) have been in touch with Ancelotti about becoming their coach for next summer's tournament.`\
+https://nytimes.com/athletic/6233452/2025/03/26/carlo-ancelotti-brazil-2026-world-cup/
+
+**How close friends pieced together they had been traded for each other**\
+`Two friends sitting in trade limbo had, in fact, been dealt for each other.`\
+https://nytimes.com/athletic/6233644/2025/03/26/nolan-jones-tyler-freeman-trade-guardians-rockies/
+
+**Rubio Says Someone Made ‘Big Mistake’ in Adding Journalist to Group Chat on Airstrikes**\
+`Secretary of State Marco Rubio said no “war plans” had been divulged in the group chat in which he took part. Chat texts published by The Atlantic show detailed information on the planned strikes in Yemen.`\
+https://nytimes.com/2025/03/26/us/politics/rubio-signal-chat-mistake.html
+
 **Intelligence Officials Face New Round of Scrutiny in House**\
 `Top intelligence officials gave their testimonies hours after The Atlantic published more messages from a Signal group chat discussing military plans in Yemen.`\
 https://nytimes.com/video/us/politics/100000010074825/intelligence-officials-hearing-house-signal.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6233664/2025/03/26/kevin-willard-maryland-job-villa
 **Vikings GM Adofo-Mensah: Team has had conversations with Aaron Rodgers**\
 `Adofo-Mensah left the door open a crack for conversations with Rodgers to continue.`\
 https://nytimes.com/athletic/6233354/2025/03/26/vikings-kwesi-adofo-mensah-aaron-rodgers/
-
-**Duke University Wants No Part of the ‘The White Lotus’**\
-`In a show that features an array of disturbing story lines, the actions — and wardrobe — of a character have gone “too far” for the university.`\
-https://nytimes.com/2025/03/26/style/white-lotus-duke-crimes-suicide.html
-
-**After Heathrow Debacle: Who Pays for a Ruined Vacation?**\
-`When the airport shut down travelers were on the hook for reservations that could not be canceled, expensive new flights and missed events that airlines don’t reimburse for. How can you protect yourself next time?`\
-https://nytimes.com/2025/03/26/travel/heathrow-travel-insurance-hotel-cruise-refund.html
-
-**Submit your Blackhawks questions for Scott Powers' mailbag**\
-`Send in your questions, and Scott Powers may answer them in an upcoming Blackhawks mailbag.`\
-https://nytimes.com/athletic/6233651/2025/03/26/blackhawks-scott-powers-mailbag-submissions/
-
-**U.S. Military Provides Few Details on Daily Strikes in Yemen**\
-`The Pentagon has refused to disclose how many targets have been hit in Yemen, or identify the Houthi militia commanders killed in the campaign.`\
-https://nytimes.com/2025/03/26/us/politics/us-military-houthis-yemen.html
 

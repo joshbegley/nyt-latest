@@ -1,3 +1,19 @@
+**In Rebuttal to Trump Official, M.T.A. Says Subway Is Getting Safer**\
+`In response to the transportation secretary’s disparagement of the subway system, transit officials said that felonies were way down and fare evasion was dropping.`\
+https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
+
+**Brazil resume talks to hire Ancelotti for 2026 World Cup**\
+`The Brazilian Football Confederation (CBF) have been in touch with Ancelotti about becoming their coach for next summer's tournament.`\
+https://nytimes.com/athletic/6233452/2025/03/26/carlo-ancelotti-brazil-2026-world-cup/
+
+**How close friends pieced together they had been traded for each other**\
+`Two friends sitting in trade limbo had, in fact, been dealt for each other.`\
+https://nytimes.com/athletic/6233644/2025/03/26/nolan-jones-tyler-freeman-trade-guardians-rockies/
+
+**Rubio Says Someone Made ‘Big Mistake’ in Adding Journalist to Group Chat on Airstrikes**\
+`Secretary of State Marco Rubio said no “war plans” had been divulged in the group chat in which he took part. Chat texts published by The Atlantic show detailed information on the planned strikes in Yemen.`\
+https://nytimes.com/2025/03/26/us/politics/rubio-signal-chat-mistake.html
+
 **Intelligence Officials Face New Round of Scrutiny in House**\
 `Top intelligence officials gave their testimonies hours after The Atlantic published more messages from a Signal group chat discussing military plans in Yemen.`\
 https://nytimes.com/video/us/politics/100000010074825/intelligence-officials-hearing-house-signal.html
