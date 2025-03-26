@@ -1,3 +1,11 @@
+**Can I Hold Stock in a Company if I Loathe the C.E.O.’s Politics?**\
+`The magazine’s Ethicist columnist on investing your money ethically.`\
+https://nytimes.com/2025/03/26/magazine/ethicist-ethics-investing.html
+
+**‘Ghost Guns’: What They Are and Why There Has Been a Fight Over Them**\
+`A rule regulating the firearm kits was a centerpiece of President Joseph R. Biden Jr.’s gun control initiative. The Supreme Court has upheld the regulation, issued in 2022.`\
+https://nytimes.com/2025/03/26/us/politics/what-are-ghost-guns.html
+
 **Watch: How worried should the Warriors be about their playoff chances?**\
 `NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
 https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/us/boston-skating-club-dc-plane-crash-1961.html
 **FIFA faces fresh calls to recognise Afghanistan women's football team**\
 `The Afghan team have been absent from FIFA tournaments since the second Taliban takeover of the nation in 2021.`\
 https://nytimes.com/athletic/6231972/2025/03/26/afghanistan-women-fifa-world-cup/
-
-**Senate Democrats Seek Answers on Firing of Justice Dept. Official**\
-`After a disagreement about giving gun rights back to the actor Mel Gibson, a pardon attorney was fired. Senate Democrats are asking for details, including records or emails, that relate to the decision.`\
-https://nytimes.com/2025/03/26/us/politics/senate-democrats-justice-department-attorney.html
-
-**Grilling PBS and NPR is the latest attack from Washington on the press.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/grilling-pbs-and-npr-is-the-latest-attack-from-washington-on-the-press
 
