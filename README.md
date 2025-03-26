@@ -1,3 +1,7 @@
+**World’s Largest ‘Baby Exporter’ Admits to Adoption Fraud**\
+`A South Korean truth commission called for the country to apologize to those who were sent abroad “like luggage” so that adoption agencies could profit.`\
+https://nytimes.com/2025/03/26/world/asia/south-korea-adoption-fraud.html
+
 **Vikings big board: 10 players who make sense in each round of the NFL Draft**\
 `Trading back in the first round could make sense for the Vikings considering their lack of draft capital. They have just four picks.`\
 https://nytimes.com/athletic/6230264/2025/03/26/minnesota-vikings-nfl-draft-big-board-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6230899/2025/03/26/jazz-chisholm-yankees-individual
 **Drake Baldwin could help Braves fans get over the William Contreras trade**\
 `Chipper Jones said of the promising young catcher: “I love what I see from him offensively."`\
 https://nytimes.com/athletic/6230906/2025/03/26/braves-drake-baldwin-catcher-prospect/
-
-**Packers NFL Draft big board: 15 first-round targets to fill top positions of need**\
-`Will Brian Gutekunst trade up, stand pat or trade back from No. 23 in next month's NFL Draft?`\
-https://nytimes.com/athletic/6230417/2025/03/26/packers-nfl-draft-big-board-first-round/
 

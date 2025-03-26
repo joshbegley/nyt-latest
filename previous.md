@@ -1,40 +1,40 @@
-**Connections Companion No. 655**\
-`Scroll down for hints and conversation about the puzzle for Thursday, March 27, 2025.`\
-https://nytimes.com/2025/03/26/crosswords/connections-companion-655.html
+**Vikings big board: 10 players who make sense in each round of the NFL Draft**\
+`Trading back in the first round could make sense for the Vikings considering their lack of draft capital. They have just four picks.`\
+https://nytimes.com/athletic/6230264/2025/03/26/minnesota-vikings-nfl-draft-big-board-3/
 
-**NPR and PBS in the Hot Seat, and a Rare Protest in Gaza**\
-`Plus, fraud at Versailles.`\
-https://nytimes.com/2025/03/26/podcasts/the-headlines/npr-pbs-gaza-versailles-trump.html
+**Leafs' Nylander makes exceptional play look like just another day on the job**\
+`Teammates new to playing with Nylander offer perspective on how the three-time 40-goal scorer helps the Leafs win.`\
+https://nytimes.com/athletic/6231518/2025/03/26/william-nylander-maple-leafs-goals/
 
-**Wordle Review No. 1,377**\
-`Scroll down for hints and conversation about the puzzle for Thursday, March 27, 2025.`\
-https://nytimes.com/2025/03/26/crosswords/wordle-review-1377.html
+**Jase Richardson is made for March**\
+`What began this season as a nice story of lineage is now approaching bizarre levels of serendipity.`\
+https://nytimes.com/athletic/6230825/2025/03/26/jase-richardson-michigan-state-march-madness-legacy/
 
-**With favorites filling the Sweet 16 bracket, will bettors break up with Cinderella?**\
-`Bettors are loving the SEC, but can you blame them? Bookmakers break down Sweet 16 betting action.`\
-https://nytimes.com/athletic/6230219/2025/03/26/bettors-love-the-sec-money-pouring-in-on-arkansas-kentucky-ahead-of-sweet-16/
+**Austin Dillon on his drama-filled 2024 NASCAR season, fatherhood and more: 12 Questions**\
+`Austin Dillon talks about his costly penalty in 2024, his eventual transition out of driving, the lessons of a parent and more.`\
+https://nytimes.com/athletic/6228295/2025/03/26/austin-dillon-nascar-2024-drama-12-questions/
 
-**Asencio set to renew Real Madrid contract**\
-`The 22-year-old's existing deal was set to expire in 2026 but Madrid have triggered a pre-agreed contract option to extend his terms.`\
-https://nytimes.com/athletic/6231843/2025/03/26/raul-asencio-real-madrid-contract/
+**An NFL prospect and his long struggle with narcolepsy**\
+`Stackhouse was diagnosed with narcolepsy during his first year at Georgia, where he started 42 games and won two national titles.`\
+https://nytimes.com/athletic/6227200/2025/03/26/nazir-stackhouse-nfl-draft-georgia-football/
 
-**Senate Democrats Press Trump for Answers on Security Breach**\
-`Top lawmakers say the White House must provide a full accounting of actions surrounding sensitive military information shared on a text chain that included a journalist.`\
-https://nytimes.com/2025/03/26/us/senate-democrats-trump-leak-atlantic.html
+**The Conversion Generation: Why some relievers are now morphing into shutdown starters**\
+`It used to be that starters would head to the pen if they couldn't cut it. Now high-octane relievers are blossoming into capable starters.`\
+https://nytimes.com/athletic/6226615/2025/03/26/mlb-relievers-becoming-starters/
 
-**The New York Times International Edition in Print for Thursday, March 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/26/todays-new-york-times-international-edition
+**His buzzer-beater lifted Maryland to the Sweet 16. But so did Derik Queen's 'infectious' spirit**\
+`The Baltimore native is doing his hometown proud during the NCAA Tournament. Maryland faces No. 1 Florida on Thursday in the Sweet 16.`\
+https://nytimes.com/athletic/6231449/2025/03/26/derik-queen-maryland-basketball-ncaa-tournament/
 
-**Alex Eala is making tennis history for the Philippines. For her, that's the easy part**\
-`Alexandra Eala continues on her history-making run for tennis in the Philippines at the Miami Open.`\
-https://nytimes.com/athletic/6230876/2025/03/26/tennis-alex-eala-philippines/
+**Jazz Chisholm is unapologetically himself. The Yankees seem to be just fine with that**\
+`To understand why the Yankees second baseman has fit in so well in New York, it requires a full accounting of his whole self.`\
+https://nytimes.com/athletic/6230899/2025/03/26/jazz-chisholm-yankees-individual-boone/
 
-**Alphonso Davies set for lengthy absence with cruciate ligament injury**\
-`Davies was substituted only 12 minutes into Canada’s 2-1 win over the United States in Concacaf Nations League third-place match.`\
-https://nytimes.com/athletic/6226146/2025/03/26/alphonso-davies-acl-injury/
+**Drake Baldwin could help Braves fans get over the William Contreras trade**\
+`Chipper Jones said of the promising young catcher: “I love what I see from him offensively."`\
+https://nytimes.com/athletic/6230906/2025/03/26/braves-drake-baldwin-catcher-prospect/
 
-**Europe Talks Tough on Military Spending, but Unity Is Fracturing**\
-`European leaders are struggling to find the money and the political will to replace the bulk of the U.S. contribution to Ukraine and to their own defense.`\
-https://nytimes.com/2025/03/26/world/europe/ukraine-us-nato-eu-defense.html
+**Packers NFL Draft big board: 15 first-round targets to fill top positions of need**\
+`Will Brian Gutekunst trade up, stand pat or trade back from No. 23 in next month's NFL Draft?`\
+https://nytimes.com/athletic/6230417/2025/03/26/packers-nfl-draft-big-board-first-round/
 
