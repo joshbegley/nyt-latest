@@ -1,3 +1,7 @@
+**Texas Prosecutors Will No Longer Pursue Death Penalty in El Paso Shooting**\
+`The gunman, who killed 23 people at a Walmart in 2019, was previously sentenced to 90 consecutive life terms after pleading guilty to federal hate crimes.`\
+https://nytimes.com/2025/03/25/us/el-paso-mass-shooting-death-penalty.html
+
 **50 States, 50 Fixes**\
 `A series about local solutions, and the people behind them, to environmental problems.`\
 https://nytimes.com/interactive/2025/climate/50-states-fixes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/25/climate/hawaii-health-nature.html
 **World Series champion Dodgers accept President Trump's invitation to visit White House**\
 `"The Dodgers look forward to visiting the White House and celebrating our title,” the team said.`\
 https://nytimes.com/athletic/6231054/2025/03/25/dodgers-accept-president-trump-white-house-invite/
-
-**After 'scary' infection, Charlie McAvoy back on ice with team he barely recognizes**\
-`McAvoy has been recovering from a serious infection after getting injured at the 4 Nations. It's unknown whether he will play this season.`\
-https://nytimes.com/athletic/6230970/2025/03/25/bruins-charlie-mcavoy-injury-infection/
 

@@ -1,3 +1,11 @@
+**Bedlam in the spring? OSU coach suggests preseason matchup vs. OU**\
+`The in-state foes met 118 times from 1904 until 2023 but paused the rivalry after Oklahoma left the Big 12 to play in the SEC last season.`\
+https://nytimes.com/athletic/6231101/2025/03/25/bedlam-spring-game-oklahoma-state-ou/
+
+**Submit questions for Ben Standig's Commanders mailbag**\
+`Standig will consider your questions for his upcoming mailbag following a busy free-agency period for Washington. `\
+https://nytimes.com/athletic/6231142/2025/03/25/commanders-mailbag-free-agency-nfl-draft/
+
 **Texas Prosecutors Will No Longer Pursue Death Penalty in El Paso Shooting**\
 `The gunman, who killed 23 people at a Walmart in 2019, was previously sentenced to 90 consecutive life terms after pleading guilty to federal hate crimes.`\
 https://nytimes.com/2025/03/25/us/el-paso-mass-shooting-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/25/climate/boise-idaho-geothermal.html
 **Bridges and Tunnels in Colorado Are Helping Animals Commute**\
 `The state has emerged as a leader in building wildlife crossings that save animals, money and human lives.`\
 https://nytimes.com/2025/03/25/climate/wildlife-crossings-colorado.html
-
-**At This Clinic in Hawaii, Nature Is the Medicine**\
-`A neglected parcel of land was restored by volunteers and patients at a community medical center. Along the way, their health also improved.`\
-https://nytimes.com/2025/03/25/climate/hawaii-health-nature.html
-
-**World Series champion Dodgers accept President Trump's invitation to visit White House**\
-`"The Dodgers look forward to visiting the White House and celebrating our title,” the team said.`\
-https://nytimes.com/athletic/6231054/2025/03/25/dodgers-accept-president-trump-white-house-invite/
 
