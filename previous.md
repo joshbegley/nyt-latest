@@ -1,3 +1,31 @@
+**Senate Democrats Seek Answers on Firing of Justice Dept. Official**\
+`After a disagreement about giving gun rights back to the actor Mel Gibson, a pardon attorney was fired. Senate Democrats are asking for details, including records or emails, that relate to the decision.`\
+https://nytimes.com/2025/03/26/us/politics/senate-democrats-justice-department-attorney.html
+
+**Grilling PBS and NPR is the latest attack from Washington on the press.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2025/03/26/business/pbs-npr-congress-hearing/grilling-pbs-and-npr-is-the-latest-attack-from-washington-on-the-press
+
+**A Pantry Pasta Built for Early Spring**\
+`Melissa Clark’s pasta with green puttanesca is a lovely showcase for spring’s tender greens and green garlic (though plain old garlic is great, too).`\
+https://nytimes.com/2025/03/26/dining/puttanesca-spring.html
+
+**In ‘Streetcar,’ Patsy Ferran Gives Blanche a Nervy New Read**\
+`The London-based actress has been heralded as one of the most talented of her generation. Still, she worried audiences would balk at her “very unconventional Blanche.”`\
+https://nytimes.com/2025/03/26/theater/patsy-ferran-streetcar-named-desire.html
+
+**Three Great Documentaries to Stream**\
+`In this month’s picks, sheep, shirkers and coup d’état soundtracks.`\
+https://nytimes.com/2025/03/26/movies/great-documentaries-streaming.html
+
+**Why Elon Musk and Tesla Have a Legal Bone to Pick With Wisconsin**\
+`As the billionaire and his allied groups pour more than $20 million into a race for the state’s top court, his car company is suing Wisconsin over a law restricting vehicle sales.`\
+https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin.html
+
+**The Bounce: How did Jimmy Butler fare in revenge game vs. Heat? Plus, about Damian Lillard's absence**\
+`Jimmy Butler's highly anticipated return to Miami has come and gone. What are the reviews?`\
+https://nytimes.com/athletic/6232032/2025/03/26/jimmy-butler-heat-warriors-damian-lillard-blood-clots-bucks-nba-the-bounce/
+
 **As Rafael Devers prepares to DH full-time, his move stands out in baseball history**\
 `For a player of Devers' age, caliber and injury history, a full-time move to DH is exceedingly rare. `\
 https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-path/
@@ -6,35 +34,7 @@ https://nytimes.com/athletic/6232316/2025/03/26/rafael-devers-unprecedented-dh-p
 `The administration had tightened regulations on kits that can be easily assembled into nearly untraceable firearms.`\
 https://nytimes.com/2025/03/26/us/politics/supreme-court-ghost-guns.html
 
-**U.S. to End Vaccine Funds for Poor Countries**\
-`A 281-page spreadsheet obtained by The Times lists the Trump administration’s plans for thousands of foreign aid programs.`\
-https://nytimes.com/2025/03/26/health/usaid-cuts-gavi-bird-flu.html
-
-**Federal Government Detains International Student at Tufts**\
-`The university was told that the student’s visa had been terminated, its president said in a late-night email to students and faculty members.`\
-https://nytimes.com/2025/03/26/us/ice-tufts-student-detained-rumeysa-ozturk.html
-
-**U.K. Boosts Military Spending and Cuts Welfare in ‘Uncertain World’**\
-`The changes come as President Trump’s tariff threats have disrupted global trade and added pressure to the British government’s already strained budget.`\
-https://nytimes.com/2025/03/26/business/britain-economy-budget.html
-
-**Listen: Which of the NHL's bottom 10 teams is most likely to win the Stanley Cup in 10 years?**\
-`The Athletic Hockey Show discuss which of the bottom ten teams from last season are most likely to lift a Stanley Cup in the next decade.`\
-https://nytimes.com/athletic/6230134/2025/03/26/athletic-hockey-show-nhl-bottom-ten-stanley-cup/
-
-**U.S. Could Run Out of Cash by May, Budget Office Predicts**\
-`The Congressional Budget Office said that the so-called X-date could occur as early as spring if Congress does not lift or suspend the nation’s debt limit.`\
-https://nytimes.com/2025/03/26/business/us-debt-limit.html
-
-**The Mystery of Melania Trump’s Wedding Dress and an eBay Sale**\
-`Is the first lady’s 2005 Dior couture gown really available for resale? Or is this a hoax?`\
-https://nytimes.com/2025/03/26/style/melania-trump-wedding-dress-ebay.html
-
-**Paramilitary Fighters Flee Sudan’s Capital, a Major Shift in Civil War**\
-`In dramatic scenes that appear to mark a turning point in nearly two years of civil war, Sudan’s military is driving fighters of its rival, the Rapid Support Forces, out of Khartoum.`\
-https://nytimes.com/2025/03/26/world/europe/sudan-khartoum-war-rsf-withdrawal.html
-
-**Submit questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
-`Have a draft, prospects or scouting question for The Athletic's Scott Wheeler? Submit them here for his next mailbag.`\
-https://nytimes.com/athletic/6232252/2025/03/26/nhl-draft-2025-mailbag-wheeler/
+**Big3 to feature 8 city-based teams for 2025, a new twist to the 3-on-3 basketball league**\
+`Eight cities will have host teams for the Big3 starting in June. It's a feat that league co-founder Ice Cube calls “a labor of love."`\
+https://nytimes.com/athletic/6230446/2025/03/26/big3-teams-ice-cube-3x3-basketball/
 
