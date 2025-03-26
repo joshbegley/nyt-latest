@@ -1,3 +1,11 @@
+**Can I Hold Stock in a Company if I Loathe the C.E.O.’s Politics?**\
+`The magazine’s Ethicist columnist on investing your money ethically.`\
+https://nytimes.com/2025/03/26/magazine/ethicist-ethics-investing.html
+
+**‘Ghost Guns’: What They Are and Why There Has Been a Fight Over Them**\
+`A rule regulating the firearm kits was a centerpiece of President Joseph R. Biden Jr.’s gun control initiative. The Supreme Court has upheld the regulation, issued in 2022.`\
+https://nytimes.com/2025/03/26/us/politics/what-are-ghost-guns.html
+
 **Watch: How worried should the Warriors be about their playoff chances?**\
 `NBA Daily discuss the Golden State Warriors’ lack of creation outside of Stephen Curry and the importance of securing a top-six seed.`\
 https://nytimes.com/athletic/6232075/2025/03/26/nba-daily-golden-state-warriors-playoff-chances/
