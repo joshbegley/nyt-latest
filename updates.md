@@ -1,3 +1,15 @@
+**The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
+`If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
+https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
+
+**Measles Cases in Kansas May Be Linked to Texas Outbreak**\
+`State health officials worry that declining vaccination rates have left many communities vulnerable nationwide.`\
+https://nytimes.com/2025/03/26/health/measles-kansas-ohio-texas.html
+
+**Brad Stevens expecting 'business as usual' amid Celtics' ownership transition**\
+`Stevens first met incoming Celtics owner Bill Chisholm a couple of weeks ago but hasn't had much communication with his new boss yet.`\
+https://nytimes.com/athletic/6233932/2025/03/26/brad-stevens-celtics-sale-ownership-change/
+
 **Intelligence Officials Face a Fresh Round of Questions About Signal Leak**\
 `Democrats on a House committee appeared in lock step as they confronted one of the most notable blunders of the Trump administration.`\
 https://nytimes.com/2025/03/26/us/politics/intelligence-officials-signal-leak.html
