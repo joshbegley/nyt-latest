@@ -1,3 +1,15 @@
+**Former Chelsea Women executive to lead World Sevens Football**\
+`Jacob spent 11 years at Chelsea during a period of incredible success - he joins W7F as head of football.`\
+https://nytimes.com/athletic/6230692/2025/03/26/chelsea-women-adrian-jacob-world-sevens-football/
+
+**The ex-players trying to become referees: 'I’ve got no problem with getting a bit of grief'**\
+`Retirement? No thanks. These players have found a potential route back onto the pitch`\
+https://nytimes.com/athletic/6229343/2025/03/26/former-players-becoming-referees/
+
+**Word of the Day: spacewalk**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/26/learning/word-of-the-day-spacewalk.html
+
 **Chelsea risk falling inexorably behind while the future of Stamford Bridge remains unresolved**\
 `Everton will bump Chelsea's home of 120 years down from ninth to 10th in the ranking of the division’s largest stadiums next season`\
 https://nytimes.com/athletic/6229780/2025/03/26/chelsea-stamford-bridge-boehly-clearlake-eghbali/

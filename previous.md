@@ -1,3 +1,15 @@
+**Former Chelsea Women executive to lead World Sevens Football**\
+`Jacob spent 11 years at Chelsea during a period of incredible success - he joins W7F as head of football.`\
+https://nytimes.com/athletic/6230692/2025/03/26/chelsea-women-adrian-jacob-world-sevens-football/
+
+**The ex-players trying to become referees: 'I’ve got no problem with getting a bit of grief'**\
+`Retirement? No thanks. These players have found a potential route back onto the pitch`\
+https://nytimes.com/athletic/6229343/2025/03/26/former-players-becoming-referees/
+
+**Word of the Day: spacewalk**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/26/learning/word-of-the-day-spacewalk.html
+
 **Chelsea risk falling inexorably behind while the future of Stamford Bridge remains unresolved**\
 `Everton will bump Chelsea's home of 120 years down from ninth to 10th in the ranking of the division’s largest stadiums next season`\
 https://nytimes.com/athletic/6229780/2025/03/26/chelsea-stamford-bridge-boehly-clearlake-eghbali/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6229679/2025/03/26/mary-fowler-manchester-city-aust
 **Habib Habibou played just 79 minutes for Leeds but represents a wild era: 'I still love the fans'**\
 `The club left an impression on the striker, who still interacts with fans, despite his brief stay`\
 https://nytimes.com/athletic/6229760/2025/03/26/habib-habibou-leeds-lidor-cohen-viral-goal/
-
-**Why are Brighton sponsored by a Florida city almost nobody in England has heard of?**\
-`The answer lies in the shirt-sleeve sponsorship deal with the tourism board of Osceola County, which has become the club's latest partner`\
-https://nytimes.com/athletic/6008929/2025/03/26/brighton-experience-kissimmee-sponsor/
-
-**Liverpool's Anfield plans: Can it expand again and do new grounds pose a threat?**\
-`What is FSG's plan for Liverpool's historic home as Premier League rivals reveal and complete their own grand designs?`\
-https://nytimes.com/athletic/6228896/2025/03/26/liverpool-anfield-expansion-redevelopment-plans/
-
-**A cold, windy night in Stoke: How does weather really impact the Premier League?**\
-`We investigate how wind, rain and extreme temperatures have impacted Premier League players and teams down the years`\
-https://nytimes.com/athletic/6220896/2025/03/26/premier-league-weather-analysis-cold-stoke/
 
