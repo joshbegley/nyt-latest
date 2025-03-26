@@ -1,3 +1,7 @@
+**Houston Astros 2025 season preview: Roster breakdown, projections and bold prediction**\
+`The Astros will try to win their fifth consecutive division title after trading their best player and losing an icon via free agency.`\
+https://nytimes.com/athletic/6217186/2025/03/26/mlb-houston-astros-2025-season-preview/
+
 **Jimmy Butler's return to Miami was all hype, very little drama**\
 `We wanted a clash. We wanted drama. But the Heat had other ideas for Jimmy Butler's return to Miami.`\
 https://nytimes.com/athletic/6231651/2025/03/26/jimmy-butler-miami-return-warriors-heat-nba/
