@@ -1,3 +1,7 @@
+**Billy Horschel's clutch putt powers Atlanta Drive to inaugural TGL title**\
+`Horschel, Patrick Cantlay and Justin Thomas launched a come-from-behind charge to snatch the championship from NY Golf Club.`\
+https://nytimes.com/athletic/6231444/2025/03/25/tgl-golf-billy-horschel-atlanta-drive-champions/
+
 **'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
 `“I’m not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
 https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6231298/2025/03/25/maple-leafs-report-cards-nylande
 **Knicks make history as Towns, Hart both notch triple-doubles**\
 `New York duo is first in franchise history, 20th in NBA history, to accomplish feat. Hart also set a Knicks mark with ninth of the season.`\
 https://nytimes.com/athletic/6231284/2025/03/25/knicks-triple-doubles-history-towns-hart/
-
-**Rosenthal: For the Mariners, Cal Raleigh’s extension shows he’s right guy at right time**\
-`The catcher agreed to a six-year, $105 million deal with the team Tuesday.`\
-https://nytimes.com/athletic/6231233/2025/03/25/seattle-mariners-cal-raleigh-extension/
 

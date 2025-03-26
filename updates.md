@@ -1,3 +1,7 @@
+**Billy Horschel's clutch putt powers Atlanta Drive to inaugural TGL title**\
+`Horschel, Patrick Cantlay and Justin Thomas launched a come-from-behind charge to snatch the championship from NY Golf Club.`\
+https://nytimes.com/athletic/6231444/2025/03/25/tgl-golf-billy-horschel-atlanta-drive-champions/
+
 **'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
 `“I’m not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
 https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
