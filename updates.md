@@ -1,3 +1,7 @@
+**U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
+`The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
+https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
+
 **How Well Do You Know Your Own Group Chats?**\
 `A journalist’s inclusion in a national security discussion served as a reminder that you might not know every number in the chat — and that could be a big problem.`\
 https://nytimes.com/2025/03/25/style/group-chat-security-signal.html

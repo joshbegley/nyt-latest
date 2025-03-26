@@ -1,3 +1,7 @@
+**50 States, 50 Fixes**\
+`A series about local solutions, and the people behind them, to environmental problems.`\
+https://nytimes.com/interactive/2025/climate/50-states-fixes.html
+
 **U.S. Adds Export Restrictions to More Chinese Tech Firms Over Security Concerns**\
 `The additions included companies that are customers of Intel and Nvidia, and one firm that was the focus of a New York Times investigation last year.`\
 https://nytimes.com/2025/03/25/business/economy/trump-chinese-tech-firms-chips-security.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/03/25/climate/wildlife-crossings-colorado.html
 https://nytimes.com/2025/03/25/climate/hawaii-health-nature.html
 
 **World Series champion Dodgers accept President Trump's invitation to visit White House**\
-`ANAHEIM, Calif.`\
+`"The Dodgers look forward to visiting the White House and celebrating our title,” the team said.`\
 https://nytimes.com/athletic/6231054/2025/03/25/dodgers-accept-president-trump-white-house-invite/
 
 **After 'scary' infection, Charlie McAvoy back on ice with team he barely recognizes**\
 `McAvoy has been recovering from a serious infection after getting injured at the 4 Nations. It's unknown whether he will play this season.`\
 https://nytimes.com/athletic/6230970/2025/03/25/bruins-charlie-mcavoy-injury-infection/
-
-**After winning fifth starter job, Ben Brown can bring something unique to Cubs rotation**\
-`In a rotation that averaged 92.1 mph on its four-seam fastballs last season, Brown brings a different energy.`\
-https://nytimes.com/athletic/6230910/2025/03/25/ben-brown-cubs-rotation-fifth-starter/
 
