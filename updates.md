@@ -1,3 +1,7 @@
+**Angels prospect Ryan Johnson makes Opening Day roster, skipping minors in 'surreal' move**\
+`Johnson, drafted last summer, was one of the most prolific college pitchers during his last two seasons at Dallas Baptist. `\
+https://nytimes.com/athletic/6231196/2025/03/25/angels-ryan-johnson-opening-day-roster-no-minors/
+
 **The Leaked Signal Chat, Annotated**\
 `The chat’s contents, which were obtained by The Atlantic after its editor in chief was added to the Signal group, provide a revealing look at private conversations between top Trump administration officials.`\
 https://nytimes.com/interactive/2025/03/25/us/signal-group-chat-text-annotations.html
