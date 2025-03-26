@@ -1,4 +1,8 @@
-**Sabres thoughts: Lindy Ruff wants to get Buffalo right, Dylan Cozens' return and more**\
+**The former Man City coach aspiring to be the next Graham Potter via 'difficult circumstances' in Turkey**\
+`'All these challenges will benefit me' — an interview with Kieron Lovelady`\
+https://nytimes.com/athletic/6216337/2025/03/26/kieron-lovelady-adana-demirspor-manchester-city-southport/
+
+**Sabres thoughts: Ruff wants to get it right, Cozens returns and more**\
 `With Buffalo's 3-2 win over Ottawa, Ruff became just the second coach in NHL history to have at least 600 regular-season wins with one team.`\
 https://nytimes.com/athletic/6231541/2025/03/26/sabres-lindy-ruff-dylan-cozens/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6231444/2025/03/25/tgl-golf-billy-horschel-atlanta-
 **'This falls on me': John Tortorella takes the blame as Flyers get embarrassed again**\
 `"I'm not really interested in learning how to coach in this type of season," the Flyers coach said after Philadelphia's 7-2 loss to Toronto.`\
 https://nytimes.com/athletic/6231401/2025/03/25/flyers-maple-leafs-john-tortorella/
-
-**Argentina celebrates World Cup qualification with thrashing of Brazil**\
-`The reigning World Cup champions still look the part, while Brazil has some soul searching to do before qualifying continues.`\
-https://nytimes.com/athletic/6231438/2025/03/25/argentina-brazil-2026-world-cup-qualifier-score-report/
 

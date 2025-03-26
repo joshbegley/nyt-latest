@@ -1,3 +1,11 @@
+**The former Man City coach aspiring to be the next Graham Potter via 'difficult circumstances' in Turkey**\
+`'All these challenges will benefit me' — an interview with Kieron Lovelady`\
+https://nytimes.com/athletic/6216337/2025/03/26/kieron-lovelady-adana-demirspor-manchester-city-southport/
+
+**Sabres thoughts: Ruff wants to get it right, Cozens returns and more**\
+`With Buffalo's 3-2 win over Ottawa, Ruff became just the second coach in NHL history to have at least 600 regular-season wins with one team.`\
+https://nytimes.com/athletic/6231541/2025/03/26/sabres-lindy-ruff-dylan-cozens/
+
 **Sabres thoughts: Lindy Ruff wants to get Buffalo right, Dylan Cozens' return and more**\
 `With Buffalo's 3-2 win over Ottawa, Ruff became just the second coach in NHL history to have at least 600 regular-season wins with one team.`\
 https://nytimes.com/athletic/6231541/2025/03/26/sabres-lindy-ruff-dylan-cozens/
