@@ -1,3 +1,7 @@
+**House Republicans Hold Hearing Accusing PBS and NPR of Bias**\
+`Republicans accused the nation’s two largest public media networks of institutional bias. Democrats dismissed the hearing as an excuse for Republicans to air a familiar list of grievances against the news media.`\
+https://nytimes.com/video/us/politics/100000010073664/npr-pbs-house-hearing.html
+
 **Auroras Are Spotted on Neptune for the First Time, and Lead to a New Mystery**\
 `The James Webb Space Telescope identified the lights in the distant planet’s atmosphere, which could not be seen by earlier telescopes or spacecraft.`\
 https://nytimes.com/2025/03/26/science/neptune-aurora-nasa-webb-telescope.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/nyregion/trump-nyc-mta-crime-stats.html
 **Brazil resume talks to hire Ancelotti for 2026 World Cup**\
 `The Brazilian Football Confederation (CBF) have been in touch with Ancelotti about becoming their coach for next summer's tournament.`\
 https://nytimes.com/athletic/6233452/2025/03/26/carlo-ancelotti-brazil-2026-world-cup/
-
-**How close friends pieced together they had been traded for each other**\
-`Two friends sitting in trade limbo had, in fact, been dealt for each other.`\
-https://nytimes.com/athletic/6233644/2025/03/26/nolan-jones-tyler-freeman-trade-guardians-rockies/
 

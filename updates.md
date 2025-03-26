@@ -1,3 +1,7 @@
+**House Republicans Hold Hearing Accusing PBS and NPR of Bias**\
+`Republicans accused the nation’s two largest public media networks of institutional bias. Democrats dismissed the hearing as an excuse for Republicans to air a familiar list of grievances against the news media.`\
+https://nytimes.com/video/us/politics/100000010073664/npr-pbs-house-hearing.html
+
 **Auroras Are Spotted on Neptune for the First Time, and Lead to a New Mystery**\
 `The James Webb Space Telescope identified the lights in the distant planet’s atmosphere, which could not be seen by earlier telescopes or spacecraft.`\
 https://nytimes.com/2025/03/26/science/neptune-aurora-nasa-webb-telescope.html
