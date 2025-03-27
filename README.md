@@ -1,3 +1,7 @@
+**Helping Digital Natives Overcome Digital Naïveté: Four Steps to Media Literacy**\
+`Advice from an English teacher in Massachusetts for guiding teenagers to think critically but not cynically about the information they consume.`\
+https://nytimes.com/2025/03/27/learning/helping-digital-natives-overcome-digital-naivete-four-steps-to-media-literacy.html
+
 **The 3.30.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/03/27/the-33025-issue
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233825/2025/03/27/nhl-attendance-tracking-analysis
 **Ready to level up, the 2025 Reds are bolstering their young core with veteran experience**\
 `Cincinnati's young core will be joined by a group of playoff veterans who the Reds hope will help push the team over the top this season.`\
 https://nytimes.com/athletic/6227116/2025/03/27/cincinnati-reds-mlb-opening-day/
-
-**Last year, the Guardians could taste the World Series. Now, they’re ravenous to end a drought**\
-`Catcher Austin Hedges put it like this: "Last year was for convincing. Now there’s no convincing. We know exactly how good we are."`\
-https://nytimes.com/athletic/6214488/2025/03/27/cleveland-guardians-mlb-opening-day/
 
