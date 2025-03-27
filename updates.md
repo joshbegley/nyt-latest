@@ -1,3 +1,7 @@
+**‘A Gross Dishonor’: Cuts to Veterans’ Mental Health Care**\
+`Readers respond to President Trump’s orders that disrupt the V.A.’s ability to provide care. Also: Saving species; AI and human creativity.`\
+https://nytimes.com/2025/03/27/opinion/veterans-mental-health-cuts.html
+
 **Trump Asks Stefanik to Withdraw Bid to Be U.N. Ambassador**\
 `The president said he wanted the New York Republican to stay in Congress to bolster the party’s slim House margin and protect her seat.`\
 https://nytimes.com/2025/03/27/us/politics/stefanik-trump-cabinet.html
