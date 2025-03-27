@@ -1,3 +1,19 @@
+**A Baby and Pointing Fingers**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/03/27/learning/a-baby-and-pointing-fingers.html
+
+**G.O.P.’s Push to Cut Federal Spending Places New York Budget in Limbo**\
+`State leaders no longer expect to get the $91 billion in federal aid they originally anticipated, but exactly how much they will get remains unknown as they try to pass a budget.`\
+https://nytimes.com/2025/03/27/nyregion/trump-budget-new-york.html
+
+**Is Boogie Fland the Next Legendary New York City Point Guard?**\
+`In some ways, the prodigy now starring for Arkansas in the N.C.A.A. tournament is an urban basketball archetype. But this is not the same old story.`\
+https://nytimes.com/2025/03/27/nyregion/boogie-fland-nyc-basketball-point-guard.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/27/crosswords/spelling-bee-forum.html
+
 **Nikola Jokić's triple-double in return gives Nuggets a needed win — and more**\
 `There was a spring in Jokić's step that hadn't been there when he was fighting through his ankle injury.`\
 https://nytimes.com/athletic/6234607/2025/03/27/nuggets-win-bucks-nikola-jokic/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/27/learning/word-of-the-day-quizzical.html
 **West Ham squad audit: Assessing the future of every member of Graham Potter's squad**\
 `The Athletic runs the rule over every member of the West Ham squad`\
 https://nytimes.com/athletic/6226373/2025/03/27/west-ham-squad-audit-graham-potter/
-
-**Aston Villa's pool of exciting academy talent is a product of their 'clear plan'**\
-`Villa have ramped up their academy recruitment - so it's no wonder you wanted to read more about the best players coming through`\
-https://nytimes.com/athletic/6212674/2025/03/27/aston-villa-academy-recruitment/
-
-**Can Crystal Palace turn a record-breaking run of results into silverware?**\
-`Palace are the first team in English football history to win five successive away games by the same scoreline `\
-https://nytimes.com/athletic/6231982/2025/03/27/crystal-palace-away-form-record-fa-cup/
-
-**What Newcastle's cup win means to different generations of fans: 'I never gave up hope'**\
-`Five fans reflect on the Carabao Cup victory and how it fits into their history with the club`\
-https://nytimes.com/athletic/6231819/2025/03/27/what-newcastles-trophy-means-to-each-generation-of-fans/
-
-**Pinpoint passing and the most interceptions in La Liga - Johnny Cardoso has what Tottenham need**\
-`The USMNT international, who is a prospective Spurs player, has several key skills that Ange Postecoglou's team are crying out for`\
-https://nytimes.com/athletic/6232056/2025/03/27/johnny-cardoso-has-what-tottenham-need/
 

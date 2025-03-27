@@ -1,3 +1,19 @@
+**A Baby and Pointing Fingers**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/03/27/learning/a-baby-and-pointing-fingers.html
+
+**G.O.P.’s Push to Cut Federal Spending Places New York Budget in Limbo**\
+`State leaders no longer expect to get the $91 billion in federal aid they originally anticipated, but exactly how much they will get remains unknown as they try to pass a budget.`\
+https://nytimes.com/2025/03/27/nyregion/trump-budget-new-york.html
+
+**Is Boogie Fland the Next Legendary New York City Point Guard?**\
+`In some ways, the prodigy now starring for Arkansas in the N.C.A.A. tournament is an urban basketball archetype. But this is not the same old story.`\
+https://nytimes.com/2025/03/27/nyregion/boogie-fland-nyc-basketball-point-guard.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/03/27/crosswords/spelling-bee-forum.html
+
 **Nikola Jokić's triple-double in return gives Nuggets a needed win — and more**\
 `There was a spring in Jokić's step that hadn't been there when he was fighting through his ankle injury.`\
 https://nytimes.com/athletic/6234607/2025/03/27/nuggets-win-bucks-nikola-jokic/
