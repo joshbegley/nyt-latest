@@ -1,3 +1,7 @@
+**Here are the upset odds for last remaining NCAA Tournament longshot Arkansas**\
+`The Razorbacks are the only clear Cinderella left in the NCAA Tournament. Can Arkansas keep the fairy tale alive or will Texas Tech advance?`\
+https://nytimes.com/athletic/6233050/2025/03/27/arkansas-texas-tech-ncaa-tournament-underdogs-cinderella-bracket-breakers/
+
 **Tigers at Dodgers: How to watch LA's Shohei Ohtani face Tarik Skubal on MLB's Opening Day**\
 `The Dodgers' Blake Snell faces off against Detroit's Tarik Skubal, and LA's starry squad takes the field with Shohei Ohtani.`\
 https://nytimes.com/athletic/6230766/2025/03/27/tigers-dodgers-mlb-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/world/africa/egypt-tomb-pharaoh-abydos.html
 **But Their Group Chats …**\
 `In Trump World, the rules apply only to other people.`\
 https://nytimes.com/2025/03/27/opinion/signal-group-chat-hypocrisy.html
-
-**Signal Leak Bared U.S. Battle Aims in Yemen. But Defeating Houthis Won’t Be Easy.**\
-`U.S. officials seek to curb the militants’ attacks on ships in the Red Sea, but the group was not deterred by strikes in the Biden era and won’t be beaten by air power alone, experts say.`\
-https://nytimes.com/2025/03/27/world/middleeast/houthis-yemen-us-strikes-reality.html
 
