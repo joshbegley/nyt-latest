@@ -1,3 +1,11 @@
+**Nikola Jokić's triple-double in return gives Nuggets a needed win — and more**\
+`There was a spring in Jokić's step that hadn't been there when he was fighting through his ankle injury.`\
+https://nytimes.com/athletic/6234607/2025/03/27/nuggets-win-bucks-nikola-jokic/
+
+**Late Night Can’t Quit the Group Chat**\
+`“This operation was about as secretive as a Fortnite Twitch stream,” Jimmy Kimmel said of U.S. officials’ leaked discussion of a plan to attack Yemen.`\
+https://nytimes.com/2025/03/27/arts/television/late-night-signal-chat-group.html
+
 **LeBron James, Lakers stun streaking Pacers in final seconds**\
 `In his third game back from injury, James made the game-winning tip, off a Luka Dončić miss, to defeat the Pacers 120-119.`\
 https://nytimes.com/athletic/6234743/2025/03/27/lakers-stun-pacers-in-final-seconds-lebron-james/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6231819/2025/03/27/what-newcastles-trophy-means-to-
 **Pinpoint passing and the most interceptions in La Liga - Johnny Cardoso has what Tottenham need**\
 `The USMNT international, who is a prospective Spurs player, has several key skills that Ange Postecoglou's team are crying out for`\
 https://nytimes.com/athletic/6232056/2025/03/27/johnny-cardoso-has-what-tottenham-need/
-
-**San Sebastian, Vigo and the murky selection process behind Spain's World Cup 2030 host cities**\
-`Vigo and San Sebastian have become embroiled in the latest political saga within Spanish football`\
-https://nytimes.com/athletic/6232136/2025/03/27/spain-2030-world-cup-vigo-san-sebastian/
-
-**Football in India – Is the world's most popular sport conquering its final frontier?**\
-`Reporting from Kolkata and speaking to dozens of key figures in India, we examine the state of the game in the world’s most populous nation`\
-https://nytimes.com/athletic/6210144/2025/03/27/football-india-popularity-super-league/
 

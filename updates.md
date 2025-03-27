@@ -1,3 +1,11 @@
+**Nikola Jokić's triple-double in return gives Nuggets a needed win — and more**\
+`There was a spring in Jokić's step that hadn't been there when he was fighting through his ankle injury.`\
+https://nytimes.com/athletic/6234607/2025/03/27/nuggets-win-bucks-nikola-jokic/
+
+**Late Night Can’t Quit the Group Chat**\
+`“This operation was about as secretive as a Fortnite Twitch stream,” Jimmy Kimmel said of U.S. officials’ leaked discussion of a plan to attack Yemen.`\
+https://nytimes.com/2025/03/27/arts/television/late-night-signal-chat-group.html
+
 **LeBron James, Lakers stun streaking Pacers in final seconds**\
 `In his third game back from injury, James made the game-winning tip, off a Luka Dončić miss, to defeat the Pacers 120-119.`\
 https://nytimes.com/athletic/6234743/2025/03/27/lakers-stun-pacers-in-final-seconds-lebron-james/
