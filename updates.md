@@ -1,3 +1,7 @@
+**Ahead of Opening Day, Cubs will be relying early on Brad Keller and Colin Rea**\
+`Plus, Nico Hoerner will be ready to start against the Diamondbacks, though Chicago's final lineup remains to be seen.`\
+https://nytimes.com/athletic/6234179/2025/03/26/cubs-roster-analysis-brad-keller-colin-rea/
+
 **ICE Agents Detain University of Alabama Doctoral Student**\
 `A spokeswoman for the school said the detainment occurred off campus, but it was not immediately clear why the student had been targeted.`\
 https://nytimes.com/2025/03/26/us/ice-detains-doctoral-student-university-alabama.html
