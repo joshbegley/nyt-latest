@@ -1,3 +1,15 @@
+**Corrections: March 27, 2025**\
+`Corrections that appeared in print on Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/pageoneplus/corrections-march-27-2025.html
+
+**LeShon Johnson, Ex-N.F.L. Running Back, Ran Major Dogfighting Kennel, U.S. Says**\
+`Federal investigators say that they seized 190 pit-bull-type dogs from the former player, who previously pleaded guilty to state dogfighting charges in 2004.`\
+https://nytimes.com/2025/03/26/us/eshon-johnson-dogfighting.html
+
+**ESPN to end L.A. edition of 'SportsCenter,' relocating production to Bristol**\
+`The network says the move will impact 35 of its 229 L.A. employees, who have the option to move to Connecticut.`\
+https://nytimes.com/athletic/6234259/2025/03/26/espn-sportscenter-l-a-relocating-to-bristol/
+
 **ESPN announces L.A. edition of 'SportsCenter' will relocate to Bristol**\
 `The network says the move will impact 35 of its 229 L.A. employees, who have the option to move to Connecticut.`\
 https://nytimes.com/athletic/6234259/2025/03/26/espn-sportscenter-l-a-relocating-to-bristol/
