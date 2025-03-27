@@ -1,4 +1,8 @@
-**Judge Orders Signal Chat on Houthi Attack Plans to Be Preserved**\
+**For Europe, the Nightmare Isn’t U.S. Contempt. It’s U.S. Incompetence.**\
+`Europeans are used to the Trump administration’s scorn by now, but the Signal chat’s lack of seriousness, including its substance, was shocking.`\
+https://nytimes.com/live/2025/03/24/opinion/thepoint/signal-chat-european-allies-houthis
+
+**Judge Moves to Prevent Hegseth, Waltz and Others From Deleting Houthi Texts**\
 `Judge James E. Boasberg said top officials, including the defense secretary, the national security adviser and the secretary of state, must preserve the messages they exchanged.`\
 https://nytimes.com/2025/03/27/us/politics/signal-chat-houthis-court-decision.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/us/dna-faulty-test-los-angeles.html
 **University of Michigan to Scuttle Its Flagship D.E.I. Program**\
 `Michigan, once at the forefront of school diversity efforts, is rapidly changing course amid campus pushback and broad scrutiny by the Trump administration.`\
 https://nytimes.com/2025/03/27/education/university-of-michigan-dei.html
-
-**Another Problem With That Signal Chat? The Messages Disappear.**\
-`The Presidential Records Act and the Federal Records Act require officials to preserve communications related to government business.`\
-https://nytimes.com/2025/03/27/us/politics/signal-messages-disappear.html
 
