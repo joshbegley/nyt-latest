@@ -1,3 +1,11 @@
+**Titans switching to 'Titans blue' color on primary home jerseys**\
+`The Titans will cease wearing Oilers throwback jerseys, at least in 2025, while focusing on their new primary color, "Titans blue."`\
+https://nytimes.com/athletic/6236124/2025/03/27/tennessee-titans-nfl-uniform-change-blue/
+
+**Madrid and Zubimendi? Man Utd's financial strength for summer transfers? - Ask Ornstein**\
+`We ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A - here are David's favourite questions and answers`\
+https://nytimes.com/athletic/6235714/2025/03/27/real-madrid-transfer-latest-arsenal-martin-zubimendi-manchester-united/
+
 **'The Rental Car 500': NASCAR drivers plus borrowed cars often equals mischief**\
 `NASCAR drivers have a long history of rental-car shenanigans, from on-track "races" to off-track exploits.`\
 https://nytimes.com/athletic/6234619/2025/03/27/nascar-drivers-rental-cars-racing/
