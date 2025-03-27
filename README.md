@@ -1,9 +1,13 @@
+**Quote of the Day: Ramadan in Syria Means A Mad Rush Each Evening For Just the Right Marook**\
+`Quotation of the Day for Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/pageoneplus/quote-of-the-day-ramadan-in-syria-means-a-mad-rush-each-evening-for-just-the-right-marook.html
+
 **From Landon Slaggert to Artyom Levshunov, dissecting pivotal moments in Blackhawks' loss to Devils**\
 `Disallowed goals, penalties and the lack thereof, growing pains and more all played a part in a tight game.`\
 https://nytimes.com/athletic/6234410/2025/03/26/blackhawks-penalties-levshunov-sorenson-devils/
 
-**Alysa Liu left figure skating at 16. Now she's back, and in position for a major win**\
-`Alysa Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
+**Alysa Liu left figure skating at 16. Now she's back and in position for a major win**\
+`Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
 https://nytimes.com/athletic/6234474/2025/03/26/alysa-liu-figure-skating-world-championships/
 
 **LeBron James tips in buzzer beater; Lakers narrowly escape Pacers**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/us/eshon-johnson-dogfighting.html
 **ESPN to end L.A. edition of 'SportsCenter,' relocating production to Bristol**\
 `The network says the move will impact 35 of its 229 L.A. employees, who have the option to move to Connecticut.`\
 https://nytimes.com/athletic/6234259/2025/03/26/espn-sportscenter-l-a-relocating-to-bristol/
-
-**Former Iowa star Owen Freeman transfers to Creighton**\
-`Freeman started 19 games and averaged 16.7 points and 6.7 rebounds to lead the Hawkeyes in both categories this season.`\
-https://nytimes.com/athletic/6234333/2025/03/26/owen-freeman-transfer-creighton-iowa/
 
