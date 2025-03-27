@@ -1,3 +1,7 @@
+**Secrets on Signal**\
+`We explain how the group chat leak could have happened.`\
+https://nytimes.com/2025/03/27/briefing/secrets-on-signal.html
+
 **Leeds announce 14 per cent ticket price increase for 2025-26**\
 `The club have released details for how supporters can renew for next season with prices increasing for the third time in 12 years.`\
 https://nytimes.com/athletic/6234941/2025/03/27/leeds-ticket-prices-increase/
