@@ -1,3 +1,7 @@
+**The Windup: Four Opening Day games to watch**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6234787/2025/03/27/mlb-opening-day-what-to-watch-the-athletic/
+
 **Jim Nantz circles 2036 Masters as hopeful retirement date**\
 `"I would like to work 50 Masters tournaments. That would be the thing that keeps me going. I want to work 50 Masters," Nantz said in 2016.`\
 https://nytimes.com/athletic/6235425/2025/03/27/jim-nantz-2036-masters-retirement-plan/

@@ -1,3 +1,7 @@
+**Until Saturday: College GMs can fire coaches now? What?**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6235819/2025/03/27/andrew-luck-stanford-general-manager-until-saturday/
+
 **The Windup: Four Opening Day games to watch**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6234787/2025/03/27/mlb-opening-day-what-to-watch-the-athletic/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6235293/2025/03/27/pistons-playoffs-defense-jb-bick
 **How Major Car Brands Are Affected by Trump’s Tariffs**\
 `The scale of the damage depends on the circumstances of each company’s supply chain.`\
 https://nytimes.com/2025/03/27/business/trump-auto-tariffs-car-brands.html
-
-**What Marucci and Victus bats replacing Louisville Slugger means for MLB**\
-`MLB's youth movement reaches a core piece of equipment `\
-https://nytimes.com/athletic/6235456/2025/03/27/marucci-victus-mlb-official-bat/
 
