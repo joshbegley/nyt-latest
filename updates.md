@@ -1,3 +1,7 @@
+**Leeds announce 14 per cent ticket price increase for 2025-26**\
+`The club have released details for how supporters can renew for next season with prices increasing for the third time in 12 years.`\
+https://nytimes.com/athletic/6234941/2025/03/27/leeds-ticket-prices-increase/
+
 **Israeli Lawmakers Give Themselves More Power Over Choosing Judges**\
 `Benjamin Netanyahu, the Israeli prime minister, appears to have returned to the contentious judicial overhaul that divided the country before the war in Gaza.`\
 https://nytimes.com/2025/03/27/world/middleeast/israel-netanyahu-judges.html

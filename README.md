@@ -1,3 +1,7 @@
+**Secrets on Signal**\
+`We explain how the group chat leak could have happened.`\
+https://nytimes.com/2025/03/27/briefing/secrets-on-signal.html
+
 **Israeli Lawmakers Give Themselves More Power Over Choosing Judges**\
 `Benjamin Netanyahu, the Israeli prime minister, appears to have returned to the contentious judicial overhaul that divided the country before the war in Gaza.`\
 https://nytimes.com/2025/03/27/world/middleeast/israel-netanyahu-judges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233204/2025/03/27/lebron-james-pat-mcafee-stephen-
 **Sit, Stay, Say Goodbye**\
 `Volunteer “puppy raisers” are chipping away at a shortage of service dogs, one short-term adoption at a time.`\
 https://nytimes.com/slideshow/2025/03/27/well/sit-stay-say-goodbye.html
-
-**South Sudan’s Vice President Has Been Arrested, Party Says**\
-`The United Nations warned that the detention of Vice President Riek Machar threatens to push the world’s youngest country back into civil war.`\
-https://nytimes.com/2025/03/27/world/africa/south-sudan-vice-president-arrest-riek-machar.html
 
