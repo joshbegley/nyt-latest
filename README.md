@@ -1,40 +1,40 @@
-**View From the Floor**\
-`After appearing on “Maury” 25 years ago, a singer without legs questions why she’s seen as inspirational.`\
-https://nytimes.com/video/opinion/100000010031646/view-from-the-floor.html
+**Tigers at Dodgers: How to watch LA's Shohei Ohtani face Tarik Skubal on MLB's Opening Day**\
+`The Dodgers' Blake Snell faces off against Detroit's Tarik Skubal, and LA's starry squad takes the field with Shohei Ohtani.`\
+https://nytimes.com/athletic/6230766/2025/03/27/tigers-dodgers-mlb-how-to-watch/
 
-**Trump’s Punishing Tariffs Stun America’s Automaker Allies**\
-`Ignoring diplomatic efforts and investment pledges, President Trump said he would impose tariffs that are expected to deal a blow to American neighbors and allies in Asia.`\
-https://nytimes.com/2025/03/27/business/trump-tariffs-automakers-reaction.html
+**Bengals mock draft 1.0: Free agency shapes new path with multiple glaring needs**\
+`Cincinnati can't afford a best-player-available approach after failing to address particular spots in free agency.`\
+https://nytimes.com/athletic/6234110/2025/03/27/cincinnati-bengals-mock-draft-big-board/
 
-**Red Bull demote Liam Lawson for Yuki Tsunoda after two grands prix**\
-`New Zealander Lawson has been struggling to perform this season.`\
-https://nytimes.com/athletic/6230801/2025/03/27/liam-lawson-yuki-tsunoda-red-bull-japanese-grand-prix-f1/
+**Falcons NFL Draft big board: 3 tiers, 21 players and options for extra picks**\
+`The Falcons, who are set to pick 15th in the first round of April's draft, need lots of help. Trading down for more picks might make sense.`\
+https://nytimes.com/athletic/6233878/2025/03/27/falcons-2025-nfl-draft-big-board-options/
 
-**Rattled by Trump, America’s Allies Shift to Economic Defense Mode**\
-`The new auto tariffs are straining relations with U.S. allies and deepening doubts about America’s reliability as a partner.`\
-https://nytimes.com/2025/03/27/world/asia/tariffs-us-allies-trump.html
+**Patriots NFL Draft big board: 15 players they could target in Rounds 1-3**\
+`We examine some of the prospects at positions of need the Patriots are likely considering with their first three picks in the draft.`\
+https://nytimes.com/athletic/6230423/2025/03/27/patriots-nfl-draft-2025-big-board/
 
-**Trump Threatens Europe and Canada if They Band Together Against U.S.**\
-`In a late-night social media post, the president said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
-https://nytimes.com/2025/03/27/world/europe/trump-tariff-threat-canada-eu.html
+**Trump Is Coming for Every Pillar of the State**\
+`About that rule of law …`\
+https://nytimes.com/2025/03/27/opinion/trump-judges-congress.html
 
-**Why over 2.5 goals scored is the way to go in Premier League betting**\
-`Sam Tighe explores the three best Premier League teams to bet on when it comes to the over 2.5 goals scored market.`\
-https://nytimes.com/athletic/6232620/2025/03/27/premier-league-overs-scoring-markets-odds-predictions/
+**For a New Adventure, They Wanted a Home on the Sea. But How Much Does a Boat Cost?**\
+`After decades of nomadic land-based living, a couple decided to search for a fishing vessel that could take them on their next journey. How far would $350,000 go?`\
+https://nytimes.com/interactive/2025/03/27/realestate/yacht-trawler-boat-sale.html
 
-**Calmness, resilience and aggressive in-game decisions - how Arsenal stunned Real Madrid**\
-`Renee Slegers' side set up a Champions League semi-final meeting with Lyon after being 45 minutes away from elimination`\
-https://nytimes.com/athletic/6234257/2025/03/27/arsenal-women-real-madrid-champions-league-2/
+**Who Wants to Smell Like ‘American Psycho’?**\
+`Plus: long beaded necklaces, a floral designer’s book of unusual arrangements and more recommendations from T Magazine.`\
+https://nytimes.com/2025/03/27/t-magazine/american-psycho-perfume.html
 
-**A Baby and Pointing Fingers**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/03/27/learning/a-baby-and-pointing-fingers.html
+**Archaeologists Find Huge Tomb of Unknown Pharaoh in Egypt**\
+`The burial chamber most likely belonged to a ruler in a line of kings once lost to history, researchers said. “It’s a new chapter in investigating this dynasty.”`\
+https://nytimes.com/2025/03/27/world/africa/egypt-tomb-pharaoh-abydos.html
 
-**G.O.P.’s Push to Cut Federal Spending Places New York Budget in Limbo**\
-`State leaders no longer expect to get the $91 billion in federal aid they originally anticipated, but exactly how much they will get remains unknown as they try to pass a budget.`\
-https://nytimes.com/2025/03/27/nyregion/trump-budget-new-york.html
+**But Their Group Chats …**\
+`In Trump World, the rules apply only to other people.`\
+https://nytimes.com/2025/03/27/opinion/signal-group-chat-hypocrisy.html
 
-**Is Boogie Fland the Next Legendary New York City Point Guard?**\
-`In some ways, the prodigy now starring for Arkansas in the N.C.A.A. tournament is an urban basketball archetype. But this is not the same old story.`\
-https://nytimes.com/2025/03/27/nyregion/boogie-fland-nyc-basketball-point-guard.html
+**Signal Leak Bared U.S. Battle Aims in Yemen. But Defeating Houthis Won’t Be Easy.**\
+`U.S. officials seek to curb the militants’ attacks on ships in the Red Sea, but the group was not deterred by strikes in the Biden era and won’t be beaten by air power alone, experts say.`\
+https://nytimes.com/2025/03/27/world/middleeast/houthis-yemen-us-strikes-reality.html
 
