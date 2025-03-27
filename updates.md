@@ -1,3 +1,7 @@
+**ICE Agents Detain University of Alabama Doctoral Student**\
+`A spokeswoman for the school said the detainment occurred off campus, but it was not immediately clear why the student had been targeted.`\
+https://nytimes.com/2025/03/26/us/ice-detains-doctoral-student-university-alabama.html
+
 **Trump Administration Deflects Blame for Leak at Every Turn**\
 `President Trump and other officials have given shifting, varied, implausible and sometimes conflicting explanations for how highly sensitive military information was shared in a group chat.`\
 https://nytimes.com/2025/03/26/us/politics/signal-chat-military-plan-leak-trump.html
