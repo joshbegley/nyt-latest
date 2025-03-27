@@ -1,3 +1,7 @@
+**LeBron James, Lakers stun streaking Pacers in final seconds**\
+`In his third game back from injury, James made the game-winning tip, off a Luka Dončić miss, to defeat the Pacers 120-119.`\
+https://nytimes.com/athletic/6234743/2025/03/27/lakers-stun-pacers-in-final-seconds-lebron-james/
+
 **‘Right now, we have nothing’: Bruins are tanking with no end in sight**\
 `The Bruins are 0-4 so far on their five-game road trip after getting rolled by the Ducks on Wednesday.`\
 https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anaheim-ducks/
