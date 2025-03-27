@@ -1,3 +1,19 @@
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`Send in your questions, and Max may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6235349/2025/03/27/red-wings-mailbag-submissions-bultman/
+
+**Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
+`In a late-night social media post, President Trump said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
+https://nytimes.com/live/2025/03/27/business/trump-tariffs
+
+**This Progressive Congressman Wants to Take On JD Vance**\
+`Ro Khanna, who represents Silicon Valley, sees the vice president —  a likely heir to President Trump’s political movement — as a unique threat to the constitutional order.`\
+https://nytimes.com/2025/03/27/us/politics/ro-khanna-jd-vance-2028.html
+
+**E.P.A. Offers a Way to Avoid Clean-Air Rules: Send an Email**\
+`Invoking an obscure provision, it said power plants and others could write to ask for exemptions to mercury, arsenic and other restrictions and that “the president will make a decision.”`\
+https://nytimes.com/2025/03/27/climate/epa-air-pollution-exemption-mercury-coal-ash.html
+
 **Canucks compensate for Quinn Hughes, Jonathan Lekkerimäki’s potential: 3 takeaways**\
 `Plus: How Vancouver transformed its blue line, and a look at whether the recent scoring surge is sustainable.`\
 https://nytimes.com/athletic/6234643/2025/03/27/vancouver-canucks-jonathan-lekkerimaki/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
 **Five remaining options for Browns to secure a starting QB for 2025 season**\
 `We're four weeks from the NFL Draft and Cleveland doesn't have a starting QB on the roster. What options are still available?`\
 https://nytimes.com/athletic/6234172/2025/03/27/browns-quarterback-options-kirk-cousins-shedeur-sanders/
-
-**NBA All-Surprise Team: Norm Powell, Evan Mobley and other bright spots**\
-`The All-Surprise Team is for players like Norm Powell, who, to use his words, were “put in a box."`\
-https://nytimes.com/athletic/6234244/2025/03/27/nba-biggest-surprises-norm-powell-evan-mobley/
-
-**Michigan, Matt Weiss sued again by 2 more former athletes alleging account hack**\
-`The federal suit was filed Wednesday on behalf of two unnamed athletes — a volleyball player and a soccer player. Both played from 2020-24.`\
-https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
-
-**10,000 Federal Health Dept. Workers to Be Laid Off**\
-`The layoffs are part of a major restructuring at the health department, which now employs about 82,000 people.`\
-https://nytimes.com/2025/03/27/us/politics/health-department-job-layoffs-rfk-jr.html
-
-**Premier League announce extra summer transfer window due to Club World Cup**\
-`A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
-https://nytimes.com/athletic/6235193/2025/03/27/premier-league-transfer-window-club-world-cup/
 

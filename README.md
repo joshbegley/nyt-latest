@@ -1,3 +1,7 @@
+**Nottingham Forest Q&A: Wood injury, Nuno press conference, FA Cup glory?**\
+`Paul Taylor will be here to answer all of your Forest-related questions from 2.30pm`\
+https://nytimes.com/athletic/6234954/2025/03/27/nottingham-forest-qa-wood-injury-nuno-press-conference-fa-cup-glory/
+
 **Submit your Red Wings questions for Max Bultman's mailbag**\
 `Send in your questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/6235349/2025/03/27/red-wings-mailbag-submissions-bultman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-f
 **Flyers fire John Tortorella after 3 seasons, name Brad Shaw interim coach**\
 `Tortorella had been the Flyers' coach since 2022-23, going 97-107-33 with the rebuilding team.`\
 https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
-
-**Five remaining options for Browns to secure a starting QB for 2025 season**\
-`We're four weeks from the NFL Draft and Cleveland doesn't have a starting QB on the roster. What options are still available?`\
-https://nytimes.com/athletic/6234172/2025/03/27/browns-quarterback-options-kirk-cousins-shedeur-sanders/
 
