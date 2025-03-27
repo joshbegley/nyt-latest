@@ -1,3 +1,11 @@
+**Did the Flyers wait too long to fire John Tortorella — or did he lay a foundation for success?**\
+`The Flyers had a chance to cut Tortorella loose two years ago but stayed with him.`\
+https://nytimes.com/athletic/6236104/2025/03/27/tortorella-fired-flyers-coach/
+
+**Trump Challenges California on Transgender Parental Notification**\
+`The Trump administration will investigate whether a new California law banning parental notification requirements in schools violates federal policy.`\
+https://nytimes.com/2025/03/27/us/trump-california-transgender-parental-notification.html
+
 **Titans switching to 'Titans blue' color on primary home jerseys**\
 `The Titans will cease wearing Oilers throwback jerseys, at least in 2025, while focusing on their new primary color, "Titans blue."`\
 https://nytimes.com/athletic/6236124/2025/03/27/tennessee-titans-nfl-uniform-change-blue/
