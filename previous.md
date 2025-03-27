@@ -1,3 +1,15 @@
+**Rattled by Trump, America’s Allies Shift to Defense Mode**\
+`The new auto tariffs are straining relations with U.S. allies and deepening doubts about America’s reliability as a partner.`\
+https://nytimes.com/2025/03/27/world/asia/tariffs-us-allies-trump.html
+
+**Trump Threatens Europe and Canada if They Band Together Against U.S.**\
+`In a late-night social media post, the president said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
+https://nytimes.com/2025/03/27/world/europe/trump-tariff-threat-canada-eu.html
+
+**Why over 2.5 goals scored is the way to go in Premier League betting**\
+`Sam Tighe explores the three best Premier League teams to bet on when it comes to the over 2.5 goals scored market.`\
+https://nytimes.com/athletic/6232620/2025/03/27/premier-league-overs-scoring-markets-odds-predictions/
+
 **Calmness, resilience and aggressive in-game decisions - how Arsenal stunned Real Madrid**\
 `Renee Slegers' side set up a Champions League semi-final meeting with Lyon after being 45 minutes away from elimination`\
 https://nytimes.com/athletic/6234257/2025/03/27/arsenal-women-real-madrid-champions-league-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6234607/2025/03/27/nuggets-win-bucks-nikola-jokic/
 **Late Night Can’t Quit the Group Chat**\
 `“This operation was about as secretive as a Fortnite Twitch stream,” Jimmy Kimmel said of U.S. officials’ leaked discussion of a plan to attack Yemen.`\
 https://nytimes.com/2025/03/27/arts/television/late-night-signal-chat-group.html
-
-**LeBron James, Lakers stun streaking Pacers in final seconds**\
-`In his third game back from injury, James made the game-winning tip, off a Luka Dončić miss, to defeat the Pacers 120-119.`\
-https://nytimes.com/athletic/6234743/2025/03/27/lakers-stun-pacers-in-final-seconds-lebron-james/
-
-**‘Right now, we have nothing’: Bruins are tanking with no end in sight**\
-`The Bruins are 0-4 so far on their five-game road trip after getting rolled by the Ducks on Wednesday.`\
-https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anaheim-ducks/
-
-**Word of the Day: quizzical**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/03/27/learning/word-of-the-day-quizzical.html
 

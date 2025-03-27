@@ -1,3 +1,15 @@
+**Rattled by Trump, America’s Allies Shift to Defense Mode**\
+`The new auto tariffs are straining relations with U.S. allies and deepening doubts about America’s reliability as a partner.`\
+https://nytimes.com/2025/03/27/world/asia/tariffs-us-allies-trump.html
+
+**Trump Threatens Europe and Canada if They Band Together Against U.S.**\
+`In a late-night social media post, the president said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
+https://nytimes.com/2025/03/27/world/europe/trump-tariff-threat-canada-eu.html
+
+**Why over 2.5 goals scored is the way to go in Premier League betting**\
+`Sam Tighe explores the three best Premier League teams to bet on when it comes to the over 2.5 goals scored market.`\
+https://nytimes.com/athletic/6232620/2025/03/27/premier-league-overs-scoring-markets-odds-predictions/
+
 **Calmness, resilience and aggressive in-game decisions - how Arsenal stunned Real Madrid**\
 `Renee Slegers' side set up a Champions League semi-final meeting with Lyon after being 45 minutes away from elimination`\
 https://nytimes.com/athletic/6234257/2025/03/27/arsenal-women-real-madrid-champions-league-2/
