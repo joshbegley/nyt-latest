@@ -1,3 +1,19 @@
+**Premier League announce extra summer transfer window due to Club World Cup**\
+`A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
+https://nytimes.com/athletic/6235193/2025/03/27/premier-league-transfer-window-club-world-cup/
+
+**The 2024 Mets elevated the standard, but the 2025 Mets must carry it**\
+`The Mets raised expectations and, as one player put it: "Knowing you have a real shot to win the championship is what you want to play for."`\
+https://nytimes.com/athletic/6234180/2025/03/27/mets-opening-day-expectations/
+
+**For John Green, It’s Tuberculosis All the Way Down**\
+`The best-selling author chatted with The Times’s global health reporter about the past, present and troubling future of the world’s deadliest infectious disease.`\
+https://nytimes.com/2025/03/27/health/john-green-tuberculosis.html
+
+**MLB, cable companies reach deal to broadcast Twins games**\
+`The league came to agreements with Xfinity, DirecTV and FUBO in time for Opening Day.`\
+https://nytimes.com/athletic/6232664/2025/03/27/mlb-twins-games-broadcast-cable/
+
 **Deadly Wildfires Destroy Historic Landmarks in South Korea**\
 `Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
 https://nytimes.com/video/world/asia/100000010075934/deadly-wildfires-destroy-historic-landmarks-in-south-korea.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6234826/2025/03/27/oilers-corey-perry-stuart-skinne
 **Dozens of Engaging Ways to Make Media Literacy Meaningful to Teenagers**\
 `This collection of interactive exercises uses Times resources to help young people find the news that matters to them, understand how it’s made, connect it to their lives — and make media of their own.`\
 https://nytimes.com/2025/03/27/learning/media-literacy-teenagers.html
-
-**How Important Is a Free Press to Our Democracy? Is It Under Threat?**\
-`The new Trump administration has attacked the news media in ways that are markedly different from those of previous presidents. Have you been following this news?`\
-https://nytimes.com/2025/03/27/learning/how-important-is-a-free-press-to-our-democracy-is-it-under-threat.html
-
-**Meet Doug Berns, the 'Weird Al' Yankovic of Knicks fandom**\
-`Doug Berns has gone viral making Knicks parody songs and videos. The lifelong musician and basketball lover has found his niche.`\
-https://nytimes.com/athletic/6226836/2025/03/27/ny-knicks-fan-weird-al-yankovic-doug-berns/
-
-**Chargers mock NFL Draft 2.0: Offensive weapons in the first 2 rounds**\
-`Colston Loveland's connection with Jim Harbaugh is obvious, but he also would help fill a big role on the Chargers.`\
-https://nytimes.com/athletic/6233977/2025/03/27/chargers-mock-nfl-draft-colston-loveland/
-
-**How the Blue Jackets landed a 'main target' college free agent, who headed straight to the NHL**\
-`Jack Williams, a center from Northeastern, has received high praise from Rick Nash.`\
-https://nytimes.com/athletic/6234027/2025/03/27/blue-jackets-jack-williams-college/
 
