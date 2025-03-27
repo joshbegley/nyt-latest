@@ -1,8 +1,12 @@
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`Send in your questions, and Max may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6235349/2025/03/27/red-wings-mailbag-submissions-bultman/
+
 **Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
 `In a late-night social media post, President Trump said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
 https://nytimes.com/live/2025/03/27/business/trump-tariffs
 
-**This Progressive Democratic Congressman Wants to Take On JD Vance**\
+**This Progressive Congressman Wants to Take On JD Vance**\
 `Ro Khanna, who represents Silicon Valley, sees the vice president —  a likely heir to President Trump’s political movement — as a unique threat to the constitutional order.`\
 https://nytimes.com/2025/03/27/us/politics/ro-khanna-jd-vance-2028.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
 **Five remaining options for Browns to secure a starting QB for 2025 season**\
 `We're four weeks from the NFL Draft and Cleveland doesn't have a starting QB on the roster. What options are still available?`\
 https://nytimes.com/athletic/6234172/2025/03/27/browns-quarterback-options-kirk-cousins-shedeur-sanders/
-
-**NBA All-Surprise Team: Norm Powell, Evan Mobley and other bright spots**\
-`The All-Surprise Team is for players like Norm Powell, who, to use his words, were “put in a box."`\
-https://nytimes.com/athletic/6234244/2025/03/27/nba-biggest-surprises-norm-powell-evan-mobley/
 
