@@ -1,3 +1,7 @@
+**Miami Open postpones Djokovic-Korda match to prevent late finish**\
+`A three-set match would have caused the players to not get to bed until as late — or early — as 5 a.m. `\
+https://nytimes.com/athletic/6234665/2025/03/27/miami-open-postpone-djokovic-korda/
+
 **European Leaders to Try to Hammer Out Ukraine Support Plans**\
 `Over 30 officials are expected in Paris for the gathering. But who is willing to do what in this coalition is still unclear.`\
 https://nytimes.com/2025/03/27/world/europe/european-leaders-ukraine-support.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234410/2025/03/26/blackhawks-penalties-levshunov-s
 **Alysa Liu left figure skating at 16. Now she's back and in position for a major win**\
 `Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
 https://nytimes.com/athletic/6234474/2025/03/26/alysa-liu-figure-skating-world-championships/
-
-**LeBron James tips in buzzer beater; Lakers narrowly escape Pacers**\
-`James tipped in a rebound as time expired, giving the Lakers a 120-119 road win over the Pacers.`\
-https://nytimes.com/athletic/6234526/2025/03/26/lebron-james-buzzer-beater-lakers-pacers/
 

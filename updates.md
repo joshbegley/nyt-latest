@@ -1,3 +1,7 @@
+**Miami Open postpones Djokovic-Korda match to prevent late finish**\
+`A three-set match would have caused the players to not get to bed until as late — or early — as 5 a.m. `\
+https://nytimes.com/athletic/6234665/2025/03/27/miami-open-postpone-djokovic-korda/
+
 **European Leaders to Try to Hammer Out Ukraine Support Plans**\
 `Over 30 officials are expected in Paris for the gathering. But who is willing to do what in this coalition is still unclear.`\
 https://nytimes.com/2025/03/27/world/europe/european-leaders-ukraine-support.html
