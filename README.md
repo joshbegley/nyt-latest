@@ -1,3 +1,11 @@
+**Turkey Deports BBC Reporter Who Covered Mass Protests**\
+`Mark Lowen was detained in Istanbul after reporting on unrest prompted by the arrest of a rival of President Recep Tayyip Erdogan, the broadcaster said.`\
+https://nytimes.com/2025/03/27/world/europe/turkey-protests-bbc-reporter-lowen-deported.html
+
+**Musk targeted FEMA. Storm-battered communities are paying a price.**\
+`By Christopher Flavelle, Eduardo Medina and Luis Ferré-Sadurní`\
+https://nytimes.com/live/2025/03/27/us/trump-news/musk-targeted-fema-storm-battered-communities-are-paying-a-price
+
 **Liga F plans to introduce 'cost-effective' VAR Football Video Support**\
 `The Spanish Football Federation (RFEF) has announced plans to implement FVS into Liga F for the 2025-26 season.`\
 https://nytimes.com/athletic/6235369/2025/03/27/liga-f-football-video-support/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/ro-khanna-jd-vance-2028.html
 **E.P.A. Offers a Way to Avoid Clean-Air Rules: Send an Email**\
 `Invoking an obscure provision, it said power plants and others could write to ask for exemptions to mercury, arsenic and other restrictions and that “the president will make a decision.”`\
 https://nytimes.com/2025/03/27/climate/epa-air-pollution-exemption-mercury-coal-ash.html
-
-**Canucks compensate for Quinn Hughes, Jonathan Lekkerimäki’s potential: 3 takeaways**\
-`Plus: How Vancouver transformed its blue line, and a look at whether the recent scoring surge is sustainable.`\
-https://nytimes.com/athletic/6234643/2025/03/27/vancouver-canucks-jonathan-lekkerimaki/
-
-**The Truth About F. Scott Fitzgerald’s Drunken Brawl in Rome**\
-`Biographers took an account of a scuffle in “Tender Is the Night” as a record of a real-life event. But uncovered documents suggest Fitzgerald may have behaved worse than he wrote.`\
-https://nytimes.com/2025/03/27/books/f-scott-fitzgerald-rome-arrest-1924.html
 

@@ -1,3 +1,7 @@
+**Liga F plans to introduce 'cost-effective' VAR Football Video Support**\
+`The Spanish Football Federation (RFEF) has announced plans to implement FVS into Liga F for the 2025-26 season.`\
+https://nytimes.com/athletic/6235369/2025/03/27/liga-f-football-video-support/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6235165/2025/03/27/ask-ornstein-qa-our-football-insider-answers-your-questions-22/
