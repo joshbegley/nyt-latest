@@ -1,3 +1,11 @@
+**Kent State places coach Kenni Burns on administrative leave**\
+`Kent State said offensive coordinator Mark Carney will direct on-field activities at this time.`\
+https://nytimes.com/athletic/6236944/2025/03/27/kenni-burns-administrative-leave-kent-state/
+
+**A Disregard for the Rules Trickles Down From Trump to His Aides**\
+`Many of the people serving in the administration do not have decades of experience in government, or deep knowledge of its rules and why they exist, former officials say.`\
+https://nytimes.com/2025/03/27/us/politics/trump-documents-signal-leak.html
+
 **Olmo suffers groin injury as Barcelona beat Osasuna 3-0 in La Liga return**\
 `The 26-year-old scored Barcelona’s second goal from the penalty spot but went down injured soon after and was unable to continue.`\
 https://nytimes.com/athletic/6236897/2025/03/27/barcelona-osasuna-la-liga-dani-olmo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
 **Under Pressure, Psychology Accreditation Board Suspends Diversity Standards**\
 `As the Trump administration threatens to strip accrediting bodies of their power, many are scrambling to purge diversity requirements.`\
 https://nytimes.com/2025/03/27/health/psychology-dei-apa-trump.html
-
-**Bree and Chuck West on Art Imitating Life**\
-`The film and TV producers champion the importance of family, at home and in the media.`\
-https://nytimes.com/interactive/2025/03/28/realestate/bree-chuck-west-potomac-maryland-house.html
-
-**Selena’s Killer Is Denied Parole 30 Years After Murder**\
-`The Tejano music icon was fatally shot by the founder of her fan club, who has been serving a life sentence in Texas. On Thursday, a panel denied her first attempt at parole.`\
-https://nytimes.com/2025/03/27/us/selena-murder-yolanda-saldivar-parole.html
 
