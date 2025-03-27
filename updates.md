@@ -1,3 +1,7 @@
+**Helping Digital Natives Overcome Digital Naïveté: Four Steps to Media Literacy**\
+`Advice from an English teacher in Massachusetts for guiding teenagers to think critically but not cynically about the information they consume.`\
+https://nytimes.com/2025/03/27/learning/helping-digital-natives-overcome-digital-naivete-four-steps-to-media-literacy.html
+
 **The 3.30.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/03/27/the-33025-issue
