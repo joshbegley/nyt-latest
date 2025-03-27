@@ -1,40 +1,40 @@
-**How to watch No. 1 Florida vs. No. 4 Maryland in men's Sweet 16**\
-`No. 1 seed Florida aims to take its next step toward the title, while Maryland aims to bust some brackets. `\
-https://nytimes.com/athletic/6228136/2025/03/27/florida-maryland-mens-ncaa-tournament-sweet-16-how-to-watch/
+**MLB in 2025: The numbers that define baseball, from 1.96 to 41 to 1.44 billion**\
+`They’re not just numerals on a page. The best numbers tell us stories, give us insight, help us make sense of a fascinating sport.`\
+https://nytimes.com/athletic/6234375/2025/03/27/mlb-2025-season-numbers-facts/
 
-**Four Ravens free-agency takeaways: What could come next as NFL Draft nears?**\
-`We are two weeks into the new league year, but there are still a few big-ticket items Baltimore's decision-makers figure to address. `\
-https://nytimes.com/athletic/6233631/2025/03/27/ravens-free-agency-takeaways-nfl-draft/
+**The brothers Bednar: A baseball family and two fairy-tale careers at crossroads**\
+`David, 30, is coming off the worst season of his career. Will, 24, has been besieged by injuries. But they haven’t lost hope.`\
+https://nytimes.com/athletic/6225907/2025/03/27/david-bednar-pirates-will-bednar-giants-mlb/
 
-**Lions draft big board: Best options at edge and other positions of need**\
-`The Lions are likely to address the edge position in the draft.`\
-https://nytimes.com/athletic/6234023/2025/03/27/detroit-lions-big-board-best-options-edge/
+**Inside the pitch design process that fuels the Mets' rotation**\
+`Clay Holmes looked like he passed the test this spring, allowing just two runs with 23 strikeouts over 19 1/3 innings. `\
+https://nytimes.com/athletic/6233066/2025/03/27/mets-rotation-clay-holmes-repertoire/
 
-**The New York Times International Edition in Print for Friday, March 28, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/03/27/todays-new-york-times-international-edition
+**Charting Shedeur Sanders: What numbers say about star's 2025 NFL Draft outlook**\
+`Cam Ward looks like QB1 in this class, which puts Shedeur Sanders at QB2. Does his game make him worthy of that billing?`\
+https://nytimes.com/athletic/6232135/2025/03/27/shedeur-sanders-2025-nfl-draft-stats-film-numbers/
 
-**Listen: ‘A Turning Point for Ultraprocessed Foods’**\
-`How concerned should we be about these ubiquitous foods — a category that includes many sodas, processed meats, breakfast cereals and snacks?`\
-https://nytimes.com/2025/03/27/learning/listen-a-turning-point-for-ultraprocessed-foods.html
+**Why Florida guard Walter Clayton Jr. is being compare to Steph Curry**\
+`As Florida prepares to play in "The House That Steph Built," Clayton Jr.'s range and off-the-dribble shooting prowess reminds some of Curry.`\
+https://nytimes.com/athletic/6234113/2025/03/27/florida-gators-march-madness-walter-clayton-jr-steph-curry/
 
-**Here are the upset odds for last remaining NCAA Tournament longshot Arkansas**\
-`The Razorbacks are the only clear Cinderella left in the NCAA Tournament. Can Arkansas keep the fairy tale alive or will Texas Tech advance?`\
-https://nytimes.com/athletic/6233050/2025/03/27/arkansas-texas-tech-ncaa-tournament-underdogs-cinderella-bracket-breakers/
+**How the sports bra continues to revolutionize sports and women's rights**\
+`The concept has been around since the 1970s but in-depth sports bra research has only really progressed in the past decade`\
+https://nytimes.com/athletic/6214668/2025/03/27/history-sports-bra/
 
-**Tigers at Dodgers: How to watch LA's Shohei Ohtani face Tarik Skubal on MLB's Opening Day**\
-`The Dodgers' Blake Snell faces off against Detroit's Tarik Skubal, and LA's starry squad takes the field with Shohei Ohtani.`\
-https://nytimes.com/athletic/6230766/2025/03/27/tigers-dodgers-mlb-how-to-watch/
+**New York Jets big board: Ranking their most likely first-round draft targets**\
+`A look at the Jets' options with the seventh overall pick.`\
+https://nytimes.com/athletic/6229394/2025/03/27/new-york-jets-first-round-draft-prospects/
 
-**Bengals mock draft 1.0: Free agency shapes new path with multiple glaring needs**\
-`Cincinnati can't afford a best-player-available approach after failing to address particular spots in free agency.`\
-https://nytimes.com/athletic/6234110/2025/03/27/cincinnati-bengals-mock-draft-big-board/
+**What to expect from the Top 100 and 'Just Missed' prospects on MLB Opening Day rosters**\
+`Eleven players from Law's Top 100 and 'Just Missed' prospect lists are opening the season on MLB rosters. What's their 2025 outlook?`\
+https://nytimes.com/athletic/6233143/2025/03/27/mlb-top-prospects-opening-day-rosters-outlook/
 
-**Falcons NFL Draft big board: 3 tiers, 21 players and options for extra picks**\
-`The Falcons, who are set to pick 15th in the first round of April's draft, need lots of help. Trading down for more picks might make sense.`\
-https://nytimes.com/athletic/6233878/2025/03/27/falcons-2025-nfl-draft-big-board-options/
+**Why the Red Sox will exceed expectations and make the World Series**\
+`The Red Sox failed to make the playoffs in 2024 and haven't been to the World Series since 2018, but our experts see that changing in 2025.`\
+https://nytimes.com/athletic/6233652/2025/03/27/red-sox-world-series-prediction/
 
-**Patriots NFL Draft big board: 15 players they could target in Rounds 1-3**\
-`We examine some of the prospects at positions of need the Patriots are likely considering with their first three picks in the draft.`\
-https://nytimes.com/athletic/6230423/2025/03/27/patriots-nfl-draft-2025-big-board/
+**Rosenthal's top 12 storylines for the 2025 MLB season: A potential Dodger dynasty, Juan Soto's worth and more**\
+`Plus a wide open AL East, the plight of three aging aces and a "39th annual dumb World Series prediction."`\
+https://nytimes.com/athletic/6232629/2025/03/27/mlb-season-storylines-opening-day-2025/
 
