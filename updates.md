@@ -1,3 +1,11 @@
+**Auburn basketball’s first family: ‘Tears, work, love’ and an apprentice coming into his own**\
+`There is no official coach-in-waiting plan in place, but it's clear that Bruce would like Steven to be Auburn's next head coach. `\
+https://nytimes.com/athletic/6233880/2025/03/27/auburn-basketball-steven-pearl-bruce-pearl/
+
+**Here’s the latest.**\
+`By River Akira Davis, Emiliano Rodríguez Mega, Ian Austen and Jeanna Smialek`\
+https://nytimes.com/live/2025/03/27/business/trump-tariffs/heres-the-latest
+
 **Rudiger, Mbappe, Ceballos, Vinicius Jr investigated for alleged indecent conduct**\
 `The players are alleged to have made gestures towards Atletico supporters following Madrid's penalty shootout victory over their rivals.`\
 https://nytimes.com/athletic/6235676/2025/03/27/real-madrid-uefa-investigation-atletico/
