@@ -1,3 +1,11 @@
+**It’s Gatsby’s World, We Just Live in It**\
+`F. Scott Fitzgerald’s classic novel turns 100 this year. What does its hero tell us about how we see ourselves?`\
+https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
+
+**16-Year-Old Is Charged With Hate Crimes in Gang Assault on Black Teen**\
+`The suspect was part of a group that attacked a Black 16-year-old who was on his way to school at a subway station in Brooklyn, the police said.`\
+https://nytimes.com/2025/03/27/nyregion/hate-crime-brooklyn-subway-attack.html
+
 **Kent State places coach Kenni Burns on administrative leave**\
 `Kent State said offensive coordinator Mark Carney will direct on-field activities at this time.`\
 https://nytimes.com/athletic/6236944/2025/03/27/kenni-burns-administrative-leave-kent-state/

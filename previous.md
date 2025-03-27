@@ -1,3 +1,11 @@
+**It’s Gatsby’s World, We Just Live in It**\
+`F. Scott Fitzgerald’s classic novel turns 100 this year. What does its hero tell us about how we see ourselves?`\
+https://nytimes.com/interactive/2025/03/27/books/great-gatsby-100.html
+
+**16-Year-Old Is Charged With Hate Crimes in Gang Assault on Black Teen**\
+`The suspect was part of a group that attacked a Black 16-year-old who was on his way to school at a subway station in Brooklyn, the police said.`\
+https://nytimes.com/2025/03/27/nyregion/hate-crime-brooklyn-subway-attack.html
+
 **Kent State places coach Kenni Burns on administrative leave**\
 `Kent State said offensive coordinator Mark Carney will direct on-field activities at this time.`\
 https://nytimes.com/athletic/6236944/2025/03/27/kenni-burns-administrative-leave-kent-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportati
 **Clive Revill, Original Voice of Emperor Palpatine in ‘Star Wars,’ Dies at 94**\
 `His voice can be heard for only a minute in “The Empire Strikes Back,” but it provided the first draft of a character that would be a mainstay of the franchise for decades.`\
 https://nytimes.com/2025/03/27/movies/clive-revill-star-wars-dead.html
-
-**Rock Royalty Serenade Patti Smith at Carnegie Hall**\
-`Celebrated artists and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
-https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
-
-**Under Pressure, Psychology Accreditation Board Suspends Diversity Standards**\
-`As the Trump administration threatens to strip accrediting bodies of their power, many are scrambling to purge diversity requirements.`\
-https://nytimes.com/2025/03/27/health/psychology-dei-apa-trump.html
 
