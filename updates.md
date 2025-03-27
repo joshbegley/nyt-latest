@@ -1,3 +1,7 @@
+**Nottingham Forest Q&A: Wood injury, Nuno press conference, FA Cup glory?**\
+`Paul Taylor will be here to answer all of your Forest-related questions from 2.30pm`\
+https://nytimes.com/athletic/6234954/2025/03/27/nottingham-forest-qa-wood-injury-nuno-press-conference-fa-cup-glory/
+
 **Submit your Red Wings questions for Max Bultman's mailbag**\
 `Send in your questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/6235349/2025/03/27/red-wings-mailbag-submissions-bultman/
