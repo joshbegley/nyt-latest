@@ -1,3 +1,7 @@
+**Algerian French Writer Is Sentenced to 5-Year Prison Term in Algeria**\
+`The prosecution of Boualem Sansal, who is around 80, prompted outrage from the global literary community and pleas from France for his release.`\
+https://nytimes.com/2025/03/27/world/africa/algeria-boualem-sansal-prison-france.html
+
 **Leonard Polonsky, Philanthropist Who Supported the Arts, Dies at 97**\
 `After making a fortune in financial services, he funded the arts and made historical artifacts and documents widely available to the public.`\
 https://nytimes.com/2025/03/27/arts/leonard-polonsky-dead.html

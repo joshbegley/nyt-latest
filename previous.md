@@ -1,3 +1,7 @@
+**Algerian French Writer Is Sentenced to 5-Year Prison Term in Algeria**\
+`The prosecution of Boualem Sansal, who is around 80, prompted outrage from the global literary community and pleas from France for his release.`\
+https://nytimes.com/2025/03/27/world/africa/algeria-boualem-sansal-prison-france.html
+
 **Leonard Polonsky, Philanthropist Who Supported the Arts, Dies at 97**\
 `After making a fortune in financial services, he funded the arts and made historical artifacts and documents widely available to the public.`\
 https://nytimes.com/2025/03/27/arts/leonard-polonsky-dead.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6236124/2025/03/27/tennessee-titans-nfl-uniform-cha
 **Madrid and Zubimendi? Man Utd's financial strength for summer transfers? - Ask Ornstein**\
 `We ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A - here are David's favourite questions and answers`\
 https://nytimes.com/athletic/6235714/2025/03/27/real-madrid-transfer-latest-arsenal-martin-zubimendi-manchester-united/
-
-**'The Rental Car 500': NASCAR drivers plus borrowed cars often equals mischief**\
-`NASCAR drivers have a long history of rental-car shenanigans, from on-track "races" to off-track exploits.`\
-https://nytimes.com/athletic/6234619/2025/03/27/nascar-drivers-rental-cars-racing/
 
