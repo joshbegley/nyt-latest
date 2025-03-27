@@ -1,3 +1,15 @@
+**Could Iraola's tactics work at a bigger club - and would Spurs have the patience for change?**\
+`Iraola, Thomas Frank and Marco Silva are all Premier League-proven coaches - but they don't necessarily fit 'the Tottenham way'`\
+https://nytimes.com/athletic/6215137/2025/03/27/andoni-iraola-tactics-silva-frank-tottenham/
+
+**Penn names ex-Iowa coach Fran McCaffery as next men's basketball coach**\
+`In 29 seasons, McCaffery has a 548-384 overall record with NCAA Tournament (6-12 record) stops at Lehigh, UNC Greensboro, Siena and Iowa.`\
+https://nytimes.com/athletic/6235917/2025/03/27/penn-fran-mccaffery-mens-basketball-coach/
+
+**Cleveland Guardians Tanner Bibee will miss Opening Day start due to illness**\
+`Ben Lively will take the ball against the Royals and their ace, Cole Ragans, on Thursday. `\
+https://nytimes.com/athletic/6236012/2025/03/27/cleveland-guardians-tanner-bibee-will-miss-first-opening-day-start-due-to-illness/
+
 **Cleveland Guardians Tanner Bibee will miss Opening Day start due to illness**\
 `Ben Lively will take the ball against the Royals and their ace, Cole Ragans on Thursday. `\
 https://nytimes.com/athletic/6236012/2025/03/27/cleveland-guardians-tanner-bibee-will-miss-first-opening-day-start-due-to-illness/
