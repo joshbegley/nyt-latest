@@ -1,3 +1,7 @@
+**For 3 Years, They Quietly Dug Up One of the Biggest Treasures in England**\
+`Archaeologists can finally publicly discuss the Melsonby Hoard, a collection of Iron Age artifacts that they have been excavating since a metal detectorist found it in 2021.`\
+https://nytimes.com/2025/03/27/world/europe/melsonby-iron-age-find-uk.html
+
 **Warner Bros. Renaissance Remains a Waiting Game**\
 `David Zaslav promised to revive the storied film studio when he took over Warner Bros. Discovery. That was three years ago.`\
 https://nytimes.com/2025/03/27/business/warner-bros-david-zaslav.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/dining/how-to-eat-more-fish.html
 **Jazzed About Abstraction: Jack Whitten’s Show Is a Peak MoMA Moment**\
 `Over nearly six decades, this fantastically inventive artist experimented with paint, turning it into a sculptural medium. Our critic calls his survey “scintillating and sweeping.”`\
 https://nytimes.com/2025/03/27/arts/design/jack-whitten-moma-review-museum.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`A new take on Wynton Marsalis’s “Blues Symphony,” a piano cycle by Gregory Spears and Rosa Feola’s solo debut are among the highlights.`\
-https://nytimes.com/2025/03/27/arts/music/classical-music-albums-march.html
 
