@@ -1,3 +1,7 @@
+**Former Iowa star Owen Freeman transfers to Creighton**\
+`Freeman started 19 games and averaged 16.7 points and 6.7 rebounds to lead the Hawkeyes in both categories this season.`\
+https://nytimes.com/athletic/6234333/2025/03/26/owen-freeman-transfer-creighton-iowa/
+
 **Colorado State promotes NCAA Tourney legend Ali Farokmanesh to head coach**\
 `Farokhmanesh, who famously drained a three-pointer to help Northern Iowa upset Kansas in 2010, succeeds Niko Medved.`\
 https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-head-coach-ali-farokhmanesh-march-madness/
