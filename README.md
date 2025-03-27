@@ -1,3 +1,7 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6235165/2025/03/27/ask-ornstein-qa-our-football-insider-answers-your-questions-22/
+
 **Liverpool planning for next season with Quansah**\
 `The centre-back remains a big part of head coach Arne Slot's plans.`\
 https://nytimes.com/athletic/6235296/2025/03/27/jarell-quansah-liverpool-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/books/f-scott-fitzgerald-rome-arrest-1924.html
 **The Bounce: A message to Giannis Antetokounmpo, Shai Gilgeous-Alexander: Admit you want MVP!**\
 `It seems this season's NBA MVP candidates are playing humble about wanting the award. Zach Harper explains why this should change.`\
 https://nytimes.com/athletic/6235128/2025/03/27/giannis-antetokounmpo-shai-gilgeous-alexander-nikola-jokic-bucks-thunder-thunder-nba-mvp-the-bounce/
-
-**A net-front lesson with Canadiens' Juraj Slafkovský**\
-`Martin St. Louis believes Slafkovský can become one of the best net-front players in the NHL, but it will be a process getting there.`\
-https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-front-power-play/
 

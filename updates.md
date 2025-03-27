@@ -1,3 +1,7 @@
+**Liverpool planning for next season with Quansah**\
+`The centre-back remains a big part of head coach Arne Slot's plans.`\
+https://nytimes.com/athletic/6235296/2025/03/27/jarell-quansah-liverpool-future/
+
 **Nottingham Forest Q&A: Wood injury, Nuno press conference, FA Cup glory?**\
 `Paul Taylor will be here to answer all of your Forest-related questions from 2.30pm`\
 https://nytimes.com/athletic/6234954/2025/03/27/nottingham-forest-qa-wood-injury-nuno-press-conference-fa-cup-glory/
