@@ -1,3 +1,11 @@
+**‘Right now, we have nothing’: Bruins are tanking with no end in sight**\
+`The Bruins are 0-4 so far on their five-game road trip after getting rolled by the Ducks on Wednesday.`\
+https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anaheim-ducks/
+
+**Word of the Day: quizzical**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/27/learning/word-of-the-day-quizzical.html
+
 **West Ham squad audit: Assessing the future of every member of Graham Potter's squad**\
 `The Athletic runs the rule over every member of the West Ham squad`\
 https://nytimes.com/athletic/6226373/2025/03/27/west-ham-squad-audit-graham-potter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6210144/2025/03/27/football-india-popularity-super-
 **What Manchester United pay their players and what Sir Jim Ratcliffe's comments say of their transfer plans**\
 `Sir Jim Ratcliffe said that "50 per cent" of Manchester United's best paid players are not available, this is who and what he meant`\
 https://nytimes.com/athletic/6233414/2025/03/27/manchester-united-player-salaries-transfers/
-
-**Meet the talented Mr Johnston - a footballer like no other**\
-`The ex-Liverpool midfielder - and football boot engineer, game show creator and musician - reveals why he is just getting started`\
-https://nytimes.com/athletic/6232206/2025/03/27/craig-johnston-liverpool-predator-interview/
-
-**Footballs, and why managers should be allowed to complain about them**\
-`Pep Guardiola and Mikel Arteta have both pointed out the behaviour of different balls this season, and it shouldn't be tutted at`\
-https://nytimes.com/athletic/6221446/2025/03/27/guardiola-arteta-footballs-behaviour/
 
