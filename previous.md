@@ -1,3 +1,23 @@
+**Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
+``\
+https://nytimes.com/live/2025/03/27/us/trump-tariffs-news
+
+**The Pulse: LeBron James' truly bizarre day**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6233204/2025/03/27/lebron-james-pat-mcafee-stephen-a-smith-the-pulse/
+
+**Sit, Stay, Say Goodbye**\
+`Volunteer “puppy raisers” are chipping away at a shortage of service dogs, one short-term adoption at a time.`\
+https://nytimes.com/slideshow/2025/03/27/well/sit-stay-say-goodbye.html
+
+**South Sudan’s Vice President Has Been Arrested, Party Says**\
+`The United Nations warned that the detention of Vice President Riek Machar threatens to push the world’s youngest country back into civil war.`\
+https://nytimes.com/2025/03/27/world/africa/south-sudan-vice-president-arrest-riek-machar.html
+
+**How to watch No. 1 Duke vs. No. 4 Arizona in the men's Sweet 16**\
+`Duke takes on Arizona in the Sweet 16 in a late start in Newark. The top-seeded Blue Devils are favored to advance.`\
+https://nytimes.com/athletic/6227581/2025/03/27/duke-arizona-mens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Auto Stocks Tumble as Investors Assess Hit From Trump’s Tariffs**\
 `The U.S. levies are likely to disrupt the complex supply chains of major carmakers, hitting companies that export vehicles from Mexico, Canada Japan, South Korea and Germany.`\
 https://nytimes.com/2025/03/27/business/auto-trump-tariffs-stocks-futures.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6234375/2025/03/27/mlb-2025-season-numbers-facts/
 **The brothers Bednar: A baseball family and two fairy-tale careers at crossroads**\
 `David, 30, is coming off the worst season of his career. Will, 24, has been besieged by injuries. But they haven’t lost hope.`\
 https://nytimes.com/athletic/6225907/2025/03/27/david-bednar-pirates-will-bednar-giants-mlb/
-
-**Inside the pitch design process that fuels the Mets' rotation**\
-`Clay Holmes looked like he passed the test this spring, allowing just two runs with 23 strikeouts over 19 1/3 innings. `\
-https://nytimes.com/athletic/6233066/2025/03/27/mets-rotation-clay-holmes-repertoire/
-
-**Charting Shedeur Sanders: What numbers say about star's 2025 NFL Draft outlook**\
-`Cam Ward looks like QB1 in this class, which puts Shedeur Sanders at QB2. Does his game make him worthy of that billing?`\
-https://nytimes.com/athletic/6232135/2025/03/27/shedeur-sanders-2025-nfl-draft-stats-film-numbers/
-
-**Why Florida guard Walter Clayton Jr. is being compare to Steph Curry**\
-`As Florida prepares to play in "The House That Steph Built," Clayton Jr.'s range and off-the-dribble shooting prowess reminds some of Curry.`\
-https://nytimes.com/athletic/6234113/2025/03/27/florida-gators-march-madness-walter-clayton-jr-steph-curry/
-
-**How the sports bra continues to revolutionize sports and women's rights**\
-`The concept has been around since the 1970s but in-depth sports bra research has only really progressed in the past decade`\
-https://nytimes.com/athletic/6214668/2025/03/27/history-sports-bra/
-
-**New York Jets big board: Ranking their most likely first-round draft targets**\
-`A look at the Jets' options with the seventh overall pick.`\
-https://nytimes.com/athletic/6229394/2025/03/27/new-york-jets-first-round-draft-prospects/
 
