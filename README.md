@@ -1,3 +1,11 @@
+**Another Problem With That Signal Chat? The Messages Disappear.**\
+`The Presidential Records Act and the Federal Records Act require officials to preserve communications related to government business.`\
+https://nytimes.com/2025/03/27/us/politics/signal-messages-disappear.html
+
+**Miguel Rojas on Jazz Chisholm's comments about Marlins culture: 'I don't need to defend myself'**\
+`Chisholm accused Rojas of imposing an old-school culture that included Rojas cutting and pouring milk into separate sets of custom cleats.`\
+https://nytimes.com/athletic/6236768/2025/03/27/miguel-rojas-jazz-chisholm-marlins-feud/
+
 **Ingrid Ingebrigtsen, Jakob's sister, tells court their father Gjert slapped her, whipped her with a towel**\
 `Gjert denies all allegations and the portrayal of events, and pled not guilty. He denies ever having been violent.`\
 https://nytimes.com/athletic/6236184/2025/03/27/ingrid-ingebrigtsen-trial-jakob/
@@ -25,8 +33,4 @@ https://nytimes.com/2025/03/27/business/trump-law-firms-skadden-arps.html
 **Prosecutors Seek 7-Year Sentence for Nicolas Sarkozy in Libya Trial**\
 `The former French president has been convicted before, but the charge that he took illegal campaign funding from the regime of Col. Muammar el-Qaddafi has been the most damaging to his legacy.`\
 https://nytimes.com/2025/03/27/world/europe/nicolas-sarkozy-libya-qaddafi.html
-
-**Friday Briefing: Trump’s New Tariffs Risk Trade War**\
-`Plus, shark noises from New Zealand.`\
-https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html
 
