@@ -1,3 +1,7 @@
+**Trump Administration Deflects Blame for Leak at Every Turn**\
+`President Trump and other officials have given shifting, varied, implausible and sometimes conflicting explanations for how highly sensitive military information was shared in a group chat.`\
+https://nytimes.com/2025/03/26/us/politics/signal-chat-military-plan-leak-trump.html
+
 **Judge Extends Pause on Firings of Probationary Workers for 5 Days**\
 `The judge said he needed more time to determine whether a longer-term halt should apply to the entire country or be restricted to certain states while the case proceeds.`\
 https://nytimes.com/2025/03/26/us/politics/judge-pause-firings.html
