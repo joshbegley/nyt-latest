@@ -1,3 +1,7 @@
+**ESPN announces L.A. edition of 'SportsCenter' will relocate to Bristol**\
+`The network says the move will impact 35 of its 229 L.A. employees, who have the option to move to Connecticut.`\
+https://nytimes.com/athletic/6234259/2025/03/26/espn-sportscenter-l-a-relocating-to-bristol/
+
 **Former Iowa star Owen Freeman transfers to Creighton**\
 `Freeman started 19 games and averaged 16.7 points and 6.7 rebounds to lead the Hawkeyes in both categories this season.`\
 https://nytimes.com/athletic/6234333/2025/03/26/owen-freeman-transfer-creighton-iowa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/judge-pause-firings.html
 **What the data from MLB’s spring robot-umpire test says about baseball's future**\
 `Was the Automated Ball-Strike (ABS) system novel? Yes, though maybe not to Max Scherzer. Effective? According to the data, also, yes.`\
 https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testing-2025/
-
-**Elon Musk’s Wisconsin Problem**\
-`A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
-https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
 
