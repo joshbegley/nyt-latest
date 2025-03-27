@@ -1,3 +1,7 @@
+**Colorado State promotes NCAA Tourney legend Ali Farokmanesh to head coach**\
+`Farokhmanesh, who famously drained a three-pointer to help Northern Iowa upset Kansas in 2010, succeeds Niko Medved.`\
+https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-head-coach-ali-farokhmanesh-march-madness/
+
 **Consumer Bureau Seeks to Undo Settlement and Repay Mortgage Lender**\
 `The Consumer Financial Protection Bureau wants to return a $105,000 penalty it collected last fall when it resolved a discrimination lawsuit.`\
 https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html

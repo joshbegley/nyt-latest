@@ -1,3 +1,7 @@
+**Colorado State promotes NCAA Tourney legend Ali Farokmanesh to head coach**\
+`Farokhmanesh, who famously drained a three-pointer to help Northern Iowa upset Kansas in 2010, succeeds Niko Medved.`\
+https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-head-coach-ali-farokhmanesh-march-madness/
+
 **Consumer Bureau Seeks to Undo Settlement and Repay Mortgage Lender**\
 `The Consumer Financial Protection Bureau wants to return a $105,000 penalty it collected last fall when it resolved a discrimination lawsuit.`\
 https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-cou
 **Tariffs Could Give Tesla and Musk a Leg Up on Rivals**\
 `The company led by President Trump’s confidant Elon Musk builds all the cars it sells in the United States domestically and will be exempt from tariffs on finished vehicles.`\
 https://nytimes.com/2025/03/26/business/trump-tariffs-tesla-musk.html
-
-**3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
-`The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
-https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html
 
