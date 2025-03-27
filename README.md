@@ -1,3 +1,7 @@
+**Trump’s Auto Tariffs Will Raise Car Prices, but Details Are Murky**\
+`Experts say the 25 percent import fee will make many cars more expensive, but it is not clear when, by how much or which models.`\
+https://nytimes.com/2025/03/27/business/economy/trump-auto-tariffs-car-prices.html
+
 **‘A Gross Dishonor’: Cuts to Veterans’ Mental Health Care**\
 `Readers respond to President Trump’s orders that disrupt the V.A.’s ability to provide care. Also: Saving species; AI and human creativity.`\
 https://nytimes.com/2025/03/27/opinion/veterans-mental-health-cuts.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/03/27/business/media/sundance-film-festival-boulder.htm
 **Algerian French Writer Is Sentenced to 5-Year Prison Term in Algeria**\
 `The prosecution of Boualem Sansal, who is around 80, prompted outrage from the global literary community and pleas from France for his release.`\
 https://nytimes.com/2025/03/27/world/africa/algeria-boualem-sansal-prison-france.html
-
-**Leonard Polonsky, Philanthropist Who Supported the Arts, Dies at 97**\
-`After making a fortune in financial services, he funded the arts and made historical artifacts and documents widely available to the public.`\
-https://nytimes.com/2025/03/27/arts/leonard-polonsky-dead.html
 
