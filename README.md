@@ -1,3 +1,7 @@
+**Trump Administration Deflects Blame for Leak at Every Turn**\
+`President Trump and other officials have given shifting, varied, implausible and sometimes conflicting explanations for how highly sensitive military information was shared in a group chat.`\
+https://nytimes.com/2025/03/26/us/politics/signal-chat-military-plan-leak-trump.html
+
 **Judge Extends Pause on Firings of Probationary Workers for 5 Days**\
 `The judge said he needed more time to determine whether a longer-term halt should apply to the entire country or be restricted to certain states while the case proceeds.`\
 https://nytimes.com/2025/03/26/us/politics/judge-pause-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html
 **Are You Smarter Than A.I.?**\
 `Some experts predict that A.I. will surpass human intelligence within the next few years. Play this puzzle to see how far the machines have to go.`\
 https://nytimes.com/interactive/2025/03/26/business/ai-smarter-human-intelligence-puzzle.html
-
-**The Trump Administration Can’t Even Admit the Real Problem With the Signal Chat**\
-`If there’s no real accountability for the Signal breach, or even an admission of the actual problem, there’s no indication it won’t happen again.`\
-https://nytimes.com/2025/03/26/opinion/waltz-hegseth-signal-group-chat.html
 
