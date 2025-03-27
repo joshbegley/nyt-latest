@@ -1,3 +1,11 @@
+**A New Series in The Times, Inspired by You**\
+`Across the country, in red and blue states, everyday people, local groups and government officials are making creative plans that protect the environment. This year, we’ll be telling you about them.`\
+https://nytimes.com/2025/03/27/climate/climate-solutions-50-states.html
+
+**Sundance Picks Its New Home: Boulder, Colo.**\
+`The Sundance Institute chose the new location for the movie festival because it had outgrown Park City, Utah, its home for the past 40 years.`\
+https://nytimes.com/2025/03/27/business/media/sundance-film-festival-boulder.html
+
 **Algerian French Writer Is Sentenced to 5-Year Prison Term in Algeria**\
 `The prosecution of Boualem Sansal, who is around 80, prompted outrage from the global literary community and pleas from France for his release.`\
 https://nytimes.com/2025/03/27/world/africa/algeria-boualem-sansal-prison-france.html
@@ -25,8 +33,4 @@ https://nytimes.com/2025/03/27/us/trump-california-transgender-parental-notifica
 **Titans switching to 'Titans blue' color on primary home jerseys**\
 `The Titans will cease wearing Oilers throwback jerseys, at least in 2025, while focusing on their new primary color, "Titans blue."`\
 https://nytimes.com/athletic/6236124/2025/03/27/tennessee-titans-nfl-uniform-change-blue/
-
-**Madrid and Zubimendi? Man Utd's financial strength for summer transfers? - Ask Ornstein**\
-`We ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A - here are David's favourite questions and answers`\
-https://nytimes.com/athletic/6235714/2025/03/27/real-madrid-transfer-latest-arsenal-martin-zubimendi-manchester-united/
 
