@@ -1,3 +1,11 @@
+**Consumer Bureau Seeks to Undo Settlement and Repay Mortgage Lender**\
+`The Consumer Financial Protection Bureau wants to return a $105,000 penalty it collected last fall when it resolved a discrimination lawsuit.`\
+https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html
+
+**Appeals Court Keeps Order Barring Federal Funding Freezes in Place**\
+`The ruling let stand a district court judge’s order that had blocked agencies from categorically pausing federal funds based on guidance from the Office of Management and Budget.`\
+https://nytimes.com/2025/03/26/us/politics/appeals-court-funding-freezes.html
+
 **Ahead of Opening Day, Cubs will be relying early on Brad Keller and Colin Rea**\
 `Plus, Nico Hoerner will be ready to start against the Diamondbacks, though Chicago's final lineup remains to be seen.`\
 https://nytimes.com/athletic/6234179/2025/03/26/cubs-roster-analysis-brad-keller-colin-rea/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/business/trump-tariffs-tesla-musk.html
 **3 Postal Workers Charged in Sex Attack on Co-Worker After Party**\
 `The men dragged a woman into the back of a mail truck, where one tried to rape her, the Manhattan district attorney said.`\
 https://nytimes.com/2025/03/26/nyregion/usps-workers-sexual-assault-kidnapping.html
-
-**Herb Greene, 82, Dies; His Photographs Captured the San Francisco Sound**\
-`One of the first to shoot the Grateful Dead, he also memorably chronicled many of the other bands that were on the scene in the late 1960s.`\
-https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
-
-**Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
-`The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
-https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
 
