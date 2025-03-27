@@ -1,3 +1,11 @@
+**Adam Silver admits NBA All-Star format was 'a miss'; gives no timeline on expansion**\
+`Now that the NBA is exploring launching a new European league, could expansion be next? `\
+https://nytimes.com/athletic/6236626/2025/03/27/adam-silver-board-of-governors-all-star-game-expansion-nba/
+
+**Rock Royalty Serenade Patti Smith at Carnegie Hall**\
+`Celebrated artists and actors, including Bruce Springsteen, Michael Stipe and Scarlett Johansson, took the stage in tribute.`\
+https://nytimes.com/2025/03/27/style/patti-smith-carnegie-hall.html
+
 **Trump Takes Government Secrecy Seriously. But Only When It Suits Him.**\
 `In the Trump era, the definition of an official secret depends on whatever works best for the president.`\
 https://nytimes.com/2025/03/27/us/politics/trump-signal-leak-venezuela-deportations.html
