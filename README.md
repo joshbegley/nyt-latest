@@ -1,3 +1,7 @@
+**Ingrid Ingebrigtsen, Jakob's sister, tells court their father Gjert slapped her, whipped her with a towel**\
+`Gjert denies all allegations and the portrayal of events, and pled not guilty. He denies ever having been violent.`\
+https://nytimes.com/athletic/6236184/2025/03/27/ingrid-ingebrigtsen-trial-jakob/
+
 **Armand LaMontagne, Meticulous Sculptor of Sports Greats, Dies at 87**\
 `Working in wood, he captured the zeal of New England sports with his exacting, lifelike renderings of Hall of Famers like Ted Williams and Larry Bird.`\
 https://nytimes.com/2025/03/27/arts/armand-lamontagne-dead.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/03/27/world/europe/nicolas-sarkozy-libya-qaddafi.html
 **Friday Briefing: Trump’s New Tariffs Risk Trade War**\
 `Plus, shark noises from New Zealand.`\
 https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html
-
-**Why We Do Unpleasant Things**\
-`A surprising route to the best life possible.`\
-https://nytimes.com/2025/03/27/opinion/persistence-work-difficulty.html
 
