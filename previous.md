@@ -1,3 +1,11 @@
+**Trump Floats Chinese Tariff Cuts in Exchange for TikTok Deal**\
+`The social media app could shut down on April 5 unless it is sold to a new non-Chinese owner. Mr. Trump issued an order delaying the enforcement of a federal ban, and told reporters he could extend that delay, if necessary.`\
+https://nytimes.com/2025/03/26/business/trump-tariffs-tiktok-china.html
+
+**What Some Toothpastes Do**\
+`Psst: Brad Lively is playing Ping-Pong with parts of the theme entries. Pass it on.`\
+https://nytimes.com/2025/03/26/crosswords/daily-puzzle-2025-03-27.html
+
 **Corrections: March 27, 2025**\
 `Corrections that appeared in print on Thursday, March 27, 2025.`\
 https://nytimes.com/2025/03/26/pageoneplus/corrections-march-27-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/03/26/us/politics/appeals-court-funding-freezes.html
 **Ahead of Opening Day, Cubs will be relying early on Brad Keller and Colin Rea**\
 `Plus, Nico Hoerner will be ready to start against the Diamondbacks, though Chicago's final lineup remains to be seen.`\
 https://nytimes.com/athletic/6234179/2025/03/26/cubs-roster-analysis-brad-keller-colin-rea/
-
-**ICE Agents Detain University of Alabama Doctoral Student**\
-`A spokeswoman for the school said the detainment occurred off campus, but it was not immediately clear why the student had been targeted.`\
-https://nytimes.com/2025/03/26/us/ice-detains-doctoral-student-university-alabama.html
-
-**Trump Administration Deflects Blame for Leak at Every Turn**\
-`President Trump and other officials have given shifting, varied, implausible and sometimes conflicting explanations for how highly sensitive military information was shared in a group chat.`\
-https://nytimes.com/2025/03/26/us/politics/signal-chat-military-plan-leak-trump.html
 

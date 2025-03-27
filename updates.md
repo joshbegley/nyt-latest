@@ -1,3 +1,11 @@
+**Trump Floats Chinese Tariff Cuts in Exchange for TikTok Deal**\
+`The social media app could shut down on April 5 unless it is sold to a new non-Chinese owner. Mr. Trump issued an order delaying the enforcement of a federal ban, and told reporters he could extend that delay, if necessary.`\
+https://nytimes.com/2025/03/26/business/trump-tariffs-tiktok-china.html
+
+**What Some Toothpastes Do**\
+`Psst: Brad Lively is playing Ping-Pong with parts of the theme entries. Pass it on.`\
+https://nytimes.com/2025/03/26/crosswords/daily-puzzle-2025-03-27.html
+
 **Corrections: March 27, 2025**\
 `Corrections that appeared in print on Thursday, March 27, 2025.`\
 https://nytimes.com/2025/03/26/pageoneplus/corrections-march-27-2025.html
