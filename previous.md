@@ -1,3 +1,11 @@
+**West Ham squad audit: Assessing the future of every member of Graham Potter's squad**\
+`The Athletic runs the rule over every member of the West Ham squad`\
+https://nytimes.com/athletic/6226373/2025/03/27/west-ham-squad-audit-graham-potter/
+
+**Aston Villa's pool of exciting academy talent is a product of their 'clear plan'**\
+`Villa have ramped up their academy recruitment - so it's no wonder you wanted to read more about the best players coming through`\
+https://nytimes.com/athletic/6212674/2025/03/27/aston-villa-academy-recruitment/
+
 **Can Crystal Palace turn a record-breaking run of results into silverware?**\
 `Palace are the first team in English football history to win five successive away games by the same scoreline `\
 https://nytimes.com/athletic/6231982/2025/03/27/crystal-palace-away-form-record-fa-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6232206/2025/03/27/craig-johnston-liverpool-predato
 **Footballs, and why managers should be allowed to complain about them**\
 `Pep Guardiola and Mikel Arteta have both pointed out the behaviour of different balls this season, and it shouldn't be tutted at`\
 https://nytimes.com/athletic/6221446/2025/03/27/guardiola-arteta-footballs-behaviour/
-
-**Could 2024-25 finally be the Year of the Underdog in the FA Cup?**\
-`Four quarter-finalists who have never won it, three who haven't won it for decades and... Manchester City. Who will prevail in May?`\
-https://nytimes.com/athletic/6231945/2025/03/27/fa-cup-quarter-final-unusual-teams-underdogs/
-
-**Buckle up for 16 months of wall-to-wall football (just don't tell the players)**\
-`The sport's ever-expanding calendar means top players will have almost no break between now and the end of the World Cup. At what cost?`\
-https://nytimes.com/athletic/6229828/2025/03/27/football-fatigue-world-cup/
 
