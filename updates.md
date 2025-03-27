@@ -1,3 +1,7 @@
+**Skadden, a Top Law Firm, Is in Talks to Avert an Executive Order**\
+`The discussions come as other major firms are said to be trying to cut deals with the White House.`\
+https://nytimes.com/2025/03/27/business/trump-law-firms-skadden-arps.html
+
 **Prosecutors Seek 7-Year Sentence for Nicolas Sarkozy in Libya Trial**\
 `The former French president has been convicted before, but the charge that he took illegal campaign funding from the regime of Col. Muammar el-Qaddafi has been the most damaging to his legacy.`\
 https://nytimes.com/2025/03/27/world/europe/nicolas-sarkozy-libya-qaddafi.html
