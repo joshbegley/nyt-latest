@@ -1,3 +1,7 @@
+**Rescuers Race to Save People and Treasures From South Korea Wildfires**\
+`The country’s largest blaze on record has left 27 dead and destroyed heritage sites, including two 1,000-year-old temples.`\
+https://nytimes.com/2025/03/27/world/asia/south-korea-wildfires-heritage.html
+
 **How the Twins rebounded from a season-ending 's--- show' and came together for 2025**\
 `After months of pondering their season-ending collapse, the Twins knew they had to adapt. They decided they needed to work together more. `\
 https://nytimes.com/athletic/6234116/2025/03/27/minnesota-twins-2024-collapse-2025-season/
