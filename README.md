@@ -1,3 +1,7 @@
+**Former Iowa star Owen Freeman transfers to Creighton**\
+`Freeman started 19 games and averaged 16.7 points and 6.7 rebounds to lead the Hawkeyes in both categories this season.`\
+https://nytimes.com/athletic/6234333/2025/03/26/owen-freeman-transfer-creighton-iowa/
+
 **Colorado State promotes NCAA Tourney legend Ali Farokmanesh to head coach**\
 `Farokhmanesh, who famously drained a three-pointer to help Northern Iowa upset Kansas in 2010, succeeds Niko Medved.`\
 https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-head-coach-ali-farokhmanesh-march-madness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234094/2025/03/26/major-league-baseball-abs-testin
 **Elon Musk’s Wisconsin Problem**\
 `A legal battle over Tesla sales in Wisconsin is the quiet backdrop to a big State Supreme Court race.`\
 https://nytimes.com/2025/03/26/us/politics/elon-musk-tesla-wisconsin-supreme-court.html
-
-**Tariffs Could Give Tesla and Musk a Leg Up on Rivals**\
-`The company led by President Trump’s confidant Elon Musk builds all the cars it sells in the United States domestically and will be exempt from tariffs on finished vehicles.`\
-https://nytimes.com/2025/03/26/business/trump-tariffs-tesla-musk.html
 
