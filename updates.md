@@ -1,3 +1,11 @@
+**Quote of the Day: Ramadan in Syria Means A Mad Rush Each Evening For Just the Right Marook**\
+`Quotation of the Day for Thursday, March 27, 2025.`\
+https://nytimes.com/2025/03/26/pageoneplus/quote-of-the-day-ramadan-in-syria-means-a-mad-rush-each-evening-for-just-the-right-marook.html
+
+**Alysa Liu left figure skating at 16. Now she's back and in position for a major win**\
+`Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
+https://nytimes.com/athletic/6234474/2025/03/26/alysa-liu-figure-skating-world-championships/
+
 **From Landon Slaggert to Artyom Levshunov, dissecting pivotal moments in Blackhawks' loss to Devils**\
 `Disallowed goals, penalties and the lack thereof, growing pains and more all played a part in a tight game.`\
 https://nytimes.com/athletic/6234410/2025/03/26/blackhawks-penalties-levshunov-sorenson-devils/
