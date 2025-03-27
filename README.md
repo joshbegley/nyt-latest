@@ -1,3 +1,7 @@
+**Top NFL Draft prospect Abdul Carter won't workout at Penn State pro day: Source**\
+`The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/
+
 **U.S. Faces ‘Significant Risks’ From Debt, Analysts Say, as Trump Pursues Tax Agenda**\
 `Debt as a share of the U.S. economy will reach 118% in 2035, the Congressional Budget Office said on Thursday.`\
 https://nytimes.com/2025/03/27/business/trump-debt-tax-us.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/03/27/us/politics/overdraft-fees-limit-cfpb.html
 **Spitfires, 4 players, OHL, CHL named in sexual assault allegation from '84**\
 `A lawsuit alleges that a group sexual assault by four members of the Windsor Spitfires took place in 1984 in Tecumseh, Ontario.`\
 https://nytimes.com/athletic/6236064/2025/03/27/windsor-spitfires-alleged-sexual-assault-ohl/
-
-**Did the Flyers wait too long to fire John Tortorella — or did he lay a foundation for success?**\
-`The Flyers had a chance to cut Tortorella loose two years ago but stayed with him.`\
-https://nytimes.com/athletic/6236104/2025/03/27/tortorella-fired-flyers-coach/
 
