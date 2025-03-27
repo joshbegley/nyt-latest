@@ -1,3 +1,7 @@
+**Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
+`The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
+https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
+
 **Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
 `Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
 https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/

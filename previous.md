@@ -1,3 +1,7 @@
+**Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
+`The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
+https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
+
 **Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
 `Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
 https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232668/2025/03/27/rangers-peter-laviolette-coach-d
 **Can the Mountain West fend the Pac-12 off for good?**\
 `What is the state of the Mountain West right now? Commissioner Gloria Nevarez feels pretty good, all things considered.`\
 https://nytimes.com/athletic/6234340/2025/03/27/mountain-west-pac-12-conference-realignment/
-
-**What it's like to watch a Blues game through the eyes of Cardinals players**\
-`Cardinals players Brendan Donovan and Alec Burleson attended the Blues' 6-1 win over Montreal two days before the MLB season begins.`\
-https://nytimes.com/athletic/6231056/2025/03/27/st-louis-blues-cardinals-brendan-donovan-alec-burleson/
 

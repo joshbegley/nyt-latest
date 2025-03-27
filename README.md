@@ -1,3 +1,11 @@
+**Deadly Wildfires Destroy Historic Landmarks in South Korea**\
+`Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
+https://nytimes.com/video/world/asia/100000010075934/deadly-wildfires-destroy-historic-landmarks-in-south-korea.html
+
+**Germany Says Europe Must Respond to Trump’s Auto Tariffs**\
+`The United States is a crucial export market for the German auto industry, which is already suffering from weak sales and increased competition from China.`\
+https://nytimes.com/2025/03/27/business/germany-trump-auto-tariffs.html
+
 **Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
 `The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
 https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6233977/2025/03/27/chargers-mock-nfl-draft-colston-
 **How the Blue Jackets landed a 'main target' college free agent, who headed straight to the NHL**\
 `Jack Williams, a center from Northeastern, has received high praise from Rick Nash.`\
 https://nytimes.com/athletic/6234027/2025/03/27/blue-jackets-jack-williams-college/
-
-**Staple: Should the Rangers fire Peter Laviolette? The case for and against**\
-`It's been a very strange season at Madison Square Garden. How much of that is the coach's fault?`\
-https://nytimes.com/athletic/6232668/2025/03/27/rangers-peter-laviolette-coach-drury/
-
-**Can the Mountain West fend the Pac-12 off for good?**\
-`What is the state of the Mountain West right now? Commissioner Gloria Nevarez feels pretty good, all things considered.`\
-https://nytimes.com/athletic/6234340/2025/03/27/mountain-west-pac-12-conference-realignment/
 
