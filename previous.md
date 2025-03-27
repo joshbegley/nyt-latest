@@ -1,4 +1,8 @@
-**LeBron James tips in a buzzer-beater; Lakers narrowly escape Pacers**\
+**Alysa Liu left figure skating at 16. Now she's back, and in position for a major win**\
+`Alysa Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
+https://nytimes.com/athletic/6234474/2025/03/26/alysa-liu-figure-skating-world-championships/
+
+**LeBron James tips in buzzer beater; Lakers narrowly escape Pacers**\
 `James tipped in a rebound as time expired, giving the Lakers a 120-119 road win over the Pacers.`\
 https://nytimes.com/athletic/6234526/2025/03/26/lebron-james-buzzer-beater-lakers-pacers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234333/2025/03/26/owen-freeman-transfer-creighton-
 **Colorado State promotes NCAA Tourney legend Ali Farokmanesh to head coach**\
 `Farokhmanesh, who famously drained a three-pointer to help Northern Iowa upset Kansas in 2010, succeeds Niko Medved.`\
 https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-head-coach-ali-farokhmanesh-march-madness/
-
-**Consumer Bureau Seeks to Undo Settlement and Repay Mortgage Lender**\
-`The Consumer Financial Protection Bureau wants to return a $105,000 penalty it collected last fall when it resolved a discrimination lawsuit.`\
-https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html
 
