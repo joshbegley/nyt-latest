@@ -1,3 +1,7 @@
+**Israeli Lawmakers Give Themselves More Power Over Choosing Judges**\
+`Benjamin Netanyahu, the Israeli prime minister, appears to have returned to the contentious judicial overhaul that divided the country before the war in Gaza.`\
+https://nytimes.com/2025/03/27/world/middleeast/israel-netanyahu-judges.html
+
 **Leeds announce 14 per cent ticket price increase for 2025-26**\
 `Prices will rise on Leeds United season tickets for the third time in 12 years.`\
 https://nytimes.com/athletic/6234941/2025/03/27/leeds-ticket-prices-increase/
@@ -33,8 +37,4 @@ https://nytimes.com/slideshow/2025/03/27/well/sit-stay-say-goodbye.html
 **South Sudan’s Vice President Has Been Arrested, Party Says**\
 `The United Nations warned that the detention of Vice President Riek Machar threatens to push the world’s youngest country back into civil war.`\
 https://nytimes.com/2025/03/27/world/africa/south-sudan-vice-president-arrest-riek-machar.html
-
-**How to watch No. 1 Duke vs. No. 4 Arizona in the men's Sweet 16**\
-`Duke takes on Arizona in the Sweet 16 in a late start in Newark. The top-seeded Blue Devils are favored to advance.`\
-https://nytimes.com/athletic/6227581/2025/03/27/duke-arizona-mens-ncaa-tournament-sweet-16-how-to-watch/
 
