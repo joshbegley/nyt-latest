@@ -1,3 +1,7 @@
+**The Bounce: A message to Giannis Antetokounmpo, Shai Gilgeous-Alexander: Admit you want MVP!**\
+`It seems this season's NBA MVP candidates are playing humble about wanting the award. Zach Harper explains why this should change.`\
+https://nytimes.com/athletic/6235128/2025/03/27/giannis-antetokounmpo-shai-gilgeous-alexander-nikola-jokic-bucks-thunder-thunder-nba-mvp-the-bounce/
+
 **A net-front lesson with Canadiens' Juraj Slafkovský**\
 `Martin St. Louis believes Slafkovský can become one of the best net-front players in the NHL, but it will be a process getting there.`\
 https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-front-power-play/
