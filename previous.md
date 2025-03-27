@@ -1,3 +1,19 @@
+**Israeli Lawmakers Give Themselves More Power Over Choosing Judges**\
+`Benjamin Netanyahu, the Israeli prime minister, appears to have returned to the contentious judicial overhaul that divided the country before the war in Gaza.`\
+https://nytimes.com/2025/03/27/world/middleeast/israel-netanyahu-judges.html
+
+**Leeds announce 14 per cent ticket price increase for 2025-26**\
+`Prices will rise on Leeds United season tickets for the third time in 12 years.`\
+https://nytimes.com/athletic/6234941/2025/03/27/leeds-ticket-prices-increase/
+
+**Jennings: The show goes on without JuJu Watkins. Expect the women's tournament to deliver**\
+`What now? Who now? Expect emerging talent and elite competition as the tournament continues without its brightest star.`\
+https://nytimes.com/athletic/6234455/2025/03/27/juju-watkins-usc-injury-ncaa-tournament-deliver/
+
+**How to watch No. 3 Texas Tech vs. No. 10 Arkansas in men's Sweet 16**\
+`Will the Red Raiders be the squad that stops Calipari's upset run? `\
+https://nytimes.com/athletic/6228262/2025/03/27/texas-tech-arkansas-mens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Steidten denies being banned from West Ham training ground by Moyes**\
 `Steidten left his West Ham role in January following the appointment of head coach Graham Potter and head of recruitment Kyle Macaulay.`\
 https://nytimes.com/athletic/6234924/2025/03/27/steidten-west-ham-training-ban/
@@ -21,20 +37,4 @@ https://nytimes.com/slideshow/2025/03/27/well/sit-stay-say-goodbye.html
 **South Sudan’s Vice President Has Been Arrested, Party Says**\
 `The United Nations warned that the detention of Vice President Riek Machar threatens to push the world’s youngest country back into civil war.`\
 https://nytimes.com/2025/03/27/world/africa/south-sudan-vice-president-arrest-riek-machar.html
-
-**How to watch No. 1 Duke vs. No. 4 Arizona in the men's Sweet 16**\
-`Duke takes on Arizona in the Sweet 16 in a late start in Newark. The top-seeded Blue Devils are favored to advance.`\
-https://nytimes.com/athletic/6227581/2025/03/27/duke-arizona-mens-ncaa-tournament-sweet-16-how-to-watch/
-
-**Auto Stocks Tumble as Investors Assess Hit From Trump’s Tariffs**\
-`The U.S. levies are likely to disrupt the complex supply chains of major carmakers, hitting companies that export vehicles from Mexico, Canada Japan, South Korea and Germany.`\
-https://nytimes.com/2025/03/27/business/auto-trump-tariffs-stocks-futures.html
-
-**Chiefs big board 2.0: After free-agency moves, 26 intriguing prospects to watch**\
-`The Chiefs have clear needs on the offensive and defensive lines and at running back. Which Day 1-2 draft prospects would be a fit?`\
-https://nytimes.com/athletic/6233814/2025/03/27/chiefs-2025-nfl-draft-big-board-needs/
-
-**Bears NFL Draft big board: Looking at plenty of options after roster upgrades**\
-`The Bears' draft is wide open. Will they take a lineman, running back, tight end or a different position at No. 10? `\
-https://nytimes.com/athletic/6232839/2025/03/27/bears-nfl-draft-big-board-ashton-jeanty-tyler-warren/
 

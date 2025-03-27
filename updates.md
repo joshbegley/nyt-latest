@@ -1,3 +1,19 @@
+**Israeli Lawmakers Give Themselves More Power Over Choosing Judges**\
+`Benjamin Netanyahu, the Israeli prime minister, appears to have returned to the contentious judicial overhaul that divided the country before the war in Gaza.`\
+https://nytimes.com/2025/03/27/world/middleeast/israel-netanyahu-judges.html
+
+**Leeds announce 14 per cent ticket price increase for 2025-26**\
+`Prices will rise on Leeds United season tickets for the third time in 12 years.`\
+https://nytimes.com/athletic/6234941/2025/03/27/leeds-ticket-prices-increase/
+
+**Jennings: The show goes on without JuJu Watkins. Expect the women's tournament to deliver**\
+`What now? Who now? Expect emerging talent and elite competition as the tournament continues without its brightest star.`\
+https://nytimes.com/athletic/6234455/2025/03/27/juju-watkins-usc-injury-ncaa-tournament-deliver/
+
+**How to watch No. 3 Texas Tech vs. No. 10 Arkansas in men's Sweet 16**\
+`Will the Red Raiders be the squad that stops Calipari's upset run? `\
+https://nytimes.com/athletic/6228262/2025/03/27/texas-tech-arkansas-mens-ncaa-tournament-sweet-16-how-to-watch/
+
 **Steidten denies being banned from West Ham training ground by Moyes**\
 `Steidten left his West Ham role in January following the appointment of head coach Graham Potter and head of recruitment Kyle Macaulay.`\
 https://nytimes.com/athletic/6234924/2025/03/27/steidten-west-ham-training-ban/
