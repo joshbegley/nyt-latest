@@ -1,3 +1,11 @@
+**Top NFL Draft prospect Abdul Carter won't workout at Penn State pro day: Source**\
+`The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/
+
+**U.S. Faces ‘Significant Risks’ From Debt, Analysts Say, as Trump Pursues Tax Agenda**\
+`Debt as a share of the U.S. economy will reach 118% in 2035, the Congressional Budget Office said on Thursday.`\
+https://nytimes.com/2025/03/27/business/trump-debt-tax-us.html
+
 **A New Series in The Times, Inspired by You**\
 `Across the country, in red and blue states, everyday people, local groups and government officials are making creative plans that protect the environment. This year, we’ll be telling you about them.`\
 https://nytimes.com/2025/03/27/climate/climate-solutions-50-states.html
