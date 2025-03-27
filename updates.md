@@ -1,3 +1,23 @@
+**Bobby Sherman, Former Teen Idol, Has Stage 4 Cancer, His Wife Says**\
+`The 81-year-old is known for his breakout role on the 1960s television series “Here Come the Brides” and hits that included “Little Woman.”`\
+https://nytimes.com/2025/03/27/arts/bobby-sherman-cancer.html
+
+**Faulty DNA Tests Were Used in Thousands of L.A. Criminal Cases, Sheriff Says**\
+`The manufacturer of the test kits notified the Los Angeles County Sheriff’s Department in August that many of the kits were likely defective, but it kept using them for several months.`\
+https://nytimes.com/2025/03/27/us/dna-faulty-test-los-angeles.html
+
+**University of Michigan to Scuttle Its Flagship D.E.I. Program**\
+`Michigan, once at the forefront of school diversity efforts, is rapidly changing course amid campus pushback and broad scrutiny by the Trump administration.`\
+https://nytimes.com/2025/03/27/education/university-of-michigan-dei.html
+
+**Another Problem With That Signal Chat? The Messages Disappear.**\
+`The Presidential Records Act and the Federal Records Act require officials to preserve communications related to government business.`\
+https://nytimes.com/2025/03/27/us/politics/signal-messages-disappear.html
+
+**Miguel Rojas on Jazz Chisholm's comments about Marlins culture: 'I don't need to defend myself'**\
+`Chisholm accused Rojas of imposing an old-school culture that included Rojas cutting and pouring milk into separate sets of custom cleats.`\
+https://nytimes.com/athletic/6236768/2025/03/27/miguel-rojas-jazz-chisholm-marlins-feud/
+
 **Ingrid Ingebrigtsen, Jakob's sister, tells court their father Gjert slapped her, whipped her with a towel**\
 `Gjert denies all allegations and the portrayal of events, and pled not guilty. He denies ever having been violent.`\
 https://nytimes.com/athletic/6236184/2025/03/27/ingrid-ingebrigtsen-trial-jakob/
