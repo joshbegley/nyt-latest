@@ -1,3 +1,19 @@
+**World Leaders React to Trump’s Auto Tariffs**\
+`President Trump’s announcement of 25 percent tariffs on imported cars and auto parts prompted world leaders to rebuke the decision.`\
+https://nytimes.com/video/business/economy/100000010077278/global-reaction-auto-tariffs.html
+
+**Tyler O'Neill hits sixth straight Opening Day homer, extending MLB record**\
+`O'Neill's latest blast came with his third different team, as his Baltimore Orioles faced the Toronto Blue Jays on Thursday.`\
+https://nytimes.com/athletic/6232387/2025/03/27/tyler-oneill-opening-day-home-run-record/
+
+**With Car Tariffs, Trump Puts His Unorthodox Trade Theory to the Test**\
+`With sweeping auto levies, the president is putting his beliefs about tariffs into practice on the global economy. Economists aren’t optimistic.`\
+https://nytimes.com/2025/03/27/us/politics/trump-car-tariffs-trade-strategy.html
+
+**Blue Jays ask fans to 'be respectful' before playing U.S. anthem on Opening Day**\
+`Fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
+https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national-anthem-opening-day/
+
 **The Runners-Up in Our Second Annual ‘Where We Are’ Photo Essay Contest**\
 `A look at nine fascinating communities from around the world, as documented by teenagers there.`\
 https://nytimes.com/2025/03/27/learning/the-runners-up-in-our-second-annual-where-we-are-photo-essay-contest.html
