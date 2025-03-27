@@ -1,3 +1,7 @@
+**Prosecutors Seek 7-Year Sentence for Nicolas Sarkozy in Libya Trial**\
+`The former French president has been convicted before, but the charge that he took illegal campaign funding from the regime of Col. Muammar el-Qaddafi has been the most damaging to his legacy.`\
+https://nytimes.com/2025/03/27/world/europe/nicolas-sarkozy-libya-qaddafi.html
+
 **Friday Briefing: Trump’s New Tariffs Risk Trade War**\
 `Plus, shark noises from New Zealand.`\
 https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html

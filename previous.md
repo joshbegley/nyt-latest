@@ -1,3 +1,7 @@
+**Prosecutors Seek 7-Year Sentence for Nicolas Sarkozy in Libya Trial**\
+`The former French president has been convicted before, but the charge that he took illegal campaign funding from the regime of Col. Muammar el-Qaddafi has been the most damaging to his legacy.`\
+https://nytimes.com/2025/03/27/world/europe/nicolas-sarkozy-libya-qaddafi.html
+
 **Friday Briefing: Trump’s New Tariffs Risk Trade War**\
 `Plus, shark noises from New Zealand.`\
 https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6236612/2025/03/27/yankees-austin-wells-home-run-op
 **World Leaders React to Trump’s Auto Tariffs**\
 `President Trump’s announcement of 25 percent tariffs on imported cars and auto parts prompted world leaders to rebuke the decision.`\
 https://nytimes.com/video/business/economy/100000010077278/global-reaction-auto-tariffs.html
-
-**Tyler O'Neill hits sixth straight Opening Day homer, extending MLB record**\
-`O'Neill's latest blast came with his third different team, as his Baltimore Orioles faced the Toronto Blue Jays on Thursday.`\
-https://nytimes.com/athletic/6232387/2025/03/27/tyler-oneill-opening-day-home-run-record/
 
