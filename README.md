@@ -1,3 +1,7 @@
+**View From the Floor**\
+`After appearing on “Maury” 25 years ago, a singer without legs questions why she’s seen as inspirational.`\
+https://nytimes.com/video/opinion/100000010031646/view-from-the-floor.html
+
 **Trump’s Punishing Tariffs Stun America’s Automaker Allies**\
 `Ignoring diplomatic efforts and investment pledges, President Trump said he would impose tariffs that are expected to deal a blow to American neighbors and allies in Asia.`\
 https://nytimes.com/2025/03/27/business/trump-tariffs-automakers-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/27/nyregion/trump-budget-new-york.html
 **Is Boogie Fland the Next Legendary New York City Point Guard?**\
 `In some ways, the prodigy now starring for Arkansas in the N.C.A.A. tournament is an urban basketball archetype. But this is not the same old story.`\
 https://nytimes.com/2025/03/27/nyregion/boogie-fland-nyc-basketball-point-guard.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/03/27/crosswords/spelling-bee-forum.html
 

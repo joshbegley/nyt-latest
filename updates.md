@@ -1,3 +1,11 @@
+**Trump’s Punishing Tariffs Stun America’s Automaker Allies**\
+`Ignoring diplomatic efforts and investment pledges, President Trump said he would impose tariffs that are expected to deal a blow to American neighbors and allies in Asia.`\
+https://nytimes.com/2025/03/27/business/trump-tariffs-automakers-reaction.html
+
+**Red Bull demote Liam Lawson for Yuki Tsunoda after two grands prix**\
+`New Zealander Lawson has been struggling to perform this season.`\
+https://nytimes.com/athletic/6230801/2025/03/27/liam-lawson-yuki-tsunoda-red-bull-japanese-grand-prix-f1/
+
 **Rattled by Trump, America’s Allies Shift to Economic Defense Mode**\
 `The new auto tariffs are straining relations with U.S. allies and deepening doubts about America’s reliability as a partner.`\
 https://nytimes.com/2025/03/27/world/asia/tariffs-us-allies-trump.html
