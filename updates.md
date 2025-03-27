@@ -1,3 +1,7 @@
+**Trump’s Auto Tariffs Will Raise Car Prices, but Details Are Murky**\
+`Experts say the 25 percent import fee will make many cars more expensive, but it is not clear when, by how much or which models.`\
+https://nytimes.com/2025/03/27/business/economy/trump-auto-tariffs-car-prices.html
+
 **‘A Gross Dishonor’: Cuts to Veterans’ Mental Health Care**\
 `Readers respond to President Trump’s orders that disrupt the V.A.’s ability to provide care. Also: Saving species; AI and human creativity.`\
 https://nytimes.com/2025/03/27/opinion/veterans-mental-health-cuts.html
