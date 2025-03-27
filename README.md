@@ -1,3 +1,7 @@
+**Bears NFL Draft big board: Looking at plenty of options after roster upgrades**\
+`The Bears' draft is wide open. Will they take a lineman, running back, tight end or a different position at No. 10? `\
+https://nytimes.com/athletic/6232839/2025/03/27/bears-nfl-draft-big-board-ashton-jeanty-tyler-warren/
+
 **MLB in 2025: The numbers that define baseball, from 1.96 to 41 to 1.44 billion**\
 `They’re not just numerals on a page. The best numbers tell us stories, give us insight, help us make sense of a fascinating sport.`\
 https://nytimes.com/athletic/6234375/2025/03/27/mlb-2025-season-numbers-facts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6233143/2025/03/27/mlb-top-prospects-opening-day-ro
 **Why the Red Sox will exceed expectations and make the World Series**\
 `The Red Sox failed to make the playoffs in 2024 and haven't been to the World Series since 2018, but our experts see that changing in 2025.`\
 https://nytimes.com/athletic/6233652/2025/03/27/red-sox-world-series-prediction/
-
-**Rosenthal's top 12 storylines for the 2025 MLB season: A potential Dodger dynasty, Juan Soto's worth and more**\
-`Plus a wide open AL East, the plight of three aging aces and a "39th annual dumb World Series prediction."`\
-https://nytimes.com/athletic/6232629/2025/03/27/mlb-season-storylines-opening-day-2025/
 
