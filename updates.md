@@ -1,3 +1,15 @@
+**Friday Briefing: Trump’s New Tariffs Risk Trade War**\
+`Plus, shark noises from New Zealand.`\
+https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html
+
+**Why We Do Unpleasant Things**\
+`A surprising route to the best life possible.`\
+https://nytimes.com/2025/03/27/opinion/persistence-work-difficulty.html
+
+**Overwhelmed by Cuteness? There’s a Word for That.**\
+`The Oxford English Dictionary added 42 new words borrowed from other languages, including gigil, a Tagalog expression for witnessing something adorable.`\
+https://nytimes.com/2025/03/27/style/oxford-dictionary-gigil-tagalog.html
+
 **Twins' new TV channel launches with wrong video featuring rival Guardians**\
 `It was a rough start for the Twins’ new TV channel, which launched with a Bob Costas-voiced video about ... the Guardians' new TV channel.`\
 https://nytimes.com/athletic/6236625/2025/03/27/twins-tv-launch-guardians-video/

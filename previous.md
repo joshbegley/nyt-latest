@@ -1,3 +1,15 @@
+**Friday Briefing: Trump’s New Tariffs Risk Trade War**\
+`Plus, shark noises from New Zealand.`\
+https://nytimes.com/2025/03/27/briefing/trump-car-tariffs-russia-ukraine-eu-hamas-protests.html
+
+**Why We Do Unpleasant Things**\
+`A surprising route to the best life possible.`\
+https://nytimes.com/2025/03/27/opinion/persistence-work-difficulty.html
+
+**Overwhelmed by Cuteness? There’s a Word for That.**\
+`The Oxford English Dictionary added 42 new words borrowed from other languages, including gigil, a Tagalog expression for witnessing something adorable.`\
+https://nytimes.com/2025/03/27/style/oxford-dictionary-gigil-tagalog.html
+
 **Twins' new TV channel launches with wrong video featuring rival Guardians**\
 `It was a rough start for the Twins’ new TV channel, which launched with a Bob Costas-voiced video about ... the Guardians' new TV channel.`\
 https://nytimes.com/athletic/6236625/2025/03/27/twins-tv-launch-guardians-video/
@@ -13,16 +25,4 @@ https://nytimes.com/video/business/economy/100000010077278/global-reaction-auto-
 **Tyler O'Neill hits sixth straight Opening Day homer, extending MLB record**\
 `O'Neill's latest blast came with his third different team, as his Baltimore Orioles faced the Toronto Blue Jays on Thursday.`\
 https://nytimes.com/athletic/6232387/2025/03/27/tyler-oneill-opening-day-home-run-record/
-
-**With Car Tariffs, Trump Puts His Unorthodox Trade Theory to the Test**\
-`With sweeping auto levies, the president is putting his beliefs about tariffs into practice on the global economy. Economists aren’t optimistic.`\
-https://nytimes.com/2025/03/27/us/politics/trump-car-tariffs-trade-strategy.html
-
-**The Runners-Up in Our Second Annual ‘Where We Are’ Photo Essay Contest**\
-`A look at nine fascinating communities from around the world, as documented by teenagers there.`\
-https://nytimes.com/2025/03/27/learning/the-runners-up-in-our-second-annual-where-we-are-photo-essay-contest.html
-
-**‘I Am Free’: Hip-Hop and the Power of Resistance in Dharavi**\
-`Gauri Gupta, 17, documents a refuge for young dreamers in a Mumbai slum.`\
-https://nytimes.com/2025/03/27/learning/i-am-free-hip-hop-and-the-power-of-resistance-in-dharavi.html
 
