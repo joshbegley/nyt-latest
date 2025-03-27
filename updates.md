@@ -1,3 +1,11 @@
+**Deadly Wildfires Destroy Historic Landmarks in South Korea**\
+`Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
+https://nytimes.com/video/world/asia/100000010075934/deadly-wildfires-destroy-historic-landmarks-in-south-korea.html
+
+**Germany Says Europe Must Respond to Trump’s Auto Tariffs**\
+`The United States is a crucial export market for the German auto industry, which is already suffering from weak sales and increased competition from China.`\
+https://nytimes.com/2025/03/27/business/germany-trump-auto-tariffs.html
+
 **Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
 `The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
 https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
