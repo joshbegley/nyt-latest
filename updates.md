@@ -1,3 +1,7 @@
+**Rubio Vows ‘Consequences’ if Venezuela Tries Seizing Territory From Guyana**\
+`As ExxonMobil produces oil offshore in Guyana, Venezuela has asserted claims to a large region of the country, recently sending a naval vessel into the waters.`\
+https://nytimes.com/2025/03/27/world/americas/marco-rubio-exxonmobil-venezuela-guyana.html
+
 **Blue Jays ask fans to 'be respectful' before playing U.S. anthem on Opening Day**\
 `Fans fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
 https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national-anthem-opening-day/

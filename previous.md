@@ -1,3 +1,7 @@
+**Rubio Vows ‘Consequences’ if Venezuela Tries Seizing Territory From Guyana**\
+`As ExxonMobil produces oil offshore in Guyana, Venezuela has asserted claims to a large region of the country, recently sending a naval vessel into the waters.`\
+https://nytimes.com/2025/03/27/world/americas/marco-rubio-exxonmobil-venezuela-guyana.html
+
 **Blue Jays ask fans to 'be respectful' before playing U.S. anthem on Opening Day**\
 `Fans fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
 https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national-anthem-opening-day/
@@ -25,8 +29,4 @@ https://nytimes.com/video/us/politics/100000010076948/rubio-tufts-student-detain
 **Ole Miss' Jaemyn Brakefield leans on NIL for mentoring opportunity**\
 `Last spring, Jaemyn Brakefield moved his “little brother” mentee Brandon Hill to live with him in Oxford with the help of NIL money.`\
 https://nytimes.com/athletic/6236452/2025/03/27/jaemyn-brakefield-ole-miss-nil-brandon-hill/
-
-**After Crash, F.A.A. Change Requires All Aircraft at Reagan to Broadcast Positions**\
-`The agency’s acting director told senators of the new policy after it was revealed that tracking technology had been disabled before a deadly midair collision in January.`\
-https://nytimes.com/2025/03/27/us/politics/reagan-crash-faa-rule-change-broadcast-positions.html
 
