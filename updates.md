@@ -1,3 +1,7 @@
+**From Landon Slaggert to Artyom Levshunov, dissecting pivotal moments in Blackhawks' loss to Devils**\
+`Disallowed goals, penalties and the lack thereof, growing pains and more all played a part in a tight game.`\
+https://nytimes.com/athletic/6234410/2025/03/26/blackhawks-penalties-levshunov-sorenson-devils/
+
 **Alysa Liu left figure skating at 16. Now she's back, and in position for a major win**\
 `Alysa Liu retired at 16, ready to move on. But last year, she felt the urge to return and now is in position for world championship glory.`\
 https://nytimes.com/athletic/6234474/2025/03/26/alysa-liu-figure-skating-world-championships/
