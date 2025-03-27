@@ -1,3 +1,11 @@
+**Rudiger, Mbappe, Ceballos, Vinicius Jr investigated for alleged indecent conduct**\
+`The players are alleged to have made gestures towards Atletico supporters following Madrid's penalty shootout victory over their rivals.`\
+https://nytimes.com/athletic/6235676/2025/03/27/real-madrid-uefa-investigation-atletico/
+
+**Wild's Kirill Kaprizov, Joel Eriksson Ek return to ice, but 'only the first step' toward game action**\
+`Kaprizov has played three games since Dec. 23. The Wild are 18-15-1 in the ones he's missed. Eriksson Ek has missed the past 15 (6-8-1).`\
+https://nytimes.com/athletic/6235781/2025/03/27/wild-kirill-kaprizov-joel-eriksson-ek-injury-updates/
+
 **Putin’s Getting the Negotiation He’s Long Wanted From the United States**\
 `Putin has finally achieved what he had long wanted: to relegate Ukraine’s fate to superpower-to-superpower talks between Moscow and Washington.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/ukraine-russia-black-sea-trump-putin
