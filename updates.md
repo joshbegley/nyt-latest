@@ -1,3 +1,7 @@
+**Here are the upset odds for last remaining NCAA Tournament longshot Arkansas**\
+`The Razorbacks are the only clear Cinderella left in the NCAA Tournament. Can Arkansas keep the fairy tale alive or will Texas Tech advance?`\
+https://nytimes.com/athletic/6233050/2025/03/27/arkansas-texas-tech-ncaa-tournament-underdogs-cinderella-bracket-breakers/
+
 **Tigers at Dodgers: How to watch LA's Shohei Ohtani face Tarik Skubal on MLB's Opening Day**\
 `The Dodgers' Blake Snell faces off against Detroit's Tarik Skubal, and LA's starry squad takes the field with Shohei Ohtani.`\
 https://nytimes.com/athletic/6230766/2025/03/27/tigers-dodgers-mlb-how-to-watch/
