@@ -1,3 +1,19 @@
+**Four Ravens free-agency takeaways: What could come next as NFL Draft nears?**\
+`We are two weeks into the new league year, but there are still a few big-ticket items Baltimore's decision-makers figure to address. `\
+https://nytimes.com/athletic/6233631/2025/03/27/ravens-free-agency-takeaways-nfl-draft/
+
+**Lions draft big board: Best options at edge and other positions of need**\
+`The Lions are likely to address the edge position in the draft.`\
+https://nytimes.com/athletic/6234023/2025/03/27/detroit-lions-big-board-best-options-edge/
+
+**The New York Times International Edition in Print for Friday, March 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/03/27/todays-new-york-times-international-edition
+
+**Listen: ‘A Turning Point for Ultraprocessed Foods’**\
+`How concerned should we be about these ubiquitous foods — a category that includes many sodas, processed meats, breakfast cereals and snacks?`\
+https://nytimes.com/2025/03/27/learning/listen-a-turning-point-for-ultraprocessed-foods.html
+
 **Here are the upset odds for last remaining NCAA Tournament longshot Arkansas**\
 `The Razorbacks are the only clear Cinderella left in the NCAA Tournament. Can Arkansas keep the fairy tale alive or will Texas Tech advance?`\
 https://nytimes.com/athletic/6233050/2025/03/27/arkansas-texas-tech-ncaa-tournament-underdogs-cinderella-bracket-breakers/
