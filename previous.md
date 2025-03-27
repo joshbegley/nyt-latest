@@ -1,3 +1,7 @@
+**LeBron James tips in a buzzer-beater; Lakers narrowly escape Pacers**\
+`James tipped in a rebound as time expired, giving the Lakers a 120-119 road win over the Pacers.`\
+https://nytimes.com/athletic/6234526/2025/03/26/lebron-james-buzzer-beater-lakers-pacers/
+
 **How Thatcher Demko led Canucks to soundly defeat Islanders: 3 takeaways**\
 `Vancouver pulled out a 5-2 win because Demko was brilliant and the best player on the ice on Long Island.`\
 https://nytimes.com/athletic/6234400/2025/03/26/canucks-islanders-thatcher-demko-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234277/2025/03/26/colorado-state-mens-basketball-h
 **Consumer Bureau Seeks to Undo Settlement and Repay Mortgage Lender**\
 `The Consumer Financial Protection Bureau wants to return a $105,000 penalty it collected last fall when it resolved a discrimination lawsuit.`\
 https://nytimes.com/2025/03/26/business/cfpb-repay-mortgage-lawsuit.html
-
-**Appeals Court Keeps Order Barring Federal Funding Freezes in Place**\
-`The ruling let stand a district court judge’s order that had blocked agencies from categorically pausing federal funds based on guidance from the Office of Management and Budget.`\
-https://nytimes.com/2025/03/26/us/politics/appeals-court-funding-freezes.html
 

@@ -1,4 +1,4 @@
-**LeBron James tips in a buzzer-beater; Lakers narrowly escape Pacers**\
+**LeBron James tips in buzzer beater; Lakers narrowly escape Pacers**\
 `James tipped in a rebound as time expired, giving the Lakers a 120-119 road win over the Pacers.`\
 https://nytimes.com/athletic/6234526/2025/03/26/lebron-james-buzzer-beater-lakers-pacers/
 

@@ -1,3 +1,7 @@
+**LeBron James tips in a buzzer-beater; Lakers narrowly escape Pacers**\
+`James tipped in a rebound as time expired, giving the Lakers a 120-119 road win over the Pacers.`\
+https://nytimes.com/athletic/6234526/2025/03/26/lebron-james-buzzer-beater-lakers-pacers/
+
 **How Thatcher Demko led Canucks to soundly defeat Islanders: 3 takeaways**\
 `Vancouver pulled out a 5-2 win because Demko was brilliant and the best player on the ice on Long Island.`\
 https://nytimes.com/athletic/6234400/2025/03/26/canucks-islanders-thatcher-demko-takeaways/
