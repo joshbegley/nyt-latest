@@ -1,3 +1,11 @@
+**Titans switching to 'Titans blue' color on primary home jerseys**\
+`The Titans will cease wearing Oilers throwback jerseys, at least in 2025, while focusing on their new primary color, "Titans blue."`\
+https://nytimes.com/athletic/6236124/2025/03/27/tennessee-titans-nfl-uniform-change-blue/
+
+**Madrid and Zubimendi? Man Utd's financial strength for summer transfers? - Ask Ornstein**\
+`We ran the latest edition of our subscriber-exclusive Ask Ornstein Q&A - here are David's favourite questions and answers`\
+https://nytimes.com/athletic/6235714/2025/03/27/real-madrid-transfer-latest-arsenal-martin-zubimendi-manchester-united/
+
 **'The Rental Car 500': NASCAR drivers plus borrowed cars often equals mischief**\
 `NASCAR drivers have a long history of rental-car shenanigans, from on-track "races" to off-track exploits.`\
 https://nytimes.com/athletic/6234619/2025/03/27/nascar-drivers-rental-cars-racing/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/03/27/us/politics/pilots-signal-leak.html
 **David M. Childs, Architect of 1 World Trade Center, Dies at 83**\
 `The antithesis of a “starchitect,” he didn’t have a recognizable style. But as a partner at Skidmore, Owings & Merrill, he helped transform the New York skyline.`\
 https://nytimes.com/2025/03/27/arts/design/david-m-childs-dead.html
-
-**The Two Democrats Trump Fired From the F.T.C. Sue Over Their Dismissals**\
-`Rebecca Kelly Slaughter and Alvaro Bedoya, who were fired from the agency this month, accused President Trump in a lawsuit of executive overreach.`\
-https://nytimes.com/2025/03/27/technology/ftc-fired-democrats-trump-lawsuit.html
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/03/27/books/review/new-books-recommendations.html
 
