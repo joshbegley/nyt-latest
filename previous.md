@@ -1,3 +1,11 @@
+**Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
+`Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
+https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
+
+**Corey Perry wants Oilers goalies protected better. Is his concern being heard?**\
+`The team’s starting goaltender is injured, and its elder statesman is second-guessing how he should have handled the aftermath.`\
+https://nytimes.com/athletic/6234826/2025/03/27/oilers-corey-perry-stuart-skinner-injury/
+
 **Dozens of Engaging Ways to Make Media Literacy Meaningful to Teenagers**\
 `This collection of interactive exercises uses Times resources to help young people find the news that matters to them, understand how it’s made, connect it to their lives — and make media of their own.`\
 https://nytimes.com/2025/03/27/learning/media-literacy-teenagers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6234340/2025/03/27/mountain-west-pac-12-conference-
 **What it's like to watch a Blues game through the eyes of Cardinals players**\
 `Cardinals players Brendan Donovan and Alec Burleson attended the Blues' 6-1 win over Montreal two days before the MLB season begins.`\
 https://nytimes.com/athletic/6231056/2025/03/27/st-louis-blues-cardinals-brendan-donovan-alec-burleson/
-
-**Tariff Sticker Shock**\
-`President Trump’s vow to hit the global automotive industry with new duties risks raising inflation and inflaming trade-war tensions.`\
-https://nytimes.com/2025/03/27/business/dealbook/trump-auto-tariffs.html
-
-**The best-case scenario for the 2025 Giants**\
-`Opening Day is a day to dream. For one day, all happy thoughts are legal. So go ahead and dream on the 2025 Giants making the postseason.`\
-https://nytimes.com/athletic/6233874/2025/03/27/sf-giants-2025-best-case-scenario/
 

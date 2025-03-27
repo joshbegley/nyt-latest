@@ -1,3 +1,11 @@
+**Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
+`Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
+https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
+
+**Corey Perry wants Oilers goalies protected better. Is his concern being heard?**\
+`The team’s starting goaltender is injured, and its elder statesman is second-guessing how he should have handled the aftermath.`\
+https://nytimes.com/athletic/6234826/2025/03/27/oilers-corey-perry-stuart-skinner-injury/
+
 **Dozens of Engaging Ways to Make Media Literacy Meaningful to Teenagers**\
 `This collection of interactive exercises uses Times resources to help young people find the news that matters to them, understand how it’s made, connect it to their lives — and make media of their own.`\
 https://nytimes.com/2025/03/27/learning/media-literacy-teenagers.html
