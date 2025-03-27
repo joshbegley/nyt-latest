@@ -1,3 +1,11 @@
+**Auto Stocks Tumble as Investors Assess Hit From Trump’s Tariffs**\
+`The U.S. levies are likely to disrupt the complex supply chains of major carmakers, hitting companies that export vehicles from Mexico, Canada Japan, South Korea and Germany.`\
+https://nytimes.com/2025/03/27/business/auto-trump-tariffs-stocks-futures.html
+
+**Chiefs big board 2.0: After free-agency moves, 26 intriguing prospects to watch**\
+`The Chiefs have clear needs on the offensive and defensive lines and at running back. Which Day 1-2 draft prospects would be a fit?`\
+https://nytimes.com/athletic/6233814/2025/03/27/chiefs-2025-nfl-draft-big-board-needs/
+
 **Bears NFL Draft big board: Looking at plenty of options after roster upgrades**\
 `The Bears' draft is wide open. Will they take a lineman, running back, tight end or a different position at No. 10? `\
 https://nytimes.com/athletic/6232839/2025/03/27/bears-nfl-draft-big-board-ashton-jeanty-tyler-warren/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6214668/2025/03/27/history-sports-bra/
 **New York Jets big board: Ranking their most likely first-round draft targets**\
 `A look at the Jets' options with the seventh overall pick.`\
 https://nytimes.com/athletic/6229394/2025/03/27/new-york-jets-first-round-draft-prospects/
-
-**What to expect from the Top 100 and 'Just Missed' prospects on MLB Opening Day rosters**\
-`Eleven players from Law's Top 100 and 'Just Missed' prospect lists are opening the season on MLB rosters. What's their 2025 outlook?`\
-https://nytimes.com/athletic/6233143/2025/03/27/mlb-top-prospects-opening-day-rosters-outlook/
-
-**Why the Red Sox will exceed expectations and make the World Series**\
-`The Red Sox failed to make the playoffs in 2024 and haven't been to the World Series since 2018, but our experts see that changing in 2025.`\
-https://nytimes.com/athletic/6233652/2025/03/27/red-sox-world-series-prediction/
 
