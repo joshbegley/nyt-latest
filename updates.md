@@ -1,3 +1,15 @@
+**Auto Stocks Tumble as Investors Assess Hit From Trump’s Tariffs**\
+`The U.S. levies are likely to disrupt the complex supply chains of major carmakers, hitting companies that export vehicles from Mexico, Canada Japan, South Korea and Germany.`\
+https://nytimes.com/2025/03/27/business/auto-trump-tariffs-stocks-futures.html
+
+**Chiefs big board 2.0: After free-agency moves, 26 intriguing prospects to watch**\
+`The Chiefs have clear needs on the offensive and defensive lines and at running back. Which Day 1-2 draft prospects would be a fit?`\
+https://nytimes.com/athletic/6233814/2025/03/27/chiefs-2025-nfl-draft-big-board-needs/
+
+**Bears NFL Draft big board: Looking at plenty of options after roster upgrades**\
+`The Bears' draft is wide open. Will they take a lineman, running back, tight end or a different position at No. 10? `\
+https://nytimes.com/athletic/6232839/2025/03/27/bears-nfl-draft-big-board-ashton-jeanty-tyler-warren/
+
 **MLB in 2025: The numbers that define baseball, from 1.96 to 41 to 1.44 billion**\
 `They’re not just numerals on a page. The best numbers tell us stories, give us insight, help us make sense of a fascinating sport.`\
 https://nytimes.com/athletic/6234375/2025/03/27/mlb-2025-season-numbers-facts/
