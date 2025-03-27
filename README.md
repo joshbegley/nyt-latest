@@ -30,7 +30,3 @@ https://nytimes.com/2025/03/27/technology/ftc-fired-democrats-trump-lawsuit.html
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/03/27/books/review/new-books-recommendations.html
 
-**It’s Easy Being Green Onions**\
-`They’re versatile and welcome in all sorts of dishes, like quick stir-fried noodles, toasted sesame waffles and a platter of roasted spring vegetables.`\
-https://nytimes.com/2025/03/27/dining/green-onion-recipes.html
-
