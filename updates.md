@@ -1,3 +1,11 @@
+**Michigan, Matt Weiss sued again by 2 more former athletes alleging account hack**\
+`The federal suit was filed Wednesday on behalf of two unnamed athletes — a volleyball player and a soccer player. Both played from 2020-24.`\
+https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
+
+**10,000 Federal Health Dept. Workers to Be Laid Off**\
+`The layoffs are part of a major restructuring at the health department, which now employs about 80,000 people.`\
+https://nytimes.com/2025/03/27/us/politics/10000-federal-health-dept-workers-to-be-laid-off.html
+
 **Premier League announce extra summer transfer window due to Club World Cup**\
 `A new window will open on June 1 before closing on June 10, five days before FIFA's revamped competition kicks off in Miami.`\
 https://nytimes.com/athletic/6235193/2025/03/27/premier-league-transfer-window-club-world-cup/

@@ -1,3 +1,19 @@
+**A net-front lesson with Canadiens' Juraj Slafkovský**\
+`Martin St. Louis believes Slafkovský can become one of the best net-front players in the NHL, but it will be a process getting there.`\
+https://nytimes.com/athletic/6234732/2025/03/27/canadiens-juraj-slafkovsky-net-front-power-play/
+
+**Flyers fire John Tortorella after 3 seasons, name Brad Shaw interim coach**\
+`The Philadelphia Flyers announced Thursday that they have relieved John Tortorella of his duties as head coach, naming Brad Shaw his replacement on an interim basis.`\
+https://nytimes.com/athletic/6235254/2025/03/27/flyers-fire-john-tortorella/
+
+**Five remaining options for Browns to secure a starting QB for 2025 season**\
+`We're four weeks from the NFL Draft and Cleveland doesn't have a starting QB on the roster. What options are still available?`\
+https://nytimes.com/athletic/6234172/2025/03/27/browns-quarterback-options-kirk-cousins-shedeur-sanders/
+
+**NBA All-Surprise Team: Norm Powell, Evan Mobley and other bright spots**\
+`The All-Surprise Team is for players like Norm Powell, who, to use his words, were “put in a box."`\
+https://nytimes.com/athletic/6234244/2025/03/27/nba-biggest-surprises-norm-powell-evan-mobley/
+
 **Michigan, Matt Weiss sued again by 2 more former athletes alleging account hack**\
 `The federal suit was filed Wednesday on behalf of two unnamed athletes — a volleyball player and a soccer player. Both played from 2020-24.`\
 https://nytimes.com/athletic/6235184/2025/03/27/michigan-matt-weiss-lawsuits-account-hacking/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/03/27/health/john-green-tuberculosis.html
 **MLB, cable companies reach deal to broadcast Twins games**\
 `The league came to agreements with Xfinity, DirecTV and FUBO in time for Opening Day.`\
 https://nytimes.com/athletic/6232664/2025/03/27/mlb-twins-games-broadcast-cable/
-
-**Deadly Wildfires Destroy Historic Landmarks in South Korea**\
-`Wildfires in South Korea have resulted in deaths, turned an ancient Buddhist temple into ashes and forced the evacuation of residents of a UNESCO World Heritage site.`\
-https://nytimes.com/video/world/asia/100000010075934/deadly-wildfires-destroy-historic-landmarks-in-south-korea.html
-
-**Germany Says Europe Must Respond to Trump’s Auto Tariffs**\
-`The United States is a crucial export market for the German auto industry, which is already suffering from weak sales and increased competition from China.`\
-https://nytimes.com/2025/03/27/business/germany-trump-auto-tariffs.html
-
-**Tourist Submarine Sinks Off Egypt, With at Least 4 People Dead**\
-`The vessel was said to be carrying more than 40 tourists near the Red Sea resort of Hurghada.`\
-https://nytimes.com/2025/03/27/world/middleeast/egypt-tourist-submarine-hurghada-red-sea.html
-
-**Baylor Scheierman stayed confident and now is 'coming into his own' for the Celtics**\
-`Boston didn't have much room for the rookie early on. But now he's making an impact and bringing "a different level of energy."`\
-https://nytimes.com/athletic/6234809/2025/03/27/baylor-scheierman-celtics-rookie/
 
