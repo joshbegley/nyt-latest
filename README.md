@@ -1,3 +1,35 @@
+**How Major Car Brands Are Affected by Trump’s Tariffs**\
+`The scale of the damage depends on the circumstances of each company’s supply chain.`\
+https://nytimes.com/2025/03/27/business/trump-auto-tariffs-car-brands.html
+
+**What Marucci and Victus bats replacing Louisville Slugger means for MLB**\
+`MLB's youth movement reaches a core piece of equipment `\
+https://nytimes.com/athletic/6235456/2025/03/27/marucci-victus-mlb-official-bat/
+
+**New York Court Blocks Texas From Filing Summons Against Doctor Over Abortion Pills**\
+`The showdown catapults the interstate abortion wars to a new level.`\
+https://nytimes.com/2025/03/27/health/new-york-texas-abortion-shield-law.html
+
+**Under Trump, Kennedy Center’s Classical Offerings Will (Mostly) Go On**\
+`The center’s opera company and orchestra are planning typical seasons. But one opera was withdrawn from the lineup by its creative team, which objected to the president’s takeover.`\
+https://nytimes.com/2025/03/27/arts/music/kennedy-center-washington-opera-orchestra.html
+
+**Want to Eat More Fish? Start Here.**\
+`These 14 delicious recipes — including this one-pan roasted fish with cherry tomatoes — make eating more fish a delight and a breeze.`\
+https://nytimes.com/2025/03/27/dining/how-to-eat-more-fish.html
+
+**Jazzed About Abstraction: Jack Whitten’s Show Is a Peak MoMA Moment**\
+`Over nearly six decades, this fantastically inventive artist experimented with paint, turning it into a sculptural medium. Our critic calls his survey “scintillating and sweeping.”`\
+https://nytimes.com/2025/03/27/arts/design/jack-whitten-moma-review-museum.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`A new take on Wynton Marsalis’s “Blues Symphony,” a piano cycle by Gregory Spears and Rosa Feola’s solo debut are among the highlights.`\
+https://nytimes.com/2025/03/27/arts/music/classical-music-albums-march.html
+
+**Scowl Made Hardcore Purists Angry. Now the Band Is Doubling Down.**\
+`The punk band fronted by Kat Moss wound its way from a local scene to national attention. Its second album, “We Are All Angels,” unpacks the pain of the journey.`\
+https://nytimes.com/2025/03/27/arts/music/scowl-are-we-all-angels.html
+
 **O'Riley close to Brighton return**\
 `The midfielder has used the international break for rest and a full recovery from bone bruising to the right knee, sustained in January.`\
 https://nytimes.com/athletic/6235495/2025/03/27/matt-o-riley-brighton-injury-return/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6235495/2025/03/27/matt-o-riley-brighton-injury-ret
 **Turkey Deports BBC Reporter Who Covered Mass Protests**\
 `Mark Lowen was detained in Istanbul after reporting on unrest prompted by the arrest of a rival of President Recep Tayyip Erdogan, the broadcaster said.`\
 https://nytimes.com/2025/03/27/world/europe/turkey-protests-bbc-reporter-lowen-deported.html
-
-**Musk targeted FEMA. Storm-battered communities are paying a price.**\
-`By Christopher Flavelle, Eduardo Medina and Luis Ferré-Sadurní`\
-https://nytimes.com/live/2025/03/27/us/trump-news/musk-targeted-fema-storm-battered-communities-are-paying-a-price
-
-**Liga F plans to introduce 'cost-effective' VAR Football Video Support**\
-`The Spanish Football Federation (RFEF) has announced plans to implement FVS into Liga F for the 2025-26 season.`\
-https://nytimes.com/athletic/6235369/2025/03/27/liga-f-football-video-support/
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6235165/2025/03/27/ask-ornstein-qa-our-football-insider-answers-your-questions-22/
-
-**Liverpool planning for next season with Quansah**\
-`The centre-back remains a big part of head coach Arne Slot's plans.`\
-https://nytimes.com/athletic/6235296/2025/03/27/jarell-quansah-liverpool-future/
-
-**Nottingham Forest Q&A: Wood injury, Nuno press conference, FA Cup glory?**\
-`Paul Taylor will be here to answer all of your Forest-related questions from 2.30pm`\
-https://nytimes.com/athletic/6234954/2025/03/27/nottingham-forest-qa-wood-injury-nuno-press-conference-fa-cup-glory/
-
-**Submit your Red Wings questions for Max Bultman's mailbag**\
-`Send in your questions, and Max may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/6235349/2025/03/27/red-wings-mailbag-submissions-bultman/
-
-**Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
-`In a late-night social media post, President Trump said he would impose “large scale” tariffs if Canada and the European Union allied to “do economic harm” to America.`\
-https://nytimes.com/live/2025/03/27/business/trump-tariffs
-
-**This Progressive Congressman Wants to Take On JD Vance**\
-`Ro Khanna, who represents Silicon Valley, sees the vice president —  a likely heir to President Trump’s political movement — as a unique threat to the constitutional order.`\
-https://nytimes.com/2025/03/27/us/politics/ro-khanna-jd-vance-2028.html
 
