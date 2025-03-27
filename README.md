@@ -1,3 +1,7 @@
+**Ahead of Opening Day, Cubs will be relying early on Brad Keller and Colin Rea**\
+`Plus, Nico Hoerner will be ready to start against the Diamondbacks, though Chicago's final lineup remains to be seen.`\
+https://nytimes.com/athletic/6234179/2025/03/26/cubs-roster-analysis-brad-keller-colin-rea/
+
 **ICE Agents Detain University of Alabama Doctoral Student**\
 `A spokeswoman for the school said the detainment occurred off campus, but it was not immediately clear why the student had been targeted.`\
 https://nytimes.com/2025/03/26/us/ice-detains-doctoral-student-university-alabama.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/26/arts/music/herb-greene-dead.html
 **Judge Assails White House Efforts to Kick Her Off Perkins Coie Case**\
 `The move to disqualify the judge was emblematic of the Trump administration’s broader attacks on the federal judiciary, which in recent weeks has pushed back against executive actions.`\
 https://nytimes.com/2025/03/26/us/politics/trump-perkins-coie-judge.html
-
-**How Artificial Intelligence Reasons**\
-`Companies like OpenAI and China’s DeepSeek offer chatbots designed to take their time with an answer. Here’s how they work.`\
-https://nytimes.com/2025/03/26/technology/ai-reasoning-chatgpt-deepseek.html
 
