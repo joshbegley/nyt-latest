@@ -1,3 +1,11 @@
+**Trump Asks Stefanik to Withdraw Bid to Be U.N. Ambassador**\
+`The president said he wanted the New York Republican to stay in Congress to bolster the party’s slim House margin and protect her seat.`\
+https://nytimes.com/2025/03/27/us/politics/stefanik-trump-cabinet.html
+
+**Top NFL Draft prospect Abdul Carter won't work out at Penn State pro day: Source**\
+`The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/
+
 **Top NFL Draft prospect Abdul Carter won't workout at Penn State pro day: Source**\
 `The edge rusher is viewed as one of the top prospects in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6236232/2025/03/27/abdul-carter-penn-state-pro-day-no-workout/

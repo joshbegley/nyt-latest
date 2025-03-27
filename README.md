@@ -1,3 +1,7 @@
+**‘A Gross Dishonor’: Cuts to Veterans’ Mental Health Care**\
+`Readers respond to President Trump’s orders that disrupt the V.A.’s ability to provide care. Also: Saving species; AI and human creativity.`\
+https://nytimes.com/2025/03/27/opinion/veterans-mental-health-cuts.html
+
 **Trump Asks Stefanik to Withdraw Bid to Be U.N. Ambassador**\
 `The president said he wanted the New York Republican to stay in Congress to bolster the party’s slim House margin and protect her seat.`\
 https://nytimes.com/2025/03/27/us/politics/stefanik-trump-cabinet.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/03/27/world/africa/algeria-boualem-sansal-prison-france
 **Leonard Polonsky, Philanthropist Who Supported the Arts, Dies at 97**\
 `After making a fortune in financial services, he funded the arts and made historical artifacts and documents widely available to the public.`\
 https://nytimes.com/2025/03/27/arts/leonard-polonsky-dead.html
-
-**Senate Overturns Rule Limiting Bank Overdraft Fees to $5**\
-`Lawmakers voted to invalidate a rule adopted last year by the Consumer Financial Protection Bureau. It now moves to the House.`\
-https://nytimes.com/2025/03/27/us/politics/overdraft-fees-limit-cfpb.html
 
