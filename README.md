@@ -1,3 +1,7 @@
+**Could Iraola's tactics work at a bigger club - and would Spurs have the patience for change?**\
+`Iraola, Thomas Frank and Marco Silva are all Premier League-proven coaches - but they don't necessarily fit 'the Tottenham way'`\
+https://nytimes.com/athletic/6215137/2025/03/27/andoni-iraola-tactics-silva-frank-tottenham/
+
 **Penn names ex-Iowa coach Fran McCaffery as next men's basketball coach**\
 `In 29 seasons, McCaffery has a 548-384 overall record with NCAA Tournament (6-12 record) stops at Lehigh, UNC Greensboro, Siena and Iowa.`\
 https://nytimes.com/athletic/6235917/2025/03/27/penn-fran-mccaffery-mens-basketball-coach/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6235676/2025/03/27/real-madrid-uefa-investigation-a
 **Putin’s Getting the Negotiation He’s Long Wanted From the United States**\
 `Putin has finally achieved what he had long wanted: to relegate Ukraine’s fate to superpower-to-superpower talks between Moscow and Washington.`\
 https://nytimes.com/live/2025/03/24/opinion/thepoint/ukraine-russia-black-sea-trump-putin
-
-**Wild's Kirill Kaprizov, Joel Eriksson Ek return to ice, but 'only the first step' toward game action**\
-`Kaprizov has played three games since Dec. 23. The Wild are 18-15-1 in the ones he's missed. Eriksson Ek has missed the past 15 (6-8-1).`\
-https://nytimes.com/athletic/6235781/2025/03/27/wild-kirill-kaprizov-joel-eriksson-ek-injury-updates/
-
-**Tottenham make Iraola top target if they move on from Postecoglou**\
-`There are question marks over Postecoglou’s long-term future at Spurs with the club currently 14th in the Premier League table.`\
-https://nytimes.com/athletic/6234936/2025/03/27/tottenham-manager-next-iraola-ange/
 
