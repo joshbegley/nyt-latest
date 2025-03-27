@@ -1,3 +1,7 @@
+**Liga F plans to introduce 'cost-effective' VAR Football Video Support**\
+`The Spanish Football Federation (RFEF) has announced plans to implement FVS into Liga F for the 2025-26 season.`\
+https://nytimes.com/athletic/6235369/2025/03/27/liga-f-football-video-support/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6235165/2025/03/27/ask-ornstein-qa-our-football-insider-answers-your-questions-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6234643/2025/03/27/vancouver-canucks-jonathan-lekke
 **The Truth About F. Scott Fitzgerald’s Drunken Brawl in Rome**\
 `Biographers took an account of a scuffle in “Tender Is the Night” as a record of a real-life event. But uncovered documents suggest Fitzgerald may have behaved worse than he wrote.`\
 https://nytimes.com/2025/03/27/books/f-scott-fitzgerald-rome-arrest-1924.html
-
-**The Bounce: A message to Giannis Antetokounmpo, Shai Gilgeous-Alexander: Admit you want MVP!**\
-`It seems this season's NBA MVP candidates are playing humble about wanting the award. Zach Harper explains why this should change.`\
-https://nytimes.com/athletic/6235128/2025/03/27/giannis-antetokounmpo-shai-gilgeous-alexander-nikola-jokic-bucks-thunder-thunder-nba-mvp-the-bounce/
 

@@ -1,3 +1,7 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6235165/2025/03/27/ask-ornstein-qa-our-football-insider-answers-your-questions-22/
+
 **Liverpool planning for next season with Quansah**\
 `The centre-back remains a big part of head coach Arne Slot's plans.`\
 https://nytimes.com/athletic/6235296/2025/03/27/jarell-quansah-liverpool-future/
