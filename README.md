@@ -1,3 +1,7 @@
+**LeBron James, Lakers stun streaking Pacers in final seconds**\
+`In his third game back from injury, James made the game-winning tip, off a Luka Dončić miss, to defeat the Pacers 120-119.`\
+https://nytimes.com/athletic/6234743/2025/03/27/lakers-stun-pacers-in-final-seconds-lebron-james/
+
 **‘Right now, we have nothing’: Bruins are tanking with no end in sight**\
 `The Bruins are 0-4 so far on their five-game road trip after getting rolled by the Ducks on Wednesday.`\
 https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anaheim-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6232136/2025/03/27/spain-2030-world-cup-vigo-san-se
 **Football in India – Is the world's most popular sport conquering its final frontier?**\
 `Reporting from Kolkata and speaking to dozens of key figures in India, we examine the state of the game in the world’s most populous nation`\
 https://nytimes.com/athletic/6210144/2025/03/27/football-india-popularity-super-league/
-
-**What Manchester United pay their players and what Sir Jim Ratcliffe's comments say of their transfer plans**\
-`Sir Jim Ratcliffe said that "50 per cent" of Manchester United's best paid players are not available, this is who and what he meant`\
-https://nytimes.com/athletic/6233414/2025/03/27/manchester-united-player-salaries-transfers/
 

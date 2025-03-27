@@ -1,3 +1,11 @@
+**‘Right now, we have nothing’: Bruins are tanking with no end in sight**\
+`The Bruins are 0-4 so far on their five-game road trip after getting rolled by the Ducks on Wednesday.`\
+https://nytimes.com/athletic/6234768/2025/03/27/boston-bruins-losing-streak-anaheim-ducks/
+
+**Word of the Day: quizzical**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/03/27/learning/word-of-the-day-quizzical.html
+
 **West Ham squad audit: Assessing the future of every member of Graham Potter's squad**\
 `The Athletic runs the rule over every member of the West Ham squad`\
 https://nytimes.com/athletic/6226373/2025/03/27/west-ham-squad-audit-graham-potter/
