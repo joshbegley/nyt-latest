@@ -26,7 +26,3 @@ https://nytimes.com/2025/03/27/learning/the-runners-up-in-our-second-annual-wher
 `Gauri Gupta, 17, documents a refuge for young dreamers in a Mumbai slum.`\
 https://nytimes.com/2025/03/27/learning/i-am-free-hip-hop-and-the-power-of-resistance-in-dharavi.html
 
-**The Winners of Our Second Annual ‘Where We Are’ Photo Essay Contest**\
-`From 619 teen entries, we are featuring 10 extraordinary pieces. Take a look.`\
-https://nytimes.com/2025/03/27/learning/the-winners-of-our-second-annual-where-we-are-photo-essay-contest.html
-
