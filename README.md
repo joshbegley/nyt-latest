@@ -1,3 +1,7 @@
+**World Leaders React to Trump’s Auto Tariffs**\
+`President Trump’s announcement of 25 percent tariffs on imported cars and auto parts prompted world leaders to rebuke the decision.`\
+https://nytimes.com/video/business/economy/100000010077278/global-reaction-auto-tariffs.html
+
 **Tyler O'Neill hits sixth straight Opening Day homer, extending MLB record**\
 `O'Neill's latest blast came with his third different team, as his Baltimore Orioles faced the Toronto Blue Jays on Thursday.`\
 https://nytimes.com/athletic/6232387/2025/03/27/tyler-oneill-opening-day-home-run-record/
@@ -23,10 +27,6 @@ https://nytimes.com/2025/03/27/learning/the-winners-of-our-second-annual-where-w
 https://nytimes.com/2025/03/27/world/americas/marco-rubio-exxonmobil-venezuela-guyana.html
 
 **Blue Jays ask fans to 'be respectful' before playing U.S. anthem on Opening Day**\
-`Fans fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
+`Fans loudly booed the U.S. national anthem before the Toronto Blue Jays season opener against the Baltimore Orioles.`\
 https://nytimes.com/athletic/6236183/2025/03/27/blue-jays-united-states-national-anthem-opening-day/
-
-**California Man Sentenced in Scheme to Steal Pricey Violins and Rob a Bank**\
-`Prosecutors said that the man persuaded music stores to lend him violins worth tens of thousands of dollars on a trial basis, which he did not return.`\
-https://nytimes.com/2025/03/27/arts/stolen-violin-scheme.html
 
