@@ -1,3 +1,15 @@
+**The 3.30.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/03/27/the-33025-issue
+
+**ITF and Piqué's Kosmos end Davis Cup legal dispute**\
+`Piqué's company had taken the ITF to the Court of Arbitration for Sport over the termination of its $3billion deal for the event.`\
+https://nytimes.com/athletic/6235011/2025/03/27/davis-cup-kosmos-gerard-pique-contract-cas/
+
+**The Athletic FC: Fallout from Davies' ACL injury, Brazil target Ancelotti, CWC's mammoth prize**\
+`Today in TAFC: Davies' ACL injury causes backlash from agent, Club World Cup's $125m prize for winners, Brazil turn attention to Ancelotti.`\
+https://nytimes.com/athletic/6234907/2025/03/27/alphonso-davies-acl-ancelotti-brazil/
+
 **Rescuers Race to Save People and Treasures From South Korea Wildfires**\
 `The country’s largest blaze on record has left 27 dead and destroyed heritage sites, including two 1,000-year-old temples.`\
 https://nytimes.com/2025/03/27/world/asia/south-korea-wildfires-heritage.html
