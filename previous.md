@@ -1,3 +1,15 @@
+**Cleveland Guardians Tanner Bibee will miss Opening Day start due to illness**\
+`Ben Lively will take the ball against the Royals and their ace, Cole Ragans on Thursday. `\
+https://nytimes.com/athletic/6236012/2025/03/27/cleveland-guardians-tanner-bibee-will-miss-first-opening-day-start-due-to-illness/
+
+**Los Angeles Sparks to retire Candace Parker's No. 3 jersey**\
+`Parker will become the third Spark to have her jersey retired, joining Lisa Leslie (No. 9) and Penny Toler (No. 11).`\
+https://nytimes.com/athletic/6235560/2025/03/27/candace-parker-jersey-retirement/
+
+**Facebook Returns to Its Roots: Showing Posts From Friends and Family**\
+`A new Friends Tab will feature posts from a user’s friends and relatives, which was the original mission of the app.`\
+https://nytimes.com/2025/03/27/technology/facebook-roots-friends-family.html
+
 **Auburn basketball’s first family: ‘Tears, work, love’ and an apprentice coming into his own**\
 `There is no official coach-in-waiting plan in place, but it's clear that Bruce would like Steven to be Auburn's next head coach. `\
 https://nytimes.com/athletic/6233880/2025/03/27/auburn-basketball-steven-pearl-bruce-pearl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6234936/2025/03/27/tottenham-manager-next-iraola-an
 **Columbia University Locked Its Campus and Unleashed a Contentious Debate**\
 `Students and neighbors are suing the school, magnifying the broader complaint that institutions stifle free expression when they restrict access to public spaces following protests.`\
 https://nytimes.com/2025/03/27/realestate/columbia-university-public-access-lawsuit-protests.html
-
-**Why sinkers, cutters or splitters will be one-third of all pitches this MLB season**\
-`Old-school pitches — such as the sinker, slider and splitter — look ready to return to prominence in MLB this season.`\
-https://nytimes.com/athletic/6233715/2025/03/27/pitches-mlb-pitchers-sinkers-cutters-splitters/
-
-**Trump’s Crackerjack Cabinet Is a Fiasco Foretold**\
-`Pete Hegseth & Co. weren’t chosen for their competence.`\
-https://nytimes.com/2025/03/27/opinion/trump-signal-cabinet-hegseth.html
-
-**Hollywood Has Not Recovered Jobs Lost During Strikes, Report Says**\
-`Many entertainment industry workers have been jobless for months, leading state officials to consider increasing subsidies to keep film and television production in California.`\
-https://nytimes.com/2025/03/27/movies/hollywood-jobs-lost-strikes.html
 

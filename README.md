@@ -1,5 +1,9 @@
+**Penn names ex-Iowa coach Fran McCaffery as next men's basketball coach**\
+`In 29 seasons, McCaffery has a 548-384 overall record with NCAA Tournament (6-12 record) stops at Lehigh, UNC Greensboro, Siena and Iowa.`\
+https://nytimes.com/athletic/6235917/2025/03/27/penn-fran-mccaffery-mens-basketball-coach/
+
 **Cleveland Guardians Tanner Bibee will miss Opening Day start due to illness**\
-`Ben Lively will take the ball against the Royals and their ace, Cole Ragans on Thursday. `\
+`Ben Lively will take the ball against the Royals and their ace, Cole Ragans, on Thursday. `\
 https://nytimes.com/athletic/6236012/2025/03/27/cleveland-guardians-tanner-bibee-will-miss-first-opening-day-start-due-to-illness/
 
 **Los Angeles Sparks to retire Candace Parker's No. 3 jersey**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6235781/2025/03/27/wild-kirill-kaprizov-joel-erikss
 **Tottenham make Iraola top target if they move on from Postecoglou**\
 `There are question marks over Postecoglou’s long-term future at Spurs with the club currently 14th in the Premier League table.`\
 https://nytimes.com/athletic/6234936/2025/03/27/tottenham-manager-next-iraola-ange/
-
-**Columbia University Locked Its Campus and Unleashed a Contentious Debate**\
-`Students and neighbors are suing the school, magnifying the broader complaint that institutions stifle free expression when they restrict access to public spaces following protests.`\
-https://nytimes.com/2025/03/27/realestate/columbia-university-public-access-lawsuit-protests.html
 

@@ -1,3 +1,15 @@
+**Cleveland Guardians Tanner Bibee will miss Opening Day start due to illness**\
+`Ben Lively will take the ball against the Royals and their ace, Cole Ragans on Thursday. `\
+https://nytimes.com/athletic/6236012/2025/03/27/cleveland-guardians-tanner-bibee-will-miss-first-opening-day-start-due-to-illness/
+
+**Los Angeles Sparks to retire Candace Parker's No. 3 jersey**\
+`Parker will become the third Spark to have her jersey retired, joining Lisa Leslie (No. 9) and Penny Toler (No. 11).`\
+https://nytimes.com/athletic/6235560/2025/03/27/candace-parker-jersey-retirement/
+
+**Facebook Returns to Its Roots: Showing Posts From Friends and Family**\
+`A new Friends Tab will feature posts from a user’s friends and relatives, which was the original mission of the app.`\
+https://nytimes.com/2025/03/27/technology/facebook-roots-friends-family.html
+
 **Auburn basketball’s first family: ‘Tears, work, love’ and an apprentice coming into his own**\
 `There is no official coach-in-waiting plan in place, but it's clear that Bruce would like Steven to be Auburn's next head coach. `\
 https://nytimes.com/athletic/6233880/2025/03/27/auburn-basketball-steven-pearl-bruce-pearl/
