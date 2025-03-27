@@ -1,3 +1,7 @@
+**O'Riley close to Brighton return**\
+`The midfielder has not featured for Brighton since sustaining a knee injury against Ipswich in mid-January.`\
+https://nytimes.com/athletic/6235495/2025/03/27/matt-o-riley-brighton-injury-return/
+
 **Turkey Deports BBC Reporter Who Covered Mass Protests**\
 `Mark Lowen was detained in Istanbul after reporting on unrest prompted by the arrest of a rival of President Recep Tayyip Erdogan, the broadcaster said.`\
 https://nytimes.com/2025/03/27/world/europe/turkey-protests-bbc-reporter-lowen-deported.html

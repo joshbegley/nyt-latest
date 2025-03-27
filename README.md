@@ -1,5 +1,5 @@
 **O'Riley close to Brighton return**\
-`The midfielder has not featured for Brighton since sustaining a knee injury against Ipswich in mid-January.`\
+`The midfielder has used the international break for rest and a full recovery from bone bruising to the right knee, sustained in January.`\
 https://nytimes.com/athletic/6235495/2025/03/27/matt-o-riley-brighton-injury-return/
 
 **Turkey Deports BBC Reporter Who Covered Mass Protests**\
