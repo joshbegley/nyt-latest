@@ -1,3 +1,11 @@
+**Teens Debate Whether It’s OK for Parents to Lie to Their Children**\
+`We invited students to discuss a guest essay written by a mother who says sugarcoating painful truths doesn’t help children.`\
+https://nytimes.com/2025/03/27/learning/teens-debate-whether-its-ok-for-parents-to-lie-to-their-children.html
+
+**Kenya goalkeeper under investigation for alleged match-fixing**\
+`Patrick Matasi has been capped 31 times by Kenya, including in qualifiers for the 2026 World Cup and the 2025 Africa Cup of Nations.`\
+https://nytimes.com/athletic/6236018/2025/03/27/kenya-goalkeeper-under-official-investigation-for-alleged-match-fixing/
+
 **Tesla Finds a Chef for Its Retro-Futuristic Diner in Los Angeles**\
 `Eric Greenspan, a developer of delivery-only restaurants, is reported to be the choice as the company faces a wave of political blowback.`\
 https://nytimes.com/2025/03/27/dining/elon-musk-tesla-diner-chef.html
