@@ -1,3 +1,11 @@
+**Steidten denies being banned from West Ham training ground by Moyes**\
+`Steidten left his West Ham role in January following the appointment of head coach Graham Potter and head of recruitment Kyle Macaulay.`\
+https://nytimes.com/athletic/6234924/2025/03/27/steidten-west-ham-training-ban/
+
+**A Shark Breaks Its Silence With Some Clicking Sounds**\
+`Researchers in New Zealand have recorded what they believe is the first instance of a shark actively making noise.`\
+https://nytimes.com/2025/03/27/science/shark-sounds-recording.html
+
 **Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
 ``\
 https://nytimes.com/live/2025/03/27/us/trump-tariffs-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6233814/2025/03/27/chiefs-2025-nfl-draft-big-board-
 **Bears NFL Draft big board: Looking at plenty of options after roster upgrades**\
 `The Bears' draft is wide open. Will they take a lineman, running back, tight end or a different position at No. 10? `\
 https://nytimes.com/athletic/6232839/2025/03/27/bears-nfl-draft-big-board-ashton-jeanty-tyler-warren/
-
-**MLB in 2025: The numbers that define baseball, from 1.96 to 41 to 1.44 billion**\
-`They’re not just numerals on a page. The best numbers tell us stories, give us insight, help us make sense of a fascinating sport.`\
-https://nytimes.com/athletic/6234375/2025/03/27/mlb-2025-season-numbers-facts/
-
-**The brothers Bednar: A baseball family and two fairy-tale careers at crossroads**\
-`David, 30, is coming off the worst season of his career. Will, 24, has been besieged by injuries. But they haven’t lost hope.`\
-https://nytimes.com/athletic/6225907/2025/03/27/david-bednar-pirates-will-bednar-giants-mlb/
 

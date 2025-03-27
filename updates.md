@@ -1,3 +1,11 @@
+**Steidten denies being banned from West Ham training ground by Moyes**\
+`Steidten left his West Ham role in January following the appointment of head coach Graham Potter and head of recruitment Kyle Macaulay.`\
+https://nytimes.com/athletic/6234924/2025/03/27/steidten-west-ham-training-ban/
+
+**A Shark Breaks Its Silence With Some Clicking Sounds**\
+`Researchers in New Zealand have recorded what they believe is the first instance of a shark actively making noise.`\
+https://nytimes.com/2025/03/27/science/shark-sounds-recording.html
+
 **Live Updates: Trump Threatens More Tariffs if Canada and Europe Work Against U.S.**\
 ``\
 https://nytimes.com/live/2025/03/27/us/trump-tariffs-news
